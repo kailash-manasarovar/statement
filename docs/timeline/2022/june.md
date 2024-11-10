@@ -10,8 +10,3 @@
 - I go to the audition and pass it
 - I'm scheduled to join for the third year professional studies in September
 - At the audition, Domingo's female students are hanging around helping everyone. He's told them to dress in hot pants. All the girls are wearing hot pants.
-
-## Summer
-
-- I set off for trips/stays in UK and France for the whole summer
-- Googlemaps starts sending me on bizarre journeys which include going down dirt tracks and I'm unable to see why
