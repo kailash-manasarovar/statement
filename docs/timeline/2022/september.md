@@ -6,6 +6,7 @@
 
 - My teacher is Maria Hontanilla
 - Mercedes Correas Lara is her student also. This doesn't make sense because Mercedes was in year 1 2015-16, which means she should have finished her studies two years previously but apparently it's ok
+- It's even more curious given that Mercedes has clearly done no practice in 10 years
 - Whenever I go to class, Maria teaches sometimes 20/30 minutes into my class time. Then Mercedes spends 10/15/20 minutes talking. Sometimes I'm left with 10 minutes of class. This is a weekly occurence. I'm unable to stay later as I'm working and my hours aren't so flexible
 
 ### Harmony
