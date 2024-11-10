@@ -1,1 +1,103 @@
-site_name: My Docs
+site_name: Statement
+site_author: Katharine Murphy
+copyright: Copyright &copy; 2024 Katharine Murphy
+repo_name: Statement
+repo_url: https://github.com/kailash-manasarovar/statement
+#site_url: 
+
+theme:
+  name: material
+  palette:
+    # Palette toggle for light mode
+    - scheme: default
+      primary: white
+      accent: red
+      toggle:
+        icon: material/eye
+        name: Switch to dark mode
+    # Palette toggle for dark mode
+    - scheme: slate
+      primary: black
+      accent: red
+      toggle:
+        icon: material/eye-outline
+        name: Switch to light mode
+  language: en
+  custom_dir: overrides
+  favicon: img/favicon.ico
+  logo: img/skull.png
+  features:
+    - search.suggest
+    - search.highlight
+    - search.share
+    #- navigation.instant
+    #- navigation.instant.progress
+    - navigation.tracking
+    - navigation.integration
+    - navigation.tabs
+    - navigation.tabs.sticky
+    - navigation.indexes
+    - navigation.sections
+    - navigation.path
+    - navigation.top
+    - navigation.footer
+    - toc.follow
+    - content.code.copy
+    - content.action.edit
+
+nav:
+  - Home: index.md
+  - Timeline:
+    - 2006: timeline/2006.md
+    - 2013: timeline/2013.md
+    - 2014: timeline/2014.md
+    - 2015: timeline/2015.md
+    - 2016: timeline/2016.md
+    - Interim: timeline/interim.md
+    - 2021:
+      - July: timeline/2021-07.md
+      - December: timeline/2021-12.md
+  - Themes:
+    - Test: themes/test.md
+
+
+extra_css:
+  - https://fonts.googleapis.com/icon?family=Material+Icons
+  - https://cdnjs.cloudflare.com/ajax/libs/KaTeX/0.16.7/katex.min.css
+
+markdown_extensions:
+  - toc:
+      permalink: true
+      permalink_title: Link to this section
+      toc_depth: 4
+  - codehilite
+  - markdown_include.include:
+      base_path: docs
+  - admonition
+  - footnotes
+  - def_list
+  - attr_list
+  - abbr
+  - pymdownx.tabbed
+  - pymdownx.superfences
+  - pymdownx.betterem:
+      smart_enable: all
+  - pymdownx.keys
+  - pymdownx.details
+  - pymdownx.magiclink
+  - pymdownx.mark
+  - pymdownx.smartsymbols
+  - pymdownx.tasklist:
+      custom_checkbox: true
+  - pymdownx.tilde
+  - pymdownx.caret
+  - meta
+  - smarty
+
+plugins:
+  - search
+  - open-in-new-tab
+
+validation:
+  absolute_links: warn
+  anchors: warn
