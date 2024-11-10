@@ -48,20 +48,56 @@ theme:
 nav:
   - Home: index.md
   - Timeline:
-    - 2006: timeline/2006.md
-    - 2013: timeline/2013.md
-    - 2014: timeline/2014.md
-    - 2015: timeline/2015.md
-    - 2016: timeline/2016.md
-    - Interim: timeline/interim.md
+    - Early years:
+      - 2006: timeline/early-years/2006.md
+      - 2013: timeline/early-years/2013.md
+      - 2014: timeline/early-years/2014.md
+      - 2015: timeline/early-years/2015.md
+      - 2016: timeline/early-years/2016.md
+      - Interim: timeline/early-years/interim.md
     - 2021:
-      - July: timeline/2021-07.md
-      - December: timeline/2021-12.md
+      - July: timeline/2021/july.md
+      - December: timeline/2021/december.md
+    - 2022:
+      - March: timeline/2022/march.md
+      - June: timeline/2022/june.md
+      - July: timeline/2022/july.md
+      - September: timeline/2022/september.md
+      - October: timeline/2022/october.md
+      - November: timeline/2022/november.md
+      - December: timeline/2022/december.md
+    - 2023:
+      - January: timeline/2023/january.md
+      - February: timeline/2023/february.md
+      - March: timeline/2023/march.md
+      - April: timeline/2023/april.md
+      - May: timeline/2023/may.md
+      - June: timeline/2023/june.md
+      - July: timeline/2023/july.md
+      - August: timeline/2023/august.md
+      - September: timeline/2023/september.md
+      - October: timeline/2023/october.md
+      - November: timeline/2023/november.md
+      - December: timeline/2023/december.md
+    - 2024:
+      - January: timeline/2024/january.md
+      - February: timeline/2024/february.md
+      - March: timeline/2024/march.md
+      - April: timeline/2024/april.md
+      - May: timeline/2024/may.md
+      - June: timeline/2024/june.md
+      - July: timeline/2024/july.md
+      - August: timeline/2024/august.md
+      - September: timeline/2024/september.md
+      - October: timeline/2024/october.md
+      - November: timeline/2024/november.md
+      - December: timeline/2024/december.md
   - Themes:
     - Test: themes/test.md
 
 
 extra_css:
+  - extra.css
   - https://fonts.googleapis.com/icon?family=Material+Icons
   - https://cdnjs.cloudflare.com/ajax/libs/KaTeX/0.16.7/katex.min.css
 
