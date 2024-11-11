@@ -49,7 +49,7 @@ nav:
   - Home: index.md
   - Timeline:
     - Early years:
-      - 2006: timeline/early-years/2006.md
+      - 2007: timeline/early-years/2007.md
       - 2013: timeline/early-years/2013.md
       - 2014: timeline/early-years/2014.md
       - 2015: timeline/early-years/2015.md
@@ -97,7 +97,7 @@ nav:
   - Themes:
     - Test: themes/test.md
   - Evidence:
-    - Test: evidence/test.md
+    - CCTV: evidence/cctv.md
 
 
 extra_css:
