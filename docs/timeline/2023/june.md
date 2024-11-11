@@ -36,14 +36,27 @@
 - There is a storm and lightning destroys a tree outside
 - I leave for Ireland and there are rainbows all over the region. I take it as a good sign
 
+## Twitter
+
+- I'm still having this weird "communication" with the account I think is Vidal's account
+- I run a block list on his followers and who he's following
+- I'm worried they're after my account so I take steps to protect it
+
+## Sunday 16th June Alicante airport
+
+- On my return from Dublin to Alicante, I'm walking towards the arrivals hall and I see him standing there waiting for someone
+- I can't believe it could be him, I'm horrified actually
+- I pull my hat down over my eyes and rush through
+- I forget about this, thinking I must have made a mistake, because it's so weird 
+- There is no way he could have known about the flight details without having access to my google account, or a connection to someone who has access to flight databases which is what I thought at the time because I had no idea I was hacked at that time
+
 ## Monday 19th June
 
-- I go to practice the piano at the conservatory
+- To everyone's shock and surprise, I go to practice the piano at the conservatory
 - This was not what they intented, and I knew that very well
 - I still couldn't believe that everyone would want me out. There was no reason for it, so I went back
 - I'm also stubborn and deeply against injustices of all kinds
 - I walk my talk as much as possible
 
-## Twitter
 
-- I'm still having this weird "communication" with the account I think is Vidal's account
+
