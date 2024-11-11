@@ -13,3 +13,10 @@
 - When I looked at his Facebook again over Christmas he had deleted it
 - The Facebook name was exactly the same as the name in the GV systems, Vidal Sastre Sanchez Hornero (VSSH)
 - I started to think about him a lot. I have a tendency to do this with men I like so there was nothing strange about it from my side. It was a bit irritating, and I knew there was a "plot" against me, so it was a bit stressful too
+
+## Feeling unwell at home
+
+- I feel unwell at home, disordered and nauseas at times
+- I often drink wine at the weekend, not much, a couple of glasses usually
+- I am often extremely unwell after drinking two glasses of red wine which is quite strange
+- I am disordered and clumsy. I cut myself quite badly in the kitchen

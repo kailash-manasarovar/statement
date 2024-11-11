@@ -25,17 +25,18 @@
 
 - On Monday 30th January I go to class as normal for 8pm
 - The doctor is having his class before ours
-- There is no sound in the classroom and the doctor comes out and they walk out together
+- There is no sound in the classroom, no music, no talking. Eventually the doctor comes out and they walk out together
 - Class is normal and I do feel like there is an electricity between us, a chemistry
 - After class finishes, I'm surprised to find I cannot walk down the stairs easily as my calves are in excrutiating pain
 - It is very strange and concerning and when I get home I look my symptoms up on Google and discover I have the systems of rhabdomylse 
-- I consider going to A&E as it is very serious but decide not to 
-- The pain goes on for about 5 days
+- I consider going to A&E as it is very serious on Google but decide not to 
+- The pain goes on for about 5 days then disappears
 - Other symptoms are I have sudden dark rings under my eyes which is very noticeable and alarming
 - I also start having aching in my kidneys, particularly the right kidney
 - My urine is frothy
+- I have an enormous bump and discoloration on my left thumbnail and similar but less on my right. Maria Hontanilla notices it in class
 - All these symptoms tie in with the rhabdo diagnosis
-- I put it down to a hike I did at the weekend, but there was nothing extraordinary about it and I had recently done far more strenuous hikes on a regular basis. There was no other explanation at the time.
+- I put it down to a hike I did at the weekend, but there was nothing extraordinary about the hike and I had recently done far more strenuous hikes on a regular basis. There was no other explanation at the time.
 
 ## Mental state
 
