@@ -96,6 +96,8 @@ nav:
       - December: timeline/2024/december.md
   - Themes:
     - Test: themes/test.md
+  - Evidence:
+    - Test: evidence/test.md
 
 
 extra_css:
