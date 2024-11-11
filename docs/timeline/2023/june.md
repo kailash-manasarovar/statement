@@ -43,3 +43,7 @@
 - I still couldn't believe that everyone would want me out. There was no reason for it, so I went back
 - I'm also stubborn and deeply against injustices of all kinds
 - I walk my talk as much as possible
+
+## Twitter
+
+- I'm still having this weird "communication" with the account I think is Vidal's account
