@@ -43,5 +43,5 @@
 - I can't stop thinking about this man
 - I'm extremely concerned about rhabdo and having kidney damage
 - I go on a very strict diet to try to heal myself
-- I contact an acupuncturist in Denia to ask for help
+- I contact an acupuncturist in Dénia to ask for help
 - She is not back until May so she can't see me for a few months

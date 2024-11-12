@@ -32,7 +32,7 @@
 
 - Let's call him Vidal for want of a real name for now
 - He had two other classes; one was the autistic girl, Candela about 15,  playing flute and a guitarist (I can't remember who this guy was)
-- The other class was a doctor from the Denia hospital, Joan, and his class was just before ours.
+- The other class was a doctor from the Dénia hospital, Joan, and his class was just before ours.
 - AFAIK he had no other classes and only came on Monday evenings.
 
 ## Attendance

@@ -14,7 +14,7 @@
 - The teacher is Adrian ..
 - One of my classmates is Samuel who has near perfect English
 - He is Domingo's student
-- He was studying singing in Javea but moved to do piano in Denia instead, it's not clear why
+- He was studying singing in Javea but moved to do piano in Dénia instead, it's not clear why
 - Elvira is also in this class. She is Domingo's student also
 
 ### Choir

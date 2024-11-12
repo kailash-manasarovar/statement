@@ -1,7 +1,7 @@
-## Denia
+## Dénia
 
 - I had planned a trip to Egypt in December but my flat got bedbugs
-- Instead I changed all my plans and spent most of December in Denia
+- Instead I changed all my plans and spent most of December in Dénia
 - I stayed at two hotels and logged into their networks
 - I did a lot of apartment searches
 - On December 8th, a very significant day for me spiritually, an apartment came up for rent which was perfect, too good to be true even
@@ -14,7 +14,7 @@
 - The water ran brown in the bathtub
 - There was untold rubbish in the kitchen cupboards which I cleaned out
 - There were semen stains on the sofa; I thought because it had been used as an AirBNB type property and the last visitors had been *you know what*
-- The landlady, the caretaker Pedro, and my neighbour Marie Carmen at number 16 talked about a woman renting the flat previously and running away without saying why. She was a nurse at the Denia hospital
+- The landlady, the caretaker Pedro, and my neighbour Marie Carmen at number 16 talked about a woman renting the flat previously and running away without saying why. She was a nurse at the Dénia hospital
 
 ## Walking
 
