@@ -9,7 +9,14 @@
 
 ## Ana
 
-- Somehow the suggestion is that he and Ana are an item
+- Somehow the suggestion is that he and Ana are an item.
+- Ana comes in every class with her instrument to put it in the room, for reasons unclear.
+- Ana and Rosa come in together sometimes.
+- Rosa is the head of studies.
+- On one occasion, Rosa mentions to Vidal that it is his *funcionario* exam the following week.
+- I understood from things that Maria and Vidal had said, that he was sitting the exam to become eligible for a pension.
+- Vidal is often practicing for his exam when I arrive at class and he says so.
+- It's all a bit contrived.
 
 ## Other times
 

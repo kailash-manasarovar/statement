@@ -2,6 +2,13 @@
 
 - I start at the conservatory
 
+!!! important
+    - It's essential for the reader to realize that the teachers and staff had been planning an exaggerated gang stalking situation with me as target and, although I was aware that something evil was going on, I was completely unaware of the extent of it and how many people were involved until March 2024, nearly 18 months away.
+    - Therefore, everything I describe with regards to the actions and behavior of the staff and teachers at the conservatory of Denia is part of a carefully choreographed deceit and directed by Domingo Cano Lopez and his associate who was calling himself Vidal Sastre Sanchez Hornero.
+    - It is not clear whether the staff and teachers at the conservatory were aware of the full implications of what was happening and whether they just assumed it was another woman being bullied like usual.
+    - The question is, did they, and people like Trish Penny and Christine Betterton Jones know about the underlying plot running parallel which was sexual grooming, medicating/spiking, porn gathered from cyber-stalking/hacking/voyeurism, and potentially far worse.
+    - Given that everyone knew I had been suicidally depressed, one must assume that an attack like this would have as it's main intention the suicide of the victim.
+
 ### Piano
 
 - My teacher is Maria Hontanilla
@@ -34,3 +41,4 @@
 ## Domingo's little group
 
 - Ocassionally I see Domingo around. He's always with his little group of youngsters and Samuel who's in his 20s
+

@@ -49,3 +49,7 @@
 ## Flirting
 
 - Vidal started to flirt with me immediately
+
+## Death of a teacher
+
+- There was an untimely death of a teacher and I assumed it was suicide.
