@@ -12,6 +12,14 @@
 - I'm aware everything is a big joke but I'm not aware of the extent of it. I mistakenly believe that only Domingo and his close associates are scheming against me, and perhaps Vidal doesn't want to be a part of it, and Ana is just a lie ... it's all very confusing actually
 - I'm aware something's going to happen at the end of the year on the last class and I tweet about that
 
+## Sunday 11th June
+
+- I go to the beach on Sundays.
+- As I'm walking down to the beach, Vidal is driving towards me in a car, a beat up Peugot 205.
+- He sees me and takes a turn into a no entry road.
+- It reminds me of the Truman Show.
+- My mind is racing and I know everything is a set up and the class the following day is to be the final show.
+
 ## Last class
 
 - My humiliation on Monday 12th June
@@ -53,10 +61,13 @@
 ## Monday 19th June
 
 - To everyone's shock and surprise, I go to practice the piano at the conservatory
-- This was not what they intented, and I knew that very well
+- This was not what they intended, and I knew that very well
 - I still couldn't believe that everyone would want me out. There was no reason for it, so I went back
 - I'm also stubborn and deeply against injustices of all kinds
 - I walk my talk as much as possible
 
+## Rest of June
 
-
+- I practice every day at the conservatory.
+- I feel sexually aroused a lot at home, and masturbate often, even on the days I don't go to the conservatory.
+- I'm still having the communication via Twitter posts with @jctot19.
