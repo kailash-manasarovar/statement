@@ -10,8 +10,6 @@
 
 ## They take control of my mobile
 
-## Weird guy at conservatory
-
 ## People on the beach
 
 ## My friend visits
