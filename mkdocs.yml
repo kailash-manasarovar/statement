@@ -34,10 +34,11 @@ theme:
     #- navigation.instant.progress
     - navigation.tracking
     - navigation.integration
+    #- navigation.expand
     - navigation.tabs
     - navigation.tabs.sticky
     - navigation.indexes
-    - navigation.sections
+    #- navigation.sections
     - navigation.path
     - navigation.top
     - navigation.footer
@@ -50,6 +51,7 @@ nav:
     - Summary: index.md
   - Timeline:
     - Early years:
+      - 2006: timeline/early-years/2006.md
       - 2007: timeline/early-years/2007.md
       - 2013: timeline/early-years/2013.md
       - 2014: timeline/early-years/2014.md
@@ -117,7 +119,7 @@ nav:
     - Health: personal/health.md
     - Expenses: personal/expenses.md
     - Vocation: personal/vocational.md
-    
+
 
 
 extra_css:
