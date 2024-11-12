@@ -1,7 +1,13 @@
 ## Twitter
 
-- The suggestions were things like he was coming over, we would go out, he would ask me out, he really liked me
+- The Twitter suggestions were things like he was coming over, we would go out, he would ask me out, he really liked me
 - I tweeted irreverence back
+
+## Love
+
+- I was so high on this feeling of being in love, it felt real to me
+- I was feeling something I had never felt before in my life, it was really powerful. I had no idea I was being drugged. None.
+- I didn't understand why he wasn't talking to me directly but I was prepared to excuse it
 
 ## Penultimate class
 

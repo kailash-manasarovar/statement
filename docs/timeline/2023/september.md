@@ -13,3 +13,13 @@
 ## People on the beach
 
 ## My friend visits
+
+## Chamber music
+
+## Harmony classes
+
+## Piano classes
+
+## Choir
+
+- Dick pic

@@ -18,11 +18,11 @@
 - Gloria, the receptionist at the conservatory, leaves a message on my phone to say class is starting. It's a weird message where I hear the word guapo (handsome) and then she laughs weirdly
 - I go to class and the same guy who Trish was talking to in Benijembla was there
 - He says his name is Vidal
-- In the Generalitat systems, his name is Vidal Sastre Sanchez Hornero (I believe this is a false name but there was no reason to think so at the time, other than when I asked him his name, when he said Vidal it didn't ring true somehow)
-- So I came to class and we met, there was some confusion about him needing the toilet, but he kept looking at his phone, and not really moving, and then he was moving to the toilet, he kept saying he was going to the toilet, it was weird
+- In the Generalitat systems, his name is Vidal Sastre Sanchez Hornero (I believe this is a false name but there was no reason to think so at the time, other than when I asked him his name, and he answered Vidal, it didn't ring true somehow)
+- So I came to class and we met, there was some confusion about him needing the toilet, but he kept looking at his phone, and not really moving, and then he was moving to the toilet, and he kept saying he was going to the toilet, it was weird
 - The toilet is just next door to room 5 at the conservatory and I heard him bump into a woman and start talking
 - It was weird, they were talking, I was becoming a bit light headed, I heard my name said, Katharine, and so I looked out of the door
-- He was standing over Ana Requena the violin teacher talking to her softly
+- He was standing over Ana Requena the violin teacher, talking to her softly
 - She was sort of slouching and looking embarassed and answering sheepishly
 - He came back into class and I was feeling light-headed and a little high actually, smiley
 - I thought it was because I fancied him
@@ -39,7 +39,7 @@
 
 - Vidal skipped many many classes 
 - All in all he probably turned up to teach about 50% of the classes we had
-- He had the flu about 3 times
+- He apparently had the flu about 3 times
 
 ## Skills and experience
 
