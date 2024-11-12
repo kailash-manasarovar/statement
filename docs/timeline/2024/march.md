@@ -23,6 +23,10 @@
 - The woman dressed as Lorraine (who I believe now is Carmen Cano, Domingo's sister) and a man sit directly behind me, seats have been saved for them
 - When I got home, I checked my camera. At 7.30pm, recorded on my security camera, you can hear a group of men making ghost noises
 
+## Talking to the translator
+
+- Perito in Alicante sounds like he's stoned
+
 ## Choir on the 13th
 
 - I turn up to choir class the next day
@@ -32,16 +36,16 @@
 - They both read it at the same time
 - The woman looks at me angrily
 - The choir repertoire includes a song about domestic violence
+- That night I become extremely anxious and scared
+- I text and tweet to everyone that I would never commit suicide
 
 ## Nowhere big blokes
 
-- I go to Nowhere to work
+- I go to Nowhere to work the following day, Thursday 14th
 - 5 big Russian or Ukrainian blokes come in and stand opposite me. They are pretending to talk about the computer. They are dressed like labourers.
 - I find it extremely threatening.
 - When I leave the offices, they are outside with a blond woman in the middle of them.
 
-## Talking to the translator
-
-- Perito in Alicante sounds like he's stoned
-
 ## Madrid
+
+- I book a hotel in Madrid and leave Denia.
