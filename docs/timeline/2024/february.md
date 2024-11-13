@@ -14,7 +14,7 @@
 
 ## Policia Nacional
 
-- I try to report the gang stalking and everything to the police in Denia, they are not interested.
+- I try to report the gang stalking and everything to the police in Dénia, they are not interested.
 
 ## Report hacking to work
 

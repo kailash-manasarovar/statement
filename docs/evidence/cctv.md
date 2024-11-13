@@ -6,6 +6,6 @@
 - There is no way he could have known about the flight details without having access to my google account, or a connection to someone who has access to flight databases which is what I thought at the time because I had no idea I was hacked at that time
 - I believe now that this was supposed to be a sexual liason where I would be put into porn, and they may have planned to includ a repeat of things that happened to me when I was 16
 
-## Nowhere, Denia, 14th March 2024
+## Nowhere, Dénia, 14th March 2024
 
 - There should be CCTV of the 5 big blokes that came into terrorize me inside the building and outside too.

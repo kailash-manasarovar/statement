@@ -11,7 +11,7 @@
 
 ## Threat to my life from the conservatory
 
-- On March 12th, there is a concert at the .. in Denia
+- On March 12th, there is a concert at the .. in Dénia
 - It's a huge set up, all meant to terrify me
 - All the pieces at the concert are related to things I have said on Twitter or in letters asking for help that were ignored
 - People are coming in to listen, and they look at me and smile
@@ -48,4 +48,4 @@
 
 ## Madrid
 
-- I book a hotel in Madrid and leave Denia.
+- I book a hotel in Madrid and leave Dénia.
