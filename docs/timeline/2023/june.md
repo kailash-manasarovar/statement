@@ -61,7 +61,7 @@
 
 - I do a search for Vidal Sastre Sanchez Hornero on Youtube.
 - A number of results come up, one which is particularly interesting.
-- He is a soloist playing at the Banda Sinfónica L'Amistat - Quart de Poblet. There is a young woman behind him who is clearly frightened and nervous. She constantly looks up at him. I wonder if she is medicated.
+- He is a soloist playing at the Banda Sinfónica L'Amistat - Quart de Poblet. There is a young woman behind him who is clearly nervous. Whoever is filming zooms in on him, and her. She constantly looks up at him. I now wonder if she is medicated.
 
 <a href="https://www.youtube.com/watch?v=Td74vBNPrW0">
 <img src="/content/images/youtube-video.png">
