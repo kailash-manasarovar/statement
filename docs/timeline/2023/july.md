@@ -20,6 +20,11 @@
 - It seems like somehow he is manipulating Google search to show me things
 - Then I see a doctored tweet which appears to have a message for me directly
 
+## Present for Gloria
+
+- Durian
+- Something for Concha with a letter in it -> link to letter
+
 ## Driving to Lourdes
 
 

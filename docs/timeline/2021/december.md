@@ -6,6 +6,7 @@
 - I did a lot of apartment searches
 - On December 8th, a very significant day for me spiritually, an apartment came up for rent which was perfect, too good to be true even
 - I contacted the landlady and signed the agreement
+- The landlady, Beatriz ..., was very angry with me for some reason
 - I moved in on December 15th
 
 ## Semen stains on the sofa
@@ -15,6 +16,9 @@
 - There was untold rubbish in the kitchen cupboards which I cleaned out
 - There were semen stains on the sofa; I thought because it had been used as an AirBNB type property and the last visitors had been *you know what*
 - The landlady, the caretaker Pedro, and my neighbour Marie Carmen at number 16 talked about a woman renting the flat previously and running away without saying why. She was a nurse at the Dénia hospital
+
+!!! important
+    I believe the references to the nurse also relate to a woman they have more recently been posting on Twitter who is clearly about to do porn - with or without her knowledge - and is often dressed as a nurse.
 
 ## Walking
 
