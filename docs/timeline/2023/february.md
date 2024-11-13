@@ -1,3 +1,5 @@
+## Homeopath
+
 ## PTSD
 
 - Classes continue and I believe I'm in love with Vidal

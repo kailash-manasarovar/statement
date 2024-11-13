@@ -18,7 +18,7 @@
 
 ### Harmony
 
-- The teacher is Adrian ..
+- The teacher is Adrià Gil Boronat.
 - One of my classmates is Samuel who has near perfect English
 - He is Domingo's student
 - He was studying singing in Javea but moved to do piano in Dénia instead, it's not clear why
@@ -26,7 +26,7 @@
 
 ### Choir
 
-- The teacher is Concha 
+- The teacher is Concha Ballester.
 - I have known Concha for years, since 2014
 - I sold her a guitar and she used to come to the international choir from time to time
 - Elvira and her sister ... both Domingo's students are in the choir class

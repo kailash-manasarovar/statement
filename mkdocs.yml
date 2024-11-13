@@ -24,8 +24,8 @@ theme:
         name: Switch to light mode
   language: en
   custom_dir: overrides
-  favicon: img/favicon.ico
-  logo: img/skull.png
+  favicon: content/images/favicon.ico
+  logo: content/images/skull.png
   features:
     - search.suggest
     - search.highlight

@@ -42,6 +42,7 @@
 - I got home and went onto twitter and tweeted something like "well that was a crappy ending wasn't it"
 - Suddenly a huge number of people start retweeting this post and I discover I'm on a list of around 30 people and they're all laughing at me
 - That was shocking and unexpected, but not in retrospect now I understand the full extent of what was going on
+- I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also high so was not able to get my head straight about anything.
 
 ## Tuesday 13th June
 
@@ -54,7 +55,17 @@
 
 - I'm still having this weird "communication" with the account I think is Vidal's account
 - I run a block list on his followers and who he's following
-- I'm worried they're after my account so I take steps to protect it
+- I'm worried they're after my account so I take steps to protect it.
+
+## Youtube
+
+- I do a search for Vidal Sastre Sanchez Hornero on Youtube.
+- A number of results come up, one which is particularly interesting.
+- He is a soloist playing at the Banda Sinfónica L'Amistat - Quart de Poblet. There is a young woman behind him who is clearly frightened and nervous. She constantly looks up at him. I wonder if she is medicated.
+
+<a href="https://www.youtube.com/watch?v=Td74vBNPrW0">
+<img src="/content/images/youtube-video.png">
+</a>
 
 ## Sunday 16th June Alicante airport
 
@@ -62,7 +73,10 @@
 - I can't believe it could be him, I'm horrified actually
 - I pull my hat down over my eyes and rush through
 - I forget about this, thinking I must have made a mistake, because it's so weird 
-- There is no way he could have known about the flight details without having access to my google account, or a connection to someone who has access to flight databases which is what I thought at the time because I had no idea I was hacked at that time
+- There is no way he could have known about the flight details without having access to my google account, or a connection to someone who has access to flight databases which is what I thought at the time because I had no idea I was hacked at that time.
+
+!!! warning
+    - It seems to me that him meeting me off my flight from Dublin on this evening would have been the beginning of something physically sexual and likely porn-related and criminal.
 
 ## Monday 19th June
 
@@ -76,4 +90,5 @@
 
 - I practice every day at the conservatory.
 - I feel sexually aroused a lot at home, and masturbate often, even on the days I don't go to the conservatory.
-- I'm still having the communication via Twitter posts with @jctot19.
+- I'm still having the communication via Twitter posts with @jctot19 who is apparently the trumpet teacher.
+- This account posts communications with me.

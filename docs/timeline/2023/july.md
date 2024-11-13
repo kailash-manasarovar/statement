@@ -8,7 +8,7 @@
 - Irene
 - Ana
 - Carmen
-- 
+- Two cartoon men
 
 ## Thailand
 
