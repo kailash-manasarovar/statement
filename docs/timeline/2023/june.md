@@ -60,12 +60,15 @@
 ## Youtube
 
 - I do a search for Vidal Sastre Sanchez Hornero on Youtube.
-- A number of results come up, one which is particularly interesting.
+- A number of results come up, one of which is particularly interesting.
 - He is a soloist playing at the Banda Sinfónica L'Amistat - Quart de Poblet. There is a young woman behind him who is clearly nervous. Whoever is filming zooms in on him, and her. She constantly looks up at him. I now wonder if she is medicated.
 
 <a href="https://www.youtube.com/watch?v=Td74vBNPrW0">
 <img src="/content/images/youtube-video.png">
 </a>
+
+- There is a moment around 1.07 where she looks at another member of the band and makes a face that suggests she finds him attractive.
+- I believe this girl was a target, just like me.
 
 ## Sunday 16th June Alicante airport
 
