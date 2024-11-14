@@ -38,6 +38,11 @@
 - All these symptoms tie in with the rhabdo diagnosis
 - I put it down to a hike I did at the weekend, but there was nothing extraordinary about the hike and I had recently done far more strenuous hikes on a regular basis. There was no other explanation at the time.
 
+!!! info "Tweets related to rhabdo"
+    - I didn't tweet about rhabdo at the time but I did Google search it.
+    - I mention it in August of 2023 at the time the "conversation" with hackers really began.
+    - Example: https://x.com/1FRGVN/status/1686848541346443270
+
 ## Mental state
 
 - I can't stop thinking about this man
