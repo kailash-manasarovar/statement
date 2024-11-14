@@ -68,7 +68,8 @@
 </a>
 
 - There is a moment around 1.07 where she looks at another member of the band and makes a face that suggests she finds him attractive.
-- I believe this girl was a target, just like me.
+- I believe this girl was targeted, just like me, i.e. medicated with aphrodisiacs and cyber-stalked with NLP techniques which made her believe there was a kind of reciprocal relationship going on.
+- It would be good to know what happened to her.
 
 !!! info
     - Offline download link: [https://www.youtube.com/watch?v=Td74vBNPrW0](../../content/video/lascia.mp4)
