@@ -49,3 +49,5 @@
 ## Madrid
 
 - I book a hotel in Madrid and leave Dénia.
+- I am followed in Madrid.
+- I write two letters by hand to my parents.
