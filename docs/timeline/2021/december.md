@@ -35,7 +35,8 @@
 
     ![The nurse profile pic](../../content/images/nurse1.png){width=45%}
 
-    Note the threatening statement, a common characteristic of the cyber-stalking I have been enduring.
+    - Note the threatening statement, a common characteristic of the cyber-stalking I have been enduring.
+    - Accounts like these may have one or two posts, messages in the profile itself, or in the top posts below the profile.
 
     ![The nurse profile](../../content/images/nurse2.png)
 
