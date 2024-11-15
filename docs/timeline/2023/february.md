@@ -19,39 +19,43 @@
 
 - However, whenever I'm in class with him my whole body vibrates. 
 - I have never felt like this before in my life and I reiterate that in many written messages to people while I had no idea what was going on. 
-- He starts to talk to me at one class, and I have a severe PTSD reaction where I become scared and I'm not able to talk to him.
+- He starts to take interest in me at one class and ask me questions about my life. I have a severe PTSD reaction - due to child sexual abuse - where I become scared and I'm not able to talk to him without being rude.
 - Back at home I'm upset about this because it has caused me problems all my life.
 - The irony is it was actually alarm bells.
-- I believe he likes me and I'm devastated I cannot respond.
+- In any case, I believe he likes me and I'm devastated I cannot respond.
 
 ## Observations on the trumpet teacher
 
 - The trumpet teacher seems poor and he is badly dressed.
-- He seems like a desperate man somehow.
-- Of the few classes he does turn up to, there are one or two where he appears to be wearing a prison-issue shirt.
-- I bring in a lot of the music we study, and he goes to photocopy it, sometimes he takes a long time doing so.
-- When he returns, I notice that he holds the pages in the top corner only.
+- He seems like a desperate man somehow. I wonder if he takes drugs. He doesn't smell of smoke.
+- Of the few classes he does turn up to, in some of the earlier classes he appears to be wearing a prison-issue shirt.
+- I bring in a lot of the music we study, and he goes to photocopy it. Gloria will be helping him no doubt. Sometimes he takes a long time doing the photocopying.
+- When he returns, I notice that he holds the pages he gives me in the top corner only.
+- Sometimes he asks me about something on his phone and hands me his phone so I'm holding it. It's never clear what he wants.
+
+!!! info "What I thought he might have wanted"
+    - When I realized I had been targeted by criminal gangs, I had a theory that he was getting me to touch his phone so he could record my fingerprints.
+    - I now think that perhaps he had some substance on the phone screen that he wanted me to touch and therefore ingest.
+    - I wonder now also if he was ingesting whatever it was he was giving me but of his own accord.
 
 ## Ana the violin teacher
 
-- The choreographed torment includes the suggestion that the trumpet teacher and Ana are having a romantic liaison.
-- Ana comes in every class with her instrument to put it in the room, for reasons unclear.
+- The choreographed torment includes the suggestion that the trumpet teacher and Ana Requena Marín are having a romantic liaison.
+- Ana comes into room 5 every chamber music class with her instrument to leave it in the room, for reasons unclear.
 - Ana and Rosa María Vidal Orengo come in together sometimes with instruments which they leave in this room.
 - It's all very contrived.
 - Rosa is the vice director of the conservatory.
 - On one occasion, Rosa mentions to the trumpet teacher that it is his *funcionario* exam the following week.
-- I understood from things that Maria and Vidal had said, that he was sitting the exam to become eligible for a pension.
-- Vidal is often practicing for his exam when I arrive at class and he says so.
-- It's all a bit contrived.
+- I understood that he was sitting the exam to become eligible for a pension and whenever I arrive at class, the trumpet teacher is often practicing for his exam and he says so.
 
 !!! tip "List of teachers and staff"
     The current lists on the conservatory website may still reflect the state of the staff in 2023 although there will be changes.
+
     - Teachers: https://portal.edu.gva.es/conservatoridenia/es/departaments-es/
     - Staff: https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/
 
 ## Other times
 
-- I also find myself light-headed in other classes like choir
-- Looking back I was completely out of my mind and I had no idea I was
-- I was being spiked and had been from at least December 2022
-
+- I also find myself light-headed and high in other classes, like choir and harmony.
+- Looking back I was completely out of my mind and I had no idea that I was being drugged.
+- I was being medicated without my knowledge, and had been from at least December 2022.
