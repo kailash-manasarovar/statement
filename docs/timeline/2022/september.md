@@ -9,6 +9,7 @@
     - The question is, did they, and people like Trish Penny and Christine Betterton Jones know about the underlying plot running parallel which was sexual grooming, clandestine medicating/spiking with aphrodisiac substances, porn gathered from cyber-stalking/hacking/voyeurism, and potentially far worse.
     - Given that everyone knew I had been suicidally depressed, either because I shared it with them personally (Christine BJ and Maria Hontanilla who I trusted), or because they had access to my Twitter account very early on, one must assume that an attack like this would have as its main intention the suicide of the victim.
     - Given the efficiency and skill of the attack, one must ask how many local suicides may be explained by gang stalking of this nature.
+    - I cannot help wonder about what led Lorraine Blackbourn to kill herself, a mother of three with a successful business. Anyone I asked about that always mentioned her "macho" boyfriend and at the root of my experiences is an undeniable and very vicious misogyny.
 
 ## Documentation
 

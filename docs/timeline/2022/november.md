@@ -22,7 +22,7 @@
 - So I came to class and we met, there was some confusion about him needing the toilet, but he kept looking at his phone, and not really moving, and then he was moving to the toilet, and he kept saying he was going to the toilet, it was weird
 - The toilet is just next door to room 5 at the conservatory and I heard him bump into a woman and start talking
 - It was weird, they were talking, I was becoming a bit light headed, I heard my name said, Katharine, and so I looked out of the door
-- He was standing over Ana Requena the violin teacher, talking to her softly
+- He was standing over Ana Requena Marín the violin teacher, talking to her softly
 - She was sort of slouching and looking embarassed and answering sheepishly
 - He came back into class and I was feeling light-headed and a little high actually, smiley
 - I thought it was because I fancied him
