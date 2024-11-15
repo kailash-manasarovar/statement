@@ -98,4 +98,7 @@
 - I practice every day at the conservatory.
 - I feel sexually aroused a lot at home, and masturbate often, even on the days I don't go to the conservatory.
 - I'm still having the communication via Twitter posts with @jctot19 who is apparently the trumpet teacher.
-- This account posts communications with me.
+- This account posts communications that are very clearly to me.
+- There are posts about Ana, British women, other things.
+- There are posts with a woman with hair flying which is the same picture I see on the American fake account in August.
+- There are posts with pictures of hanging seaweed which is an art installation that will be revealed to me in July as something Ana the violin teacher was connected to.

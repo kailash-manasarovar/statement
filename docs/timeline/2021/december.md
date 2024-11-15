@@ -41,6 +41,8 @@
 
     - Fake accounts like these may have one or two posts, messages in the profile itself, or in the top posts below the profile.
 
+- I wonder if she left hurriedly because she realized she was being drugged and related it to the apartment in some ways.
+
 ## Walking
 
 - I met Christine BJ to go hiking on the mountain and she invited me to go walking with the English ladies on a regular basis once I returned in February.

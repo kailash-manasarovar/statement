@@ -6,6 +6,9 @@
 - I share with her that I am a child sexual abuse survivor of a grooming gang. I also tell her that I probably would be trans and removing my breasts, womb, and ovaries had I been born 30 years later.
 - I tell Christine I have been suffering from a debilitating depression after reporting.
 
+!!! info
+    - The main reason I'm elaborating so much on my state of mind prior to joining the conservatory in September 2022 is to give a backdrop as to why I may not have been in a good position to ascertain immediately that I was being medicated/drugged without my knowledge or consent.
+
 ### Lorraine Blackbourn 
 
 - Lorraine Blackbourn killed herself the week I visited and her funeral was on around the day I arrived. 

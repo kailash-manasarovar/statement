@@ -29,3 +29,10 @@
 - When I tell her I work in crypto she grins that grin
 - I think she steals money from my mobile phone
 - When I'm on the table, I have the sensation she takes my bag out of the room and photographs my bank cards
+
+## TEB with Robin Sullivan
+
+- I do therapy with Robin Sullivan and explain how I'm feeling.
+- I explain also how I believe I am in love and this strange business is going on.
+- I explain how I have never felt this way in my life. She remains unconvinced.
+- I am clearly out of my mind.
