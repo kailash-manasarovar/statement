@@ -23,9 +23,9 @@
 
 - At the end of November, 28th, all of a sudden, a trumpet teacher is found for the chamber music classes.
 - Gloria, the receptionist at the conservatory, leaves a message on my phone to say class is starting. It's a weird message where I hear the word guapo (handsome) and someone says something in the background, Paqui Fornet probably, then they both laugh weirdly.
-- I go to class that evening and the same guy who Trish was talking to in Benijembla in room 5.
+- I go to class that evening and the same guy who Trish was talking to in Benijembla is there, in room 5.
 - He says his name is Vidal.
-- In the Generalitat systems, his name is Vidal Sastre Sanchez Hornero. I believe this is a false name but there was no reason to think so at the time, other than when I asked him his name, and he answered Vidal, it didn't ring true somehow.
+- In the Generalitat Valenciana systems, his name was/is Vidal Sastre Sanchez Hornero. I believe this is a false name but there was no reason to think so at the time, other than when I asked him his name, and he answered Vidal, it didn't ring true somehow.
 - So I came to class and we met, there was some immediate confusion about him needing the toilet, but he kept looking at his phone, and not really going anywhere, and then he was moving to the door of room 5, and he kept saying he was going to the toilet. It was weird and contrived.
 - The toilet is just next door to room 5 at the conservatory and I heard him bump into a woman and start talking to her.
 - It was weird, they were talking, I was feeling a bit light headed and smiley. 
@@ -36,7 +36,7 @@
 - He came back into class and I was feeling light-headed and a little high actually, smiley.
 - I thought it was because I fancied him. He was an attractive man.
 - Then the other student, Pablo Sesé Savall, a 14 year old boy, came to class. 
-- The trumpet teacher kept looking at me with that same grin. It was disturbing
+- The trumpet teacher kept looking at me with that same grin. It was disturbing.
 
 ## His other classes
 

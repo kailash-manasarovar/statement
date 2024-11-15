@@ -74,6 +74,9 @@
 !!! info
     - Offline download link: [https://www.youtube.com/watch?v=Td74vBNPrW0](../../content/video/lascia.mp4)
 
+- It may also be interesting to know who some of the other people in the group are, especially one particular woman in glasses on the left.
+- It is also interesting to note that they have managed to make a lament sound like a funeral march.
+
 ## Sunday 16th June Alicante airport
 
 - On my return from Dublin to Alicante, I'm walking towards the arrivals hall and I see him standing there waiting for someone

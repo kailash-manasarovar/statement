@@ -4,7 +4,11 @@ hide:
 - toc
 ---
 
-# Summary statement
+!!! warning
+    - This is a private repo and is not available to the public.
+    - If you are reading this without permission, or the requisite credentials, you may be prosecuted.
+
+## Summary statement
 
 This document details the numerous crimes against myself, Katharine Margaret Murphy, of Carrer Furs 15, Bloque 1, Escalera 2, Piso 3, Apartamento 17, Dénia, 03700 Alicante Spain, that have taken place over the last years.
 
@@ -21,7 +25,7 @@ The report details the following:
 
 Given all these events have taken place within the context of studying at a public learning establishment, the Dénia music conservatory, which has in attendance hundreds of minor children, and a handful of adults; and given the elaborate and extremely professional nature of the electronic attacks, and the sophistication of the drugging techniques, the likelihood of similar things happening to others, including minors, must be taken into serious consideration.
 
-## Motivation
+### Motivation
 
 For my part, I just wanted to play the piano. 
 
@@ -31,7 +35,7 @@ This photo is me playing the piano as a piano student of the conservatory of Dé
 
 ![Katharine Murphy plays the piano at the boat club in Denia in 2015](content/images/katharine-pianist.jpg){width=50%}
 
-## Report layout
+### Report layout
 
 The report is set out into different sections.
 
