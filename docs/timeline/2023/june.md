@@ -26,7 +26,7 @@
 - It reminds me of the Truman Show.
 - My mind is racing and I know everything is a set up and the class the following day is to be the final show.
 
-## Last class
+## Last class, my funeral, apparently
 
 - My humiliation on Monday 12th June
 - I bring Vidal a present to say thanks, a little wooden frog instrument, and he tried to kiss me and I flinch away
@@ -41,6 +41,7 @@
 - She was checking if I was crying
 - I got home and went onto twitter and tweeted something like "well that was a crappy ending wasn't it"
 - Suddenly a huge number of people start retweeting this post and I discover I'm on a list of around 30 people and they're all laughing at me
+- I block the list owner
 - That was shocking and unexpected, but not in retrospect now I understand the full extent of what was going on
 - I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also high so was not able to get my head straight about anything.
 
@@ -51,11 +52,14 @@
 - There is a storm and lightning destroys a tree outside
 - I leave for Ireland and there are rainbows all over the region. I take it as a good sign
 
-## Twitter
+## Ireland
 
-- I'm still having this weird "communication" with the account I think is Vidal's account
-- I run a block list on his followers and who he's following
-- I'm worried they're after my account so I take steps to protect it.
+- I don't bring my connected devices so cannot use my own Twitter account
+- I create a fake account and start following `jctot19`
+- The weird "communication" continues between myself and this account as whoever is running it knows immediately that I have done so
+
+!!! info
+    - What I did not know at this time was that they had full access to my mobile phone anyway so they knew exactly what I was doing.
 
 ## Youtube
 
@@ -75,7 +79,7 @@
     - Offline download link: [https://www.youtube.com/watch?v=Td74vBNPrW0](../../content/video/lascia.mp4)
 
 - It may also be interesting to know who some of the other people in the group are, especially one particular woman in glasses on the left.
-- It is also interesting to note that they have managed to make a lament sound like a funeral march.
+- It is also interesting to note that they have managed to make a lament sound like a funeral march which, I believe, is intentional.
 
 ## Sunday 16th June Alicante airport
 
@@ -87,6 +91,11 @@
 
 !!! warning
     - It seems to me that him meeting me off my flight from Dublin on this evening would have been the beginning of something physically sexual and likely porn-related and criminal.
+
+## Back in Denia
+
+- I run a block list on his followers and who he's following
+- I'm worried they're after my account so I take steps to protect it.
 
 ## Monday 19th June
 
