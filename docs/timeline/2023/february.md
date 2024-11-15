@@ -60,7 +60,7 @@
 - Looking back I was completely out of my mind and I had no idea that I was being drugged.
 - I was being medicated without my knowledge, and had been from at least December 2022.
 
-## Unintended consequences of drugging a person without their knowledge
+## Unintended consequences of drugging an adult person without their knowledge
 
 - I am a yoga practitioner and have done huge amounts of meditation and intense spiritual practices over the years.
 - My practices have made me extremely sensitive, including physically which is why possibly the dose of whatever they gave me the month previously had such a dramatic effect on my system.
