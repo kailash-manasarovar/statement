@@ -1,12 +1,18 @@
-## Classes continued
+## Chamber music classes continued
 
-- Whenever he turned up for class, not often, I felt the same light-headedness
+- One day in March, the trumpet teacher canceled a class by sending a WhatsApp message during the day at some point. I cried that he was not coming. It was *extraordinarily* weird. I don't cry as a rule. It takes an awful lot to make me cry. I felt that I must really be in love with this guy.
+- I found myself with the expectation that he would be coming home with me after class, and I bought extra food for that purpose. There was no reason at all to think that might happen.
+
+!!! info "Looking back"
+    - I believe now that the online romantic honey-trap grooming had really ramped up at this stage, and I was being fed NLP/hypnosis type suggestions on Twitter, and possibly elsewhere, which were reinforcing these drugged feelings of lightheadedness to be related to believing that I was in love and there was a relationship.
+    - I also believe that these NLP grooming techniques were able to suggest a reciprocity that didn't exist.
+
+- Whenever the trumpet teacher turned up for class, not often, I felt the same lightheadedness in class.
 - Moreover, whenever I returned home from class I felt like I had run a marathon, my kidneys ached, and I had to lie down
-- I couldn't understand this at all
-- It was never as intense than at class but the light-headedness, which I put down to being in love, continued every day of the week, even the days when I never left the house
+- I couldn't understand this at all.
+- It was never as intense than on Mondays after class but the lightheadedness, which I put down to being in love, continued every day of the week, even on the days when I never left the house.
 
 ## Leaving class
 
-- Whenever I left the chamber music class, Gloria would be there at reception 
-- She would grin and wink at me
-
+- Whenever I left the chamber music class to go home on a Monday night, Gloria would be there at reception.
+- She would grin and wink at me in a conspiratorial manner.
