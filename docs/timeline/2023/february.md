@@ -59,3 +59,25 @@
 - I also find myself light-headed and high in other classes, like choir and harmony.
 - Looking back I was completely out of my mind and I had no idea that I was being drugged.
 - I was being medicated without my knowledge, and had been from at least December 2022.
+
+## Unintended consequences of drugging a person without their knowledge
+
+- I am a yoga practitioner and have done huge amounts of meditation and intense spiritual practices over the years.
+- My practices have made me extremely sensitive, including physically which is why possibly the dose of whatever they gave me the month previously had such a dramatic effect on my system.
+- Another of my favorite spiritual practices is bhakti devotion, where you worship God in all His forms.
+- Around this time, I started to become a little obsessed with Hanuman, the monkey god from the Hindu religion.
+- I have adored Hanuman for many years because he loves and protects women and children.
+- He is the number one yogi.
+- I can't remember what started it, but around this time it was as if he was everywhere around me.
+- I subscribed to an Indian TV show of 630-odd episodes about his childhood and his relationship with Ram: https://www.sonyliv.com/shows/sankatmochan-mahabali-hanuman-1700000109
+- I created little videos that I found delightful and put them on Facebook: https://www.facebook.com/jack.chardwood.3/videos
+- I put Hanuman music on my phone and alarm clock.
+- I was truly obsessed with Hanuman; and I still am a little but not to the extent I was during 2023 which was an intense obsession.
+
+!!! tip "Who is Hanuman?"
+    - Hanuman is a major player in the Hindu epic the Ramayana.
+    - He helps save Ram, Sita, and Lakshman from the evil demon Ravana.
+    - He rescues Sita from Ravana who had kidnapped her and taken her to Sri Lanka.
+    - Consequently, Hanuman is known for protecting women from evil men.
+
+    ![Lord Hanuman miracles](../../content/images/lord-hanuman-miracles.jpg)
