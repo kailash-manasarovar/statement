@@ -9,6 +9,12 @@
 - The irony is it was actually alarm bells
 - I realise/believe he likes me
 
+## Chamber music classes with the trumpet teacher
+
+- The trumpet teacher seems poor and he is badly dressed.
+- He seems like a desperate man somehow.
+- Of the few classes he does turn up to, there are one or two where he appears to be wearing a prison-issue shirt, which I notice.
+
 ## Ana
 
 - Somehow the suggestion is that he and Ana are an item.
