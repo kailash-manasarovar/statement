@@ -13,12 +13,11 @@
     - Is she the go to person for kids who are struggling with emotions during their studies?
     - I'm extremely concerned about this given her behavior with me which was wholly supportive of, and played an integral part in, bullying me at the conservatory, and wholly supportive of sexual grooming online, at a minimum.
 
-- I got upstairs.
-- Maria Hontanilla is standing outside a piano room and we meet and say hello.
-- I realize now all this is set up.
+- I go upstairs. Maria Hontanilla is standing outside a piano room and we meet and say hello.
+- I realize now all this has been set up prior.
 - Maria and I are talking and then Domingo comes up the stairs. Two young female students are with him.
 - He goes to talk to Maria and the students are asking me questions. They are behaving oddly.
-- They are sort of giggly and excited when I speak to them. It's weird.
+- They are sort of nervous, giggly, and excited when I speak to them. It's weird and, now, extremely concerning.
 - Domingo leaves.
 - Maria offers to help me with the audition and at some point suggests she is my teacher.
 - It's all a bit contrived but I agree.
