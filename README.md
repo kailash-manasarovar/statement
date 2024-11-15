@@ -22,4 +22,4 @@ You will need:
 
 The site comes up at http://127.0.0.1:8000/
 
-All questions to Katharine: info@forgivenet.co.uk
+All enquiries to Katharine: info@forgivenet.co.uk
