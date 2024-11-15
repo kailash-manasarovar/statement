@@ -1,7 +1,18 @@
 ## Preparing for the audition
 
 - The head of studies, Jaume Signes, a trumpet teacher allows me to use Room 5, the trumpet teaching room, every day to practice my pieces for the audition.
-- One day, Gloria the receptionist tells me I cannot use Room 5 as it's busy but there is a room free upstairs.
+- One day, Gloria Muñoz Pimentel (this is the name on the conservatory website currently: https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/), one of the receptionists, tells me I cannot use Room 5 as it's busy but there is a room free upstairs instead.
+
+!!! tip "Gloria the receptionist"
+    - Gloria was instrumental in tormenting me throughout.
+    - It's very curious to note she is listed as the representative of highly sensitive people on the conservatory website at the current time: *Representante del PAS*: https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/
+
+    ![Gloria representing highly sensitive people](../../content/images/represent-pas.png){width=85%}
+
+    - What could this possibly mean? 
+    - Is she the go to person for kids who are struggling with emotions during their studies?
+    - I'm extremely concerned about this given her behavior with me which was wholly supportive of, and played an integral part in, bullying me at the conservatory, and wholly supportive of sexual grooming online, at a minimum.
+
 - I got upstairs.
 - Maria Hontanilla is standing outside a piano room and we meet and say hello.
 - I realize now all this is set up.
