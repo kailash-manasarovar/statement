@@ -15,7 +15,7 @@
 
 - When we are alone a little later, I mention to Trish that the trumpet teacher is the same guy we saw in Benijembla.
 - Trish gets angry and changes the subject.
-- I'm never invited to walk again. In fact, I'm cut off completely from the English ladies walking group. It's shocking to me actually and I can't figure it out at all.
+- **I'm never invited to walk again.** In fact, I'm cut off completely from the English ladies walking group. It's shocking to me actually and I can't figure it out at all.
 - I now believe they saw no option but to exclude me, as they were surprised about how much I had noticed already, and would not want me going on each week about the terror they were well aware was planned and set up for me by local people they knew.
 
 ## Chamber music classes continue
@@ -45,6 +45,8 @@
 ## Poisoning
 
 !!! danger "Crime alert"
+    - Drugging people without their knowledge is a crime.
+    - Drugging people and causing them serious injury by doing so is a crime.
 
 - On Monday 30th January I go to class as normal for 8pm.
 - The doctor, Joan, from the Dénia hospital attends his class which is scheduled before ours, 7-8pm.

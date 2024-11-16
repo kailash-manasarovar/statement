@@ -21,7 +21,12 @@
 
 !!! warning
     - Was Trish trying to warn me about something?
-    - I now believe that the look the trumpet teacher gave me was a look of recognition. He had seen me before; in pedophile rape porn from 1989. I believe this is what made them obsessed with me, for either monetary gain or because they're very very mentally unwell people.
+    - I now believe that the look the trumpet teacher gave me was a look of recognition. 
+    - He had seen me before; in pedophile rape porn from 1989. 
+    - Of course, they had found the clips on the dark net, maybe even reached out to the perpetrators. They had detailed information from my statement that were eavesdropping on.
+    - I believe this is what made them obsessed with me and plan the worst; for either monetary gain or because they're very very mentally unwell people, but it's probably mostly the money I expect.
+    - I wonder how much in subscription fees a repeat rape-porn clip would earn on the porn networks?
+    - I wonder if it's possible to claim such moneys back in litigation? Both from the original perpetrators and then again from the Dénia porn gangs.
 
 ## The trumpet teacher
 

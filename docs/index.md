@@ -6,7 +6,7 @@ hide:
 
 !!! warning
     - This is a private repo and is not available to the public.
-    - If you are reading this without permission, or the requisite credentials, you may be prosecuted.
+    - If you are reading this without permission, or without the requisite credentials, you may be prosecuted.
 
 ## Summary statement
 

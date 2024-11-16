@@ -4,7 +4,7 @@
 - I found myself with the expectation that he would be coming home with me after class, and I bought extra food for that purpose. There was no reason at all to think that might happen.
 
 !!! info "Looking back"
-    - I believe now that the online romantic honey-trap grooming had really ramped up at this stage, and I was being fed NLP/hypnosis type suggestions on Twitter, and possibly elsewhere, which were reinforcing these drugged feelings of lightheadedness to be related to believing that I was in love and there was a relationship.
+    - I believe now that the online romantic honey-trap grooming had really ramped up at this stage, and I was being fed NLP/hypnosis type suggestions on Twitter, and possibly elsewhere, which were reinforcing these drugged feelings of lightheadedness into believing that I was in love and that there was a reciprocal relationship.
     - I also believe that these NLP grooming techniques were able to suggest a reciprocity that didn't exist.
 
 - Whenever the trumpet teacher turned up for class, not often, I felt the same lightheadedness in class.

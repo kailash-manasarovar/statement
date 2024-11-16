@@ -39,12 +39,19 @@
 - That night I become extremely anxious and scared
 - I text and tweet to everyone that I would never commit suicide
 
+## Practice on the 14th
+
+- I go into practice at the conservatory
+- I'm extremely anxious and feel really uneasy in the piano room
+- I call the Irish embassy from there looking for help
+- On the way out I see Gloria. She's laughing at me saying, "finally you're leaving now"
+
 ## Nowhere big blokes
 
-- I go to Nowhere to work the following day, Thursday 14th
+- I had been working at Nowhere that day, the 14th, I went back to work
 - 5 big Russian or Ukrainian blokes come in and stand opposite me. They are pretending to talk about the computer. They are dressed like labourers.
 - I find it extremely threatening.
-- When I leave the offices, they are outside with a blond woman in the middle of them.
+- When I leave the offices about 2 hours later, they are outside at exactly the moment I step outside the door, with a blond woman I've seen before in the middle of them.
 
 ## Madrid
 

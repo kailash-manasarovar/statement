@@ -5,11 +5,11 @@
 !!! tip "Essential context around gang stalkers ultimate goals"
     - The reader should realize that the teachers and staff at the conservatory of Dénia, and persons at that time unknown, and possibly even my English expat friends, had been planning an exaggerated gang stalking situation, with me as target and, although I was aware that something evil was going on, I was completely unaware of the extent of it and how many people were involved until March 2024, 18 months away.
     - Therefore, everything I describe with regards to the actions and behavior of the staff and teachers at the conservatory of Dénia is part of a carefully choreographed deceit, managed and directed by Domingo Cano Lopez and his associates, which include the trumpet teacher who was calling himself Vidal Sastre Sanchez Hornero, Domingo's family members especially his sister Carmen, and others such as Paqui Fornet Pastor another piano teacher.
-    - It is not clear whether the staff and teachers at the conservatory were aware of the full implications of what was happening with regards to online criminal sexploitation and porn gangs, or whether they just assumed it was another vulnerable woman being bullied, and this was a normal occurrence and enjoyable to them.
-    - The question is, did they, and people like Trish Penny and Christine Betterton Jones know about the underlying plot running parallel which was sexual grooming, clandestine medicating/spiking with aphrodisiac substances, porn gathered from cyber-stalking/hacking/voyeurism, and potentially far worse.
-    - Given that everyone knew I had been suicidally depressed, either because I shared it with them personally (Christine BJ and Maria Hontanilla who I trusted), or because they had access to my Twitter account very early on, one must assume that an attack like this would have as its main intention the suicide of the victim.
+    - It is not clear whether the staff and teachers at the conservatory were aware of the full implications of what was happening with regards to online criminal sexploitation and porn gangs, or whether they just assumed I was just another vulnerable woman being bullied, and this was a normal occurrence and rather enjoyable to them in the way that the local hangings might have been in the past.
+    - The question is, did they, and people like Trish Penny and Christine Betterton Jones, know about the underlying plot running parallel which was sexual grooming, clandestine medicating/spiking with aphrodisiac substances, porn gathered from cyber-stalking/hacking/voyeurism, and potentially far worse.
+    - Given that everyone knew I had been suicidally depressed, either because I shared the information with them personally (Christine BJ and Maria Hontanilla who I had trusted), or because they had access to my Twitter account very early on, one must assume that an attack like this would have as its main intention the suicide of the victim or total nervous breakdown.
     - Given the efficiency and skill of the attack, one must ask how many local suicides may be explained by gang stalking of this nature.
-    - I cannot help wonder about what led Lorraine Blackbourn to kill herself, a mother of three with a successful business. Anyone I asked about that always mentioned her "macho" boyfriend and at the root of my experiences is an undeniable and very vicious misogyny.
+    - I cannot help wonder about what led Lorraine Blackbourn to kill herself, a mother of three with a successful business. Anyone I asked about that always mentioned her "macho" boyfriend and at the root of my experiences is an undeniable and very vicious misogyny. I mention this in a [previous section](../2021/july.md#lorraine-blackbourn) with reference to cyber stalking and harassment on Twitter.
 
 ## Documentation
 
@@ -66,5 +66,5 @@
 ## Domingo's little group
 
 - Occasionally, I see Domingo around. 
-- He's always with his little group of youngsters, Elvira and Lucía, and Samuel who's in his 20s.
-
+- He's always with his little group of youngsters, Elvira and Lucía, and Samuel, a man in his 20s.
+- It's cliquey and extremely weird. I'm concerned for the safety of Domingo's female students.

@@ -1,6 +1,6 @@
 ## Chamber music classes
 
-- Vidal flirted with me at the music classes.
+- The trumpet teacher was flirting with me at the music classes.
 - I fancied him.
 - I hadn't liked a man since 2003, and I was still depressed, so it was all a bit unsettling.
 - I also felt it was all a set up and Domingo was behind it, for revenge.

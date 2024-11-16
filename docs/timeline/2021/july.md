@@ -16,6 +16,18 @@
 - I had disconnected from everyone I knew because I was so suicidal. It didn't seem fair to keep people close. I was also finding it extremely difficult to relate to people because of my experiences.
 - For these reasons, I didn't know it was suicide until nearly a year later when I bumped into someone who told me. I had assumed Lorraine's death was due to illness.
 
+!!! warning
+    - I'm concerned now that Lorraine's untimely death may have been due to being "driven" to it, in the same way gang stalkers clearly wanted my life to end.
+    - Fake and stalker accounts on Twitter often mentioned Lorraine in relation to stalking and "whistle-blowing", a reference I didn't understand, and still don't. Maybe law enforcement will understand what this means better.
+    - The account below had been following me for some time around March 2024 when I finally left my studies at the conservatory due to being fearful for my life.
+    - This account ran gang-stalking harassment interactions with me, with the help of some of the other accounts. I found the name and content choices interesting.
+
+    ![Lorraine tortured whistle-blower](../../content/images/fake-accounts/Screenshot 2024-03-08 at 08.34.02.png){width=80%}
+
+    ![Lorraine stalker post](../../content/images/fake-accounts/lorraine%20account.png){width=80%}
+
+    - The account is suspended at the time of writing.
+
 ### Thinking about moving back
 
 - While I'm there, I remember how lovely Dénia is and desire to move back.
