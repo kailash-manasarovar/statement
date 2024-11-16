@@ -1,30 +1,45 @@
 ## Twitter
 
-- The Twitter suggestions were things like he was coming over, we would go out, he would ask me out, he really liked me
-- I tweeted irreverence back
+- The Twitter suggestions continued.
+- They were things like he was coming over, we would go out, he would ask me out, that he really liked me, would he get English ham or Spanish jamon for his dinner.
+- I tweeted irreverence back, and it was quite amusing at times.
 
 ## Love
 
-- I was so high on this feeling of being in love, it felt real to me
-- I was feeling something I had never felt before in my life, it was really powerful. I had no idea I was being drugged. None.
-- I didn't understand why he wasn't talking to me directly but I was prepared to excuse it
+- I was so high on this feeling of being in love, it felt real to me.
+- How else could I explain how I was feeling all the time, it was 24 hours a day.
+- I thought continuously about him, I felt extremely sexually aroused all the time, even in other classes.
+- I can't imagine what people must have been thinking.
+- I was feeling something I had never felt before in my life, it was really powerful. 
+- I had no idea I was being drugged. None.
+- I didn't understand why he wasn't talking to me directly but I was prepared to excuse it because of the feelings.
+
+## Work stress
+
+- Work is becoming extremely stressful and I'm not able to handle the things that are going on there.
 
 ## Penultimate class
 
-- The class is just me and him alone
-- I bring a couple of tunes to play, Creep and Back to Black
-- Creep is for Domingo
-- Back to Black is for Vidal with regards to Ana his (apparent) girlfriend
-- I'm aware everything is a big joke but I'm not aware of the extent of it. I mistakenly believe that only Domingo and his close associates are scheming against me, and perhaps Vidal doesn't want to be a part of it, and Ana is just a lie ... it's all very confusing actually
-- I'm aware something's going to happen at the end of the year on the last class and I tweet about that
+- The class on 5th June is just me and him.
+- I bring a couple of tunes to play, Creep and Back to Black.
+- Creep is for Domingo.
+- Back to Black is for the trumpet teacher with regards to Ana his (apparent) girlfriend.
+- These are tunes recommended by Mary at Lourdes.
+- I'm aware everything is a big joke, and I'm the butt of the joke, but I'm not aware of the extent of it. 
+- I mistakenly believe that only Domingo and his close associates are scheming against me.
+- The overwhelming feelings I'm having make me suggest to myself that the trumpet teacher doesn't want to be a part of it.
+- I think Ana is just a lie it was all so contrived and she grinned at me like I was an idiot. 
+- It was all extremely confusing.
+- I'm aware something's going to happen at the end of the year on the last class and I tweet about it as the day approaches.
 
 ## Sunday 11th June
 
-- I go to the beach on Sundays.
-- As I'm walking down to the beach, Vidal is driving towards me in a car, a beat up Peugot 205.
-- He sees me and takes a turn into a no entry road.
-- It reminds me of the Truman Show.
-- My mind is racing and I know everything is a set up and the class the following day is to be the final show.
+- I often go to the beach on Sundays.
+- As I'm walking down to the beach that afternoon, the trumpet teacher is driving towards me in a car, a beat up Peugeot 205.
+- He sees me and takes a sharp, wheel-squealing turn into a no entry road. It's rather amusing to me.
+- I reminds me of the Truman Show and I feel like Truman.
+- At the beach my mind is racing and it's extremely stressful.
+- I know everything is a set up and the chamber music class the following day is planned as the grand finale.
 
 !!! info "Related tweets"
     - https://x.com/1FRGVN/status/1667925200292159490
@@ -33,45 +48,50 @@
 
 ## Last class, my funeral, apparently
 
-- My humiliation on Monday 12th June
-- I bring Vidal a present to say thanks, a little wooden frog instrument, and he tried to kiss me and I flinch away
-- We play Creep and My Way
-- On playing My Way, Vidal blows his trumpet very angrily in my ear and start marching up and down angrily, humiliating me
-- Everyone has their phones out recording
-- Gloria is practically wetting herself with laughter
-- I'm not at all surprised at any of it
-- I walk out of the conservatory and they throw dirty water (I hope) onto me from an upstairs window (Ana's classroom actually)
-- I still have the t-shirt with stains on that they ruined
-- As I walk home, I "bump" into Mercedes who I realise was waiting for me the other way I walk home and when she realised I'd gone a different way she'd had to run. She was totally out of breath and trying to style it out
-- She was checking if I was crying
-- I got home and went onto twitter and tweeted something like "well that was a crappy ending wasn't it"
-- Suddenly a huge number of people start retweeting this post and I discover I'm on a list of around 30 people and they're all laughing at me
-- I block the list owner
-- That was shocking and unexpected, but not in retrospect now I understand the full extent of what was going on
-- I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also high so was not able to get my head straight about anything.
+- I'm prepared for what is supposed to be my humiliation on Monday 12th June at chamber music class.
+- I bring the trumpet teacher a present to say thanks, a little wooden frog instrument, and he tries to kiss me and I flinch away. 
+- We play Creep and My Way.
+- Before we play My Way, he tells Pablo to make sure he's recording on his phone, and he starts recording on his phone.
+- It's ugly. Every note is a sort of attack on me personally.
+- The trumpet teachers blows his trumpet extremely loudly in my ear, so that it hurts, and he is marching up and down angrily, blowing his trumpet, and is all to humiliate me.
+- Gloria comes to the door and is practically wetting herself with laughter.
+- I'm not at all surprised at any of it.
+- I walk out of the conservatory front door, and they throw dirty water (I hope) onto me from an upstairs window (Ana the violin teacher's classroom actually).
+- I still have the silk t-shirt that they ruined with the stains on it.
+- As I walk home, I "bump" into Mercedes who I realize was waiting for me to walk the other way I go sometimes, the way she would have been more familiar with me going, and when she realized I'd gone a different way, she'd had to run. She was totally out of breath and trying to style it out.
+- She was checking my face to see if I was crying. Perhaps she was recording it too.
+- I got home and went onto Twitter and tweeted something like "well that was a crappy ending wasn't it".
+- Suddenly, a huge number of people start to retweet this post and I discover I'm on a list of around 30 people and they're all laughing at what's happened.
+- I block the list owner.
+- I'm shocked about that. I had no idea so many people were involved in the deception and the humiliation attempt at that time. 
+- I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also high so was not able to get my head straight about anything that had happened.
 
 !!! info "Related tweets"
     - https://x.com/1FRGVN/status/1670583744283983874
 
 ## Tuesday 13th June
 
-- I go to acupuncture and I'm traumatized
-- She tells me I have diabetes which I know fully well is a lie
-- There is a storm and lightning destroys a tree outside
-- I leave for Ireland and there are rainbows all over the region. I take it as a good sign
+- I go to my acupuncture session and I'm extremely traumatized and shocked about what bullies they all are.
+- Maria phones me to ask me to go into the conservatory to see her.
+- I ask Maria if everyone hates me. She says no, no one hates me. 
+- The acupuncturist tells me I have diabetes, which I know fully well is a lie.
+- While I'm on the table, there is a violent storm outside, and lightning destroys a tree on the road outside.
+- I leave for Ireland that evening and there are rainbows all over the region. I take it as a good sign.
 
 ## Ireland
 
-- I don't bring my connected devices so cannot use my own Twitter account
-- I create a fake account and start following `jctot19`
-- The weird "communication" continues between myself and this account as whoever is running it knows immediately that I have done so
+- I don't bring my connected devices so I cannot use my own Twitter account.
+- I create a fake account and start following `jctot19`.
+- The weird "communication" continues between myself and this account as whoever is running it knows immediately that I have done so and that it is me.
 
 !!! info
     - What I did not know at this time was that they had full access to my mobile phone anyway so they knew exactly what I was doing.
 
+- Stephen Terrell and some of the other practitioners are aware of what's been going on from my perspective and they clearly see I'm in a traumatized state.
+
 ## Youtube
 
-- I do a search for Vidal Sastre Sanchez Hornero on YouTube.
+- I do a search for "Vidal Sastre Sanchez Hornero" on YouTube.
 - A number of results come up, one of which is particularly interesting.
 - He is a soloist playing at the Banda Sinfónica L'Amistat - Quart de Poblet. There is a young woman behind him who is clearly nervous. Whoever is filming zooms in on him, and her. She constantly looks up at him. I now wonder if she is medicated.
 
@@ -86,39 +106,68 @@
 !!! info
     - Offline download link: [https://www.youtube.com/watch?v=Td74vBNPrW0](../../content/video/lascia.mp4)
 
-- It may also be interesting to know who some of the other people in the group are, especially one particular woman in glasses on the left.
+- It may also be interesting to know who some of the other people in the group are, especially one particular woman in glasses on the left which could possibly be Carmen Cano, Domingo's sister.
 - It is also interesting to note that they have managed to make a lament sound like a funeral march which, I believe, is intentional.
+- At the time I saw this I didn't really understand what I was looking at as nothing made any sense other than Domingo was "getting me back" for not allowing him to control me in 2014.
+
+!!! info "Interestingly"
+    - I saw a collection of Youtube videos of him in musical scenarios where I felt a girl may be being targeted.
 
 ## Sunday 16th June Alicante airport
 
-- On my return from Dublin to Alicante, I'm walking towards the arrivals hall and I see him standing there waiting for someone
-- I can't believe it could be him, I'm horrified actually
-- I pull my hat down over my eyes and rush through
-- I forget about this, thinking I must have made a mistake, because it's so weird 
-- There is no way he could have known about the flight details without having access to my google account, or a connection to someone who has access to flight databases which is what I thought at the time because I had no idea I was hacked at that time.
+- On my return from Dublin to Alicante, I'm walking towards the arrivals hall and I see him standing there waiting.
+- I can't believe it could be him, I'm horrified actually.
+- I pull my hat down over my eyes and rush through.
+- I forget about this, thinking I must have made a mistake, because it's so weird. 
+- There is no way he could have known about the flight details without having access to my Google account, or a connection to someone who has access to flight databases which is what I thought at the time because I had no idea I was hacked at that time.
 
 !!! warning
     - It seems to me that him meeting me off my flight from Dublin on this evening would have been the beginning of something physically sexual and likely porn-related and criminal.
+    - I believe now that I had been sexually groomed online, and drugged, in order that I might easily welcome a sexual relationship with this man on this evening.
+    - However, the truth of the set up would have been to get me in a situation where they could produce some gang-rape related porn, similar to what had happened to me when I was a child, and this was going to be monetized around porn networks and paid-for chat groups.
+    - I believe they already had an audience ready and waiting for this.
 
 ## Back in Denia
 
-- I run a block list on his followers and who he's following
+- I run a block list on his followers and who he's following.
 - I'm worried they're after my account so I take steps to protect it.
 
 ## Monday 19th June
 
-- To everyone's shock and surprise, I go to practice the piano at the conservatory
-- This was not what they intended, and I knew that very well
-- I still couldn't believe that everyone would want me out. There was no reason for it, so I went back
-- I'm also stubborn and deeply against injustices of all kinds
-- I walk my talk as much as possible
+- I quit my job but I don't have another one to go to.
+- To everyone's shock and surprise, I go to practice the piano at the conservatory.
+- This was not what they intended, and I knew that very well.
+- But how dare they treat a student like that. I couldn't believe at that time that such behavior could be considered normal, and protected by the school board, as I understand it is now.
+- I'm also stubborn and deeply against injustices of all kinds. 
+- However, my child sexual abuse history has made me utterly intolerant of injustices to children and I knew very well that if Domingo and his associates were able to behave in such a way to an adult student, they would most definitely be doing similar to minors.
+- I also realized that if I backed down and ran away, the evil would just grow and grow.
+- I had no idea that running away was not actually what they really wanted, although perhaps that's what some of the teachers assumed. It's unclear how much people know about the porn connection.
 
 ## Rest of June
 
 - I practice every day at the conservatory.
 - I feel sexually aroused a lot at home, and masturbate often, even on the days I don't go to the conservatory.
-- I'm still having the communication via Twitter posts with @jctot19 who is apparently the trumpet teacher.
-- This account posts communications that are very clearly to me.
+
+!!! info "In retrospect"
+    - I don't realize I'm being recorded doing this via my mobile phone. I find this out when the hackers reveal themselves to me, from September 2023 onwards, and they repeat parts of conversations I've had that they heard back to me in fake Twitter account profiles or similar.
+    - I don't realize it is highly likely I'm being filmed with secret cameras in my flat too.
+
+## The beach
+
+- I go to the beach every afternoon.
+- I feel like I'm being followed.
+- I walk up to the area of the beach that has a restaurant and a bar.
+- The bar plays Back to Black while two people who look like the trumpet teacher and Ana walk by.
+- It's all set ups and contrived events designed to terrorize me.
+- It is indeed very stressful and I'm still feeling enormously sexually aroused all the time and I cannot think straight.
+
+## Twitter
+
+- I'm still having the communication via Twitter posts with `@jctot19` who is, apparently, the trumpet teacher.
+- This account posts communications that are very clearly intended for me.
 - There are posts about Ana, British women, other things.
-- There are posts with a woman with hair flying which is the same picture I see on the American fake account in August.
-- There are posts with pictures of hanging seaweed which is an art installation that will be revealed to me in July as something Ana the violin teacher was connected to.
+- There are posts with a woman with hair flying which is a trigger picture that I see on the American fake account in August, the account I ended up having a prolonged DM with a Christmas 2023.
+- There are posts with pictures of hanging seaweed, which is an art installation that will be revealed to me in July as something Ana the violin teacher was connected to.
+- It's as if they are teasing, posting things that they hope will upset me.
+- Suddenly I'm seeing a lot of porn on my Twitter timeline.
+- A porn video pops up on my timeline which looks like the trumpet teacher and Ana so I look at it. It is extremely violent and he is holding her by the neck and throwing her around the kitchen. It certainly wasn't actually Ana but the woman was similar. It may have been the trumpet, his back was to the camera.

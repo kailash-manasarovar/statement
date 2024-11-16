@@ -16,3 +16,8 @@
 
 - Whenever I left the chamber music class to go home on a Monday night, Gloria would be there at reception.
 - She would grin and wink at me in a conspiratorial manner.
+
+## Work stress
+
+- Work is becoming extremely stressful and I'm not able to handle the things that are going on there.
+- I quit my job but I have another one lined up to go to immediately.
