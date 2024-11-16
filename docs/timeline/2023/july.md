@@ -1,3 +1,13 @@
+## Tweets
+
+- https://x.com/1FRGVN/status/1674508801444048911
+- https://x.com/1FRGVN/status/1674499946681102348
+- https://x.com/1FRGVN/status/1674020464258174977
+- https://x.com/1FRGVN/status/1673232678357803010
+- https://x.com/1FRGVN/status/1672531934046552064
+- https://x.com/1FRGVN/status/1672536083425312774
+- https://x.com/1FRGVN/status/1671791604066136066
+
 ## Google search
 
 - Elon Musk makes it impossible to stalk accounts unless you are logged in.

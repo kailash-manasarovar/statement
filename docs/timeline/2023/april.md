@@ -62,10 +62,10 @@
 - It was mature and innocuous, and very honest.
 - I explained I had been sexually abused as a child and this made relationships difficult for me.
 - The next chamber music class I went to at the conservatory it felt like EVERYONE knew what I had written, the whole building was hushed.
-- His demeanor towards me was kind in class that day and this was probably the most powerful grooming technique of all because for the first time in my life, on disclosing sexual abuse to someone I cared about as I did:
+- His demeanor towards me was kind in class that day and this was probably the most powerful grooming technique of all because for the first time in my life, on disclosing sexual abuse to someone I cared about:
     - I was not judged.
-    - I was no hated or attacked.
-- When I got home that evening, his Twitter account posted a beautiful picture which felt like it was for me.
+    - I was not hated or attacked (although ironically that was exactly what was happening and probably for that reason too).
+- When I got home that evening, his Twitter account posted a beautiful picture which felt like it was a response to me.
 - I was extremely high that day, and my kidneys were aching after class, and I had to lie down.
 - I texted my friend from Lourdes about all this.
 
@@ -74,12 +74,26 @@
 - I knew he was looking at my tweets, even though he had blocked me. Back then, this was possible on Twitter.
 - I was looking at his tweets on another browser where I was not logged in.
 - Bare in mind that all this was obvious from the hacker's perspective.
-- A weird sort of communication started up, an exchange of symbolic messages via tweets, but nothing was ever said in person.
+- A weird sort of communication started up, an exchange of symbolic messages via tweets, but nothing was ever said directly or in person.
 - I continued to feel sexually aroused, even on the days I never left the house. I tweeted many things to that affect.
+- I also tweeted a lot of irreverent comical things related to sexism and the like.
+- I was annoyed that this man had clearly read my very personal tweet, had told the conservatory what I had written, and was ignoring me. I deleted this tweet about a week after I wrote it.
+- Even so, on Twitter, he was suggesting he liked me.
+- It was extremely confusing with my state of mind and the constant sexual arousal.
+- I deleted a lot of the sexually suggestive tweets I wrote after the last chamber music class on June 12th when I realized how many people were stalking me on Twitter.
 
-!!! info "My tweets related to sexual arousal April-June 2023"
-
-- I also tweeted a lot of irreverent comical things related to sexism and the like
-- I was annoyed that this man had clearly read my very personal tweet and was ignoring me
-- Even so, on Twitter on this particular account he was suggesting he liked me
-- It was confusing with my state of mind and the constant sexual arousal
+!!! info "Tweet examples related to terror at the conservatory April-June 2023"
+    - https://x.com/1FRGVN/status/1660980901776433153
+    - https://x.com/1FRGVN/status/1660951524904763392
+    - https://x.com/1FRGVN/status/1658050667682881536
+    - https://x.com/1FRGVN/status/1657873333189324800
+    - https://x.com/1FRGVN/status/1654398065149636608
+    - https://x.com/1FRGVN/status/1652981121104084994
+    - https://x.com/1FRGVN/status/1651561614749888515
+    - https://x.com/1FRGVN/status/1650839567333826560
+    - https://x.com/1FRGVN/status/1650162433657303050
+    - https://x.com/1FRGVN/status/1649792882738450434
+    - https://x.com/1FRGVN/status/1647653279193497601
+    - https://x.com/1FRGVN/status/1647611507696336896
+    - https://x.com/1FRGVN/status/1642554113908002816
+    

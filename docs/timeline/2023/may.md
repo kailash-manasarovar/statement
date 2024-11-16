@@ -5,7 +5,7 @@
 - I got home and got covid
 - When I got out of bed the tweeting and feelings continued
 
-## Choir concert
+## Conservatory choir concert
 
 - I was out of action for a few days but I wanted to go to the choir concert in any case
 - I went masked up

@@ -26,6 +26,11 @@
 - It reminds me of the Truman Show.
 - My mind is racing and I know everything is a set up and the class the following day is to be the final show.
 
+!!! info "Related tweets"
+    - https://x.com/1FRGVN/status/1667925200292159490
+    - https://x.com/1FRGVN/status/1667785711263596545
+    - https://x.com/1FRGVN/status/1665611717223612416
+
 ## Last class, my funeral, apparently
 
 - My humiliation on Monday 12th June
@@ -44,6 +49,9 @@
 - I block the list owner
 - That was shocking and unexpected, but not in retrospect now I understand the full extent of what was going on
 - I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also high so was not able to get my head straight about anything.
+
+!!! info "Related tweets"
+    - https://x.com/1FRGVN/status/1670583744283983874
 
 ## Tuesday 13th June
 
