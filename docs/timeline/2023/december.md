@@ -1,3 +1,7 @@
+## Piano concert
+
+- Why does someone always have to die?
+
 ## Chat with the American
 
 - The American has been following me since August and the account was weird.

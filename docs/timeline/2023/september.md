@@ -1,5 +1,9 @@
 ## Arriving home
 
+## Problem with the car washer
+
+- Drugging in the car?
+
 ## Going public on Twitter
 
 ## Seems to scare them
