@@ -1,22 +1,27 @@
 ## Twitter
 
-- The Twitter suggestions continued.
+- The Twitter suggestions and odd communication continued.
 - They were things like he was coming over, we would go out, he would ask me out, that he really liked me, would he get English ham or Spanish jamon for his dinner.
 - I tweeted irreverence back, and it was quite amusing at times.
 
 ## Love
 
 - I was so high on this feeling of being in love, it felt real to me.
-- How else could I explain how I was feeling all the time, it was 24 hours a day.
-- I thought continuously about him, I felt extremely sexually aroused all the time, even in other classes.
+- How else could I explain how I was feeling all the time, it was 24 hours a day?
+- I thought continuously about him, I felt extremely sexually aroused all the time, even in other classes like choir for example.
 - I can't imagine what people must have been thinking.
 - I was feeling something I had never felt before in my life, it was really powerful. 
 - I had no idea I was being drugged. None.
-- I didn't understand why he wasn't talking to me directly but I was prepared to excuse it because of the feelings.
+- I didn't understand why the trumpet teacher wasn't talking to me directly but I was prepared to excuse it because of the feelings.
 
 ## Work stress
 
 - Work is becoming extremely stressful and I'm not able to handle the things that are going on there.
+- I'm being bullied there too, I'm not sure why.
+- I'm doing my best to do a good job but feel like the men are trying to get me to leave.
+- It has all started because I corrected some instructions that were written by one of the men and he took offense at my corrections, even though we were getting complaints about them.
+- It felt like there was more to it.
+- The stress of being bullied at the conservatory, and the feelings of being high and anxious, made me unable to deal with any of this properly.
 
 ## Penultimate class
 
@@ -24,13 +29,18 @@
 - I bring a couple of tunes to play, Creep and Back to Black.
 - Creep is for Domingo.
 - Back to Black is for the trumpet teacher with regards to Ana his (apparent) girlfriend.
-- These are tunes recommended by Mary at Lourdes.
+- These are tunes recommended to me, I believe, by Mary at Lourdes.
+
+!!! info
+    - It's possible these other tunes were suggested to me by hackers on Twitter of course.
+    - That class, the trumpet teacher asks me why I didn't bring them before.
+
 - I'm aware everything is a big joke, and I'm the butt of the joke, but I'm not aware of the extent of it. 
 - I mistakenly believe that only Domingo and his close associates are scheming against me.
-- The overwhelming feelings I'm having make me suggest to myself that the trumpet teacher doesn't want to be a part of it.
-- I think Ana is just a lie it was all so contrived and she grinned at me like I was an idiot. 
-- It was all extremely confusing.
-- I'm aware something's going to happen at the end of the year on the last class and I tweet about it as the day approaches.
+- The overwhelming feelings I'm having, and some of the things he says, make me suggest to myself that the trumpet teacher doesn't really want to be a part of it.
+- I think Ana is just a lie, it was all so contrived, and she grinned at me on the stairs like I was an idiot. 
+- It was all extremely confusing and I couldn't keep anything straight in my mind.
+- I'm aware something's going to happen at the last class of the school year, and I tweet about that as the day approaches.
 
 ## Sunday 11th June
 
@@ -38,8 +48,13 @@
 - As I'm walking down to the beach that afternoon, the trumpet teacher is driving towards me in a car, a beat up Peugeot 205.
 - He sees me and takes a sharp, wheel-squealing turn into a no entry road. It's rather amusing to me.
 - I reminds me of the Truman Show and I feel like Truman.
-- At the beach my mind is racing and it's extremely stressful.
-- I know everything is a set up and the chamber music class the following day is planned as the grand finale.
+- I feel like he's coming back from scheming with Domingo and doesn't want me to see him.
+
+!!! info
+    - I'm pretty sure he wanted me to see him now. I'm just not sure why.
+
+- At the beach my mind is racing, I feel like he's going to pop up at any moment, and it's extremely stressful.
+- I know everything is a set up and I'm certain that the chamber music class the following day is planned as the grand finale.
 
 !!! info "Related tweets"
     - https://x.com/1FRGVN/status/1667925200292159490
@@ -49,43 +64,43 @@
 ## Last class, my funeral, apparently
 
 - I'm prepared for what is supposed to be my humiliation on Monday 12th June at chamber music class.
-- I bring the trumpet teacher a present to say thanks, a little wooden frog instrument, and he tries to kiss me and I flinch away. 
+- I bring the trumpet teacher a present to say thanks, a little wooden frog instrument. He tries to kiss me and I flinch away. 
 - We play Creep and My Way.
 - Before we play My Way, he tells Pablo to make sure he's recording on his phone, and he starts recording on his phone.
 - It's ugly. Every note is a sort of attack on me personally.
-- The trumpet teachers blows his trumpet extremely loudly in my ear, so that it hurts, and he is marching up and down angrily, blowing his trumpet, and is all to humiliate me.
-- Gloria comes to the door and is practically wetting herself with laughter.
-- I'm not at all surprised at any of it.
-- I walk out of the conservatory front door, and they throw dirty water (I hope) onto me from an upstairs window (Ana the violin teacher's classroom actually).
+- The trumpet teachers blows his trumpet extremely loudly in my ear, so that it hurts, and he is marching up and down angrily, blowing his trumpet, and it's all with the intention of humiliating me.
+- Gloria comes to the door when we're done and is practically wetting herself with laughter.
+- I'm not at all surprised at any of it but it hurts of course.
+- I walk out of the conservatory front door, and teachers and staff throw dirty water (I hope) onto me from an upstairs window (Ana the violin teacher's classroom actually).
 - I still have the silk t-shirt that they ruined with the stains on it.
-- As I walk home, I "bump" into Mercedes who I realize was waiting for me to walk the other way I go sometimes, the way she would have been more familiar with me going, and when she realized I'd gone a different way, she'd had to run. She was totally out of breath and trying to style it out.
+- As I walk home, I "bump" into Mercedes who I realize was waiting for me to walk the other way I go sometimes, the way she would have been more familiar with me going, and when she realized I'd gone a different way, she'd had to run. She was totally out of breath and trying to style it out. It was amusing to me.
 - She was checking my face to see if I was crying. Perhaps she was recording it too.
 - I got home and went onto Twitter and tweeted something like "well that was a crappy ending wasn't it".
-- Suddenly, a huge number of people start to retweet this post and I discover I'm on a list of around 30 people and they're all laughing at what's happened.
-- I block the list owner.
-- I'm shocked about that. I had no idea so many people were involved in the deception and the humiliation attempt at that time. 
-- I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also high so was not able to get my head straight about anything that had happened.
+- Suddenly, a huge number of people start to retweet my post and I discover I'm on a list of around 30 people and they're all laughing at what's happened.
+- I block the list owner and delete all my tweets from the last six months that were related to everything that had been going on at the conservatory
+- I'm shocked and alarmed. I had no idea so many people were involved in the deception, and the humiliation, at that time. 
+- I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also so high all the time I could not get my head straight about anything that had happened.
 
 !!! info "Related tweets"
     - https://x.com/1FRGVN/status/1670583744283983874
 
 ## Tuesday 13th June
 
-- I go to my acupuncture session and I'm extremely traumatized and shocked about what bullies they all are.
 - Maria phones me to ask me to go into the conservatory to see her.
 - I ask Maria if everyone hates me. She says no, no one hates me. 
+- I go to my acupuncture session and I'm extremely traumatized and shocked about what bullies they all are at the conservatory.
 - The acupuncturist tells me I have diabetes, which I know fully well is a lie.
-- While I'm on the table, there is a violent storm outside, and lightning destroys a tree on the road outside.
-- I leave for Ireland that evening and there are rainbows all over the region. I take it as a good sign.
+- While I'm on the acupuncture table, there is a violent storm outside, and lightning takes a tree down on the road outside.
+- I leave for Ireland, via Alicante airport, that evening and there are rainbows all over the region. I take it as a good sign.
 
 ## Ireland
 
 - I don't bring my connected devices so I cannot use my own Twitter account.
 - I create a fake account and start following `jctot19`.
-- The weird "communication" continues between myself and this account as whoever is running it knows immediately that I have done so and that it is me.
+- The weird "communication" continues between myself and this account, as whoever is running it knows immediately that it is me.
 
 !!! info
-    - What I did not know at this time was that they had full access to my mobile phone anyway so they knew exactly what I was doing.
+    - What I did not know at this time was that they had full access to my mobile phone anyway so they knew exactly what I was doing online at any given moment.
 
 - Stephen Terrell and some of the other practitioners are aware of what's been going on from my perspective and they clearly see I'm in a traumatized state.
 
