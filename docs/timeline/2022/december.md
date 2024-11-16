@@ -22,3 +22,7 @@
 - However, I often became extremely unwell after drinking two glasses of red wine and this was quite strange.
 - It was as if I didn't have the capacity to handle the alcohol for some reason.
 - Also, I was feeling disordered and clumsy. I cut myself quite badly in the kitchen at some point over the Autumn.
+
+## Dreams and premonitions
+
+- https://x.com/1FRGVN/status/1602792091238678528

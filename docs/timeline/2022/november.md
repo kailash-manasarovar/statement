@@ -19,6 +19,10 @@
 - His look reminded me of a look on one of the grooming gangs faces when I was 16. A man who had looked at me with delight before he raped me. A look of evil.
 - You don't forget looks like that.
 
+!!! warning
+    - Was Trish trying to warn me about something?
+    - I now believe that the look the trumpet teacher gave me was a look of recognition. He had seen me before; in pedophile rape porn from 1989. I believe this is what made them obsessed with me, for either monetary gain or because they're very very mentally unwell people.
+
 ## The trumpet teacher
 
 - At the end of November, 28th, all of a sudden, a trumpet teacher is found for the chamber music classes.
