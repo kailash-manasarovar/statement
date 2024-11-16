@@ -44,6 +44,8 @@
 
 ## Poisoning
 
+!!! danger "Crime alert"
+
 - On Monday 30th January I go to class as normal for 8pm.
 - The doctor, Joan, from the Dénia hospital attends his class which is scheduled before ours, 7-8pm.
 - There is no sound in the classroom, no music, no talking. Eventually the doctor comes out and they walk out together.
@@ -65,3 +67,5 @@
     - I didn't tweet about rhabdo at the time but I did Google search it extensively.
     - I mention it in August of 2023 at the time the "conversation" with hackers really began.
     - Example: https://x.com/1FRGVN/status/1686848541346443270
+
+- The doctor never comes to class again after this. He only came to two classes in total. 

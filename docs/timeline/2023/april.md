@@ -83,6 +83,7 @@
 - I deleted a lot of the sexually suggestive tweets I wrote after the last chamber music class on June 12th when I realized how many people were stalking me on Twitter.
 
 !!! info "Tweet examples related to terror at the conservatory April-June 2023"
+
     - https://x.com/1FRGVN/status/1660980901776433153
     - https://x.com/1FRGVN/status/1660951524904763392
     - https://x.com/1FRGVN/status/1658050667682881536
@@ -96,4 +97,3 @@
     - https://x.com/1FRGVN/status/1647653279193497601
     - https://x.com/1FRGVN/status/1647611507696336896
     - https://x.com/1FRGVN/status/1642554113908002816
-    
