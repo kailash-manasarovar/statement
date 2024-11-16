@@ -18,6 +18,10 @@
 
 ## My friend visits
 
+## Meeting Christine
+
+- She laughs at what they did.
+
 ## Chamber music
 
 ## Harmony classes
@@ -27,4 +31,6 @@
 ## Choir
 
 - Dick pic
+
+
 

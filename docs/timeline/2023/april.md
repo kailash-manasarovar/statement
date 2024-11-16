@@ -73,14 +73,13 @@
 
 - I knew he was looking at my tweets, even though he had blocked me. Back then, this was possible on Twitter.
 - I was looking at his tweets on another browser where I was not logged in.
-- Bare in mind that all this was obvious from the hacker's perspective.
-- A weird sort of communication started up, an exchange of symbolic messages via tweets, but nothing was ever said directly or in person.
-- I continued to feel sexually aroused, even on the days I never left the house. I tweeted many things to that affect.
+- Bear in mind that all this was obvious from the hacker's perspective, someone who is watching my every move online in realtime.
+- A weird sort of communication started up, an exchange of symbolic romantic messages via tweets, but nothing was ever said directly or in person.
+- I continued to feel sexually aroused, even on the days I never left the house. I tweeted many things to that affect, most of which I deleted on June 12th when I found out I was being stalked by so many Twitter accounts.
 - I also tweeted a lot of irreverent comical things related to sexism and the like.
-- I was annoyed that this man had clearly read my very personal tweet, had told the conservatory what I had written, and was ignoring me. I deleted this tweet about a week after I wrote it.
-- Even so, on Twitter, he was suggesting he liked me.
+- I was annoyed that this man had clearly read my extremely personal tweet, and he had told the conservatory what I had written, and yet he was ignoring me. I deleted the tweet shortly after.
+- And even though he was ignoring me in person, on Twitter, via his account, he was suggesting he liked me.
 - It was extremely confusing with my state of mind and the constant sexual arousal.
-- I deleted a lot of the sexually suggestive tweets I wrote after the last chamber music class on June 12th when I realized how many people were stalking me on Twitter.
 
 !!! info "Tweet examples related to terror at the conservatory April-June 2023"
 

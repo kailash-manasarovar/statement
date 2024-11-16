@@ -33,11 +33,11 @@
     - I believe the references to the nurse also relate to a woman the gang stalkers have more recently been posting on Twitter in poses which are clearly going to be pornographic - filmed with or without her knowledge. She is often dressed as a nurse.
     - The following fake account was posted sometime in the summer of 2024.
 
-    ![The nurse profile pic](../../content/images/nurse1.png){width=45%}
+    ![The nurse profile pic](../../content/images/fake-accounts/nurse1.png){width=45%}
 
     - Note the threatening statement, a common characteristic of the cyber-stalking I have been enduring.
 
-    ![The nurse profile](../../content/images/nurse2.png)
+    ![The nurse profile](../../content/images/fake-accounts/nurse2.png)
 
     - Fake accounts like these may have one or two posts, messages in the profile itself, or in the top posts below the profile.
 

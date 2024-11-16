@@ -32,7 +32,12 @@
 - More Ana
 - References to Thailand
 - It seems like somehow he is manipulating Google search to show me things
-- Then I see a doctored tweet which appears to have a message for me directly
+- Then I see a doctored tweet which appears to have a message for me directly - "don't leave me murph". This is a misquote from what was actually said.
+
+![Don't leave me murph](../../content/images/twitter-hacking/dont%20leave%20me%20murph.png)
+
+!!! info
+    - Later in this saga, I'm informed that twitter hacking can take place in a number of ways, one of which is a parasitical manner ... however, Mac spoofing can overwrite.
 
 ## Present for Gloria
 
