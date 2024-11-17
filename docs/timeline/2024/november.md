@@ -3,10 +3,12 @@
 - I go down to the Open 24 Market for some wine in the evening of 2nd November.
 - I guess the gang stalkers think I'm going to the Indian because they've put a monstrous full-size figure (Halloween monster) in the seat that Paul usually sits in whenever I "bump" into him.
 
-## Last October/early November
+## Late October/early November
 
 - I'm feeling extremely unwell in my flat. My kidneys are aching. I have suddenly appearing dark circles under my eyes. My eyes are extremely blurry. My mind is confused and I can't remember simple things. I'm sure I'm being poisoned.
-- It's impossible for me to go out walking without feeling like I'm going to be attacked in some way; psychological usually, so I don't go out and consequently, if they are poisoning me through the air, I'm unable to get out to clean my lungs.
+- It's impossible for me to go out walking without feeling like I'm going to be attacked in some way; psychological usually.
+- When I went shopping to the Carrefour the previous week, a couple parked their car close to mine and as I'm coming back to my car they start shrieking and laughing, and putting their phones up if they're recording me. I don't know who they are. Messages on Twitter fakes accounts that like my posts refer to it later on. It's been like that constantly since September 2023.
+- So I don't go out and consequently, if they are poisoning me through the air vents, I'm unable to get out to clean my lungs.
 - On Friday 1 November, as I come back from the taking the bin out, I bump into two women coming out of the apartment building, one of whom appears to be Carmen Cano.
 - My father is taken to hospital and I have to leave abruptly for London on 3rd November.
 
