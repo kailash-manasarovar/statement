@@ -48,6 +48,9 @@
 - I [send an email to a private detective](../../content/documents/emails/pdick.pdf) to see if they can help me link these people to crimes against me. They say they cannot help me.
 - I send a post on my @JackChardwood account saying I won't go back if I'm in danger, and other things. An account, Sumithra, follows me immediately (screenshots in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf)) and likes every post. I know it's Domingo and the trumpet teacher.
 - https://x.com/JackChardwood/status/1696990588628029460
+
+![My posts to Domingo and the hackers](../../content/tweets/Screenshot 2024-11-17 at 15.55.13.png){width=85%}
+
 - The Sumithra account no longer exists.
 - If you look at the accounts that have followed the Sumithra account, you will see they are all dog-related.
 

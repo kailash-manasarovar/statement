@@ -198,6 +198,8 @@
 - There are posts with a woman with hair flying which is a trigger picture that I will see again on the American fake account in August, the account I ended up having a prolonged DM with at Christmas 2023.
 - There are posts with pictures of hanging seaweed, which is a Julia Lohmann art installation [I mentioned before](../early-years/2015.md) that will be revealed to me in July as something Ana the violin teacher was connected to.
 
+![Ana at Lohmann's studio](../../content/images/Screenshot 2024-11-17 at 18.08.46.png){width=65%}
+
 !!! tip "Ana"
     - Ana the violin teacher in a modeling role for Finnish artist Julia Lohmann. 
     - A whole bunch of these pics were sent to me via the trumpet teacher's *apparent* account around June/July 2023 seemingly in order to convince me that Ana and the trumpet teacher were a romantic item.
