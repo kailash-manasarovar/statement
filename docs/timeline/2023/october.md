@@ -9,6 +9,9 @@
 
 ## Rocio Vidal
 
+## Katia in the act
+
+- Warning on Google search and account follow: ![katia in the act](../../content/images/fake-accounts/Screenshot 2024-03-08 at 08.49.19.png)
 
 
 ## Telco shop

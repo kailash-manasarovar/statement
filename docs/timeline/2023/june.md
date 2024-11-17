@@ -113,6 +113,7 @@
 
 <a href="https://www.youtube.com/watch?v=Td74vBNPrW0">
 <img src="/content/images/youtube-video.png">
+<img src="/content/images/youtube-video-2.png">
 </a>
 
 - There is a moment around 1.07 where she looks at another member of the band and makes a face that suggests she finds him attractive.
