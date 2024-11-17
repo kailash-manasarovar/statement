@@ -202,8 +202,11 @@
 
 !!! tip "Ana"
     - Ana the violin teacher in a modeling role for Finnish artist Julia Lohmann. 
-    - A whole bunch of these pics were sent to me via the trumpet teacher's *apparent* account around June/July 2023 seemingly in order to convince me that Ana and the trumpet teacher were a romantic item.
-    - Over the hacking duration, and during the conversations I had with hackers, Ana was talked about a lot, often in an extremely derogatory manner and with relation to sexual activity.
+    - I do wonder if this is correct now as I can't find the connection between the two.
+    - There is a Finnish connection with the trumpet teacher and I wonder if there is a connection between him and Julia Lohmann. Was she another victim maybe? 
+    - Either way, Julia Lohmann pics with seaweed were coming up at the same time as pictures of Ana, so I related the two things in the same way I thought plate lady was Carmen.
+    - A whole bunch of Ana pics were sent to me via the trumpet teacher's *apparent* account around June/July 2023 seemingly in order to convince me that Ana and the trumpet teacher were a romantic item.
+    - Over the hacking duration, and during the conversations I had with hackers, Ana was talked about a lot, often in an extremely derogatory manner and often with relation to unsavory sexual activity.
 
     ![Ana](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
 
