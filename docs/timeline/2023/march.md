@@ -24,6 +24,7 @@
 - I'm playing it one day at class with Maria who was busy with something else as usual.
 - She reads the marks out for me for the term, telling me the marks the trumpet teacher has given me.
 - I tell her I feel like I'm on fire. She tells me I'm in love with him.
+- She calls him Charlot, which is what the Spanish called Charlie Chaplin.
 
 ## Work stress
 

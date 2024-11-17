@@ -79,3 +79,41 @@
 - [Browser history](../../content/documents/evidence/history.csv).
 - [JackChardwood Twitter download]() -> available on request.
 - A good sense of what was going on around the end of August and beginning of September can be seen using this [Twitter search: (from:jackchardwood) until:2023-09-10 since:2023-08-29](https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2023-09-10%20since%3A2023-08-29&src=typed_query&f=live). All of these tweets have been translated many times.
+
+## Tweets
+
+- https://x.com/1FRGVN/status/1696981354481639902
+- https://x.com/1FRGVN/status/1694429743624462596
+- https://x.com/1FRGVN/status/1695555086355677671 -> the tweet where they took control of my keyboard and I asked them to stop in French, re-posted by someone I can't see.
+- https://x.com/1FRGVN/status/1695740585737396275
+- https://x.com/1FRGVN/status/1694345689587654949
+- https://x.com/1FRGVN/status/1693181928399044856
+- https://x.com/1FRGVN/status/1692825966500888849 -> I naively thought this was what had caused it all.
+- https://x.com/1FRGVN/status/1692639787776168047
+- https://x.com/1FRGVN/status/1692619112936071565
+- https://x.com/1FRGVN/status/1692608384053195023
+- https://x.com/1FRGVN/status/1692557257072837057
+- https://x.com/1FRGVN/status/1692527843941511306
+- https://x.com/1FRGVN/status/1692507773794144611
+- https://x.com/1FRGVN/status/1692445952164921529
+- https://x.com/1FRGVN/status/1692251476444225635
+- https://x.com/1FRGVN/status/1692232062428725485
+- https://x.com/1FRGVN/status/1692054267463340344
+- https://x.com/1FRGVN/status/1692035606929457563
+- https://x.com/1FRGVN/status/1691954911586517372 -> when I realized there was a two way conversation going on for sure with a bunch of people probably. This was due to interactions from random accounts that were 100% related to the tweet I had just posted. I didn't screenshot at that time as it was so bizarre and you would have to be screen-shotting second by second, which is unreasonable to expect.
+- https://x.com/1FRGVN/status/1691341944176168960
+- https://x.com/1FRGVN/status/1691069734983237632 -> reference to enchufe and corruption.
+- https://x.com/1FRGVN/status/1691044474225328128
+- https://x.com/1FRGVN/status/1691010959555379200 -> amazing this one, the pic on the last post of the thread came up on gifs and the character here actually looks like Domingo. Things like this made me think there were two camps to the stalkers, or they just took the piss out of each other constantly.
+- https://x.com/1FRGVN/status/1691007234421972992 -> full thread.
+- https://x.com/1FRGVN/status/1690842596782833665
+- https://x.com/1FRGVN/status/1690840976900689920 -> still in love.
+- https://x.com/1FRGVN/status/1690828786130968577
+- https://x.com/1FRGVN/status/1690828158881116160
+- https://x.com/1FRGVN/status/1690817391247216640
+- https://x.com/1FRGVN/status/1690698078683009024
+- https://x.com/1FRGVN/status/1690628774721732608
+- https://x.com/1FRGVN/status/1688847810840403968
+- https://x.com/1FRGVN/status/1687947624827990016
+- https://x.com/1FRGVN/status/1686856121770799105
+- https://x.com/1FRGVN/status/1686843970217705472 -> mentioning rhabdo and kidney damage here.

@@ -26,6 +26,7 @@ Some of my tweets from that time.
 - https://x.com/1FRGVN/status/1672531934046552064
 - https://x.com/1FRGVN/status/1672536083425312774
 - https://x.com/1FRGVN/status/1671791604066136066
+- https://x.com/1FRGVN/status/1685697886325993472
 
 ## Google search
 
