@@ -88,7 +88,8 @@ Some of my tweets from that time.
 ## Thailand
 
 - Early in the month I go to Thailand for a holiday.
-- The pictures referenced above continue to appear in the search results.
+- I do not take my laptop so I am not connected to my Twitter account.
+- The pictures referenced above continue to appear in the search results of `@jctot19`.
 - At some point, the pictures of the plate lady stop.
 - There are now references to Thailand and the far east.
 - I'm certain he (I assume the trumpet teacher) is somehow manipulating Google search to show me things and I don't know how.

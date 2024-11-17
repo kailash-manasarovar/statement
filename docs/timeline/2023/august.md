@@ -10,7 +10,7 @@
 
 - I realize that Domingo and the trumpet teacher are continuing to harass me online, so I decide to fight back.
 - I find myself still thinking about the trumpet teacher constantly and, given it's not possible for me to be drugged, I now believe that, on top of the drugging, there was some NLP triggering mechanisms being built into my Twitter usage which could be relied upon the trigger sexual feelings.
-- Also, I wonder if there was some low level sound files being generated through my phone (which I have safely stored so the police can check this with their cyber experts). This may explain unpredictable sexual feelings I was having throughout this month in various situations.
+- Also, I wonder if there was some low level, sub-audio sound files being generated through my phone (which I have safely stored so the police can check this with their cyber experts). This may explain unpredictable sexual feelings I was having throughout this month in various situations.
 - I start playing a lot of music on Twitter, links from YouTube while listening to it with my earphones, and dancing around my room in Cauterets.
 - I'm stalking by accounts on YouTube also which you can see in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
 

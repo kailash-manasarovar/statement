@@ -104,6 +104,7 @@
     - What I did not know at this time was that they had full access to my mobile phone anyway so they knew exactly what I was doing online at any given moment.
 
 - Stephen Terrell and some of the other practitioners are aware of what's been going on from my perspective and they clearly see I'm in a traumatized state.
+- The sexual feelings stop completely while I am away.
 
 ## YouTube
 
