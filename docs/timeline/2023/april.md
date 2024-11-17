@@ -31,6 +31,10 @@
 - I was talking about having babies and getting married. It was absurd and unhinged.
 - She told me about Novena's so I bought a Novena candle and started to pray.
 
+!!! important
+    - As well as being out of my mind with "love", I also told my friend that there was another explanation for what was going on.
+    - I detailed to her all my suspicions with regards to Domingo and what had happened previously.
+    
 ## Novena
 
 - I prayed to Mary to ask her to give me a way to communicate honestly with this man.

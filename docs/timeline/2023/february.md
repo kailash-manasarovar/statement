@@ -51,8 +51,8 @@
 !!! tip "List of teachers and staff"
     The current lists on the conservatory website may still reflect the state of the staff in 2023 although there will be changes.
 
-    - Teachers: https://portal.edu.gva.es/conservatoridenia/es/departaments-es/
-    - Staff: https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/
+    - Teachers: https://portal.edu.gva.es/conservatoriDénia/es/departaments-es/
+    - Staff: https://portal.edu.gva.es/conservatoriDénia/es/centro/organigrama/
 
 ## Other times
 

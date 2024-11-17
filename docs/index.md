@@ -33,7 +33,7 @@ I hope that no-one else goes through the hell I have been enduring for years in 
 
 This photo is me playing the piano as a piano student of the conservatory of Dénia in 2015.
 
-![Katharine Murphy plays the piano at the boat club in Denia in 2015](content/images/katharine-pianist.jpg){width=50%}
+![Katharine Murphy plays the piano at the boat club in Dénia in 2015](content/images/katharine-pianist.jpg){width=50%}
 
 ### Report layout
 

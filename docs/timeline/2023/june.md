@@ -88,7 +88,7 @@
 ## Tuesday 13th June
 
 - Maria phones me to ask me to go into the conservatory to see her.
-- I ask Maria if everyone hates me. She says no, no one hates me. 
+- I ask Maria if everyone hates me. She says no, no one hates me. She's lying.
 - I go to my acupuncture session and I'm extremely traumatized and shocked about what bullies they all are at the conservatory.
 - The acupuncturist tells me I have diabetes, which I know fully well is a lie.
 - While I'm on the acupuncture table, there is a violent storm outside, and lightning takes a tree down on the road outside.
@@ -127,7 +127,9 @@
 - At the time I saw this I didn't really understand what I was looking at as nothing made any sense other than Domingo was "getting me back" for not allowing him to control me in 2014.
 
 !!! info "Interestingly"
-    - There are other YouTube videos with him in musical scenarios where I felt a girl may be being targeted.
+    - There are many other YouTube videos with him in musical scenarios, some of which I felt concern a girl maybe being targeted.
+
+    ![YouTube results of trumpet teachers apparent name](../../content/images/vidal-s-s-h-search.png)
 
 ## Sunday 16th June Alicante airport
 

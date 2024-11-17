@@ -2,15 +2,23 @@
 
 - The American's account, Caterday and the weird stuff.
 
+
 ## France 
 
+## I take a picture of myself in my pants
+
+
 ## Constant cyberstalking
+
+### Durian
 
 ## I realise I have an audience
 
 ## They reveal themselves
 
-## I take a picture of myself 
+## Private detective and Concha
+
+## Going public on Twitter
 
 ## Tweets
 
