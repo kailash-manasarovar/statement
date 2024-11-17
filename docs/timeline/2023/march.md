@@ -17,6 +17,14 @@
 - Whenever I left the chamber music class to go home on a Monday night, Gloria would be there at reception.
 - She would grin and wink at me in a conspiratorial manner.
 
+## Piano classes
+
+- I'm reminded of the song Misty, I used to play it at university.
+- It's from the film about a stalker, Play Misty for Me.
+- I'm playing it one day at class with Maria who was busy with something else as usual.
+- She reads the marks out for me for the term, telling me the marks the trumpet teacher has given me.
+- I tell her I feel like I'm on fire. She tells me I'm in love with him.
+
 ## Work stress
 
 - Work is becoming extremely stressful and I'm not able to handle the things that are going on there.

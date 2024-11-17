@@ -45,6 +45,10 @@
     - At some point, Samuel informs me they are buying a Steinway piano.
     - I am concerned about the safety of the girls and their mother.
 
+!!! info "A curious irony"
+    - The harmony teacher minds me of Gene Hackman and I start thinking about the film, The Conversation, where Gene Hackman is recording and eavesdropping on a conversation between lovers.
+    - I think of the piano music from that film and find it, and practice it often at the conservatory.
+
 ### Choir
 
 - The teacher is Concha Ballester.

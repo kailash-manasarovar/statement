@@ -5,7 +5,7 @@
 - I'm waiting for a key to a room with a piano.
 - All the teachers there are smirking at me.
 - I feel like I'm the better person so it doesn't bother me.
-- Nacho, the clarinet teacher, is there and he is talking to a mother who is with her daughter.
+- Nacho (Nacho Guerrero Nácher) the clarinet teacher, is there and he is talking to a mother who is with her daughter.
 - Nacho looks at me quickly, then starts to caress the child's face, stroking it suggestively, while talking to the mother.
 - Everyone is embarrassed. I feel sick.
 - He is doing this to show me that he, a teacher at the conservatory, can do whatever he likes to the little girls.

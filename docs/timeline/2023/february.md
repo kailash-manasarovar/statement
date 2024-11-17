@@ -41,7 +41,7 @@
 ## Ana the violin teacher
 
 - The choreographed torment includes the suggestion that the trumpet teacher and Ana Requena Marín are having a romantic liaison.
-- Ana comes into room 5 every chamber music class with her instrument to leave it in the room, for reasons unclear.
+- Ana comes into classroom every chamber music class with her instrument to leave it in the room, for reasons unclear, something that never happens normally.
 - Ana and Rosa María Vidal Orengo come in together sometimes with instruments which they leave in this room.
 - It's all very contrived.
 - Rosa is the vice director of the conservatory.
@@ -51,8 +51,8 @@
 !!! tip "List of teachers and staff"
     The current lists on the conservatory website may still reflect the state of the staff in 2023 although there will be changes.
 
-    - Teachers: https://portal.edu.gva.es/conservatoriDénia/es/departaments-es/
-    - Staff: https://portal.edu.gva.es/conservatoriDénia/es/centro/organigrama/
+    - Teachers: https://portal.edu.gva.es/conservatoridenia/es/departaments-es/
+    - Staff: https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/
 
 ## Other times
 
@@ -81,3 +81,9 @@
     - Consequently, Hanuman is known for protecting women from evil men.
 
     ![Lord Hanuman miracles](../../content/images/lord-hanuman-miracles.jpg)
+
+## Silvia
+
+- People keep saying a name so that I can hear it, Silvia.
+- Maria and Mercedes say it meaningfully and look at me closely at piano class.
+- I hear the name everywhere, I don't know why.

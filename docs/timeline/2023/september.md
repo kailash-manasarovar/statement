@@ -1,5 +1,12 @@
 ## Arriving home
 
+- When I got home, an account had followed me, **kaka**, with a profile message that said: "For an immature boy, bad companions play a much greater role than good teachers." 
+
+![Admission of guilt](../../content/images/admission%20of%20guilt.png)
+
+- You can see the full profile in the last pic in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
+- I suspect at that point someone got concerned about the ramifications of what had been happening and whether or not I was going to go to the police at that point.
+
 ## Problem with the car washer
 
 - Drugging in the car?

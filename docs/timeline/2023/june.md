@@ -207,3 +207,4 @@
 - It's as if they are teasing, posting things that they hope will upset me.
 - Suddenly I'm seeing a lot of porn on my Twitter timeline too.
 - A porn video pops up on my timeline which looks like the trumpet teacher and Ana so I look at it. It is extremely violent and he is holding her by the neck and throwing her around the kitchen. It certainly wasn't actually Ana but the woman was of a similar build and look. It may have been the trumpet teacher however, as the man's back was to the camera and he was of the same build.
+- https://x.com/1FRGVN/status/1664572450112258049

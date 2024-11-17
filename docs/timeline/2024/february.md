@@ -1,3 +1,7 @@
+## Choir class
+
+- kaka 
+
 ## Constant stalking
 
 - Weird guy at conservatory on the stairs flinches with fear when I smile at him.
