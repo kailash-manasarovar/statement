@@ -148,7 +148,7 @@ Some of my tweets from that time.
 
 ![Trumpet teacher's mum](../../content/images/image_123650291.png){width=75%}
 
-## DGT stop
+## The traffic police stop me
 
 - Just outside Teruel, I am stopped by the Guardia Civil traffic police.
 - They inform me my driving license is invalid as it is a British one and I should have changed it.
