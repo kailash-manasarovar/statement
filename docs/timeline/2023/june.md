@@ -121,7 +121,7 @@
 - It would be good to know what happened to her.
 
 !!! info
-    - Offline download link: [https://www.youtube.com/watch?v=Td74vBNPrW0](../../content/video/lascia.mp4)
+    - Offline download link: [https://www.youtube.com/watch?v=Td74vBNPrW0]<!--(../../content/video/lascia.mp4)-->
 
 - It may also be interesting to know who some of the other people in the group are, especially one particular woman in glasses on the left which could possibly be Carmen Cano, Domingo's sister, and looks very much like a woman I saw outside my apartment on Friday 1st November 2024.
 - It is also interesting to note that they have managed to make a lament sound like a funeral march which, I believe, is intentional.
