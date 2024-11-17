@@ -29,7 +29,7 @@ Given all these events have taken place within the context of studying at a publ
 
 For my part, I just wanted to play the piano. 
 
-I hope that no-one else goes through the hell I have been enduring for years in Dénia but, most importantly, I want children, especially young girls to be safe from sexual grooming for criminal purposes, grooming into porn and prostitution, via studying at public learning establishments in Spain.
+I hope that no-one else goes through the hell I have been enduring for years in Dénia but, most importantly, I want children, especially young girls to be safe from sexual grooming for criminal purposes, i.e. early grooming for future involvement in porn and prostitution, or worse potentially, via studying at public learning establishments in Spain.
 
 This photo is me playing the piano as a piano student of the conservatory of Dénia in 2015.
 
@@ -41,5 +41,5 @@ The report is set out into different sections.
 
 1. Timeline of significant events.
 2. Description of the crimes and protagonists.
-3. Evidence including screenshots to prove hacking and cyber-stalking.
+3. Evidence including screenshots to prove hacking and cyber-stalking -> this section might mostly end up in section 1.
 4. A summary of my personal suffering, physical and emotional trauma, and also the financial costs I have suffered due to these horrible experiences.
