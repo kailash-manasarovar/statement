@@ -69,5 +69,5 @@
 ## More evidence from this period
 
 - [Browser history](../../content/documents/evidence/history.csv).
-- [JackChardwood Twitter download](../../content/documents/evidence/JChardwood%20Twitter%20download.zip).
+- [JackChardwood Twitter download]() -> available on request.
 
