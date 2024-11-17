@@ -37,6 +37,11 @@
 - Some of these accounts are called **Durian**, so I know it's Domingo and his associates.
 - [This document](../../content/tweets/august-2023-twitter.pdf) is a collection of some of those accounts. You will see durian mentioned and also the accounts with lots of dogs. Since I opened a Facebook account for the general election in the UK in June 2024, I have the same sort of spam accounts trying to connect with me.
 
+## Tweet translations
+
+- I realize that I can tell when the Spanish are looking at my tweets because the will have to expand the details of the tweets and you can see how many times this has happened in the Post Analytics.
+- [Tweet translation statistics](../../content/tweets/people-translating-tweets.pdf).
+
 ## They reveal themselves
 
 - It's getting time to go back to Spain and the cyber-stalking and harassment is intensifying.
@@ -73,4 +78,4 @@
 
 - [Browser history](../../content/documents/evidence/history.csv).
 - [JackChardwood Twitter download]() -> available on request.
-
+- A good sense of what was going on around the end of August and beginning of September can be seen using this [Twitter search: (from:jackchardwood) until:2023-09-10 since:2023-08-29](https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2023-09-10%20since%3A2023-08-29&src=typed_query&f=live). All of these tweets have been translated many times.
