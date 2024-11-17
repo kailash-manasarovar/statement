@@ -8,7 +8,14 @@
 - Carrer Furs 15, Bloque 1 Escalera 2 Piso 3 Apartamento 17, Dénia 03700 Alicante
 - I contacted the landlady, Beatriz Garcia Morales, and signed the agreement
 - The landlady, Beatriz, was angry and disagreeable.
-- I moved in on December 15th. She only gave me one key, of a pack of four, and there was a bit of a drama about where the other keys were which seemed contrived.
+- I signed the contract and moved in on December 15th. 
+
+!!! danger "The rental contract"
+    - Something weird I noticed at the time was there was a clause in the rental contract about what would happen to my belongings if I were to die in the flat.
+    - It gave me cause to wonder.
+    - I have never seen a clause like that in a rental contract before and I have read a great many.
+    
+- She only gave me one key, of a pack of four, and there was a bit of a drama about where the other keys were which seemed contrived.
 - I didn't trust Beatriz Garcia Morales and, from her weird behavior and manner, I felt it likely she would enter my apartment without my knowledge.
 - A few days later I suspected someone had been in without my knowledge.
 - I got the locks changed soon after.

@@ -7,7 +7,8 @@
 - Everyone's interested in the gay man I met on holiday, where he lives, what he does for work, etc.
 - Whenever I try to talk about the trumpet teacher, no one wants to know, Trish and Christine especially go quiet and tongue-tied.
 - I notice this and file it away ,but it is as if they know what's going on at the conservatory.
-- It's weird but my mind cannot possibly comprehend that a lone woman could be terrorized by everyone in a whole region of Spain, so I don't fully understand at that moment why they would be so reticent.
+- One of the other ladies says something like; "you wanna be careful, he might put you in the movies", but I thought it was just a joke.
+- It's weird but my mind cannot possibly comprehend that a lone woman could be terrorized by everyone from a whole region of Spain, so I don't fully understand at that moment why they would be so reticent.
 - I don't forget it.
 
 !!! info
