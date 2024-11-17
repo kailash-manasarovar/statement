@@ -23,7 +23,6 @@ theme:
         icon: material/eye-outline
         name: Switch to light mode
   language: en
-  custom_dir: overrides
   favicon: content/images/favicon.ico
   logo: content/images/skull.png
   features:

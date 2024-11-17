@@ -105,7 +105,7 @@
 
 - Stephen Terrell and some of the other practitioners are aware of what's been going on from my perspective and they clearly see I'm in a traumatized state.
 
-## Youtube
+## YouTube
 
 - In Ireland, I do a search for "Vidal Sastre Sanchez Hornero" on YouTube.
 - A number of results come up, one of which is particularly interesting.
@@ -122,7 +122,7 @@
 !!! info
     - Offline download link: [https://www.youtube.com/watch?v=Td74vBNPrW0](../../content/video/lascia.mp4)
 
-- It may also be interesting to know who some of the other people in the group are, especially one particular woman in glasses on the left which could possibly be Carmen Cano, Domingo's sister.
+- It may also be interesting to know who some of the other people in the group are, especially one particular woman in glasses on the left which could possibly be Carmen Cano, Domingo's sister, and looks very much like a woman I saw outside my apartment on Friday 1st November 2024.
 - It is also interesting to note that they have managed to make a lament sound like a funeral march which, I believe, is intentional.
 - At the time I saw this I didn't really understand what I was looking at as nothing made any sense other than Domingo was "getting me back" for not allowing him to control me in 2014.
 
