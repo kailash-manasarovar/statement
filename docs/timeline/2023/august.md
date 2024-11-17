@@ -66,5 +66,8 @@
     - At the moment I went public on Twitter, I believe many more criminal gang networks operating on social media were alerted to my presence.
     - So, although I was safer in some respects, I was also in more danger in others.
 
-## Tweets
+## More evidence from this period
+
+- [Browser history](../../content/documents/evidence/history.csv).
+- [JackChardwood Twitter download](../../content/documents/evidence/JChardwood%20Twitter%20download.zip).
 
