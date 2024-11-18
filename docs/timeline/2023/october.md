@@ -1,11 +1,15 @@
+## Trumpet teacher is in his car
+
+- I'm walking back from the Indian restaurant with my take away.
+- A car is driving slowly along beside me. It is a blue Fiat car/van type vehicle, same as Christine has.
+- As I reach my road, and cross it, the car turns into it behind me. 
+- I look and the trumpet teacher is driving.
+
 ## Gang stalking
 
 - Choir
 - Harmony
 - Piano
-
-## Swami twin
-
 
 ## Rocio Vidal
 

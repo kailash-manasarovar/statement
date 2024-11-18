@@ -65,13 +65,15 @@
 ## Last class, my funeral, apparently
 
 - I'm prepared for what is supposed to be my humiliation on Monday 12th June at chamber music class.
-- I bring the trumpet teacher a present to say thanks, a little wooden frog instrument. He tries to kiss me and I flinch away. 
+- I bring the trumpet teacher a present to say thanks, a little wooden frog instrument. He tries to kiss me and I flinch away.
+- I tell him that the frog is lucky. 
 - We play Creep and My Way.
 - Before we play My Way, he tells Pablo to make sure he's recording on his phone, and he starts recording on his phone.
 - It's ugly. Every note is a sort of attack on me personally.
 - The trumpet teachers blows his trumpet extremely loudly in my ear, so that it hurts, and he is marching up and down angrily, blowing his trumpet, and it's all with the intention of humiliating me.
 - Gloria comes to the door when we're done and is practically wetting herself with laughter.
 - I'm not at all surprised at any of it but it hurts of course.
+- As I leave class, I remind the trumpet teacher that the frog is a lucky frog and to look after it.
 - I walk out of the conservatory front door, and teachers and staff throw dirty water (I hope) onto me from an upstairs window (Ana the violin teacher's classroom actually).
 - I still have the silk t-shirt that they ruined with the stains on it.
 - As I walk home, I "bump" into Mercedes who I realize was waiting for me to walk the other way I go sometimes, the way she would have been more familiar with me going, and when she realized I'd gone a different way, she'd had to run. She was totally out of breath and trying to style it out. It was amusing to me.

@@ -1,3 +1,11 @@
+## Swami twin
+
+- Going through the tunnel back home after class one evening, as I'm emerging from the tunnel I see a man who looks exactly like the trumpet teacher.
+- It's clearly his brother and could be a twin the likeness is so strong.
+- I ran up behind him and cross the road before reaching him. He flinches.
+- Later that evening on Twitter posts talk about how "my brother always steals everything from me", and I reply "rotten bugger": https://x.com/1FRGVN/status/1730310006132650141
+- This account came up on the Google search results and I believe it is a hacker (honey trap, gang-stalker) account.
+
 ## Picture of me in my pants on Google search
 
 

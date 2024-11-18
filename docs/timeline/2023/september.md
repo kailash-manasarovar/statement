@@ -95,6 +95,11 @@
 - I'm upset when she laughs at me in a jeering manner when I tell her that the teachers threw water on me from an upstairs window.
 - I realize there's really very few people I can trust, if anyone.
 
+## Gypsy serenades through the tunnel
+
+- Now, every time I walk through the tunnel there is a gypsy busker playing music related to everything that has gone on with the trumpet teacher.
+- One day, three gypsies stand at the end of the tunnel and the young girl sings loudly at me about a lucky frog and other stuff related to what's been going on.
+
 ## Year 4 professional piano begins
 
 - I signed up and paid for the course in June, much to everyone's dismay no doubt.
@@ -125,3 +130,9 @@
 - A little later he starts singing "it's too good to be true".
 - That evening on Twitter, an account Salva, sends a dick pic.
 
+## Apes beating their chests
+
+- I'm walking home with my Indian takeaway one evening. 
+- A group of men is walking towards me. They are making weird noises and some of them have their shirts off and are well built, muscly and large men. 
+- They are literally swinging their arms and beating their chests.
+- I ignore them.
