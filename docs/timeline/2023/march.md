@@ -26,6 +26,13 @@
 - I tell her I feel like I'm on fire. She tells me I'm in love with him.
 - She calls him Charlot, which is what the Spanish called Charlie Chaplin.
 
+## Choir rehearsal at the boat club
+
+- At the end of term we have a choir rehearsal at the boat club in Denia.
+- Paqui's husband is there, scowling and glaring at everyone.
+- He looks extremely angry.
+- It's weird.
+
 ## Work stress
 
 - Work is becoming extremely stressful and I'm not able to handle the things that are going on there.
