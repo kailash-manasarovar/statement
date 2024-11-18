@@ -30,6 +30,7 @@
 - The leaks stops and/or is intermittent.
 - The following June my garage in North London fix a broken motor in the window washer function of my car and tell me there's no leak at all.
 - I believe Pedro may be involved in adding narcotics to my car in some way, perhaps through the air vents, or maybe on the door handles.
+- I believe any of the caretakers at Carrer Furs 15 will be able to tell the police how criminals have been poisoning the water of my apartment.
 - I told Pedro that I had been filmed sexually and I would pay 500 euros for any recordings.
 - He was fired soon after.
 
@@ -77,6 +78,12 @@
 - I meet Christine BJ for lunch and tell her everything that's been going on.
 - I'm upset when she laughs in a jeering manner when I tell her that the teachers threw water on me from an upstairs window.
 - I realize there's really very few people I can trust, if anyone.
+
+## Year 4 professional piano begins
+
+- I signed up and paid for the course in June, much to everyone's dismay no doubt.
+- [Application form](../../content/documents/papeles-conservatorio/KATHARINE%20MARGARET%20MURPHY%20-%20MATRICULA.pdf)
+- [Proof of payment](../../content/documents/papeles-conservatorio/KATHARINE%20MARGARET%20MURPHY%20-%20pago.pdf)
 
 ## Chamber music
 

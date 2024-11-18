@@ -138,6 +138,9 @@ Some of my tweets from that time.
 - After reading this document, Concha makes no response to me at all.
 - Her silence speaks a thousand words.
 - I WhatsApp Concha briefly when I'm being full on attacked online at the end of August in France, and I tell her that they have been hacking me and I'm scared. I ask her if she thinks these people are dangerous? She says she doesn't think so.
+- Here's confirmation of my communications with Concha via email.
+
+![Emailing with Concha](../../content/images/Email%20proofs%20of%20both%20letters%20to%20Concha.png)
 
 ## Driving to Lourdes
 
