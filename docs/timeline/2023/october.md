@@ -11,6 +11,9 @@
 - Bullying at choir continues with suggestive scores related to what's being going on.
 - Piano classes are good and Paqui does a good job of pretending she's on my side.
 
+## Strawberries
+
+
 ## Katia in the act
 
 - Google search results and fake accounts have started to appear to warn me about things.
@@ -28,9 +31,10 @@
 !![Rocio Vidal in Google search](../../content/images/google-searches/rocio-vidal.png)
 
 - Rocio Vidal is a famous YouTuber in Spain.
-- She was also hacked.
+- I understand she was hacked.
 - At some point, I saw pictures of her sitting on a bed about to take off her clothes.
-- I believe the picture posted here is when she "finds out" that she was filmed secretly, or that she agreed to be filmed and those recordings were going to be used in some sort of blackmail.
+- I believe the picture posted here is when she "finds out" that she was filmed secretly, or that she agreed to be filmed and those recordings were going to be used in some sort of blackmail. She looks upset. I could be wrong.
+- The `jctot19` account has interacted a lot with Rocio Vidal's account `@SchrodingerGata`. 
 
 ## Telco shop
 
@@ -38,8 +42,11 @@
 
 ## My car is damaged on the Montgo
 
+- I go walking on the Mongto
+
 ## First letter to the Generalitat
 
-- Letters to the Generalitat appear on Google search and I have an idea that they can help me
+- Letters to the Generalitat appear on Google search `jctot19 x` and I have an idea that they can help me.
 
 ## Porn intensifies
+
