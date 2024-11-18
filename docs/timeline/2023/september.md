@@ -34,6 +34,22 @@
 - I told Pedro that I had been filmed sexually and I would pay 500 euros for any recordings.
 - He was fired soon after.
 
+## The water pipes
+
+- Pedro had always been really keen to tell me about the water pipes coming into the flat and the fact that they were broken.
+- I had raised this with the landlady in July 2023 when I was going away but she ignored me.
+- I raised it again in 2024 but she ignored me.
+- On the day Pedro was fired, and showing the new caretaker around the apartments, he took pains to tell me that the water pipes were not only broken outside my door (see picture below) but also at the ground floor where the mains water is distributed to all the flats in the building.
+- He pointed out that every pipe was fine, except mine.
+- And it's curious that at both places you can cut off the mains water into my apartment, it is impossible to do so.
+- Basically, you cannot close off the water pip to my flat. The water pipe outside the door is broken, and so is the one at the bottom of the building. So there is no way to close off the water coming from the mains.
+- I wonder if this is because, if you are poisoning someone, perhaps in a drip-feed type manner, and they can close off the pipes when they leave the building, then the poison, or narcotic, or whatever, could collect in large doses and kill someone instantaneously. 
+- I wonder if that's happened before. I wonder if that's why there is a specific clause about me dying in the apartment in my tenancy agreement. Could the people of Denia be that evil?
+
+![The broken water pipe outside my apartment](../../content/images/water-pipes.JPG){width=65%}
+
+- Even though the water pipe is closed off in the picture, it continues to run into my house.
+
 ## Men outside with handheld devices
 
 - The following few days after I arrive home, I notice men outside on the street hanging around with handheld devices.
