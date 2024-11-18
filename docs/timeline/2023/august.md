@@ -74,8 +74,9 @@
 - I'm on my way back to Spain and I believe the intensifying harassment is due to them not wanting me to return to Denia.
 - There has always been a suggestion that I was targeted for my gender critical beliefs, amongst other things.
 - The only possible thing I can do is to go public on Twitter and ask for help, which I do.
-- I do that and overnight I gain 1000s of followers from the gender critical movement. 
-- I feel much safer.
+- Going public means adding my real name to my Twitter account Dr Katharine Murphy.
+- I do that and ask for help and overnight I gain 1000s of followers from the gender critical movement. 
+- I feel much much safer.
 - At the same time, many, if not a majority of these new accounts are fake accounts managed by the stalkers.
 
 !!! danger "Throwing me to the wolves"

@@ -11,6 +11,7 @@
 - So I don't go out and consequently, if they are poisoning me through the air vents, I'm unable to get out to clean my lungs.
 - On Friday 1 November, as I come back from the taking the bin out, I bump into two women coming out of the apartment building, one of whom appears to be Carmen Cano.
 - My father is taken to hospital and I have to leave abruptly for London on 3rd November.
+- The irony is that if my father hadn't fallen, the poison may well have finished me off.
 
 ## A threat to my brother's life
 
