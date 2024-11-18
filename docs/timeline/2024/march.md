@@ -9,6 +9,26 @@
 - The woman is a bit taken aback, Paqui is very nervous, but she then goes on to reiterate that I have been saying things online and the police must be called
 - I find it very threatening
 
+## Stolen iPad
+
+- I can't find my iPad and I believe it is stolen.
+- I ask Gloria at the conservatory if anyone has handed in an iPad.
+- She becomes extremely concerned about it and we go looking around the building.
+- Her concern for my iPad far extends any concern she might have had for me being terrorized by Domingo and his associates, which includes her.
+- When we are upstairs, I speak to her about what's going on. I tell her I can't believe how it just goes on and on.
+- She looks scared. She is shaking and her voice is trembling.
+- She suggests I go and talk to Enric Gil who is works at the town hall in the capacity of welcoming foreign people.
+
+## Enric Gil
+
+- I go to see Enric. I know him already from before when I lived in Denia and we had friends in common.
+- I tell him everything. 
+- He says I should see the Denia local police who have a division for male violence.
+- We go outside.
+- I'm speaking to him and he's laughing at me while I do. I wonder if someone is behind me making faces or playing the fool. It's unsettling.
+- He goes to talk to a local police officer and comes back.
+- He says I cannot raise anything with them as I don't have a partner and they only deal with male violence when it occurs within a partnership.
+
 ## Threat to my life from the conservatory
 
 - On March 12th, there is a concert at the .. in Dénia

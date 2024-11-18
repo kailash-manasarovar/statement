@@ -82,7 +82,7 @@
 
 - I knock on Paul's door to say hello. He is surprised to see me. He's an old friend from Denia.
 - He puts me and Alex in contact, another old friend from Denia.
-- I meet Alex and tell her everything that's been happening. 
+- I meet Alex and tell her everything that's been happening. I must appear extremely stressed to her.
 - Myself, Paul and Alex meet for coffee soon after.
 - I meet Alex a few times over the next months until March 8th and then I don't really hear from anyone again, apart from Paul who I continue to "bump" into at the Open Market where he's having a beer.
 - We arrange to meet for Halloween as we had done in 2007.
@@ -92,7 +92,7 @@
 ## Meeting Christine
 
 - I meet Christine BJ for lunch and tell her everything that's been going on.
-- I'm upset when she laughs in a jeering manner when I tell her that the teachers threw water on me from an upstairs window.
+- I'm upset when she laughs at me in a jeering manner when I tell her that the teachers threw water on me from an upstairs window.
 - I realize there's really very few people I can trust, if anyone.
 
 ## Year 4 professional piano begins

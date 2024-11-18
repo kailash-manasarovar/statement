@@ -173,6 +173,7 @@
 ## Rest of June
 
 - I practice every day at the conservatory.
+- One morning I am practicing and Domingo opens the door and pokes his head through and looks at me meaningfully.
 - I feel overwhelmingly sexually aroused a lot at home, and masturbate often, even on the days I don't go to the conservatory.
 
 !!! info "In retrospect"
