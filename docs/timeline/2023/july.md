@@ -153,7 +153,7 @@ Some of my tweets from that time.
 - Just outside Teruel, I am stopped by the Guardia Civil traffic police.
 - They inform me my driving license is invalid as it is a British one and I should have changed it.
 - I tell them I thought I had six months from March 2023 when the law changed and was going to do it in September when I returned to Spain.
-- Apparently it was three months, or I had made some mistake or other, anyway the conversation was very nice, we spoke amiably and politely and the officer told me he was going to fine me 100 Euros instead of the 500 I could have been fined.
+- Apparently it was three months, or I had made some mistake or other, anyway the conversation was very nice, we spoke amiably and politely and the officer told me he was going to fine me 100 euros instead of the 500 I could have been fined.
 - I was very apologetic and assured him I would deal with it immediately I was back from France. I had been initially really scared they would stop me from driving in Spain.
 - We were talking about stuff, and I forgot a word I needed, the word for management service (gestor), as I was explaining I would get them to deal with it immediately, but I couldn't remember the word, and I was scratching my head ... and he says ...
 - "Ladrones de Dénia", which means bad people of Dénia.
