@@ -12,6 +12,9 @@
 - On Friday 1 November, as I come back from the taking the bin out, I bump into two women coming out of the apartment building, one of whom appears to be Carmen Cano.
 - My father is taken to hospital and I have to leave abruptly for London on 3rd November.
 - The irony is that if my father hadn't fallen, the poison may well have finished me off.
+- Two weeks later and I do feel better, my kidneys are not constantly aching and my mind is getting slowly clearer.
+- Last week in Bangkok I had my kidney checked out and all signs are good, except for my anion gap which is excessively low, 6.0 L mmol/L and could mean bromide, iodide, or salicylate ingestion. Common medical diagnostic tests do not consider cases such as mine.
+- If I drink one glass of wine, however, I have immediate frothy urine.
 
 ## A threat to my brother's life
 
