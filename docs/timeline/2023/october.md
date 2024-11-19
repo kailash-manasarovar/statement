@@ -109,6 +109,15 @@
 - It's full on.
 - I now believe that, along with water is in the water at my home, the sexual grooming by hackers is intensifying.
 
+## Halloween
+
+- Alex, John, Paul, and I agree to go out for Halloween, a kind of remake of our evening all those years ago.
+- The whole town knows I'm coming out but I was never clear about that on Twitter.
+- I'm stopped for photos as I walk to the bar where we're going to meet.
+- The others lead the way and we end up in the Irish bar on the Calle La Mar where we "bump into" this very dodgy bloke who says he studies at the conservatory and wants to know things about me.
+- A young man with him is quite menacing towards me.
+- I sing a song, a cockney song, You Made Me Love You, which blows their minds a little.
+
 ## Tweets
 
 These are a selection of tweets from this period which relate to everything that has been happening. Most of them have been translated, a lot, so I assume the Spanish are reading them.
@@ -117,8 +126,57 @@ Many of these tweets are confirmation of what has been going on.
 
 ### @1frgvn
 
-- todo:
+- https://x.com/1FRGVN/status/1719116928617197916
+- https://x.com/1FRGVN/status/1716371097128509890
+- https://x.com/1FRGVN/status/1716087374759723455
+- https://x.com/1FRGVN/status/1716069851888820287
+- https://x.com/1FRGVN/status/1716068786313236773
+- https://x.com/1FRGVN/status/1716028186289488047
+- https://x.com/1FRGVN/status/1716068390735900850
+- https://x.com/1FRGVN/status/1716066923631280635
+- https://x.com/1FRGVN/status/1716065908488040538
+- https://x.com/1FRGVN/status/1716066748456149202
+- https://x.com/1FRGVN/status/1715729380352184352
+- https://x.com/1FRGVN/status/1715795337489637651
+- https://x.com/1FRGVN/status/1715789335658651794 -> re: 12th June 2023 psychological attack at the conservatory.
+- https://x.com/1FRGVN/status/1715789145857990764
+- https://x.com/1FRGVN/status/1715776669603041593 -> re: 12th June 2023 psychological attack at the conservatory.
+- https://x.com/1FRGVN/status/1715776355630043269
+- https://x.com/1FRGVN/status/1715751496480936129
+- https://x.com/1FRGVN/status/1715741021655466380 -> my first and only reference to poisoned aunts.
+- https://x.com/1FRGVN/status/1715735176062394796
+- https://x.com/1FRGVN/status/1715734508132053031
+- https://x.com/1FRGVN/status/1715733466585669913
+- https://x.com/1FRGVN/status/1715730699653660878
+- https://x.com/1FRGVN/status/1715729380352184352
+- https://x.com/1FRGVN/status/1715585631022207058 -> certainly at the conservatory this was true.
+- https://x.com/1FRGVN/status/1714577639233515681
+- https://x.com/1FRGVN/status/1714433682046349597 -> talking about my Tweet post in Spanish from April 2023.
+- https://x.com/1FRGVN/status/1714429310906351705 -> when I first mention Hazel, without mentioning Hazel.
+- https://x.com/Lucyinbetween -> major player that followed me immediately I went public. I have interesting DMs with this account that include identification documents when it tried to prove who it said it was. Easy arrest probably.
+- https://x.com/1FRGVN/status/1713298033910202647 -> referring to old friends Alex, John, and Paul out on Halloween.
+- https://x.com/1FRGVN/status/1713292202674127032 -> mentioning I'll be taking the Uke out.
+- https://x.com/1FRGVN/status/1713262652103819341 -> reference to the table again.
+- https://x.com/1FRGVN/status/1712815203421688307
+- https://x.com/1FRGVN/status/1712456797456359427
+- https://x.com/1FRGVN/status/1711299138397032596 -> taking the piss out of muscle men, aka Domingo.
+- https://x.com/1FRGVN/status/1710938372728885413
+- https://x.com/1FRGVN/status/1710594308020084863 -> replied to by Matthew, the account that is pretending to be the trumpet teacher.
+- https://x.com/1FRGVN/status/1710030138459484321 -> in reference to Matthew.
+- https://x.com/1FRGVN/status/1708534848803971249 -> weird convo with Matthew.
+- https://x.com/1FRGVN/status/1708504153788420212
 
 ### @JackChardwood
 
-- todo:
+- https://x.com/JackChardwood/status/1712835795491459181 -> responding to the trumpet teacher who posted a picture of a famous man looking "pleased with" a woman after I posted the muscle tweet.
+- https://x.com/JackChardwood/status/1711647385347145762 -> mentioning the gypsy serenade.
+- https://x.com/JackChardwood/status/1711512447046062086 -> response to Tweets inexplicably coming up on my timeline saying, "he's just a baby" which was a common phrase in all this.
+- https://x.com/JackChardwood/status/1711409585485906091 -> explaining how I feel about it all at that moment.
+- https://x.com/JackChardwood/status/1711363060579942748 -> during the muscles tweet business, I posted this. The hacker posted immediately at tweet on my timeline which said "not a foot wrong". 
+- https://x.com/JackChardwood/status/1711149172072603930 -> comment to hacker.
+- https://x.com/JackChardwood/status/1711132004924670337 -> comment to hacker.
+- https://x.com/JackChardwood/status/1710694553353609441 -> trying to figure it out. A post goes by about Mac spoofing.
+- https://x.com/JackChardwood/status/1709967390979534933 -> regarding a response from hackers.
+- https://x.com/JackChardwood/status/1709913077339025790 -> message to any of the bullies who may have a heart.
+- https://x.com/JackChardwood/status/1708837976413724886 -> thought the hacker had messed with my crypto app, he complained, turned out he hadn't, he responded to this also. Always fake accounts with a message in the name, or first tweet, or profile.
+- https://x.com/JackChardwood/status/1708819182798643206 -> trying to turn him.

@@ -19,3 +19,7 @@
 
 !!! note
     - Could this have been a warning from Trish? Or were my British friends 100% complicit.
+
+## Halloween
+
+- On the run up to Halloween I notice that, outside my flat, an effigy is hanging off a lamppost. It feels sinister, especially considering Lorraine Blackbourn hung herself.
