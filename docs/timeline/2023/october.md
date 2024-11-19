@@ -102,6 +102,15 @@
 - Given the seriousness of what I'm saying, it's more than weird that no-one replied to me.
 - Eventually they will tell me they didn't have my address and they sent something by post in December (! December) that got sent back to them. But I communicated with them via email so that is pure male-bovine excretions.
 
+## Hazel outside the conservatory
+
+- I was talking about how it is often not a good idea to disclose child sexual abuse to people who aren't ready to hear it because they might attack you: https://x.com/1FRGVN/status/1714432159425925547.
+- You may remember the reference from [earlier in 2007](../early-years/2007.md#hazel-smith).
+- I was leaving the conservatory not long after that, and she was outside with a man.
+- It's interesting because I never once mentioned her name on Twitter or any details that anyone except her would recognize.
+- So I was certain then that she was involved in the current gang stalking. I wonder if she has been involved in the ongoing spiking/poisoning, or even the 2014 threat of poisoning from Domingo. It's certainly worth considering.
+- Is it possible for the most evil people in a small town to be introduced to something so abhorrent but yet utterly addictive which then gives the poisoners utmost power over everyone? Is that the underlying nature of this story? I hope not, but I would not be surprized if it was.
+
 ## Porn intensifies
 
 - The amount and nature of the porn that I'm seeing on my timeline intensifies. 
