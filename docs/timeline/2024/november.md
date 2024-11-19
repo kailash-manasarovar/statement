@@ -27,3 +27,9 @@
 
 ![Account details have RIP and sniffing dogs](../../content/images/threats/image_123655411.JPG){width=65%}
 
+## Bangkok
+
+- Hackers post fake accounts with information from emails I have just written or conversations I have just had.
+- I visit Lumpini Park in Bangkok.
+- The "Find My" app suddenly appears asking whether I want to remove it or not. I'm still being tracked.
+

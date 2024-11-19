@@ -102,6 +102,7 @@
 ## Meeting Christine
 
 - I meet Christine BJ for lunch and tell her everything that's been going on.
+- I tell her I think the engineer who is hacking me is called David.
 - I'm upset when she laughs at me in a jeering manner when I tell her that the teachers threw dirty water on me from an upstairs window.
 - I realize there's really very few people I can trust, if anyone.
 
