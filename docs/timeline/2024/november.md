@@ -32,4 +32,19 @@
 - Hackers post fake accounts with information from emails I have just written or conversations I have just had.
 - I visit Lumpini Park in Bangkok.
 - The "Find My" app suddenly appears asking whether I want to remove it or not. I'm still being tracked.
+- A man walks past me making porn faces at me.
 
+## Drugs test
+
+- My drugs test over the last 12 months comes back completely negative.
+- I can't believe it.
+- I ask the test center for the second sample so I can get another lab to retest. They don't have it.
+
+## Fake account
+
+- A fake account called Ligia Betton interacts with me. 
+
+![Ligia Betton](../../content/images/fake-accounts/Screenshot 2024-11-19 at 18.12.33.png){width=65%}
+
+- I believe this is what is going on, i.e. a porn network (league) has a bet on me. People are making money off me now just like they have been since they made porn of me when I was 16.
+- I pray that police will act at some point.
