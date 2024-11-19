@@ -92,6 +92,12 @@
 
 ## Tweets
 
+These are a selection of tweets from this period which relate to everything that has been happening. Most of them have been translated, a lot, so I assume the Spanish are reading them.
+
+Many of these tweets are confirmation of what has been going on.
+
+### @1frgvn
+
 - https://x.com/1FRGVN/status/1696981354481639902
 - https://x.com/1FRGVN/status/1694429743624462596
 - https://x.com/1FRGVN/status/1695555086355677671 -> the tweet where they took control of my keyboard and I asked them to stop in French, re-posted by someone I can't see.
@@ -127,3 +133,31 @@
 - https://x.com/1FRGVN/status/1687947624827990016
 - https://x.com/1FRGVN/status/1686856121770799105
 - https://x.com/1FRGVN/status/1686843970217705472 -> mentioning rhabdo and kidney damage here.
+
+### @JackChardwood
+
+- https://x.com/JackChardwood/status/1697198981678256150
+- https://x.com/JackChardwood/status/1697014897698029945 -> reiterating what I'm claiming here at the appropriate time.
+- https://x.com/JackChardwood/status/1696996664555225110
+- https://x.com/JackChardwood/status/1696996474561736881
+- https://x.com/JackChardwood/status/1696990588628029460 -> concerned for my safety in Denia.
+- https://x.com/JackChardwood/status/1696986746322289064
+- https://x.com/JackChardwood/status/1696986510459879442
+- https://x.com/JackChardwood/status/1696984188530884843
+- https://x.com/JackChardwood/status/1696983414220435643
+- https://x.com/JackChardwood/status/1696982282945335696
+- https://x.com/JackChardwood/status/1696840825412407430
+- https://x.com/JackChardwood/status/1696073754462265427 -> reference to hacking my Linux machine.
+- https://x.com/JackChardwood/status/1695580690140549390
+- https://x.com/JackChardwood/status/1695358438702760111 -> offering them a job.
+- https://x.com/JackChardwood/status/1694042113577550119 -> reference to me realizing they had access to my phone and, therefore, a picture of me in my pants.
+- https://x.com/JackChardwood/status/1692620444254310845
+- https://x.com/JackChardwood/status/1692578870392717471 -> another pic I believe the hackers found for me.
+- https://x.com/JackChardwood/status/1692576452347101349
+- https://x.com/JackChardwood/status/1692575000841142681 -> reference to Lopez Cano.
+- https://x.com/JackChardwood/status/1692574034251202761 -> trying to be reasonable again.
+- https://x.com/JackChardwood/status/1691331499881041920 -> appeal to Elon Musk who offered free legal expenses for what's happening to me.
+- https://x.com/JackChardwood/status/1690108934072209408
+- https://x.com/JackChardwood/status/1690106639993413632 -> fawn?
+- https://x.com/JackChardwood/status/1687383917924327424 -> in relation to the porn bot accounts that were following me constantly.
+- https://x.com/JackChardwood/status/1687115164037046273 

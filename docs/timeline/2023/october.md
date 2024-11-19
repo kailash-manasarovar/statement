@@ -50,3 +50,20 @@
 
 ## Porn intensifies
 
+## Invitation to Ireland 
+
+- https://x.com/JackChardwood/status/1708197553483763859
+
+## Tweets
+
+These are a selection of tweets from this period which relate to everything that has been happening. Most of them have been translated, a lot, so I assume the Spanish are reading them.
+
+Many of these tweets are confirmation of what has been going on.
+
+### @1frgvn
+
+- todo:
+
+### @JackChardwood
+
+- todo:

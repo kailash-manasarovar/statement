@@ -168,3 +168,18 @@ Some of my tweets from that time.
 - I arrive in Lourdes.
 - When I meet my friend, I'm sorry to tell her that my negative suspicions about what had been going on were correct and that I had been bullied and targeted by Domingo and his associates and that the trumpet teacher was involved also.
 - I was still in love, however. And still out of my mind.
+
+## Tweets
+
+These are a selection of tweets from this period which relate to everything that has been happening. Most of them have been translated, a lot, so I assume the Spanish are reading them.
+
+Many of these tweets are confirmation of what has been going on.
+
+### @1frgvn
+
+- todo:
+
+### @JackChardwood
+
+- https://x.com/JackChardwood/status/1685756121951154177
+- https://x.com/JackChardwood/status/1685795729246175232

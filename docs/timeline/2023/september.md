@@ -71,6 +71,14 @@
 - One afternoon, I'm walking back along the beach and there's a group of young men sitting on chairs. The couple I've just mentioned is with them.
 - As I walk past, the young men start making sexual moaning noises and touching themselves on their chests.
 
+## Smurf cat
+
+- I go to the beach dressed pretty much like Smurf Cat, a meme that appears on my Jack Chardwood twitter account.
+- https://x.com/JackChardwood/status/1704386000493887568.
+- Of course, a play on words of my name.
+- https://x.com/Smurfcatbsc
+- Smurf cat's hat is like mine that I wear to the beach.
+
 ## My friend visits
 
 - My friend the Tibetan monk visits for a few days in September.
@@ -145,3 +153,54 @@
 - A group of men is walking towards me. They are making weird noises and some of them have their shirts off. They are large, well built men. 
 - They are literally swinging their arms and beating their chests.
 - I ignore them.
+
+## Interesting tweets
+
+### @1frgvn
+
+These are a selection of tweets from this period which relate to everything that has been happening. Most of them have been translated, a lot, so I assume the Spanish are reading them.
+
+Many of these tweets are confirmation of what has been going on.
+
+- https://x.com/1FRGVN/status/1707868906604417428
+- https://x.com/1FRGVN/status/1707862141175230874 -> this was in reference to tables posted all over the Google search results of `@jctot19`. I didn't know what it was referring to at the time and could only guess. Now I think it is to do with being gang raped on a table by a bunch of men in 1989, and it was filmed, and I have no conscious awareness of that happening apart from some sketchy clues that I may have mentioned in my police interview and/or statement which they will have had access to.
+- https://x.com/1FRGVN/status/1707832088605413497 -> attempts at being reasonable with psychopaths.
+- https://x.com/1FRGVN/status/1707677154933129696
+- https://x.com/1FRGVN/status/1707672863283556809
+- https://x.com/1FRGVN/status/1707312762928382375 -> reference to the horses which kept popping up on my Twitter all over the summer.
+- https://x.com/1FRGVN/status/1707151247059321125 -> actual comms. Bryan Ferry is a reference to Nacho the clarinet teacher and Domingo is the inverted magician.
+- https://x.com/1FRGVN/status/1706957895466713193
+- https://x.com/1FRGVN/status/1706609205908476079
+- https://x.com/1FRGVN/status/1704911917687382423
+- https://x.com/1FRGVN/status/1703345920207716547
+- https://x.com/1FRGVN/status/1703341257806774627
+- https://x.com/K_Flynny369 -> stalker account that doesn't exist anymore, probably Hazel.
+- https://x.com/1FRGVN/status/1702646805089948059 -> posted as a IDGAF to anyone who'd seen me masturbating on hacked camera footage, or even at home which I was not aware of.
+- https://x.com/1FRGVN/status/1702316838892515440 -> popular tweet with the translators.
+- https://x.com/1FRGVN/status/1699700177223766346 -> well translated, interactions with stalker accounts.
+- https://x.com/1FRGVN/status/1699358345814061079 -> this is what I had assumed, but I was wrong.
+- https://x.com/1FRGVN/status/1699346455109030341 -> Tweet about them [taking control of my phone](#men-outside-with-handheld-devices).
+- https://x.com/1FRGVN/status/1698894244272837094
+- https://x.com/1FRGVN/status/1698755956253888965 -> many people thought I was making it all up. Spanish feminists, in particular, thought I wasn't worth supporting. The following May in Madrid, one of them will tell me that they thought I was a domestic violence sufferer and, therefore, unpredictable! I kid you not.
+- https://x.com/1FRGVN/status/1698762074258641194
+- https://x.com/1FRGVN/status/1698679791346417766
+- https://x.com/1FRGVN/status/1698607627582746894
+- https://x.com/1FRGVN/status/1698586936363843958
+- https://x.com/1FRGVN/status/1698255997939171490
+- https://x.com/1FRGVN/status/1698243011077915035
+- https://x.com/1FRGVN/status/1698242524786167834
+- https://x.com/1FRGVN/status/1698220957368725524 -> telling the story I've just told.
+- https://x.com/1FRGVN/status/1698130639751348474 -> they really scared me.
+- https://x.com/1FRGVN/status/1698129402729574429
+- https://x.com/1FRGVN/status/1698122498506633256 -> going public.
+- https://x.com/1FRGVN/status/1698121721457365343 -> going public.
+- https://x.com/1FRGVN/status/1698016819951423781 -> If I die in suspicious circumstances, I wanted my epitaph to read "All I wanted was to play the piano."
+- https://x.com/1FRGVN/status/1697912956871217359
+- https://x.com/1FRGVN/status/1697905359208296533 -> suddenly realizing who Silvia is (the trans kid at school). 
+
+### @JackChardwood
+
+- https://x.com/JackChardwood/status/1704386000493887568 -> Smurf Cat. Donnie boy is what I call the engineer I believe Domingo's family have hired to hack me because of the constant references to Donatella and mutant ninja turtles.
+- https://x.com/JackChardwood/status/1703692928298688664 -> I offer the hackers a job.
+- https://x.com/JackChardwood/status/1703854346356560226 -> pheromone sprays in reference to how I felt in class next to the trumpet teacher.
+- https://x.com/JackChardwood/status/1697527520285855934 -> In reference to how mean with money Domingo was.
