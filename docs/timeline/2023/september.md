@@ -76,8 +76,14 @@
 - I go to the beach dressed pretty much like Smurf Cat, a meme that appears on my Jack Chardwood twitter account.
 - https://x.com/JackChardwood/status/1704386000493887568.
 - Of course, a play on words of my name.
-- https://x.com/Smurfcatbsc
+- https://x.com/Smurfcatbsc is a copy of the original.
 - Smurf cat's hat is like mine that I wear to the beach.
+
+## Stones thrown at me
+
+- One Saturday I go hiking on the mountain.
+- As I'm walking through the town towards the mountain, a car full of young men drives past me.
+- I'm hit by stones thrown at me from the car.
 
 ## My friend visits
 
