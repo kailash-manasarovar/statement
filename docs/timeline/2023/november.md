@@ -4,20 +4,27 @@
 - Choir class is full of threat towards me via suggestive scores, Nacho popping his nose in all the time and looking at me, discussions about trumpets, mentions of Vidal and how I'm thinking about him, Domingo's students asking me ridiculous things, the choir teacher being offensive towards me in Valenciano which I don't understand, and other stuff.
 - I'm anxious, a lot, in choir class.
 - Piano is good. I enjoy playing. Paqui seems fierce but fair. I have no idea how much she hates me.
+
+!!! note
+    - On balance, hate is probably not the main motivator for the relentless gang stalking and bullying at this stage.
+    - In fact, my studies at the conservatory were supposed to end definitively on June 12th, but didn't.
+    - The fact that teachers and staff had to continue with their ridiculous charade must have been very annoying and upsetting.
+    - So, instead of doing the right thing, and letting it all go, and leaving me in peace, they decided their best move was to make things worse for me so that I would definitely leave.
+
 - Harmony is OK. I struggle to understand the content, however, and I no longer sit next to Samuel who helped me in the previous year. I sit on my own and no-one speaks to me.
 - Chamber music is stressful. The women are play acting they hate me and it's all a bit of a farce.
-- Katia brings in a duet from the opera Norma about two women in love with the same man, one has two children with him. The trumpet teacher, allegedly, has two daughters and the reference is that Norma and the Adalgisa are Ana and I.
+- Katia brings in a duet from the opera Norma about two women in love with the same man, one has two children with him. The trumpet teacher, allegedly, has two daughters and the reference is that Norma and Adalgisa are Ana and I and we are both in love with the same man.
 - I have brought in something equally suggestive. 
 - Random students make comments related to my Twitter activity.
 - It's all very stressful.
-- I am literally one against the whole conservatory and there is no reason for them to hate me at all.
-- I am waiting for the Generalitat to come in and sort it out like adults.
+- I am literally on my own against the whole conservatory, and there is no reason for them to hate me at all. In fact, everything I am doing is because I'm concerned for the safety of the children there, my classmates.
+- I am waiting for the Generalitat to come in and sort it out like the adults I assume they are.
 
 ## Weird guy at conservatory
 
 - I'm stalked continuously online and in the town and at the conservatory.
-- I often see the weird guy I noticed at the [mobile phone shop](october.md#telecommunications-shop).
-- I'm quite sure he's either the engineer that has been interacting with me online who possibly calls himself David, or I'm supposed to think he is.
+- I often see the weird guy milling around that I noticed at the [mobile phone shop](october.md#telecommunications-shop).
+- I'm quite sure he's either the engineer that has been interacting with me online - who possibly calls himself David - or I'm supposed to think he is.
 - I wonder if he is a computer technician at the conservatory.
 - I would recognize him in an instant.
 
@@ -26,13 +33,13 @@
 - Fake accounts and interactions online keep mentioning the name Tonya.
 - Often, when I walk back home from the conservatory through the tunnel, I see a woman being led along by a small slim-built man.
 - She is always grinning rather inanely but behind the grin I see fear.
-- She is led to bump into me at times, and always so I notice her.
-- I wonder if she's Tonya.
+- She is led to bump into me at times, and always is led about in such a way so that I notice her.
+- I wonder if she's Tonya. She seems high on something.
 
 ## Ana in the blue van
 
 - I'm coming back from the shops one Saturday in the car.
-- As I'm driving through the garden center street, the [blue car](october.md#trumpet-teacher-drives-past-me-in-his-car) is driving towards me.
+- As I'm driving through Cami de la Bota towards home, the [blue car](october.md#trumpet-teacher-drives-past-me-in-his-car) is driving towards me.
 - I see Ana in the passenger seat, she looks embarrassed.
 - There is NO-ONE in the driver's seat. Whoever was driving has ducked down behind the seats, and is driving extremely slowly, and I cannot see anyone in the driver's seat.
 - It certainly could not be the trumpet teacher as he is quite a large man and he would probably find it quite hard to hide his bulk.
@@ -70,3 +77,8 @@ Many of these tweets are confirmation of what has been going on.
 
 
 ### @JackChardwood
+
+- https://x.com/JackChardwood/status/1727795442602201265 -> not sure what was said, interesting account name.
+- https://x.com/JackChardwood/status/1723360465667989603
+- https://x.com/JackChardwood/status/1721312021520511096 -> an appeal to the engineer.
+- https://x.com/JackChardwood/status/1720741418098889039

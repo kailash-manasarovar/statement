@@ -17,6 +17,10 @@
 ## Meeting Alex
 
 
+## I see someone in town from Twitter
+
+- Noah: https://x.com/Noahhweb3 on this account I think.
+
 
 ## Piano concert
 

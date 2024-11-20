@@ -5,7 +5,7 @@
 - I'm clear that I do not want to do this, and it is obvious he knows why (bullying). But I have to agree because it is a requirement of the course.
 - On the day of the concert, there are myself and Pablo, and the autistic girl and the guitarist performing and a few parents.
 - As we are preparing, Ana comes in significantly dressed up to the nines to put her instrument somewhere, same old weirdness.
-- The trumpet teacher flirts with me outrageously in public. I flirt back. At one stage, our eyes lock, and there is a powerful and unDéniably reciprocal sexual attraction which is rather overwhelming to both of us.
+- The trumpet teacher flirts with me outrageously in public. I flirt back. At one stage, our eyes lock, and there is a powerful and undeniably reciprocal sexual attraction which is rather overwhelming to both of us.
 - The trumpet teacher heads to the back of the room, with his back to us, humming gently, for about 5 minutes, to collect himself.
 - I sit as far away from him as possible in the room and he give me a wide birth too.
 - I tweet about this later on, and other stuff as I tell my story on Twitter: https://x.com/1FRGVN/status/1759770318409695275. 
@@ -58,3 +58,13 @@
 - I am clearly out of my mind.
 - She can corroborate all this.
 - In one of my sessions with Robin, he phones during the session.
+
+## Twitter
+
+- The curious interaction on Twitter between my own account and `@jctot19` continues.
+- He posts something on his timeline, a pic, a meme, and it's clearly for me and I respond.
+- One significant post was in regards to a favorite film.
+
+![Man with headphones](../../content/tweets/man-with-headphones.JPG){width=45%}
+
+- This is a film called [The Lives of Others](https://en.wikipedia.org/wiki/The_Lives_of_Others) and is about the secret police listening into the resident's lives in East Germany. The irony was lost on me at the time.

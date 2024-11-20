@@ -115,6 +115,12 @@ Many of these tweets are confirmation of what has been going on.
 - https://x.com/1FRGVN/status/1692251476444225635
 - https://x.com/1FRGVN/status/1692232062428725485
 - https://x.com/1FRGVN/status/1692054267463340344
+- https://x.com/borey_ka -> when I don't post anything for a while an account called Borey Ka follows me.
+
+![Borey Ka](../../content/images/fake-accounts/borey-ka.png){width=65%}
+
+- I actually find this sort of interaction with them funny and think these people would be quite cool if they weren't so evil and self-destructive.
+
 - https://x.com/1FRGVN/status/1692035606929457563
 - https://x.com/1FRGVN/status/1691954911586517372 -> when I realized there was a two way conversation going on for sure with a bunch of people probably. This was due to interactions from random accounts that were 100% related to the tweet I had just posted. I didn't screenshot at that time as it was so bizarre and you would have to be screen-shotting second by second, which is unreasonable to expect.
 - https://x.com/1FRGVN/status/1691341944176168960
