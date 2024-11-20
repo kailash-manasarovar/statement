@@ -68,6 +68,6 @@
 
 !!! important
     - It may be helpful to know that if at any time the trumpet teacher had been honest with me, that would have been that.
-    - Instead, he and his teams created convoluted situations in which I was always questioning whether he was interested or not, I was never really sure, and so it kept me hanging on in the attempt to find out what was going on at a minimum.
-    - And on top of that, somehow I was being spiked with drugs or herbs that made me extremely sexually aroused, and led to masturbate for an unseen audience, while I was also being groomed HEAVILY online with MRA seduction tactics on Twitter and elsewhere.
-    - We have to assume that I am the tip of the iceberg with regards to these sorts of manipulation technique and it is highly likely children are being targeted in the same way.
+    - Instead, he and his teams created convoluted situations in which I was always questioning whether he was interested or not, I was never really sure, and so it kept me hanging on in the attempt to find out what was going on, at a minimum.
+    - And on top of that, somehow I was being spiked with drugs or herbs that made me extremely sexually aroused, and led me to masturbate for an unseen audience, while I was also being groomed HEAVILY online with MRA seduction tactics on Twitter and elsewhere.
+    - We have to assume that I am the tip of the iceberg with regards to these sorts of manipulation techniques and it is highly likely children are being targeted in the same way.
