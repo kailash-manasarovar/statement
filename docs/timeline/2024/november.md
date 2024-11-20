@@ -57,8 +57,9 @@
 ![jctot19 latest](../../content/images/jctot19-latest.JPG){width=45%}
 
 - He hasn't posted since the 15th January 2024, or he has deleted his posts from then.
-- The highlighted post from 9th January, mentioning the *chica*, appears to be referring to me. The account he is replying to is protected so I cannot see the conversation. The implication is that I am chasing him again and again. However, this is undoubtedly what he, Domingo, and their co-conspirators have been setting me up to do.
-- This was after Christmas where I was extraordinarily high, flying is an understatement and we have plenty of witnesses to that. At that time, there were DM'ed conversations between myself and someone pretending to be him. I relate all this in the [December 2023 section](../2023/december.md).
+- The highlighted post from 9th January, mentioning the *chica*, appears to be referring to me. The account he is replying to is protected so I cannot see the conversation. The implication is that I am chasing him again and again. However, this is undoubtedly what he, Domingo, and their co-conspirators have been setting me up to *appear* to be doing.
+- This was after Christmas where I was extraordinarily high, flying is an understatement, and we have plenty of witnesses to that. I was exuberant. 
+- At that time, there were DM'ed conversations between myself and someone pretending to be him (the American account, Matthew). I relate all this in the [December 2023 section](../2023/december.md).
 - I had gone to Dublin on my therapy course that [January 2024](january.md), opened an anonymous account on Twitter, followed `@jctot19` on it, and posted solely to my timeline without interacting with his account directly at all.
 - I posted about my therapy, and looked on his timeline for responses, as before.
 - The first post I had seen on his timeline during that time had been an angel climbing a ladder to heaven, so I continued.
