@@ -115,7 +115,8 @@
 ## Gypsy serenades through the tunnel
 
 - Every time I walk through the tunnel, there is a gypsy busker playing music related to everything that has gone on with the trumpet teacher.
-- One day, three gypsies stand at the end of the tunnel and the young girl sings loudly at me about a lucky frog and other stuff related to what's been going on.
+- One day, three gypsies stand at the end of the tunnel and the young woman sings loudly at me about a lucky frog in a box, and other stuff related to what's been going on.
+- I recognize the young woman from an account that followed me on Twitter `@JackChardwood` over the summer when the hacking and stalking was intensifying. The account had a name that included "Suarez".
 
 ## Year 4 professional piano begins
 
