@@ -23,6 +23,8 @@ The report details the following:
 - Mass voyeurism of myself through my hacked devices, probably also monetized.
 - Possible poisoning with strychnine or similar added maliciously to the water in my flat.
 
+My story will uncover a dark underlying motive which relates everything that has happened to me over the last years in Spain to my experience of child sexual abuse at the hands of a pedophile gang in North London in 1989 who put me in porn at that time.
+
 Given all these events have taken place within the context of studying at a public learning establishment, the Dénia music conservatory, which has in attendance hundreds of minor children, and a handful of adults; and given the elaborate and extremely professional nature of the electronic attacks, and the sophistication of the drugging techniques, the likelihood of similar things happening to others, including minors, must be taken into serious consideration.
 
 ### Motivation
