@@ -17,16 +17,16 @@
 ## Meeting Alex
 
 
+
 ## I see someone in town from Twitter
 
 - Noah: https://x.com/Noahhweb3 on this account I think.
-
 
 ## Piano concert
 
 - Why does someone always have to die?
 
-
+## Off to Madrid
 
 
 
@@ -41,12 +41,22 @@
 
 ## Meditation
 
-## The Finnish lady
+## The Finnish lady and her boyfriend
 
 !
 
 ## Twitter
 
 - It was around now that the hackers started to suggest they had access to the porn filmed of me in 1989.
+- They may have been suggesting it before (pictures of table on Google search) but it did not yet register.
 - They posted pictures of a young girl's body that looked like me.
 - They also posted silhouettes of the same thing, with brutal porn suggestions.
+
+These are a selection of tweets from this period which relate to everything that has been happening. Most of them have been translated, a lot, so I assume the Spanish are reading them.
+
+Many of these tweets are confirmation of what has been going on.
+
+### @1frgvn
+
+
+### @JackChardwood
