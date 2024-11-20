@@ -103,11 +103,12 @@
     - [Letter in Spanish](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf)
     - [Letter in English](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20EN.pdf)
     - [Proof of sending](../../content/documents/letters/3.%20Proof%20of%20first%20emailed%20letter%20to%20Generalitat%20Octo%2023.png)
+    - [List of recipients](../../content/documents/emails/list-of-recipients.png)
 
 - I receive no reply at all. 
 - In fact, I write again, a few times, to the GV and I never receive a reply.
 - Given the seriousness of what I'm saying, it's more than weird that no-one replied to me.
-- Eventually they will tell me they didn't have my address and they sent something by post in December (! December) that got sent back to them. But I communicated with them via email so that is pure male-bovine excretions.
+- Eventually they will tell me they didn't have my address and they sent something by post at the end of December (! December) that got sent back to them. But I communicated with them via email so that is pure male-bovine excretions.
 
 ## Hazel outside the conservatory
 

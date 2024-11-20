@@ -80,7 +80,9 @@
 
 !!! tip "Interestingly"
     - The cyber-stalking never stopped and there continued to be accounts following me pretending to be him. I never knew if they were really him or not but I played along in any case.
-    - A few of these accounts mentioned Studio Ghibli.
+    - A few of these accounts mention Studio Ghibli and I believe they are well aware this was a key to binding my mind into believing the trumpet teacher cared about me.
+
+    
 
 
 ## Twitter communications
