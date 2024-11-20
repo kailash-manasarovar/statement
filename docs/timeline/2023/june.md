@@ -74,7 +74,7 @@
 - Gloria comes to the door when we're done and is practically wetting herself with laughter.
 - I'm not at all surprised at any of it but it hurts of course.
 - As I leave class, I remind the trumpet teacher that the frog is a lucky frog and to look after it.
-- I walk out of the conservatory front door, and teachers and staff throw dirty water (I hope) onto me from an upstairs window (Ana the violin teacher's classroom actually).
+- I walk out of the conservatory front door, and teachers and staff throw dirty water (I hope) onto me from an upstairs window (Ana the violin teacher's classroom actually). Their behavior reminds me of Carrie 1, the Stephen King horror novel.
 - I still have the silk t-shirt that they ruined with the stains on it.
 - As I walk home, I "bump" into Mercedes who I realize was waiting for me to walk the other way I go sometimes, the way she would have been more familiar with me going, and when she realized I'd gone a different way, she'd had to run. She was totally out of breath and trying to style it out. It was amusing to me.
 - She was checking my face to see if I was crying. Perhaps she was recording it too.
@@ -196,6 +196,8 @@
 
 ## Twitter
 
+All the twitter activity is on my `@1frgvn` account at this stage: todo: double check.
+
 - I'm still having the communication via Twitter posts with `@jctot19` who is, apparently, the trumpet teacher.
 - This account posts communications that are very clearly intended for me.
 - There are posts about Ana, British women, other relevant things.
@@ -218,3 +220,7 @@
 - Suddenly I'm seeing a lot of porn on my Twitter timeline too.
 - A porn video pops up on my timeline which looks like the trumpet teacher and Ana so I look at it. It is extremely violent and he is holding her by the neck and throwing her around the kitchen. It certainly wasn't actually Ana but the woman was of a similar build and look. It may have been the trumpet teacher however, as the man's back was to the camera and he was of the same build.
 - https://x.com/1FRGVN/status/1664572450112258049
+- On June 12th 2023, an account `@january_myth` posts an extremely significant picture that I see when I get home and after the shock of finding out I have been cyber-stalked so extensively and by so many. At the time of writing, 20 November 2024, I'm unable to find this pic and I wonder if it's deleted. I ask.
+
+![Long long way to go](../../content/tweets/long-long-way-to-go.png){width=85%}
+

@@ -78,3 +78,17 @@
 - I book a hotel in Madrid and leave Dénia.
 - I am followed in Madrid.
 - I write two letters by hand to my parents.
+
+## Tweets
+
+### @1frgvn
+
+- https://x.com/january_myth/status/1772034747775992249 -> the Taru Ann account, which may be sometimes run by Trish Penny retweets a post from 29th August 2023.
+
+![Love poem](../../content/tweets/taru-ann-poem-2.png){width=65%}
+
+- At the same time, she retweets a pic from 12th June 2023, which I have been unable to locate so [asked the account owner about it directly](../../content/tweets/long-long-way-to-go.png)
+- I begin to suspect that whoever is managing the Taru Ann account could be well known to me.
+- On September 22nd, after weird communication from Trish Penny all summer, I wonder if Taru Ann is Trish from time to time: https://x.com/1FRGVN/status/1837596563557831058. The account likes my question in response.
+
+![Trish is Taru Ann sometimes](../../content/tweets/trish-is-taru-ann.png)

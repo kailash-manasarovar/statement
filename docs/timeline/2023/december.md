@@ -6,7 +6,16 @@
 - Later that evening on Twitter posts talk about how "my brother always steals everything from me", and I reply "rotten bugger": https://x.com/1FRGVN/status/1730310006132650141
 - This account came up on the Google search results and I believe it is a hacker (honey trap, gang-stalker) account.
 
+## Heading to Lourdes
+
+- Blue car on the A23 ... I mean REALLY?
+
 ## Picture of me in my pants on Google search
+
+
+
+## Meeting Alex
+
 
 
 ## Piano concert

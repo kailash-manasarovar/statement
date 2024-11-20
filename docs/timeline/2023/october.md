@@ -26,7 +26,7 @@
 - I was concerned enough to send this pic to the Policia Nacional trafficking email (which is supposed to be anonymous) in October 2024.
 - I got a reply from Denia Police which, at the time of writing, I have not responded to given their total lack of interest when I visited them and my suspicion that I cannot trust them.
 - In chamber music classes, the music is extremely suggestive of what's been going on and I am bravely playing my hand.
-- Piano classes are good and Paqui does a good job of pretending she's on my side.
+- Piano classes are good and Paqui does a good job of pretending she's neutral.
 
 ## Strawberries
 
