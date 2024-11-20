@@ -68,10 +68,20 @@
 - The next chamber music class I went to at the conservatory it felt like EVERYONE knew what I had written, the whole building was hushed.
 - His demeanor towards me was kind in class that day and this was probably the most powerful grooming technique of all because for the first time in my life, on disclosing sexual abuse to someone I cared about:
     - I was not judged.
-    - I was not hated or attacked (although ironically that was exactly what was happening and probably for that reason too).
+    - I was not hated or attacked (although ironically that was exactly what was happening and probably for the fact that I had been sexually abused as child too).
 - When I got home that evening, his Twitter account posted a beautiful picture which felt like it was a response to me.
-- I was extremely high that day, and my kidneys were aching after class, and I had to lie down.
+- The account `@jctot19` has now deleted most posts from that time, but this is what the account posted and I saw it after class.
+
+![Studio Ghibli](../../content/images/ghibli.png){width=65%}
+
+- I was extremely high that day, whole body vibrating in class, and my kidneys were aching as usual after class, and I had to lie down.
+- The picture was like opium to my mind and heart. I was 100% caught at that moment.
 - I texted my friend from Lourdes about all this.
+
+!!! tip "Interestingly"
+    - The cyber-stalking never stopped and there continued to be accounts following me pretending to be him. I never knew if they were really him or not but I played along in any case.
+    - A few of these accounts mentioned Studio Ghibli.
+
 
 ## Twitter communications
 

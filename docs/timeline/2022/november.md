@@ -28,6 +28,13 @@
     - I wonder how much in subscription fees a repeat rape-porn clip would earn on the porn networks?
     - I wonder if it's possible to claim such moneys back in litigation? Both from the original perpetrators and then again from the Dénia porn gangs.
 
+## A sexualized 4-year-old at the Chinese bazaar
+
+- One Saturday morning I head to the Chinese bazaar.
+- A rough looking man is there with his tiny daughters, 4 and 2 probably.
+- The 4-year-old is dressed like a cheap prostitute: platform stilettos, glittery mini-dress, garish make up, hair done up. It was horrifying.
+- Given I now know they were tracking me via my mobile phone, I'm pretty sure this was another set up for me to see.
+
 ## The trumpet teacher
 
 - At the end of November, 28th, all of a sudden, a trumpet teacher is found for the chamber music classes.

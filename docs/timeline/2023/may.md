@@ -28,7 +28,8 @@
 - I went masked up.
 - I was thinking, with all this Twitter communication, he must talk to me, so I will go.
 - He didn't talk to me.
-- I was angry and posted an angry tweet about Domingo and his group of followers, and how it is extremely weird that they hang out with 14 year old girls.
+- I was angry and posted an angry tweet about Domingo and his group of followers, and how it is extremely weird that the adult men amongst them hang out with 14 year old girls.
+- I tweeted he's "probably a trans woman".
 
 ## Next class
 
