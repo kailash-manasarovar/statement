@@ -148,6 +148,7 @@
 - "Look at her, remind you of anything?", the account asks.
 - I understand immediate that the reference is to me being hacked and filmed in my hotel room in France.
 - I wonder who is managing this account but it is certainly someone who knows what's been going on, right back to before I went public on Twitter, when, I assume, the gang stalking was Denia-contained.
+- The hotel room in the photo also looks exactly like the hotel room I'm in at that moment.
 
 ## Twitter
 
