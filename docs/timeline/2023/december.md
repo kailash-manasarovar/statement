@@ -108,7 +108,17 @@
 - I wonder now if they got high with whatever was in my car too.
 - It might be useful to track them down.
 - She was Finnish, he was German. She was much older than him.
-- When I'm feeling a little bit paranoid, I wonder if she knew what was going on. There is a strong Finnish connection with the trumpet teacher, [something that Trish Penny said](../2022/march.md#conservatory-open-day) that first time we went walking and she was there.
+- Whenever I'm feeling a little bit paranoid, I wonder if she knew what was going on. There is a strong Finnish connection with the trumpet teacher, [something that Trish Penny said](../2022/march.md#conservatory-open-day) that first time we went walking and she was there. She had a ukelele and sang Back to Black.
+- She blinked weirdly at me.
+
+!!! info
+    - When I was sexually abused as a child, I endured extreme brutality and suffered an enormous PTSD afterwards which was debilitating.
+    - I believe I brought some of the expressions of those attacks into my daily life.
+    - One of the things I do from time to time is blink in a weird manner.
+    - I believe the blinking is from being raped and the assault on the body that took place at those times.
+    - Blinking may have been my only way to register sexual assault as it was happening and while I was sedated.
+    - If I'm right about the Finnish woman, in deeply paranoid moments, it certainly appears much more is going on than at first meets the eye.
+    - I wonder if all the teachers and staff are aware of the depths of evil this story, and their colleagues, go to.
 
 ## Madrid
 
