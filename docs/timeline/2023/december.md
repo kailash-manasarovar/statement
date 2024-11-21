@@ -13,7 +13,8 @@
 ## Muscle men outside the tunnel
 
 - Another time I'm walking home from the conservatory, a couple of muscle men approach me from out of the tunnel.
-- They are grinning at me.
+- It's cold but they are wearing tight t-shirts.
+- They come up to me, flexing their muscles, and they are grinning at me.
 - It's weird.
 
 ## Heading to Lourdes
@@ -32,17 +33,18 @@
 - I'm shocked as this was the picture I took in August when I was trying to see [how big my bum was](august.md#i-take-a-picture-of-myself-in-my-pants).
 - It looks doctored a little, the top half is not me, but the bottom half does look like me.
 - I know immediately that, without any doubt, they have sound and video clips of me masturbating.
-- I show my friend in Lourdes this search result directly.
+- I show my friend in Lourdes this search result directly from the Google search function on my mobile.
 
 ## Meeting Alessandra
 
 - I'm meeting Alex now and then for coffee to chat. 
 - It's nice to have someone to talk to as I have no one else apart from my friend in Lourdes.
 - I now believe she is reporting back to the stalkers, including Hazel.
-- I show her the search results. I explain how it works and how it has been working since it started in June.
+- When I first saw Alex again after nearly 15 years, one of the first things she asked me was "who's your accountant".
+- I show her the Google search results I'm seeing and how it's a conversation of some sort. I explain how it works and how it has been working since it started in June.
 - I show her the picture of me in my underwear and I explain where it's from.
 - She looks briefly alarmed.
-- I show her a tweet that comes up from time to time on the `@jctot19` account which is clearly a message for me. It's quite complicated Spanish but says something like: "they thought you were an idiot, but they were wrong" -> I might have this screenshot somewhere so I'll post it when I'm going through all the screenshots after I finish this timeline.
+- I show her a tweet that comes up from time to time on the `@jctot19` account which is clearly a message for me. It's quite complicated Spanish but says something like: "they thought you were an idiot, but they were wrong" -> *I might have this screenshot somewhere so I'll post it when I'm going through all the screenshots after I finish this timeline.*
 - I first saw this tweet in July and I remember being so curious about what it meant as it was language I was unfamiliar with, I translated it on my mobile at Valencia airport on my way back from Thailand.
 - Of course it made me think that the trumpet teacher still liked me.
 
@@ -61,7 +63,7 @@
 - Trish Penny and Christine BJ come to the concert: I meet Christine from time to time for lunch so I guess I informed her about it then as I was still uninvited to hiking with the ladies!
 - After the concert, Christine, Trish, and I go for a drink in a bar nearby.
 - We sit down and Christine says: "Why does someone always have to die?".
-- I start talking about the drama still going on and Trish looks upset. She leaves soon after.
+- I start talking about the drama still going on. I probably say something like "I'm still in love". Trish looks upset. She leaves soon after.
 - Christine and I stay a bit longer for a talk.
 
 ## Christmas
@@ -73,10 +75,11 @@
 
 ## Chat with the American Matthew
 
-- The American account Matthew https://x.com/Matthew49200183 has been following me since August
+- The American account Matthew https://x.com/Matthew49200183 has been following me since August.
+- I detail some of his [interesting tweets](november.md#matthew) in November 2023 information.
 - We DM when I'm in my hotel in Madrid. 
 - Due to the obvious references, I'm sure it's the trumpet teacher, or someone very close to him who can speak/write English.
-- In this one, whoever it is tells me he's nervous because he usually sees me on the WhatsApp group and chatting is different.
+- He tells me he's nervous because he usually sees me on the WhatsApp group and chatting with me directly is different.
 - The interaction goes on till the end of December.
 - Our DMs become much clearer about who he is, or who this person wants me to think he is.
 
@@ -101,11 +104,11 @@
 - On the way back to my hotel I start to feel extremely unwell.
 - I projectile vomit into a wastepaper bin on a Metro platform.
 - I have really bad food poisoning for about 2 days.
-- My friend was not affected by anything and we ate exactly the same things.
+- My friend was not affected by anything, and we ate exactly the same things.
 
 ## Twitter
 
-- It was around now that the hackers started to suggest they had access to the porn filmed of me in 1989.
+- It was around now that the hackers started to suggest they had access to the rape porn filmed of me in 1989.
 - They may have been suggesting it before (pictures of table on Google search) but it had not yet registered.
 - They posted pictures of a young girl's body that looked like me.
 - They also posted silhouettes of the same thing, with brutal porn suggestions.
