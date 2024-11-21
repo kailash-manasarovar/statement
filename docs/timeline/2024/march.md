@@ -17,6 +17,7 @@
 - Her concern for my iPad far extends any concern she might have had for me being terrorized by Domingo and his associates, which includes her.
 - When we are upstairs, I speak to her about what's going on. I tell her I can't believe how it just goes on and on.
 - She looks scared. She is shaking and her voice is trembling.
+- I tell her "you know it's not just me they're looking at online". An alarmed flash crosses her face.
 - She suggests I go and talk to Enric Gil who is works at the town hall in the capacity of welcoming foreign people.
 
 ## Enric Gil

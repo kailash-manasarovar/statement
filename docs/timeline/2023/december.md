@@ -85,9 +85,24 @@
 
 ## Meditation
 
+- I'm extraordinarily high at meditation volunteering.
+- My behavior is erratic and bizarre - looking back.
+- I believe it is because I am in love but now I'm not so sure and I believe I was somehow being spiked, possibly through my car as the "problem" with the washing fluid was still happening. Could someone have been tampering with the air-conditioning/heating system in my car?
+- The center may well remember my behavior being a bit strange. I was actually separated from the others because I was so exuberant, singing, talking, joking, making jokes of a sexual nature too. Honestly, it was like I'd been hit on the head. I'm not usually like this at all.
+- You could ask them.
+- Honestly, looking back, I must have been on something.
+
 ## The Finnish lady and her boyfriend
 
-!
+- On Christmas Day, a woman comes up to me after morning meditation and say "Thank you for relaxing my nervous system": https://x.com/1FRGVN/status/1740889587545751848
+- We had spoken previously in the kitchen and she told me she had been feeling miserable and I cheered her up.
+- I gave her and her boyfriend a lift back to Madrid in my car.
+- They were musicians, she had her ukelele with her.
+- She sang Back to Black to me outside the car and blinked weirdly at me while she was doing it.
+- I add this because I texted her later that day to see how they were, and she ignored me.
+- I wonder now if they got high with whatever was in my car too.
+- It might be useful to track them down.
+- She was Finnish, he was German. She was much older than him.
 
 ## Madrid
 
