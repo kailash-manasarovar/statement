@@ -1,6 +1,12 @@
 ## Conservatory open day
 
 - After one Saturday walking with the English ladies, including Christine Betterton Jones and Patricia Penny, where we were talking about music and my piano studies, I look up the conservatory website to find there's an open day for new students.
+
+!!! info
+    - This may have been the same day that Trish was telling us all about how she had taken speed and other drugs when we were at coffee.
+    - I switched off at that point and was talking to someone else but from the periphery I remember they were talking about a Spanish brothel owner who had been in Finland and come back. It sounded like everyone knew who she was talking about.
+    - I believe she was referencing the trumpet teacher.
+
 - I go along and meet Joan Carles Poquet and Paqui Fornet Pastor.
 - They seem angry with me. They give me angry looks and are brusque with me.
 - Even so, I apply and prepare for the exam.

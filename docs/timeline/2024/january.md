@@ -3,7 +3,12 @@
 ## Back in Dénia
 
 - There is a DM chat with a fake account that I'm sure is either the trumpet teacher or someone close to him.
-- He tells ...
+- It's the same account that posted the [hotel room selfie-pic](../2023/december.md#hotel-room-selfie-pic) a few days before.
+- https://x.com/ItsMe50474936
+- This account also says they're nervous they're "actually" talking to me instead of seeing me in the group.
+
+!!! info
+    - Do they pay for this?
 
 ## `@JackChardwood` account content completely changed
 

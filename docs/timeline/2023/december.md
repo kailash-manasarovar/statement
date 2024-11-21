@@ -70,7 +70,7 @@
 
 - I'm going to volunteer at the [Vipasana meditation center near Madrid](https://www.dhamma.org/en/schedules/schsacca) over Christmas for about 5 days.
 - I'm exuberant and high.
-- I drive up to Madrid and stay one night before heading to the center the next morning.
+- I drive up to Madrid and stay one night before heading to Avila the next morning.
 - The Matthew account DMs me before I set off.
 
 ## Chat with the American Matthew
@@ -82,6 +82,11 @@
 - He tells me he's nervous because he usually sees me on the WhatsApp group and chatting with me directly is different.
 - The interaction goes on till the end of December.
 - Our DMs become much clearer about who he is, or who this person wants me to think he is.
+
+## Avila
+
+- Matthew suggests I contact my parents. I buy angels for them and send them via DHL.
+- In Avila I'm extremely sexually aroused. I don't really understand why. It's overwhelming.
 
 ## Meditation
 
@@ -103,10 +108,11 @@
 - I wonder now if they got high with whatever was in my car too.
 - It might be useful to track them down.
 - She was Finnish, he was German. She was much older than him.
+- When I'm feeling a little bit paranoid, I wonder if she knew what was going on. There is a strong Finnish connection with the trumpet teacher, [something that Trish Penny said](../2022/march.md#conservatory-open-day) that first time we went walking and she was there.
 
 ## Madrid
 
-- Back in Madrid after meditation, Matthew and I DM again when I'm back in Madrid.
+- Back in Madrid after meditation, Matthew and I DM again.
 - We talk about things from when there was a chamber music class, and other stuff. It's personal matters only people related to the gang stalking would know.
 - In one of them, I ask him to come to Madrid. He says it's not happening.
 - I'm not sure it's actually the trumpet teacher at all but I'm extremely high and sexually aroused at this time and it's difficult to keep clear about what's going on.
@@ -120,6 +126,18 @@
 - I projectile vomit into a wastepaper bin on a Metro platform.
 - I have really bad food poisoning for about 2 days.
 - My friend was not affected by anything, and we ate exactly the same things.
+- As I trawl through the tweetage around this time, I have to wonder if they wanted to shut me up and poisoned me for that reason.
+
+## Hotel room selfie pic
+
+- An account: https://x.com/ItsMe50474936 interacts with me.
+- They post an extremely interesting picture.
+
+![Woman taking a selfie in the hotel room](../../content/tweets/hotel-room-selfie-pic.png){width=65%}
+
+- "Look at her, remind you of anything?", the account asks.
+- I understand immediate that the reference is to me being hacked and filmed in my hotel room in France.
+- I wonder who is managing this account but it is certainly someone who knows what's been going on, right back to before I went public on Twitter, when, I assume, the gang stalking was Denia-contained.
 
 ## Twitter
 
@@ -134,5 +152,67 @@ Many of these tweets are confirmation of what has been going on.
 
 ### @1frgvn
 
+- https://x.com/1FRGVN/status/1741218414276858196 -> I think this gif was generated just for me.
+- https://x.com/1FRGVN/status/1741192065680122260 -> response to stalker accounts, no idea what they'd said.
+- https://x.com/1FRGVN/status/1741191051669287342
+- https://x.com/1FRGVN/status/1741189826852884550
+- https://x.com/1FRGVN/status/1741150130235937110 -> reference to me posting I liked the trumpet teacher in Spanish.
+- https://x.com/1FRGVN/status/1741141991042306188 -> tweet explaining how exuberant I had been feeling over Christmas and what happened at meditation.
+- https://x.com/1FRGVN/status/1741043648815653352 -> always questioning them.
+- https://x.com/1FRGVN/status/1741012146736291935 -> I don't understand the strawberries (the overwhelming sexual feelings). I never once consider I'm being drugged. It's just too evil to enter my mind.
+- https://x.com/1FRGVN/status/1740889587545751848 -> tweet about the Finnish lady who played Back 2 Black.
+- https://x.com/1FRGVN/status/1740812188800188865 -> the Romina account had been messing with me since April 2022. I had no idea it was connected to Domingo and the gang stalking but clearly it was, and I was starting to realize how long I had been stalked for. https://x.com/whoawmina
+- https://x.com/1FRGVN/status/1740837494638415890 -> responding to stalkers.
+- https://x.com/1FRGVN/status/1740831827743670449
+- https://x.com/1FRGVN/status/1740715260791697873 -> food poisoning.
+- https://x.com/1FRGVN/status/1740799870586482896 -> hidden like.
+- https://x.com/1FRGVN/status/1740786165593038998 -> trying to find out info and make sense of what's going on.
+- https://x.com/1FRGVN/status/1740735296067563890
+- https://x.com/1FRGVN/status/1740714546761814047
+- https://x.com/1FRGVN/status/1740102880126996657 -> messing with them really.
+- https://x.com/1FRGVN/status/1740331983136551267
+- https://x.com/1FRGVN/status/1740314691388203079 -> unwitting infamy.
+- https://x.com/1FRGVN/status/1740290316970738083 -> the cry I reference I mention [here](march.md#chamber-music-classes-continued)
+- https://x.com/1FRGVN/status/1740273934833201503 -> only cried for love twice in my life.
+- https://x.com/1FRGVN/status/1740268855480795581 -> talking about everything that's going on.
+- https://x.com/1FRGVN/status/1740127866447094097
+- https://x.com/1FRGVN/status/1740101710142652791
+- https://x.com/1FRGVN/status/1740103211045048766
+- https://x.com/1FRGVN/status/1739751872397791322 -> I mention my crypto business that I was asking the engineer for help with on the Jack Chardwood account.
+- https://x.com/1FRGVN/status/1738665712795652332
+- https://x.com/1FRGVN/status/1738476409599779094 -> sniffing something's up.
+- https://x.com/1FRGVN/status/1737952355692253473 -> suddenly jyotirlingum account posts appear out of nowhere. I didn't follow them.
+- https://x.com/1FRGVN/status/1737951785279500578 -> offering the stalkers t-shirts of the forgivenet, my crypto app.
+- https://x.com/1FRGVN/status/1737553762045301184 -> offering t-shirts.
+- https://x.com/1FRGVN/status/1737545423374463251
+- https://x.com/1FRGVN/status/1737536074354753735
+- https://x.com/1FRGVN/status/1737526642908491783
+- https://x.com/1FRGVN/status/1737517825906913436
+- https://x.com/1FRGVN/status/1737214390099730900 -> remarking on all the porn bots, hidden like and retweet.
+- https://x.com/1FRGVN/status/1736923933897535687 -> erratic content behavior.
+- https://x.com/1FRGVN/status/1736786105909784644 -> mentioned by choir student on my way to chamber music class.
+- https://x.com/1FRGVN/status/1736751514587165134 -> worried about the women being angry with me again at chamber music.
+- https://x.com/1FRGVN/status/1736515286654652817
+- https://x.com/1FRGVN/status/1736430347221414053 -> I can't remember what this refers exactly to but it's to do with me feeling like there's a reciprocal relationship and I'm winning against the stalker. It's bollocks obviously but I'm not thinking straight.
+- https://x.com/1FRGVN/status/1736377650216571250 -> mentioning the car issue and how it was intermittent. Did someone do something to my car at that point? 
+- https://x.com/1FRGVN/status/1735986921720164437
+- https://x.com/1FRGVN/status/1735973677823328645
+- https://x.com/1FRGVN/status/1735803253278019868 -> I think this is in reference to a change in medication through the water, from anxiety causing to benevolent feelings causing. There was a shift.
+- https://x.com/1FRGVN/status/1735791374862082307 -> A lot of dreams, note the "brothers" reference. I think whatever they're giving me is making me a little bit psychic.
+- https://x.com/1FRGVN/status/1735669815954587663 -> This had come up with a positive vote previously, I believe via Mac spoofing.
+- https://x.com/1FRGVN/status/1735595300247490608
+- https://x.com/1FRGVN/status/1735586729996771515
+- https://x.com/1FRGVN/status/1735572254388330653
+- https://x.com/1FRGVN/status/1735041924908659152
+- https://x.com/1FRGVN/status/1734118219152023628
+- https://x.com/1FRGVN/status/1733764096124706962
+- https://x.com/1FRGVN/status/1731716586631803194 -> interaction with stalker account, they deleted the post. Mary G Lamarche.
+- https://x.com/1FRGVN/status/1731089945702371827 -> trying to make sense of why all this is happening. This is the best reason I have.
+- https://x.com/1FRGVN/status/1731058092475916788
+- https://x.com/1FRGVN/status/1730977373212889274
+- https://x.com/1FRGVN/status/1730680949266841930 -> quote regarding Pablo and the fact he had to witness the psychological attack against a "vulnerable" female by males he probably respected, and he was a great kid. Note Matthew has something to say about this.
+- https://x.com/1FRGVN/status/1730640137279639877 -> the Hanuman temple I want to build in Denia.
+- https://x.com/1FRGVN/status/1730355508186386608
+- https://x.com/1FRGVN/status/1730335228047056929 -> practical issues around being the town pariah.
 
 ### @JackChardwood
