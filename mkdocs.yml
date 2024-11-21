@@ -110,6 +110,9 @@ nav:
   - Evidence:
     - DMs: evidence/DMs.md
     - Emails: evidence/emails.md
+    - Memes and triggers:
+      - Symbols: memes-triggers/symbols.md
+      - Memes: memes-triggers/memes.md
     - Google drive files: evidence/google-drives.md
     - Mobile evidence: evidence/mobiles.md
     - CCTV: evidence/cctv.md
@@ -123,9 +126,6 @@ nav:
     - Health: personal/health.md
     - Expenses: personal/expenses.md
     - Vocation: personal/vocational.md
-  - Memes and triggers:
-    - Symbols: memes-triggers/symbols.md
-    - Memes: memes-triggers/memes.md
 
 
 
