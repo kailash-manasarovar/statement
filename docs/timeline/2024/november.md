@@ -91,3 +91,12 @@
 - I have raised the issue with the [water pipes](../2023/september.md#the-water-pipes) twice already.
 
 ![Bea wanting to know when I'm leaving](../../content/whatsapps/bea-panic.JPG){width=45%}
+
+## Tattoo
+
+- I was on my phone to my mother, telling her I'm going to get a tattoo in Bangkok.
+- Two seconds later, a fake account follows me on Twitter with a woman with tattoos.
+
+![woman with tattoos](../../content/images/fake-accounts/woman-with-tattoos-1.png)
+
+![woman with tattoos](../../content/images/fake-accounts/woman-with-tattoos-2.png)

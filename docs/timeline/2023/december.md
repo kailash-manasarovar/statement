@@ -216,3 +216,5 @@ Many of these tweets are confirmation of what has been going on.
 - https://x.com/1FRGVN/status/1730335228047056929 -> practical issues around being the town pariah.
 
 ### @JackChardwood
+
+- Nothing of note. Perhaps conversations are in here but it's too difficult to tell.
