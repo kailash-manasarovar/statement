@@ -85,6 +85,9 @@
     ![Studio ghibli account](../../content/images/fake-accounts/giltrap-1.png){width=65%}
 
     - This account no longer exists.
+    - Here's another that DM'ed me in April 2024.
+
+    ![Studio ghibli account](../../content/images/fake-accounts/ghibli-2.png){width=65%}
 
 ## Twitter communications
 

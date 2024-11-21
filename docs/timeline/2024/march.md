@@ -42,6 +42,7 @@
 - At the same moment, my security camera at home goes off and makes an alarm on my phone. I don't have time to look
 - The woman dressed as Lorraine (who I believe now is Carmen Cano, Domingo's sister) and a man sit directly behind me, seats have been saved for them
 - When I got home, I checked my camera. At 7.30pm, recorded on my security camera, you can hear a group of men making ghost noises
+- I'm blocked from downloading the videos of the concert on the system.
 
 ## Talking to the translator
 

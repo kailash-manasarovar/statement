@@ -97,13 +97,16 @@
 ## Alex and Paul
 
 - I knock on Paul's door to say hello. He is surprised to see me. He's an old friend from Denia.
-- He puts me and Alex in contact, another old friend from Denia.
+- He puts me and Alex (Alessandra) in contact, another old friend from Denia.
 - I meet Alex and tell her everything that's been happening. I must appear extremely stressed and anxious.
 - Myself, Paul, and Alex meet for coffee soon after.
-- I meet Alex a few times over the next months until March 8th and then I don't really hear from anyone again, apart from Paul who I continue to "bump" into at the Open Market where he's having a beer.
+- Paul tells me rather private things that I suspect the stalkers are hoping I'll tweet about.
+- I meet Alex a few times over the next months until March 8th and then I don't really hear from anyone again, apart from Paul who I continue to "bump" into at the Open Market where he's having a beer from time to time.
 - We arrange to meet for Halloween as we had done in 2007.
-- Every time I meet them, people turn up and sit right beside us and I know they're listening to everything we say.
-- When I get back home and check Twitter, things we have said in our conversation are posted on fake accounts.
+- Every time I meet them, people turn up immediately and sit right beside us. I know they're listening to everything we say.
+- I now remember that one of these people was likely [the man with Ana on the Montgo in May](../2024/may.md#climbing-the-montgo).
+- When I get back home and check Twitter, things the three of us have said in our conversation are posted on fake account profiles.
+- This happens with anyone I talk to.
 
 ## Meeting Christine
 

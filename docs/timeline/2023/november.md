@@ -1,24 +1,29 @@
 ## Conservatory
 
 - Classes continue.
-- Choir class is full of threat towards me via suggestive scores, Nacho popping his nose in all the time and looking at me, discussions about trumpets, mentions of Vidal and how I'm thinking about him, Domingo's students asking me ridiculous things, the choir teacher being offensive towards me in Valenciano which I don't understand, and other stuff.
+- Choir class is full of threat towards me via suggestive scores, Nacho popping his nose in all the time and looking at me, discussions about trumpets, mentions of Vidal and how I'm thinking about him, Domingo's students asking me ridiculous things, the choir teacher being offensive towards me in Valenciano which I don't understand, comment from the children which seem weird, for example about my name, and other stuff.
 - I'm anxious, a lot, in choir class.
-- Piano is good. I enjoy playing. Paqui seems fierce but fair. I have no idea how much she hates me.
+- Piano is good. I enjoy playing. Paqui seems fierce but fair. I have no idea how much she hates me and/or what she is planning with all the teachers.
 
 !!! note
-    - On balance, hate is probably not the main motivator for the relentless gang stalking and bullying at this stage.
+    - On balance, hate is probably not the main motivator for the relentless gang stalking and bullying by teachers at the conservatory at this stage.
     - In fact, my studies at the conservatory were supposed to end definitively on June 12th, but didn't.
-    - The fact that teachers and staff had to continue with their ridiculous charade must have been very annoying and upsetting.
-    - So, instead of doing the right thing, and letting it all go, and leaving me in peace, they decided their best move was to make things worse for me so that I would definitely leave.
+    - The fact that teachers and staff had to continue with their ridiculous charade must have been very annoying and upsetting for them.
+    - So, instead of doing the right thing, and letting it all go, and leaving me in peace to play the piano, they decided their best move was to make things worse for me so that I would definitely leave.
 
-- Harmony is OK. I struggle to understand the content, however, and I no longer sit next to Samuel who helped me in the previous year. I sit on my own and no-one speaks to me.
+- Harmony class is OK. I struggle to understand the content, however, and I no longer sit next to Samuel who helped me in the previous year. I sit on my own and no-one speaks to me.
 - Chamber music is stressful. The women are play acting they hate me and it's all a bit of a farce.
 - Katia brings in a duet from the opera Norma about two women in love with the same man, one has two children with him. The trumpet teacher, allegedly, has two daughters and the reference is that Norma and Adalgisa are Ana and I and we are both in love with the same man.
 - I have brought in something equally suggestive. 
-- Random students make comments related to my Twitter activity.
+- Random students make comments related to my Twitter activity in the halls.
 - It's all very stressful.
 - I am literally on my own against the whole conservatory, and there is no reason for them to hate me at all. In fact, everything I am doing is because I'm concerned for the safety of the children there, my classmates.
 - I am waiting for the Generalitat to come in and sort it out like the adults I assume they are.
+
+!!! important
+    - It's key to note that no-one spoke to me at all about anything that was going on, right from the moment I came back.
+    - There was a wall of silence around me.
+    - The only person who ever said anything to me about anything that was going on was Paqui. One of which was in class sometime in February 2024, when she casually remarked after I told her how stressed I was feeling because of being terrorized that, "oh it's what they do here".
 
 ## Weird guy at conservatory
 
@@ -43,6 +48,29 @@
 - I see Ana in the passenger seat, she looks embarrassed.
 - There is NO-ONE in the driver's seat. Whoever was driving has ducked down behind the seats, and is driving extremely slowly, and I cannot see anyone in the driver's seat.
 - It certainly could not be the trumpet teacher as he is quite a large man and he would probably find it quite hard to hide his bulk.
+
+## Matthew
+
+- The account `@Matthew49200183` has been following me since August 2023. I'm supposed to think it is the trumpet teacher.
+- Here are all our interactions: https://x.com/search?f=live&q=(from%3AMatthew49200183)%20(to%3A1frgvn)&src=typed_query
+- The very first time he connects with me, he talks about women being gang stalked: 
+
+![Matthew's first tweet about gang stalking](../../content/tweets/matthew-women-gang-stalking.png){width=85%}
+
+- Full tweet is here: https://x.com/Matthew49200183/status/1686307743815069696
+- As I mentioned, the hair in his profile pic was a memory trigger from a post related to Carmen and the plate lady from July that I was seeing on both the `@jctot19` account, and the `@sinremite` account.
+- The picture has changed now to a flag with the same hair.
+- On 29th November, just before choir class, there is an interaction with Matthew on Twitter:
+
+![Interaction with Matthew before choir class](../../content/tweets/interaction-with-matthew-right-before-choir.png){width=75%}
+
+- "But what if a nervous sweaty elephant tells it to me", is in relation to my PTSD reaction towards the trumpet teacher when I tried to talk to him and is a derogatory reference to my weight too. 
+- My reaction to "give him a peanut" is ironic, I know I'm being wound up.
+- The reply is in reference to pedophiles which I shut down.
+- I'm feeling extremely nervous and anxious. I go to choir.
+- I sit down at my usual seat. The woman who plays the French horn sits down next to me stinking of peanuts. She is eating a peanut-butter sandwich of some sort.
+- The choir teacher mentions elephants continually through class.
+- I wonder who this Matthew actually is. The English is very good.
 
 ## Tweets
 

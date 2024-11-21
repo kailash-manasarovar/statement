@@ -108,6 +108,10 @@ nav:
     - Pedophilia: crimes/pedophilia.md
     - Rape porn: crimes/rape-porn.md
   - Evidence:
+    - DMs: evidence/DMs.md
+    - Emails: evidence/emails.md
+    - Google drive files: evidence/google-drives.md
+    - Mobile evidence: evidence/mobiles.md
     - CCTV: evidence/cctv.md
     - Perito: evidence/perito.md
     - Drug testing: evidence/drug-test.md

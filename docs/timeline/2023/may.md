@@ -8,7 +8,12 @@
 - The trumpet teacher flirts with me outrageously in public. I flirt back. At one stage, our eyes lock, and there is a powerful and undeniably reciprocal sexual attraction which is rather overwhelming to both of us.
 - The trumpet teacher heads to the back of the room, with his back to us, humming gently, for about 5 minutes, to collect himself.
 - I sit as far away from him as possible in the room and he give me a wide birth too.
-- I tweet about this later on, and other stuff as I tell my story on Twitter: https://x.com/1FRGVN/status/1759770318409695275. 
+- I tweet about this later on, and other stuff as I tell my story on Twitter: https://x.com/1FRGVN/status/1759770318409695275.
+
+!!! important
+    - It's key to remember that this was the first man I had had any sexual feelings for since 2011.
+    - Even though those feelings were mostly manipulated and manufactured, there was something real there, although it's not clear how much.
+    - It was overwhelming.
 
 ## International choir concert
 
