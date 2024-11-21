@@ -18,7 +18,7 @@
 - Things I have said on Twitter have been shared with the students and the choir teacher Salva. 
 - For example, this rather innocuous tweet: https://x.com/JackChardwood/status/1708197553483763859 is suggesting that the trumpet teacher come with me to Ireland because I need to hire a car and don't have a driving license.
 - A girl in the class comes up to me as I enter the choir classroom, and asks me, "Are you going away for the weekend?"
-- This girl (I unfortunately can't remember her name) is a piano student of Domingo. Her picture was also posted on a fake account I received during continued cyber-stalking in 2024.
+- This girl (Elsa Martí García) is a piano student of Domingo. Her picture was also posted on a fake account I received during continued cyber-stalking in 2024.
 
 ![Choir student](../../content/images/fake-accounts/choir-student.png){width=55%}
 

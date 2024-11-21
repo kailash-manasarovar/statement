@@ -14,6 +14,15 @@
 - I had no idea I was being drugged. None.
 - I didn't understand why the trumpet teacher wasn't talking to me directly but I was prepared to excuse it because of the feelings.
 
+## June 9th piano concert
+
+- The end of year piano concert took place at the boat club venue in Denia.
+- I played Philip Glass etude no 2.
+- As we were preparing, and I was playing a few bars, Domingo shouts "again?" in an accusatory tone.
+- I wonder what he means. Does he mean another ridiculous apparent romantic tryst for me at the conservatory? Or what.
+- At the time of writing I'm starting to believe "again" refers to events planned for me that will somewhat replicate the sexual abuse I suffered as a 16 year old in North London.
+- One of Domingo's students, Adriana Mihaila Mañas, runs over to him in an affected way. I believe he has requested her to do so.
+
 ## Work stress
 
 - Work is becoming extremely stressful and I'm not able to handle the things that are going on there.
