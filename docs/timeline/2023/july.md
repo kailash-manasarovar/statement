@@ -14,6 +14,7 @@
 
 - The weird communication continues on Twitter.
 - Pictures of Ana continue to come up on the trumpet teacher's timeline.
+- I start to look more closely at the `@jctot19` account and I see much interaction with `@SchrodingerGata`, but more so with an account called **Carmen** with address `@sinremite`.
 
 ### Tweets
 

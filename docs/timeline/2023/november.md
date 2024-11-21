@@ -2,6 +2,7 @@
 
 - Classes continue.
 - Choir class is full of threat towards me via suggestive scores, Nacho popping his nose in all the time and looking at me, discussions about trumpets, mentions of Vidal and how I'm thinking about him, Domingo's students asking me ridiculous things, the choir teacher being offensive towards me in Valenciano which I don't understand, comment from the children which seem weird, for example about my name, and other stuff.
+- The French horn player, an adult woman who sits beside me, is involved. She waits at the stairs to see my reaction to Nacho as he passed by me one evening after class. When I grimace, she is satisfied and leaves.
 - I'm anxious, a lot, in choir class.
 - Piano is good. I enjoy playing. Paqui seems fierce but fair. I have no idea how much she hates me and/or what she is planning with all the teachers.
 
@@ -69,7 +70,7 @@
 - The reply is in reference to pedophiles which I shut down.
 - I'm feeling extremely nervous and anxious. I go to choir.
 - I sit down at my usual seat. The woman who plays the French horn sits down next to me stinking of peanuts. She is eating a peanut-butter sandwich of some sort.
-- The choir teacher mentions elephants continually through class.
+- The choir teacher mentions elephants and trumpets and trunks continually throughout the class.
 - I wonder who this Matthew actually is. The English is very good.
 
 ## Tweets

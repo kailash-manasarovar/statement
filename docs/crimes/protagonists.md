@@ -12,3 +12,8 @@
 - Trish Penny, when I asked her how she knew Vidal, said "who"? But it's clear she knows who this man is, and his brother.
 - Investigators will know immediately who he is.
 - The whole town of Denia and beyond knows who he is.
+
+## Twitter accounts of note
+
+- `@jctot19`: I believe this must be the trumpet teacher's account although could be being controlled/managed by others too.
+- `@sinremite`: I believe this is Carmen Cano's account.

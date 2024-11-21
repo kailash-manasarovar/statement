@@ -79,3 +79,15 @@
 - Is it possible I blew his cover and that is why the original tweets stopped on 15th January.
 - Nevertheless, bizarrely, Google search results related to this account are still active. I notice the newer entries are coming from retweeted posts. I suspect the retweets are automated.
 - Carmen and Rocio Vidal still feature.
+
+## The landlady
+
+- I spoke to my mother the other day and told her I was thinking about leaving the flat on 15th February 2025 and handing in notice in December.
+- I told no-one else this.
+- This morning, 21st November, I receive a WhatsApp from Beatriz, my landlady, saying I had said I was leaving the flat.
+- I did not at all say this to her at any time and have been planning on staying until 2026.
+- I ask her who told her I'd said that.
+- I mention there is a problem with the water but we can discuss it later.
+- I have raised the issue with the [water pipes](../2023/september.md#the-water-pipes) twice already.
+
+![Bea wanting to know when I'm leaving](../../content/whatsapps/bea-panic.JPG){width=45%}
