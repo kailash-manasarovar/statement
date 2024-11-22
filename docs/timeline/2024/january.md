@@ -67,7 +67,8 @@
 
 ### January 18th 
 
-- I [text Katia](../../content/whatsapps/text-to-katia.pdf). Katia does not reply or even mention the text when I see her next at class.
+- I [text Katia](../../content/whatsapps/text-to-katia.pdf). Katia does not reply or even mention the text when I see her next at class. 
+- Instead, she looks at me and says, "oh you are the best", in a weird way.
 - I also [email the GV again](../../content/documents/emails/jan-18-email-to-GV.png) with an update of what's going on.
 - The GV reply to tell me they have transferred my email to the Alicante office and I have to ask them for information on who I can contact there.
 
