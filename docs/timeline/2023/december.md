@@ -34,6 +34,7 @@
 - It looks doctored a little, the top half is not me, but the bottom half does look like me.
 - I know immediately that, without any doubt, they have sound and video clips of me masturbating.
 - I show my friend in Lourdes this search result directly from the Google search function on my mobile.
+- They will remove this result from Google search the day after I post a screenshot of it on Twitter: https://x.com/1FRGVN/status/1748728422262546895.
 
 ## Meeting Alessandra
 
@@ -167,6 +168,7 @@ Many of these tweets are confirmation of what has been going on.
 
 ### @1frgvn
 
+- https://x.com/1FRGVN/status/1741449673678729502 -> tweet remembering the storm on 13th June.
 - https://x.com/1FRGVN/status/1741218414276858196 -> I think this gif was generated just for me.
 - https://x.com/1FRGVN/status/1741192065680122260 -> response to stalker accounts, no idea what they'd said.
 - https://x.com/1FRGVN/status/1741191051669287342
