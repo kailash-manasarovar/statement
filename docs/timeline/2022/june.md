@@ -1,6 +1,6 @@
 ## Preparing for the audition
 
-- The head of studies, Jaume Signes, a trumpet teacher allows me to use Jaume's room, the trumpet teaching room, every day to practice my pieces for the audition.
+- The head of studies, Jaume Signes, a trumpet teacher, allows me to use his room, the trumpet teaching room, room 6, every day to practice my pieces for the audition on a stand up piano.
 - One day, Gloria Muñoz Pimentel (this is the name on the conservatory website currently: https://portal.edu.gva.es/conservatoriDénia/es/centro/organigrama/), one of the receptionists, tells me I cannot use the normal room I've been using as it's busy but there is a room free upstairs instead.
 
 !!! tip "Gloria the receptionist"
@@ -28,4 +28,4 @@
 - I'm scheduled to join for the third year professional studies in September.
 - At the audition, Domingo's female students are hanging around helping everyone. He's clearly told them to dress the same, and this includes hot pants. 
 - He tells them to go and talk to people and they mill around talking to parents.
-- It's a bit embarrassing.
+- His control over them is a bit embarrassing and I wonder if he's doing it to "show me".

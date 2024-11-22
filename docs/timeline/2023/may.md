@@ -4,6 +4,7 @@
 - It is originally arranged for the Casa de Cultura in the town, but then somehow it changes and it's going to be in the conservatory instead.
 - I'm clear that I do not want to do this, and it is obvious he knows why (bullying). But I have to agree because it is a requirement of the course.
 - On the day of the concert, there are myself and Pablo, and the autistic girl and the guitarist performing and a few parents.
+- As I'm walking around to room 5 where the concert will take place in the conservatory building, Ana Girbes asks me, "are you alright?". I have no idea why she would ask me this.
 - As we are preparing, Ana comes in significantly dressed up to the nines to put her instrument somewhere, same old weirdness.
 - The trumpet teacher flirts with me outrageously in public. I flirt back. At one stage, our eyes lock, and there is a powerful and undeniably reciprocal sexual attraction which is rather overwhelming to both of us.
 - The trumpet teacher heads to the back of the room, with his back to us, humming gently, for about 5 minutes, to collect himself.

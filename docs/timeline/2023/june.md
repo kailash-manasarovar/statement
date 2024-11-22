@@ -18,10 +18,15 @@
 
 - The end of year piano concert took place at the boat club venue in Denia.
 - I played Philip Glass etude no 2.
-- As we were preparing, and I was playing a few bars, Domingo shouts "again?" in an accusatory tone.
+- As we were preparing, and just as I was a few bars in, Domingo shouts "again?" in an accusatory tone very loudly.
 - I wonder what he means. Does he mean another ridiculous apparent romantic tryst for me at the conservatory? Or what.
+- As I go back to my seat after rehearsing, another one of the piano teachers asks me "are you alright"? I have no idea why she is asking me this.
 - At the time of writing I'm starting to believe "again" refers to events planned for me that will somewhat replicate the sexual abuse I suffered as a 16 year old in North London.
 - One of Domingo's students, Adriana Mihaila Mañas, runs over to him in an affected way. I believe he has requested her to do so.
+- Playing in this concert is an enormous joy for me and exuberant doesn't even cover how I feel about this experience.
+- I'm so happy when all the piano students are photographed at the end of the concert. I notice that all the piano teachers, Paqui, Joan Carles, Domingo, are looking very unhappy, no smiles at all.
+- Underlying it all though is the stress from the constant gang stalking which I know is ramping up to something on Monday 12th June at the chamber music class.
+- The recording of my performance was never shared with me.
 
 ## Work stress
 
