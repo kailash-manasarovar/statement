@@ -131,8 +131,10 @@
 - Alex, John, Paul, and I agree to go out for Halloween, a kind of remake of our evening all those years ago.
 - The whole town knows I'm coming out but I was never clear about that on Twitter.
 - I'm stopped for photos as I walk to the bar where we're going to meet.
-- The others lead the way and we end up in the Irish bar on the Calle La Mar where we "bump into" this very dodgy bloke who says he studies at the conservatory and wants to know things about me.
-- A young man with him is quite menacing towards me.
+- The others lead the way and we end up in the Irish bar on the Calle La Mar.
+- Prior to arriving, John has appeared a little fearful and wanted to go and find the tail I had lost from my cow costume. He said, "why don't you come with me Katie". What was he afraid of?
+- Once inside, we "bump into" this very dodgy French bloke who says he studies guitar at the conservatory and wants to know things about me. 
+- A young man with him dressed as the joker is quite menacing towards me.
 - I sing a song, a cockney song, You Made Me Love You, which blows their minds a little.
 
 ## Tweets
