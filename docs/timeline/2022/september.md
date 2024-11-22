@@ -33,9 +33,10 @@
 
 ### Harmony
 
-- The teacher is Adrià Gil Boronat, an erratic and extremely nervous person.
+- The teacher is Adrià Gil Boronat, an erratic and extremely nervous man in his fifties.
 - One of my classmates is Samuel Viciano Herranz who has near perfect English. He is Domingo's student.
-- Samuel was studying singing in Javea but moved to do piano in Dénia instead, it's not clear why.
+- Samuel was studying singing at the Javea conservatory but moved to study piano in Dénia instead. It's not clear why.
+- Samuel tells me he used to be a student of Lorraine Blackbourn. I cry when he tells me this and have to leave the room. This is not like me normally.
 - Elvira Valdivia Escribano is also in this class. She is a minor child and she is Domingo's student also.
 - Elvira has a sister, Lucía, in the year above who is also Domingo's student.
 
@@ -43,7 +44,7 @@
     - Elvira and Lucía have moved to Dénia from Madrid.
     - They live with their mother who is very rich and possibly a widow or divorced.
     - Domingo is often seen alone with Elvira and Lucía in the town.
-    - Domingo is alone with them a lot and will have unfettered access to their phones.
+    - Domingo is alone with them a lot and will have had unfettered access to their phones.
     - At some point, Samuel informs me they are buying a Steinway piano.
     - I am concerned about the safety of the girls and their mother.
 
@@ -60,8 +61,9 @@
 
 !!! warning "Lucía bullies Concha"
     - Throughout the year, Lucía bullies Concha in choir class; sarcastic comments, dirty looks to the rest of the class, etc.
-    - It's very embarrassing and I notice some of the other students are really angry about this.
-    - It's obvious Domingo is instructing Lucía to bully Concha.
+    - It's very embarrassing and I notice some of the other students are really angry and bored with this.
+    - It's obvious Domingo is instructing Lucía to bully Concha. Why is anyone's guess.
+    - Is it because she acts as the go to person for any abuses by teachers as she will reveal to me when I reach out to her in July?
 
 ### Chamber music
 

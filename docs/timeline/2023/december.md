@@ -122,6 +122,7 @@
     - It's perhaps important to note that abuse sufferers, like myself, are going to be broadly more open to seduction manipulation techniques due to the tearing down of psychological boundaries during such attacks.
 
 - I wonder now if this woman was somehow involved did she manage to drug me further because when I got back to Madrid I was out of my mind.
+- Curiously, she spoke to me about similar things I had noticed on Twitter content which seemed to be trying to make me insecure about how I looked and whether I was attractive enough for men. I thought that was weird, not as weird at the blinking though.
 
 ## Madrid
 

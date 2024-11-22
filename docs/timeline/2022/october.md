@@ -1,17 +1,19 @@
 ## Being sick in the flat
 
-- When I arrive back from holiday, I noticed horrible brown streaks along the inside of the fridge and I am convinced that there are parasites in the flat and that is what has been making me so sick.
+- When I arrived back from holiday, I noticed horrible brown streaks along the inside of the fridge and I am convinced that there are parasites in the flat and that is what has been making me so sick.
+- Furthermore, I had set a security camera up in the flat to record anything weird for the whole time I was away, which was nearly three months.
+- During that time, an enormous fly started the camera from time to time.
 - I have vomited a lot in the flat.
 - I ask Bea to replace the fridge as it's ancient and I tell her I am sick a lot.
 - She replaces the fridge immediately.
 
-## Bullying starts
+## Bullying starts quietly
 
 - People are talking about me negatively at the conservatory; cold looks, weird laughter, a frosty feeling.
-- I hear the word "coffee" a lot and relate it to me complaining that Domingo invited me for coffee and he shouldn't have back in 2014.
+- I hear the word "coffee" a lot and relate it to me complaining that Domingo invited me for coffee back in 2014, and he shouldn't have.
 - I'm having a hard time at work too.
 - I'm stressing unnecessarily.
-- I have a strong sense that something sinister is going on that I'm unaware of. I can feel it.
+- I have a strong sense that something sinister is going on that I'm unaware of. 
 - There is still no teacher for chamber music.
 
 ## Patricia "Trish" Penny
@@ -20,7 +22,7 @@
 - I tell Christine BJ this. She obviously tells Trish what I've said because the next time I see Trish she is angry with me.
 - I'm upset about this but people are people, and often can't be trusted to not share hurtful information.
 - I attempt to talk to Trish in a friendly way to make amends, and I talk about my life.
-- She mentions a man who lived near her who had really scary eyes.
+- She mentions a man, a British policeman, who lived near her who had really scary eyes.
 - It was weird and reminded me of a short story I had written for the writing club I used to go to in Dénia in 2007, which incidentally David the gay English teacher was also a member of.
 - This was when I had started to write about child sexual abuse and grooming gangs in short-story form, and I had described one of the pedophiles with the exact words she used in our conversation.
 
@@ -29,4 +31,4 @@
 
 ## Halloween
 
-- On the run up to Halloween I notice that, outside my flat, an effigy is hanging off a lamppost. It feels sinister, especially considering Lorraine Blackbourn hung herself.
+- On the run up to Halloween I notice that, outside my flat and in full view from the window, an effigy is hanging off a lamppost. It feels sinister, especially considering Lorraine Blackbourn hung herself.

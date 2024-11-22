@@ -20,6 +20,7 @@
 
 - My mind feels utterly polluted with porn and unhealthy sexual ideas. This is more so if I am feeling aroused. These thoughts are not my own. It's horrible.
 - I don't know when it started but I was overwhelmed with the feeling I was going to have a child with the trumpet teacher. It was intense and inexplicable. I think they were "throwing the book at me", at this stage, and I wonder how many women have been trapped into pregnancy by these manipulation techniques and, therefore, a lifelong connection with someone they were probably unsure of, at best.
+- There was a lot of content that I'm sure was intended to make me feel insecure about how I looked. Content about fat women when I was putting on weight. Content about acne when I had some. Even content about a tiny wart on my nose. Lots and lots of content about the urinary problems I was having that I did a lot of online searches about. It was relentless.
 
 ### Positive effects
 
