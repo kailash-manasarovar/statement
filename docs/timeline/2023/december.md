@@ -109,16 +109,19 @@
 - It might be useful to track them down.
 - She was Finnish, he was German. She was much older than him.
 - Whenever I'm feeling a little bit paranoid, I wonder if she knew what was going on. There is a strong Finnish connection with the trumpet teacher, [something that Trish Penny said](../2022/march.md#conservatory-open-day) that first time we went walking and she was there. She had a ukelele and sang Back to Black.
-- She blinked weirdly at me.
+- She blinks weirdly at me while she's singing the song.
 
 !!! info
     - When I was sexually abused as a child, I endured extreme brutality and suffered an enormous PTSD afterwards which was debilitating.
-    - I believe I brought some of the expressions of those attacks into my daily life.
-    - One of the things I do from time to time is blink in a weird manner.
-    - I believe the blinking is from being raped and the assault on the body that took place at those times.
+    - I believe I brought some of the facial expressions that arose during those attacks into my daily life.
+    - One of the things I do from time to time, I'm told, is blink in a weird manner.
+    - I believe the blinking comes from when I was being repeatedly raped, and the assault on the body that took place at those times.
     - Blinking may have been my only way to register sexual assault as it was happening and while I was sedated.
     - If I'm right about the Finnish woman, in deeply paranoid moments, it certainly appears much more is going on than at first meets the eye.
-    - I wonder if all the teachers and staff are aware of the depths of evil this story, and their colleagues, go to.
+    - I wonder if *all* the teachers and staff, especially the women, and the townsfolk of Denia are aware of the depths of evil this story potentially contains.
+    - It's perhaps important to note that abuse sufferers, like myself, are going to be broadly more open to seduction manipulation techniques due to the tearing down of psychological boundaries during such attacks.
+
+- I wonder now if this woman was somehow involved did she manage to drug me further because when I got back to Madrid I was out of my mind.
 
 ## Madrid
 
