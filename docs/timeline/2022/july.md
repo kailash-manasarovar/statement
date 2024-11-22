@@ -6,14 +6,22 @@
 !!! important
     - It already appears that the hackers had already breached my mobile phone and were tracking my movements and changing the Google maps settings.
     - It is highly likely that I was seriously hacked from the moment the Yoigo router was set up in my house, February 2022.
-    - It is also likely that I was hacked and monitored continually by criminal gangs in Dénia since 2014.
+    - It is also likely that I was hacked and monitored continually by criminal gangs in Dénia since 2014, but perhaps not to the same extent as when in Spain.
+    - However, having said that, at the time of writing I'm in Bangkok and it is clear they still have full access to my whereabouts, Twitter, emails, and are listening to my conversations too. As usual.
     
 ## Other events
 
-- There are a couple of interesting events that occur over the summer which are very much related to the story, but are totally unrelated to criminal matters. Therefore, I will placeholder them here and return to detail them when this statement turns into a novel with all the names changed.
+- There are a couple of interesting events that occur over the summer which are very much related to the story, but are totally unrelated to criminal matters. 
+- Therefore, I will placeholder them here and return to detail them when I turn this online statement into a novel with all the names changed, as suggested by an official.
 
-### Jet in Lindisfarne
+### Jet stone on a Lindisfarne beach
+
+- todo: 
 
 ### Crystal dreaming in Glastonbury
 
+- todo: 
+
 ### Glastonbury tarot
+
+- todo: 

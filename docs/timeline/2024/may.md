@@ -35,6 +35,9 @@
 - This is a good example of the pattern of content coming from various anonymous accounts that interact with me, which I know are related to the trumpet teacher and Domingo; subtle threats of violence, subtle mentions of knowledge we share, trigger words and symbols, content peppered with romance and kindness, normal communication apparently, then a shock of some sort like the clown pic.
 - I remain extraordinarily highly sexually aroused during this month.
 
+!!! danger
+    - Whatever is going on is showing no signs of stopping, even though I have been terrorized sufficiently to stop my studies at the conservatory.
+
 ## Madrid
 
 ## My speech

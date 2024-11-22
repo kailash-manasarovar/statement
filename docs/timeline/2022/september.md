@@ -4,12 +4,12 @@
 
 !!! tip "Essential context around gang stalkers ultimate goals"
     - The reader should realize that the teachers and staff at the conservatory of Dénia, and persons at that time unknown, and possibly even my English expat friends, had been planning an exaggerated gang stalking situation, with me as target and, although I was aware that something evil was going on, I was completely unaware of the extent of it and how many people were involved until March 2024, 18 months away.
-    - Therefore, everything I describe with regards to the actions and behavior of the staff and teachers at the conservatory of Dénia is part of a carefully choreographed deceit, managed and directed by Domingo Cano Lopez and his associates, which include the trumpet teacher who was calling himself Vidal Sastre Sanchez Hornero, Domingo's family members especially his sister Carmen, and others such as Paqui Fornet Pastor another piano teacher.
+    - Therefore, everything I describe with regards to the actions and behavior of the staff and teachers at the conservatory of Dénia is part of a carefully choreographed deceit, managed and directed by Domingo Cano Lopez and his associates, which include the trumpet teacher who was calling himself Vidal Sastre Sanchez Hornero, Domingo's family members especially his sister Carmen, and others such as Paqui Fornet Pastor and Maria Hontanilla, other piano teachers, and others.
     - It is not clear whether the staff and teachers at the conservatory were aware of the full implications of what was happening with regards to online criminal sexploitation and porn gangs, or whether they just assumed I was just another vulnerable woman being bullied, and this was a normal occurrence and rather enjoyable to them in the way that the local hangings might have been in the past.
     - The question is, did they, and people like Trish Penny and Christine Betterton Jones, know about the underlying plot running parallel which was sexual grooming, clandestine medicating/spiking with aphrodisiac substances, porn gathered from cyber-stalking/hacking/voyeurism, and potentially far worse.
     - Given that everyone knew I had been suicidally depressed, either because I shared the information with them personally (Christine BJ and Maria Hontanilla who I had trusted), or because they had access to my Twitter account very early on, one must assume that an attack like this would have as its main intention the suicide of the victim or total nervous breakdown.
     - Given the efficiency and skill of the attack, one must ask how many local suicides may be explained by gang stalking of this nature.
-    - I cannot help wonder about what led Lorraine Blackbourn to kill herself, a mother of three with a successful business. Anyone I asked about that always mentioned her "macho" boyfriend and at the root of my experiences is an unDéniable and very vicious misogyny. I mention this in a [previous section](../2021/july.md#lorraine-blackbourn) with reference to cyber stalking and harassment on Twitter.
+    - I cannot help wonder about what led Lorraine Blackbourn to kill herself, a mother of three with a successful business. Anyone I asked about that always mentioned her "macho" boyfriend and at the root of my experiences is an undeniable and very vicious misogyny. I mention this in a [previous section](../2021/july.md#lorraine-blackbourn) with reference to cyber stalking and harassment on Twitter.
 
 ## Documentation
 
@@ -22,14 +22,14 @@
 ### Piano
 
 - My teacher is Maria Hontanilla Alfonso. 
-- Mercedes Correas Lara is her student also. This doesn't make sense because Mercedes was in year 1 2015-16, which means she should have finished her studies two years previously.
+- Mercedes Correas Lara is her student also. This doesn't make sense because Mercedes was in the first year in 2015-16, which means she should have finished her studies two years previously.
 - It's even more curious given that Mercedes has clearly done no practice in 6 years.
-- Whenever I go to class, Mercedes class is on and I wait 20/30 minutes into my class time before she leaves. 
-- Then Mercedes spends 10/15/20 minutes talking before she actually leaves. 
+- Whenever I go to class, Mercedes is finishing her class, and I wait 20/30 minutes while she eats into my class time (because she was late) before she leaves. 
+- Then Mercedes spends 10/15/20 minutes talking to her before she actually leaves. 
 - Sometimes I'm left with 10 minutes of class. 
 - This is a weekly occurrence. 
 - I'm unable to stay later as I'm working and my hours aren't so flexible.
-- It feels purposeful but I don't complain.
+- It feels purposeful but I don't complain. I feel like complaining will make them feel justified about something.
 
 ### Harmony
 

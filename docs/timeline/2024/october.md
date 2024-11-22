@@ -18,6 +18,9 @@
 !!! warning "Why didn't you leave?"
     - If I leave, then the story gets buried, the police do not investigate, and it happens again and again, and maybe someone is driven, again?, to suicide, or maybe they, again?, murder someone with poison.
 
+- As I'm driving to the hotel I've booked in Madrid, all of a sudden, the volume disappears on Google maps so I'm lost on the busy M30/M40 junctions.
+- When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back. Nothing works.
+
 ## Poisoning
 
 - I travel to Fatima in Portugal over 19th - 27th October.

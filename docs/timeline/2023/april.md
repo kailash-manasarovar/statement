@@ -55,7 +55,7 @@
 - I followed his Twitter account and he blocked me immediately.
 - I consequently thought it wasn't his account after all, or maybe he was concerned about being followed by someone with my political views on gender ideology in schools. He was a school teacher after all!
 
-## Back in class
+## Back in chamber music class
 
 - The next class I had with him he was extremely angry with me for no apparent reason at all.
 - I knew then it had been his account I had found (except it wasn't of course, or sort of was).
@@ -88,6 +88,14 @@
     - Here's another that DM'ed me in April 2024.
 
     ![Studio ghibli account](../../content/images/fake-accounts/ghibli-2.png){width=65%}
+
+## Maria Hontanilla
+
+- Maria is anxious all the time. This seems to be her natural state.
+- She is always wearing a mask and wearing plastic surgical gloves.
+- I guess most people think this is due to ongoing covid fears. I'm not so sure now.
+- Anyway, around this time, Maria is very stressed about the next year's assigned and keeps talking about how she is going to get a job at the superior conservatory in Valencia.
+- Knowing what I know now, it seems to me this would require some "enchufe", a level of benevolence from those who can pull strings; i.e. Domingo.
 
 ## Twitter communications
 
