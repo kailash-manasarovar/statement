@@ -22,8 +22,8 @@
 
 ## Galway
 
-- I set up a new fake account
-
+- I set up a new fake account and I follow @jctot19 with it.
+- It's the first time I've checked @jctot19's tweets since then as now you can look even if you're blocked.
 - He hasn't posted since the 15th January 2024, or he has deleted his posts from then.
 - The highlighted post from 9th January, mentioning the *chica*, appears to be referring to me. The account he is replying to is protected so I cannot see the conversation. The implication is that I am chasing him again and again. However, this is undoubtedly what he, Domingo, and their co-conspirators have been setting me up to *appear* to be doing.
 - This was after Christmas where I was extraordinarily high, flying is an understatement, and we have plenty of witnesses to that. I was exuberant. 
@@ -68,7 +68,7 @@
 ### January 18th 
 
 - I [text Katia](../../content/whatsapps/text-to-katia.pdf). Katia does not reply or even mention the text when I see her next at class.
-- I also [email the GV again](../../content/documents/emails/jan-18-email-to-GV.pdf) with an update of what's going on.
+- I also [email the GV again](../../content/documents/emails/jan-18-email-to-GV.png) with an update of what's going on.
 - The GV reply to tell me they have transferred my email to the Alicante office and I have to ask them for information on who I can contact there.
 
 ## Nacho follows me around town
