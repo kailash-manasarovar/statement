@@ -1,3 +1,11 @@
+## The boiler breaks down
+
+- Bea puts the rent up 8%.
+- The boiler breaks down, it is leaking. The water has run brown on turning the taps on since the day I moved in.
+- I ask Bea to replace the boiler and the oven, which has never worked properly.
+- She replaces them.
+- Pedro, the caretaker, is amazed that she has spent some money on the flat.
+
 ## Walking in Benijembla with the English ladies
 
 - I was hiking with the English ladies every Saturday.

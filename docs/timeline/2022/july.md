@@ -10,7 +10,10 @@
     
 ## Other events
 
-- There are a couple of interesting events that occur over the summer which are very much related to the story, but are totally unrelated to criminal matters. Therefore, I will placeholder them here and return to detail them when this statement turns into a novel with all the names changes.
+- There are a couple of interesting events that occur over the summer which are very much related to the story, but are totally unrelated to criminal matters. Therefore, I will placeholder them here and return to detail them when this statement turns into a novel with all the names changed.
 
 ### Jet in Lindisfarne
+
 ### Crystal dreaming in Glastonbury
+
+### Glastonbury tarot

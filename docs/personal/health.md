@@ -23,4 +23,5 @@
 
 ### Positive effects
 
-- Ironically, whatever NLP plus medication combo they were using on me healed me of depression. I thought it was love, and it probably was a little bit, but the real trigger was the drugs and sexual feelings in the context of love that I hadn't had for over a decade.
+- Ironically, whatever NLP plus medication combo they were using on me healed me of depression. I thought it was love, and it probably was a little bit, but the real trigger was the drugs and sexual feelings in the context of love that I hadn't experienced for twenty years.
+- One extremely positive effect of me going through all the NLP seduction techniques online in the context of sexual grooming of women and children is that I am able to describe it.

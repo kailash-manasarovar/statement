@@ -1,3 +1,10 @@
+## Being sick in the flat
+
+- When I arrive back from holiday, I noticed horrible brown streaks along the inside of the fridge and I am convinced that there are parasites in the flat and that is what has been making me so sick.
+- I have vomited a lot in the flat.
+- I ask Bea to replace the fridge as it's ancient and I tell her I am sick a lot.
+- She replaces the fridge immediately.
+
 ## Bullying starts
 
 - People are talking about me negatively at the conservatory; cold looks, weird laughter, a frosty feeling.
