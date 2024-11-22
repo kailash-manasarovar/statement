@@ -11,6 +11,13 @@
 
 - There's no reply.
 
+## Fatima
+
+- I head to Madrid to stay one night before moving onto Fatima in Portugal. I need to be away from Denia as much as possible for my nervous system.
+
+!!! warning "Why didn't you leave?"
+    - If I leave, then the story gets buried, the police do not investigate, and it happens again and again, and maybe someone is driven, again?, to suicide, or maybe they, again?, murder someone with poison.
+
 ## Poisoning
 
 - I travel to Fatima in Portugal over 19th - 27th October.

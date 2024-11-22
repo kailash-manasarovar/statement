@@ -14,4 +14,4 @@
 
 !!! info "Even more isolated today"
     - This remains the case even today when I am in Dénia. 
-    - Even more so as I am afraid to go out as I am usually followed and terrorized in some manner by local people who always seem to know exactly where I am and where I'm going to be.
+    - Even more so as I am afraid to go out as I am usually followed and terrorized in some manner by local people who always seem to know exactly where I am or where I'm going to be as they have prepared themselves in some way. It's extraordinary.

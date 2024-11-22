@@ -1,7 +1,7 @@
 ## Summer
 
 - I set off to spend the whole summer in UK and France.
-- Google maps starts sending me on bizarre journeys which include going down dirt tracks and I'm unable to see how to fix this in settings.
+- Google maps starts sending me on bizarre journeys which often include going down miles of what are nearly dirt tracks. I'm unable to see how to fix this in settings.
 
 !!! important
     - It already appears that the hackers had already breached my mobile phone and were tracking my movements and changing the Google maps settings.
