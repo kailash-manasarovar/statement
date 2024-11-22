@@ -33,8 +33,9 @@
 - I went masked up.
 - I was thinking, with all this Twitter communication, he must talk to me, so I will go.
 - He didn't talk to me.
-- I was angry and posted an angry tweet about Domingo and his group of followers, and how it is extremely weird that the adult men amongst them hang out with 14 year old girls.
-- I tweeted he's "probably a trans woman".
+- I was angry and posted an angry tweet about Domingo and his group of followers, and how it is extremely weird that the adult men amongst them hang out with 14 year old girls, that it's appalling he's able to get them to bully the choir teacher, etc.
+- I tweeted that Domingo is "probably a trans woman".
+- It really was my only transgression in all of this, and I deleted the tweet on June 12th.
 
 ## Next class
 
