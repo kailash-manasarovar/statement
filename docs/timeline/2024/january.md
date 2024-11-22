@@ -67,9 +67,9 @@
 
 ### January 18th 
 
-- I [text Katia](../../content/whatsapps/text-to-katia.pdf).
+- I [text Katia](../../content/whatsapps/text-to-katia.pdf). Katia does not reply or even mention the text when I see her next at class.
 - I also [email the GV again](../../content/documents/emails/jan-18-email-to-GV.pdf) with an update of what's going on.
-- There is no reply from anyone.
+- The GV reply to tell me they have transferred my email to the Alicante office and I have to ask them for information on who I can contact there.
 
 ## Nacho follows me around town
 
@@ -94,6 +94,10 @@
 ## Threatening men outside
 
 - https://x.com/1FRGVN/status/1747283258092425350
+- In general, the threat level is growing in the town, at the conservatory, and online. 
+- No one speaks to me, at all, but they are all extremely busy choreographing ridiculous "moments" which will "make me think" something about something.
+- It's extraordinarily evil and I can hardly believe it.
+- I often wonder how many others they have done this too. At the time of writing, I wonder as well how many of those they did do it to ended up in prostitution or porn, and were they targeted as minors.
 
 ## Twitter
 
