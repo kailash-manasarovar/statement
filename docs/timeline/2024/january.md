@@ -96,6 +96,10 @@
 - https://x.com/1FRGVN/status/1747283258092425350
 - In general, the threat level is growing in the town, at the conservatory, and online. 
 - No one speaks to me, at all, but they are all extremely busy choreographing ridiculous "moments" which will "make me think" something about something.
+- My stress and anxiety is growing and I'm becoming unable to perform simple tasks normally, I need extra effort for them.
+- My mind is constantly filled with what's going on.
+- I now wonder if I was being spiked by something anxiety forming at this time but perhaps the behavior of teachers, staff, and students at the conservatory during this period is enough to explain the anxiety I'm feeling.
+- Certainly over the next months, up to today, this anxiety has grown enormously.
 - It's extraordinarily evil and I can hardly believe it.
 - I often wonder how many others they have done this too. At the time of writing, I wonder as well how many of those they did do it to ended up in prostitution or porn, and were they targeted as minors.
 
