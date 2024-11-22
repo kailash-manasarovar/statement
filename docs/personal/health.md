@@ -19,6 +19,7 @@
 ### Negative effects
 
 - My mind feels utterly polluted with porn and unhealthy sexual ideas. This is more so if I am feeling aroused. These thoughts are not my own. It's horrible.
+- I don't know when it started but I was overwhelmed with the feeling I was going to have a child with the trumpet teacher. It was intense and inexplicable. I think they were "throwing the book at me", at this stage, and I wonder how many women have been trapped into pregnancy by these manipulation techniques and, therefore, a lifelong connection with someone they were probably unsure of, at best.
 
 ### Positive effects
 
