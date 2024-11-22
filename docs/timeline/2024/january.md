@@ -42,9 +42,12 @@
     - And on top of that, somehow I was being spiked with drugs or herbs that made me extremely sexually aroused, and led me to masturbate for an unseen audience, while I was also being groomed HEAVILY online with MRA seduction tactics on Twitter and elsewhere.
     - We have to assume that I am the tip of the iceberg with regards to these sorts of honey-trap manipulation techniques and it is highly likely children are being targeted in the same way.
 
+## Google search
 
-
-## Conservatory
+- I am seeing multiple posts about "boyfriends" on my images. I believe that's what this tweet is referring to: https://x.com/JackChardwood/status/1742110623490506940
+- I mention this on Twitter: https://x.com/1FRGVN/status/1748488576860389657
+- How do they do it? I ask: https://x.com/1FRGVN/status/1748485970272419873. I thought it might be cookies but I used someone else's device once to check and the results were the same. Unless they had hacked that person's phone too.
+- Ana Girbes as fierce transformer cartoon.
 
 ## Ana and Ana
 
@@ -53,11 +56,24 @@
 - Furious at me
 - Google search Ana Girbes transformer figure with guns
 
+## Conservatory
+
+- I believe I can trust Paqui. At some point, I told her they were terrorizing me. 
+- I believe it was just before a piano concert at the social centre in Denia in January 2024 which the students of the conservatory are usually invited to. She asked me was I going to go, and I asked her if it was safe for me to go.
+- She seemed alarmed at my question which is when I told her I was being terrorized by men, Domingo and others.
+- I had no idea she was 100% involved.
+- Furthermore, the women Ana Requena and Ana Girbes are angry with me, as is Katia in my chamber music class, and I feel it is very unfair. 
+- I can't believe they would be involved in all this and, at this point, I try to reach out to them.
+
+### January 18th 
+
+- I [text Katia](../../content/whatsapps/text-to-katia.pdf).
+- I also [email the GV again](../../content/documents/emails/jan-18-email-to-GV.pdf) with an update of what's going on.
+- There is no reply from anyone.
+
 ## Nacho follows me around town
 
-## Jack Chardwood account
-
-- Totally changes.
+- ..
 
 ## Nacho pokes his head
 
@@ -78,12 +94,6 @@
 ## Threatening men outside
 
 - https://x.com/1FRGVN/status/1747283258092425350
-
-## Google search
-
-- I am seeing multiple posts about "boyfriends" on my images. I believe that's what this tweet is referring to: https://x.com/JackChardwood/status/1742110623490506940
-- I mention this on Twitter: https://x.com/1FRGVN/status/1748488576860389657
-- How do they do it? I ask: https://x.com/1FRGVN/status/1748485970272419873. I thought it might be cookies but I used someone else's device once to check and the results were the same. Unless they had hacked that person's phone too.
 
 ## Twitter
 
