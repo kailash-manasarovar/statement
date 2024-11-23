@@ -42,6 +42,10 @@
 
 ## My speech
 
+## Telegram/Signal
+
+- Send pics
+
 ## The Spanish feminists tell me why they didn't support me
 
 ## Perito
