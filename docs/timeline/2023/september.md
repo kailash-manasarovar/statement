@@ -88,10 +88,17 @@
 ## My friend visits
 
 - My friend the Tibetan monk visits for a few days in September.
+- He came at my request when I was being terrorized online and I was very scared and stressed.
 - We are followed along the beach by a group of men who behave extremely strangely. I would remember them again, and I saw one of them in town and I saw two of the others in the laundry one day. 
-- My friend will remember this as it was extremely odd.
-- Coming back from Las Rotas, when we got off the bus, Ana the violin teacher "bumps" into us and she's extremely angry. I know it's another choreographed deceit and I know it's all intended for me to see and wonder about, get stressed about.
-- They know exactly where I am at any given moment.
+- One man, bald, 50s, was sitting on a normal chair close to the water.
+- Another man, dark, fat, wearing khakis and a white vest was roaming around, and he even came right up to where we were sitting and lingered around.
+- The bald man started to shout at him to move away. He didn't. He was furiously typing on his mobile phone.
+- My friend will remember all this as it was extremely odd.
+- I stood up to protect our spot somehow and I saw a man walking down the beach towards the town who looked like the trumpet teacher (but wasn't).
+- On another occasion we became embroiled in choreographed intrigue.
+- Coming back from Las Rotas, when we got off the bus, Ana the violin teacher "bumps" into us. She's extremely angry. I know it's another choreographed deceit and I know it's all intended for me to see and wonder about, and get stressed about.
+- She's timed to meet us at exactly the right moment, and we have been constantly moving through the town and on public transport.
+- They knew exactly where I am at any given moment.
 - This could only be the case if they had full access to my mobile phone including the location function.
 
 ## Alex and Paul

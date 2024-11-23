@@ -30,6 +30,11 @@
 - He goes to talk to a local police officer and comes back.
 - He says I cannot raise anything with them as I don't have a partner and they only deal with male violence when it occurs within a partnership.
 
+## Ana dresses as if she's pregnant
+
+- The Ana lie continues and she choreographs me - tracks my movements using shared WhatsApp groups with the other teachers - in order to see her going to the toilet dressed as if she is pregnant.
+- On one of the last times I attended classes at the conservatory, Ana is playing trumpet music on her laptop and I hear it from her classroom as I walk by.
+
 ## Threat to my life from the conservatory
 
 - On March 12th, there is a concert at the .. in Dénia

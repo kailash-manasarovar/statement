@@ -6,8 +6,8 @@
 
 ## Psychological effects
 
-- My mind has been battered with NLP/MRA seduction techniques and porn symbolism since, at least, April 2023.
-- This may have had only little effect if it hadn't been coupled with some kind of narcotic substance.
+- My mind has been battered with NLP/MRA seduction techniques and porn symbolism since, at least, December 2022.
+- This would probably have had only little effect if it hadn't been coupled with some kind of narcotic substance.
 - I can't imagine how young girls deal with this. It must truly overwhelm them.
 - Are they doing it to minors too? Well, why wouldn't they if they? 
 - They can do anything they want and no one will do anything about it.
