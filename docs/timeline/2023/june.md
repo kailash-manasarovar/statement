@@ -7,8 +7,8 @@
 ## Love
 
 - I was so high on this feeling of being in love, it felt real to me.
-- How else could I explain how I was feeling all the time, it was 24 hours a day?
-- I thought continuously about him, I felt extremely sexually aroused all the time, even in other classes like choir for example.
+- How else could I explain how I was feeling all the time? It was 24 hours a day.
+- I thought continuously about him, and I felt extremely sexually aroused all the time, even in other classes like choir for example.
 - I can't imagine what people must have been thinking.
 - I was feeling something I had never felt before in my life, it was really powerful. 
 - I had no idea I was being drugged. None.
@@ -22,24 +22,25 @@
 - I wonder what he means. Does he mean another ridiculous apparent romantic tryst for me at the conservatory? Or what.
 - As I go back to my seat after rehearsing, another one of the piano teachers asks me "are you alright"? I have no idea why she is asking me this.
 - At the time of writing I'm starting to believe "again" refers to events planned for me that will somewhat replicate the sexual abuse I suffered as a 16 year old in North London.
-- One of Domingo's students, Adriana Mihaila Mañas, runs over to him in an affected way. I believe he has requested her to do so.
+- One of Domingo's students, Adriana Mihaila Mañas, she is 14 or 15, runs over to him in an affected way. I believe he has requested her to do so.
 - Playing in this concert is an enormous joy for me and exuberant doesn't even cover how I feel about this experience.
-- I'm so happy when all the piano students are photographed at the end of the concert. I notice that all the piano teachers, Paqui, Joan Carles, Domingo, are looking very unhappy, no smiles at all.
-- Underlying it all though is the stress from the constant gang stalking which I know is ramping up to something on Monday 12th June at the chamber music class.
-- The recording of my performance was never shared with me.
+- I'm so happy when all the piano students are photographed at the end of the concert, I must be grinning from ear to ear. 
+- I notice that all the piano teachers, Paqui, Joan Carles, Domingo, are looking very unhappy, no smiles at all. I wonder now if it's because they're embarrassed at how happy I obviously am.
+- Underlying it all though is the stress from the constant gang stalking which I know is ramping up to something on Monday 12th June at the final chamber music class.
+- The recording of my performance that evening was never shared with me.
 
 ## Work stress
 
-- Work is becoming extremely stressful and I'm not able to handle the things that are going on there.
+- Work is becoming extremely stressful and I'm not able to handle some of the emotionally challenging things that are going on there.
 - I'm being bullied there too, I'm not sure why.
 - I'm doing my best to do a good job but feel like the men are trying to get me to leave.
 - It has all started because I corrected some instructions that were written by one of the men and he took offense at my corrections, even though we were getting complaints about them.
 - It felt like there was more to it.
-- The stress of being bullied at the conservatory, and the feelings of being high and anxious, made me unable to deal with any of this properly.
+- The stress of being bullied at the conservatory, and the feelings of being high and anxious, made me unable to deal with any of this effectively.
 
 ## Penultimate class
 
-- The class on 5th June is just me and him.
+- The class on 5th June is just me and the trumpet teacher.
 - I bring a couple of tunes to play, Creep and Back to Black.
 - Creep is for Domingo.
 - Back to Black is for the trumpet teacher with regards to Ana his (apparent) girlfriend.
@@ -47,20 +48,24 @@
 
 !!! info
     - It's more likely that these other tunes were suggested to me by hackers on Twitter of course.
-    - At that class, the trumpet teacher asks me why I didn't bring them before.
+    - At that class, the trumpet teacher asks me why I didn't bring them before to play.
 
 - I'm aware everything is a big joke, and I'm the butt of the joke, but I'm not aware of the extent of it. 
 - I mistakenly believe that only Domingo and his close associates are scheming against me.
-- The overwhelming feelings I'm having, and some of the things he says, make me suggest to myself that the trumpet teacher doesn't really want to be a part of it.
+- The overwhelming feelings I'm having, and some of the things the trumpet teachers says, make me suggest to myself that the trumpet teacher doesn't really want to be a part of it all.
 - I think Ana is just a lie, it was all so contrived, and she grinned at me on the stairs like I was an idiot. 
-- It was all extremely confusing and I couldn't keep anything straight in my mind.
-- I'm aware something's going to happen at the last class of the school year, and I tweet about that as the day approaches.
+- Everything that was happening was extremely confusing to me, and I couldn't keep anything straight in my mind.
+- However, I'm aware something's going to happen at the last class of the school year, and I tweet about it as the day approaches.
+
+!!! tip "Am I being primed and prepared for that day"
+    - I wonder as part of the NLP suggestions was the last class with the trumpet teacher being set up as something significant.
+    - Certainly this "setting up of events I should be worried about" was an ongoing theme with the hackers, particularly in [August 2023](august.md#going-public-on-twitter) when I was so frightened I went public on Twitter.
 
 ## Sunday 11th June
 
 - I often go to the beach on Sundays.
-- As I'm walking down to the beach that afternoon, the trumpet teacher is driving towards me in a car, a beat up Peugeot 205.
-- He sees me and takes a sharp, wheel-squealing turn into a no entry road. It's rather amusing to me.
+- As I'm walking down to the beach that afternoon, the trumpet teacher is driving towards me in a beat up, grey, Peugeot 205.
+- He sees me and takes a sharp, wheel-squealing turn into a no entry road. It's rather amusing.
 - I reminds me of the Truman Show and I feel like Truman.
 - I feel like he's coming back from scheming with Domingo and doesn't want me to see him.
 
@@ -68,7 +73,7 @@
     - I'm pretty sure he wanted me to see him. I'm just not sure why.
     - Warning maybe? I didn't need one.
 
-- At the beach my mind is racing, I feel like he's going to pop up at any moment, and it's extremely stressful.
+- At the beach my mind is racing, I feel like he's going to pop up at any moment. It's extremely stressful. I'm 100% sure I was being drugged at this point given the constant looping thoughts and images, plus sexual feelings.
 - I know everything is a set up and I'm certain that the chamber music class the following day is planned as the grand finale.
 
 !!! info "Related tweets"
@@ -79,7 +84,7 @@
 ## Last class, my funeral, apparently
 
 - I'm prepared for what is supposed to be my humiliation on Monday 12th June at chamber music class.
-- I bring the trumpet teacher a present to say thanks, a little wooden frog instrument. He tries to kiss me and I flinch away.
+- I bring the trumpet teacher a present to say thanks, a little wooden frog instrument. He tries to kiss me and I flinch away. I don't want to kiss him, he's hairy and I don't get a good feeling from him.
 - I tell him that the frog is lucky. 
 - We play Creep and My Way.
 - Before we play My Way, he tells Pablo to make sure he's recording on his phone, and he starts recording on his phone.
@@ -88,12 +93,12 @@
 - Gloria comes to the door when we're done and is practically wetting herself with laughter.
 - I'm not at all surprised at any of it but it hurts of course.
 - As I leave class, I remind the trumpet teacher that the frog is a lucky frog and to look after it.
-- I walk out of the conservatory front door, and teachers and staff throw dirty water (I hope) onto me from an upstairs window (Ana the violin teacher's classroom actually). Their behavior reminds me of Carrie 1, the Stephen King horror novel.
+- I walk out of the conservatory front door, and teachers and staff throw dirty water (I hope) onto me from an upstairs window (Ana Requena, the violin teacher's classroom actually). Their behavior reminds me of Carrie 1, the Stephen King horror novel.
 - I still have the silk t-shirt that they ruined with the stains on it.
 - As I walk home, I "bump" into Mercedes who I realize was waiting for me to walk the other way I go sometimes, the way she would have been more familiar with me going, and when she realized I'd gone a different way, she'd had to run. She was totally out of breath and trying to style it out. It was amusing to me.
 - She was checking my face to see if I was crying. Perhaps she was recording it too.
 - I got home and went onto Twitter and tweeted something like "well that was a crappy ending wasn't it".
-- Suddenly, a huge number of people start to retweet my post and I discover I'm on a list of around 30 people and they're all laughing at what's happened.
+- Suddenly, a huge number of people start to retweet my post and I discover I'm on a list of around 30 people and they're all laughing, jeering even, at what's happened.
 - I block the list owner and delete all my tweets from the last six months that were related to everything that had been going on at the conservatory
 - I'm shocked and alarmed. I had no idea so many people were involved in the deception, and the humiliation, at that time. 
 - I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also so high all the time I could not get my head straight about anything that had happened.
@@ -103,7 +108,7 @@
 
 ## Tuesday 13th June
 
-- Maria phones me to ask me to go into the conservatory to see her.
+- Maria phones me to ask me to go into the conservatory to sign something.
 - I ask Maria if everyone hates me. She says no, no one hates me. She's lying.
 - I go to my acupuncture session and I'm extremely traumatized and shocked about what bullies they all are at the conservatory.
 - The acupuncturist tells me I have diabetes, which I know fully well is a lie.
@@ -113,13 +118,13 @@
 ## Ireland
 
 - I don't bring my connected devices so I cannot use my own Twitter account.
-- I create a fake account and start following `jctot19`.
+- I create a fake account and start following `@jctot19`.
 - The weird "communication" continues between myself and this account, as whoever is running it knows immediately that it is me.
 
 !!! info
     - What I did not know at this time was that they had full access to my mobile phone anyway so they knew exactly what I was doing online at any given moment.
 
-- Stephen Terrell and some of the other practitioners are aware of what's been going on from my perspective and they clearly see I'm in a traumatized state.
+- I tell Stephen Terrell and some of the other practitioners what's been going on from my perspective at that time, i.e. I had been terrorized by teachers and staff at the conservatory, and they clearly see I'm in a traumatized state.
 - The sexual feelings stop completely while I am away.
 
 ## YouTube
@@ -133,7 +138,7 @@
 <img src="/content/images/youtube-video-2.png">
 </a>
 
-- There is a moment around 1.07 where she looks at another member of the band and makes a face that suggests she finds him attractive.
+- There is a moment around 1.07 where she looks at another member of the band and makes a face that suggests she finds the trumpet soloist attractive.
 - I believe this girl was targeted, just like me, i.e. medicated with aphrodisiacs and cyber-stalked with NLP techniques which made her believe there was a kind of reciprocal relationship going on.
 - It would be good to know what happened to her.
 
@@ -151,7 +156,7 @@
 
 ## Sunday 16th June Alicante airport
 
-- On my return from Dublin to Alicante, I'm walking towards the arrivals hall and I see him standing there waiting.
+- On my return from Dublin to Alicante, I'm walking towards the arrivals hall and I see the trumpet teacher standing there waiting.
 - I can't believe it could be him, I'm horrified actually.
 - I pull my hat down over my eyes and rush through.
 - I forget about this, thinking I must have made a mistake, because it's so weird. 
@@ -160,7 +165,7 @@
 !!! warning
     - It seems to me that him meeting me off my flight from Dublin on this evening would have been the beginning of something physically sexual and likely porn-related and criminal.
     - I believe now that I had been sexually groomed online, and drugged, in order that I might easily welcome a sexual relationship with this man on this evening.
-    - However, the truth of the set up would have been to get me in a situation where they could produce some gang-rape related porn, similar to what had happened to me when I was a child, and this was going to be monetized around porn networks and paid-for chat groups.
+    - However, I also surmise that the truth of the set up would have been to get me in a situation where they could produce some gang-rape related porn, similar to what had happened to me when I was a child, and this was going to be monetized around porn networks and paid-for chat groups.
     - I believe they already had an audience ready and waiting for this.
 
 !!! danger "Criminal activity"
@@ -189,11 +194,11 @@
 ## Rest of June
 
 - I practice every day at the conservatory.
-- One morning I am practicing and Domingo opens the door and pokes his head through and looks at me meaningfully.
+- One morning I am practicing and Domingo opens the door and pokes his head through and looks at me meaningfully, as if to say "I won".
 - I feel overwhelmingly sexually aroused a lot at home, and masturbate often, even on the days I don't go to the conservatory.
 
 !!! info "In retrospect"
-    - I don't realize I'm being recorded audibly doing this via my mobile phone. 
+    - I don't realize I'm being recorded audibly (at least) via my mobile phone. 
     - I find this out when the hackers reveal themselves to me, from August/September 2023 onwards, for example when they repeat parts of conversations I've had back to me in fake Twitter account profiles or random posts I see.
     - I don't realize it is highly likely I'm being filmed with secret cameras in my flat too.
 
@@ -202,7 +207,8 @@
 - I go to the beach every afternoon.
 - I feel like I'm being followed.
 - I walk up to the area of the beach that has a restaurant and a bar.
-- The bar plays Back to Black while two people who look like the trumpet teacher and Ana walk by.
+- The bar plays Back to Black while two people who look like the trumpet teacher and Ana walk by. It's not them because I saw these two previously sitting on a white scarf on my walk to the end of the beach.
+- The man opens the scarf to the air above his head, in a similar way that I did [in April](april.md#followed-on-the-beach) another time I was followed on my beach walk.
 - This sort of thing goes on continuously, any time I leave the house.
 - I can't believe people have nothing else to do with their lives.
 - It's all set ups and contrived events designed to terrorize me.
@@ -210,13 +216,13 @@
 
 ## Twitter
 
-All the twitter activity is on my `@1frgvn` account at this stage: todo: double check.
+All the twitter activity is on my `@1frgvn` account at this stage.
 
 - I'm still having the communication via Twitter posts with `@jctot19` who is, apparently, the trumpet teacher.
 - This account posts communications that are very clearly intended for me.
 - There are posts about Ana, British women, other relevant things.
-- There are posts with a woman with hair flying which is a trigger picture that I will see again on the American fake account in August, the account I ended up having a prolonged DM with at Christmas 2023.
-- There are posts with pictures of hanging seaweed, which is a Julia Lohmann art installation [I mentioned before](../early-years/2015.md) that will be revealed to me in July as something Ana the violin teacher was connected to.
+- There are posts with a woman with hair flying which is a trigger picture that I will see again on the [American fake account](december.md#chat-with-the-american-matthew) from August onwards, the account I ended up having a prolonged DM with at Christmas 2023.
+- There are posts with pictures of hanging seaweed, which I end up finding out, much later, is a Julia Lohmann art installation [I mentioned before](../early-years/2015.md) that will be revealed to me in July as something Ana the violin teacher was connected to.
 
 ![Ana at Lohmann's studio](../../content/images/Screenshot 2024-11-17 at 18.08.46.png){width=65%}
 
@@ -224,8 +230,8 @@ All the twitter activity is on my `@1frgvn` account at this stage: todo: double 
     - Ana the violin teacher in a modeling role for Finnish artist Julia Lohmann. 
     - I do wonder if this is correct now as I can't find the connection between the two.
     - There is a Finnish connection with the trumpet teacher and I wonder if there is a connection between him and Julia Lohmann. Was/is she another victim maybe?
-    - Either way, Julia Lohmann pics with seaweed were coming up at the same time as pictures of Ana, so I related the two things in the same way I thought plate lady was Carmen.
-    - A whole bunch of Ana pics were sent to me via the trumpet teacher's *apparent* account around June/July 2023 seemingly in order to convince me that Ana and the trumpet teacher were a romantic item.
+    - Either way, Julia Lohmann pics with seaweed were coming up at the same time as pictures of Ana, so I related the two things in the same way I thought [plate lady](july.md#plate-lady---early-in-the-month) was Carmen.
+    - A whole bunch of Ana pics were posted for me to see via the trumpet teacher's *apparent* account around June/July 2023 seemingly in order to convince me that Ana and the trumpet teacher were a romantic item.
     - Over the hacking duration, and during the conversations I had with hackers, Ana was talked about a lot, often in an extremely derogatory manner and often with relation to unsavory sexual activity.
 
     ![Ana](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
@@ -234,7 +240,8 @@ All the twitter activity is on my `@1frgvn` account at this stage: todo: double 
 - Suddenly I'm seeing a lot of porn on my Twitter timeline too.
 - A porn video pops up on my timeline which looks like the trumpet teacher and Ana so I look at it. It is extremely violent and he is holding her by the neck and throwing her around the kitchen. It certainly wasn't actually Ana but the woman was of a similar build and look. It may have been the trumpet teacher however, as the man's back was to the camera and he was of the same build.
 - https://x.com/1FRGVN/status/1664572450112258049
-- On June 12th 2023, an account `@january_myth` posts an extremely significant picture that I see when I get home and after the shock of finding out I have been cyber-stalked so extensively and by so many. At the time of writing, 20 November 2024, I'm unable to find this pic and I wonder if it's deleted. I ask.
+- On June 12th 2023, an account `@january_myth` posts an extremely significant picture that I see when I get home and after the shock of finding out I have been cyber-stalked so extensively and by so many. At the time of writing, 20 November 2024, I'm unable to find this pic and I wonder if it's deleted. I ask the account owner for it.
 
 ![Long long way to go](../../content/tweets/long-long-way-to-go.png){width=85%}
 
+- There is no reply.

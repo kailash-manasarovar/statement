@@ -102,6 +102,14 @@
 - Anyway, around this time, Maria is very stressed about the next year's assigned work from the Generalitat and keeps talking about how she is probably going to get a job at the superior conservatory in Valencia.
 - Knowing what I know now, it seems to me this would require some "enchufe", meaning a level of benevolence from those who can pull strings; i.e. Domingo.
 
+## Followed on the beach
+
+- I go for a walk on the Las Marinas beach one Sunday afternoon.
+- I'm feeling anxious and I'm constantly thinking about the trumpet teacher.
+- I "bump" into two young girls when my hat flies off and they hand it back to me. I wonder if the girls pulled my hat off.
+- I hold my scarf up to the air. It has a picture of an emoji sun on it.
+- I'm supposed to think these are his daughters. I do think it's a possibility. Not now.
+
 ## Twitter communications
 
 - I knew the trumpet teacher was looking at my tweets, even though he had blocked me. Back then, this was possible on Twitter.
