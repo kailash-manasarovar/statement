@@ -1,9 +1,9 @@
 ## Mental state and health concerns
 
-- I can't stop thinking about this man the trumpet teacher, my mind is racing with thoughts about him.
+- I can't stop thinking about this man, the trumpet teacher. My mind is racing with thoughts about him.
 - I'm extremely concerned about rhabdo and having kidney damage.
 - I go on a very strict kidney diet to try to heal myself.
-- I start to lose a lot of weight but I manage to stop the froth in my urine which is exacerbated with dairy and albumin intake.
+- I start to lose a lot of weight but I manage to stop the froth in my urine which is exacerbated with dairy and any albumin intake.
 - I contact an acupuncturist in Dénia to ask for help: https://www.thaoqi.com/.
 - She is not back in town until May so she can't see me for a few months.
 - I go to see a homeopath in Dénia, Ana Villalba. I'm not sure I trust her. 
@@ -47,6 +47,7 @@
 - Rosa is the vice director of the conservatory.
 - On one occasion, Rosa mentions to the trumpet teacher that it is his *funcionario* exam the following week.
 - I understood that he was sitting the exam to become eligible for a pension and whenever I arrive at class, the trumpet teacher is often practicing for his exam and he says so.
+- On one occasion, he mentions that he "needs to pay for his daughter's weddings".
 
 !!! tip "List of teachers and staff"
     The current lists on the conservatory website may still reflect the state of the staff in 2023 although there will be changes.
@@ -56,23 +57,27 @@
 
 ## Other times
 
-- I also find myself light-headed and high in other classes, like choir and harmony.
-- Looking back I was completely out of my mind and I had no idea that I was being drugged.
-- I was being medicated without my knowledge, and had been from at least December 2022.
+- I also find myself light-headed and high in other classes, including choir and harmony class.
+- Looking back, I can see that I was completely out of my mind during this time, and I had no idea that I was being drugged.
+- I was being medicated without my knowledge, and I believe this had been going on from at least December 2022 at the conservatory itself.
 
 ## Unintended consequences of drugging an adult person without their knowledge
 
 - I am a yoga practitioner and have done huge amounts of meditation and intense spiritual practices over the years.
-- My practices have made me extremely sensitive, including physically which is why possibly the dose of whatever they gave me the month previously had such a dramatic effect on my system.
-- Another of my favorite spiritual practices is bhakti devotion, where you worship God in all His forms.
+- My practices have made me extremely sensitive, including physically, which is why possibly the dose of whatever they gave me the month previously had such a dramatic and traumatic effect on my system.
+- Another of my favorite spiritual yoga practices is bhakti yoga devotion, where you worship God in all His forms.
 - Around this time, I started to become a little obsessed with Hanuman, the monkey god from the Hindu religion.
-- I have adored Hanuman for many years because he loves and protects women and children.
+
+![Hanuman RAM RAM](../../content/images/hanuman.jpg)
+
+- I have adored Hanuman for many years because he loves and protects vulnerable women and children.
 - He is the number one yogi.
-- I can't remember what started it, but around this time it was as if he was everywhere around me.
+- I can't remember what started it, but around this time it was as if he was everywhere around me. 
+- I couldn't stop thinking about him either.
 - I subscribed to an Indian TV show of 630-odd episodes about his childhood and his relationship with Ram: https://www.sonyliv.com/shows/sankatmochan-mahabali-hanuman-1700000109
 - I created little videos that I found delightful and put them on Facebook: https://www.facebook.com/jack.chardwood.3/videos
 - I put Hanuman music on my phone and alarm clock.
-- I was truly obsessed with Hanuman; and I still am a little but not to the extent I was during 2023 which was an intense obsession.
+- I was truly obsessed with Hanuman; and I still am but not to the extent I was during 2023 which was an intense obsession.
 
 !!! tip "Who is Hanuman?"
     - Hanuman is a major player in the Hindu epic the Ramayana.
@@ -87,3 +92,12 @@
 - People keep saying a name so that I can hear it, Silvia.
 - Maria and Mercedes say it meaningfully and look at me closely at piano class.
 - I hear the name everywhere, I don't know why.
+
+!!! info
+    - To this day I don't know who or what Silvia refers to.
+    - There have been numerous suggestions online about it such as:
+        - Silvia is a trans identified young girl at the conservatory.
+        - Silvia is one of the trumpet teacher's daughters who is being targeted by the porn gangs so he can pay a debt back.
+        - Other nonsensical stories.
+        - Who knows? Perhaps just a trigger to create more stress and anxiety in my mind.
+
