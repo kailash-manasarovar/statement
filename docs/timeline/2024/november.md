@@ -73,18 +73,6 @@
     - And on top of that, somehow I was being spiked with drugs or herbs that made me extremely sexually aroused, and led me to masturbate for an unseen audience, while I was also being groomed HEAVILY online with MRA seduction tactics on Twitter and elsewhere.
     - We have to assume that I am the tip of the iceberg with regards to these sorts of honey-trap manipulation techniques and it is highly likely children are being targeted in the same way.
 
-## Honey trap
-
-- I believe that the `@jctot19` account is fundamentally a honey-trap account.
-- Is it possible I blew his cover and that is why the original tweets stopped on 15th January.
-- Nevertheless, bizarrely, Google search results related to this account are still active. I notice the newer entries are coming from retweeted posts. I suspect the retweets are automated.
-- Carmen and Rocio Vidal still feature. Carmen is obviously Carmen Cano, Domingo's sister.
-- I post about [seduction techniques](../../evidence/manipulation.md) on Twitter: https://x.com/1FRGVN/status/1860132157890679006. Immediately, an account interacts with me that has a warning, and suggests the trumpet teacher has an alibi, and not to forget to cross examine Domingo (Camo).
-
-![Alibi](../../content/images/fake-accounts/dont-dare.png){width=65%}
-
-- I suspect Carmen Cano to be behind most of these, including the threat to my brother's life.
-
 ## The landlady
 
 - I spoke to my mother the other day and told her I was thinking about leaving the flat on 15th February 2025 and handing in notice in December.
@@ -105,3 +93,18 @@
 ![woman with tattoos](../../content/images/fake-accounts/woman-with-tattoos-1.png)
 
 ![woman with tattoos](../../content/images/fake-accounts/woman-with-tattoos-2.png)
+
+## Honey trap
+
+- I believe that the `@jctot19` account is fundamentally a honey-trap account.
+- Is it possible I blew his cover and that is why the original tweets stopped on 15th January.
+- Nevertheless, bizarrely, Google search results related to this account are still active. I notice the newer entries are coming from retweeted posts. I suspect the retweets are automated.
+- Carmen and Rocio Vidal still feature. Carmen is obviously Carmen Cano, Domingo's sister.
+- I post about [seduction techniques](../../evidence/manipulation.md) on Twitter: https://x.com/1FRGVN/status/1860132157890679006. Immediately, an account interacts with me that has a warning, and suggests the trumpet teacher has an alibi, and not to forget to cross examine Domingo (Camo).
+
+![Alibi](../../content/images/fake-accounts/dont-dare.png){width=65%}
+
+- I suspect Carmen Cano to be behind most of these, including the threat to my brother's life.
+- This is my most translated tweet for ages:
+
+![Translated seduction tweet](../../content/tweets/translated-honey-trapper-tweet.png)
