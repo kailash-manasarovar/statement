@@ -1,121 +1,118 @@
 ## Back in Dénia
 
-- I am still high after Christmas and New Year. All the chats and interactions make me think I have a boyfriend, see the [Google search](#google-search) section for more info.
+- I am still high after Christmas and New Year. All the chats and interactions make me think I have a boyfriend; see the [Google search](#google-search) section for some elaboration on that.
 
 !!! info "Disclaimer"
-    - I don't really think this, not really, it's too absurd, but I can't seem to unhook myself from the game.
+    - I don't really think this, not really, it's too absurd, but I can't seem to unhook myself from the game, which is relentless.
     - Whatever is triggering these beliefs is very powerful and I cannot think straight about it at all.
     - I believe this is proof I'm being drugged, as well as being manipulated by online seduction techniques.
      
-- There is a DM chat with a fake account: https://x.com/ItsMe50474936 that I'm sure is either the trumpet teacher or someone close to him as they have information they could only know if they were involved in everything that has been happening.
-- It's the same account that posted the [hotel room selfie-pic](../2023/december.md#hotel-room-selfie-pic) a few days before.
+- I chat with a fake account: https://x.com/ItsMe50474936 that I'm sure is either the trumpet teacher or someone close to him as they have information they could only know if they were involved in everything that has been happening.
+- It's the same account that posted the [hotel room selfie photo](../2023/december.md#hotel-room-selfie-pic) a few days before.
 - https://x.com/ItsMe50474936: "It's me" is the name I use on any fake accounts I have created.
 - This account also states that they're nervous they're "actually" talking to me instead of seeing me in the group.
 
 !!! info
-    - Do they pay for this access to me?
+    - Are people paying for access to watch me and my life on paid-for WhatsApp groups?
 
-- I end up blocking them because it's just so weird but I think if you believe it even a tiny bit, 10%, they have a hold over you.
+- I end up blocking this person because it's just so weird but I think if you believe the lie, even a tiny bit, 10%, they have a hold over you.
+- And, of course, who isn't influenced by love and relationships, and being with someone you like, even if it is manufactured and fake?
 
 ## Google search
 
-- I am seeing multiple posts about "boyfriends" on my images. I believe that's what this tweet is referring to: https://x.com/JackChardwood/status/1742110623490506940.
+- I am seeing multiple posts about "boyfriends" on my accounts' Google search result images. 
+- I believe that's what this tweet is referring to: https://x.com/JackChardwood/status/1742110623490506940.
 - I mention this on Twitter: https://x.com/1FRGVN/status/1748488576860389657.
 - How do they do it? I ask: https://x.com/1FRGVN/status/1748485970272419873. 
 - I thought it might be cookies but I used someone else's device once to check and the results were the same. Unless they had hacked that person's phone too.
-- I started to see a transformer figure on the `@jctot19` search results. The character looked like a fierce and angry Ana Girbes. This remained in search results for a couple of months.
+- I started to see a transformer figure on the `@jctot19` search results. The character looked like a fierce and angry Ana Girbes carrying big guns. Ana is the musical language teacher at the conservatory. 
+- This character remained in search results for a couple of months.
 
 ## `@JackChardwood` account content completely changed
 
 - Up until early January, on my `@JackChardwood` account, I see mostly rather dull content about tech and self-help, motivational stuff. It's really very boring.
-- Suddenly, the timeline has completely changed and it is now posting spiritual account, lot of love and romance content, nothing like I was seeing before.
+- Suddenly, the timeline has completely changed and it is now posting spiritual content, love and romance content, nothing like I was seeing before.
 - It's weird. I note it: https://x.com/JackChardwood/status/1750917604393308599
 
 ## Galway
 
 - I'm still extraordinarily high from Christmas.
-- I head to Ireland on 10th January for my therapy course again.
+- I head to Ireland on 10th January for my therapy course once again.
 - When I inform the choir teacher I will be away, he says, "as long as you're not going away for the weekend with your boyfriend", referring to what Domingo had got [his student Elsa](../2023/october.md#gang-stalking) to ask me. He says this every time I have to tell him I'm going to skip a class.
 - I open an anonymous account on Twitter, follow `@jctot19` on it, and post solely to my timeline without interacting with his account directly at all.
-- A post from him on 9th January, which I have only seen at the time of writing (November 2024), mentions a *chica* and it appears to be referring to me. If so, the implication is that I am chasing him again and again. However, this is undoubtedly what he, Domingo, and their co-conspirators have been setting me up to *appear* to be doing.
-- I wonder if this is how they defend themselves if anyone dares accuse them of sexual coercion/grooming and fraud-related matters.
-- The first post I see on his timeline, on 10th January, was an angel climbing a ladder to heaven, so I continued.
-- I posted about my therapy, and look on his timeline for responses, as before.
+- A post from him on 9th January, which I have only just seen at the time of writing (November 2024), mentions a *chica* and it appears to be referring to me. If so, the implication is that I am chasing him again and again. However, this is undoubtedly what he, Domingo, and their co-conspirators have been setting me up to *appear* to be doing.
+- I wonder if this is how they defend themselves if anyone dares accuse them of sexual coercion/grooming and fraud-related matters. They say, oh she was obsessed with me. Well duh, yeah. You might well get obsessed with someone who drugs you and seduces you.
+- The first post I saw on his timeline, on 10th January, was an angel climbing a ladder to heaven, so I continued.
+- I posted about my therapy, and looked on his timeline for responses, as before.
 - There was a to-and-fro, as before, all positive.
 - After a day of this, however, the content starts to be interspersed with references to porn, specifically violent and humiliating porn.
 - I posted one tweet with a sexual connotation, and he immediately reaches out to a random woman he hasn't seen in years.
-- It's very weird. I realize now completely planned and set up.
+- It's very weird. I realize now it was all completely planned and set up.
 - I immediately stop communicating with him and delete the twitter account I had created.
 
 ## Ana and Ana
 
 - Ana Girbes starts taking a role in the bullying at the conservatory. She makes herself visible and she is always glaring at me furiously whenever I see her. I have no idea why.
-- One evening, she shouts something at me, and then says something derogatory to me about a private health matter I have only ever told Google search.
+- One evening, she barks something at me as she walks past me, and then she says something derogatory to me about a private health matter I have only ever told Google search.
 - Ana Girbes and Ana Requena create highly suggestive choreographed routines designed to make me anxious and stressed, and this goes on way into February.
-- They both are always furious at me but they never say a word.
-- At some point during the month, they both change their demeanor completely and smile sweetly at me when I'm going to class.
+- They are always furious at me but they never say a word to me.
+- At some point during the month, they both change their demeanor completely, and smile sweetly at me when I'm going to class or leaving the conservatory.
 
-!!! danger
+!!! danger "Remember"
     - I'd just like to take a moment to remind everyone at this point that these women are teachers in a public school with responsibility over many, many children.
 
 - It then switches again and they are angry with me.
 
 !!! info
-    - Curiously, this was also part of my child sexual abuse statement when I described what the pedophile had done to terrorize me and make me too afraid to say no to him.
+    - Curiously, this was also part of my child sexual abuse statement to the police when I described what the pedophile had done to terrorize me and make me too afraid to say no to him.
     - He would be furiously angry with me, and then be kind, and then be angry again, and repeat.
     - I wonder did the two Ana's know about this, or were they simply taking instruction from Domingo who knew tactics like this would destabilize me because he had read the statement himself.
 
-## Conservatory
+## Conservatory women
 
 - At some point, I told Paqui that Domingo and his associates were terrorizing me. 
 - It was just before a piano concert at the social centre in Denia in January 2024 which the students of the conservatory are usually invited to. She asked me was I going to go, and I asked her if it was safe for me to go.
 - She seemed alarmed at my question which is when I told her I was being terrorized by men, Domingo and others.
-- I believe I can trust her, at least a little bit.
+- I believe I can trust her at that point, at least a little bit.
 - I had no idea she was 100% involved.
 - Furthermore, as well as the two Ana's, Katia the singer is also angry with me in my chamber music class. I feel it is all very unfair. 
-- I can't believe they could all be involved and I try to reach out to them.
-
-
+- Katia gives me her mobile number at some point.
+- I can't believe the women could all be involved and I try to reach out to them.
 
 ## Nacho follows me around town
 
 - One Saturday, I need to run some errands in Denia.
-- Nacho is always there, where I am.
-- He's following me.
+- Nacho is always there, wherever I am, walking by in view.
+- He's following me, trying to upset me.
 - I smile and laugh at him. He looks embarrassed.
+- Nevertheless, I'm stressed and anxious about this.
 
-## Nacho pokes his head
+## Nacho says sorry
 
-- One morning when I'm practicing, Nacho pops his head into my room and says sorry.
+- The French horn player (an adult student) from choir class follows me out one evening to assess my reaction to Nacho when I see him.
+- She sees me grimace when I see him, she looks satisfied, and walks off.
+- A few mornings later, when I'm practicing, Nacho pops his head into my room and says sorry and then disappears again.
+- I find it very weird and tweet about it. Something banal like, "hmm interesting", but they will know what I was referring to.
+- The next choir class, Nacho continues to be part of the bullying and threats. 
+- I see him interacting with all the young girls (Domingo's students) after class, and they're all saying "coffee" really loudly as he asks them if they'll "go for a coffee".
+- I ask Samuel what's going on, why are they saying "coffee" loudly, and he says, oh it's just a game.
 
 ## Threatening men outside
 
 - On January 16th I'm coming back from practicing the piano.
 - There is a car outside my building where I'm walking and there are two men in the car glaring at me angrily: https://x.com/1FRGVN/status/1747283258092425350.
-- As I walk past them, they make the engine scream and make a very loud noise, and speed off.
-- I recognize one as a man who had fixed my car back in 2013 who worked at the garage near my old flat. He had helped me replace a flat battery.
-
-### January 18th correspondence to the Generalitat
-
-- I've convinced myself the women can't be involved, they must be being lied to by the men.
-- I [text Katia](../../content/whatsapps/text-to-katia.pdf). 
-- Katia does not reply or even mention the text when I see her next at class. 
-- Instead, she looks at me and says something like, "oh you are the best", in a weird way, and that's that.
-- I also [email the Generalitat again](../../content/documents/emails/jan-18-email-to-GV.png) that day with an update of what's going on.
-- The Generalitat reply to tell me they have transferred my emails to the Alicante office. 
-- I have to ask them for information on who I can contact there.
-- They're fobbing me off. 
-- It's 3 months since I wrote the [original letter of complaint](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf) and I had received no reply.
+- As I walk past them, they make the engine scream and howl, before speeding off, the tyres screechings.
+- I recognize one as a man who had fixed my car back in 2013 who worked at the garage near my old flat. He had help me replace a flat battery.
 
 ## Constant threat
 
 - In general, the threat level is growing in the town, at the conservatory, and online. 
 - No one speaks to me, at all, but they are all extremely busy choreographing ridiculous "moments" which will "make me think" something about something.
 - I'm becoming extremely anxious.
-- It's getting difficult to perform simple tasks normally, I need extra effort for things I usually don't think about.
+- It's getting difficult to perform simple tasks normally. I need extra effort for things I usually don't think about.
 - My mind is constantly filled with what's going on.
 - I now wonder if I was being spiked by something anxiety forming at this time but perhaps the behavior of teachers, staff, and students at the conservatory during this period is enough to explain the anxiety I'm feeling.
-- This anxiety grows and grows until, probably, June when I'm in Lourdes and then head back to the UK for a few weeks.
+- This anxiety grows until, probably, June when I'm in Lourdes and then head back to the UK for a few weeks. In March, April, and May it is overwhelming. It is still not nearly as bad as the anxiety I experienced after reporting child sexual abuse to the police, however.
 - Everything that's going on is extraordinarily evil and I can hardly believe it.
 - I often wonder how many others have been targets like me. Undoubtedly loads. I wonder as well how many of those targets ended up in prostitution or porn, and if they were targeted as minors.
 
@@ -132,6 +129,19 @@
 - I mentioned to Samuel that Salva clearly didn't want his students to come back the following week.
 - Salva had said things that would make parents stop their children coming to his class, if they knew he was like that.
 - Someone unknown had sent him a link to my posts at that moment, for a joke, and, due to the guilt, he became uncontrollably enraged.
+
+### January 18th correspondence to Katia and the Generalitat
+
+- I've convinced myself the women can't be involved, they must be being lied to by the men.
+- I [text Katia](../../content/whatsapps/text-to-katia.pdf). 
+- Katia does not reply or even mention the text when I see her next at class. 
+- Instead, she looks at me and says something like, "oh you are the best", in a weird way, and that's that.
+- I also [email the Generalitat again](../../content/documents/emails/jan-18-email-to-GV.png) that day with an update of what's going on.
+- The Generalitat reply to tell me they have transferred the matter to the Alicante office. 
+- I have to ask them for information on who I can contact there.
+- They're fobbing me off. 
+- It's 3 months since I wrote the [original letter of complaint](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf) to which I never received any reply.
+- I mention buying a new phone in the email to the Generalitat, which I did, which was expensive, an iPhone 14 as suggested by someone at work. They hacked into it pretty much immediately.
 
 ## Twitter
 
