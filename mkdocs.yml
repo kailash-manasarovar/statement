@@ -110,6 +110,7 @@ nav:
   - Evidence:
     - DMs: evidence/DMs.md
     - Emails: evidence/emails.md
+    - Manipulation techniques: evidence/manipulation.md
     - Memes and triggers:
       - Symbols: memes-triggers/symbols.md
       - Memes: memes-triggers/memes.md
