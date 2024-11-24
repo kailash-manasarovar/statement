@@ -88,7 +88,7 @@
 
 ## Ana dresses as if she's pregnant
 
-- The Ana lie continues and she choreographs me - tracks my movements using shared WhatsApp groups with the other teachers - in order to see her going to the toilet dressed as if she is pregnant.
+- The Ana lie continues and she choreographs situations - tracks my movements using shared WhatsApp groups with the other teachers - in order that I see her going to the toilet dressed as if she is pregnant.
 - On one of the last times I attended classes at the conservatory, Ana is playing trumpet music on her laptop and I hear it from her classroom as I walk by.
 
 ## Cracked rib
