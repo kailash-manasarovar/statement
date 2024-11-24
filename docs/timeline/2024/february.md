@@ -109,11 +109,7 @@
 - While I was there, a woman police officer was holding up her mobile phone as if she was filming me the whole time.
 - I wondered if they knew exactly who I was and what was happening to me.
 
-## Cracked rib
 
-- During this month I crack a rib during yoga class.
-- I wonder if whatever I'm ingesting causes bone thinning because it happened again a few months later.
-- I have to pause yoga for a month or so while it gets better.
 
 ## European Court of Human Rights
 

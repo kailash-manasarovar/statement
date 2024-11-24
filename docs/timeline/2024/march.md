@@ -61,6 +61,24 @@
 
 - Get a desk at Nowhere.
 
+## Scarfs from the lady who knows who I am
+
+- I buy some scarves from a shop in the Calle La Mar.
+- It's run by a polish woman who is very nice.
+- I tell her I'm studying piano at the conservatory.
+- She becomes very embarrassed and is unable to speak to me.
+- This shop had a picture in the window of .. for months.
+- Often, in the Google search results there were pictures of the same ... with reference to the trumpet teacher having another girlfriend.
+- Ridiculous, I know.
+- Amazing they would put so much effort into all this, and it must be costing a lot of money to keep it up. I now wonder if they were perhaps making more than they were spending from either:
+    - Mass voyeurism of "hunted" or targeted women in Spain.
+    - Mass voyeurism of women being filmed on hidden cameras in their homes.
+    - Etc
+
+!!! danger "The thing that makes me a target most of all"
+    - Is the fact I survived child sexual abuse and I'm thriving beyond anyone's wildest dreams.
+    - It must be an absolute insult to the patriarchy.
+
 ## Text my family at the Chinese
 
 - With my new iPhone, I send a text to my mother's mobile number at the Chinese while I'm having dinner.
@@ -72,6 +90,14 @@
 
 - The Ana lie continues and she choreographs me - tracks my movements using shared WhatsApp groups with the other teachers - in order to see her going to the toilet dressed as if she is pregnant.
 - On one of the last times I attended classes at the conservatory, Ana is playing trumpet music on her laptop and I hear it from her classroom as I walk by.
+
+## Cracked rib
+
+- I crack a rib during yoga class.
+- I wonder if whatever I'm ingesting causes bone thinning because it happened again a few months later.
+- I have to pause yoga for a month or so while it gets better.
+- It's good timing.
+- Some drugs make your bones thinner and make it more likely to experience this sort of thing.
 
 ## Threat to my life from the conservatory
 
@@ -107,13 +133,14 @@
 - https://x.com/1FRGVN/status/1773436669007380597
 - The choir repertoire includes a song about domestic violence
 - That night I become extremely anxious and scared.
+- On my way home, through the tunnel, a man comes at me and blows in my face.
 
 ## Practice on the 14th
 
 - I go into practice at the conservatory
 - I'm extremely anxious and feel really uneasy in the piano room
 - I call the Irish embassy from there looking for help
-- On the way out I see Gloria. She's laughing at me saying, "finally you're leaving now"
+- On the way out I see Gloria. She's laughing at me saying, "finally you're leaving now".
 
 ## Nowhere big blokes
 
@@ -137,6 +164,15 @@
 - My account is completely locked.
 - I'm really concerned about this.
 - I tweet about it: https://x.com/1FRGVN/status/1768093834188087798.
+
+## Chest infection
+
+- I get very unwell after choir class, a cold which becomes a chest infection.
+- It doesn't get better, it gets worse and worse.
+- I'm extremely unwell in Madrid, I can hardly talk.
+- Eventually, in India in the first week of April, I'm prescribed hardcore antibiotics and medicine for pleurisy.
+- It's not before I snap a rib from coughing.
+- The medication works and I recover.
 
 ## Madrid
 
