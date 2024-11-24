@@ -43,17 +43,33 @@
 
 ## Fake accounts
 
-- On my other Twitter account, [@JackChardwood](https://x.com/JackChardwood), I'm followed by fake accounts including porn accounts.
-- This was the beginning of an ongoing porn infestation of my online activity.
+- On my other Twitter account, [@JackChardwood](https://x.com/JackChardwood), I'm followed by fake accounts with names like Ana, Carmen, and some are porn accounts.
+- It's important to note that up until that moment, this account was dead, nothing happened on it at all. 
+- This was the beginning of the obvious cyber stalking and, specifically, an ongoing porn infestation of my online activity.
 - The porn accounts are no longer following me at the time of writing but there were many.
 - One was particularly sinister, named Anna in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf). 
 - It was kind of demonic, with a woman who had her long thick black hair put all over her face so you couldn't see it, and she was dressed in her underwear, and making sexual suggestions. It was extremely weird actually.
+- I noticed also that this account's profile message seemed to suggest a death threat against me.
+
+![Death threat](../../content/images/threats/anti-k-a-death.png){width=85%}
+
+- "Anti K a muerte" could be read as this account is "anti Katharine to the death".
 
 !!! info
-    - Thinking of that particular example now, and others like it, it was obvious that I was not actually dealing with just "foolish immature men", there was something much more sinister going on.
+    - Thinking of that particular porn example now, and others like it, it was obvious that I was not actually dealing with just "foolish immature men", there was something much more sinister going on.
      
+- Other accounts seemed to be threatening also:
+
+![Threatening account](../../content/images/threats/marc-panico.png)
+
+- Curiously, this account now has completely changed tone: https://x.com/marcop51.
 - Some of the fake accounts that follow me are called **Durian**, so I know it's Domingo and his associates.
-- [This document](../../content/tweets/august-2023-twitter.pdf) is a collection of some of those accounts. You will see durian mentioned and also the accounts with lots of dogs related to Domingo's surnames: Lopez Cano, which have a distinct canine connotation.
+- Another account is called JungleMary and this is significant because I have been playing a lot of jungle music online and tweeting jungle tracks. I am also devoted to Mary and often tweet about it too.
+
+![Jungle Mary](../../content/images/fake-accounts/mary-just-me.png){width=65%}
+
+- Also, "just me" is something I have said a lot previously.
+- [This document](../../content/tweets/august-2023-twitter.pdf) is a collection of some of those accounts. You will see durian mentioned and also the accounts mentioning dogs is a close relation to Domingo's surnames: Lopez Cano, which have a distinct canine connotation.
 - Since I opened a Facebook account for the general election in the UK in June 2024, I have the same sort of spam accounts full of dogs and horses trying to connect with me.
 
 ## Tweet translations
