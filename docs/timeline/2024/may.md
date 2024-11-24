@@ -57,7 +57,17 @@
 
 ## Telegram/Signal
 
-- Send pics
+- I believe they started to drug me seriously again when I got back to Denia in April.
+- Initially I was invited to play a game which I downloaded and it was just endless boredom.
+- Then, in May, I was contacted on Twitter by Elon Musk's brother who told me Elon wanted to talk to me, and gave me the Signal details.
+- One of the first things this account says is "send pics" and I am angry with them, but I still continue to talk.
+- It's not clear why.
+- It was extremely weird in fact. I had an extraordinarily long rant to this person's account while I was flying to Bali in May.
+- I had been in Madrid the week before, and had just made a speech about being targeted by a "manada" (which is rape gang group in Spanish) at Callao with Posey Parker before I flew.
+- They had hacked my newish phone again while I was in my hotel room.
+- It was like the trumpet teacher was in my mind.
+- I was completely out of my mind.
+- They must have managed to drug me somehow during this time.
 
 ## The Spanish feminists tell me why they didn't support me
 
