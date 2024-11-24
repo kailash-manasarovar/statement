@@ -2,6 +2,7 @@
 
 - Classes continue.
 - Choir class is full of threat towards me via suggestive scores, Nacho popping his nose in all the time and looking at me, discussions about trumpets, mentions of Vidal and how I'm thinking about him, Domingo's students asking me ridiculous things, the choir teacher being offensive towards me in Valenciano which I don't understand, comment from the children which seem weird, for example about my name, and other stuff.
+- The choir teacher makes fun of my name somehow, I don't understand the joke. This goes on continually and even concerns some of the kids.
 - The French horn player, an adult woman who sits beside me, is involved. She waits at the stairs to see my reaction to Nacho as he passed by me one evening after class. When I grimace, she is satisfied and leaves.
 - I'm anxious, a lot, in choir class.
 - Piano is good. I enjoy playing. Paqui seems fierce but fair. I have no idea how much she hates me and/or what she is planning with all the teachers.
