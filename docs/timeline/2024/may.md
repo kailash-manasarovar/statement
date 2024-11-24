@@ -53,6 +53,8 @@
 
 ## Madrid
 
+- Outside the hotel I see strange guys hanging around.
+
 ## My speech
 
 ## Telegram/Signal
@@ -67,7 +69,7 @@
 - They had hacked my newish phone again while I was in my hotel room.
 - It was like the trumpet teacher was in my mind.
 - I was completely out of my mind.
-- They must have managed to drug me somehow during this time.
+- They must have managed to drug me somehow during this time. I was out of my mind.
 
 ## The Spanish feminists tell me why they didn't support me
 
