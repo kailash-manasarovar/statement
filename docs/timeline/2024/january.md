@@ -17,6 +17,10 @@
 - https://x.com/ItsMe50474936: "It's me" is the name I use on any fake accounts I have created.
 - This account also states that they're nervous they're "actually" talking to me instead of seeing me in the group.
 - We chat. I'm sure it is the trumpet teacher. He tells me he likes to paint but he hasn't painted for many years. I ask him why not. He doesn't tell me.
+
+!!! tip "Trish Penny is an artist"
+    - I wonder if Trish and whoever the trumpet teacher is, someone she assuredly knows, share an interest in art.
+
 - I end up blocking this person because it's just so weird but I think if you believe the lie, even a tiny bit, 10%, they have a hold over you. I believed it a little.
 - And, of course, who wouldn't be influenced by love and a potential relationship, being with someone you believe you really like, even if it is manufactured and fake?
 

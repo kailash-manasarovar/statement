@@ -80,9 +80,12 @@
 - I detail some of his [interesting tweets](november.md#matthew) in November 2023 information.
 - We DM when I'm in my hotel in Madrid. 
 - Due to the obvious references, I'm sure it's the trumpet teacher, or someone very close to him who can speak/write English.
+- I now believe many of these accounts are probably delegate accounts whereby someone can take over them at any moment, although this one looks stolen to me.
+- When I ask for verification of who he is, he posts in the DM an identification document for this actual person, Matthew. This happens with other accounts I interact with too.
 - He tells me he's nervous because he usually sees me on the WhatsApp group and chatting with me directly is different.
+- He tells me about his children. He says he has three daughters and a son from two different marriages. He talks about how his grown up daughter doesn't want to be/get pregnant. I ask him why. He says it's political.
 - The interaction goes on till the end of December.
-- Our DMs become much clearer about who he is, or who this person wants me to think he is.
+- Our interactions make it much clearer to me about who he is, or who this person wants me to think he is.
 
 ## Avila
 
