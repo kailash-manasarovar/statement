@@ -112,7 +112,7 @@
 ## Sunday 24th November - note
 
 - I have had sufficient messages from hackers on fake accounts at this time to be concerned they will impede this statement-writing process.
-- I know they have pretty much full access to all my devices.
+- I know they have pretty much full access to all my devices and I'm unable to access internet on my mobile right now for unknown reasons, the behavior is much like when I tried to access the Guardia Civil website and was blocked for doing so. The 
 - So I have sketched as much important stuff as possible from March 2024 to now just so it's added.
 - Please note my mind was so badly affected by all this over this year, it is quite hard for me to get everything together correctly, and I will need to cross check with hotel and travel schedules, and Twitter messages, but this will take some time.
 - I have completed up to January 2024 now, and fully drafted February 2024, so it's probably already enough to prove gang stalking, cyber stalking, and sexual grooming.
