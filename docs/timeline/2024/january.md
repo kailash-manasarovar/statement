@@ -8,15 +8,17 @@
     - I believe this is proof I'm being drugged, as well as being manipulated by online seduction techniques.
      
 - I chat with a fake account: https://x.com/ItsMe50474936 that I'm sure is either the trumpet teacher or someone close to him as they have information they could only know if they were involved in everything that has been happening.
+
+!!! tip "Delegate accounts"
+    - I believe many of these accounts are used by the trumpet teacher and other who have delegate access.
+    - This means they can take over the account and post on its behalf at any time.
+
 - It's the same account that posted the [hotel room selfie photo](../2023/december.md#hotel-room-selfie-pic) a few days before.
 - https://x.com/ItsMe50474936: "It's me" is the name I use on any fake accounts I have created.
 - This account also states that they're nervous they're "actually" talking to me instead of seeing me in the group.
-
-!!! info
-    - Are people paying for access to watch me and my life on paid-for WhatsApp groups?
-
-- I end up blocking this person because it's just so weird but I think if you believe the lie, even a tiny bit, 10%, they have a hold over you.
-- And, of course, who isn't influenced by love and relationships, and being with someone you like, even if it is manufactured and fake?
+- We chat. I'm sure it is the trumpet teacher. He tells me he likes to paint but he hasn't painted for many years. I ask him why not. He doesn't tell me.
+- I end up blocking this person because it's just so weird but I think if you believe the lie, even a tiny bit, 10%, they have a hold over you. I believed it a little.
+- And, of course, who wouldn't be influenced by love and a potential relationship, being with someone you believe you really like, even if it is manufactured and fake?
 
 ## Google search
 
