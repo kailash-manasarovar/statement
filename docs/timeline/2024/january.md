@@ -146,7 +146,7 @@
 - Salva had said things that would make parents stop their children coming to his class, if they knew he was like that.
 - Someone unknown had sent him a link to my posts at that moment, for a joke, and, due to the guilt, he became uncontrollably enraged.
 
-### January 18th correspondence to Katia and the Generalitat
+## January 18th correspondence to Katia and the Generalitat
 
 - I've convinced myself the women can't be involved, they must be being lied to by the men.
 - I [text Katia](../../content/whatsapps/text-to-katia.pdf). 
@@ -158,6 +158,11 @@
 - They're fobbing me off. 
 - It's 3 months since I wrote the [original letter of complaint](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf) to which I never received any reply.
 - I mention buying a new phone in the email to the Generalitat, which I did, which was expensive, an iPhone 14 as suggested by someone at work. They hacked into it pretty much immediately.
+
+### Forwarded to Christine BJ
+
+- I don't trust the Generalitat anymore but I know how important to have documented proof of what's going on.
+- I forward [every communication I send to the GV to Chris Betterton Jones](../../content/documents/emails/Screenshot%202024-02-20%20at%2008.48.40.png).
 
 ## Twitter
 

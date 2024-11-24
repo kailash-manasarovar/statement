@@ -5,6 +5,8 @@
 - There's an intense aggression towards me in the classroom.
 - I realize that one of the songs we are singing has a repeated refrain, "ka ka ka". I know he's taking the piss with this too. 
 
+![Ka ka account 1](../../content/images/fake-accounts/kaka-1.png){width=65%}
+
 ## Constant stalking
 
 - Ana Girbes continues to be really angry at me for no reason, as does Ana Requena.
@@ -19,6 +21,7 @@
 
 - It's exhausting and I'm really upset at how I'm being treated.
 - I start to write my story and publish it on Twitter highlights.
+- Everything in highlights relates to gang stalking: https://x.com/1FRGVN/highlights.
 
 ### The story published in highlights
 
@@ -53,7 +56,7 @@
 - He tells me now he prayed incessantly for something, help, and I came along. It seemed reasonable to me, still does.
 - In a DM, he tries to recruit me to his honey trap organization. This is on February 20th.
 - I refuse in no uncertain terms.
-- I have a copy of [my side of the conversation](../../content/images/threats/mark-moseley-mail.pdf) and I am sure this document contained both sides of the conversation when I originally copied it! 
+- I have a copy of [the whole DM here](../../content/images/threats/mark-moseley-mail-in-full.pdf).
 - At the end of this chat, when I refuse to sign up to whatever he wants me to do - he'd said using fake accounts to find lonely men looking for love, or something like this - he threatens me with violence.
 - His message says: "I hope you find an excellent plastic surgeon for your face."
 
@@ -91,6 +94,7 @@
 - I literally cannot access any reporting pages on the Guardia Civil website at all.
 - I know now I was blocked from accessing the Guardia Civil's gender violence and cyber stalking reporting line by hackers.
 - This happens again when I try to access the European Union's human rights website and report there, after which I'm bombarded with fake account with titles related to "human rights".
+- This may be [a message I sent them](../../content/documents/letters/possible-mail-to-the-GC.docx) via an email address I found, I'm not sure now, but I did print it to take to the National Police the following morning.
 
 ## Policia Nacional
 
@@ -105,35 +109,27 @@
 - While I was there, a woman police officer was holding up her mobile phone as if she was filming me the whole time.
 - I wondered if they knew exactly who I was and what was happening to me.
 
-## Report hacking to work
-
-- I opened a Twitter account for work on my work laptop, I can't remember when.
-- Immediately I was followed by accounts with names related to the gang stalking.
-- I filed it away, it was too much to deal with at that moment, although I did raise a ticket with IT at one point when I saw something weird.
-- With everything going on, I realize it's time to tell the security department at my work I think I've been hacked.
-- Gordon Bishop of Polygon Labs investigates. He asks me to access 1.1.1.1 on my browser. What he's expecting to happen, doesn't happen.
-
-
-- They find evidence of hacking.
-- I have to work somewhere else while I get a new router.
-
-## Nowhere
-
-- Get a desk at Nowhere.
-
-## Human Rights
-
--
-
 ## Cracked rib
 
 - During this month I crack a rib during yoga class.
 - I wonder if whatever I'm ingesting causes bone thinning because it happened again a few months later.
 - I have to pause yoga for a month or so while it gets better.
 
+## European Court of Human Rights
+
+- On 26th February, I contact the European Court of Human Rights.
+- I have a similar experience to what happened when I tried to access the Guardia Civil cyber stalking and domestic violence pages.
+- I'm unable to find information about how to report what's going on for me.
+- I send a [message in a comment box](../../content/documents/letters/echr-message.pdf) instead, to which I never receive a reply.
+- Later that day, I get followed by fake accounts related to human rights. This is just one.
+
+![Human rights accounts](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-04%20at%2008.32.54.png){width=65%}
+![Human rights accounts](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-08%20at%2008.35.00.png)
+
+!!! note 
+    - The profile message: "WHAT THE UN HAS CALLED #CYBERTORTURE (A/HRC/43/49) #CYBERTORTURE IS BEING DONE TO ME. LINK TO COMPLAINTS PUBLISHED BY THE RAPPORTEUR FOR TORTURE, NILS MELZER".
+
 ## Twitter
-
-
 
 ### `@1frgvn`
 
