@@ -87,6 +87,11 @@
 - I smile and laugh at him. He looks embarrassed.
 - Nevertheless, I'm stressed and anxious about this.
 
+## Fake accounts reference payments
+
+- I sent a financial a gift to my monk friend for Christmas.
+- Fake accounts post the amount to me, while in the middle of a chat with a stalker account about "pandas", which I know is how they reference my Tibetan monk friend.
+
 ## Nacho says sorry
 
 - The French horn player (an adult student) from choir class follows me out one evening to assess my reaction to Nacho when I see him.

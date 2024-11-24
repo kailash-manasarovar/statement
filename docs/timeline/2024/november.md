@@ -108,3 +108,13 @@
 - This is my most translated tweet for ages:
 
 ![Translated seduction tweet](../../content/tweets/translated-honey-trapper-tweet.png)
+
+## Sunday 24th November - note
+
+- I have had sufficient messages from hackers on fake accounts at this time to be concerned they will impede this statement-writing process.
+- I know they have pretty much full access to all my devices.
+- So I have sketched as much important stuff as possible from March 2024 to now just so it's added.
+- Please note my mind was so badly affected by all this over this year, it is quite hard for me to get everything together correctly, and I will need to cross check with hotel and travel schedules, and Twitter messages, but this will take some time.
+- I have completed up to January 2024 now, and fully drafted February 2024, so it's probably already enough to prove gang stalking, cyber stalking, and sexual grooming.
+- Hopefully I will be able to continue as best I can, but nothing would surprise me at this stage.
+- I believe I am continually targeted online by Domingo and Carmen Cano, Hazel Smith and her mother probably, and the trumpet teacher whoever he is.

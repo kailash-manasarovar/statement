@@ -100,6 +100,7 @@
 - She's timed to meet us at exactly the right moment, and we have been constantly moving through the town and on public transport.
 - They knew exactly where I am at any given moment.
 - This could only be the case if they had full access to my mobile phone including the location function.
+- During this time, there is much content related to "pandas" on my account and this, and consequent messages, leads me to believe that this is how they are referring to my friend.
 
 ## Alex and Paul
 

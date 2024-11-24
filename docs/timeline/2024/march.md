@@ -30,6 +30,19 @@
 - He goes to talk to a local police officer and comes back.
 - He says I cannot raise anything with them as I don't have a partner and they only deal with male violence when it occurs within a partnership.
 
+## Change root password
+
+- One evening, I change the root password on my laptop.
+- The router is off.
+- The following morning, half of my new root password appears on a fake account profile message.
+
+## Text my family at the Chinese
+
+- With my new iPhone, I send a text to my mother's mobile number at the Chinese while I'm having dinner.
+- There is a celebratory noise from my phone, and from someone elses phone too.
+- I'm not able to get through to my mother.
+- I believe they are targeting my family now, phones, etc, for the purposed of fraud.
+
 ## Ana dresses as if she's pregnant
 
 - The Ana lie continues and she choreographs me - tracks my movements using shared WhatsApp groups with the other teachers - in order to see her going to the toilet dressed as if she is pregnant.
@@ -52,7 +65,11 @@
 
 ## Talking to the translator
 
-- Perito in Alicante sounds like he's stoned
+- I get a translator to help me deal with the police.
+- After my experience with the [police in Denia in February](february.md#policia-nacional), I believe I need firm proof of hacking before I can go to them.
+- I tell her everything, the child sexual abuse I suffered and how it made me intolerant of children being sexualized at the conservatory, and how I had been targeted for basically mentioning that very informally in 2015. 
+- On the Guardia Civil website there's a list of experts who analyze devices for hacking for the police.
+- We look one up. My translator phones him, a perito in Alicante, Jorge. He sounds like he's totally stoned.
 
 ## Choir on the 13th
 
@@ -64,7 +81,6 @@
 - The woman looks at me angrily
 - The choir repertoire includes a song about domestic violence
 - That night I become extremely anxious and scared
-- I text and tweet to everyone that I would never commit suicide
 
 ## Practice on the 14th
 
@@ -80,11 +96,55 @@
 - I find it extremely threatening.
 - When I leave the offices about 2 hours later, they are outside at exactly the moment I step outside the door, with a blond woman I've seen before in the middle of them.
 
+## The dose ramps up
+
+- I believe today the dose of anxiety causing substances was increased at my flat because I began to be extraordinarily stressed and scared that night, probably after drinking a large tea.
+- Given that I was not fearful after the ridiculous piano concert on the 12th, and went to choir on the 13th, it seems reasonable to suppose I was relatively unaffected by this choreographed terror, used to it maybe.
+- However the link with Lorraine Blackbourn was indeed extremely sinister and I text and tweet to everyone that I would never commit suicide if I turn up dead and it looks like it.
+- The following morning I am severely anxious. I'm bumping my head on things. I have to go to town. I am terrorized the whole way in and out. I feel horrendous.
+- I believe I was on serious drugs at this point.
+
+## My crypto account
+
+- I lose access to my crypto account.
+- I don't know if they have stolen 70K from me or not.
+- My account is completely locked.
+- I'm really concerned about this.
+
 ## Madrid
 
-- I book a hotel in Madrid and leave Dénia.
-- I am followed in Madrid.
-- I write two letters by hand to my parents.
+- I go to Madrid and stay from 15-24th March.
+
+!!! important
+    - My hotel costs run into the thousands but I feel I have no choice.
+
+- When I get to Madrid, I buy a new Android phone for my Spanish SIM. A man in the phone shop appears to know who I am.
+- I am followed and tracked in Madrid. 
+- With my new phone things that I say to my friend at lunch are repeated on fake account profiles later on.
+- I write a letter **by hand** to my parents. The first contact with them for nearly 3 years.
+- I explain I'm being terrorized and by whom. I try to keep it calm because my parents are elderly, and I don't know how things are with them. I don't want to upset them too much.
+- I tell them I believe that Domingo and his family are planning to murder me.
+- I remind them of what he told me all those years ago, something that I had told them at that time.
+
+## Denuncia Madrid
+
+- With the help of a friend I made a proper denuncia to the police in Madrid.
+- They tell us I need to get an expert to examine my devices in order to prove I've been hacked.
+- I'm astonished.
+
+## Expert
+
+- We do some research into getting my devices examined for hacking.
+- It can cost thousands.
+- We find an expert in Alicante who is reasonable.
+
+## Valencia
+
+- I go back to Valencia and stay in hotels.
+- I have a flight scheduled from Valencia to India at the end of the month so I need to be back in Valencia.
+- In Valencia I feel like I am being constantly watched, people know who I am, and everything is extremely unfriendly. I believe now this is to do with whatever drug they gave me prior to me leaving, which was a high dose, and it has made me paranoid.
+- Or I really was being watched everywhere I go as part of national violence against women networks.
+- I was extremely paranoid and constantly stalked on Twitter.
 
 ## Tweets
 
