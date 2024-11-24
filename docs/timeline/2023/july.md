@@ -5,9 +5,9 @@
 - I'm waiting for a key to a room with a piano.
 - All the teachers there are smirking at me.
 - I feel like I'm the better person so it doesn't bother me.
-- Nacho (Nacho Guerrero Nácher) the clarinet teacher, is there and he is talking to a mother who is with her daughter.
+- Nacho (Nacho Guerrero Nácher), the clarinet teacher, is there and he is talking to a mother who is with her daughter.
 - Nacho looks at me quickly, then starts to caress the child's face, stroking it suggestively, while talking to the mother.
-- Everyone is embarrassed. I feel sick.
+- Everyone is embarrassed. I feel sick. Gloria looks away.
 - He is doing this to show me that he, a teacher at the conservatory, can do whatever he likes to the little girls.
 
 ## Twitter
@@ -48,7 +48,7 @@ Some of my tweets from that time.
     - Significant pictures, or posts, would appear in these results and then disappear. 
     - This is where they will eventually post the picture of me in my underwear that I will take in August in France from my mobile phone.
     - It's not clear how they can manipulate search in this way, although more recently the suggestion is a hidden cache on my machine.
-    - I explain how this has been happening to the expert the following May, who fails to produce any kind of criminal report for me.
+    - I explain how this has been happening to the cyber expert the following May, who fails to produce any kind of criminal report for me.
     - I was not taking screenshots at this time because it was unclear what was going on, and at that time I had no idea I had been hacked.
 
 - The following are examples of things that came up in Google search during this period.
@@ -58,8 +58,9 @@ Some of my tweets from that time.
 - I constantly see various photos of a tiny pretty lady who is a potter, or a ceramics artist.
 - She is in her studio, putting plates on the wall and other things.
 - She must be 30 years old or so.
+- She wears little navy blue shorts that look like Iyengar pants.
 - It seems the photographer is a male who is close to her, and they are in a relationship of some sort.
-- From the look in her eyes, one photo is clearly a few moments before they will be sexually intimate with each other.
+- From the look in her eyes, one photo is clearly taken just a few moments before they will be sexually intimate with each other.
 
 ### Plate lady - later in the month
 
@@ -67,15 +68,16 @@ Some of my tweets from that time.
 - The man's shape and build is that of the trumpet teacher although you cannot see his face.
 - The photographer is far back from them, following.
 - At one point, the man tells plate lady something, and her face looks horrified.
-- Plate lady's horrified expression is sort of exaggerated in the photo.
+- Plate lady's horrified expression is somehow exaggerated in the photo.
 
 ### Carmen
 
 - Results of this search always included a picture of a cartoon woman, Carmen. And they still do, even today.
+- This is the `@sinremite` account I mentioned that has a lot of interaction with the `@jctot19` account.
 
 ![Carmen in today's results](../../content/images/google-searches/Screenshot%202024-11-17%20at%2007.15.36.png){width=80%}
 
-- Most of the images posted here are new, I haven't seen them previously, apart from the Carmen image which has been appearing on and off since July 2023, and the photo of Rocio Vidal which has been appearing probably since around October 2023 and we will talk about that [later](october.md#rocio-vidal) as it is significant.
+- Most of the images in the screenshot above are new, I haven't seen them previously, apart from the Carmen image which has been appearing on and off since July 2023, and the photo of Rocio Vidal which has been appearing probably since around October 2023 and we will talk about that [later](october.md#rocio-vidal) as it is significant.
 - Curiously, I thought Carmen was plate lady but that wasn't the case. Carmen, as I'm informed later, represents Carmen Cano, Domingo's sister, a major player in the deceit and harassment.
 
 ### Ana
@@ -91,11 +93,11 @@ Some of my tweets from that time.
 
 - Early in the month I go to Thailand for a holiday.
 - I do not take my laptop so I am not connected to my Twitter account.
-- The pictures referenced above continue to appear in the search results of `@jctot19`.
+- The pictures referenced above continue to appear in the search results of `@jctot19 twitter`.
 - At some point, the pictures of the plate lady stop.
-- There are now references to Thailand and the far east.
+- There are now references to Thailand and the far east, pictures of tall apartment buildings in Hong Kong, for example.
 - I'm certain he (I assume the trumpet teacher) is somehow manipulating Google search to show me things and I don't know how.
-- I connect to hotel networks usually and I have a lot of issues logging into my banking apps. I lose access to my Openbank app  and can't log in. 
+- I connect to hotel networks usually and I have a lot of issues logging into my banking apps. I lose access to my Openbank app  and can't log in until I get back home.
 - Then, I see a tweet which appears to have a message for me directly: **don't leave me murph**. It blows my mind.
 - This is actually a misquote from what was actually said in the film.
 
@@ -118,10 +120,13 @@ Some of my tweets from that time.
     - My Spanish is not very good so I always have to have a starting point of English. 
     - Here is my first [letter to Concha in English](../../content/documents/letters/Letter%20to%20Concha.pdf).
 
-- This letter was an attempt to apologize to Concha if I had upset her by mentioning Domingo's students bullying her on Twitter.
+- This letter was an attempt to apologize to Concha if I had upset her by mentioning Domingo's students bullying her on Twitter. I was worried about that, even though I never mentioned any names at any time.
 - It's clear from my letter that, at this stage, I have absolutely no idea what's really going on other than that I have been bullied by teachers and staff at the conservatory. I assume it was because I wrote the message expressing my feelings to the trumpet teacher in Spanish on Twitter and some angry tweets about Domingo when he didn't respond.
 - Concha was my friend so I felt I could reach out to her.
-- She responded on WhatsApp by asking me if I had been abused by the trumpet teacher and, if I had, I was to report it immediately and she would help me.
+- She responded by asking me if I had been abused by the trumpet teacher and, if I had, I was to report it immediately and she would help me.
+
+![Emailing with Concha](../../content/images/Email%20proofs%20of%20both%20letters%20to%20Concha.png)
+
 - Unfortunately, although indeed I had been abused by him, I had no idea how at that time.
 - I wrote a longer letter explaining everything that had happened and what I understood at that time.
 
@@ -131,38 +136,36 @@ Some of my tweets from that time.
 - English version of the [second letter to Concha](../../content/documents/letters/My%20experience%20-%20EN.pdf).
 
 !!! danger "Disinterested Dénia police"
-    - When I go to the police in February 2024 after a threat of violence on Twitter, I take numerous documents written in Spanish for them to look at, including my complaints to the school board, to explain what has been happening to me. 
+    - When I go to the [police in February 2024](../2024/february.md#policia-nacional) after a threat of violence on Twitter, I take numerous documents written in Spanish for them to look at, including my complaints to the school board, to explain what has been happening to me. 
     - They only look at the letters I have written to Concha and tell me there's no crime and I should go away. 
     - They tell me I should take a civil case against the conservatory.
     - They clearly wanted nothing to do with me.
 
 - After reading this document, Concha makes no response to me at all.
 - Her silence speaks a thousand words.
-- I WhatsApp Concha briefly when I'm being full on attacked online at the end of August in France, and I tell her that they have been hacking me and I'm scared. I ask her if she thinks these people are dangerous? She says she doesn't think so.
-- Here's confirmation of my communications with Concha via email.
-
-![Emailing with Concha](../../content/images/Email%20proofs%20of%20both%20letters%20to%20Concha.png)
+- I WhatsApp Concha briefly when I'm being [cyber-stacked and attacked online at the end of August in France](august.md#the-hackers-reveal-themselves), and I tell her that they have been hacking me and I'm scared. I ask her if she thinks these people are dangerous? She says she doesn't think so.
 
 ## Driving to Lourdes
 
-- I'm home briefly after returning from Thailand, the constant online communication (harassment) continues, I feel sexually aroused at home again.
+- I'm home briefly after returning from Thailand, the constant online communication (harassment) continues. I feel sexually aroused at home again.
 - I set off for Lourdes and to spend the summer in France.
 - I'm driving to Zaragoza where I will stay one night.
 - Just ouside of Oliva, a woman calls me, it's a missed call. I look her up on WhatsApp. She looks like the trumpet teacher. I'm guessing its his mum. The message on her WhatsApp profile is significant too.
 
-![Trumpet teacher's mum](../../content/images/image_123650291.png){width=75%}
+![Trumpet teacher's mum](../../content/images/image_123650291.png){width=65%}
 
 ## The traffic police stop me
 
 - Just outside Teruel, I am stopped by the Guardia Civil traffic police.
 - They inform me my driving license is invalid as it is a British one and I should have changed it.
 - I tell them I thought I had six months from March 2023 when the law changed and was going to do it in September when I returned to Spain.
-- Apparently it was three months, or I had made some mistake or other, anyway the conversation was very nice, we spoke amiably and politely and the officer told me he was going to fine me 100 euros instead of the 500 I could have been fined.
+- Apparently it was three months, or I had made some mistake or other, anyway the conversation was very nice, we spoke amiably and politely, and the officer told me he was going to fine me 100 euros instead of the 500 I could have been fined.
 - I was very apologetic and assured him I would deal with it immediately I was back from France. I had been initially really scared they would stop me from driving in Spain.
 - We were talking about stuff, and I forgot a word I needed, the word for management service (gestor), as I was explaining I would get them to deal with it immediately, but I couldn't remember the word, and I was scratching my head ... and he says ...
 - "Ladrones de Dénia", which means bad people of Dénia.
-- It was an extraordinarily weird thing to say, and I took it to mean I had been grassed up by Domingo and his associates as I was driving to France because the identification document the conservatory had was my British driving license.
-- What I didn't realize was that they could tell the police the exact moment I would be in a particular area of the carriageway, on the A23 outside Teruel. This surely is evidence of being tracked and followed.
+- It was an extraordinarily weird thing to say, and I took it to mean I had been grassed up by Domingo and his associates as I was driving to France because the identification document the conservatory had was my British driving license, and because of the good relationship I was having with this man, he informed me, somehow.
+- What I didn't realize yet was that they could tell the police the exact moment I would be in a particular area of the carriageway, on the A23 outside Teruel, because they were tracking my movements and had been for some time probably. 
+- This stop, and the missed call previously, is surely evidence that my movements were being tracked.
 
 ## Lourdes
 
@@ -178,7 +181,9 @@ Many of these tweets are confirmation of what has been going on.
 
 ### @1frgvn
 
-- todo:
+- https://x.com/1FRGVN/status/1685697886325993472 -> I notice the stalkers again.
+
+It's quite challenging to go through these at the moment, so I'll just pop the search request URL in: https://x.com/search?q=(from%3A1frgvn)%20until%3A2023-07-31%20since%3A2023-07-01&src=typed_query&f=live
 
 ### @JackChardwood
 
