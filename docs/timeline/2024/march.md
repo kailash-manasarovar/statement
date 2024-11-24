@@ -1,5 +1,6 @@
 ## Inspector from the Generalitat 
 
+- 5th March
 - I arrive at piano class on March 5th and all of a sudden a woman enters the class
 - Paqui explains she is here to help me
 - I am delighted and ask her why the GV have not replied to any of my emails or letters
@@ -30,11 +31,35 @@
 - He goes to talk to a local police officer and comes back.
 - He says I cannot raise anything with them as I don't have a partner and they only deal with male violence when it occurs within a partnership.
 
+## Human Rights
+
+- tweets and fake accounts
+
+## Searching for a security expert
+
+- I even speak to someone on the phone about 
+
 ## Change root password
 
 - One evening, I change the root password on my laptop.
 - The router is off.
 - The following morning, half of my new root password appears on a fake account profile message.
+
+## Report hacking to work
+
+- 8th March
+- I opened a Twitter account for work on my work laptop, I can't remember when.
+- Immediately I was followed by accounts with names related to the gang stalking.
+- I filed it away, it was too much to deal with at that moment, although I did raise a ticket with IT at one point when I saw something weird.
+- With everything going on, I realize it's time to tell the security department at my work I think I've been hacked.
+- Gordon Bishop of Polygon Labs investigates. He asks me to access 1.1.1.1 on my browser. What he's expecting to happen, doesn't happen. 
+- He's expecting to see the WARP webpage but, instead, we get the login page for the network router.
+- He says this is enough evidence of hacking for them to lock me down.
+- I have to work somewhere else while I get a new router and change the ISP.
+
+## Nowhere
+
+- Get a desk at Nowhere.
 
 ## Text my family at the Chinese
 
@@ -201,4 +226,4 @@
 
 ### `@JackChardwood`
 
-It seems the tweets in here are related to romance, i.e. keeping it going.
+It seems the tweets in here are mostly related to romance and relationship, i.e. keeping the lie going.

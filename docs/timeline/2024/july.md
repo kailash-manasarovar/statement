@@ -22,3 +22,8 @@
 ## Big chat with the hacker
 
 - The chat begins and goes on till he tells me about Irene, plate lady, and I look her up and find her.
+
+## I see Mercedes in the Carrefour
+
+- I go to the Carrefour and Mercedes is behind me in the queue.
+- She looks embarrassed. She should be.

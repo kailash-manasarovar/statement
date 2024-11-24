@@ -29,6 +29,12 @@
 - Investigators will know immediately who he is.
 - The whole town of Denia and beyond knows who he is.
 
+## Paqui Fornet Pastor
+
+## Gloria
+
+## Other teachers to a greater or lesser degree
+
 ## Twitter accounts of note
 
 - `@jctot19`: I believe this must be the trumpet teacher's account although could be being controlled/managed by others too.
