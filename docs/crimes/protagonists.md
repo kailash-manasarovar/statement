@@ -1,7 +1,7 @@
 ## Domingo and Carmen Lopez Cano
 
-- Key figures in the attack.
-- Given their name relates to all things canine, any reference online to dogs, particularly when it also is content of a threatening or abusive nature, is interesting.
+- Key figures in the attacks.
+- Given their name relates to all things canine and wolverine, any reference online to dogs, particularly when it also is content of a threatening or abusive nature, is interesting and suggests it is coming from them and their family.
 - Dogs feature constantly in the online harassment and threats.
 
 ### Carmen Cano
