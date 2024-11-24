@@ -83,7 +83,7 @@
 - I now believe many of these accounts are probably delegate accounts whereby someone can take over them at any moment, although this one looks stolen to me.
 - When I ask for verification of who he is, he posts in the DM an identification document for this actual person, Matthew. This happens with other accounts I interact with too.
 - He tells me he's nervous because he usually sees me on the WhatsApp group and chatting with me directly is different.
-- He tells me about his children. He says he has three daughters and a son from two different marriages. He talks about how his grown up daughter doesn't want to be/get pregnant. I ask him why. He says it's political.
+- He tells me about his children. He says he has three daughters and a son from two different marriages. He talks about how he is unhappy his daughters have no political inclinations.
 - The interaction goes on till the end of December.
 - Our interactions make it much clearer to me about who he is, or who this person wants me to think he is.
 
