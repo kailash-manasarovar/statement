@@ -1,3 +1,11 @@
+## The laundry
+
+- I go to the laundry to dry my clothes.
+- A man comes in who recognizes me. I have no idea who he is.
+- I email my mother and tell her.
+
+![](../../content/images/laundry-man.png)
+
 ## Cars beeping outside
 
 - Outside my flat
