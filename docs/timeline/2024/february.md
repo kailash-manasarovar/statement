@@ -26,9 +26,11 @@
 
 ## Twitter starts to get more threatening
 
-- Initially, they do this via a weird fake account, Mark Mosely, who is just like the other fake accounts but decidedly more violent in tone.
-- The Mark Mosely account has been tracking me for a few weeks. I, again, think it is the trumpet teacher. There are many details of things only he or his associates could know.
-- He tells me now he prayed for something, and I came along. It seemed reasonable to me, still does.
+- Initially, they do this via a weird fake account, Mark Moseley, who is just like the other fake accounts but decidedly more violent in tone.
+- The Mark Moseley account has been tracking me for a few weeks. I, again, think it is the trumpet teacher. There are many details of things only he or his associates could know.
+- I tell him I don't believe who he says he is. He posts an identification document for Mark Moseley from Portland Oregon.
+- I guess it's another delegate account.
+- He tells me now he prayed incessantly for something, help, and I came along. It seemed reasonable to me, still does.
 - In a DM, he tries to recruit me to their honey trap organization. This is on February 20th.
 - I refuse in no uncertain terms.
 - I have a copy of [my side of the conversation](../../content/images/threats/mark-moseley-mail.pdf) and I am sure this document contained both sides of the conversation when I originally copied it. 
