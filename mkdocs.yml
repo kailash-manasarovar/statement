@@ -170,6 +170,7 @@ markdown_extensions:
 plugins:
   - search
   - open-in-new-tab
+  - git-revision-date-localized
 
 validation:
   absolute_links: warn
