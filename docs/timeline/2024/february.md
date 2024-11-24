@@ -2,20 +2,26 @@
 
 - Salva, the choir master, tells us we're going to be singing a new tune for a concert at the Centro Social before Easter. 
 - It is a song about domestic violence, ostensibly written with the intention of helping women in distress, but Salva's use of it is very much in "celebration of" domestic violence, which I am, arguably, suffering at the hands of the whole town and beyond.
-- I realize that one of the songs we are singing has a repeated refrain, "ka ka ka". I know he's taking the piss with this. 
+- There's an intense aggression towards me in the classroom.
+- I realize that one of the songs we are singing has a repeated refrain, "ka ka ka". I know he's taking the piss with this too. 
 
 ## Constant stalking
 
-- The weird guy who may be an engineer is always at the conservatory, quite often waiting at the door as I arrive with someone else.
-- One evening, I pass him on the stairs. As I do, I smile at him. His face flashes fear. I tweet about it:
 - Ana Girbes continues to be really angry at me for no reason, as does Ana Requena.
-- On February 14th, Valentine's day, as I'm climbing the stairs to choir, Ana and Ana are sitting with their backs to me in Ana Girbes classroom. Ana Requena rushes out and stairs at my face without saying anything at all to me.
-- I assume the intention is for me to think she is concerned I will have put makeup on for Valetine's.
+- On February 14th, Valentine's day, as I'm climbing the stairs to choir, Ana and Ana are sitting with their backs to me in Ana Girbes classroom. 
+- Ana Requena rushes out and stairs at my face without saying anything at all to me.
+- I assume the intention is for me to think she is concerned I will have put makeup on for valentine's day.
 
 ## Highlights on Twitter
 
 - It's exhausting and I'm really upset at how I'm being treated.
 - I start to write my story and publish it on Twitter highlights.
+
+### The story published in highlights
+
+- Part one - collecting my thoughts (the story): https://x.com/1FRGVN/status/1759737292472627532
+- Part two - the trumpet teacher: https://x.com/1FRGVN/status/1759770318409695275 
+- Part three - hacking: https://x.com/1FRGVN/status/1759837709365817828
 
 ## Another email to the school board
 
@@ -107,8 +113,14 @@
 
 ### `@1frgvn`
 
-
+- https://x.com/1FRGVN/status/1756669026153926765
+- https://x.com/1FRGVN/status/1756669472239129004
+- https://x.com/1FRGVN/status/1756609676563640497
+- https://x.com/1FRGVN/status/1712456797456359427
+- https://x.com/1FRGVN/status/1741728804320526343
+- https://x.com/1FRGVN/status/1761507676171723144
+- https://x.com/1FRGVN/status/1763160058647429141
 
 ### `JackChardwood`
 
-
+- https://x.com/JackChardwood/status/1761022632202236020

@@ -10,6 +10,10 @@
 - It's a two way conversation. He tells me that he has targeted 100s of women in the region.
 - I see pictures of young and old women. I screenshot some.
 
+## I realize I've been being poisoned
+
+- https://x.com/1FRGVN/status/1825575948257009675
+
 ## Hundreds of women like me
 
 ## Trish communication

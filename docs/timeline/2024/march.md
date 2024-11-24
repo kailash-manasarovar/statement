@@ -79,8 +79,9 @@
 - Both the choir teacher and the woman who sits beside me's phones beep they've received a WhatsApp message
 - They both read it at the same time
 - The woman looks at me angrily
+- https://x.com/1FRGVN/status/1773436669007380597
 - The choir repertoire includes a song about domestic violence
-- That night I become extremely anxious and scared
+- That night I become extremely anxious and scared.
 
 ## Practice on the 14th
 
@@ -100,7 +101,7 @@
 
 - I believe today the dose of anxiety causing substances was increased at my flat because I began to be extraordinarily stressed and scared that night, probably after drinking a large tea.
 - Given that I was not fearful after the ridiculous piano concert on the 12th, and went to choir on the 13th, it seems reasonable to suppose I was relatively unaffected by this choreographed terror, used to it maybe.
-- However the link with Lorraine Blackbourn was indeed extremely sinister and I text and tweet to everyone that I would never commit suicide if I turn up dead and it looks like it.
+- However the link with Lorraine Blackbourn was indeed extremely sinister and I text and tweet to everyone that I would never commit suicide if I turn up dead and it looks like I did: https://x.com/1FRGVN/status/1768046490272870687.
 - The following morning I am severely anxious. I'm bumping my head on things. I have to go to town. I am terrorized the whole way in and out. I feel horrendous.
 - I believe I was on serious drugs at this point.
 
@@ -110,6 +111,7 @@
 - I don't know if they have stolen 70K from me or not.
 - My account is completely locked.
 - I'm really concerned about this.
+- I tweet about it: https://x.com/1FRGVN/status/1768093834188087798.
 
 ## Madrid
 
@@ -118,6 +120,8 @@
 !!! important
     - My hotel costs run into the thousands but I feel I have no choice.
 
+- The threats continue: https://x.com/1FRGVN/status/1769859075813101947.
+- More threats: https://x.com/1FRGVN/status/1769860927296258167.
 - When I get to Madrid, I buy a new Android phone for my Spanish SIM. A man in the phone shop appears to know who I am.
 - I am followed and tracked in Madrid. 
 - With my new phone things that I say to my friend at lunch are repeated on fake account profiles later on.
@@ -148,7 +152,7 @@
 
 ## Tweets
 
-### @1frgvn
+### `@1frgvn`
 
 - https://x.com/january_myth/status/1772034747775992249 -> the Taru Ann account, which may be sometimes run by Trish Penny retweets a post from 29th August 2023.
 
@@ -159,3 +163,42 @@
 - On September 22nd, after weird communication from Trish Penny all summer, I wonder if Taru Ann is Trish from time to time: https://x.com/1FRGVN/status/1837596563557831058. The account likes my question in response.
 
 ![Trish is Taru Ann sometimes](../../content/tweets/trish-is-taru-ann.png)
+
+- https://x.com/1FRGVN/status/1764211138269422006
+- https://x.com/1FRGVN/status/1764210826007728603
+- https://x.com/1FRGVN/status/1764554104469180450
+- https://x.com/1FRGVN/status/1764557706151538997
+- https://x.com/1FRGVN/status/1764555858963222694
+- https://x.com/1FRGVN/status/1765679070510026786
+- https://x.com/1FRGVN/status/1766020478387306801
+- https://x.com/1FRGVN/status/1766020032608227754
+- https://x.com/1FRGVN/status/1766018992202813506
+- https://x.com/1FRGVN/status/1766412512306618714
+- https://x.com/1FRGVN/status/1768008919329198108
+- https://x.com/1FRGVN/status/1768046490272870687
+- https://x.com/1FRGVN/status/1770013466180387194
+- https://x.com/1FRGVN/status/1770385824359608528 -> this was another tactic the stalkers used, posting my own tweets back at me, or liking them so that I would see the messages in order to terrorize me further.
+- https://x.com/1FRGVN/status/1771830853091422337
+- https://x.com/HEncore49002/status/1771577638932328955
+- https://x.com/1FRGVN/status/1770308212945834336
+- https://x.com/1FRGVN/status/1772072527218504061
+- https://x.com/1FRGVN/status/1772071779210498481
+- https://x.com/1FRGVN/status/1772075005066568065
+- https://x.com/1FRGVN/status/1772074205938319624 -> pretty sure there is some sort of bet on.
+- https://x.com/1FRGVN/status/1772059637384151485
+- https://x.com/1FRGVN/status/1772071533839597976
+- https://x.com/1FRGVN/status/1772070689496830409
+- https://x.com/1FRGVN/status/1772062320069398540
+- https://x.com/1FRGVN/status/1772060317524070527
+- https://x.com/1FRGVN/status/1772080804933357870
+- https://x.com/1FRGVN/status/1772255398801576139
+- https://x.com/1FRGVN/status/1772602721276751926 -> apologizing for not being able to go to choir because I am in fear for my life.
+- https://x.com/1FRGVN/status/1773059705549508827 -> Paqui on a fake account. She looks like she wants to kill herself.
+- https://x.com/1FRGVN/status/1773450210930270351
+- https://x.com/1FRGVN/status/1773459307423568301
+- https://x.com/1FRGVN/status/1773488720185798746
+- https://x.com/1FRGVN/status/1773488467281936384
+
+### `@JackChardwood`
+
+It seems the tweets in here are related to romance, i.e. keeping it going.

@@ -67,3 +67,9 @@
 ## Lourdes
 
 - I leave for Lourdes at the end of the month.
+
+## Tweets
+
+### `@1frgvn`
+
+- https://x.com/1FRGVN/status/1794467120207765821

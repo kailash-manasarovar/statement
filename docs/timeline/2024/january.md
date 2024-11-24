@@ -85,6 +85,11 @@
 - Katia gives me her mobile number at some point.
 - I can't believe the women could all be involved and I try to reach out to them.
 
+## Conservatory men
+
+- The weird guy who may be an engineer is always at the conservatory, quite often waiting at the door as I arrive with someone else.
+- One evening, I pass him on the stairs. As I do, I smile at him. His face flashes fear. I tweet about it: https://x.com/1FRGVN/status/1747791280803815621.
+
 ## Nacho follows me around town
 
 - One Saturday, I need to run some errands in Denia.
