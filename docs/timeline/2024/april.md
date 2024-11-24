@@ -14,6 +14,11 @@
 - I'm in a state.
 - However, I know I probably can't trust anyone here.
 
+## I buy an analogue phone
+
+- I go to Orange in Denia to buy a phone that cannot connect to internet so I can't be followed in the way that I have been.
+- The number ends in 007.
+
 ## Constant stalking
 
 

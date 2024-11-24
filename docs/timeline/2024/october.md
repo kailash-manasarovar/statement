@@ -1,3 +1,10 @@
+## Activity in apartment number 18 next door
+
+- The next door apartment is barely used. I've heard people in there maybe twice for no more than a week in nearly three years.
+- There may have been people there for the summers while I was away so I didn't think it odd.
+- From when I arrive back in Denia, there is a lot of activity in this apartment. People coming and going at all times. People talking loudly at night.
+- One night, I hear a woman say in Spanish, "and nothing was ever good enough for her", and I presumed she was referring to me.
+
 ## Bump into Paul again
 
 - On 6th October, my way to the Indian restaurant, I bump into Paul who is having a beer at the Open 24 Market at Plaza Benidorm, the usual place I "bump" into him.
