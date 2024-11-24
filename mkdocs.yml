@@ -123,6 +123,7 @@ nav:
     - Kidney health: evidence/kidneys.md
     - Dark net searches: evidence/dark-net.md
     - Screenshots: evidence/screenshots.md
+    - WhatsApps: evidence/whatsapps.md
   - Personal experience: 
     - Health: personal/health.md
     - Expenses: personal/expenses.md
@@ -172,3 +173,4 @@ plugins:
 validation:
   absolute_links: warn
   anchors: warn
+
