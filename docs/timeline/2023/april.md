@@ -99,6 +99,12 @@
 - She is always wearing a mask and plastic surgical gloves.
 - I guess most people think this is due to ongoing covid fears. I'm not so sure now.
 - One of my classmates thought she was the cleaner.
+- Maria constantly complains about Paqui. She says she is a "bicho raro" and describes how Paqui is always terrorizing her in some way. I wonder if Paqui is being abused by her husband who seemed like a very unpleasant man when he came into the boat club and glared at everyone.
+
+!!! info
+    - I now wonder if Paqui, and all the stalking ringleaders, make their intentions to destroy someone very plain.
+    - I wonder if Maria was referring to Paqui's expressed desire that I kill myself, perhaps.
+
 - Anyway, around this time, Maria is very stressed about the next year's assigned work from the Generalitat and keeps talking about how she is probably going to get a job at the superior conservatory in Valencia.
 - Knowing what I know now, it seems to me this would require some "enchufe", meaning a level of benevolence from those who can pull strings; i.e. Domingo.
 
