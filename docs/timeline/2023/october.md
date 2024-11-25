@@ -24,7 +24,7 @@
 
 - This photo was sent the same time I was receiving tons of fake accounts with women who were clearly being sexual abused in some way, or that was the inference one was supposed to make, including women groomed from innocently sending nudes, or doing innocent photo shoots, to actually doing porn.
 - I was concerned enough to send this pic to the Policia Nacional trafficking email (which is supposed to be anonymous) in October 2024.
-- I got a reply from Denia Police which, at the time of writing, I have not responded to given their total lack of interest when I visited them and my suspicion that I cannot trust them.
+- I got a reply from Denia Police which, at the time of writing, I have not responded to given their [total lack of interest](../2024/february.md#policia-nacional) when I visited them and my subsequent suspicion that I cannot trust them to help me.
 - In chamber music classes, the music is extremely suggestive of what's been going on and I am bravely playing my hand.
 - Piano classes are good and Paqui does a good job of pretending she's neutral.
 
@@ -33,8 +33,8 @@
 - One morning I wake up long before dawn to write a tweet thread about strawberries: https://x.com/1FRGVN/status/1713726935371551010.
 - It blows everyone's mind, I'm sure.
 - When walking to the conservatory, as I pass [this spot](https://www.google.com/maps/@38.8442052,0.1081194,3a,75y,36.63h,77.57t/data=!3m7!1e1!3m5!1sB4ssIdTdFG6H4f6v4cNyeg!2e0!6shttps:%2F%2Fstreetviewpixels-pa.googleapis.com%2Fv1%2Fthumbnail%3Fcb_client%3Dmaps_sv.tactile%26w%3D900%26h%3D600%26pitch%3D12.43052595660501%26panoid%3DB4ssIdTdFG6H4f6v4cNyeg%26yaw%3D36.626678552174724!7i16384!8i8192?entry=ttu&g_ep=EgoyMDI0MTExMy4xIKXMDSoASAFQAw%3D%3D) on the Carrer de Manuel Sanchis Guarner, there's a strawberry on the ground.
-- Incidentally, this is where I saw the fat bloke that had been behaving extremely strangely when me and my friend were at the beach. He had come very close to us (on a pretty empty part of the beach) and been using his phone frantically. Another man, sitting on a chair close to the water, had kept shouting at him to move away.
-- Check out the analytics.
+- Incidentally, this is where I saw the fat bloke that had been behaving extremely strangely when [me and my Tibetan monk friend](../2023/september.md#my-friend-visits) were at the beach. 
+- Check out the analytics to see how many people translated this tweet.
 
 ![Strawberry post analytics](../../content/tweets/strawberry-post-analytics.png){width=65%}
 
@@ -51,7 +51,7 @@
 
 ## Rocio Vidal
 
-- In the Google search results of `jctot19 x` I now see a picture of Rocio Vidal. It is still there, even today.
+- In the Google search results of `@jctot19 x` I now see a picture of Rocio Vidal. It is still there, even today.
 
 ![Rocio Vidal in Google search](../../content/images/Rocio-Vidal-on-Google-search.png){width=65%}
 
@@ -59,8 +59,8 @@
 
 - Rocio Vidal is a famous YouTuber in Spain.
 - I've been reliably informed that she was hacked.
-- At some point, on fake accounts, I saw pictures of her sitting on a bed about to take off her clothes.
-- I believe the picture posted here is when she "finds out" that she was filmed secretly, or that she agreed to be filmed and those recordings were going to be used in some sort of blackmail. She looks upset. I could be wrong.
+- At some point, on fake accounts, I saw pictures of her sitting on a bed, looking at someone who is filming her and she is about to take off her clothes.
+- I believe the picture posted here is when she "finds out" that she was filmed secretly, or that she agreed to be filmed, and those recordings were going to be used in some sort of blackmail. She looks upset. I could be wrong.
 - The `@jctot19` account has interacted a lot with Rocio Vidal's account `@SchrodingerGata` and I saw a lot of this interaction when I was able to see it prior to Elon locking down in July. 
 
 ## Telecommunications shop
@@ -84,7 +84,7 @@
 
 ## My car is damaged on the Montgo
 
-- I go walking on the Montgo, the mountain that overlooks the town, one Saturday, on the 14th October.
+- I go walking on the Montgo, the mountain that overlooks the town, on Saturday 14th October.
 - Usually I go to the top, but something told me to come back early which I did. I'm unusually concerned about my car.
 - As I'm coming back, I bump into a good-looking man who has three large hunting dogs with him. I'm about 5 minutes away from my car at that point.
 - As I get into my car, I notice the people at the gun club looking at me in a strange way.
@@ -95,20 +95,19 @@
 
 ## First letter to the Generalitat
 
-- Letters to the Generalitat Valenciana have been appearing on Google search `@jctot19 x`.
+- Letters to the Generalitat Valenciana have been appearing on Google search `@jctot19 x` and this puts an idea in my head.
 - I would rather leave the police out of things unless it got extremely serious.
 - I decide to write a letter of complaint to the Generalitat.
 - I look up all the important people I can find and send it to them via email. 
 
-    - [Letter in Spanish](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf)
-    - [Letter in English](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20EN.pdf)
-    - [Proof of sending](../../content/documents/letters/3.%20Proof%20of%20first%20emailed%20letter%20to%20Generalitat%20Octo%2023.png)
-    - [List of recipients](../../content/documents/emails/list-of-recipients.png)
+    - [Letter in Spanish](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf).
+    - [Letter in English](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20EN.pdf).
+    - [Proof of sending](../../content/documents/letters/3.%20Proof%20of%20first%20emailed%20letter%20to%20Generalitat%20Octo%2023.png).
+    - [List of recipients](../../content/documents/emails/list-of-recipients.png).
 
-- I receive no reply at all. 
-- In fact, I write again, a few times, to the GV and I never receive a reply.
+- I receive no reply at all, ever, not even a notification that my letter was received.
+- In fact, I write again, a few times, to the GV and I never receive any reply from them.
 - Given the seriousness of what I'm saying, it's more than weird that no-one replied to me.
-- Eventually they will tell me they didn't have my address and they sent something by post at the end of December (! December) that got sent back to them. But I communicated with them via email so that is pure male-bovine excretions.
 
 ## Hazel outside the conservatory
 
@@ -117,22 +116,22 @@
 - I was leaving the conservatory not long after that, and she was outside with a man.
 - It's interesting because I never once mentioned her name on Twitter or any details that anyone except her would recognize.
 - So I was certain then that she was involved in the current gang stalking. I wonder if she has been involved in the ongoing spiking/poisoning, or even the 2014 threat of poisoning from Domingo. It's certainly worth considering.
-- Is it possible for the most evil people in a small town to be introduced to something so abhorrent but yet utterly addictive which then gives the poisoners utmost power over everyone? Is that the underlying nature of this story? I hope not, but I would not be surprized if it was.
+- Is it possible that the most evil people in a small town could have been introduced to something so abhorrent, but yet utterly addictive, which gave them utmost power over everyone? Is that the underlying nature of this story? I hope not, but I would not be surprised if it was.
 
 ## Porn intensifies
 
 - The amount and nature of the porn that I'm seeing on my timeline intensifies. 
 - There is a lot of artistic porn which is kind of interesting and a lot of cartoon, film, photographic, fake accounts, and textual porn.
-- It's full on.
-- I now believe that, along with water is in the water at my home, the sexual grooming by hackers is intensifying.
+- It's full on. A lot of it suggests violence, there's gay porn, all sorts. It's just insane.
+- I now believe that, along with water is in the water at my home, the sexual grooming by hackers is intensifying and the porn I'm seeing is part of that.
 
 ## Halloween
 
 - Alex, John, Paul, and I agree to go out for Halloween, a kind of remake of our evening all those years ago.
 - The whole town knows I'm coming out but I was never clear about that on Twitter.
 - I'm stopped for photos as I walk to the bar where we're going to meet.
-- The others lead the way and we end up in the Irish bar on the Calle La Mar.
 - Prior to arriving, John has appeared a little fearful and wanted to go and find the tail I had lost from my cow costume. He said, "why don't you come with me Katie". What was he afraid of?
+- The others lead the way and we end up in the Irish bar on the Calle La Mar.
 - Once inside, we "bump into" this very dodgy French bloke who says he studies guitar at the conservatory and wants to know things about me. 
 - A young man with him dressed as the joker is quite menacing towards me.
 - I sing a song, a cockney song, You Made Me Love You, which blows their minds a little.

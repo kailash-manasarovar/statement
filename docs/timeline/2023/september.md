@@ -1,9 +1,8 @@
 ## Going public on Twitter
 
 - There had been some suggestion something awful was going to happen to me on the 4th September at home in Spain, possibly that I would be arrested but I didn't know what for.
-- I assumed it would be something to do with my angry tweets about Domingo from May that I had deleted.
-- I assumed it would be something to do with my views on trans.
-- I realized that there had been a girl who thought she was a boy at the conservatory and her name was Silvia.
+- I innocently assumed it would be something to do with my angry tweets about Domingo from May that I had deleted, and related to my views on trans.
+- I realized that there had been a girl who thought she was a boy at the conservatory and her name was indeed Silvia.
 - https://x.com/1FRGVN/status/1697905359208296533
 - https://x.com/1FRGVN/status/1698121721457365343
 - https://x.com/1FRGVN/status/1698016819951423781
@@ -13,14 +12,14 @@
 
 - Well known feminists reach out to me to see if they can help.
 - I cannot be clear with them about what the Denia hackers are going to do because it is all suggestions from ramped up threats online.
-- They decide unilaterally I'm lying and not to be trusted.
-- One, in particular, upsets me enormously by telling me, "you're not being hacked", as if it's all in my mind.
-- I realize that feminists can be as misogynist as everyone else at that moment.
-- It was extremely upsetting and eyeopening.
+- They decide unilaterally I'm lying and that I'm not to be trusted.
+- One, in particular, upsets me enormously by telling me, "you're not being hacked", as if it's all in my mind or I'm lying. This was extraordinarily triggering.
+- I realize that feminists are as misogynist as everyone else. I knew that anyway.
+- Nevertheless, it was extremely upsetting and eyeopening.
 
 ## Arriving home
 
-- When I got home, an account had followed me, **kaka**, with a profile message that said: "For an immature boy, bad companions play a much greater role than good teachers." 
+- When I get home, I see an account has followed me, **kaka**, with a profile message that said: "For an immature boy, bad companions play a much greater role than good teachers." 
 
 ![Admission of guilt](../../content/images/admission%20of%20guilt.png)
 
@@ -38,9 +37,9 @@
 - Pedro is a bit pervy, you see.
 - The leaks stops and/or is intermittent.
 - The following June, my garage in North London fix a broken motor in the window washer function of my car and tell me there's no leak at all.
-- I believe Pedro may be involved in adding narcotics to my car in some way, or knows about because if anyone tampered with my car in the garage, he would know.
+- I believe Pedro may be involved in adding narcotics to my car in some way, or knows something because if anyone tampered with my car in the garage, he would know.
 - I wondered if they managed to add something to come through the air vents, or something I could touch on the door handles maybe.
-- I believe any of the caretakers at Carrer Furs 15 will be able to tell the police how criminals have able to add poison and narcotics to the water of my apartment.
+- I believe any of the caretakers at Carrer Furs 13-15 will be able to tell the police how criminals have been able to add poison and narcotics to the water running into my apartment.
 - I told Pedro that I had been filmed sexually and I would pay 500 euros for any recordings.
 - He was fired soon after.
 
@@ -48,17 +47,18 @@
 
 - Pedro had always been really keen to tell me about the water pipes coming into the flat and the fact that they were broken.
 - I had raised this with the landlady in July 2023 when I was going away for the summer but she ignored me.
-- I raised it again in 2024. She ignored me again.
-- On the day Pedro was fired, and showing the new caretaker around the apartments, he took pains to tell me that the water pipes were not only broken outside my door (see picture below) but also at the ground floor level where the mains water is distributed to all the flats in the building.
-- He pointed out that every pipe was fine, except mine.
-- And it's curious that at both places you can cut off the mains water into my apartment, it is impossible to do so.
-- Basically, you cannot close off the water pipes to my flat. The water pipe outside the door is broken, and so is the one at the bottom of the building. They are broken in exactly the same way too. So there is no way to close off the water coming from the mains.
-- I wonder if this is because, if you are poisoning someone, perhaps in a drip-feed type manner, and they can close off the pipes when they leave the building, then the poison, or narcotic, or whatever, could collect in large doses and kill someone instantaneously. 
-- I wonder if that's happened before. I wonder if that's why there is a specific clause about me dying in the apartment in my tenancy agreement. Could the people of Denia be that evil?
+- I raised it again in 2024 on WhatsApp and sent her a picture. She said "perfecto".
 
 ![The broken water pipe outside my apartment](../../content/images/water-pipes.JPG){width=65%}
 
+- On the day Pedro was fired, and he was showing the new caretaker around the apartments, he took pains to tell me that the water pipes were not only broken outside my door (see picture below) but also at the ground floor level where the mains water is distributed to all the flats in the building.
+- He pointed out that every pipe was fine, except mine. He was very insistent I knew about this. He hadn't been previously.
+- It's curious that at *both* places you can cut off the mains water into my apartment, it is impossible to do so.
 - Even though the water pipe is closed off in the picture, it continues to run into my house.
+- Basically, you cannot close off the water pipes to my flat. The water pipe outside the door is broken, and so is the one at the bottom of the building. They are broken in exactly the same way too. So there is no way to close off the water coming from the mains.
+- I wonder if this is because, if you are poisoning someone, perhaps in a drip-feed type manner, and they can close off the pipes when they leave the building, then the poison, or narcotic, or whatever, could collect in large doses and kill someone instantaneously. 
+- I wonder if that's happened before. I wonder if that's why there is a specific clause about me dying in the apartment in my tenancy agreement. 
+- Could the people of Denia be that evil?
 
 ## Men outside with handheld devices
 
@@ -74,9 +74,9 @@
 
 - It's hot and I go to the beach every day in the afternoon.
 - I'm followed up and down the beach every day by the same group of people that I begin to recognize each day.
-- There is a couple, a woman and man, who I see every day milling around me. The man is bald and is wearing dog tags. He has his back to me usually and has his dog tags hanging behind on a chain.
+- There is a couple, a woman and man, who I see every day milling around me. The man is bald and is wearing dog tags. He has his back to me usually and has his dog tags hanging down the back of his neck on a chain.
 - The woman is in her early 50s. I'd recognize her face again. One day I smiled at her and she got really scared, really quickly, and I knew.
-- These two were at the piano concert at the Casa de Cultura on 8th March 2024.
+- These two were at the [piano concert](../2024/march.md#tuesday-12th-march) at the Casa de Cultura on 12th March 2024.
 - One afternoon, I'm walking back along the beach and there's a group of young men sitting on chairs. The couple I've just mentioned is with them.
 - As I walk past, the young men start making sexual moaning noises and touching themselves on their chests.
 
@@ -88,6 +88,8 @@
 - https://x.com/Smurfcatbsc is a copy of the original.
 - Smurf cat's hat is like mine that I wear to the beach.
 
+![Smurf cat's hat](../../content/images/smurf-cat-hat.png){width=65%}
+
 ## Stones thrown at me
 
 - One Saturday I go hiking on the mountain.
@@ -98,18 +100,20 @@
 
 - My friend the Tibetan monk visits for a few days in September.
 - He came at my request when I was being terrorized online and I was very scared and stressed.
-- We are followed along the beach by a group of men who behave extremely strangely. I would remember them again, and I saw one of them in town and I saw two of the others in the laundry one day. 
-- One man, bald, 50s, was sitting on a normal chair close to the water.
-- Another man, dark, fat, wearing khakis and a white vest was roaming around, and he even came right up to where we were sitting and lingered around.
+- We had a marvelous few days together.
+- However, one afternoon we are followed along the beach by a group of men who behave extremely strangely. I would remember them again, and I saw one of them in town and I saw two of the others in the laundry one day. 
+- One man, bald, 50s, was sitting on a chair close to the water.
+- Another man, younger, 40s, dark, fat, wearing khakis and a white vest was roaming around, and he even came right up to where we were sitting and lingered around us close.
 - The bald man started to shout at him to move away. He didn't. He was furiously typing on his mobile phone.
 - My friend will remember all this as it was extremely odd.
-- I stood up to protect our spot somehow and I saw a man walking down the beach towards the town who looked like the trumpet teacher (but wasn't).
-- On another occasion we became embroiled in choreographed intrigue.
+- I stood up to protect our spot somehow and I saw a man walking down the beach towards the town who looked like the trumpet teacher (but wasn't probably, just the same build, too young again).
+- On another occasion we became embroiled in choreographed intrigue involving teachers from the conservatory.
 - Coming back from Las Rotas, when we got off the bus, Ana the violin teacher "bumps" into us. She's extremely angry. I know it's another choreographed deceit and I know it's all intended for me to see and wonder about, and get stressed about.
 - She's timed to meet us at exactly the right moment, and we have been constantly moving through the town and on public transport.
 - They knew exactly where I am at any given moment.
 - This could only be the case if they had full access to my mobile phone including the location function.
-- During this time, there is much content related to "pandas" on my account and this, and consequent messages, leads me to believe that this is how they are referring to my friend.
+- We see Paqui Fornet too one afternoon. I say "hi" and she ignores me.
+- During this time, there is much content related to "pandas" on my account and this, and consequent messages, leads me to believe that this is how they are referring to my Tibetan friend.
 
 ## Alex and Paul
 
@@ -118,7 +122,8 @@
 - I meet Alex and tell her everything that's been happening. I must appear extremely stressed and anxious.
 - Myself, Paul, and Alex meet for coffee soon after.
 - Paul tells me rather private things that I suspect the stalkers are hoping I'll tweet about.
-- I meet Alex a few times over the next months until March 8th and then I don't really hear from anyone again, apart from Paul who I continue to "bump" into at the Open Market where he's having a beer from time to time.
+- I meet Alex a few times over the next months until around March 12th and then I don't really hear from anyone again, apart from Paul who I continue to "bump" into at the Open Market where he's having a beer from time to time.
+- These meetings are obviously pre-arranged by others in order to get information from me.
 - We arrange to meet for Halloween as we had done in 2007.
 - Every time I meet them, people turn up immediately and sit right beside us. I know they're listening to everything we say.
 - I now remember that one of these people was likely [the man with Ana on the Montgo in May](../2024/may.md#climbing-the-montgo).
@@ -130,6 +135,7 @@
 - I meet Christine BJ for lunch and tell her everything that's been going on.
 - I tell her I think the engineer who is hacking me is called David.
 - I'm upset when she laughs at me in a jeering manner when I tell her that the teachers threw dirty water on me from an upstairs window.
+- She's really quite blaze about it all and rather dismissive. This continues to be her stance as the terror progresses.
 - I realize there's really very few people I can trust, if anyone.
 
 ## Gypsy serenades through the tunnel
@@ -137,6 +143,9 @@
 - Every time I walk through the tunnel, there is a gypsy busker playing music related to everything that has gone on with the trumpet teacher.
 - One day, three gypsies stand at the end of the tunnel and the young woman sings loudly at me about a lucky frog in a box, and other stuff related to what's been going on.
 - I recognize the young woman from an account that followed me on Twitter `@JackChardwood` over the summer when the hacking and stalking was intensifying. The account had a name that included "Suarez".
+- This is a more recent fake account with her picture in:
+
+![Gypsy singer](../../content/images/fake-accounts/townsfolk_1.png){width=65%}
 
 ## Year 4 professional piano begins
 
@@ -146,17 +155,17 @@
 
 ## Chamber music
 
-- The conservatory classes begin again and I'm put with two singers.
+- The conservatory chamber music classes begin again and I'm to accompany two singers.
 - Katia is, apparently, a friend of Ana and she play acts being really angry with me throughout the course.
-- I write to her eventually as she gives me her mobile phone number.
+- I write to her eventually after she gives me her mobile phone number in December.
 
 ## Harmony classes
 
 - We have a new teacher, Alfonso, for harmony.
 - One afternoon I see him following me around Denia.
-- Everyone knows what's been going on and has been invited to join in.
-- I wonder what they've been told about me that would make them so eager to terrorize me, or whether it's just something they enjoy doing to random people from time to time.
-- I now wonder if anyone knows about the sexual grooming and the danger to minors. I hope they don't but you never know.
+- It's clear that everyone knows what's been going on and has been invited to join in terrorizing the female target of the moment.
+- I wonder what they've been told about me that would make them so eager to terrorize me, or whether it's just something they enjoy doing to random people (women and girls) from time to time.
+- I now wonder if they were always aware of the sexual grooming and the danger to minors.
 
 ## Piano classes
 
@@ -165,15 +174,12 @@
 
 ## Choir
 
-- We have a new teacher for choir, Salva Tur.
-- When I introduce myself as he's going around the class, he grins at me, "oh, you're Katharine", he says sheepishly.
+- We have a new teacher for choir, Salva Tur, an unpleasant man who thought we would like to hear his voice for 1 hour and 50 minutes of each class and then do 10 minutes of singing. 
+- The choir course, aside from the bullying, was excruciatingly boring.
+- When I introduce myself as he's going around the class, he grins at me in a knowing way, "oh, you're Katharine".
 - A little later he starts singing "it's too good to be true".
 - That evening on Twitter, an account named Salva, posts a dick pic.
-- I mention [dick pics on Twitter in January 2024](https://x.com/search?q=dick%20pic%20(from%3A1frgvn)&src=typed_query&f=live), right before choir class.
-- About half an hour into the class, Salva's WhatsApp beeps and he looks at his messages.
-- Suddenly, he's enraged and he makes a fool of himself by talking about terrible things that happen to people. 
-- I'm appalled at his behavior in class. He says things that would make parents stop their children coming to his class if they knew.
-- I also know someone had sent him my posts at that moment and, due to the guilt, he became uncontrollably enraged.
+- I mention [dick pics on Twitter in January 2024](../2024/january.md#dick-pics-from-the-choir-master), right before choir class.
 
 ## Apes beating their chests
 
