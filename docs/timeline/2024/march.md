@@ -1,6 +1,7 @@
-## An inspector from the Generalitat comes to piano lesson
+## Tuesday 5th March piano lesson
 
-- It's Tuesday 5th March 2024.
+### An inspector calls
+
 - I arrive at my piano lesson and, after a minute or two, all of a sudden, a woman enters the classroom.
 - Paqui explains the woman in an inspector from the Generalitat and she is here to help me.
 - I feel like it's probably an ambush and put my phone on record.
@@ -13,9 +14,9 @@
 - I mention that I sent the notices by email and that my address is in the systems and that they could have asked, or informed me, at any time.
 - She ignores me.
 
-    - [Document receipt copy with date info](../../content/documents/gv/8.%20Receipt%20date%20received%205%20March%20at%20piano%20lesson.JPG)
-    - [The document receipt](../../content/documents/gv/8.%20Receipt%20of%20something%20from%20the%20Generalitat%201%205%20March%202023.jpeg)
-    - [A part of the document they apparently sent](../../content/documents/gv/8.%20Receipt%20of%20something%20from%20the%20Generalitat%202%205%20March%202023.jpeg)
+    - [Document receipt copy with date info](../../content/documents/gv/8.%20Receipt%20date%20received%205%20March%20at%20piano%20lesson.JPG).
+    - [The document receipt](../../content/documents/gv/8.%20Receipt%20of%20something%20from%20the%20Generalitat%201%205%20March%202023.jpeg).
+    - [A part of the document they apparently sent](../../content/documents/gv/8.%20Receipt%20of%20something%20from%20the%20Generalitat%202%205%20March%202023.jpeg).
 
 - Paqui looks nervous.
 - I ask her for the content of the letter which I do not see.
@@ -50,7 +51,7 @@
 - He goes to talk to a local police officer and comes back.
 - He says I cannot raise anything with them as I don't have a partner and they only deal with male violence when it occurs within a partnership.
 
-## Human Rights
+## Human rights
 
 - I don't know what to do, where to turn, who to ask for help.
 - The Policia Nacional are disinterested, the local police don't want to know, the Generalitat is suggesting they are going to have me arrested for being a victim of cyber stalking and gang stalking and talking about it on Twitter, it's overwhelmingly stressful.
@@ -64,6 +65,21 @@
 ![Human rights fake account](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-08%20at%2008.35.00.png)
 
 - I was able to finally communicate with the ECHR when I was in Brussels in July: https://x.com/1FRGVN/status/1811523447123558841.
+
+## Hackers reference payments I have made
+
+- I start to see references to payments I have made online, exact figures, and sometimes even mentions of the payee.
+- One was in reference to a charity gift I gave to a Twitter account.
+- Another remarkable one was related to a monetary gift I sent to my monk friend of 333 euros.
+- As you may remember, they refer to the monk as "panda". Here are some screenshots.
+
+![Panda 333](../../content/tweets/panda-333-1.png)
+![Panda 333](../../content/tweets/panda-333-2.png)
+![Panda 333](../../content/tweets/panda-333-3.png)
+![Panda 333](../../content/tweets/panda-333-4.png)
+![Panda 333](../../content/tweets/panda-333-5.png)
+![Panda 333](../../content/tweets/panda-333-6.png)
+![Panda 333](../../content/tweets/panda-333-7.png)
 
 ## Change root password
 
@@ -94,7 +110,7 @@
 
 - He says this is enough evidence of hacking through the router for them to lock me down and reformat my laptop.
 - I have to work somewhere else while I get a new router and change the ISP from Yoigo to Movistar.
-- They put the FalconSensorMacOS.MaverickGyr.pkg on both my work and my personal laptop.
+- They put the FalconSensorMacOS.MaverickGyr.pkg on both my work and my personal laptop. The files are [here](../../content/files/locking.zip).
 - A few hours later, a stalker account tweets about 11.11 and references relationships.
 
 ![Tweet about 11:11](../../content/images/hacked-work-laptop/stalker-account-mentions-it.png){width=65%}
@@ -103,7 +119,7 @@
 
 ![Tweet about 11:11](../../content/images/hacked-work-laptop/router-hack-tweet.png){width=65%}
 
-- At this point, I block all my cameras on laptops and phones. 
+- From this point, I block all my cameras on laptops and phones with post it notes, or paper and sticky tape. 
 
 ## Nowhere
 
@@ -145,27 +161,38 @@
 - It's good timing.
 - Some drugs make your bones thinner and make it more likely to experience this sort of thing.
 
-## Serious threat to my life and mental/emotional wellness from the piano department at Denia conservatory
+## 12th March - serious attack on my wellbeing from the piano department at Denia conservatory
 
-- On March 12th, there is a end of term piano concert at the Casa de Cultura in Dénia.
-- It's a huge set up, all meant to terrify me
-- All the pieces at the concert are related to things I have said on Twitter or in letters asking for help that were ignored
-- People are coming in to listen, and they look at me and smile
-- I recognise a couple as two people I saw on the beach following me and part of the group of people making sexual noises the February before
-- At 7.30, the concert begins
-- The door opens and in walks a woman who has dressed to look like Lorraine Blackbourn my friend who committed suicide
-- She has done a really good job of looking like her
-- At the same moment, my security camera at home goes off and makes an alarm on my phone. I don't have time to look
-- The woman dressed as Lorraine (who I believe now is Carmen Cano, Domingo's sister) and a man sit directly behind me, seats have been saved for them
-- When I got home, I checked my camera. At 7.30pm, recorded on my security camera, you can hear a group of men making ghost noises
-- I'm blocked from downloading the videos of the concert on the system.
+- On Tuesday 12th March, there is a end of term piano concert at the Casa de Cultura in Dénia.
+- It's a huge set up, all meant to terrify me, probably give me a nervous breakdown, and maybe kill myself too.
+- Each piece the kids play at the concert is related to things I have said on Twitter, or in letters to the Generalitat asking for help that were ignored.
+- There are pieces with names like Mercedes (this is a horribly aggressive piece that Antonio Signes Argudo plays very well), aunts ([poison aunts](../early-years/2014.md#back-in-denia)), and other related things.
 
-## Coinbase
+![Poisoned aunt](../../content/tweets/poisoned-aunt.png){width=65%}
 
-- That evening I lose access to my Coinbase account with 70K in it.
-- It's not clear if I've locked it myself or it has been breached by hackers.
+- Before we begin, people are coming in to listen. Many of them look at me and smile.
+- I recognize a couple as [two people I saw on the beach](../2023/september.md#people-on-the-beach) following me and part of the group of people making sexual noises the September previous.
+- At 7.30, the concert begins.
+- At that moment, the lights go down, and the door to the hall opens, and in walks a woman who has dressed to look exactly like Lorraine Blackbourn, my friend who committed suicide.
+- She has done a really good job of it too. I gasp, in fact.
+- At precisely that moment, my security camera at home goes off and sounds an alarm on my phone. I don't have time to look.
+- The woman dressed as Lorraine (who I now believe to be Carmen Cano, Domingo's sister) and a man sit directly behind me, in seats have been saved for them.
+- Trish Penny, Christine BJ, and another English woman have come to listen. They maybe know what's going on, it's not clear. Certainly there is a frosty feeling, and when we walk out and I insist I'm going to continue playing the piano, and play some Spanish flamenco songs, Trish visibly grimaces.
+- When I get home that night, I check my camera security camera. At 7.30pm, recorded on my security camera, you can hear a group of men making ghost noises; "woooo-woooo". 
 
-## Talking to the translator
+![Screenshot of the security cam alarm pic](../../content/documents/evidence/12-march-alarm-notification.jpeg){width=65%}
+
+- After the concert, I'm blocked from downloading the videos of the concert on the Generalitat's systems.
+
+## My crypto account
+
+- I lose access to my Coinbase crypto account.
+- I don't know if they have stolen 70K from me or not.
+- My account is completely locked.
+- I'm really concerned about this.
+- I tweet about it: https://x.com/1FRGVN/status/1768093834188087798.
+
+## 13th March - talking to the translator
 
 - I get a translator to help me deal with the police.
 - After my experience with the [police in Denia in February](february.md#policia-nacional), I believe I need firm proof of hacking before I can go to them.
@@ -173,7 +200,7 @@
 - On the Guardia Civil website there's a list of experts who analyze devices for hacking for the police.
 - We look one up. My translator phones him, a perito in Alicante, Jorge. He sounds like he's totally stoned.
 
-## Choir on the 13th
+## Choir class on the 13th
 
 - I turn up to choir class the next day
 - The teachers and the adult staff are angry with me
@@ -185,6 +212,15 @@
 - The choir repertoire includes a song about domestic violence
 - That night I become extremely anxious and scared.
 - On my way home, through the tunnel, a man comes at me and blows in my face.
+
+## Chest infection
+
+- I get very unwell after choir class, a cold which becomes a chest infection.
+- It doesn't get better, it gets worse and worse.
+- I'm extremely unwell in Madrid, I can hardly talk.
+- Eventually, in India in the first week of April, I'm prescribed hardcore antibiotics and medicine for pleurisy.
+- It's not before I snap a rib from coughing.
+- The medication works and I recover.
 
 ## Practice on the 14th
 
@@ -208,26 +244,9 @@
 - The following morning I am severely anxious. I'm bumping my head on things. I have to go to town. I am terrorized the whole way in and out. I feel horrendous.
 - I believe I was on serious drugs at this point.
 
-## My crypto account
+## Thursday 14th March
 
-- I lose access to my crypto account.
-- I don't know if they have stolen 70K from me or not.
-- My account is completely locked.
-- I'm really concerned about this.
-- I tweet about it: https://x.com/1FRGVN/status/1768093834188087798.
-
-## Chest infection
-
-- I get very unwell after choir class, a cold which becomes a chest infection.
-- It doesn't get better, it gets worse and worse.
-- I'm extremely unwell in Madrid, I can hardly talk.
-- Eventually, in India in the first week of April, I'm prescribed hardcore antibiotics and medicine for pleurisy.
-- It's not before I snap a rib from coughing.
-- The medication works and I recover.
-
-## Madrid
-
-- I go to Madrid and stay from 15-24th March.
+- In fear, I leave Denia to go to Madrid and I stay from 14th-24th March at the AC Hotel Atocha by Marriot.
 
 !!! important
     - My hotel costs run into the thousands but I feel I have no choice.
@@ -242,25 +261,36 @@
 - I tell them I believe that Domingo and his family are planning to murder me.
 - I remind them of what he told me all those years ago, something that I had told them at that time.
 
-## Denuncia Madrid
+## 15th March - reporting the matter to the police in Madrid
 
 - With the help of a friend I made a proper denuncia to the police in Madrid.
-- They tell us I need to get an expert to examine my devices in order to prove I've been hacked.
+- The report goes well, although I am finding it very difficult to think straight and my friend's translations and the consequent additions to the denuncia documents are not quite right.
+- I start to show the police officer the picture of me in my pants.
+- At that moment, the conversation is somewhat shutdown and she tells us that before they can investigate I need to get a cyber expert to examine my devices in order to prove I've been hacked.
 - I'm astonished.
 
-## Expert
+## Cyber expert
 
-- We do some research into getting my devices examined for hacking.
-- It can cost thousands.
-- We find an expert in Alicante who is reasonable.
+- We do some research into getting my devices examined for hacking so that I can amplify my report to the police.
+- We find out to have this done can cost thousands.
+- We find an expert in Alicante who is reasonable, and quote 600 euros for a laptop, phone, and two webcams.
+- My friend helps me [write a letter](../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf) to David Piñeiro, at D.P.R., Arzobispo Loaces, 17, Local 1 - 2, 03003 Alicante.
+
+## 17th March - email to Paqui
+
+- I [email Paqui](../../content/documents/emails/Letter%20to%20Paqui%2017:3.pdf) about the concert and subsequent events. She does not reply.
+- Her silence speaks a thousand words.
+- I realize I am indeed not safe so I excuse myself from classes following the week of Fallas which means public holidays in the Valencia region.
+
+![Excusing myself from class](../../content/documents/papeles-conservatorio/excusing-myself-from-class.png){width=75%}
 
 ## Valencia
 
-- I go back to Valencia and stay in hotels.
-- I have a flight scheduled from Valencia to India at the end of the month so I need to be back in Valencia.
-- In Valencia I feel like I am being constantly watched, people know who I am, and everything is extremely unfriendly. I believe now this is to do with whatever drug they gave me prior to me leaving, which was a high dose, and it has made me paranoid.
-- Or I really was being watched everywhere I go as part of national violence against women networks.
-- I was extremely paranoid and constantly stalked on Twitter.
+- I return to Valencia on the 24th March and stay in the Barcelo from 24th-27th, and then the Holiday Inn Express near the airport from 27th-29th March.
+- I have a flight scheduled from Valencia to India on 29th March returning on Saturday 6th April so I need to be back in Valencia.
+- In Valencia I feel like I am being constantly watched, that people know who I am, and everything is extremely unfriendly and unpleasant. I believe now this is to do with whatever drug they gave me prior to me leaving, which was a high dose, and it has made me very paranoid.
+- I wonder also if they managed to re-dose me somehow, or was the damage done at that point.
+- I was extremely paranoid and constantly stalked by fake accounts on Twitter.
 
 ## Tweets
 

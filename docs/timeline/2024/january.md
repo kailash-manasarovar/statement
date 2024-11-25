@@ -56,6 +56,11 @@
 - It's very weird. I realize now it was all completely planned and set up.
 - I immediately stop communicating with him and delete the twitter account I had created.
 
+## I buy an iPhone
+
+- I take a colleague's advice and buy and iPhone in the hope it will impede hackers.
+- Copy of the [confirmation from Apple](../../content/documents/evidence/iphone-bill.png){width=65%}.
+
 ## Ana and Ana
 
 - Ana Girbes starts taking a role in the bullying at the conservatory. She makes herself visible and she is always glaring at me furiously whenever I see her. I have no idea why.
