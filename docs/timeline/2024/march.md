@@ -144,11 +144,6 @@
 
 - I get a desk at Nowhere co-working space in Denia: https://www.knowheredenia.com.
 
-### Bank cards
-
-- At this point, I believe (to double check), I request new bank cards for my Spanish accounts.
-- They arrive pretty quickly.
-
 ## Sunday 10th March
 
 ### Text my family at the Chinese
@@ -291,6 +286,7 @@
 - I explain I'm being terrorized and by whom. I try to keep it calm because my parents are elderly, and I don't know how things are with them. I don't want to upset them too much.
 - I tell them I believe that Domingo and his family are planning to murder me.
 - I remind them of what he told me all those years ago, something that I had told them at that time.
+- While I'm in Madrid I reformat to factory settings both my Mac and iPhone. It doesn't appear to make any difference at all.
 
 ## 15th March
 
@@ -314,20 +310,11 @@
 - We find an expert in Alicante who is reasonable, and quote 600 euros for a laptop, phone, and two webcams.
 - My friend helps me [write a letter](../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf) to David Piñeiro, at D.P.R., Arzobispo Loaces, 17, Local 1 - 2, 03003 Alicante.
 
-## 16th March
-
-### Changing card PIN numbers
-
-- I change the card PIN numbers on my bank cards.
-- This process is extraordinarily difficult, as if I don't have the mental capacity to do a simple task like this.
-- It takes me three or four trips to the ATM machine at the banks to finally do it.
-- I'm so unbelievably stressed, simple tasks like this are becoming extraordinarily difficult to complete.
-
 ## 17th March 
 
 ### Email to Paqui
 
-- I [email Paqui](../../content/documents/emails/Letter%20to%20Paqui%2017:3.pdf) about the concert and subsequent events. She does not reply.
+- I [email Paqui](../../content/documents/emails/Letter%20to%20Paqui%2017:3.pdf) about the concert and subsequent events. I want her to clarify why I should feel in fear about going to the conservatory. She does not reply.
 - Her silence speaks a thousand words.
 - I realize I am indeed not safe so I excuse myself from classes following the week of Fallas which means public holidays in the Valencia region.
 
@@ -386,6 +373,29 @@
 - Gone fission I took to refer to a conversation I had with Christine BJ at lunch where I was explaining how being stalked like this felt. This was back in probably November 2023 sometime. I had said that I believe the trumpet teacher was going to be the man I married and that he was doing the "if he likes you he treats you badly" thing to nuclear fission levels.
 
 ![march threats](../../content/images/threats/march-threats-10.png){width=65%}
+
+- An account called `@HierEncore49002` converses with me on Twitter. Peppered throughout the chat are threats and references to jail, drugs, and poisoning. Here's the search: https://x.com/search?q=%20%20(from%3AHEncore49002)%20(to%3A1frgvn)&src=typed_query&f=live and following are some examples.
+
+![hier encore threatening chat](../../content/images/threats/hier-1.png){width=65%}
+![hier encore threatening chat](../../content/images/threats/hier-2.png){width=65%}
+![hier encore threatening chat](../../content/images/threats/hier-3.png){width=65%}
+
+- Interesting deleted reference. I'll try and remember what it was.
+
+![hier encore threatening chat](../../content/images/threats/hier-4.png){width=65%}
+
+- I believe this account, like many others, is manned by either Hazel or Sandra Smith together with Domingo and Carmen Cano by delegation. The reason I say that is because the English is extremely fluent, very vernacular for some messages, and then not at all.
+
+## 19th March
+
+### Changing card PIN numbers
+
+- I order a new Openbank card but I won't be able to use it until I get back to Denia in April.
+- I decide to change the card PIN numbers on my bank cards in Madrid.
+- This process is extraordinarily difficult, it is as if I don't have the mental capacity to do a simple task like this.
+- It takes me three or four trips to the ATM machine at the banks to finally do it, a whole day in fact.
+- I'm so unbelievably stressed, simple tasks like this are becoming extraordinarily difficult to complete.
+- I'm not at home, and I haven't been at home for 5 days so I wonder now what is continuing to impede my cognitive ability so much.
 
 ## 24th March
 

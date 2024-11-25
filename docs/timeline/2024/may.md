@@ -1,3 +1,7 @@
+## Hazel Smith on Twitter
+
+- https://x.com/1FRGVN/status/1785410648802734485
+
 ## The laundry
 
 - I go to the laundry to dry my clothes.

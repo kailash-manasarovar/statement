@@ -61,6 +61,7 @@
 - His message says: "I hope you find an excellent plastic surgeon for your face."
 
 ![Threat of violence from Mark Mosely account](../../content/images/threats/threat-1.png){width=65%}
+![Threat of violence from Mark Mosely account](../../content/images/threats/mark-mosely-tweet.png){width=65%}
 
 - He says something else threatening about me which I didn't save at the time.
 

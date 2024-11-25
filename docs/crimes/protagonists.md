@@ -1,3 +1,6 @@
+!!! tip
+    - See the [list of teachers here](../timeline/early-years/2015.md#first-class-of-january) and their twitter (fake) account pics.
+
 ## Domingo and Carmen Lopez Cano
 
 - Key figures in the attacks.
@@ -39,3 +42,4 @@
 
 - `@jctot19`: I believe this must be the trumpet teacher's account although could be being controlled/managed by others too.
 - `@sinremite`: I believe this is Carmen Cano's account.
+
