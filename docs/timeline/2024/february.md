@@ -64,6 +64,7 @@
 ![Threat of violence from Mark Mosely account](../../content/images/threats/mark-mosely-tweet.png){width=65%}
 
 - He says something else threatening about me which I didn't save at the time.
+- At the time of writing, Sunday 24th November, the account has been deleted and so I am unable to see his past messages live on Twitter.
 
 ![Threat of violence from Mark Mosely account](../../content/images/threats/threat-2.png){width=65%}
 
@@ -71,7 +72,12 @@
 
 ![Threat of violence from Mark Mosely account](../../content/images/threats/threats-around-threats.png){width=65%}
 
-- I consider the threat to be credible and to mean that someone may throw acid on my face.
+- Interestingly, it is only a few days previous, Wednesday 20th November 2024, that I checked this account and it was still live and posting.
+
+![Account still live and posting just a few days ago](../../content/images/threats/threat-of-violence-ac-open-a-few-days-back.png)
+
+- I consider that to demonstrate how hackers are still accessing everything I do online in more-or-less real time.
+- Going back to the original threat, I consider the threat to be credible and to mean that someone may throw acid on my face.
 - A lot of my Twitter pals suggest reporting to the police: https://x.com/search?q=(to%3A1frgvn)%20until%3A2024-02-21%20since%3A2024-02-19&src=typed_query&f=live.
 - He has deleted the account now, although just two days ago when I was checking, the message was there (21 November 2024) and the account was still active. 
 

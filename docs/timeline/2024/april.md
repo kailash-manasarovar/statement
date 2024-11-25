@@ -4,7 +4,7 @@
 
 ## Response from Generalitat
 
-- I receive a letter from the Generalitat in response to my complaints on 3rd April 2024.
+- I receive a letter from the Generalitat in response to my complaints on 3rd April 2024 and pick it up on my return.
 
 ## Leak resumes
 
@@ -38,7 +38,6 @@
 
 - Paqui fake account.
 - https://x.com/lane_deangelis
-
 
 ## Triggers me again
 
@@ -76,12 +75,13 @@
 ## Constant stalking
 
 
-
 ## Followed to Iceland
-
 
 
 ## Let that sink in
 
 
 ## Owns conservatory
+
+
+## Car outside running engine
