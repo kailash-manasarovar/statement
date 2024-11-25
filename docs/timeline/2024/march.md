@@ -418,7 +418,7 @@
 
 ![Love poem](../../content/tweets/taru-ann-poem-2.png){width=65%}
 
-- At the same time, she retweets a pic from 12th June 2023, which I have been unable to locate so [asked the account owner about it directly](../../content/tweets/long-long-way-to-go.png) but she has not been forthcoming.
+- At the same time, she retweets a pic from 12th June 2023, which I have been unable to locate so [asked the account owner about it directly](../../content/tweets/long-long-way-to-go.png) and she has posted the pic: https://x.com/january_myth/status/1860955287672213591/photo/1 but not the poem that went with it.
 - I begin to suspect that whoever is managing the Taru Ann account could be well known to me.
 - On September 22nd, after weird communication from Trish Penny all summer, I wonder if Taru Ann is Trish from time to time: https://x.com/1FRGVN/status/1837596563557831058. The account likes my question in response.
 
