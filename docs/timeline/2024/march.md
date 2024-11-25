@@ -343,7 +343,7 @@
 ![march threats](../../content/images/threats/march-threats-6.png){width=45%}
 ![march threats](../../content/images/threats/march-threats-7.png){width=45%}
 
-#### Threats
+### Random threats of violence
 
 - Norma relates to chamber music class and the bullying there.
 
@@ -386,16 +386,64 @@
 
 - I believe this account, like many others, is manned by either Hazel or Sandra Smith together with Domingo and Carmen Cano by delegation. The reason I say that is because the English is extremely fluent, very vernacular for some messages, and then not at all.
 
+### Lorraine threats 
+
+- Another account appeared to be a trigger to remind me of Lorraine Blackbourn who had hung herself in July 2021 in Denia. 
+- This account had been following me since January but the threat level ramped up in March.
+
+![Lorraine](../../content/images/threats/lorraine/lorraine%20account.png)
+![Lorraine](../../content/images/threats/lorraine/lorraine-2.png)
+
+- I thought `@kiwipally` was also a stalker account as they were very active at this time.
+
+![Lorraine](../../content/images/threats/lorraine/lorraine%20again.png){width=85%}
+![Lorraine](../../content/images/threats/lorraine/lorraine-5.png)
+![Lorraine](../../content/images/threats/lorraine/lorraine-4.png)
+![Lorraine](../../content/images/threats/lorraine/lorraine-3.png)
+
+- The account no longer exists.
+
+![Lorraine](../../content/images/threats/lorraine/lorraine-6.png)
+
 ## 19th March
 
 ### Changing card PIN numbers
 
-- I order a new Openbank card but I won't be able to use it until I get back to Denia in April.
+- I order a new bank card but I won't be able to use it until I get back to Denia in April.
 - I decide to change the card PIN numbers on my bank cards in Madrid.
 - This process is extraordinarily difficult, it is as if I don't have the mental capacity to do a simple task like this.
 - It takes me three or four trips to the ATM machine at the banks to finally do it, a whole day in fact.
 - I'm so unbelievably stressed, simple tasks like this are becoming extraordinarily difficult to complete.
 - I'm not at home, and I haven't been at home for 5 days so I wonder now what is continuing to impede my cognitive ability so much.
+
+## Continuing threats
+
+### Mike Wenham
+
+- Mike Wenham was an old boss of mine at my first ever programming job with British Telecom in 2010.
+- He was a psychopath and had terrorized the one other woman at work so badly, she walked out.
+- When she left, they turned on me. It was horrible; rape jokes, porn on my screen. 
+- I was forced to leave before 6 months was done on my first ever job in tech after gaining my PhD. It was devastating.
+- In 2014 his wife emailed everyone to tell us Mike had murdered a woman and would we be able to help with character references for the police as she thought he'd had temporary insanity.
+- Turned out he had had a penis enlargement operation which had gone horribly wrong and he lost a few inches, and after that had become obsessed with murdering a woman; it all came out in court.
+- He ended up found guilt of murder and imprisoned, even though some of his colleagues took the stand and said what a good bloke he was.
+- I wrote about this on Twitter when I was anonymous, in 2021 and 2022:
+    - https://x.com/1FRGVN/status/1434110111895654402
+    - https://x.com/1FRGVN/status/1566353197878362114
+- I never once mentioned Mike Wenham, the name of the murderer, and yet, I am DM'ed by an account that asks me about him.
+
+![Mike](../../content/images/threats/mike-wenham/march-threats-mike-wenham-1.png)
+![Mike](../../content/images/threats/mike-wenham/march-threats-mike-wenham-2.png)
+
+- I looked at the profile of the account and it was a typical fake account used by stalkers, just a few messages and followers.
+- The message on the timeline was very suggestive because I had just found my mum's Twitter account. My cousin Leah had found me somehow a while back and I believe she told my mum I was on Twitter and gave her my details. I saw her following me.
+- Anyway, the whole interaction with this account was extremely threatening.
+
+![Mike](../../content/images/threats/mike-wenham/mike-2.png)
+![Mike](../../content/images/threats/mike-wenham/mike-3.png)
+
+- Whoever it was had done a fair bit of research on my Twitter activity and background to it.
+- Again, the English is extremely vernacular so it has to be a native.
 
 ## 24th March
 
@@ -424,11 +472,11 @@
 
 ### `@1frgvn`
 
-- https://x.com/january_myth/status/1772034747775992249 -> the Taru Ann account, which may be sometimes run by Trish Penny retweets a post from 29th August 2023, around the time the hackers are revealing themselves. I don't remember seeing it at that time.
+- https://x.com/january_myth/status/1772034747775992249 -> the Taru Ann account, which may be sometimes run by Trish Penny retweets a post from 29th August 2023, around the time the hackers are revealing themselves. I don't remember seeing it at that time but I may have and it just didn't register as connected.
 
 ![Love poem](../../content/tweets/taru-ann-poem-2.png){width=65%}
 
-- At the same time, she retweets a pic from 12th June 2023, which I have been unable to locate so [asked the account owner about it directly](../../content/tweets/long-long-way-to-go.png) and she has posted the pic: https://x.com/january_myth/status/1860955287672213591/photo/1 but not the poem that went with it.
+- At the same time, she retweets a pic from 12th June 2023, which I have been unable to locate so [asked the account owner about it directly](../../content/tweets/long-long-way-to-go.png) and she has posted the pic: https://x.com/january_myth/status/1860955287672213591/photo/1 but not the poem that went with it. I remember seeing that one but, again, I made no connection to this account.
 - I ask her about the poem.
 
 ![taru ann poem and pic posted on 12th june 2023](../../content/images/taru-ann-poem.png){width=65%}
@@ -437,7 +485,7 @@
 - I begin to suspect that whoever is managing the Taru Ann account could be well known to me.
 - On September 22nd, after weird communication from Trish Penny all summer, I wonder if Taru Ann is Trish from time to time by delegation: https://x.com/1FRGVN/status/1837596563557831058. The account likes my question in response. It could be anyone I guess but certainly someone involved somehow.
 
-![Trish is Taru Ann sometimes](../../content/tweets/trish-is-taru-ann.png)
+![Could Trish be Taru Ann sometimes](../../content/tweets/trish-is-taru-ann.png)
 
 - https://x.com/1FRGVN/status/1764211138269422006
 - https://x.com/1FRGVN/status/1764210826007728603

@@ -1,6 +1,12 @@
 ## Hazel Smith on Twitter
 
-- https://x.com/1FRGVN/status/1785410648802734485
+- This account was likely Hazel as we had a long chat: https://x.com/1FRGVN/status/1785410648802734485.
+- The English on many of the stalker accounts was native, could have been anyone in the region I suppose, except this account knew things that only myself and Hazel (or people who know her intimately) would know.
+- The account profile pic is the face of my chamber music teacher that year, Esteve, which means that Hazel must be connected to Domingo in some way.
+
+![Hazel](../../content/images/threats/hazel/choral-symphony.png)
+![Hazel](../../content/images/threats/hazel/choral-symphony-thread-1.png)
+![Hazel](../../content/images/threats/hazel/choral-symphony-thread-2.png)
 
 ## The laundry
 
