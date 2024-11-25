@@ -1,31 +1,49 @@
-## Inspector from the Generalitat 
+## An inspector from the Generalitat comes to piano lesson
 
-- 5th March
-- I arrive at piano class on March 5th and all of a sudden a woman enters the class
-- Paqui explains she is here to help me
-- I am delighted and ask her why the GV have not replied to any of my emails or letters
-- She gives me a notice saying they did not have my address - which is nonsense
-- She starts asking me questions about what I'm saying on Twitter and says the police will need to be called
-- I say thank God, I have been stalked for nearly 2 years, I wrote to the GV numerous times about horrendous thing, and they ignored me so I would welcome the police getting involved
-- The woman is a bit taken aback, Paqui is very nervous, but she then goes on to reiterate that I have been saying things online and the police must be called
-- I find it very threatening
+- It's the 5th March 2024.
+- I arrive at piano class and, after a minute or two, all of a sudden, a woman enters the classroom.
+- Paqui explains the woman is here to help me.
+- I feel like it's probably an ambush and put my phone on record.
+- Paqui reiterates that the woman is here to help me with everything that's going on, and I relate what she's saying to how I have previously told her I'm stressed because I'm being terrorized. 
+- The woman talks about having to get the police involved.
+- I am delighted and express gratitude because something is finally happening after nearly two years of abuse instigated by a teacher, Domingo Cano.
+- I ask her why the Generalitat has not replied to any of my emails or letters.
+- She says they did but they not have my street address!
+- She tells me they did reply in December but it came back to them because they did not have my street address.
+- I mention that I sent the notices by email and that my address is in the systems and that they could have asked, or informed me, at any time.
+- She ignores me.
+
+    - [Document receipt copy with date info](../../content/documents/gv/8.%20Receipt%20date%20received%205%20March%20at%20piano%20lesson.JPG)
+    - [The document receipt](../../content/documents/gv/8.%20Receipt%20of%20something%20from%20the%20Generalitat%201%205%20March%202023.jpeg)
+    - [A part of the document they apparently sent](../../content/documents/gv/8.%20Receipt%20of%20something%20from%20the%20Generalitat%202%205%20March%202023.jpeg)
+
+- Paqui looks nervous.
+- The woman's tone is not at all friendly towards me.
+- She starts saying about how everything is too public now.
+- She starts asking me questions about what I'm saying on Twitter and reiterates that the police will need to be called.
+- I say thank God, I have been stalked for nearly 2 years, I wrote to the GV numerous times about this horrible situation where a student is being terrorized by teachers, and everyone ignored me so I would welcome the police getting involved.
+- The woman is a bit taken aback, Paqui is very nervous, but she then goes on to reiterate that I have been saying things online and the police must be called.
+- I find it very threatening, I tell her I don't like the way she is talking to me, and say that I'm not speaking to her without a lawyer present.
+- The woman leaves.
 
 ## Stolen iPad
 
 - I can't find my iPad and I believe it is stolen.
 - I ask Gloria at the conservatory if anyone has handed in an iPad.
 - She becomes extremely concerned about it and we go looking around the building.
+- She is really upset about the thought an iPad might have been stolen. I find it astonishing.
 - Her concern for my iPad far extends any concern she might have had for me being terrorized by Domingo and his associates, which includes her.
-- When we are upstairs, I speak to her about what's going on. I tell her I can't believe how it just goes on and on.
+- When we are upstairs, I speak to her about what's going on privately. I tell her I can't believe how it just goes on and on.
 - She looks scared. She is shaking and her voice is trembling.
 - I tell her "you know it's not just me they're looking at online". An alarmed flash crosses her face.
-- She suggests I go and talk to Enric Gil who is works at the town hall in the capacity of welcoming foreign people.
+- She suggests I go and talk to Enric Gil who is works at the town hall in the capacity of welcoming foreign people who have just moved to the area.
 
 ## Enric Gil
 
-- I go to see Enric. I know him already from before when I lived in Denia and we had friends in common.
+- I go to see Enric. I know him already from  when I lived in Denia previously in 2006-9, and we had friends in common.
 - I tell him everything. 
-- He says I should see the Denia local police who have a division for male violence.
+- As I start to mention the threats from Domingo he shuts me down.
+- He says I should see the Denia local police who have a division for gender violence.
 - We go outside.
 - I'm speaking to him and he's laughing at me while I do. I wonder if someone is behind me making faces or playing the fool. It's unsettling.
 - He goes to talk to a local police officer and comes back.
@@ -33,11 +51,22 @@
 
 ## Human Rights
 
-- tweets and fake accounts
+- I don't know what to do, where to turn, who to ask for help.
+- The Policia Nacional are disinterested, the local police don't want to know, the Generalitat is suggesting they are going to have me arrested for being a victim of cyber stalking and gang stalking and talking about it on Twitter, it's overwhelmingly stressful.
+- I search for the European Court of Human Rights to try to reach out to them.
+- I'm unable to access their website, in the same way I could not access the website of the Guardia Civil and others.
+- I manage to put a [message in their contact box](../../content/documents/letters/echr-message.pdf) which I assume they will likely not receive.
+- That day, I'm followed by accounts related to human rights.
+
+![Human rights fake account](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-04%20at%2008.32.54.png){width=65%}
+![Human rights fake account](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-08%20at%2008.35.00.png)
 
 ## Searching for a security expert
 
-- I even speak to someone on the phone about 
+- The cyber stalkers are mentioning the child sexual abuse I endured more and more.
+- They post suggestions they have porn videos with me in them.
+- I see photos and silhouettes of what looks like me, lying on a bed, naked, as a child. 
+- I try to find a security expert who can search for these images online. 
 
 ## Change root password
 

@@ -10,6 +10,7 @@
 
 ## Lawyer
 
+- Search for a lawyer email
 - I have found a lawyer who can help me with translating.
 - I believe now he is probably connected to the criminal gangs.
 
