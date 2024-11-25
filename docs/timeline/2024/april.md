@@ -2,6 +2,10 @@
 
 - I am away from Spain for the first week of April.
 
+## Response from Generalitat
+
+- I receive a letter from the Generalitat in response to my complaints on 3rd April 2024.
+
 ## Leak resumes
 
 - The leak from my car washer resumes. I text Pedro the caretaker about it.
@@ -19,6 +23,27 @@
 - I wondered if they managed to add something to come through the air vents, or something I could touch on the door handles maybe.
 - I told Pedro that I had been filmed sexually and I would pay 500 euros for any recordings.
 - He was fired soon after.
+
+## Resign from the conservatory
+
+- I send resignation letters to Paqui.
+
+## Paqui's response
+
+- Mentions the police again
+- I ask her to confirm what they went to the police about
+- She ignores me
+
+## Fake account with teachers on
+
+- Paqui fake account.
+- https://x.com/lane_deangelis
+
+
+## Triggers me again
+
+- I think they are going to arrest me again
+- I guess a lot of this is also triggered online
 
 ## Lawyer
 
@@ -56,8 +81,7 @@
 
 
 
-## Rat poison references on Twitter
-
 ## Let that sink in
+
 
 ## Owns conservatory
