@@ -414,13 +414,13 @@
 
 ### `@1frgvn`
 
-- https://x.com/january_myth/status/1772034747775992249 -> the Taru Ann account, which may be sometimes run by Trish Penny retweets a post from 29th August 2023.
+- https://x.com/january_myth/status/1772034747775992249 -> the Taru Ann account, which may be sometimes run by Trish Penny retweets a post from 29th August 2023, around the time the hackers are revealing themselves. I don't remember seeing it at that time.
 
 ![Love poem](../../content/tweets/taru-ann-poem-2.png){width=65%}
 
 - At the same time, she retweets a pic from 12th June 2023, which I have been unable to locate so [asked the account owner about it directly](../../content/tweets/long-long-way-to-go.png) and she has posted the pic: https://x.com/january_myth/status/1860955287672213591/photo/1 but not the poem that went with it.
 - I begin to suspect that whoever is managing the Taru Ann account could be well known to me.
-- On September 22nd, after weird communication from Trish Penny all summer, I wonder if Taru Ann is Trish from time to time: https://x.com/1FRGVN/status/1837596563557831058. The account likes my question in response.
+- On September 22nd, after weird communication from Trish Penny all summer, I wonder if Taru Ann is Trish from time to time by delegation: https://x.com/1FRGVN/status/1837596563557831058. The account likes my question in response.
 
 ![Trish is Taru Ann sometimes](../../content/tweets/trish-is-taru-ann.png)
 
@@ -461,4 +461,6 @@
 
 ### `@JackChardwood`
 
-It seems the tweets in here for this period are mostly related to romance and relationship, i.e. keeping the lie going.
+- It seems the tweets in here for this period are mostly related to romance and relationship, i.e. keeping the lie going.
+- Here's a link to the search: https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2024-03-31%20since%3A2024-03-01&src=typed_query&f=live
+
