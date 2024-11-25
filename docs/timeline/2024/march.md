@@ -129,7 +129,7 @@
 
 - He says this is enough evidence of hacking through the router for them to lock me down and reformat my laptop.
 - I have to work somewhere else while I get a new router and change the ISP from Yoigo to Movistar.
-- They put the FalconSensorMacOS.MaverickGyr.pkg on both my work and my personal laptop. The files are [here](../../content/files/locking.zip).
+- They put the FalconSensorMacOS.MaverickGyr.pkg on both my work and my personal laptop. The files are [here](https://drive.google.com/file/d/1MPTzekQ0o7pLizShUsWR_b-3qq73Aa-W/view?usp=sharing).
 - A few hours later, a stalker account tweets about 11.11 and references relationships.
 
 ![Tweet about 11:11](../../content/images/hacked-work-laptop/stalker-account-mentions-it.png){width=65%}
