@@ -109,8 +109,6 @@
 - While I was there, a woman police officer was holding up her mobile phone as if she was filming me the whole time.
 - I wondered if they knew exactly who I was and what was happening to me.
 
-
-
 ## European Court of Human Rights
 
 - On 26th February, I contact the European Court of Human Rights.
@@ -124,6 +122,15 @@
 
 !!! note 
     - The profile message: "WHAT THE UN HAS CALLED #CYBERTORTURE (A/HRC/43/49) #CYBERTORTURE IS BEING DONE TO ME. LINK TO COMPLAINTS PUBLISHED BY THE RAPPORTEUR FOR TORTURE, NILS MELZER".
+
+## Searching for a security expert
+
+- The cyber stalkers are mentioning the child sexual abuse I endured more and more.
+- They post suggestions they have porn videos with me in them.
+- I see photos and silhouettes of what looks like me as a child of 16, lying on a bed, naked. 
+- I try to find a security expert who can search for these images online. 
+- I actually talk to a person: Andy Clarke <andy.clarke@fact-uk.org.uk> about this.
+- He said he was unable to help me.
 
 ## Twitter
 

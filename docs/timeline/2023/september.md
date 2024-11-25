@@ -9,6 +9,15 @@
 - https://x.com/1FRGVN/status/1698016819951423781
 - https://x.com/1FRGVN/status/1697912956871217359
 
+### The cold shoulder from Spanish feminists
+
+- Well known feminists reach out to me to see if they can help.
+- I cannot be clear with them about what the Denia hackers are going to do because it is all suggestions from ramped up threats online.
+- They decide unilaterally I'm lying and not to be trusted.
+- One, in particular, upsets me enormously by telling me, "you're not being hacked", as if it's all in my mind.
+- I realize that feminists can be as misogynist as everyone else at that moment.
+- It was extremely upsetting and eyeopening.
+
 ## Arriving home
 
 - When I got home, an account had followed me, **kaka**, with a profile message that said: "For an immature boy, bad companions play a much greater role than good teachers." 

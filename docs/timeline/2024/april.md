@@ -31,9 +31,9 @@
 - I tell them about how they have sexual films of me and I'm clearly very upset.
 - However, I know I probably can't trust anyone here so I only give them a few devices, and not the devices I know will come up positive for sure.
 
-## I buy an analogue phone
+## I get an Orange SIM
 
-- I go to Orange in Denia to buy a phone that cannot connect to internet so I can't be followed in the way that I have been.
+- I go to Orange in Denia to get a SIM for my analog phone that cannot connect to internet so I can't be followed in the way that I have been.
 - The number ends in 007.
 
 ## Constant stalking

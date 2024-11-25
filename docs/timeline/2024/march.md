@@ -1,8 +1,8 @@
 ## An inspector from the Generalitat comes to piano lesson
 
-- It's the 5th March 2024.
-- I arrive at piano class and, after a minute or two, all of a sudden, a woman enters the classroom.
-- Paqui explains the woman is here to help me.
+- It's Tuesday 5th March 2024.
+- I arrive at my piano lesson and, after a minute or two, all of a sudden, a woman enters the classroom.
+- Paqui explains the woman in an inspector from the Generalitat and she is here to help me.
 - I feel like it's probably an ambush and put my phone on record.
 - Paqui reiterates that the woman is here to help me with everything that's going on, and I relate what she's saying to how I have previously told her I'm stressed because I'm being terrorized. 
 - The woman talks about having to get the police involved.
@@ -18,12 +18,13 @@
     - [A part of the document they apparently sent](../../content/documents/gv/8.%20Receipt%20of%20something%20from%20the%20Generalitat%202%205%20March%202023.jpeg)
 
 - Paqui looks nervous.
-- The woman's tone is not at all friendly towards me.
-- She starts saying about how everything is too public now.
-- She starts asking me questions about what I'm saying on Twitter and reiterates that the police will need to be called.
+- I ask her for the content of the letter which I do not see.
+- The woman's tone is not at all friendly towards me. She says, oh that doesn't matter now.
+- She starts saying everything is too public now and that the police will need to be called.
 - I say thank God, I have been stalked for nearly 2 years, I wrote to the GV numerous times about this horrible situation where a student is being terrorized by teachers, and everyone ignored me so I would welcome the police getting involved.
 - The woman is a bit taken aback, Paqui is very nervous, but she then goes on to reiterate that I have been saying things online and the police must be called.
-- I find it very threatening, I tell her I don't like the way she is talking to me, and say that I'm not speaking to her without a lawyer present.
+- She starts asking me questions about what I'm saying on Twitter.
+- I find it very threatening, I tell her I don't like the way she is talking to me, and say that I'm not speaking to her further without a lawyer present.
 - The woman leaves.
 
 ## Stolen iPad
@@ -53,6 +54,7 @@
 
 - I don't know what to do, where to turn, who to ask for help.
 - The Policia Nacional are disinterested, the local police don't want to know, the Generalitat is suggesting they are going to have me arrested for being a victim of cyber stalking and gang stalking and talking about it on Twitter, it's overwhelmingly stressful.
+- I search for a human rights lawyer and send some random emails to try and get help.
 - I search for the European Court of Human Rights to try to reach out to them.
 - I'm unable to access their website, in the same way I could not access the website of the Guardia Civil and others.
 - I manage to put a [message in their contact box](../../content/documents/letters/echr-message.pdf) which I assume they will likely not receive.
@@ -61,63 +63,78 @@
 ![Human rights fake account](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-04%20at%2008.32.54.png){width=65%}
 ![Human rights fake account](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-08%20at%2008.35.00.png)
 
-## Searching for a security expert
-
-- The cyber stalkers are mentioning the child sexual abuse I endured more and more.
-- They post suggestions they have porn videos with me in them.
-- I see photos and silhouettes of what looks like me, lying on a bed, naked, as a child. 
-- I try to find a security expert who can search for these images online. 
+- I was able to finally communicate with the ECHR when I was in Brussels in July: https://x.com/1FRGVN/status/1811523447123558841.
 
 ## Change root password
 
 - One evening, I change the root password on my laptop.
 - The router is off.
-- The following morning, half of my new root password appears on a fake account profile message.
+- The following morning, half of my new root password appears on a fake account's profile message.
+
+## I buy an analogue phone
+
+- I buy a simple phone which won't have access to Internet on Amazon: https://www.amazon.co.uk/gp/your-account/order-details?ie=UTF8&orderID=203-8343216-4317911&ref=ppx_yo2ov_dt_b_fed_order_details
 
 ## Report hacking to work
 
-- 8th March
+- It's Friday 8th March.
 - I opened a Twitter account for work on my work laptop, I can't remember when.
-- Immediately I was followed by accounts with names related to the gang stalking.
+- Immediately, I was followed by accounts with names related to the gang stalking.
 - I filed it away, it was too much to deal with at that moment, although I did raise a ticket with IT at one point when I saw something weird.
 - With everything going on, I realize it's time to tell the security department at my work I think I've been hacked.
-- Gordon Bishop of Polygon Labs investigates. He asks me to access 1.1.1.1 on my browser. What he's expecting to happen, doesn't happen. 
+- Gordon Bishop of Polygon Labs investigates. 
+- He asks me to access 1.1.1.1 on my browser. What he's expecting to happen, doesn't happen. 
 - He's expecting to see the WARP webpage but, instead, we get the login page for the network router.
-- He says this is enough evidence of hacking for them to lock me down.
-- I have to work somewhere else while I get a new router and change the ISP.
+
+![Router login](../../content/images/hacked-work-laptop/router-login.png){width=65%}
+
+- He also sees some weird stuff with Mac certificates.
+
+![Mac certificates](../../content/images/hacked-work-laptop/weird-issues-with-certificates.png){width=65%}
+
+- He says this is enough evidence of hacking through the router for them to lock me down and reformat my laptop.
+- I have to work somewhere else while I get a new router and change the ISP from Yoigo to Movistar.
+- They put the FalconSensorMacOS.MaverickGyr.pkg on both my work and my personal laptop.
+- A few hours later, a stalker account tweets about 11.11 and references relationships.
+
+![Tweet about 11:11](../../content/images/hacked-work-laptop/stalker-account-mentions-it.png){width=65%}
+
+- The following day, I tweet about it.
+
+![Tweet about 11:11](../../content/images/hacked-work-laptop/router-hack-tweet.png){width=65%}
+
+- At this point, I block all my cameras on laptops and phones. 
 
 ## Nowhere
 
-- Get a desk at Nowhere.
+- I get a desk at Nowhere co-working space in Denia: https://www.knowheredenia.com.
 
 ## Scarfs from the lady who knows who I am
 
-- I buy some scarves from a shop in the Calle La Mar.
+- I buy some scarves from a shop in the Calle La Mar, could be Vintage Ibiza.
 - It's run by a polish woman who is very nice.
-- I tell her I'm studying piano at the conservatory.
-- She becomes very embarrassed and is unable to speak to me.
-- This shop had a picture in the window of .. for months.
-- Often, in the Google search results there were pictures of the same ... with reference to the trumpet teacher having another girlfriend.
+- We chat and I tell her I'm studying piano at the conservatory.
+- She becomes very embarrassed and is unable to speak to me. She knows who I am.
+- This shop had a picture in the window of Frida Khalo for months.
+- Often, in the Google search results for `@jctot19` there were pictures of Frida Khalo and references to the trumpet teacher having another girlfriend.
 - Ridiculous, I know.
-- Amazing they would put so much effort into all this, and it must be costing a lot of money to keep it up. I now wonder if they were perhaps making more than they were spending from either:
-    - Mass voyeurism of "hunted" or targeted women in Spain.
-    - Mass voyeurism of women being filmed on hidden cameras in their homes.
-    - Etc
-
-!!! danger "The thing that makes me a target most of all"
-    - Is the fact I survived child sexual abuse and I'm thriving beyond anyone's wildest dreams.
-    - It must be an absolute insult to the patriarchy.
+- Amazing that the people of Denia would put so much effort into all this, and it must have cost a lot of time, effort, and money to keep it going. 
+- I now wonder if they were perhaps making more money than they were spending from either:
+    - Mass voyeurism on social media of "hunted" or targeted women in Spain.
+    - Mass voyeurism of women being filmed on hidden cameras in their homes, possibly amateur porn networks, something I often saw in my Google results.
+    - Mass voyeurism of people who enjoy watching others suffer.
 
 ## Text my family at the Chinese
 
-- With my new iPhone, I send a text to my mother's mobile number at the Chinese while I'm having dinner.
-- There is a celebratory noise from my phone, and from someone elses phone too.
+- Online, the stalkers are continuing to suggest I call my family.
+- With my iPhone, I send a text to my mother's mobile number at the Chinese while I'm having dinner one Sunday evening.
+- There is a celebratory noise from my phone, and from someone elses phone too nearby.
 - I'm not able to get through to my mother.
-- I believe they are targeting my family now, phones, etc, for the purposed of fraud.
+- I believe they are trying to target my family now, with phone numbers, etc, for the purposed of fraud.
 
 ## Ana dresses as if she's pregnant
 
-- The Ana lie continues and she choreographs situations - tracks my movements using shared WhatsApp groups with the other teachers - in order that I see her going to the toilet dressed as if she is pregnant.
+- The Ana lie continues and, with the help of others, she choreographs ridiculous situations - tracks my movements using shared WhatsApp groups with the other teachers - in order that I see her going to the toilet dressed as if she is pregnant.
 - On one of the last times I attended classes at the conservatory, Ana is playing trumpet music on her laptop and I hear it from her classroom as I walk by.
 
 ## Cracked rib
@@ -128,9 +145,9 @@
 - It's good timing.
 - Some drugs make your bones thinner and make it more likely to experience this sort of thing.
 
-## Threat to my life from the conservatory
+## Serious threat to my life and mental/emotional wellness from the piano department at Denia conservatory
 
-- On March 12th, there is a concert at the .. in Dénia
+- On March 12th, there is a end of term piano concert at the Casa de Cultura in Dénia.
 - It's a huge set up, all meant to terrify me
 - All the pieces at the concert are related to things I have said on Twitter or in letters asking for help that were ignored
 - People are coming in to listen, and they look at me and smile
@@ -142,6 +159,11 @@
 - The woman dressed as Lorraine (who I believe now is Carmen Cano, Domingo's sister) and a man sit directly behind me, seats have been saved for them
 - When I got home, I checked my camera. At 7.30pm, recorded on my security camera, you can hear a group of men making ghost noises
 - I'm blocked from downloading the videos of the concert on the system.
+
+## Coinbase
+
+- That evening I lose access to my Coinbase account with 70K in it.
+- It's not clear if I've locked it myself or it has been breached by hackers.
 
 ## Talking to the translator
 
