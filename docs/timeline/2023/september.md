@@ -29,19 +29,11 @@
 ## Problem with the car washer
 
 - The caretaker at Carrer Furs, Pedro, informs me there is a leak in my car washing fluid. I see the blue fluid all over the floor in the garage where I park my car. I think it is to do with a small bump on the road in France.
+- He suggests I take the car to his friend who is a mechanic. I'm reluctant.
 - I tell Pedro about being bullied by the conservatory.
-- He suggests I take the car to his friend who is a mechanic. The friend comes to check my car but doesn't see anything and tells me I have to bring it to the workshop.
-- I don't want to leave my car with someone I don't know, and I don't know how I will travel there and back.
-- Pedro tells me he will take me himself in his car.
-- It all feels like a set up to get me alone with Pedro and I say no.
-- Pedro is a bit pervy, you see.
-- The leaks stops and/or is intermittent.
-- The following June, my garage in North London fix a broken motor in the window washer function of my car and tell me there's no leak at all.
-- I believe Pedro may be involved in adding narcotics to my car in some way, or knows something because if anyone tampered with my car in the garage, he would know.
-- I wondered if they managed to add something to come through the air vents, or something I could touch on the door handles maybe.
-- I believe any of the caretakers at Carrer Furs 13-15 will be able to tell the police how criminals have been able to add poison and narcotics to the water running into my apartment.
-- I told Pedro that I had been filmed sexually and I would pay 500 euros for any recordings.
-- He was fired soon after.
+- Instead, I take it to a garage in Javea who make me wait all day and do nothing at all, and charge me for it too.
+- I realize I cannot take my car to any garage within about 100 miles radius, or more.
+- Domingo's dad is in the car business and I wonder if I met him in 2012 when I had a flat battery when I lived in the Passeig Periodista Ramon Ortega.
 
 ## The water pipes
 
@@ -59,6 +51,7 @@
 - I wonder if this is because, if you are poisoning someone, perhaps in a drip-feed type manner, and they can close off the pipes when they leave the building, then the poison, or narcotic, or whatever, could collect in large doses and kill someone instantaneously. 
 - I wonder if that's happened before. I wonder if that's why there is a specific clause about me dying in the apartment in my tenancy agreement. 
 - Could the people of Denia be that evil?
+- I believe any of the caretakers at Carrer Furs 13-15 will be able to tell the police how criminals have been able to add poison and narcotics to the water running into my apartment.
 
 ## Men outside with handheld devices
 
