@@ -26,9 +26,11 @@
 - The woman is a bit taken aback, Paqui is very nervous, but she then goes on to reiterate that I have been saying things online and the police must be called.
 - She starts asking me questions about what I'm saying on Twitter.
 - I find it very threatening, I tell her I don't like the way she is talking to me, and say that I'm not speaking to her further without a lawyer present.
-- The woman leaves.
+- The woman leaves. I never hear from her or anyone else from the Generalitat again.
 
-## Stolen iPad
+## Wednesday 6th March
+
+### Stolen iPad
 
 - I can't find my iPad and I believe it is stolen.
 - I ask Gloria at the conservatory if anyone has handed in an iPad.
@@ -40,7 +42,7 @@
 - I tell her "you know it's not just me they're looking at online". An alarmed flash crosses her face.
 - She suggests I go and talk to Enric Gil who is works at the town hall in the capacity of welcoming foreign people who have just moved to the area.
 
-## Enric Gil
+### Enric Gil
 
 - I go to see Enric. I know him already from  when I lived in Denia previously in 2006-9, and we had friends in common.
 - I tell him everything. 
@@ -51,7 +53,7 @@
 - He goes to talk to a local police officer and comes back.
 - He says I cannot raise anything with them as I don't have a partner and they only deal with male violence when it occurs within a partnership.
 
-## Human rights
+### Human rights
 
 - I don't know what to do, where to turn, who to ask for help.
 - The Policia Nacional are disinterested, the local police don't want to know, the Generalitat is suggesting they are going to have me arrested for being a victim of cyber stalking and gang stalking and talking about it on Twitter, it's overwhelmingly stressful.
@@ -66,34 +68,51 @@
 
 - I was able to finally communicate with the ECHR when I was in Brussels in July: https://x.com/1FRGVN/status/1811523447123558841.
 
-## Hackers reference payments I have made
+### Scarfs from the lady who knows who I am
 
-- I start to see references to payments I have made online, exact figures, and sometimes even mentions of the payee.
-- One was in reference to a charity gift I gave to a Twitter account.
-- Another remarkable one was related to a monetary gift I sent to my monk friend of 333 euros.
-- As you may remember, they refer to the monk as "panda". Here are some screenshots.
+- I buy some scarves from a shop in the Calle La Mar, could be Vintage Ibiza.
+- It's run by a polish woman who is very nice.
+- We chat and I tell her I'm studying piano at the conservatory.
+- She becomes very embarrassed and is unable to speak to me. She knows who I am.
+- This shop had a picture in the window of Frida Khalo for months.
+- Often, in the Google search results for `@jctot19` there were pictures of Frida Khalo and references to the trumpet teacher having another girlfriend.
+- Ridiculous, I know.
+- Amazing that the people of Denia would put so much effort into all this, and it must have cost a lot of time, effort, and money to keep it going. 
+- I now wonder if they were perhaps making more money than they were spending from either:
+    - Mass voyeurism on social media of "hunted" or targeted women in Spain.
+    - Mass voyeurism of women being filmed on hidden cameras in their homes, possibly amateur porn networks, something I often saw in my Google results.
+    - Mass voyeurism of people who enjoy watching others suffer.
+
+## Thursday 7th March
+
+### Hackers reference payments I have made
+
+- I start to see references to payments I have made online, including exact figures, and sometimes even mentions of the payee.
+- One was in reference to a charity gift I gave to a Twitter account around that time, after which I receive a follow from a fake account that was "jealous".
+- Shortly after this, another remarkable set of tweet references were related to a monetary gift I had sent to my monk friend of 333 euros at Christmas.
+- As you may remember, they refer to the monk as "panda".
 
 ![Panda 333](../../content/tweets/panda-333-1.png)
-![Panda 333](../../content/tweets/panda-333-2.png)
 ![Panda 333](../../content/tweets/panda-333-3.png)
-![Panda 333](../../content/tweets/panda-333-4.png)
-![Panda 333](../../content/tweets/panda-333-5.png)
-![Panda 333](../../content/tweets/panda-333-6.png)
-![Panda 333](../../content/tweets/panda-333-7.png)
+![Panda 333](../../content/tweets/panda-333-4.png){width=65%}
+![Panda 333](../../content/tweets/panda-333-5.png){width=65%}
 
-## Change root password
+- I'm pretty sure the `@crispolata` account is Hazel or Sandra Smith, or one of their associates.
 
-- One evening, I change the root password on my laptop.
-- The router is off.
-- The following morning, half of my new root password appears on a fake account's profile message.
-
-## I buy an analogue phone
+### I buy an analogue phone
 
 - I buy a simple phone which won't have access to Internet on Amazon: https://www.amazon.co.uk/gp/your-account/order-details?ie=UTF8&orderID=203-8343216-4317911&ref=ppx_yo2ov_dt_b_fed_order_details
 
-## Report hacking to work
+### Change root password
 
-- It's Friday 8th March.
+- I change the root password on my laptop.
+- The router is off.
+- The following morning, Friday 8th March, half of my new root password appears on a fake account's profile message.
+
+## Friday 8th March
+
+### Report hacking to work
+
 - I opened a Twitter account for work on my work laptop, I can't remember when.
 - Immediately, I was followed by accounts with names related to the gang stalking.
 - I filed it away, it was too much to deal with at that moment, although I did raise a ticket with IT at one point when I saw something weird.
@@ -121,26 +140,18 @@
 
 - From this point, I block all my cameras on laptops and phones with post it notes, or paper and sticky tape. 
 
-## Nowhere
+### Nowhere
 
 - I get a desk at Nowhere co-working space in Denia: https://www.knowheredenia.com.
 
-## Scarfs from the lady who knows who I am
+### Bank cards
 
-- I buy some scarves from a shop in the Calle La Mar, could be Vintage Ibiza.
-- It's run by a polish woman who is very nice.
-- We chat and I tell her I'm studying piano at the conservatory.
-- She becomes very embarrassed and is unable to speak to me. She knows who I am.
-- This shop had a picture in the window of Frida Khalo for months.
-- Often, in the Google search results for `@jctot19` there were pictures of Frida Khalo and references to the trumpet teacher having another girlfriend.
-- Ridiculous, I know.
-- Amazing that the people of Denia would put so much effort into all this, and it must have cost a lot of time, effort, and money to keep it going. 
-- I now wonder if they were perhaps making more money than they were spending from either:
-    - Mass voyeurism on social media of "hunted" or targeted women in Spain.
-    - Mass voyeurism of women being filmed on hidden cameras in their homes, possibly amateur porn networks, something I often saw in my Google results.
-    - Mass voyeurism of people who enjoy watching others suffer.
+- At this point, I believe (to double check), I request new bank cards for my Spanish accounts.
+- They arrive pretty quickly.
 
-## Text my family at the Chinese
+## Sunday 10th March
+
+### Text my family at the Chinese
 
 - Online, the stalkers are continuing to suggest I call my family.
 - With my iPhone, I send a text to my mother's mobile number at the Chinese while I'm having dinner one Sunday evening.
@@ -148,12 +159,9 @@
 - I'm not able to get through to my mother.
 - I believe they are trying to target my family now, with phone numbers, etc, for the purposed of fraud.
 
-## Ana dresses as if she's pregnant
+## Monday 11th March
 
-- The Ana lie continues and, with the help of others, she choreographs ridiculous situations - tracks my movements using shared WhatsApp groups with the other teachers - in order that I see her going to the toilet dressed as if she is pregnant.
-- On one of the last times I attended classes at the conservatory, Ana is playing trumpet music on her laptop and I hear it from her classroom as I walk by.
-
-## Cracked rib
+### Cracked rib
 
 - I crack a rib during yoga class.
 - I wonder if whatever I'm ingesting causes bone thinning because it happened again a few months later.
@@ -161,7 +169,14 @@
 - It's good timing.
 - Some drugs make your bones thinner and make it more likely to experience this sort of thing.
 
-## 12th March - serious attack on my wellbeing from the piano department at Denia conservatory
+## Tuesday 12th March
+
+### Ana dresses as if she's pregnant
+
+- The Ana lie continues and, with the help of others, she choreographs ridiculous situations - tracks my movements using shared WhatsApp groups with the other teachers - in order that I see her going to the toilet dressed as if she is pregnant.
+- On one of the last times I attended classes at the conservatory, probably Wednesday 13th March, Ana is playing trumpet music on her laptop and I hear it from her classroom as I walk by.
+
+### A serious attack on my wellbeing from piano teachers at Denia conservatory
 
 - On Tuesday 12th March, there is a end of term piano concert at the Casa de Cultura in Dénia.
 - It's a huge set up, all meant to terrify me, probably give me a nervous breakdown, and maybe kill myself too.
@@ -182,9 +197,14 @@
 
 ![Screenshot of the security cam alarm pic](../../content/documents/evidence/12-march-alarm-notification.jpeg){width=65%}
 
+- The following day, a stalker account posts a message referencing my security cam.
+
+![Security cam threats](../../content/tweets/piano-concert-threat.png)
+![Security cam threats](../../content/tweets/piano-concert-threat-info.png){width=65%}
+
 - After the concert, I'm blocked from downloading the videos of the concert on the Generalitat's systems.
 
-## My crypto account
+### My crypto account
 
 - I lose access to my Coinbase crypto account.
 - I don't know if they have stolen 70K from me or not.
@@ -192,59 +212,70 @@
 - I'm really concerned about this.
 - I tweet about it: https://x.com/1FRGVN/status/1768093834188087798.
 
-## 13th March - talking to the translator
+## Wednesday 13th March 
 
-- I get a translator to help me deal with the police.
-- After my experience with the [police in Denia in February](february.md#policia-nacional), I believe I need firm proof of hacking before I can go to them.
+### Translator
+
+- I need a translator to help me deal with the police.
+- After my experience with the [police in Denia in February](february.md#policia-nacional), I believe I need firm proof of hacking before I can go to them again!
 - I tell her everything, the child sexual abuse I suffered and how it made me intolerant of children being sexualized at the conservatory, and how I had been targeted for basically mentioning that very informally in 2015. 
 - On the Guardia Civil website there's a list of experts who analyze devices for hacking for the police.
-- We look one up. My translator phones him, a perito in Alicante, Jorge. He sounds like he's totally stoned.
+- We look one up and she phones him. 
+- He is an expert in Alicante, Jorge. He sounds like he's totally stoned.
 
-## Choir class on the 13th
+### Choir class
 
-- I turn up to choir class the next day
-- The teachers and the adult staff are angry with me
-- I text a message to Chris BJ saying "I think all this aggression is probably training for my political career"
-- Both the choir teacher and the woman who sits beside me's phones beep they've received a WhatsApp message
-- They both read it at the same time
-- The woman looks at me angrily
-- https://x.com/1FRGVN/status/1773436669007380597
-- The choir repertoire includes a song about domestic violence
+- I turn up to choir class that evening.
+- The teachers and the adult staff are angry with me for showing up.
+- They set up Pablo to "bump" into me on the way into class. He seems really upset he had to do this and I'm furious about that.
+- While I'm sitting in class, I text a message to Chris BJ saying something like "I think all this aggression is probably training for my political career".
+- Both the choir teacher's and the woman who sits beside me's (French horn player) phones beep at about the same time to alert them they've received a WhatsApp message.
+- They both read it at the same time.
+- They both look at me angrily: https://x.com/1FRGVN/status/1773436669007380597.
+- The choir repertoire includes a song about domestic violence which is very aggressive and unpleasant, a horrible irony.
 - That night I become extremely anxious and scared.
-- On my way home, through the tunnel, a man comes at me and blows in my face.
+- On my way home, through the tunnel, a man walks towards at me and blows in my face.
 
-## Chest infection
+### Chest infection
 
 - I get very unwell after choir class, a cold which becomes a chest infection.
 - It doesn't get better, it gets worse and worse.
-- I'm extremely unwell in Madrid, I can hardly talk.
+- I'm extremely unwell for the next few weeks, and, in Madrid, I can hardly talk.
 - Eventually, in India in the first week of April, I'm prescribed hardcore antibiotics and medicine for pleurisy.
-- It's not before I snap a rib from coughing.
-- The medication works and I recover.
-
-## Practice on the 14th
-
-- I go into practice at the conservatory
-- I'm extremely anxious and feel really uneasy in the piano room
-- I call the Irish embassy from there looking for help
-- On the way out I see Gloria. She's laughing at me saying, "finally you're leaving now".
-
-## Nowhere big blokes
-
-- I had been working at Nowhere that day, the 14th, I went back to work
-- 5 big Russian or Ukrainian blokes come in and stand opposite me. They are pretending to talk about the computer. They are dressed like labourers.
-- I find it extremely threatening.
-- When I leave the offices about 2 hours later, they are outside at exactly the moment I step outside the door, with a blond woman I've seen before in the middle of them.
-
-## The dose ramps up
-
-- I believe today the dose of anxiety causing substances was increased at my flat because I began to be extraordinarily stressed and scared that night, probably after drinking a large tea.
-- Given that I was not fearful after the ridiculous piano concert on the 12th, and went to choir on the 13th, it seems reasonable to suppose I was relatively unaffected by this choreographed terror, used to it maybe.
-- However the link with Lorraine Blackbourn was indeed extremely sinister and I text and tweet to everyone that I would never commit suicide if I turn up dead and it looks like I did: https://x.com/1FRGVN/status/1768046490272870687.
-- The following morning I am severely anxious. I'm bumping my head on things. I have to go to town. I am terrorized the whole way in and out. I feel horrendous.
-- I believe I was on serious drugs at this point.
+- It's not before I have snapped a rib from coughing so hard.
+- Notifications on fake accounts mention the coughing.
+- The medication works and I recover in India.
 
 ## Thursday 14th March
+
+### The dose ramps up
+
+- I believe today the dose of anxiety causing substances was increased at my flat because I began to be extraordinarily stressed and scared the night of the 13th, probably after drinking a large mug of tea.
+- Given that I was not fearful after the ridiculous piano concert on the 12th, and went to choir on the 13th, it seems reasonable to suppose I was relatively unaffected by this choreographed terror, perhaps I was getting used to it.
+- However, the link to Lorraine Blackbourn was extremely sinister and got to me.
+- Eventually, I text and tweet to everyone that I would never commit suicide and, if I turn up dead and it looks like I did, it's suspicious: https://x.com/1FRGVN/status/1768046490272870687.
+- The following morning I am severely anxious. I'm bumping my head on things. I have to go to town. I am terrorized the whole way in and out. I feel horrendous.
+- I believe I was on serious drugs at this point that they were putting in the water.
+
+### Practicing the piano 
+
+- I go into practice at the conservatory.
+- I had an errand to run in town and I felt like everyone was looking at me, staring, and the threat levels were intense.
+- A van drives towards me with "VIDAL" on the front of it, which makes me smile but is actually rather threatening.
+- I'm extremely anxious and feel really uneasy in the piano room.
+- I call the British embassy from there looking for help. They tell me they can't do anything for me and suggest I go to the police.
+- On the way out I see Gloria. She's laughing at me, and says; "finally you're leaving now".
+
+### Nowhere big blokes
+
+- I had been working at Nowhere that day before going in to practice.
+- I went back to work
+- After a while, five big Russian or Ukrainian blokes come in and stand opposite me at the desks. They are pretending to talk about the computer. They are dressed like labourers. They are extremely rough types, five of them.
+- I find it extremely threatening.
+- I decide to leave Denia.
+- When I leave the offices about two hours later, they are outside at the exact the moment I step outside the door, surrounding a blond woman I've seen before in Denia.
+
+### Madrid
 
 - In fear, I leave Denia to go to Madrid and I stay from 14th-24th March at the AC Hotel Atocha by Marriot.
 
@@ -255,28 +286,46 @@
 - More threats: https://x.com/1FRGVN/status/1769860927296258167.
 - When I get to Madrid, I buy a new Android phone for my Spanish SIM. A man in the phone shop appears to know who I am.
 - I am followed and tracked in Madrid. 
-- With my new phone things that I say to my friend at lunch are repeated on fake account profiles later on.
+- Things that I say to my friend at lunch are repeated on fake account profiles later on.
 - I write a letter **by hand** to my parents. The first contact with them for nearly 3 years.
 - I explain I'm being terrorized and by whom. I try to keep it calm because my parents are elderly, and I don't know how things are with them. I don't want to upset them too much.
 - I tell them I believe that Domingo and his family are planning to murder me.
 - I remind them of what he told me all those years ago, something that I had told them at that time.
 
-## 15th March - reporting the matter to the police in Madrid
+## 15th March
+
+### Reporting the matter to the police in Madrid
 
 - With the help of a friend I made a proper denuncia to the police in Madrid.
-- The report goes well, although I am finding it very difficult to think straight and my friend's translations and the consequent additions to the denuncia documents are not quite right.
-- I start to show the police officer the picture of me in my pants.
+- The report goes well, although I am finding it very difficult to think straight, and my friend's translations and the consequent additions to the denuncia documents are not quite right.
+
+    - [Denuncia page 1](../../content/documents/evidence/Madrid%201.JPG).
+    - [Denuncia page 2](../../content/documents/evidence/Madrid%202.JPG).
+    - [Denuncia page 3](../../content/documents/evidence/Madrid%203.JPG).
+
+- I start to show the police officer some of the screenshots I have, including the picture of me in my pants they put on Google search.
 - At that moment, the conversation is somewhat shutdown and she tells us that before they can investigate I need to get a cyber expert to examine my devices in order to prove I've been hacked.
 - I'm astonished.
 
-## Cyber expert
+### Cyber expert
 
 - We do some research into getting my devices examined for hacking so that I can amplify my report to the police.
 - We find out to have this done can cost thousands.
 - We find an expert in Alicante who is reasonable, and quote 600 euros for a laptop, phone, and two webcams.
 - My friend helps me [write a letter](../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf) to David Piñeiro, at D.P.R., Arzobispo Loaces, 17, Local 1 - 2, 03003 Alicante.
 
-## 17th March - email to Paqui
+## 16th March
+
+### Changing card PIN numbers
+
+- I change the card PIN numbers on my bank cards.
+- This process is extraordinarily difficult, as if I don't have the mental capacity to do a simple task like this.
+- It takes me three or four trips to the ATM machine at the banks to finally do it.
+- I'm so unbelievably stressed, simple tasks like this are becoming extraordinarily difficult to complete.
+
+## 17th March 
+
+### Email to Paqui
 
 - I [email Paqui](../../content/documents/emails/Letter%20to%20Paqui%2017:3.pdf) about the concert and subsequent events. She does not reply.
 - Her silence speaks a thousand words.
@@ -284,13 +333,82 @@
 
 ![Excusing myself from class](../../content/documents/papeles-conservatorio/excusing-myself-from-class.png){width=75%}
 
-## Valencia
+## Online threats during this period
+
+### Google search
+
+- This one references my private health matter which I told no one about except Google, but they all knew about it. 
+
+![private health matter](../../content/images/threats/march-threats.png)
+
+### Twitter screenshots
+
+- The B.A. Feldman account has been pretending to be the trumpet teacher for a while.
+
+![march threats](../../content/images/threats/march-threats-1.png){width=65%}
+
+- The following account is an example of a few which had pure violence as content around this time. 
+
+![march threats](../../content/images/threats/march-threats-2.png){width=45%}
+![march threats](../../content/images/threats/march-threats-3.png){width=45%}
+![march threats](../../content/images/threats/march-threats-4.png){width=45%}
+![march threats](../../content/images/threats/march-threats-5.png){width=45%}
+![march threats](../../content/images/threats/march-threats-6.png){width=45%}
+![march threats](../../content/images/threats/march-threats-7.png){width=45%}
+
+#### Threats
+
+- Norma relates to chamber music class and the bullying there.
+
+![march threats](../../content/images/threats/march-threats-8.png){width=65%}
+
+- Khadidjatu sounds like Ka did you too. Africas is related to a song at choir and my personal life.
+
+![march threats](../../content/images/threats/march-threats-9.png){width=65%}
+
+- A very threatening message. This whole tweet conversation with this account was extremely threatening and phosphorous poisoning was mentioned.
+
+![march threats](../../content/images/threats/march-threats-14.png)
+
+- I wondered if this account was the technician guy at the conservatory or the owner of the mobile phone shop.
+
+![march threats](../../content/images/threats/march-threats-12.png){width=65%}
+
+- Tyburski I took to mean they were going to tamper with my car. The comment is derogatory of course.
+
+![march threats](../../content/images/threats/march-threats-13.png){width=65%}
+
+- The message translates to: "TERF I live for revenge."
+
+![march threats](../../content/images/threats/march-threats-11.png){width=75%}
+![march threats](../../content/images/threats/march-threats-15.png){width=75%}
+
+- Gone fission I took to refer to a conversation I had with Christine BJ at lunch where I was explaining how being stalked like this felt. This was back in probably November 2023 sometime. I had said that I believe the trumpet teacher was going to be the man I married and that he was doing the "if he likes you he treats you badly" thing to nuclear fission levels.
+
+![march threats](../../content/images/threats/march-threats-10.png){width=65%}
+
+## 24th March
+
+### Valencia
 
 - I return to Valencia on the 24th March and stay in the Barcelo from 24th-27th, and then the Holiday Inn Express near the airport from 27th-29th March.
 - I have a flight scheduled from Valencia to India on 29th March returning on Saturday 6th April so I need to be back in Valencia.
-- In Valencia I feel like I am being constantly watched, that people know who I am, and everything is extremely unfriendly and unpleasant. I believe now this is to do with whatever drug they gave me prior to me leaving, which was a high dose, and it has made me very paranoid.
+- In Valencia I feel like I am being constantly watched, that people know who I am, and everything is extremely unfriendly and unpleasant. 
+- I believe now this is to do with whatever drug they gave me prior to me leaving, which was a high dose, and it has made me very paranoid.
 - I wonder also if they managed to re-dose me somehow, or was the damage done at that point.
-- I was extremely paranoid and constantly stalked by fake accounts on Twitter.
+- I was extremely paranoid in the physical world and I was constantly stalked by fake accounts on Twitter.
+
+## 31st March
+
+### Letter to the Guardia Civil
+
+- I write to the Guardia Civil from my hotel room in Mumbai.
+
+    - [Letter in English](../../content/documents/evidence/civil-guard.pdf).
+    - [Letter in Spanish](../../content/documents/evidence/civil-guard-spain.pdf).
+
+- I send it registered from Mumbai.
+- I don't know if anyone received it.
 
 ## Tweets
 
@@ -300,7 +418,7 @@
 
 ![Love poem](../../content/tweets/taru-ann-poem-2.png){width=65%}
 
-- At the same time, she retweets a pic from 12th June 2023, which I have been unable to locate so [asked the account owner about it directly](../../content/tweets/long-long-way-to-go.png)
+- At the same time, she retweets a pic from 12th June 2023, which I have been unable to locate so [asked the account owner about it directly](../../content/tweets/long-long-way-to-go.png) but she has not been forthcoming.
 - I begin to suspect that whoever is managing the Taru Ann account could be well known to me.
 - On September 22nd, after weird communication from Trish Penny all summer, I wonder if Taru Ann is Trish from time to time: https://x.com/1FRGVN/status/1837596563557831058. The account likes my question in response.
 
@@ -343,4 +461,4 @@
 
 ### `@JackChardwood`
 
-It seems the tweets in here are mostly related to romance and relationship, i.e. keeping the lie going.
+It seems the tweets in here for this period are mostly related to romance and relationship, i.e. keeping the lie going.

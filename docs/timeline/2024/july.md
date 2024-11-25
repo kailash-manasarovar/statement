@@ -5,6 +5,7 @@
 ## Belgium
 
 - I'm at a crypto conference in Belgium 8-11th
+- ECHR (reference March)
 
 ## Denia
 
