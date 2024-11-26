@@ -127,6 +127,13 @@
 
 ![Mac certificates](../../content/images/hacked-work-laptop/weird-issues-with-certificates.png){width=65%}
 
+- He asks me to check on FireFox too.
+
+![Firefox security alert](../../content/images/hacked-work-laptop/hacking-alert.png){width=65%}
+
+!!! tip
+    - The screenshots above are from my work laptop.
+
 - He says this is enough evidence of hacking through the router for them to lock me down and reformat my laptop.
 - I have to work somewhere else while I get a new router and change the ISP from Yoigo to Movistar.
 - They put the FalconSensorMacOS.MaverickGyr.pkg on both my work and my personal laptop. The files are [here](https://drive.google.com/file/d/1MPTzekQ0o7pLizShUsWR_b-3qq73Aa-W/view?usp=sharing).
@@ -188,14 +195,13 @@
 - At precisely that moment, my security camera at home goes off and sounds an alarm on my phone. I don't have time to look.
 - The woman dressed as Lorraine (who I now believe to be Carmen Cano, Domingo's sister) and a man sit directly behind me, in seats have been saved for them.
 - Trish Penny, Christine BJ, and another English woman have come to listen. They maybe know what's going on, it's not clear. Certainly there is a frosty feeling, and when we walk out and I insist I'm going to continue playing the piano, and play some Spanish flamenco songs, Trish visibly grimaces.
-- When I get home that night, I check my camera security camera. At 7.30pm, recorded on my security camera, you can hear a group of men making ghost noises; "woooo-woooo". 
+- When I get home that night, I check my camera security camera. 
 
 ![Screenshot of the security cam alarm pic](../../content/documents/evidence/12-march-alarm-notification.jpeg){width=65%}
 
-- The following day, a stalker account posts a message referencing my security cam.
+- There's an orb in the video captured. 
+- I post a Twitter poll about it: https://x.com/AIinAmerica/status/1767668324442284540
 
-![Security cam threats](../../content/tweets/piano-concert-threat.png)
-![Security cam threats](../../content/tweets/piano-concert-threat-info.png){width=65%}
 
 - After the concert, I'm blocked from downloading the videos of the concert on the Generalitat's systems.
 
@@ -223,6 +229,13 @@
 - I turn up to choir class that evening.
 - The teachers and the adult staff are angry with me for showing up.
 - They set up Pablo to "bump" into me on the way into class. He seems really upset he had to do this and I'm furious about that.
+- In class, my security cam alarm goes off on my phone. I check it.
+- I can hear, recorded on my security camera, a group of men making ghost noises; "woooo-woooo". 
+- That evening, a stalker account reposts my poll from the day before.
+
+![Security cam threats](../../content/tweets/piano-concert-threat.png)
+![Security cam threats](../../content/tweets/piano-concert-threat-info.png){width=65%}
+
 - While I'm sitting in class, I text a message to Chris BJ saying something like "I think all this aggression is probably training for my political career".
 - Both the choir teacher's and the woman who sits beside me's (French horn player) phones beep at about the same time to alert them they've received a WhatsApp message.
 - They both read it at the same time.
