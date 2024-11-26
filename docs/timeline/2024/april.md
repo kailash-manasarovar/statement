@@ -101,6 +101,7 @@
 
 ## Constant stalking
 
+- Even though I have left the conservatory, the stalking continues online and in person.
 - I'm followed on a shopping trip to Iceland by a small wire black-haired man who is hopping and dancing around as he tracks me around the isles.
 - I'm followed walking to Las Rotas and random people say disparaging things about me as they walk past, laugh and jeer, and take photos.
 - Every night, a car runs it's engine outside my flats (and everyone else can hear it also of course), but it's just threatening. Everything is threatening to me now.
