@@ -1,7 +1,7 @@
 ## Hazel Smith on Twitter
 
-- This account was likely Hazel as we had a long chat: https://x.com/1FRGVN/status/1785410648802734485.
-- The English on many of the stalker accounts was native, could have been anyone in the region I suppose, except this account knew things that only myself and Hazel (or people who know her intimately) would know.
+- This account was likely Hazel, or her mum, as we had a long chat: https://x.com/1FRGVN/status/1785410648802734485.
+- The English on many of the stalker accounts was native. It could have been anyone in the region I suppose, except this account knew things that only myself and Hazel (or people who know her intimately) would know.
 - The account profile pic is the face of my chamber music teacher that year, Esteve, which means that Hazel must be connected to Domingo in some way.
 
 ![Hazel](../../content/images/threats/hazel/choral-symphony.png)
@@ -26,6 +26,7 @@
 - I climb the Montgo one Saturday afternoon.
 - Close to the top, I "bump" into Ana. She is with a husky dog and a short, slightly built man.
 - I realize it was him in the [blue car incident](../2023/november.md#ana-in-the-blue-van) ducking down.
+- I also remember him from meeting Paul and Alessandra back in September 2023 in a cafe as one of the people who suddenly sat down beside us.
 - She says hello in an angry way. I find it utterly ironic and wonder if all Spanish people are psychopaths.
 
 ## The trumpet teacher in Denia
@@ -63,6 +64,8 @@
 
 ## Madrid
 
+- I change my flight details to fly out from Valencia to Bali where there is a works do
+- I head to Madrid for a week.
 - Outside the hotel I see strange guys hanging around.
 
 ## My speech
@@ -92,8 +95,6 @@
 - Nowhere to go ..
 - Expert
 
-## Another cracked rib
-
 ## Lourdes
 
 - I leave for Lourdes at the end of the month.
@@ -103,3 +104,6 @@
 ### `@1frgvn`
 
 - https://x.com/1FRGVN/status/1794467120207765821
+
+### `@JackChardwood`
+

@@ -4,14 +4,14 @@
 
 ## Response from Generalitat
 
-- I receive a letter from the Generalitat in response to my complaints on 3rd April 2024 and pick it up on my return.
+- On my return, I receive a letter from the Generalitat in response to my complaints dated the 3rd April 2024.
 - It basically says they investigated and found nothing at all.
     - [Page 1 of GV response](../../content/documents/gv/Response%20from%20the%20Generalitat%203%20April%2024%202.JPG).
     - [Page 2 of GV response](../../content/documents/gv/Response%20from%20the%20Generalitat%203%20April%2024%201.JPG).
 
 ## Leak resumes
 
-- The leak from my car washer resumes. I text Pedro the caretaker about it.
+- The leak from my car washer has started again. I text Pedro the caretaker about it.
 
 ![Text Pedro about the leak](../../content/whatsapps/chat-about-the-leak-with%20pedro.jpg){width=45%}
 
@@ -45,7 +45,7 @@
 
 ## Paqui account
 
-- Another fake account with a very threatening picture of Paqui (as a younger person) on it appears on Twitter.
+- The fake account with a very threatening picture of Paqui (as a younger person) appears again on Twitter.
 
 ![Paqui](../../content/images/fake-accounts/paqui1.png){width=65%}
 
@@ -61,55 +61,60 @@
 
 ## Lawyer
 
-- I believe I'm going to be arrested. Given the outrageous behavior of teachers and staff, and the police's disinterest, and the seriousness of what's been happening to me, I'm quite sure that anything is possible.
-- I guess a lot of these fears are also easily triggered online.
+- I believe I'm going to be arrested at any moment. 
+- Given the outrageous behavior of teachers and staff, and the police's disinterest, and the seriousness of what's been happening to me, I'm quite sure that anything is possible.
+- I guess a lot of these fears are also being triggered by hackers and stalkers online.
 - I search for a lawyer and send an [email to a number of lawyers in the region asking for help](../../content/documents/emails/worried-the-conservatory-will-accuse-me-of-defamation.png).
 - I find a lawyer who can help me if I'm arrested who speaks English. He can also help me with any translating.
-- I believe now he is probably connected to the criminal gangs.
+- I believe now he is probably connected to the criminal gangs and it was easy to direct me to him because, as we have seen, they have full access to my devices and online use.
 
-![Robert the lawyer](../../content/whatsapps/roberto-laywer.jpg){width=45%}
+![Roberto the lawyer](../../content/whatsapps/roberto-laywer.jpg){width=45%}
 
 !!! info
-    - It's very weird but I cannot remember if I met him in person or not in Alicante at DPR.
+    - It's very weird but I cannot remember if I met him in person or not in Alicante at [DPR](../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf).
     - I was extremely stressed and had a long conversation with him, I can't remember when now.
-    - My mind was clearly so overwhelmed at this time. I felt then, and now to a lesser extent, extremely absent-minded and forgetful, as if there is literally no space for all this information.
-    - Was I close to cracking and having a nervous breakdown? I believe this is possible. Although the anxiety I experienced never approached the intense anxiety I had experienced as PTSD from sexual violence, I do remember shaking, and I couldn't think or speak clearly.
-    - Were they drugging me again through the water at home or some other way?
+    - My mind was clearly overwhelmed at this time. I felt then, and now to a lesser extent, extremely absent-minded and forgetful, as if there is literally no space for any more information.
+    - Was I close to cracking and having a nervous breakdown? I believe this is possible. 
+    - Although the anxiety I experienced this year never approached the intense anxiety I had experienced as PTSD from sexual violence, I do remember shaking, and not being able to perform simple tasks, and I couldn't think or speak clearly at all.
+    - I also wonder if they were drugging me again through the water at home or some other way?
 
 ## Hacking expert
 
 - I take one laptop, the Yoigo router, and a webcam which I believe they have accessed to the expert DPR we wrote to in Alicante.
-- I meet David and his assistance.
+- I meet David and his assistant.
 - The lawyer helps with translating, I believe over the phone, but he may have been present.
 - I tell them about how they have sexual films of me. I'm clearly very upset.
-- The lady in the shop is bound to remember me as she looked very alarmed when I was telling her how I had been filmed without my knowledge.
-- However, I know and feel that I probably can't trust anyone here, so I only give them a few devices, and not the devices I know will come up positive for hacking.
+- The lady in the shop is bound to remember me as she looked very alarmed when I was telling her how I had been filmed sexually without my knowledge.
+- However, I feel that I probably can't trust anyone here, so I only give them a few devices, and not the devices I know will come up positive for hacking.
 - I give them the following:
-    - My Asus Zenbook 13 laptop: He finds nothing on here so I ask him to reformat the device for me. This device could be rechecked now as it was connected again to my new Movistar router which was accessed by hackers immediately.
-    - The Yoigo router: He asks for the password to the router. I give it to him. He then says that routers aren't able to be analyzed. I kept the router so we could check again.
+    - My Asus Zenbook 13 laptop: He finds nothing on here so I ask him to reformat the device for me. This device could be rechecked now as it was connected again to my new Movistar router which was accessed by hackers immediately it was installed.
+    - The Yoigo router: He asks for the password to the router. I give it to him. He then says that he can't analyze routers. I kept the router so we can check again.
     - A security camera: There was no storage card in the webcam so he could not check anything here. I don't know what happened to the card.
-- When I go to collect my devices, I pay 150 euros and he says he can check all my Twitter activity so I give him both my account details.
+- When I go to collect my devices, I pay 150 euros and he says he can check all my Twitter activity instead, so I give him both my account details.
+- We have never heard back from him on this.
 
 ## I get an Orange SIM
 
-- I go to Orange in Denia to get a SIM for my analog phone that cannot connect to internet so I can't be followed in the way that I have been.
-- The number the give me ends in 007.
+- I go to Orange in Denia to get a SIM for my analog phone that cannot connect to Internet.
+- I'm hoping that I can use it in emergencies and that I can't be followed using it in the way that I have been.
+- The number they give me ends in 007.
 
 ## Constant stalking
 
 - I'm followed on a shopping trip to Iceland by a small wire black-haired man who is hopping and dancing around as he tracks me around the isles.
-- I'm followed walking to Las Rotas and people say disparaging things about me as they walk past, laugh and jeer, and take photos.
+- I'm followed walking to Las Rotas and random people say disparaging things about me as they walk past, laugh and jeer, and take photos.
 - Every night, a car runs it's engine outside my flats (and everyone else can hear it also of course), but it's just threatening. Everything is threatening to me now.
 - I'm overwhelmed with sexual arousal yet again.
 
 ## Let that sink in
 
 - Google search shows pictures of sinks, i.e. let that sink in.
-- Someone posts about witches owning conservatories, which they post on Google search results.
+- The message, which took me ages to get, was a kind of middle finger to me after having to leave my piano studies.
+- Someone posts about witches owning conservatories on Google search results, see below.
 
 ## The boys
 
-- The B.A. Feldman account and another account close to this one posted pictures of themselves as boys back sometime in November 2023.
+- The B.A. Feldman account and another account close to this one posted pictures of (apparently) themselves as boys back sometime in November 2023.
 - These pics remain to this day on my Google search and I only ever looked at them one time.
 
 ![Two boys pictures](../../content/images/google-searches/two-boys.png){width=75%}
@@ -129,9 +134,11 @@
 !!! important
     - As a reminder, I accessed the tweets these pics were posted on one time on Twitter, and those posts have consequently been deleted. 
     - There is no reason for these two pics to keep on coming up unless they have some sticky cookie element, but they come up even after a reset to factory settings, so I don't understand how they do it, unless they have access to my Google accounts.
-    - It's never clear why they would do this.
+    - It's never clear why they would do this apart from to somehow keep the game going, and for me to continue to believe there is a reciprocal relationship going on in some weird way.
 
 ## Twitter
+
+- todo:
 
 ### `@1frgvn`
 
