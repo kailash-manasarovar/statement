@@ -451,7 +451,11 @@
 ![Mike](../../content/images/threats/mike-wenham/march-threats-mike-wenham-2.png)
 
 - I looked at the profile of the account and it was a typical fake account used by stalkers, just a few messages and followers.
-- The message on the timeline was very suggestive because I had just found my mum's Twitter account. My cousin Leah had found me somehow a while back and I believe she told my mum I was on Twitter and gave her my details. I saw her following me.
+- The message on the timeline was very suggestive because I had just found my mum's Twitter account. My cousin Leah had found me somehow a while back and I believe she told my mum I was on Twitter and gave her my details. 
+- I saw her following me and subsequently found out it really was her. Curiously, the hackers were more sure of that than me at that time! Initially, I had thought it was another fake account.
+
+![mum](../../content/images/mummy.png){width=65%}
+
 - Anyway, the whole interaction with this account was extremely threatening.
 
 ![Mike](../../content/images/threats/mike-wenham/mike-2.png)

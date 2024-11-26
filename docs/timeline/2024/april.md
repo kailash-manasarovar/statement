@@ -140,9 +140,11 @@
 
 ## Twitter
 
-- todo:
+- Tweets of interest to follow.
 
 ### `@1frgvn`
+
+
 
 ### `@JackChardwood`
 

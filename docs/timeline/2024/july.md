@@ -20,6 +20,11 @@
 - I explain it very clearly with screenshots.
 - We never hear anything from the expert in Alicante.
 
+## Dénia
+
+- Nowhere to go ..
+- Expert
+
 ## Big chat with the hacker
 
 - The chat begins and goes on till he tells me about Irene, plate lady, and I look her up and find her.
