@@ -138,13 +138,43 @@
     - It's never clear why they would do this apart from to somehow keep the game/con/fraud going, so that I will continue to believe there is a reciprocal relationship going on in some weird way.
     - They are long-game honey-trappers, after all.
 
+## Let Women Speak
+
+- Posey Parker (Kelly Jay Keen) is coming to do a Let Women Speak event in Madrid in May and I'm going to steward it.
+- I'm also planning to speak too.
+
 ## Twitter
 
 - Tweets of interest to follow.
 
 ### `@1frgvn`
 
-
+- https://x.com/1FRGVN/status/1784719295261384849 -> smelling toast.
+- https://x.com/1FRGVN/status/1784677373998207117 -> speech snippets for Madrid Let Women Speak.
+- https://x.com/1FRGVN/status/1784565249028284779 -> I informed my old workplaces that I had been hacked while working for them.
+- https://x.com/1FRGVN/status/1784542558862918107
+- https://x.com/1FRGVN/status/1784540203220074912 -> mentioning remembering the facepack thing from [2014](../early-years/2016.md#may).
+- https://x.com/1FRGVN/status/1784528919112106410 -> I had told my friend it felt like all these witches were sitting round knitting and casting evil spells on me.
+- https://x.com/1FRGVN/status/1784521239114953166 -> reference to hacking.
+- https://x.com/1FRGVN/status/1784264538151370833
+- https://x.com/1FRGVN/status/1784229315430768709 -> reference to sexual feelings.
+- https://x.com/1FRGVN/status/1784109158037389456
+- https://x.com/1FRGVN/status/1783619334906036671
+- https://x.com/1FRGVN/status/1783616160992276606
+- https://x.com/1FRGVN/status/1783615253118394766
+- https://x.com/1FRGVN/status/1783194049417007494
+- https://x.com/1FRGVN/status/1783193112896065859
+- https://x.com/1FRGVN/status/1782487919497797676 -> strawberries
+- https://x.com/1FRGVN/status/1782374466820968905
+- https://x.com/1FRGVN/status/1782166832113144050
+- https://x.com/1FRGVN/status/1782156422110650665
+- https://x.com/1FRGVN/status/1782150606909563340
+- https://x.com/1FRGVN/status/1781975115900584378
+- https://x.com/1FRGVN/status/1781969760395166111
+- https://x.com/1FRGVN/status/1781892021164109890
+- https://x.com/1FRGVN/status/1781839580821397692
+- Here's the search URL: https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-04-30%20since%3A2024-03-31&src=typed_query&f=live
 
 ### `@JackChardwood`
 
+- https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2024-04-30%20since%3A2024-04-01&src=typed_query&f=live

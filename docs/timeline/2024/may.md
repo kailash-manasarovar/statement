@@ -71,6 +71,11 @@
 
 ## My speech
 
+- Youtube link
+
+## The Spanish feminists tell me why they didn't support me
+
+
 ## Telegram/Signal
 
 - I believe they started to drug me seriously again when I got back to Denia in April.
@@ -84,8 +89,6 @@
 - It was like the trumpet teacher was in my mind.
 - I was completely out of my mind.
 - They must have managed to drug me somehow during this time. I was out of my mind.
-
-## The Spanish feminists tell me why they didn't support me
 
 ## Perito
 
