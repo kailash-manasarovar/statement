@@ -98,13 +98,38 @@
 ## Constant stalking
 
 - I'm followed on a shopping trip to Iceland by a small wire black-haired man who is hopping and dancing around as he tracks me around the isles.
-- I'm followed walking to Las Rotas and people say disparaging things about me and take photos.
-- Every night, a car runs it's engine outside my flats (and everyone else can hear also of course), but it's just threatening. Everything is threatening to me now.
+- I'm followed walking to Las Rotas and people say disparaging things about me as they walk past, laugh and jeer, and take photos.
+- Every night, a car runs it's engine outside my flats (and everyone else can hear it also of course), but it's just threatening. Everything is threatening to me now.
+- I'm overwhelmed with sexual arousal yet again.
 
 ## Let that sink in
 
 - Google search shows pictures of sinks, i.e. let that sink in.
 - Someone posts about witches owning conservatories, which they post on Google search results.
+
+## The boys
+
+- The B.A. Feldman account and another account close to this one posted pictures of themselves as boys back sometime in November 2023.
+- These pics remain to this day on my Google search and I only ever looked at them one time.
+
+![Two boys pictures](../../content/images/google-searches/two-boys.png){width=75%}
+
+- Both boys are in this screenshot from my mobile.
+
+![Littler boy](../../content/images/google-searches/littler-boy.JPG){width=45%}
+
+- The young man coming up in search since November 2023.
+
+![Bigger boy](../../content/images/google-searches/google-search-young-man.png)
+
+- I'm supposed to believe these are the brothers, the trumpet teacher and his twin, I think. I'm not sure. Anyway, they're still on my Google search to this day.
+
+![Two boys even today](../../content/images/google-searches/two-boys-today.png)
+
+!!! important
+    - As a reminder, I accessed the tweets these pics were posted on one time on Twitter, and those posts have consequently been deleted. 
+    - There is no reason for these two pics to keep on coming up unless they have some sticky cookie element, but they come up even after a reset to factory settings, so I don't understand how they do it, unless they have access to my Google accounts.
+    - It's never clear why they would do this.
 
 ## Twitter
 
@@ -112,6 +137,3 @@
 
 ### `@JackChardwood`
 
-### Google searches
-
-- 

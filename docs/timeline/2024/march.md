@@ -343,8 +343,10 @@
 
 ### Twitter screenshots
 
-- The B.A. Feldman account has been pretending to be the trumpet teacher for a while.
+- The B.A. Feldman account has been pretending to be the trumpet teacher for a while. Quite often, Trump features in accounts I'm supposed to believe are the trumpet teacher's.
 
+![ba feldman account](../../content/images/fake-accounts/ba-feldman-1.png){width=65%}
+![ba feldman account](../../content/images/fake-accounts/ba-feldman-2.png){width=65%}
 ![march threats](../../content/images/threats/march-threats-1.png){width=65%}
 
 - The following account is an example of a few which had pure violence as content around this time. 
