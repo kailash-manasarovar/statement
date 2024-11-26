@@ -171,7 +171,7 @@
 ### Domingo demonstrates his control of women again
 
 - The following day, I'm going to practice the piano at the conservatory.
-- As I'm going up the stairs, Domingo is coming down the stairs and he's sort of behind and semi-forcing this young woman down along with him at his pace. They are closely connected.
+- As I'm going up the stairs, Domingo is coming down the stairs and he's sort of behind and semi-forcing this young woman down along with him at his pace, like frogmarching. They are closely connected.
 - It reminds me of how the man forces [the woman in the tunnel](../2023/november.md#tonya) along whenever I see them.
 - The woman looks mix-raced and I wonder if she is the German ex-girlfriend he mentioned back in 2014.
 - It's a demonstration for my benefit. I'm not impressed.
