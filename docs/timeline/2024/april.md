@@ -5,6 +5,9 @@
 ## Response from Generalitat
 
 - I receive a letter from the Generalitat in response to my complaints on 3rd April 2024 and pick it up on my return.
+- It basically says they investigated and found nothing at all.
+    - [Page 1 of GV response](../../content/documents/gv/Response%20from%20the%20Generalitat%203%20April%2024%202.JPG).
+    - [Page 2 of GV response](../../content/documents/gv/Response%20from%20the%20Generalitat%203%20April%2024%201.JPG).
 
 ## Leak resumes
 
@@ -19,20 +22,26 @@
 - Pedro is a bit pervy, you see.
 - The leaks stops and/or is intermittent.
 - The following June, my garage in North London fix a broken motor in the window washer function of my car and tell me there's no leak at all.
-- I believe Pedro may be involved in adding narcotics to my car in some way, or knows something because if anyone tampered with my car in the garage, he would know.
+- I believe Pedro may be involved in adding narcotics to my car in some way, or knows something. If anyone tampered with my car in the garage, he would know.
 - I wondered if they managed to add something to come through the air vents, or something I could touch on the door handles maybe.
 - I told Pedro that I had been filmed sexually and I would pay 500 euros for any recordings.
 - He was fired soon after.
 
 ## Resign from the conservatory
 
-- I send resignation letters to Paqui.
+- I send resignation letters to Paqui via email on Monday 8th April.
+    - [Resignation letter in English](../../content/documents/emails/12.%20Resign%20from%20conservatory%20letter%20-%20EN.pdf).
+    - [Resignation letter in Spanish](../../content/documents/emails/12.%20Resign%20from%20conservatory%20letter%20-%20ES.pdf).
+    - [Email receipt of sending](../../content/documents/emails/12.%20Email%20receipt%20of%20resigation%20letter.png).
 
 ## Paqui's response
 
-- Mentions the police again
-- I ask her to confirm what they went to the police about
-- She ignores me
+- Paqui responds via email on Tuesday 9th April.
+    - [Paqui's response](../../content/documents/emails/14.%20Paqui's%20reply%20to%209%20April%20email.png).
+- She says they have gone to the police that morning to "explain my situation", she also says she is "at my disposition for anything I might need".
+- I ask her to confirm what they went to the police about.
+- She ignores me.
+- I think this triggers a PTSD reaction from the cyber stalking because I become convinced again I'm going to be arrested for some undisclosed matter, my friend suggests defamation.
 
 ## Fake account with teachers on
 
