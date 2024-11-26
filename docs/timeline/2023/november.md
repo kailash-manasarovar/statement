@@ -1,9 +1,9 @@
 ## Conservatory
 
 - Classes continue.
-- Choir class is full of threat towards me via suggestive scores, Nacho popping his nose in all the time and looking at me, discussions about trumpets, mentions of Vidal and how I'm thinking about him, Domingo's students asking me ridiculous things, the choir teacher being offensive towards me in Valenciano which I don't understand, comment from the children which seem weird, for example about my name, and other stuff.
+- Choir class is full of threats towards me via suggestive scores, Nacho popping his nose in all the time and looking at me, discussions about trumpets, mentions of Vidal and how I'm thinking about him, Domingo's students asking me ridiculous things, the choir teacher being offensive towards me in Valenciano which I don't understand, comments from the children which seem weird, for example about my name, and other stuff.
 - The choir teacher makes fun of my name somehow, I don't understand the joke. This goes on continually and even concerns some of the kids.
-- The French horn player, an adult woman who sits beside me, is involved. She waits at the stairs to see my reaction to Nacho as he passed by me one evening after class. When I grimace, she is satisfied and leaves.
+- The French horn player, an adult woman who sits beside me, is involved. She waits at the stairs to see my reaction to Nacho as he passes by me one evening after class. When I grimace, she is satisfied and leaves.
 - I'm anxious, a lot, in choir class.
 - Piano is good. I enjoy playing. Paqui seems fierce but fair. I have no idea how much she hates me and/or what she is planning with all the teachers.
 
@@ -25,7 +25,7 @@
 !!! important
     - It's key to note that no-one spoke to me at all about anything that was going on, right from the moment I came back.
     - There was a wall of silence around me.
-    - The only person who ever said anything to me about anything that was going on was Paqui. One of which was in class sometime in February 2024, when she casually remarked after I told her how stressed I was feeling because of being terrorized that, "oh it's what they do here".
+    - The only person who ever said anything to me about anything that was going on was Paqui. One of which was in class sometime in February 2024, when she casually remarked after I told her how stressed I was feeling because of being terrorized that, "oh it's what the men do here".
 
 ## Weird guy at conservatory
 
@@ -68,7 +68,7 @@
 
 - "But what if a nervous sweaty elephant tells it to me", is in relation to my PTSD reaction towards the trumpet teacher when I tried to talk to him and is a derogatory reference to my weight too. 
 - My reaction to "give him a peanut" is ironic, I know I'm being wound up.
-- The reply is in reference to pedophiles which I shut down.
+- The reply is in reference to pedophiles and voyeurs.
 - I'm feeling extremely nervous and anxious. I go to choir.
 - I sit down at my usual seat. The woman who plays the French horn sits down next to me stinking of peanuts. She is eating a peanut-butter sandwich of some sort.
 - The choir teacher mentions elephants and trumpets and trunks continually throughout the class.

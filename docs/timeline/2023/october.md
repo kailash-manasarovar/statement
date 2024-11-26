@@ -135,6 +135,7 @@
 - Once inside, we "bump into" this very dodgy French bloke who says he studies guitar at the conservatory and wants to know things about me. 
 - A young man with him dressed as the joker is quite menacing towards me.
 - I sing a song, a cockney song, You Made Me Love You, which blows their minds a little.
+- Alessandra tells me later, a few times, that the French man had wanted to know about Halloween in 2007 and whether I had a ukelele and had sung Back to Black.
 
 ## Tweets
 

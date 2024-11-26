@@ -1,6 +1,6 @@
 ## The trumpet teacher has a brother
 
-- I'm walking through the tunnel back home after class one evening as usual. As I'm emerging from the tunnel, I see a man who looks *exactly* like the trumpet teacher walking on the road. He has timed it so I will see him.
+- I'm walking through the tunnel back home after class one evening as usual. As I'm emerging from the tunnel, I see a man who looks *exactly* like the trumpet teacher walking along the road. He has timed it so I will see him.
 - This man is clearly the trumpet teacher's brother. The likeness is so strong, they could be twins.
 - I run up behind him and cross the road about a metre before I reach him. He flinches.
 - Later that evening on Twitter, I see stalker posts talking about how "my brother always steals everything from me", and I reply "rotten bugger": https://x.com/1FRGVN/status/1730310006132650141
@@ -38,13 +38,13 @@
 
 ## Meeting Alessandra
 
-- I'm meeting Alex now and then for coffee to chat. 
+- I'm meeting Alessandra now and then for coffee to chat. 
 - It's nice to have someone to talk to as I have no one else apart from my friend in Lourdes.
 - I now believe she is reporting back to the stalkers, including Hazel.
-- When I first saw Alex again after nearly 15 years, one of the first things she asked me was "who's your accountant".
+- When I first saw Alessandra again after nearly 15 years, one of the first things she asked me was "who's your accountant".
 - I show her the Google search results I'm seeing and how it's a conversation of some sort. I explain how it works and how it has been working since it started in June.
 - I show her the picture of me in my underwear and I explain where it's from.
-- She looks briefly alarmed.
+- A flash of alarm crossed her face.
 - I show her a tweet that comes up from time to time on the `@jctot19` account which is clearly a message for me. It's quite complicated Spanish but says something like: "they thought you were an idiot, but they were wrong" -> *I might have this screenshot somewhere so I'll post it when I'm going through all the screenshots after I finish this timeline.*
 - I first saw this tweet in July and I remember being so curious about what it meant as it was language I was unfamiliar with, I translated it on my mobile at Valencia airport on my way back from Thailand.
 - Of course it made me think that the trumpet teacher still liked me.
@@ -85,7 +85,7 @@
 - He tells me he's nervous because he usually sees me on the WhatsApp group and chatting with me directly is different.
 - He tells me about his children. He says he has three daughters and a son from two different marriages. He talks about how he is unhappy his daughters have no political inclinations.
 - The interaction goes on till the end of December.
-- Our interactions make it much clearer to me about who he is, or who this person wants me to think he is.
+- The communication make it much clearer to me about who he is, or who this person wants me to think he is, and I start to believe I have a boyfriend.
 
 ## Avila
 
@@ -94,9 +94,9 @@
 
 ## Meditation
 
-- I'm extraordinarily high at meditation volunteering.
-- My behavior is erratic and bizarre - looking back.
-- I believe it is because I am in love but now I'm not so sure and I believe I was somehow being spiked, possibly through my car as the "problem" with the washing fluid was still happening. Could someone have been tampering with the air-conditioning/heating system in my car?
+- I'm extraordinarily high at meditation volunteering too.
+- Looking back, my behavior is erratic and bizarre and not like me at all.
+- I believe it is because I am in love but now I'm not so sure and I believe it's possible I was somehow being spiked, possibly through my car as the "problem" with the washing fluid was still happening. Could someone have been tampering with the air-conditioning/heating system in my car?
 - The center may well remember my behavior being a bit strange. I was actually separated from the others because I was so exuberant, singing, talking, joking, making jokes of a sexual nature too. Honestly, it was like I'd been hit on the head. I'm not usually like this at all.
 - You could ask them.
 - Honestly, looking back, I must have been on something.
@@ -112,7 +112,8 @@
 - I wonder now if they got high with whatever was in my car too.
 - It might be useful to track them down.
 - She was Finnish, he was German. She was much older than him.
-- Whenever I'm feeling a little bit paranoid, I wonder if she knew what was going on. There is a strong Finnish connection with the trumpet teacher, [something that Trish Penny said](../2022/march.md#conservatory-open-day) that first time we went walking and she was there. She had a ukelele and sang Back to Black.
+- Whenever I'm feeling a little bit paranoid, I wonder if she knew what was going on. There is a strong Finnish connection with the trumpet teacher, [something that Trish Penny said](../2022/march.md#conservatory-open-day) that first time we went walking and she was there. 
+- She had a ukelele and sang Back to Black like I did in 2007 on Halloween.
 - She blinks weirdly at me while she's singing the song.
 
 !!! info
@@ -123,18 +124,19 @@
     - Blinking may have been my only way to register sexual assault as it was happening and while I was sedated.
     - If I'm right about the Finnish woman, in deeply paranoid moments, it certainly appears much more is going on than at first meets the eye.
     - I wonder if *all* the teachers and staff, especially the women, and the townsfolk of Denia are aware of the depths of evil this story potentially contains.
-    - It's perhaps important to note that abuse sufferers, like myself, are going to be broadly more open to seduction manipulation techniques due to the tearing down of psychological boundaries during such attacks.
+    - It's perhaps important to note that abuse sufferers, like myself, are going to be broadly more open to subtle seduction manipulation techniques due to the tearing down of psychological boundaries during such attacks.
+    - Ironically, we will also notice them more clearly due to our heightened awareness capabilities.
 
-- I wonder now if this woman was somehow involved did she manage to drug me further because when I got back to Madrid I was out of my mind.
+- I wonder now if this woman was somehow involved did she manage to drug me further because, when I got back to Madrid, I was still out of my mind.
 - Curiously, she spoke to me about similar things I had noticed on Twitter content which seemed to be trying to make me insecure about how I looked and whether I was attractive enough for men. I thought that was weird, not as weird at the blinking though.
 
 ## Madrid
 
 - Back in Madrid after meditation, Matthew and I DM again.
-- We talk about things from when there was a chamber music class, and other stuff. It's personal matters only people related to the gang stalking would know.
-- In one of them, I ask him to come to Madrid. He says it's not happening.
+- We talk about things from the chamber music class with the trumpet teacher, and other stuff. It's personal matters only people related to the gang stalking would know.
+- In one of these chats, I ask him to come to Madrid. He says it's not happening.
 - I'm not sure it's actually the trumpet teacher at all but I'm extremely high and sexually aroused at this time and it's difficult to keep clear about what's going on.
-- I masturbate and I'm 100% sure now (at the time of writing) the sound of this happening is shared in real time with people in Denia and beyond maybe.
+- I masturbate and I'm 100% sure now (at the time of writing) the sound of this happening is shared in real time with people in Denia and beyond maybe, as the phone is on the bedside table.
 - I visit a friend and tell her everything that's been going on.
 - I tell her I'm communicating with the trumpet teacher with Twitter DMs, and I'm convinced I have a boyfriend, or soon will have one.
 - I ask her about Spanish men, what they're like, etc.
@@ -144,12 +146,12 @@
 - I projectile vomit into a wastepaper bin on a Metro platform.
 - I have really bad food poisoning for about 2 days.
 - My friend was not affected by anything, and we ate exactly the same things.
-- As I trawl through the tweetage around this time, I have to wonder if they wanted to shut me up and poisoned me for that reason.
+- As I trawl through the tweetage around this time, I notice I am very vocal about everything that is happening, and I have to wonder if they wanted to shut me up and somehow poisoned me for that reason.
 
 ## Hotel room selfie pic
 
-- An account: https://x.com/ItsMe50474936 interacts with me.
-- They post an extremely interesting picture.
+- An account: https://x.com/ItsMe50474936 interacts with me. Note the "It's me" name.
+- They post an extremely interesting picture to me.
 
 ![Woman taking a selfie in the hotel room](../../content/tweets/hotel-room-selfie-pic.png){width=65%}
 
@@ -161,7 +163,7 @@
 ## Twitter
 
 - It was around now that the hackers started to suggest they had access to the rape porn filmed of me in 1989.
-- They may have been suggesting it before (pictures of table on Google search) but it had not yet registered.
+- They may have been suggesting it before (pictures of tables on Google search) but it had not yet registered.
 - They posted pictures of a young girl's body that looked like me.
 - They also posted silhouettes of the same thing, with brutal porn suggestions.
 
