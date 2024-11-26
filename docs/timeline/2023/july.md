@@ -109,6 +109,7 @@ Some of my tweets from that time.
     - However, this tweet is definitively public and available so I'm guessing delegated access and/or involvement of the account owner.
 
 - Curiously, and something I've only just realized, is that I had no sexual feelings at all while I was in Thailand.
+- I met a woman on holiday with her family in Thailand and I told her everything.
 
 ## Durian for Gloria
 
