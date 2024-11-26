@@ -134,7 +134,8 @@
 !!! important
     - As a reminder, I accessed the tweets these pics were posted on one time on Twitter, and those posts have consequently been deleted. 
     - There is no reason for these two pics to keep on coming up unless they have some sticky cookie element, but they come up even after a reset to factory settings, so I don't understand how they do it, unless they have access to my Google accounts.
-    - It's never clear why they would do this apart from to somehow keep the game going, and for me to continue to believe there is a reciprocal relationship going on in some weird way.
+    - It's never clear why they would do this apart from to somehow keep the game/con/fraud going, so that I will continue to believe there is a reciprocal relationship going on in some weird way.
+    - They are long-game honey-trappers, after all.
 
 ## Twitter
 
