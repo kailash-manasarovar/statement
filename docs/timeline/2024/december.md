@@ -6,3 +6,4 @@
 - I suggest that gang stalkers are prosecuted for attempted murder.
 - I suggest that anyone found involved in poisoning or drugging is prosecuted for attempted murder.
 - I suggest that anyone found involved in sexual grooming is prosecuted for sexual abuse and/or rape.
+- I suggest that, where possible, the bodies of any suspicious deaths in the region are exhumed and analyzed for poisons and narcotics.

@@ -56,6 +56,10 @@
 - It's very weird. I realize now it was all completely planned and set up.
 - I immediately stop communicating with him and delete the twitter account I had created.
 
+### Novel entries
+
+- There are additions to this period in Ireland related to something Steve said to me, an email exchange between myself and him, and some interesting communications.
+
 ## I buy an iPhone
 
 - I take a colleague's advice and buy and iPhone in the hope it will impede hackers.
