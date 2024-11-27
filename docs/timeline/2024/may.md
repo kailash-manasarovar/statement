@@ -121,7 +121,7 @@
 - I receive an invoice document at that time.
 
     - [Invoice and receipt first page and payment](../../content/documents/evidence/DPR-1.JPG).
-    - [Invoice and receipt second page](../../content/documents/evidence/DPR-2.JPG)
+    - [Invoice and receipt second page](../../content/documents/evidence/DPR-2.JPG).
 
 ## Bali
 
