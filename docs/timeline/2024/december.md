@@ -8,3 +8,4 @@
 - I suggest that anyone found involved in sexual grooming is prosecuted for sexual abuse and/or rape.
 - I suggest that, where possible, the bodies of any suspicious deaths in the region are exhumed and analyzed for poisons and narcotics.
 - I suggest that, all previous residents in my flat or any flat managed by anyone related to these matters, is questioned.
+- And a first point of call should be Lorraine Blackbourn's family, and anyone that knew her, and to have a look at any police complaints she may have made prior to her untimely death by suicide.
