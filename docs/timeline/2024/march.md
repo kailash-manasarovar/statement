@@ -185,7 +185,7 @@
 
 ### Ana dresses as if she's pregnant
 
-- The Ana lie continues and, with the help of others, she choreographs ridiculous situations - tracks my movements using shared WhatsApp groups with the other teachers - in order that I see her going to the toilet dressed as if she is pregnant.
+- The Ana girlfriend lie continues and, with the help of others, she choreographs ridiculous situations - tracks my movements using shared WhatsApp groups with the other teachers - in order that I see her going to the toilet dressed as if she is pregnant.
 - On one of the last times I attended classes at the conservatory, probably Wednesday 13th March, Ana is playing trumpet music on her laptop and I hear it from her classroom as I walk by.
 
 ### A serious attack on my wellbeing from piano teachers at Denia conservatory
@@ -229,7 +229,15 @@
 
 - I need a translator to help me deal with the police.
 - After my experience with the [police in Denia in February](february.md#policia-nacional), I believe I need firm proof of hacking before I can go to them again!
-- I tell her everything, the child sexual abuse I suffered and how it made me intolerant of children being sexualized at the conservatory, and how I had been targeted for basically mentioning that very informally in 2015. 
+- I get a recommendation, Sara Lebanon, through an Irish woman Brenda who incidentally knows Alessandra very well. 
+- I tell her everything, the child sexual abuse I suffered (she's very alarmed at this) and how it made me intolerant of children being sexualized at the conservatory, and how I had been targeted for basically mentioning that very informally in 2015. 
+- She says to me, "Oh at least you know you're not imagining it." I wonder why she would say that. She says it a few times.
+
+!!! important "Gaslighting"
+    - *It must be a relief to know you're not imagining it*, and similar sentiments.
+    - This is a recurring theme that's repeated to me by Sara here, Paul, Alessandra, Chris BJ, and others.
+    - Paul says it one time I meet him, and retracts it the next time when he downplays everything.
+    
 - On the Guardia Civil website there's a list of experts who analyze devices for hacking for the police.
 - We look one up and she phones him. 
 - He is an expert in Alicante, Jorge. He sounds like he's totally stoned.
@@ -410,6 +418,34 @@
 ![hier encore threatening chat](../../content/images/threats/hier-4.png){width=65%}
 
 - I believe this account, like many others, is manned by either Hazel or Sandra Smith together with Domingo and Carmen Cano by delegation. The reason I say that is because the English is extremely fluent, very vernacular for some messages, and then not at all.
+
+### Ana account 
+
+- I wonder if this was Ana Girbes by delegation or otherwise. 
+- Whoever it was, the account interacted with me a lot and in a most unpleasant manner at times. 
+- I guess it's entirely possible this is just a random account which happened to find itself in the middle of a professional cyber stalking attack, but I doubt it.
+- Note she is calling herself `@loviatar` which is a bit of a play on words for avatar, and reminds me of the transformer figure I see on the `@jctot19` account every day, a figure which is drawn to look exactly like Ana Girbes, the musical language teacher at the conservatory.
+
+![Ana Girbes](../../content/images/fake-accounts/ani-lovi/ana.png)
+
+- The evening after the following interaction, Ana Girbes barks, literally, at me about my very private health matter that no one *could possibly* know about unless they had access to my Google search activity.
+
+![Ana Girbes](../../content/images/fake-accounts/ani-lovi/ana-1.png)
+
+- I can see them all laughing and giggling together after terrorizing me in this way at the conservatory.
+
+!!! danger
+    - Another reminder that these people are responsible for other people's children.
+
+- The account seems to be priming me to believe it is Ana Requena, and she is talking about her boyfriend the trumpet teacher. 
+- A lot of posts from her make these suggestions.
+- The account would go from being extremely mean to suddenly caring and kind. Here's the account being reasonable at one point.
+
+![Ana Girbes](../../content/images/fake-accounts/ani-lovi/ana-2.png)
+
+- And this is an example of the sort of gaslighting I would get after having been terrorized, as if I was imagining it. 
+
+![Ana Girbes](../../content/images/fake-accounts/ani-lovi/ana-3.png)
 
 ### Lorraine threats 
 
