@@ -4,6 +4,16 @@
 - I have spent one week in Lourdes already before I head up to Cauterets.
 - The online activity intensifies and I'm starting to realize people are watching me continuously online.
 - I connect with an old friend on Facebook, Matthew Copeland, and tell him I believe I have an audience on Twitter so I'm DJ'ing to them.
+
+![maff](../../content/messages/mc-1.png){width=45%}
+![maff](../../content/messages/mc-2.png){width=45%}
+![maff](../../content/messages/mc-3.png){width=45%}
+![maff](../../content/messages/mc-4.png){width=45%}
+![maff](../../content/messages/mc-5.png){width=45%}
+
+!!! tip
+    - Contact me for full access: info@forgivenet.co.uk
+
 - There are some weird things too which don't make sense, such as confusing access issues with my Skype account, strange messages on Twitter.
 - In truth the hackers are upping the game and getting ready to reveal themselves.
 
