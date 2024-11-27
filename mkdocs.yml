@@ -108,24 +108,23 @@ nav:
     - Pedophilia: crimes/pedophilia.md
     - Rape porn: crimes/rape-porn.md
   - Evidence:
-    - DMs: evidence/DMs.md
-    - Emails: evidence/emails.md
     - Manipulation techniques: evidence/manipulation.md
+    - CCTV: evidence/cctv.md
     - Memes and triggers:
       - Symbols: memes-triggers/symbols.md
       - Memes: memes-triggers/memes.md
-    - Google drive files: evidence/google-drives.md
-    - Mobile evidence: evidence/mobiles.md
-    - CCTV: evidence/cctv.md
-    - Perito: evidence/perito.md
-    - Drug testing: evidence/drug-test.md
-    - Heavy metal testing: evidence/heavy-metal.md
-    - Kidney health: evidence/kidneys.md
-    - Dark net searches: evidence/dark-net.md
     - Screenshots: evidence/screenshots.md
     - Twitter accounts: evidence/twitter-account.md
     - WhatsApps: evidence/whatsapps.md
     - Signal: evidence/signal.md
+    #- Google drive files: evidence/google-drives.md
+    #- Mobile evidence: evidence/mobiles.md
+    #- DMs: evidence/DMs.md
+    #- Emails: evidence/emails.md
+    #- Drug testing: evidence/drug-test.md
+    #- Kidney health: evidence/kidneys.md
+    #- Heavy metal testing: evidence/heavy-metal.md
+    #- Dark net searches: evidence/dark-net.md
   - Personal experience: 
     - Health: personal/health.md
     - Expenses: personal/expenses.md

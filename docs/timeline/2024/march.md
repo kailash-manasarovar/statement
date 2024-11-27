@@ -161,6 +161,15 @@
 
 - I get a desk at Nowhere co-working space in Denia: https://www.knowheredenia.com.
 
+### Tweets
+
+The following tweets are translated a lot.
+
+- https://x.com/1FRGVN/status/1766039222308188548
+- https://x.com/1FRGVN/status/1766127546100228463
+- https://x.com/1FRGVN/status/1766062150693396914
+- https://x.com/1FRGVN/status/1766017527300149464
+
 ## Sunday 10th March
 
 ### Text my family at the Chinese

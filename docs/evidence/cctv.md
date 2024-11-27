@@ -8,5 +8,5 @@
 
 ## Nowhere, Dénia, 14th March 2024
 
-- There should be CCTV of the five big blokes that came into terrorize me inside the building and outside too.
+- There should be CCTV of the five big blokes that came in to terrorize me inside the building, and outside too.
 - The outside cams should have evidence of the blond woman who I believe is related to Domingo Cano.
