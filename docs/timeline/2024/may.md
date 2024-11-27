@@ -117,6 +117,11 @@
 ## Perito - technical expert DPR
 
 - There are a bunch of emails over this time with the [perito in Alicante](../../content/documents/evidence/comms-with-perito.pdf).
+- I collect my equipment and pay 150 eur on 23rd May.
+- I receive an invoice document at that time.
+
+    - [Invoice and receipt first page and payment](../../content/documents/evidence/DPR-1.JPG).
+    - [Invoice and receipt second page](../../content/documents/evidence/DPR-2.JPG)
 
 ## Bali
 
