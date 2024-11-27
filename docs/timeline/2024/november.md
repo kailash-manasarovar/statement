@@ -118,3 +118,11 @@
 - I have completed up to January 2024 now, and fully drafted February 2024, so it's probably already enough to prove gang stalking, cyber stalking, and sexual grooming.
 - Hopefully I will be able to continue as best I can, but nothing would surprise me at this stage.
 - I believe I am continually targeted online by Domingo and Carmen Cano, Hazel Smith and her mother probably, and the trumpet teacher whoever he is.
+
+## Accessing the conservatory website
+
+- I wonder if the trumpet teacher has been re-employed by the Generalitat this year, under a different name of course, and I look up the conservatory website to check.
+- I'm blocked from accessing the website in the same way I was blocked from accessing the Guardia Civil website and the ECHR website.
+- If so, he will be there for one reason only, to sexually groom minors.
+
+![blocked from accessing webpage](../../content/images/blocked-from-accessing-page.png)
