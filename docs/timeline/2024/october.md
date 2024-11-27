@@ -27,6 +27,7 @@
 
 - As I'm driving to the hotel I've booked in Madrid, all of a sudden, the volume disappears on Google maps so I'm lost on the busy M30/M40 junctions.
 - When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back. Nothing works.
+- Even though my iPhone camera is blocked, I get notifications on fake accounts of items in my hotel room. Of course, only the camera facing me is blocked, not the one looking out.
 
 ## Poisoning
 

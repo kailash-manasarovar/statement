@@ -9,6 +9,12 @@
 ![Hazel](../../content/images/threats/hazel/choral-symphony-thread-1.png){width=75%}
 ![Hazel](../../content/images/threats/hazel/choral-symphony-thread-2.png){width=75%}
 
+- More recently (27th November), another account has popped-up as significant, Granny Smith. This account has been targeting people close to me who thought they met them in person, but in the end we discovered they never had.
+
+![Granny Smith](../../content/images/fake-accounts/lard-shugga.png)
+
+- This account is deleted over the last two days. The timing on that is interesting.
+
 ## The laundry
 
 - I go to the laundry to dry my clothes.
@@ -53,7 +59,7 @@
 
 ![Beams clown](../../content/tweets/beams-clown.png){width=65%}
 
-- This is a good example of the pattern of content coming from various anonymous accounts that interact with me, which I know are related to the trumpet teacher and Domingo; subtle threats of violence, subtle mentions of knowledge we share, trigger words and symbols, content peppered with romance and kindness, normal communication apparently, then a shock of some sort like the clown pic.
+- This is a good example of the pattern of content coming from the various anonymous accounts that have interacted with me, which I know are related to the trumpet teacher and Domingo; subtle threats of violence, subtle mentions of knowledge we share, trigger words and symbols, content peppered with romance and kindness, normal communication apparently, then a shock of some sort like the clown pic.
 - I remain extraordinarily highly sexually aroused during this month.
 
 !!! danger
@@ -61,10 +67,15 @@
 
 ## Madrid
 
-- I head to Madrid from the 5th to the 11th of May. I'm flying out of Madrid on the 11th May to Bali for an event with work.
+- I head to Madrid and stay from the 5th to the 11th of May. 
+- I'm flying out of Madrid on the 11th May to Bali for an event with work and need to get away from Denia as it is stressful being there.
 - Outside the hotel, I see strange guys hanging around and I always have the sense I'm being followed.
+- Words from random conversations I have are posted on fake account profiles.
 - Inside the hotel, online, I am stalked continuously and I believe they get full access again to my new Spanish mobile at this time.
+- I have forgotten to block the camera and there is a significant message that describes something in the room or something I'm wearing
 - Around this time, I receive notification that the conservatory has banned mobiles from the building and I inform my friend about this.
+- I am extremely sexually aroused during this time. And it felt like the trumpet teacher was in my mind.
+- They must have managed to drug me somehow during this time. I was out of my mind.
 
 ### Novel events
 
@@ -73,48 +84,58 @@
 ## My speech
 
 - On Saturday 11th May, I give a speech at the Let Women Speak event in Madrid: https://youtu.be/l9X6o11IwBc?t=1988.
-- My speech describes being targeted by a "manada" (which mean "rape gang" in Spanish) in Denia and how it parallels precisely the child sexual abuse from when I was 16.
+- My speech describes being targeted by a "manada" (which mean "rape gang" in Spanish) in Denia and how it parallels precisely the child sexual abuse by a North London grooming gang from when I was 16.
+- I make the point that, I would be trans had I been born 30 years later and experienced the same thing.
 
 ### The Spanish feminists tell me why they didn't support me
 
-- At the event, and in the meetings prior, I meet Spanish feminists.
-- They know me from the [previous September when I went public on Twitter](../2023/september.md#going-public-on-twitter).
+- At the event, and in the online meetings prior, I meet Spanish feminists.
+- They realize they know me from the [previous September when I went public on Twitter](../2023/september.md#going-public-on-twitter).
 - One of the organizers explains that, yes, we heard about someone from Denia conservatory, but it wasn't you.
 - I tell her, yes it was me. I was asking for help for the same things I'm talking about today.
-- No, no, it couldn't be you. We heard this woman was unstable, like a victim of domestic violence.
-- I was flabbergasted.
+- "No, no, it couldn't be you. We heard this woman was unstable", she says, "like a victim of domestic violence".
+- I remain flabbergasted.
 
 ## Telegram/Signal
 
-- I believe they started to drug me seriously again at home since getting back to Denia in April.
+- I believe the hackers/stalkers had started to drug me seriously again at home since getting back to Denia in April.
 - A Telegram chat on my Spanish phone invited me to play a game which I downloaded, probably how they so easily got access again, and it was just endless boredom.
-- Then, in May, I was contacted on Twitter by an Elon Musk's brother fake account, who told me Elon wanted to talk to me, and gave me the Signal details.
-- Weirdly, I go for it immediately.
-- One of the first things this account says is "send pics". I am angry, and tell them I'm not interested in pics, and I don't want to see any male genitals, but I still continue to talk.
+- Then, in May, I was contacted on Twitter by an Elon Musk's brother, a fake account obviously, who told me Elon wanted to talk to me, and gave me the Signal details.
+- Weirdly, I'm hooked.
+- One of the first things this account says is "send pics". 
+- I am angry, and tell them I'm not interested in pics, and I don't want to see any male genitals, but I still continue to talk.
 - It's not clear why although something in my mind believes it is the trumpet teacher again. It's very strange.
-- It was extremely weird in fact. I had an extraordinarily long rant to this person's account while I was flying to Bali in May.
-- In it, I mentioned one image seen on `@jctot19` Google search throughout December which was a film directed by
+- It was extremely weird in fact. I sent an extraordinarily long rant to this person's account while I was flying to Bali in May.
+- In it, I mentioned one image seen on `@jctot19` Google search throughout December which was a film directed by Mel Gibson about child sex trafficking, a true story: https://www.imdb.com/title/tt7599146/.
+- I wonder why they would have put that in Google search results for me to see, and think the worst.
 
-- They had hacked my newish phone again while I was in my hotel room.
-- It was like the trumpet teacher was in my mind.
-- I was completely out of my mind.
-- They must have managed to drug me somehow during this time. I was out of my mind.
+!!! info
+    - Was the trumpet teacher alerting me to child sex trafficking going on in Denia, with the conservatory somehow the training or recruitment ground?
+    - It seemed preposterous to me.
+    - More likely, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police) and had become obsessed by it for some reason.
 
-## Perito
+## Perito - technical expert DPR
+
+- There are a bunch of emails over this time with the [perito in Alicante](../../content/documents/evidence/comms-with-perito.pdf).
 
 ## Bali
 
-
+- I am in Bali from 11th-19th May.
 
 ## Lourdes
 
 - I leave for Lourdes at the end of the month.
+- I plan to spend two weeks in Lourdes.
+- I need to be out of Denia as much as possible because it's enormously stressful being there as anytime I leave my house I am harassed and followed by locals.
+- It's clear to me, however, that no matter where I am, the cyber stalking will continue.
 
 ## Tweets
 
 ### `@1frgvn`
 
 - https://x.com/1FRGVN/status/1794467120207765821
+- Search URL: https://x.com/search?f=live&q=(from%3A1frgvn)%20until%3A2024-05-31%20since%3A2024-05-01&src=typed_query
 
 ### `@JackChardwood`
 
+- Search URL here: https://x.com/search?q=(from%3AJackChardwood)%20until%3A2024-05-31%20since%3A2024-05-01&src=typed_query&f=live
