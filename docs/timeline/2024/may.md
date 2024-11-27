@@ -68,6 +68,7 @@
 - I change my flight details to fly out from Valencia to Bali where there is a works do
 - I head to Madrid for a week.
 - Outside the hotel I see strange guys hanging around.
+- I receive notification that the conservatory has banned mobiles from the building.
 
 ## My speech
 

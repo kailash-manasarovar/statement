@@ -68,6 +68,15 @@
 
 - I was able to finally communicate with the ECHR when I was in Brussels in July: https://x.com/1FRGVN/status/1811523447123558841.
 
+### A donation to a twitter account
+
+- I make a £100 donation to a Twitter account online: https://x.com/latsot.
+- This is a well known account in the UK feminist communities and is even supported by https://niaendingviolence.org.uk/.
+- At the very moment I make the donation, he posts this: https://x.com/latsot/status/1765118778684342347.
+- A fake account comments on being jealous.
+- I'm so concerned about this, I look up Rob Smith's websites and I see he does an awful lot of fundraising but there are no pictures of him doing anything.
+- I contact nia about it I'm so concerned.
+
 ### Scarfs from the lady who knows who I am
 
 - I buy some scarves from a shop in the Calle La Mar, could be Vintage Ibiza.
