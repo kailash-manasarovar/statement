@@ -93,3 +93,16 @@
 ## Death of a teacher
 
 - There was an untimely death of a young male teacher around this time. I wonder now if it was suicide.
+
+## Dentist
+
+- At some point, I tried to find a dentist.
+- I looked up a dentist in Javea to go to but there was porn all over their website so I decided to contact a dentist in Denia instead.
+- I went to https://www.adentaria.com/.
+- I was having some inflammation around my wisdom tooth on the top right side, and it was painful and raw, and I was a bit concerned.
+- The dentist came in, masked up and didn't even say hello to me.
+- He immediately starts poking my teeth with his poker and saying I needed a whole bunch of fillings.
+- It was horrendous. I stopped the whole thing and left.
+- I was never able to delete their WhatsApp contact from my phone. It was a weird glitch.
+- Now I believe this was all set up by hackers. I was directed to go to this particular dentist, he knew I was coming, and was pretty brutish towards me.
+- I now believe the plan was I would meet this dentist again at some point, and he would probably still be masked up.
