@@ -143,6 +143,15 @@
 - Posey Parker (Kelly Jay Keen) is coming to do a Let Women Speak event in Madrid in May and I'm going to steward it.
 - I'm also planning to speak too.
 
+## The trumpet teacher in Denia
+
+- It must be the 28th April, a Sunday, I go to the Chinese restaurant.
+- As I'm walking back home, I pass by a group of gypsies, a small girl running up beside me who I smile at and who gets shy and runs back to the group.
+- They're following along behind me.
+- I'm walking up the Calle Diana and I'm nearly at the end where the tunnel is, and sitting outside the tapas place is a man with the same build as the trumpet teacher, who is sitting with a small girl with blond hair.
+- I believe this is now a trigger to kick off more romance feelings in myself.
+- I believe the drugging in the water at my flat is ramped up at this time.
+
 ## Twitter
 
 - Tweets of interest to follow.

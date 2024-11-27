@@ -9,6 +9,10 @@
 - 24th to 27th  | Barcelo Valencia              | 489.66
 - 27th to 29th  | Holiday Inn Bonaire           | 172.42
 
+### Mary 2024
+
+- 5th to 11th   |   Princesa Plaza              | 1,208.00
+
 ## Travel
 
 ## Health check ups

@@ -74,8 +74,9 @@
 - This is a well known account in the UK feminist communities and is even supported by https://niaendingviolence.org.uk/.
 - At the very moment I make the donation, he posts this: https://x.com/latsot/status/1765118778684342347.
 - A fake account comments on being jealous.
-- I'm so concerned about this, I look up Rob Smith's websites and I see he does an awful lot of fundraising but there are no pictures of him doing anything.
-- I contact nia about it I'm so concerned.
+- I'm so concerned about this, I look up Rob Smith's websites, and I see he does an awful lot of fundraising but there are no pictures of him doing anything at all.
+- I contact nia about it I'm so concerned but they're convinced he's legit.
+- I wonder if he is connected to Sandra and Hazel Smith.
 
 ### Scarfs from the lady who knows who I am
 
