@@ -10,13 +10,13 @@
 - I chat with a fake account: https://x.com/ItsMe50474936 that I'm sure is either the trumpet teacher or someone close to him as they have information they could only know if they were involved in everything that has been happening.
 
 !!! tip "Delegate accounts"
-    - I believe many of these accounts are used by the trumpet teacher and other who have delegate access.
+    - I believe many of these accounts are used by the trumpet teacher and others who have delegate access.
     - This means they can take over the account and post on its behalf at any time.
 
 - It's the same account that posted the [hotel room selfie photo](../2023/december.md#hotel-room-selfie-pic) a few days before.
 - https://x.com/ItsMe50474936: "It's me" is the name I use on any fake accounts I have created.
 - This account also states that they're nervous they're "actually" talking to me instead of seeing me in the group.
-- We chat. I'm sure it is the trumpet teacher. He tells me he likes to paint but he hasn't painted for many years. I ask him why not. He doesn't tell me.
+- We chat. I'm sure it is the trumpet teacher. He tells me he likes to paint but he hasn't painted for many years. I ask him why not. It sounds like he had some sort of breakdown but I wonder if it's jail.
 
 !!! tip "Trish Penny is an artist"
     - I wonder if Trish and whoever the trumpet teacher is, someone she assuredly knows, share an interest in art.
@@ -31,7 +31,7 @@
 - I mention this on Twitter: https://x.com/1FRGVN/status/1748488576860389657.
 - How do they do it? I ask: https://x.com/1FRGVN/status/1748485970272419873. 
 - I thought it might be cookies but I used someone else's device once to check and the results were the same. Unless they had hacked that person's phone too.
-- I started to see a transformer figure on the `@jctot19` search results. The character looked like a fierce and angry Ana Girbes carrying big guns. Ana is the musical language teacher at the conservatory. 
+- I started to see a transformer figure on the `@jctot19` search results. The character looked like a fierce and angry Ana Girbes carrying big guns. Ana Girbes is the musical language teacher at the conservatory. 
 - This character remained in search results for a couple of months.
 
 ## `@JackChardwood` account content completely changed
@@ -69,18 +69,21 @@
 
 - Ana Girbes starts taking a role in the bullying at the conservatory. She makes herself visible and she is always glaring at me furiously whenever I see her. I have no idea why.
 - One evening, she barks something at me as she walks past me, and then she says something derogatory to me about a private health matter I have only ever told Google search.
-- Ana Girbes and Ana Requena create highly suggestive choreographed routines designed to make me anxious and stressed, and this goes on way into February.
+- Ana Girbes and Ana Requena create highly suggestive choreographed routines designed to make me anxious and stressed, and this goes on way into March.
 - They are always furious at me but they never say a word to me.
+- The implication is that Ana is furious at me for "being in love" with the trumpet teacher who is her boyfriend.
 - At some point during the month, they both change their demeanor completely, and smile sweetly at me when I'm going to class or leaving the conservatory.
 
 !!! danger "Remember"
     - I'd just like to take a moment to remind everyone at this point that these women are teachers in a public school with responsibility over many, many children.
 
-- It then switches again and they are angry with me.
+- It then switches again and they are angry with me. 
+- Paqui would sometimes reinforce this with an off the cuff remark at my piano class.
 
 !!! info
-    - Curiously, this was also part of my child sexual abuse statement to the police when I described what the pedophile had done to terrorize me and make me too afraid to say no to him.
-    - He would be furiously angry with me, and then be kind, and then be angry again, and repeat.
+    - Curiously, this was also part of my child sexual abuse statement to the police when I described what the pedophile had done to terrorize me and make me too afraid to say no.
+    - He would be furiously angry with me, and then be kind, and then be angry again, and repeat, sometimes this was within seconds.
+    - It was devastating to my mind and emotional stability and my body still reacts strongly to this sort of thing, even though inside I'm relatively calm.
     - I wonder did the two Ana's know about this, or were they simply taking instruction from Domingo who knew tactics like this would destabilize me because he had read the statement himself.
 
 ## Conservatory women
@@ -99,18 +102,10 @@
 - The weird guy who may be an engineer is always at the conservatory, quite often waiting at the door as I arrive with someone else.
 - One evening, I pass him on the stairs. As I do, I smile at him. His face flashes fear. I tweet about it: https://x.com/1FRGVN/status/1747791280803815621.
 
-## Nacho follows me around town
-
-- One Saturday, I need to run some errands in Denia.
-- Nacho is always there, wherever I am, walking by in view.
-- He's following me, trying to upset me.
-- I smile and laugh at him. He looks embarrassed.
-- Nevertheless, I'm stressed and anxious about this.
-
 ## Fake accounts reference payments
 
 - I sent a financial a gift to my monk friend for Christmas.
-- Fake accounts post the amount to me, while in the middle of a chat with a stalker account about "pandas", which I know is how they reference my Tibetan monk friend.
+- Fake accounts post the amount to me, while in the middle of a chat with a [stalker account about "pandas"](march.md#thursday-7th-march), which I know is how they reference my Tibetan monk friend.
 
 ## Nacho says sorry
 
@@ -121,6 +116,14 @@
 - The next choir class, Nacho continues to be part of the bullying and threats. 
 - I see him interacting with all the young girls (Domingo's students) after class, and they're all saying "coffee" really loudly as he asks them if they'll "go for a coffee".
 - I ask Samuel what's going on, why are they saying "coffee" loudly, and he says, oh it's just a game.
+
+## Nacho follows me around town
+
+- One Saturday, I need to run some errands in Denia.
+- Nacho is always there, wherever I am, walking by in view.
+- He's following me, trying to upset me.
+- I smile and laugh at him. He looks embarrassed.
+- Nevertheless, I'm stressed and anxious about this.
 
 ## Threatening men outside
 
@@ -135,11 +138,11 @@
 - No one speaks to me, at all, but they are all extremely busy choreographing ridiculous "moments" which will "make me think" something about something.
 - I'm becoming extremely anxious.
 - It's getting difficult to perform simple tasks normally. I need extra effort for things I usually don't think about.
-- My mind is constantly filled with what's going on.
-- I now wonder if I was being spiked by something anxiety forming at this time but perhaps the behavior of teachers, staff, and students at the conservatory during this period is enough to explain the anxiety I'm feeling.
-- This anxiety grows until, probably, June when I'm in Lourdes and then head back to the UK for a few weeks. In March, April, and May it is overwhelming. It is still not nearly as bad as the anxiety I experienced after reporting child sexual abuse to the police, however.
+- My mind is constantly filled with concerns about what's going on.
+- I now wonder if I was being spiked by something anxiety-forming at this time but perhaps the behavior of teachers, staff, and students at the conservatory during this period is enough to explain the anxiety I'm feeling.
+- This anxiety grows until, probably, June when I'm in Lourdes and then head back to the UK for a few weeks. From February to May it is overwhelming. It is still not nearly as bad as the anxiety I experienced after reporting child sexual abuse to the police, however.
 - Everything that's going on is extraordinarily evil and I can hardly believe it.
-- I often wonder how many others have been targets like me. Undoubtedly loads. I wonder as well how many of those targets ended up in prostitution or porn, and if they were targeted as minors.
+- I often wonder how many others have been targets like me. Undoubtedly loads. I wonder as well how many of those targets ended up in prostitution or porn, and if they were targeted as minors, or if they ended up having nervous breakdowns or killing themselves. I can't help but think about Lorraine.
 
 ## Dick pics from the choir master
 
@@ -149,7 +152,7 @@
 - Suddenly, he's enraged. 
 - He makes a dreadful fool of himself by talking about terrible things that happen to people to all the children.
 - The children get really animated and excited. 
-- I'm paraphrasing and misquoting, but the gist was there was someone in a class one time, who thought they were a spiritual mystic but were in fact psychotic and mentally ill. They brought a knife in to class and stabbed everyone. He may have even mentioned horrible details about cutting parts of people. It was unbelievable.
+- I'm paraphrasing and misquoting, but the gist was there was someone in a class one time, who thought they were a spiritual mystic but were in fact psychotic and mentally ill. They brought a knife in to class and stabbed everyone. He may have even mentioned horrible details about cutting body parts off people. It was unbelievable.
 - I was utterly appalled at his behavior in class. So was Samuel. 
 - I mentioned to Samuel that Salva clearly didn't want his students to come back the following week.
 - Salva had said things that would make parents stop their children coming to his class, if they knew he was like that.
@@ -163,7 +166,7 @@
 - Instead, she looks at me and says something like, "oh you are the best", in a weird way, and that's that.
 - I also [email the Generalitat again](../../content/documents/emails/jan-18-email-to-GV.png) that day with an update of what's going on.
 - The Generalitat reply to tell me they have transferred the matter to the Alicante office. 
-- I have to ask them for information on who I can contact there.
+- I have to ask them to give me a contact there.
 - They're fobbing me off. 
 - It's 3 months since I wrote the [original letter of complaint](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf) to which I never received any reply.
 - I mention buying a new phone in the email to the Generalitat, which I did, which was expensive, an iPhone 14 as suggested by someone at work. They hacked into it pretty much immediately.
@@ -171,9 +174,9 @@
 ### Domingo demonstrates his control of women again
 
 - The following day, I'm going to practice the piano at the conservatory.
-- As I'm going up the stairs, Domingo is coming down the stairs and he's sort of behind and semi-forcing this young woman down along with him at his pace, like frogmarching. They are closely connected.
+- As I'm going up the stairs, Domingo is coming down the stairs and he's sort of behind and semi-forcing this woman down along with him at his pace, like frogmarching. They are closely connected.
 - It reminds me of how the man forces [the woman in the tunnel](../2023/november.md#tonya) along whenever I see them.
-- The woman looks mix-raced and I wonder if she is the German ex-girlfriend he mentioned back in 2014.
+- The woman looks mix-raced and I wonder if she is the German ex-girlfriend he mentioned back in 2014 although I would have expected her to be older, maybe.
 - It's a demonstration for my benefit. I'm not impressed.
 
 ### Forwarded to Christine BJ

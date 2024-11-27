@@ -3,10 +3,11 @@
 - There had been some suggestion something awful was going to happen to me on the 4th September at home in Spain, possibly that I would be arrested but I didn't know what for.
 - I innocently assumed it would be something to do with my angry tweets about Domingo from May that I had deleted, and related to my views on trans.
 - I realized that there had been a girl who thought she was a boy at the conservatory and her name was indeed Silvia.
-- https://x.com/1FRGVN/status/1697905359208296533
-- https://x.com/1FRGVN/status/1698121721457365343
-- https://x.com/1FRGVN/status/1698016819951423781
-- https://x.com/1FRGVN/status/1697912956871217359
+    - https://x.com/1FRGVN/status/1697905359208296533
+    - https://x.com/1FRGVN/status/1698121721457365343
+    - https://x.com/1FRGVN/status/1698016819951423781
+    - https://x.com/1FRGVN/status/1697912956871217359
+- From this moment onwards, the English language of the stalker accounts is usually native and vernacular. I'm convinced this is when Hazel and her associates stepped in.
 
 ### The cold shoulder from Spanish feminists
 
