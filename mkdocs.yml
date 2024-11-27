@@ -171,6 +171,8 @@ plugins:
   - search
   - open-in-new-tab
   - git-revision-date-localized
+  - encryptcontent: 
+      global_password: 'password'
 
 validation:
   absolute_links: warn
