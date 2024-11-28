@@ -32,6 +32,22 @@
 
 ## Health check ups
 
+### AlphaBioLabs
+
+- 5th November  | Hair analysis                 | 972.68        | receipt on request
+
+### Rutnin eye hospital
+
+- 28th November | Full analysis                 | 200.29        | [receipt](../content/documents/health/eye-hospital-bill.JPG)
+
+### Bangkok Hospital 
+
+- 12th November | Kidney analysis               | 158.52        | receipt on request
+
+### Medex heavy metals report
+
+- 11th November | Consultation                  | 20.66         | [receipt](../content/documents/health/medex-consulation.pdf)
+
 ## Tech
 
 ### January 2024

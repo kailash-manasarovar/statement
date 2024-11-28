@@ -2,7 +2,36 @@
 
 ## PTSD
 
+## Hair narcotic test
+
+- On the 5th November 2024, at AlphaBioLabs in London, I undertook the 12 month hair analysis for narcotics.
+- The results came back negative.
+
+## Heavy metal analysis
+
+- On 11th November 2024, at Medex in Bangkok, I undertook the comprehensive heavy metal and toxicology blood tests.
+- Everything came back normal.
+
 ## Kidneys
+
+- On 12th November 2024, at Bangkok Hospital, I undertook the comprehensive kidney analysis tests.
+- Everything was normal except for anion gap which was low.
+    - [Kidney analysis results page 1](../content/documents/health/kidney-1.JPG)
+    - [Kidney analysis results page 2](../content/documents/health/kidney-2.JPG)
+
+## Eyes
+
+- In 2022, around April time, I went for a regular eye check up at [Alain Afflelou in Ondara](https://www.afflelou.es/opticas/ondara/afflelou-c-c-portal-de-la-marina-av-costa-blanca-1-local-b65-03760).
+- I was told I had high ocular pressure and needed to come in to have it monitored regularly as it could be a sign of sudden onset glaucoma which can cause blindness.
+- I went in regularly until the I left for holidays and the pressure was always high.
+- I was away from Denia until the end of September. When I got back, I went for an ocular pressure check and the pressure was low again. They told me I didn't need to come back.
+- That was when the bullying really started and it was difficult to think straight about anything and I failed to go for a check up again until November 2024.
+- My eyes had felt pretty OK up until I spent a week back in my apartment in Denia at the end of October 2024 when I started to feel really unwell.
+- Included in those unwell feelings was concerns about my eyes: burning sensation, blurred vision, headaches.
+- I got a preliminary eye pressure check in Bangkok mid-November and was informed the pressure was high.
+- Today, Thursday 28th November, I had a full analysis and checkup done at Rutnin Eye Hospital in Bangkok.
+- Ocular pressure was not so high but I have been diagnosed, nonetheless, with Primary Angle Closure Suspect.
+    - [Medical certificate for PACS](../content/documents/health/medical-certificate-PACS.JPG).
 
 ## Psychological effects
 
@@ -16,13 +45,13 @@
 - What's next? 
 - All silence is complicit.
 
-### Negative effects
+### Negative
 
 - My mind feels utterly polluted with porn and unhealthy sexual ideas. This is more so if I am feeling aroused. These thoughts are not my own. It's horrible.
 - I don't know when it started but I was overwhelmed with the feeling I was going to have a child with the trumpet teacher. It was intense and inexplicable. I think they were "throwing the book at me", at this stage, and I wonder how many women have been trapped into pregnancy by these manipulation techniques and, therefore, a lifelong connection with someone they were probably unsure of, at best.
 - There was a lot of content that I'm sure was intended to make me feel insecure about how I looked. Content about fat women when I was putting on weight. Content about acne when I had some. Even content about a tiny wart on my nose. Lots and lots of content about the urinary problems I was having that I did a lot of online searches about. It was relentless.
 
-### Positive effects
+### Positive
 
 - Ironically, whatever NLP plus medication combo they were using on me healed me of depression. I thought it was love, and it probably was a little bit, but the real trigger was the drugs and sexual feelings in the context of love that I hadn't experienced for twenty years.
 - One extremely positive effect of me going through all the NLP seduction techniques online in the context of sexual grooming of women and children is that I am able to describe it.
