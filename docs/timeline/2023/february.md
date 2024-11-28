@@ -6,8 +6,9 @@
 - I start to lose a lot of weight but I manage to stop the froth in my urine which is exacerbated with dairy and any albumin intake.
 - I contact an acupuncturist in Dénia to ask for help: https://www.thaoqi.com/.
 - She is not back in town until May so she can't see me for a few months.
-- I go to see a homeopath in Dénia, Ana Villalba. I'm not sure I trust her. 
-- Each time I see her she wants to hear about my abuse story, and not in a kind way.
+- I go to see a homeopath in Dénia, Ana Villalba. I'm not sure I trust her.
+- Each time I see her she wants to hear about my abuse story, and not in a kind way. Each time I see her she mentions domestic violence.
+- She prescribes drops to take every day which I collect from the Romany pharmacy in Denia.
 
 ## PTSD
 
