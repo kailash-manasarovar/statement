@@ -2,8 +2,6 @@ site_name: Fear & loathing in Las Marinas, Dénia, Alicante
 site_author: Dra Katharine Murphy
 copyright: Copyright &copy; 2024 Dra Katharine Murphy
 repo_name: Police statement
-#repo_url: https://github.com/kailash-manasarovar/statement
-#site_url: 
 
 theme:
   name: material

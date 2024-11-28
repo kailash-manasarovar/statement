@@ -159,7 +159,7 @@
 
 ### Nowhere
 
-- I get a desk at Nowhere co-working space in Denia: https://www.knowheredenia.com.
+- I get a desk at Nowhere co-working space in Denia: https://knowheredenia.com.
 
 ### Tweets
 
