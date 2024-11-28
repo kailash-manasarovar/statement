@@ -115,13 +115,11 @@ nav:
     - Twitter accounts: evidence/twitter-account.md
     - WhatsApps: evidence/whatsapps.md
     - Signal: evidence/signal.md
+    - Health: evidence/health.md
     #- Google drive files: evidence/google-drives.md
     #- Mobile evidence: evidence/mobiles.md
     #- DMs: evidence/DMs.md
     #- Emails: evidence/emails.md
-    #- Drug testing: evidence/drug-test.md
-    #- Kidney health: evidence/kidneys.md
-    #- Heavy metal testing: evidence/heavy-metal.md
     #- Dark net searches: evidence/dark-net.md
   - Personal experience: 
     - Health: personal/health.md

@@ -322,7 +322,8 @@ The following tweets are translated a lot.
 - When I get to Madrid, I buy a new Android phone for my Spanish SIM. A man in the phone shop appears to know who I am.
 - I am followed and tracked in Madrid. 
 - Things that I say to my friend at lunch are repeated on fake account profiles later on.
-- I write a letter **by hand** to my parents. The first contact with them for nearly 3 years.
+- I write a letter **by hand** to my parents and I date it the following morning. This is the first contact with them for nearly 3 years.
+    - [Letter to parents of 15th March](../../content/documents/letters/letter-to-parents-march-15.pdf)
 - I explain I'm being terrorized and by whom. I try to keep it calm because my parents are elderly, and I don't know how things are with them. I don't want to upset them too much.
 - I tell them I believe that Domingo and his family are planning to murder me.
 - I remind them of what he told me all those years ago, something that I had told them at that time.
