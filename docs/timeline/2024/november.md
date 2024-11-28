@@ -126,3 +126,11 @@
 - If so, he will be there for one reason only, to sexually groom minors.
 
 ![blocked from accessing webpage](../../content/images/blocked-from-accessing-page.png)
+
+## Accessing the conservatory website
+
+- I wonder if the trumpet teacher has been re-employed by the Generalitat this year, under a different name of course, and I look up the conservatory website to check.
+- I'm blocked from accessing the website in the same way I was blocked from accessing the Guardia Civil website and the ECHR website.
+- If so, he will be there for one reason only, to sexually groom minors.
+
+![blocked from accessing webpage](../../content/images/blocked-from-accessing-page.png)
