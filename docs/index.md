@@ -15,7 +15,7 @@ This document details the numerous crimes against myself, Katharine Margaret Mur
 The report details the following:
 
 - Hacking of my home network, laptops, including work laptop, and mobile phones.
-- Cyber-stalking by organized criminal gangs.
+- Cyber-stalking by teacher and staff at the conservatory of Denia, Spain; their friends and families and, closely connected to them, organized criminal gangs.
 - Physical stalking, tracking my movements via hacked mobile phones, and possibly tracking on my car, in order to harass me and create intricate choreographed situations with the intention of terrorizing me.
 - Sexual grooming and honey trapping online and in a public learning establishment, the conservatory of Dénia.
 - Drugging without my knowledge, in class at the conservatory, at home, in the car, and possibly elsewhere.
