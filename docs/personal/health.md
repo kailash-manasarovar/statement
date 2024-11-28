@@ -14,6 +14,13 @@
 
 ## Kidneys
 
+- Since December 2022, I have had trouble with my kidneys, particularly the right one.
+- At Christmas 2022, I had a seizure of some sort in Samui on holiday and I went to A&E. They told me everything was fine, it was just panic, but nevertheless I had frothy urine for a few days after that.
+- On 28th January, I got a mild form of rhabdo at chamber music class with the trumpet teacher.
+- I suffered frothy urine and other ill effects after that for some time.
+- I went on a strict kidney diet, lost a lot of weight (15kg) and the urine problem became intermittent.
+- It always comes back hard if I'm unwell. So, for example, when I had Covid in May 2023, my kidneys were battered from it. This was also true when I had the serious chest infection from 13th March to 5th April where I even cracked a rib coughing. During this time I had frothy urine all the time.
+- My urine became frothy again whenever I was back in Denia living at Carrer Furs.
 - On 12th November 2024, at Bangkok Hospital, I undertook the comprehensive kidney analysis tests.
 - Everything was normal except for anion gap which was low.
     - [Kidney analysis results page 1](../content/documents/health/kidney-1.JPG)

@@ -78,6 +78,13 @@
     - Although the anxiety I experienced this year never approached the intense anxiety I had experienced as PTSD from sexual violence, I do remember shaking, and not being able to perform simple tasks, and I couldn't think or speak clearly at all.
     - I also wonder if they were drugging me again through the water at home or some other way?
 
+## Search for Vidal Sastre
+
+- I periodically search for references for "Vidal Sastre Sanchez Hornero".
+- There are relatively few on 15th April. However, I do note the name is listed on published Generalitat lists.
+
+![Sastre on the GV lists](../../content/documents/evidence/sastre-gv.png)
+
 ## Hacking expert
 
 - I take one laptop, the Yoigo router, and a webcam which I believe they have accessed to the expert DPR we wrote to in Alicante.
@@ -110,6 +117,9 @@
 ## Let that sink in
 
 - Google search shows pictures of sinks, i.e. let that sink in.
+
+![let that sink in](../../content/images/let-that-sink-in.jpg)
+
 - The message, which took me ages to get, was a kind of middle finger to me after having to leave my piano studies.
 - Someone posts about witches owning conservatories on Google search results, see below.
 
@@ -151,6 +161,33 @@
 - I'm walking up the Calle Diana and I'm nearly at the end where the tunnel is, and sitting outside the tapas place is a man with the same build as the trumpet teacher, who is sitting with a small girl with blond hair.
 - I believe this is now a trigger to kick off more romance feelings in myself.
 - I believe the drugging in the water at my flat is ramped up at this time.
+
+## Fake account posts about "peeping at pre-schoolers"
+
+- I notice a fake account that's interesting.
+- I'm triggered to translate the message under the picture of an eagle due to the symbolism of eagle memes that has run through the cyber stalking.
+
+![Initial trigger](../../content/images/fake-accounts/voyeurism-minors/1.jpg){width=65%}
+
+- I see ""Peeking at adults is no..." translated so I open the image.
+
+![Initial trigger opened](../../content/images/fake-accounts/voyeurism-minors/2.jpg){width=65%}
+
+- The translation read ""Peeping at adults is terrible but peeping at preschoolers is...". 
+
+![Peeping at preschoolers](../../content/images/fake-accounts/voyeurism-minors/3.jpg){width=65%}
+
+!!! tip "August account with same triggers"
+    - An account likes something I've posted in August.
+    - It has the same eagle trigger, and Hebrew language as the one just mentioned.
+    - I'm not sure if it is the same account. It could be.
+    - The pinned thread on the timeline relates a person targeted by someone who he had trusted, and had sex with, and was consequently stalked and filmed by secret cameras.
+    - The account is here: https://x.com/Cr7Rival3711.
+    - The pinned message is translated here:
+
+    ![hidden cameras](../../content/images/fake-accounts/hidden-cameras.png)
+
+    - In August, I respond to this terrible tweet thread that I have just read: https://x.com/1FRGVN/status/1823957507728896499.
 
 ## Twitter
 
