@@ -17,7 +17,7 @@
 - Piano teacher [preference document](../../content/documents/papeles-conservatorio/2022-3/Formulari%20tria%20professorat%2022-23.pdf).
 - List of students in year 3 for [harmony and choir and other classes](../../content/documents/papeles-conservatorio/2022-3/22-23%20HORARI%20a%2009.09.22%20PROVISIONAL%20PROFESSIONAL.pdf).
 
-![Conservatory identity card](../../content/images/foto-carnet-22-23.jpg){width=45%]}
+![Conservatory identity card](../../content/images/foto-carnet-22-23.jpg)
 
 ### Piano
 
