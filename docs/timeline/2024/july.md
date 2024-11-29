@@ -54,3 +54,7 @@
 - I go to the Carrefour and Mercedes is behind me in the queue.
 - She looks ashamed.
 - I put my thumbs up to the cashier who laughs.
+
+## Google search
+
+![screenshot](../../content/images/google-searches/july-24.JPG)

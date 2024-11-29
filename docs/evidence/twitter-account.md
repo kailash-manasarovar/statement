@@ -89,4 +89,4 @@
 ## My Twitter archives
 
 - `@1frgvn`: https://drive.google.com/file/d/15OH_CM9zGW42zd-zCrV327TiqyHclnRR/view?usp=sharing
-- `@JackChardwood`: todo
+- `@JackChardwood`: https://drive.google.com/file/d/1uP3tH3Y7BKmPrqj9fHFN8ukcD_EyYCT6/view?usp=sharing

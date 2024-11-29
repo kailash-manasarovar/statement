@@ -13,7 +13,7 @@
 
 - The leak from my car washer has started again. I text Pedro the caretaker about it.
 
-![Text Pedro about the leak](../../content/whatsapps/chat-about-the-leak-with%20pedro.jpg){width=45%}
+![Text Pedro about the leak](../../content/whatsapps/chat-about-the-leak-with%20pedro.jpg)
 
 - The friend Pedro had mentioned back in September comes to check my car but doesn't see anything and tells me I have to bring it to the workshop.
 - I don't want to leave my car with someone I don't know, and I don't know how I will travel there and back.
@@ -47,11 +47,11 @@
 
 - The fake account with a very threatening picture of Paqui (as a younger person) appears again on Twitter.
 
-![Paqui](../../content/images/fake-accounts/paqui1.png){width=65%}
+![Paqui](../../content/images/fake-accounts/paqui1.png)
 
 - I believe the original account profile was: https://x.com/lane_deangelis but it could have been from other accounts too. Note the dogs on this one.
 
-![Paqui profile account maybe](../../content/images/fake-accounts/the-paqui-account.png){width=55%}
+![Paqui profile account maybe](../../content/images/fake-accounts/the-paqui-account.png)
 
 - This is a screenshot from the end of March of one of the accounts that had her picture on: https://x.com/Zingley2.
 
@@ -68,7 +68,7 @@
 - I find a lawyer who can help me if I'm arrested who speaks English. He can also help me with any translating.
 - I believe now he is probably connected to the criminal gangs and it was easy to direct me to him because, as we have seen, they have full access to my devices and online use.
 
-![Roberto the lawyer](../../content/whatsapps/roberto-laywer.jpg){width=45%}
+![Roberto the lawyer, apparently](../../content/whatsapps/roberto-laywer.jpg)
 
 !!! info
     - It's very weird but I cannot remember if I met him in person or not in Alicante at [DPR](../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf).
@@ -123,16 +123,26 @@
 - The message, which took me ages to get, was a kind of middle finger to me after having to leave my piano studies.
 - Someone posts about witches owning conservatories on Google search results, see below.
 
+## Owns conservatory
+
+- There is something going on regarding Helen Joyce and the fact she owns a conservatory makes her unable to know anything about trans people, or something like this: https://x.com/mcdonnelljp/status/1777747038832136465.
+- It comes up top, and alone, on my Google searches on mobile. I don't even remember it very well but I notice the message which is quite amazing.
+
+![owns conservatory](../../content/images/conservatory-1.JPG)
+![owns conservatory](../../content/images/conservatory-2.JPG)
+
 ## The boys
 
+- You can see the two boys in the conservatory pic above.
 - The B.A. Feldman account and another account close to this one posted pictures of (apparently) themselves as boys back sometime in November 2023.
+- I'm supposed to think these are [the trumpet teacher and his brother](../2023/december.md#the-trumpet-teacher-has-a-brother), although they don't look very much like twins so I'm not convinced.
 - These pics remain to this day on my Google search and I only ever looked at them one time.
 
-![Two boys pictures](../../content/images/google-searches/two-boys.png){width=75%}
+![Two boys pictures](../../content/images/google-searches/two-boys.png)
 
 - Both boys are in this screenshot from my mobile.
 
-![Littler boy](../../content/images/google-searches/littler-boy.JPG){width=45%}
+![Littler boy](../../content/images/google-searches/littler-boy.JPG)
 
 - The young man coming up in search since November 2023.
 
@@ -167,15 +177,18 @@
 - I notice a fake account that's interesting.
 - I'm triggered to translate the message under the picture of an eagle due to the symbolism of eagle memes that has run through the cyber stalking.
 
-![Initial trigger](../../content/images/fake-accounts/voyeurism-minors/1.jpg){width=65%}
+![Initial trigger](../../content/images/fake-accounts/voyeurism-minors/1.jpg)
+
+!!! warning
+    - The photo of a person here looks remarkably like an AI mix with me in it.
 
 - I see ""Peeking at adults is no..." translated so I open the image.
 
-![Initial trigger opened](../../content/images/fake-accounts/voyeurism-minors/2.jpg){width=65%}
+![Initial trigger opened](../../content/images/fake-accounts/voyeurism-minors/2.jpg)
 
 - The translation read ""Peeping at adults is terrible but peeping at preschoolers is...". 
 
-![Peeping at preschoolers](../../content/images/fake-accounts/voyeurism-minors/3.jpg){width=65%}
+![Peeping at preschoolers](../../content/images/fake-accounts/voyeurism-minors/3.jpg)
 
 !!! tip "August account with same triggers"
     - An account likes something I've posted in August.
@@ -224,3 +237,13 @@
 ### `@JackChardwood`
 
 - https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2024-04-30%20since%3A2024-04-01&src=typed_query&f=live
+
+### Google searches
+
+![](../../content/images/google-searches/april-24/Screenshot%202024-04-21%20at%2005.32.48.png)
+![](../../content/images/google-searches/april-24/Screenshot%202024-04-21%20at%2005.34.20.png)
+![](../../content/images/google-searches/april-24/Screenshot%202024-04-21%20at%2006.05.48.png)
+
+- This guy showed up on `@jctot19` results for a long time. Sometimes just him and Carmen or Rocio Vidal. He is into sado-masochism.
+
+![](../../content/images/google-searches/april-24/Screenshot%202024-04-21%20at%2011.18.44.png)
