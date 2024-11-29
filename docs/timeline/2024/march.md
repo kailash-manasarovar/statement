@@ -1,3 +1,9 @@
+## Monday 4th March chamber music
+
+- We are going to sing a song with two cats meowing at each other, Rossini's cat duet.
+- The irony is not lost on me.
+- I wonder if Esteve knows it is gang stalking and violent harassment of my psycho/emotional state?
+
 ## Tuesday 5th March piano lesson
 
 ### An inspector calls
@@ -188,6 +194,11 @@ The following tweets are translated a lot.
 - I believe they are trying to target my family now, with phone numbers, etc, for the purposed of fraud.
 
 ## Monday 11th March
+
+### Chamber music class
+
+- I am extraordinarily stressed and explain to Katia that I am fearful for my life and I'm worried I'm going to be robbed.
+- An account pops up over the next few days which appears to be [referencing Katia moaning about this publicly](../../content/images/fake-accounts/list/52.png).
 
 ### Cracked rib
 
