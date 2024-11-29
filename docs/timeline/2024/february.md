@@ -7,14 +7,14 @@
 
 ![Ka ka account 1](../../content/images/fake-accounts/kaka-1.png){width=65%}
 
-## Constant stalking
+## Constant gang stalking at the conservatory
 
 - Ana Girbes continues to be really angry at me for no reason, as does Ana Requena.
 - On February 14th, Valentine's day, as I'm climbing the stairs to choir, Ana and Ana are sitting with their backs to me in Ana Girbes classroom. 
-- Ana Requena rushes out and stares at my face without saying anything at all to me.
-- I assume the intention is for me to think she is concerned I will have put makeup on for valentine's day.
+- Ana Requena rushes out and stares at my face angrily without saying anything at all to me.
+- I assume the intention is for me to think she is concerned I will have put makeup on for Valentine's day.
 - It's absolutely ridiculous and I know they are laughing at me as I continue on up.
-- I wonder now what they thought they're achieving and/or if their purpose what that I kill myself.
+- I wonder now what they thought they were achieving and/or if their purpose was that I would have a nervous breakdown or kill myself.
 - For sure, at a minimum, they intended I have a severe nervous breakdown.
 
 ## Highlights on Twitter
@@ -40,7 +40,7 @@
     - [Another complaint in Spanish](../../content/documents/emails/feb-10-email-to-alicante-es.pdf).
     - [Proof of sending via email](../../content/documents/emails/receipt-of-feb-email.pdf) -> this includes an extra short email I wrote about my concerns that Mercedes Correas would lie about me and proof that was sent also.
 
-## The conservatory knows about the email
+## The conservatory knows about my correspondence to the Generalitat
 
 - When I go to the conservatory the following week, it is very clear that everyone knows what I have said in the email I sent to the Generalitat at the weekend, particularly with regards to Mercedes, who is crying and moaning at reception with Gloria about something.
 - It feels, again, set up and contrived.
@@ -48,20 +48,22 @@
 
 ## Twitter starts to get more threatening
 
-- I'm followed by a weird fake account, Mark Moseley, who is just like the other fake accounts but decidedly more violent in tone. He seems unhinged.
+- I'm followed by a weird fake account, Mark Moseley, who is just like the other fake accounts that interact with me directly, but decidedly more violent in tone. He seems unhinged.
 - He is, apparently, a homeless drug addict from Portland Oregon but he baits me with information only the people of Denia would know.
-- This goes on for a few weeks. I, again, think it is the trumpet teacher or someone related to him. There are many details of things only he or his associates could know.
+- This goes on for a few weeks. I, again, think it is the trumpet teacher or someone related to him. He gives many details of things only he or his associates could know.
 - I tell him I don't believe who he says he is. He posts an identification document for Mark Moseley from Portland Oregon.
 - I guess now that it's another delegate, hacked, or stolen account.
-- He tells me now he prayed incessantly for something, help, and I came along. It seemed reasonable to me, still does.
+- He tells me how he prayed incessantly for something, help, and I came along. It seemed reasonable to me, still does.
+- He asks me would I die for him. I do not respond. He says he would die for me. 
 - In a DM, he tries to recruit me to his honey trap organization. This is on February 20th.
 - I refuse in no uncertain terms.
 - I have a copy of [the whole DM here](../../content/images/threats/mark-moseley-mail-in-full.pdf).
+- Joe Biden's worst nightmare is Trump, of course. The **trump**et teacher has always used trump as a trigger or signpost for me.
 - At the end of this chat, when I refuse to sign up to whatever he wants me to do - he'd said using fake accounts to find lonely men looking for love, or something like this - he threatens me with violence.
 - His message says: "I hope you find an excellent plastic surgeon for your face."
 
-![Threat of violence from Mark Mosely account](../../content/images/threats/threat-1.png){width=65%}
-![Threat of violence from Mark Mosely account](../../content/images/threats/mark-mosely-tweet.png){width=65%}
+![Threat of violence from Mark Mosely account](../../content/images/threats/threat-1.png)
+![Threat of violence from Mark Mosely account](../../content/images/threats/mark-mosely-tweet.png)
 
 - He says something else threatening about me which I didn't save at the time.
 - At the time of writing, Sunday 24th November, the account has been deleted and so I am unable to see his past messages live on Twitter.
@@ -79,14 +81,14 @@
 - I consider that to demonstrate how hackers are still accessing everything I do online in more-or-less real time.
 - Going back to the original threat, I consider the threat to be credible and to mean that someone may throw acid on my face.
 - A lot of my Twitter pals suggest reporting to the police: https://x.com/search?q=(to%3A1frgvn)%20until%3A2024-02-21%20since%3A2024-02-19&src=typed_query&f=live.
-- He has deleted the account now, although just two days ago when I was checking, the message was there (21 November 2024) and the account was still active. 
+- He has deleted the account now.
 
 !!! danger "Hackers still active - November 2024"
     - My movements are still being tracked and I'm still being hacked extensively.
     - I believe they deleted the Mark Moseley account at exactly the time I plan to be writing about it.
     - It is highly likely they are reading this statement while I write it.
 
-- Perhaps the messages are salvageable in Twitter caches.
+- Perhaps any deleted accounts or messages are salvageable in Twitter caches.
 - I sent a copy of the threat to the Alicante directorate too, asking them if they would do something now.
 
 ![Threat of violence on Twitter](../../content/images/threats/threat-of-violence-twitter.png)
@@ -101,7 +103,7 @@
 - I literally cannot access any reporting pages on the Guardia Civil website at all.
 - I know now I was blocked from accessing the Guardia Civil's gender violence and cyber stalking reporting line by hackers.
 - This happens again when I try to access the European Union's human rights website and report there, after which I'm bombarded with fake account with titles related to "human rights".
-- This may be [a message I sent them](../../content/documents/letters/possible-mail-to-the-GC.docx) via an email address I found, I'm not sure now, but I did print it to take to the National Police the following morning.
+- This may be [a message I sent them](../../content/documents/letters/possible-mail-to-the-GC.pdf) via an email address I found, I'm not sure now but the document I have is dated 20th February 2024.
 
 ## Policia Nacional
 
@@ -122,7 +124,7 @@
 - I have a similar experience to what happened when I tried to access the Guardia Civil cyber stalking and domestic violence pages.
 - I'm unable to find information about how to report what's going on for me.
 - I send a [message in a comment box](../../content/documents/letters/echr-message.pdf) instead, to which I never receive a reply.
-- Later that day, I get followed by fake accounts related to human rights. This is just one.
+- Later that day, I get followed by fake accounts related to human rights. This is just one of them.
 
 ![Human rights accounts](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-04%20at%2008.32.54.png){width=65%}
 ![Human rights accounts](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-08%20at%2008.35.00.png)
