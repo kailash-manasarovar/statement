@@ -53,7 +53,7 @@ Some of my tweets from that time.
 
 - The following are examples of things that came up in Google search during this period.
 
-### Plate lady - early in the month
+### Plate lady early in the month
 
 - I constantly see various photos of a tiny pretty lady who is a potter, or a ceramics artist.
 - She is in her studio, putting plates on the wall and other things.
@@ -62,7 +62,7 @@ Some of my tweets from that time.
 - It seems the photographer is a male who is close to her, and they are in a relationship of some sort.
 - From the look in her eyes, one photo is clearly taken just a few moments before they will be sexually intimate with each other.
 
-### Plate lady - later in the month
+### Plate lady later in the month
 
 - The pictures of plate lady change and now there are photos of her walking in the rice paddies of Valencia with a man.
 - The man's shape and build is that of the trumpet teacher although you cannot see his face.

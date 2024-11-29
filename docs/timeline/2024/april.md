@@ -65,8 +65,16 @@
 - Given the outrageous behavior of teachers and staff, and the police's disinterest, and the seriousness of what's been happening to me, I'm quite sure that anything is possible.
 - I guess a lot of these fears are also being triggered by hackers and stalkers online.
 - I search for a lawyer and send an [email to a number of lawyers in the region asking for help](../../content/documents/emails/worried-the-conservatory-will-accuse-me-of-defamation.png).
-- I find a lawyer who can help me if I'm arrested who speaks English. He can also help me with any translating.
-- I believe now he is probably connected to the criminal gangs and it was easy to direct me to him because, as we have seen, they have full access to my devices and online use.
+- I get a response from someone and I video a call with them. The following videos are me talking to a lawyer looking for help. 
+- I'm obviously extremely stressed and scared.
+
+    - [Video of me speaking about this at this time - part 1](https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing)
+    - [Video of me speaking about this at this time - part 2](https://drive.google.com/file/d/1kT-BFILgBWnVTBALHepboNzpGCxBoi4f/view?usp=drive_link)
+
+- I contacted so many lawyers, I'm not sure why I didn't go ahead with any of them. 
+- I'm not even sure who Lisa was now I was so stressed at the time. I'll add her details here when I find them.
+- Eventually, I find a lawyer who can help me if I'm arrested who speaks English. He can also help me with any translating.
+- I believe now he is probably connected to the criminal gangs and it was easy to direct me to him because, as we have seen, they have full access to my devices and online use in real time.
 
 ![Roberto the lawyer, apparently](../../content/whatsapps/roberto-laywer.jpg)
 
