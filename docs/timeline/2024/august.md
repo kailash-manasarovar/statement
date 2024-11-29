@@ -11,6 +11,7 @@
     - "Vigas Vigas, is it true what they're saying, that the women of the Marina Alta have stopped locking their doors since you fell in love with me".
 - A lot of it was jokes, but there was serious stuff too.
 - It's a two way conversation. He tells me that he has targeted 100s of women in the region.
+- I realize this is exactly what has happened to Trish and that, coupled with the fact she has a daughter and granddaughter, is why she doesn't talk.
 - I see pictures on fake accounts of young and old women. I screenshot some of them.
 - He's also feeding me information regarding secret filming, spiking, and drug taking.
 
@@ -105,3 +106,9 @@
 ## Sexual arousal
 
 - As soon as I'm out of Denia, the intense sexual arousal drops off and then stops.
+
+## Suspected targets
+
+- In this section, I'll publish all the accounts I believe had pics of targets on them but please understand some may be incorrect of course.
+- The hacker told me there were old and young, the British expat community was targeted often, and one older woman may have dropped down dead in October 2022.
+
