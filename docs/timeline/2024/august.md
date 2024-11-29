@@ -1,6 +1,6 @@
 ## Conversation
 
-- We start to communicate directly in the following way:
+- We have been communicating directly in the following way:
     - I add a message to my Twitter profile.
     - He replies in the profile message of a fake account.
 - I call him Vigas.
@@ -15,6 +15,20 @@
 - https://x.com/1FRGVN/status/1825575948257009675
 
 ## Hundreds of women like me
+
+## Hidden camera account
+
+!!! tip "August account with same triggers"
+    - An account likes something I've posted in August.
+    - It has the same eagle trigger, and Hebrew language as the one just mentioned.
+    - I'm not sure if it is the same account. It could be.
+    - The pinned thread on the timeline relates a person targeted by someone who he had trusted, and had sex with, and was consequently stalked and filmed by secret cameras.
+    - The account is here: https://x.com/Cr7Rival3711.
+    - The pinned message is translated here:
+
+    ![hidden cameras](../../content/images/fake-accounts/hidden-cameras.png)
+
+    - In August, I respond to this terrible tweet thread that I have just read: https://x.com/1FRGVN/status/1823957507728896499.
 
 ## Trish communication
 

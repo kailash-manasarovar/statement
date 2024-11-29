@@ -36,9 +36,9 @@
 - I went masked up.
 - I was thinking, with all this Twitter communication, he must talk to me, so I will go.
 - He didn't talk to me.
-- I was angry and posted an angry tweet about Domingo and his group of followers, and how it is extremely weird that the adult men amongst them hang out with 14 year old girls, that it's appalling he's able to get them to bully the choir teacher, etc.
+- I was angry and posted an angry tweet about Domingo and his group of followers, and how it is extremely weird that the adult men are hanging out with 14 year old girls, that it's appalling he's able to get them to bully the choir teacher, etc.
 - I tweeted that Domingo is "probably a trans woman".
-- It really was my only transgression in all of this, but I was really angry. It was the only thing I felt at all guilty about, and only a tiny weeny bit. I was really only concerned that it might have upset Concha because I had mentioned her (not by name).
+- It really was my only transgression in all of this, but I was really angry. It was the only thing I felt at all guilty about, and only a tiny weeny bit. I was really only concerned that it might have upset Concha because I had mentioned her (not by name, no one by name).
 - I deleted the tweet on June 12th.
 
 ## Next class
@@ -50,6 +50,22 @@
 - It was all very disconcerting, and yet the physical vibrations got even stronger in class.
 - I wanted to ask him if he felt it too.
 - I was out of my mind.
+
+### Harmony class that week
+
+- I used to walk from the conservatory to the tunnel after harmony class with Samuel Viciano Herranz on the way home. Every class that year.
+- We would chat about stuff. His English was good.
+- You may remember I told you he had been studying singing at [Javea conservatory](../2022/september.md#harmony) and had changed to do piano and study with Domingo and it was never really clear why. His singing voice was great and he was too old to be studying piano again.
+- He was planning on becoming an English teacher. He kept telling me about the English teacher's course he was going to do over the summer online.
+- He took pains to tell me how embarrassed he was his parents had paid for it.
+
+!!! danger "Back handers?"
+    - I really do wonder who paid for it now.
+    - Did Samuel rearrange his whole life at Domingo's request so he could sit by me and talk to me in English every week at class.
+    - Did Samuel require something in return for doing that.
+
+- On this particular evening, we walked home together and he constantly texted on his WhatsApp, as if he was repeating everything I said to someone. Domingo of course.
+- He also mentioned, bizarrely, a black man in a TV show and I believe he was referring to the `@AllyBrisket` account and suggesting it was Domingo.
 
 ## Acupuncture
 

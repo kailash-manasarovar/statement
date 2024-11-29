@@ -76,7 +76,14 @@
 - A fake account comments on being jealous.
 - I'm so concerned about this, I look up Rob Smith's websites, and I see he does an awful lot of fundraising but there are no pictures of him doing anything at all.
 - I contact nia about it I'm so concerned but they're convinced he's legit.
-- I wonder if he is connected to Sandra and Hazel Smith.
+- I wonder if Rob Smith is connected to Sandra and Hazel Smith.
+
+### Carmen Cano
+
+- Right after this, a fake account whizzes by on likes with the name Carmen Cano.
+- I can only assume it is a message from someone to make me think Carmen Cano is behind the scam.
+
+![Carmen Cano](../../content/images/fake-accounts/carmen-cano.png)
 
 ### Scarfs from the lady who knows who I am
 
@@ -519,6 +526,17 @@ The following tweets are translated a lot.
 
 - Whoever it was had done a fair bit of research on my Twitter activity and background to it.
 - Again, the English is extremely vernacular so it has to be a native.
+
+## 20th March
+
+### Domingo Cano
+
+- The account `@AllyBrisket` had always seemed suspicious to me.
+- Samuel from harmony class back in [May 2023 when the cyber stalking really got going](../2023/may.md#harmony-class-that-week) may have signalled this account out to me during a weird chat.
+- At this point I'm so stressed I start communicating with accounts directly as if they are who they think they are.
+
+![Domingo 1](../../content/images/fake-accounts/domingo-1.png)
+![Domingo 2](../../content/images/fake-accounts/domingo-2.png)
 
 ## 24th March
 

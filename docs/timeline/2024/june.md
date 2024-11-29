@@ -27,3 +27,11 @@
 - When the video is posted on Twitter, the end part, including my speech is cut out.
 
 ![my speech](../../content/documents/speeches/my-speech.png)
+
+!!! important
+    - Running for election at the UK General Election in July 2024 for the Party of Women was a game changer.
+    - In one of the first messages in our long communication from July and over August, the hacker said "well I wasn't expecting that" with regards to it.
+
+## Sexual arousal
+
+- I am not sexually aroused at all this month away from Denia.
