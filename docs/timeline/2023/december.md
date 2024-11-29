@@ -45,9 +45,17 @@
 - I show her the Google search results I'm seeing and how it's a conversation of some sort. I explain how it works and how it has been working since it started in June.
 - I show her the picture of me in my underwear and I explain where it's from.
 - A flash of alarm crossed her face.
-- I show her a tweet that comes up from time to time on the `@jctot19` account which is clearly a message for me. It's quite complicated Spanish but says something like: "they thought you were an idiot, but they were wrong" -> *I might have this screenshot somewhere so I'll post it when I'm going through all the screenshots after I finish this timeline.*
-- I first saw this tweet in July and I remember being so curious about what it meant as it was language I was unfamiliar with, I translated it on my mobile at Valencia airport on my way back from Thailand.
-- Of course it made me think that the trumpet teacher still liked me.
+- I show her a tweet that comes up from time to time on the `@jctot19` account which is clearly a message for me. 
+
+![message for me](../../content/tweets/igual1.png)
+![message for me](../../content/tweets/igual2.png)
+
+It's quite complicated Spanish but says something like: "they thought you were an idiot, but they were wrong".
+- I first saw this tweet in July, and I remember being so curious about what it meant as it was language I was unfamiliar with, I translated it on my mobile at Valencia airport on my way back from Thailand.
+- Of course, every time it came up in search, which was continuously, it made me think that the trumpet teacher still liked me.
+- Here is an example of it coming up again in [April 2024](../2024/april.md#google-searches). Scroll to the bottom pic and you will see the `@jctot19` profile pic with this tweet underneath it.
+
+![message for me](../../content/tweets/igual3.png)
 
 ## I see someone in town from Twitter
 
