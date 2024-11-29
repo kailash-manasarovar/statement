@@ -42,7 +42,7 @@
     - She is often dressed as a nurse.
     - The following fake account was posted sometime in the summer of 2024.
 
-    ![The nurse profile pic](../../content/images/fake-accounts/nurse1.png){width=45%}
+    ![The nurse profile pic](../../content/images/fake-accounts/nurse1.png)
 
     - Note the threatening statement, a common characteristic of the cyber-stalking I have been enduring.
 
