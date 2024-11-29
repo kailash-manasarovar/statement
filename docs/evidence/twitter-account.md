@@ -74,7 +74,7 @@
 | ![ fake ]( ../content/images/fake-accounts/list/19.png ){width=50%} |  Possibly legit and delegated/leached. |
 | ![ fake ]( ../content/images/fake-accounts/list/22.png ){width=50%} |  Possibly legit and delegated/leached. |
 | ![ fake ]( ../content/images/fake-accounts/list/29.png ){width=50%} |  Possibly legit and/or duplicated/leached. Most curiously, Seonaid ended up running for general election with the Party of Women alongside me. |
-
+| ![ fake ]( ../content/images/fake-accounts/list/23.png ){width=50%} |  Stalker. `@ChipShopTony` |
 
 ## Can't access spaces on desktop
 
