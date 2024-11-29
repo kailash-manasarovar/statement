@@ -54,6 +54,14 @@
 
 - 19th          | Apple iPhone 14               | 859.00        | [receipt](../content/documents/evidence/iphone-bill.png){width=65%}.
 
+### March 2024
+
+- 14th          | Two phones at Movixoz, Madrid | 134.00        | receipt on request
+
+### April 2024
+
+- 13th          | Amazon analog phone           | 18.58         | receipt on request
+
 ## Securing tech
 
 ## Lost work

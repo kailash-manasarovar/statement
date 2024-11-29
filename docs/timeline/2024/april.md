@@ -105,6 +105,7 @@
 - I go to Orange in Denia to get a SIM for my analog phone that cannot connect to Internet.
 - I'm hoping that I can use it in emergencies and that I can't be followed using it in the way that I have been.
 - The number they give me ends in 007.
+- I buy a simple phone which won't have access to Internet on Amazon: https://www.amazon.co.uk/gp/your-account/order-details?ie=UTF8&orderID=203-8343216-4317911&ref=ppx_yo2ov_dt_b_fed_order_details
 
 ## Constant stalking
 
