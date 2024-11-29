@@ -5,11 +5,11 @@
 - The online activity intensifies and I'm starting to realize people are watching me continuously online.
 - I connect with an old friend on Facebook, Matthew Copeland, and tell him I believe I have an audience on Twitter so I'm DJ'ing to them.
 
-![maff](../../content/messages/mc-1.png){width=45%}
-![maff](../../content/messages/mc-2.png){width=45%}
-![maff](../../content/messages/mc-3.png){width=45%}
-![maff](../../content/messages/mc-4.png){width=45%}
-![maff](../../content/messages/mc-5.png){width=45%}
+![maff](../../content/messages/mc-1.png)
+![maff](../../content/messages/mc-2.png)
+![maff](../../content/messages/mc-3.png)
+![maff](../../content/messages/mc-4.png)
+![maff](../../content/messages/mc-5.png)
 
 !!! tip
     - Contact me for full access: info@forgivenet.co.uk
@@ -31,7 +31,7 @@
 - I want to check to see how big my bum is, but the mirror is very small, so I stand on a chair and take a photo with my mobile phone.
 - This picture is eventually posted on Google search, probably around December 2023, in the "Google search result manner" I explained before. At the time they posted it, they wanted me to know how much content they had taken of me without my knowledge. 
 
-![Me in my underwear Google search](../../content/images/google-searches/me-in-my-pants.png){width=65%}
+![Me in my underwear Google search](../../content/images/google-searches/me-in-my-pants.png)
 
 - When I saw this picture of me in my underwear (the top half is not me, the bottom half is), I realized for sure that they had filmed me masturbating too. Although I suspected it before, it was evident to me only in suggested ways via gang stalking activity, so I was only 100% sure when they posted this picture in December 2023.
 - This pic was up for about a week and then it disappeared and never reappeared.
@@ -61,7 +61,7 @@
 - It was kind of demonic, with a woman who had her long thick black hair put all over her face so you couldn't see it, and she was dressed in her underwear, and making sexual suggestions. It was extremely weird actually.
 - I noticed also that this account's profile message seemed to suggest a death threat against me.
 
-![Death threat](../../content/images/threats/anti-k-a-death.png){width=85%}
+![Death threat](../../content/images/threats/anti-k-a-death.png)
 
 - "Anti K a muerte" could be read as this account is "anti Katharine to the death".
 
@@ -76,7 +76,7 @@
 - Some of the fake accounts that follow me are called **Durian**, so I know it's Domingo and his associates.
 - Another account is called JungleMary and this is significant because I have been playing a lot of jungle music online and tweeting jungle tracks. I am also devoted to Mary and often tweet about it too.
 
-![Jungle Mary](../../content/images/fake-accounts/mary-just-me.png){width=65%}
+![Jungle Mary](../../content/images/fake-accounts/mary-just-me.png)
 
 - Also, "just me" is something I have said a lot previously.
 - [This document](../../content/tweets/august-2023-twitter.pdf) is a collection of some of those accounts. You will see durian mentioned and also the accounts mentioning dogs is a close relation to Domingo's surnames: Lopez Cano, which have a distinct canine connotation.
@@ -96,7 +96,7 @@
 - At one point, I'm on my laptop and I lose control of my keyboard, except someone is typing for me instead.
 - I tweet "Arrettt-a" to say STOP.
 
-![They have total access](../../content/tweets/took-hold-of-my-keyboard.png){width=65%}
+![They have total access](../../content/tweets/took-hold-of-my-keyboard.png)
 
 - I realize with horror they have total access to my laptop, and probably my phone as well.
 - I assume it is because my laptop is not very well secured and they got in via the hotel network. I'm very wrong about that but this is what I tell people for a while.
@@ -108,7 +108,7 @@
 - An account, Sumithra, who follows an account Durian, follows me immediately (screenshots in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf)) and likes every post. I know it's Domingo and the trumpet teacher.
 - https://x.com/JackChardwood/status/1696990588628029460
 
-![My posts to Domingo and the hackers](../../content/tweets/Screenshot 2024-11-17 at 15.55.13.png){width=85%}
+![My posts to Domingo and the hackers](../../content/tweets/Screenshot 2024-11-17 at 15.55.13.png)
 
 - The Sumithra account no longer exists.
 - If you look at the accounts that have followed the Sumithra account in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf, you will see they are all dog-related.
@@ -162,7 +162,7 @@ Many of these tweets are confirmation of what has been going on.
 - https://x.com/1FRGVN/status/1692054267463340344
 - https://x.com/borey_ka -> when I don't post anything for a while an account called Borey Ka follows me.
 
-![Borey Ka](../../content/images/fake-accounts/borey-ka.png){width=65%}
+![Borey Ka](../../content/images/fake-accounts/borey-ka.png)
 
 - I actually find this sort of interaction with them funny and think these people would be quite cool if they weren't so evil and self-destructive.
 

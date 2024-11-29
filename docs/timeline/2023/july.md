@@ -75,7 +75,7 @@ Some of my tweets from that time.
 - Results of this search always included a picture of a cartoon woman, Carmen. And they still do, even today.
 - This is the `@sinremite` account I mentioned that has a lot of interaction with the `@jctot19` account.
 
-![Carmen in today's results](../../content/images/google-searches/Screenshot%202024-11-17%20at%2007.15.36.png){width=80%}
+![Carmen in today's results](../../content/images/google-searches/Screenshot%202024-11-17%20at%2007.15.36.png)
 
 - Most of the images in the screenshot above are new, I haven't seen them previously, apart from the Carmen image which has been appearing on and off since July 2023, and the photo of Rocio Vidal which has been appearing probably since around October 2023 and we will talk about that [later](october.md#rocio-vidal) as it is significant.
 - Curiously, I thought Carmen was plate lady but that wasn't the case. Carmen, as I'm informed later, represents Carmen Cano, Domingo's sister, a major player in the deceit and harassment.
@@ -101,7 +101,7 @@ Some of my tweets from that time.
 - Then, I see a tweet which appears to have a message for me directly: **don't leave me murph**. It blows my mind.
 - This is actually a misquote from what was actually said in the film.
 
-![Don't leave me murph](../../content/images/twitter-hacking/dont%20leave%20me%20murph.png){width=65%}
+![Don't leave me murph](../../content/images/twitter-hacking/dont%20leave%20me%20murph.png)
 
 !!! info
     - Later in this saga, I'm informed that twitter hacking can take place in a number of ways, one of which is a parasitical manner whereby hackers have delegated access to larger accounts and can therefore post on them.
@@ -153,7 +153,7 @@ Some of my tweets from that time.
 - I'm driving to Zaragoza where I will stay one night.
 - Just ouside of Oliva, a woman calls me, it's a missed call. I look her up on WhatsApp. She looks like the trumpet teacher. I'm guessing its his mum. The message on her WhatsApp profile is significant too.
 
-![Trumpet teacher's mum](../../content/images/image_123650291.png){width=65%}
+![Trumpet teacher's mum](../../content/images/image_123650291.png)
 
 ## The traffic police stop me
 

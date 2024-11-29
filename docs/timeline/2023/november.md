@@ -57,14 +57,14 @@
 - Here are all our interactions: https://x.com/search?f=live&q=(from%3AMatthew49200183)%20(to%3A1frgvn)&src=typed_query
 - The very first time he connects with me, he talks about women being gang stalked: 
 
-![Matthew's first tweet about gang stalking](../../content/tweets/matthew-women-gang-stalking.png){width=85%}
+![Matthew's first tweet about gang stalking](../../content/tweets/matthew-women-gang-stalking.png)
 
 - Full tweet is here: https://x.com/Matthew49200183/status/1686307743815069696
 - As I mentioned, the hair in his profile pic was a memory trigger from a post related to Carmen and the plate lady from July that I was seeing on both the `@jctot19` account, and the `@sinremite` account.
 - The picture has changed now to a flag with the same hair.
 - On 29th November, just before choir class, there is an interaction with Matthew on Twitter:
 
-![Interaction with Matthew before choir class](../../content/tweets/interaction-with-matthew-right-before-choir.png){width=75%}
+![Interaction with Matthew before choir class](../../content/tweets/interaction-with-matthew-right-before-choir.png)
 
 - "But what if a nervous sweaty elephant tells it to me", is in relation to my PTSD reaction towards the trumpet teacher when I tried to talk to him and is a derogatory reference to my weight too. 
 - My reaction to "give him a peanut" is ironic, I know I'm being wound up.

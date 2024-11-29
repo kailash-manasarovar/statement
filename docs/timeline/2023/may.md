@@ -93,6 +93,6 @@
 - He posts something on his timeline, a pic, a meme, and it's clearly for me and I respond.
 - One significant post was in regards to a favorite film.
 
-![Man with headphones](../../content/tweets/man-with-headphones.JPG){width=45%}
+![Man with headphones](../../content/tweets/man-with-headphones.JPG)
 
 - This is a film called [The Lives of Others](https://en.wikipedia.org/wiki/The_Lives_of_Others) and is about the secret police listening into the resident's lives in East Germany. The irony was lost on me at the time.

@@ -5,7 +5,7 @@
 - I run up behind him and cross the road about a metre before I reach him. He flinches.
 - Later that evening on Twitter, I see stalker posts talking about how "my brother always steals everything from me", and I reply "rotten bugger": https://x.com/1FRGVN/status/1730310006132650141
 
-![Rotten brother](../../content/tweets/rotten-brother.png){width=65%}
+![Rotten brother](../../content/tweets/rotten-brother.png)
 
 - The Mary G Lamarche account had been signalled on Google search results previously. I believe it is a hacker (honey trap, gang-stalker) account and possibly Domingo or his sister are behind it.
 - I guess I'm supposed to believe it is the trumpet teacher.
@@ -28,7 +28,7 @@
 - While I'm in Lourdes, I do the usual Google searches of `@1frgvn` and `@jctot19`.
 - On my results, there is a picture of a woman in her underwear.
 
-![Me in my underwear](../../content/images/me-in-my-pants.JPG){width=45%}
+![Me in my underwear](../../content/images/me-in-my-pants.JPG)
 
 - I'm shocked as this was the picture I took in August when I was trying to see [how big my bum was](august.md#i-take-a-picture-of-myself-in-my-pants).
 - It looks doctored a little, the top half is not me, but the bottom half does look like me.
@@ -161,7 +161,7 @@
 - An account: https://x.com/ItsMe50474936 interacts with me. Note the "It's me" name.
 - They post an extremely interesting picture to me.
 
-![Woman taking a selfie in the hotel room](../../content/tweets/hotel-room-selfie-pic.png){width=65%}
+![Woman taking a selfie in the hotel room](../../content/tweets/hotel-room-selfie-pic.png)
 
 - "Look at her, remind you of anything?", the account asks.
 - I understand immediate that the reference is to me being hacked and filmed in my hotel room in France.

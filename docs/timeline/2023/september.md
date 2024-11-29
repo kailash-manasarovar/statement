@@ -42,7 +42,7 @@
 - I had raised this with the landlady in July 2023 when I was going away for the summer but she ignored me.
 - I raised it again in 2024 on WhatsApp and sent her a picture. She said "perfecto".
 
-![The broken water pipe outside my apartment](../../content/images/water-pipes.JPG){width=65%}
+![The broken water pipe outside my apartment](../../content/images/water-pipes.JPG)
 
 - On the day Pedro was fired, and he was showing the new caretaker around the apartments, he took pains to tell me that the water pipes were not only broken outside my door (see picture below) but also at the ground floor level where the mains water is distributed to all the flats in the building.
 - He pointed out that every pipe was fine, except mine. He was very insistent I knew about this. He hadn't been previously.
@@ -82,7 +82,7 @@
 - https://x.com/Smurfcatbsc is a copy of the original.
 - Smurf cat's hat is like mine that I wear to the beach.
 
-![Smurf cat's hat](../../content/images/smurf-cat-hat.png){width=65%}
+![Smurf cat's hat](../../content/images/smurf-cat-hat.png)
 
 ## Stones thrown at me
 
@@ -139,7 +139,7 @@
 - I recognize the young woman from an account that followed me on Twitter `@JackChardwood` over the summer when the hacking and stalking was intensifying. The account had a name that included "Suarez".
 - This is a more recent fake account with her picture in:
 
-![Gypsy singer](../../content/images/fake-accounts/townsfolk_1.png){width=65%}
+![Gypsy singer](../../content/images/fake-accounts/townsfolk_1.png)
 
 ## Year 4 professional piano begins
 

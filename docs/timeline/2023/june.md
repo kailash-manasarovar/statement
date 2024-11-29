@@ -225,7 +225,7 @@ All the twitter activity is on my `@1frgvn` account at this stage.
 - There are posts with a woman with hair flying which is a trigger picture that I will see again on the [American fake account](december.md#chat-with-the-american-matthew) from August onwards, the account I ended up having a prolonged DM with at Christmas 2023.
 - There are posts with pictures of hanging seaweed, which I end up finding out, much later, is a Julia Lohmann art installation [I mentioned before](../early-years/2015.md) that will be revealed to me in July as something Ana the violin teacher was connected to.
 
-![Ana at Lohmann's studio](../../content/images/Screenshot 2024-11-17 at 18.08.46.png){width=65%}
+![Ana at Lohmann's studio](../../content/images/Screenshot 2024-11-17 at 18.08.46.png)
 
 !!! tip "Ana"
     - Ana the violin teacher in a modeling role for Finnish artist Julia Lohmann. 
@@ -243,6 +243,6 @@ All the twitter activity is on my `@1frgvn` account at this stage.
 - https://x.com/1FRGVN/status/1664572450112258049
 - On June 12th 2023, an account `@january_myth` posts an extremely significant picture that I see when I get home and after the shock of finding out I have been cyber-stalked so extensively and by so many. At the time of writing, 20 November 2024, I'm unable to find this pic and I wonder if it's deleted. I ask the account owner for it.
 
-![Long long way to go](../../content/tweets/long-long-way-to-go.png){width=85%}
+![Long long way to go](../../content/tweets/long-long-way-to-go.png)
 
 - There is no reply.

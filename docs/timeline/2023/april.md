@@ -74,7 +74,7 @@
 - When I got home that evening, his Twitter account posted a beautiful picture which felt like it was a response to me.
 - The account `@jctot19` has now deleted most posts from that period, but this is what the account posted and I saw it after class.
 
-![Studio Ghibli](../../content/images/ghibli.png){width=65%}
+![Studio Ghibli](../../content/images/ghibli.png)
 
 - I was extremely high that day, my whole body vibrating in class as usual, something I thought was to do with chemistry between us, and my kidneys were aching as usual after class, and I had to lie down.
 - The picture was like opium to my mind and heart. I was 100% caught in the trap at that moment.
@@ -84,12 +84,12 @@
     - The cyber-stalking never stopped and there continued to be accounts following me pretending to be him. I never knew if they were really him or not but I played along in any case.
     - A few of these accounts mentioned Studio Ghibli and I believe they are well aware this was a key to binding my mind into believing the trumpet teacher cared about me.
 
-    ![Studio ghibli account](../../content/images/fake-accounts/giltrap-1.png){width=65%}
+    ![Studio ghibli account](../../content/images/fake-accounts/giltrap-1.png)
 
     - This account no longer exists.
     - Here's another that DM'ed me in April 2024.
 
-    ![Studio ghibli account](../../content/images/fake-accounts/ghibli-2.png){width=65%}
+    ![Studio ghibli account](../../content/images/fake-accounts/ghibli-2.png)
 
     - I believe stalker accounts with reference to this picture are posted to terrorize and humiliate me, but being in love could never be humiliating. It felt wonderful, in fact.
 

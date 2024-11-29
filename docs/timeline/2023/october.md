@@ -20,7 +20,7 @@
 - A girl in the class comes up to me as I enter the choir classroom, and asks me, "Are you going away for the weekend?"
 - This girl (Elsa Martí García) is a piano student of Domingo. Her picture was also posted on a fake account I received during continued cyber-stalking in 2024.
 
-![Choir student](../../content/images/fake-accounts/choir-student.png){width=55%}
+![Choir student](../../content/images/fake-accounts/choir-student.png)
 
 - This photo was sent the same time I was receiving tons of fake accounts with women who were clearly being sexual abused in some way, or that was the inference one was supposed to make, including women groomed from innocently sending nudes, or doing innocent photo shoots, to actually doing porn.
 - I was concerned enough to send this pic to the Policia Nacional trafficking email (which is supposed to be anonymous) in October 2024.
@@ -36,7 +36,7 @@
 - Incidentally, this is where I saw the fat bloke that had been behaving extremely strangely when [me and my Tibetan monk friend](../2023/september.md#my-friend-visits) were at the beach. 
 - Check out the analytics to see how many people translated this tweet.
 
-![Strawberry post analytics](../../content/tweets/strawberry-post-analytics.png){width=65%}
+![Strawberry post analytics](../../content/tweets/strawberry-post-analytics.png)
 
 ## Katia in the act
 
@@ -53,7 +53,7 @@
 
 - In the Google search results of `@jctot19 x` I now see a picture of Rocio Vidal. It is still there, even today.
 
-![Rocio Vidal in Google search](../../content/images/Rocio-Vidal-on-Google-search.png){width=65%}
+![Rocio Vidal in Google search](../../content/images/Rocio-Vidal-on-Google-search.png)
 
 !![Rocio Vidal in Google search](../../content/images/google-searches/rocio-vidal.png)
 
