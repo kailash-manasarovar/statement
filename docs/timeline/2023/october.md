@@ -108,6 +108,7 @@
 - I receive no reply at all, ever, not even a notification that my letter was received.
 - In fact, I write again, a few times, to the GV and I never receive any reply from them.
 - Given the seriousness of what I'm saying, it's more than weird that no-one replied to me.
+- On the `jctot19 x` Google search results, a picture is displayed with a trampoline at the bottom of apartment blocks which I take to mean that Domingo is very upset.
 
 ## Hazel outside the conservatory
 

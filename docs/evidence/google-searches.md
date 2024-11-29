@@ -6,6 +6,7 @@
     - `"jctot19 x"`
     - `"1frgvn twitter"`
     - `"1frgvn x"`
+- I assume it is because they have full root access to all of my devices and can do what they like.
 - The `@JackChardwood` account was less significant as I didn't search for this very much at all.
 - The `@jctot19` search was extremely significant as there were so few results coming up that anything out of the ordinary stood out, for example:
     ![](../content/tweets/igual3.png)
