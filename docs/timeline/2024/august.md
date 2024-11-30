@@ -79,6 +79,8 @@
 - The hacker starts to make reference to having done porn, mainly gay porn throughout his life.
 - My video results on Google search for "1frgvn x" now include gay porn.
 - I feel like the trumpet teacher is baring his soul, telling me the truth about his life.
+- It just gets worse and worse for him. I empathize. I do not judge him.
+- He is as he is.
 
 ## Trish communication
 
