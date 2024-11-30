@@ -8,7 +8,7 @@
     - [Response from ECHR to letter written in Brussels on 8th July](../../content/documents/evidence/ARES%202024_5484609.pdf).
 - I return back to London and get the boat from Portsmouth back to Spain with the car.
 
-## Denia
+## Evidence of mass cyber stalking technology
 
 - I'm back in Denia on 15th July. 
 - The communication with the hacker begins again in earnest.
@@ -41,7 +41,9 @@
 - He confirms this.
 - He says he wasn't expecting me to run for election.
 - I believe I'm talking to the trumpet teacher still, or someone close to him.
-- We make references to things that have happened between us, that no one could know unless he told them, or is telling them; looks for example. I'm sure it's him.
+- I joke about "whipping them up into a frenzy" and post tweets saying we're going for coffee and such like.
+- Down at the beach, young men come up to me and make references to coffee.
+- In this unusual way, we chat about things that have happened between us, that no one could know unless he told them, or is telling them; private looks we made to each other for example. I'm sure it's him.
 - I feel extremely sexually aroused these last two weeks in July before I leave for Lourdes.
 - It's important to note that I felt no sexual arousal while I was away, it's only when I come back to Denia and stay in my flat that this begins again.
 - I don't go out much now as it feels so dangerous but I try to go to the beach in the afternoon as there are a lot of people there, tourists.

@@ -156,6 +156,8 @@
 
 - There comes a point in the conversation with the hacker over this time that feels like other people are now involved.
 - Peppered into the conversation are threats of violence, porn references, references to Ana again, wind up messages.
+- However, in our chat I was very clear that I could not feel jealousy towards any woman that might make a man I loved happy.
+- I assume others, Carmen Cano mainly, found out that we were communicating again and got involved. The reason I say Carmen Cano is because of things the hacker told me at that time.
 - This has always been the pattern. Communication starts in a way which seems relatively private. Then there seems to be other voices involved, a lot of wind ups. And then finally there is some shocking threat of violence or similar and communication breaks down. This is the pattern from:
     - April to June 2023 while conversing over Twitter.
     - June to August 2023 while conversing over Twitter although there were obviously more than one involved in this communication. As I mentioned to Matthew Copeland at the time, I felt I had an audience.
