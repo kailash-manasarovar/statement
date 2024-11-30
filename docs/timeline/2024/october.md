@@ -47,6 +47,7 @@
 
 - I feel like I'm being poisoned over this week in my flat.
 - I take some samples of water and items related to the air vents to London in the hope that the police will one day find things serious enough to investigate and I will have things for them to look at.
+- There is a [warning and condemnation about poisoning given via a fake account](august.md#i-realize-i-have-been-poisoned-and-drugged) on 1st November.
 
 ## Trying to find the cameras
 

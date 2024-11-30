@@ -37,6 +37,15 @@
 - https://x.com/1FRGVN/status/1825575948257009675
 - I start to think about my state of mind in general over the last two years.
 - It's all getting clear in my mind finally.
+- I say "omg, you drugged me at class and gave me rhabdo".
+- He responds, "I am so so sorry".
+- On November 1st, when I'm back in Denia and although the conversation by that time has stopped mostly, the hacker uses a fake account to tell me something about this.
+- I've just recently got back from Fatima, and I see the word "medico" which is doctor in Spanish, so I'm triggered to translate it.
+
+![doctor pic](../../content/images/doctor-1.png)
+![doctor pic](../../content/images/doctor-2.png)
+
+- I also suspect this is a warning because the week I am in Denia at my flat from 27th October until I leave for London on the 3rd November I am certain I am being poisoned and quite seriously.
 
 ## Hundreds of women like me
 
