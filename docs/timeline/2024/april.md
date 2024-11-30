@@ -25,7 +25,7 @@
 - I believe Pedro may be involved in adding narcotics to my car in some way, or knows something. If anyone tampered with my car in the garage, he would know.
 - I wondered if they managed to add something to come through the air vents, or something I could touch on the door handles maybe.
 - I told Pedro that I had been filmed sexually and I would pay 500 euros for any recordings.
-- He was fired soon after.
+- He was fired soon after that.
 
 ## Resign from the conservatory
 
@@ -62,14 +62,14 @@
 ## Lawyer
 
 - I believe I'm going to be arrested at any moment. 
-- Given the outrageous behavior of teachers and staff, and the police's disinterest, and the seriousness of what's been happening to me, I'm quite sure that anything is possible.
+- Given the outrageous behavior of teachers and staff at the conservatory, and the police's disinterest, and the seriousness of what's been happening to me, I'm quite sure that anything is possible.
 - I guess a lot of these fears are also being triggered by hackers and stalkers online.
 - I search for a lawyer and send an [email to a number of lawyers in the region asking for help](../../content/documents/emails/worried-the-conservatory-will-accuse-me-of-defamation.png).
 - I get a response from someone and I video a call with them. The following videos are me talking to a lawyer looking for help. 
 - I'm obviously extremely stressed and scared.
 
-    - [Video of me speaking about this at this time - part 1](https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing)
-    - [Video of me speaking about this at this time - part 2](https://drive.google.com/file/d/1kT-BFILgBWnVTBALHepboNzpGCxBoi4f/view?usp=drive_link)
+    - [Video of me speaking about this at this time - part 1](https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing).
+    - [Video of me speaking about this at this time - part 2](https://drive.google.com/file/d/1kT-BFILgBWnVTBALHepboNzpGCxBoi4f/view?usp=drive_link).
 
 - I contacted so many lawyers, I'm not sure why I didn't go ahead with any of them. 
 - I'm not even sure who Lisa was now I was so stressed at the time. I'll add her details here when I find them. I guess she could have been someone connected to the criminal gangs.
@@ -95,7 +95,7 @@
 
 ## Hacking expert
 
-- I take one laptop, the Yoigo router, and a webcam which I believe they have accessed to the expert DPR we wrote to in Alicante.
+- I take the Asus Zenbook 13 that they took over in France the summer previous, the Yoigo router, and two webcams which I believe they accessed to the expert at DPR in Alicante.
 - I meet David and his assistant.
 - The lawyer helps with translating, I believe over the phone, but he may have been present.
 - I tell them about how they have sexual films of me. I'm clearly very upset.
@@ -104,23 +104,24 @@
 - I give them the following:
     - My Asus Zenbook 13 laptop: He finds nothing on here so I ask him to reformat the device for me. This device could be rechecked now as it was connected again to my new Movistar router which was accessed by hackers immediately it was installed.
     - The Yoigo router: He asks for the password to the router. I give it to him. He then says that he can't analyze routers. I kept the router so we can check again.
-    - A security camera: There was no storage card in the webcam so he could not check anything here. I don't know what happened to the card.
-- When I go to collect my devices, I pay 150 euros and he says he can check all my Twitter activity instead, so I give him both my account details.
-- We have never heard back from him on this.
+    - Two security cameras: There was no storage card in one of the webcams so he could not check anything here. I don't know what happened to the card.
+- When I go to collect my devices, I pay 150 euros and he says he can check all my Twitter activity instead, so I give him both my account details and send Twitter archives too.
+- I have never heard back from him on any of it.
 
 ## I get an Orange SIM
 
 - I go to Orange in Denia to get a SIM for my analog phone that cannot connect to Internet.
 - I'm hoping that I can use it in emergencies and that I can't be followed using it in the way that I have been.
 - The number they give me ends in 007.
-- I buy a simple phone which won't have access to Internet on Amazon: https://www.amazon.co.uk/gp/your-account/order-details?ie=UTF8&orderID=203-8343216-4317911&ref=ppx_yo2ov_dt_b_fed_order_details
+- I buy another simple phone which won't have access to Internet on Amazon: https://www.amazon.co.uk/gp/your-account/order-details?ie=UTF8&orderID=203-8343216-4317911&ref=ppx_yo2ov_dt_b_fed_order_details
 
 ## Constant stalking
 
 - Even though I have left the conservatory, the stalking continues online and in person.
-- I'm followed on a shopping trip to Iceland by a small wire black-haired man who is hopping and dancing around as he tracks me around the isles.
-- I'm followed walking to Las Rotas and random people say disparaging things about me as they walk past, laugh and jeer, and take photos.
-- Every night, a car runs it's engine outside my flats (and everyone else can hear it also of course), but it's just threatening. Everything is threatening to me now.
+- I'm followed on a shopping trip to Iceland by a small wirey black-haired man who is hopping and dancing around as he tracks me around the isles.
+- I'm followed on walks to Las Rotas and random people say disparaging things about me as they walk past, laugh and jeer, point and take photos.
+- Every night, a car runs its engine outside my flats (and everyone else can hear it also of course), but it's just threatening the way whoever it is makes the car engine growl low, sometimes for hours, and often after midnight. 
+- Everything is threatening to me now.
 - I'm overwhelmed with sexual arousal yet again.
 
 ## Let that sink in
@@ -157,19 +158,21 @@
 
 ![Bigger boy](../../content/images/google-searches/google-search-young-man.png)
 
-- I'm supposed to believe these are the brothers, the trumpet teacher and his twin, I think. I'm not sure. Anyway, they're still on my Google search to this day.
+- The two boys even today.
 
 ![Two boys even today](../../content/images/google-searches/two-boys-today.png)
 
 !!! important
-    - As a reminder, I accessed the tweets these pics were posted on one time on Twitter, and those posts have consequently been deleted. 
+    - As a reminder, these tweets were posted way back in November or December, and those posts have consequently been deleted or I cannot find them.
+    - I looked at them once, and never again.
     - There is no reason for these two pics to keep on coming up unless they have some sticky cookie element, but they come up even after a reset to factory settings, so I don't understand how they do it, unless they have access to my Google accounts.
     - It's never clear why they would do this apart from to somehow keep the game/con/fraud going, so that I will continue to believe there is a reciprocal relationship going on in some weird way.
     - They are long-game honey-trappers, after all.
 
 ## Let Women Speak
 
-- Posey Parker (Kelly Jay Keen) is coming to do a Let Women Speak event in Madrid in May and I'm going to steward it.
+- Posey Parker (Kelly Jay Keen) is coming to do a Let Women Speak event in Madrid in May.
+- I apply to volunteer and be a steward.
 - I'm also planning to speak too.
 
 ## The trumpet teacher in Denia
@@ -177,21 +180,21 @@
 - It must be the 28th April, a Sunday, I go to the Chinese restaurant.
 - As I'm walking back home, I pass by a group of gypsies, a small girl running up beside me who I smile at and who gets shy and runs back to the group.
 - They're following along behind me.
-- I'm walking up the Calle Diana and I'm nearly at the end where the tunnel is, and sitting outside the tapas place is a man with the same build as the trumpet teacher, who is sitting with a small girl with blond hair.
+- I'm walking up the Calle Diana and I'm nearly at the end where the tunnel is, and sitting outside the tapas place is a man with the same build as the trumpet teacher, who is sitting with his back to me next to a small girl with blond hair.
 - I believe this is now a trigger to kick off more romance feelings in myself.
-- I believe the drugging in the water at my flat is ramped up at this time.
+- I believe the drugging with aphrodisiacs in the water at my flat is ramped up at this time.
 
 ## Fake account posts about "peeping at pre-schoolers"
 
 - I notice a fake account that's interesting.
-- I'm triggered to translate the message under the picture of an eagle due to the symbolism of eagle memes that has run through the cyber stalking.
+- I'm triggered to become interested and translate the message because of the picture of an eagle which is a meme that has been running throughout the cyber stalking.
 
 ![Initial trigger](../../content/images/fake-accounts/voyeurism-minors/1.jpg)
 
 !!! warning
-    - The photo of a person here looks remarkably like an AI mix with me in it.
+    - The photo of a the person with glasses here looks remarkably like an AI mix with me in it.
 
-- I see ""Peeking at adults is no..." translated so I open the image.
+- I see "Peeking at adults is no..." translated so I open the image as it is clearly references voyeurism.
 
 ![Initial trigger opened](../../content/images/fake-accounts/voyeurism-minors/2.jpg)
 
@@ -200,10 +203,12 @@
 ![Peeping at preschoolers](../../content/images/fake-accounts/voyeurism-minors/3.jpg)
 
 !!! tip "August account with same triggers"
-    - An account likes something I've posted in August.
+    - In August, a similar account likes something I've posted.
+    - I describe this [here](august.md#hidden-camera-account).
     - It has the same eagle trigger, and Hebrew language as the one just mentioned.
     - I'm not sure if it is the same account. It could be.
-    - The pinned thread on the timeline relates a person targeted by someone who he had trusted, and had sex with, and was consequently stalked and filmed by secret cameras.
+    - The pinned thread on the timeline references a person targeted by someone who he had trusted, and had sex with, and was consequently stalked and filmed by secret cameras.
+    - I assume this is to suggest the trumpet teacher was targeted by Domingo who has been blackmailing him in some way since then.
     - The account is here: https://x.com/Cr7Rival3711.
     - The pinned message is translated here:
 

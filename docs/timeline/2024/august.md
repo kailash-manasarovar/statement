@@ -21,6 +21,9 @@
     - "Vigas Vigas, is it true what they're saying, that the women of the Marina Alta have stopped locking their doors since you fell in love with me".
 - A lot of it was jokes, but there was serious stuff too.
 - It's a two way conversation. 
+- He tells me he's pure blood gypsy. He repeats, "I am a people".
+- I tell him I don't care, I'll learn his language.
+- He tells me his family will never accept me.
 - He tells me that he has targeted 100s of women in the region and starts sending pictures of some of them.
 - I realize this is exactly what has happened to Trish and, coupled with the fact she has a daughter and granddaughter, this is why she doesn't talk.
 - I see pictures on fake accounts of young and old women. I screenshot some of them.
@@ -170,4 +173,26 @@
 - He stated he loved every one of them!
 - Some of these I believe are illicit and the subject doesn't know she is being photographed at this point. I believe these to be the "when she finds out" content.
 
-
+| Suspect targets |
+|-|
+| ![pic]( ../../content/images/targeted-women/1.png ){width=55%} 
+This looks like a first meeting. Has she traveled, she appears to have her overnight back with her. There are pictures later on which show her in a video shoot of some sort. |
+| ![pic]( ../../content/images/targeted-women/2.png ){width=55%} |
+| ![pic]( ../../content/images/targeted-women/3.png ){width=55%} |
+| ![pic]( ../../content/images/targeted-women/4.png ){width=55%} |
+| ![pic]( ../../content/images/targeted-women/5.png ){width=55%} 
+The obvious inference of the above two pics is clear and extremely disturbing. |
+| ![pic]( ../../content/images/targeted-women/6.png ){width=55%} 
+Referencing bunny girls maybe. Surely this is a photo shoot but the girls look extremely young. |
+| ![pic]( ../../content/images/targeted-women/7.png ){width=55%} |
+| ![pic]( ../../content/images/targeted-women/8.png ){width=55%} |
+| ![pic]( ../../content/images/targeted-women/9.png ){width=55%} |
+| ![pic]( ../../content/images/targeted-women/10.png ){width=55%}  |
+| ![pic]( ../../content/images/targeted-women/11.png ){width=55%}  |
+| ![pic]( ../../content/images/targeted-women/12.png ){width=55%}  |
+| ![pic]( ../../content/images/targeted-women/13.png ){width=55%}  |
+| ![pic]( ../../content/images/targeted-women/14.png ){width=55%} 
+This woman does not know she is being photographed. |
+| ![pic]( ../../content/images/targeted-women/15.png ){width=55%}  |
+| ![pic]( ../../content/images/targeted-women/16.png ){width=55%}  |
+| ![pic]( ../../content/images/targeted-women/17.png ){width=55%}  |
