@@ -39,15 +39,18 @@
 - On Friday 25th October, in Fatima, I'm made redundant from my job.
 - I arrive back in Denia on 27th October.
 - On Monday 28th October, I get an excruciating headache at home. 
-- While sitting at my desk, I experience shooting nerve pains all over my face.
-- My kidneys start to ache over the week, worse and worse.
+- While sitting at my desk, drinking my coffee, I experience shooting nerve pains all over my face.
+- My kidneys start to ache over the week; it gets worse and worse.
 - My urine becomes extremely frothy and it was fine the week before in Fatima.
 
 ![Frothy urine](../../content/images/frothy%20urine.png)
 
-- I feel like I'm being poisoned over this week in my flat.
-- I take some samples of water and items related to the air vents to London in the hope that the police will one day find things serious enough to investigate and I will have things for them to look at.
-- There is a [warning and condemnation about poisoning given via a fake account](august.md#i-realize-i-have-been-poisoned-and-drugged) on 1st November.
+- I feel like I'm being poisoned over this week in my flat, and quite intensely.
+- Someone wants me to get sick or possibly die.
+- If mny dad did not have an accident on the 1st of November and I had to rush back to London, I believe that Domingo's family may have made good on their threats and killed me via poisoning.
+- I take some samples of water and items related to the air vents to London in the hope that the police will one day find things serious enough to investigate and I will have evidence for them to analyze.
+- There is a [warning and condemnation about poisoning given via a fake account](august.md#i-realize-i-have-been-poisoned-and-drugged) on Halloween night, the 1st November.
+- That day, Friday 1st November, I'm certain I see Carmen Cano and another woman (a woman I have seen going in and out of number 18) together leaving the building. They smile at me as I walk by.
 
 ## Trying to find the cameras
 
