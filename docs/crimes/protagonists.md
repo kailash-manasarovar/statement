@@ -7,6 +7,8 @@
 - Given their name relates to all things canine and wolverine, any reference online to dogs, particularly when it also is content of a threatening or abusive nature, is interesting and suggests it is coming from them and their family.
 - Dogs feature constantly in the online harassment and threats.
 
+![Domingo lookalike or AI mix](../../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
+
 ### Carmen Cano
 
 - I believe Carmen Cano ran many fake accounts that terrorized me.
@@ -26,17 +28,38 @@
 ## The trumpet teacher
 
 - I do not believe this man's name is Vidal Sastre Sanchez Hornero, unless, of course, these criminal gangs are so arrogant and protected, they don't bother hiding themselves.
-- Symbols related to him are horses.
+- Symbols and memes related to him are horses, Trump.
 - He has a brother who may be a twin as they look nearly identical: the brother "made himself known to me" one evening when I walked through the tunnel during the intensive gang stalking in October 2023.
 - Trish Penny, when I asked her how she knew Vidal, said "who"? But it's clear she knows who this man is, and his brother.
 - Investigators will know immediately who he is.
 - The whole town of Denia and beyond knows who he is.
 
+![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
+
+## Trish Penny
+
+
+
+## Christine Betterton Jones
+
+
+
 ## Paqui Fornet Pastor
 
-## Gloria
+![Paqui Fornet Pastor 1](../../content/images/fake-accounts/paqui1.png)
+
+## Gloria the receptionist
+
+![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
+
+## Ana Requena 
+
+![Ana](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
 
 ## Other teachers to a greater or lesser degree
+
+![Maria Hontanilla](../../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png)
+![Chamber music teacher from year 4](../../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png)
 
 ## Twitter accounts of note
 
