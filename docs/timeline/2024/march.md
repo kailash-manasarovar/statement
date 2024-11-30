@@ -372,10 +372,14 @@
 ### Gaslight by Chris BJ
 
 - Chris BJ gaslights me on WhatsApp by obviously and weirdly referring to a tweet I sent after the piano concert.
+
+![I do love you](../../content/tweets/i-do-love-you.png)
+
 - When I ask her about it, she denies it.
-- Most of my communication with Chris BJ about the whole business has been a high level of gaslighting from her, even though I shared all my documentation I sent to the Generalitat and other things.
+- Throughout most of my communication with Chris BJ about the whole business there has been a high level of gaslighting coming from her, even though I shared all my documentation I sent to the Generalitat and other things.
+- Her tone was always dismissive and given I knew she was obviously involved somehow, as I found out in January when I got such a weird reaction to talking about the trumpet teacher and was consequently uninvited from walking, I never trusted her fully, but she was useful.
 - At the time of writing, I wonder if the English ladies have been involved in the terrorizing on Twitter too. It would not surprise me at all. It seems the whole region has been involved.
-- I wonder if they're aware they were mobilized solely for the protection of pedophiles, and misogyny in general.
+- I wonder if they're aware they were mobilized solely for the protection of pedophiles, and misogynist porn-gang fun incidentally.
 
 ## 17th March 
 
