@@ -73,6 +73,7 @@
 
 - I contacted so many lawyers, I'm not sure why I didn't go ahead with any of them. 
 - I'm not even sure who Lisa was now I was so stressed at the time. I'll add her details here when I find them. I guess she could have been someone connected to the criminal gangs.
+- In response to one email I sent, I received a notification that my message had been blocked by the server. This was: https://carbrayinternational.com/.
 - Eventually, I find a lawyer who can help me if I'm arrested who speaks English. He can also help me with any translating.
 - I believe now he is likely connected to the criminal gangs and it was easy to direct me to him because, as we have seen, they have full access to my devices and online use in real time.
 

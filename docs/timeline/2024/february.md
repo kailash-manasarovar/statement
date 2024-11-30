@@ -7,6 +7,13 @@
 
 ![Ka ka account 1](../../content/images/fake-accounts/kaka-1.png)
 
+## New e-SIM with Yoigo
+
+- I try to get a new SIM from Yoigo on 7th February.
+- It's such a complicated business, I never manage to set it up, even though they sent me detailed instructions.
+- The relevant part of the instructions on email was missing, i.e. QR code, so I was never able to set up the e-SIM.
+- I believe the email was interfered with and the QR code removed or made unreadable so that I could not set up the e-SIM.
+
 ## Constant gang stalking at the conservatory
 
 - Ana Girbes continues to be really angry at me for no reason, as does Ana Requena.

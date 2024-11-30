@@ -31,13 +31,16 @@
 
 ## Eyes
 
-- In 2022, around April time, I went for a regular eye check up at [Alain Afflelou in Ondara](https://www.afflelou.es/opticas/ondara/afflelou-c-c-portal-de-la-marina-av-costa-blanca-1-local-b65-03760).
+- On 17th March 2022, I went for a regular eye check up at [Alain Afflelou in Ondara](https://www.afflelou.es/opticas/ondara/afflelou-c-c-portal-de-la-marina-av-costa-blanca-1-local-b65-03760).
+- [The report](../content/documents/health/March%202022%20eye%20report.pdf) was clear at that time although the ocular pressure is in the high range of normal.
+- On 23rd April 2023, I went again for a check up. The report came back with [high ocular pressure](../content/documents/health/April%202023%20eye%20report.pdf).
 - I was told I had high ocular pressure and needed to come in to have it monitored regularly as it could be a sign of sudden onset glaucoma which can cause blindness.
-- I went in regularly until the I left for holidays and the pressure was always high.
-- I was away from Denia until the end of September. When I got back, I went for an ocular pressure check and the pressure was low again. They told me I didn't need to come back.
-- That was when the bullying really started and it was difficult to think straight about anything and I failed to go for a check up again until November 2024.
-- My eyes had felt pretty OK up until I spent a week back in my apartment in Denia at the end of October 2024 when I started to feel really unwell.
-- Included in those unwell feelings was concerns about my eyes: burning sensation, blurred vision, headaches.
+- I went in regularly until the I left for holidays and the pressure was always high. I went once in France too I believe.
+- Alain Afflelou didn't note every check that I had but usually did.
+- I was away from Denia until September 2023. When I got back, I went for an ocular pressure check again and the pressure was low again. They told me I didn't need to come back for monitoring anymore.
+- Since then it's been difficult to think straight about anything and I failed to go for a check up again until November 2024.
+- My eyes had been feeling pretty OK up until I spent a week back in my apartment in Denia at the end of October 2024 when I started to feel really unwell.
+- Included in those unwell feelings was concerns about my eyes: burning sensation, blurred vision, headaches, shooting nerve pains around the face.
 - I got a preliminary eye pressure check in Bangkok mid-November and was informed the pressure was high.
 - Today, Thursday 28th November, I had a full analysis and checkup done at Rutnin Eye Hospital in Bangkok.
 - Ocular pressure was not so high but I have been diagnosed, nonetheless, with Primary Angle Closure Suspect.

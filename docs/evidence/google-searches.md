@@ -13,3 +13,7 @@
     ![](../content/images/google-searches/Screenshot%202024-11-29%20at%2012.37.54.png)
     ![](../content/images/google-searches/Screenshot%202024-11-29%20at%2012.38.00.png)
     ![](../content/images/google-searches/Screenshot%202024-11-29%20at%2012.38.07.png)
+
+## Curtains
+
+- See justice emails for pics.
