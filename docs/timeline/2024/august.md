@@ -74,6 +74,12 @@
 - I respond to this terrible tweet thread that I have just read: https://x.com/1FRGVN/status/1823957507728896499.
 - I start to think seriously about the possibility of hidden cameras in my apartment.
 
+## Conversations about porn
+
+- The hacker starts to make reference to having done porn, mainly gay porn throughout his life.
+- My video results on Google search for "1frgvn x" now include gay porn.
+- I feel like the trumpet teacher is baring his soul, telling me the truth about his life.
+
 ## Trish communication
 
 - Trish sends me WhatsApp messages which are rather unusual.
