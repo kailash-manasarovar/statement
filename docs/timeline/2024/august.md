@@ -150,16 +150,18 @@
 ## Followed by the gypsy in France
 
 - There comes a point in the conversation with the hacker over this time that feels like other people are now involved.
-- Peppered into the conversation are threats of violence and porn references.
-- This has always been the pattern. Communication starts in a way which seems relatively private. Then there seems to be other voices involved. And finally there is some shocking threat of violence or similar and communication breaks down. This is the pattern from:
+- Peppered into the conversation are threats of violence, porn references, references to Ana again, wind up messages.
+- This has always been the pattern. Communication starts in a way which seems relatively private. Then there seems to be other voices involved, a lot of wind ups. And then finally there is some shocking threat of violence or similar and communication breaks down. This is the pattern from:
     - April to June 2023 while conversing over Twitter.
-    - June to August 2023 while conversing over Twitter.
-    - Then the pattern repeats with fake account activity, such as the American account Matthew, the account from Madrid at Christmas, Beams, HierEncore, etc.
+    - June to August 2023 while conversing over Twitter although there were obviously more than one involved in this communication. As I mentioned to Matthew Copeland at the time, I felt I had an audience.
+    - After that, the pattern repeats mainly with fake account activity, such as the American account Matthew, the account from Madrid at Christmas, Beams, HierEncore, etc.
 - So the same pattern has started to develop now within this conversation we have been having about targeted women over the years.
 - An account likes one of my posts one evening, and I see this extraordinarily ugly looking man on it with his daughter. It's classic fake account, just a few pics, all of him, but he looks like an evil person.
 - A few days later, I see this exact same guy with a woman at the baths in Cauterets while I'm there. I'm shocked.
 - I see him again a couple of days later in Lourdes.
+- I would recognize him again.
 - I add a note to this effect in my handwritten letter which you will see at the back on page 21 and 22.
+- A fake account suggests the man came up from Pau to check on me.
 
 ## Suspected targets 
 
