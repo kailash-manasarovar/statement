@@ -62,7 +62,7 @@
 - The next class I had with him he was extremely angry with me for no obvious reason at all.
 - I knew then it had been his account I had found (except it wasn't of course, or sort of was).
 
-## A few days later and the next class
+## Disclosing child sexual abuse to the trumpet teacher
 
 - Something got me up in the middle of the night to post a tweet, in Spanish, on my Twitter account that told him I liked him.
 - It was mature and innocuous, and very honest.
