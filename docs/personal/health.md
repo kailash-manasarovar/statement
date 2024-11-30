@@ -15,16 +15,19 @@
 ## Kidneys
 
 - Since December 2022, I have had trouble with my kidneys, particularly the right one.
-- At Christmas 2022, I had a seizure of some sort in Samui on holiday and I went to A&E. They told me everything was fine, it was just panic, but nevertheless I had frothy urine for a few days after that.
+- At Christmas 2022, I had a seizure of some sort in Samui on holiday and I went to A&E at Bangkok Hospital. They told me everything was fine, it was just panic, but nevertheless I had frothy urine for a few days after that.
 - On 28th January, I got a mild form of rhabdo at chamber music class with the trumpet teacher.
 - I suffered frothy urine and other ill effects after that for some time.
 - I went on a strict kidney diet, lost a lot of weight (15kg) and the urine problem became intermittent.
-- It always comes back hard if I'm unwell. So, for example, when I had Covid in May 2023, my kidneys were battered from it. This was also true when I had the serious chest infection from 13th March to 5th April where I even cracked a rib coughing. During this time I had frothy urine all the time.
+- I went to my GP in Denia for a blood test to check for kidney failure markers. They did a blood test for everything and skipped the kidney function test. There was no explanation why.
+- I went to the pharmacy in Denia to do a DIY creatinine test. They never had one available. It was not clear why.
+- The frothy urine and pain in my kidney area always comes back hard if I'm unwell. So, for example, when I had Covid in May 2023, my kidneys were battered from it. This was also true when I had the serious chest infection from 13th March to 5th April where I even cracked a rib coughing. I also became unwell in August 2024 with a chest infection. During these times I had frothy urine and back pain all the time.
 - My urine became frothy again whenever I was back in Denia living at Carrer Furs.
 - On 12th November 2024, at Bangkok Hospital, I undertook the comprehensive kidney analysis tests.
 - Everything was normal except for anion gap which was low.
     - [Kidney analysis results page 1](../content/documents/health/kidney-1.JPG)
     - [Kidney analysis results page 2](../content/documents/health/kidney-2.JPG)
+- I continue to have daily pain in my kidney area but no froth in urine at the time of writing.
 
 ## Eyes
 
