@@ -53,3 +53,7 @@ The report is set out into different sections.
 2. Description of the crimes and protagonists.
 3. Evidence including screenshots to prove hacking and cyber-stalking -> this section might mostly end up in section 1.
 4. A summary of my personal suffering, physical and emotional trauma, and also the financial costs I have suffered due to these horrible experiences.
+
+!!! tip
+    - Contact me for any further information you may require on info@forgivenet.co.uk.
+    - This may include copies of any correspondence, emails, call logs, WhatsApp message, etc.

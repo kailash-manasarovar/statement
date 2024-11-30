@@ -375,7 +375,7 @@
 - When I ask her about it, she denies it.
 - Most of my communication with Chris BJ about the whole business has been a high level of gaslighting from her, even though I shared all my documentation I sent to the Generalitat and other things.
 - At the time of writing, I wonder if the English ladies have been involved in the terrorizing on Twitter too. It would not surprise me at all. It seems the whole region has been involved.
-- I wonder if they're aware they were mobilized solely for the protection of pedophiles and misogyny in general.
+- I wonder if they're aware they were mobilized solely for the protection of pedophiles, and misogyny in general.
 
 ## 17th March 
 
