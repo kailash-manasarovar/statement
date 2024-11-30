@@ -211,6 +211,10 @@
 
     - In August, I respond to this terrible tweet thread that I have just read: https://x.com/1FRGVN/status/1823957507728896499.
 
+## Body cam
+
+- I buy a body cam and frame for security purposes.
+
 ## Twitter
 
 - Tweets of interest to follow.
