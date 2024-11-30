@@ -33,7 +33,7 @@
 - When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back. Nothing works.
 - Even though my iPhone camera is blocked, I get notifications on fake accounts of items in my hotel room. Of course, only the camera facing me is blocked, not the one looking out.
 
-## Poisoning
+## Serious poisoning with intent to harm or kill
 
 - I travel to Fatima in Portugal over 19th - 27th October.
 - On Friday 25th October, in Fatima, I'm made redundant from my job.
