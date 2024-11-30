@@ -5,7 +5,7 @@
 - There's an intense aggression towards me in the classroom.
 - I realize that one of the songs we are singing has a repeated refrain, "ka ka ka". I know he's taking the piss with this too. 
 
-![Ka ka account 1](../../content/images/fake-accounts/kaka-1.png){width=65%}
+![Ka ka account 1](../../content/images/fake-accounts/kaka-1.png)
 
 ## Constant gang stalking at the conservatory
 
@@ -68,11 +68,11 @@
 - He says something else threatening about me which I didn't save at the time.
 - At the time of writing, Sunday 24th November, the account has been deleted and so I am unable to see his past messages live on Twitter.
 
-![Threat of violence from Mark Mosely account](../../content/images/threats/threat-2.png){width=65%}
+![Threat of violence from Mark Mosely account](../../content/images/threats/threat-2.png)
 
 - And there are some other threats around this from other accounts which are unsettling. An example:
 
-![Threat of violence from Mark Mosely account](../../content/images/threats/threats-around-threats.png){width=65%}
+![Threat of violence from Mark Mosely account](../../content/images/threats/threats-around-threats.png)
 
 - Interestingly, it is only a few days previous, Wednesday 20th November 2024, that I checked this account and it was still live and posting.
 
@@ -126,7 +126,7 @@
 - I send a [message in a comment box](../../content/documents/letters/echr-message.pdf) instead, to which I never receive a reply.
 - Later that day, I get followed by fake accounts related to human rights. This is just one of them.
 
-![Human rights accounts](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-04%20at%2008.32.54.png){width=65%}
+![Human rights accounts](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-04%20at%2008.32.54.png)
 ![Human rights accounts](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-08%20at%2008.35.00.png)
 
 !!! note 

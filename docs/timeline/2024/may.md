@@ -5,9 +5,9 @@
 - The account profile pic is the face of my chamber music teacher that year, Esteve, which means that Hazel must be connected to Domingo in some way.
 - Esteve was a genuinely nice man in my opinion.
 
-![Hazel](../../content/images/threats/hazel/choral-symphony.png){width=75%}
-![Hazel](../../content/images/threats/hazel/choral-symphony-thread-1.png){width=75%}
-![Hazel](../../content/images/threats/hazel/choral-symphony-thread-2.png){width=75%}
+![Hazel](../../content/images/threats/hazel/choral-symphony.png)
+![Hazel](../../content/images/threats/hazel/choral-symphony-thread-1.png)
+![Hazel](../../content/images/threats/hazel/choral-symphony-thread-2.png)
 
 - More recently (27th November), another account has popped-up as significant, Granny Smith. This account has been targeting people close to me who thought they met them in person, but in the end we discovered they never had.
 
@@ -21,7 +21,7 @@
 - A man comes in who recognizes me. I have no idea who he is.
 - I email my mother and tell her.
 
-![](../../content/images/laundry-man.png){width=75%}
+![](../../content/images/laundry-man.png)
 
 ## Cars beeping outside
 
@@ -44,20 +44,20 @@
 - The interaction runs from 26th April to 31st May.
 - The account's name is `@Beams_Game`.
 
-![Beams](../../content/images/beams-games.png){width=65%}
+![Beams](../../content/images/beams-games.png)
 
 - There is some tweetage and we DM too.
 - He talks candidly about his extremely violent father. Much of this content is deleted now.
 - On 8th May he posts "Watching you shifting through your ups and downs, gives me the feeling, i know you better then your self do." sic.
 
-![Beams ups and downs](../../content/tweets/beams-ups-and-downs.png){width=65%}
+![Beams ups and downs](../../content/tweets/beams-ups-and-downs.png)
 
 - I know it's related and non-random, just like the other accounts that have interacted with me previously.
 - I look up "beams" in Spanish. It is "Vigas". I'm nearly sure that's the trumpet teacher's nickname because he has big legs.
 - There are sinister references from this account too, suggestions of violence. The "impulses are waiting in line" sentence is very suggestive.
 - Close to the end of our interaction he posts an extremely sinister picture.
 
-![Beams clown](../../content/tweets/beams-clown.png){width=65%}
+![Beams clown](../../content/tweets/beams-clown.png)
 
 - This is a good example of the pattern of content coming from the various anonymous accounts that have interacted with me, which I know are related to the trumpet teacher and Domingo; subtle threats of violence, subtle mentions of knowledge we share, trigger words and symbols, content peppered with romance and kindness, normal communication apparently, then a shock of some sort like the clown pic.
 - I remain extraordinarily highly sexually aroused during this month.

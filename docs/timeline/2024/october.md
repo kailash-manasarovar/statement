@@ -14,7 +14,7 @@
 - I did. She didn't reply.
 - On Halloween I text the following:
 
-![WhatsApp to Alex](../../content/whatsapps/whatsapp-to-alex.png){width=55%}
+![WhatsApp to Alex](../../content/whatsapps/whatsapp-to-alex.png)
 
 - There's no reply.
 
@@ -39,7 +39,7 @@
 - My kidneys start to ache over the week, worse and worse.
 - My urine becomes extremely frothy and it was fine the week before in Fatima.
 
-![Frothy urine](../../content/images/frothy%20urine.png){width=65%}
+![Frothy urine](../../content/images/frothy%20urine.png)
 
 - I feel like I'm being poisoned over this week in my flat.
 - I take some samples of water and items related to the air vents to London in the hope that the police will one day find things serious enough to investigate and I will have things for them to look at.

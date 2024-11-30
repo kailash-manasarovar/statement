@@ -63,7 +63,7 @@
 ## I buy an iPhone
 
 - I take a colleague's advice and buy and iPhone in the hope it will impede hackers.
-- Copy of the [confirmation from Apple](../../content/documents/evidence/iphone-bill.png){width=65%}.
+- Copy of the [confirmation from Apple](../../content/documents/evidence/iphone-bill.png).
 
 ## Ana and Ana
 
@@ -206,7 +206,7 @@ Earlier in the month I remain exuberant and there are lots of deleted tweets, an
 - https://x.com/1FRGVN/status/1751146570521731402 -> all stalker-related content goes into Highlights.
 - https://x.com/1FRGVN/status/1751145935646621796 -> stalker account `@AIinAmerica`. This one posted the boy that even today comes up first on Google searches. I'm supposed to think it's the trumpet teacher as a young man. I don't. In fact, I think I saw the actual man this is a picture of on the Las Marinas beach in October 2024.
 
-![Current google searches with the young man](../../content/images/google-searches/google-search-young-man.png){width=85%}
+![Current google searches with the young man](../../content/images/google-searches/google-search-young-man.png)
 
 - https://x.com/1FRGVN/status/1751135469306302843 -> unblocking Matthew account. I must be triggered again.
 - https://x.com/1FRGVN/status/1751134068182339603 -> thinking the trumpet teacher is on my side again.

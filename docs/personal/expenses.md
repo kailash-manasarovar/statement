@@ -52,7 +52,7 @@
 
 ### January 2024
 
-- 19th          | Apple iPhone 14               | 859.00        | [receipt](../content/documents/evidence/iphone-bill.png){width=65%}.
+- 19th          | Apple iPhone 14               | 859.00        | [receipt](../content/documents/evidence/iphone-bill.png)
 
 ### March 2024
 

@@ -71,7 +71,7 @@
 - I manage to put a [message in their contact box](../../content/documents/letters/echr-message.pdf) which I assume they will likely not receive.
 - That day, I'm followed by accounts related to human rights.
 
-![Human rights fake account](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-04%20at%2008.32.54.png){width=65%}
+![Human rights fake account](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-04%20at%2008.32.54.png)
 ![Human rights fake account](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-08%20at%2008.35.00.png)
 
 - I was able to finally communicate with the ECHR when I was in Brussels in July: https://x.com/1FRGVN/status/1811523447123558841.
@@ -375,7 +375,7 @@
 - Her silence speaks a thousand words.
 - I realize I am indeed not safe so I excuse myself from classes following the week of Fallas which means public holidays in the Valencia region.
 
-![Excusing myself from class](../../content/documents/papeles-conservatorio/excusing-myself-from-class.png){width=75%}
+![Excusing myself from class](../../content/documents/papeles-conservatorio/excusing-myself-from-class.png)
 
 ## Online threats during this period
 
@@ -485,7 +485,7 @@
 
 - I thought `@kiwipally` was also a stalker account as they were very active at this time.
 
-![Lorraine](../../content/images/threats/lorraine/lorraine%20again.png){width=85%}
+![Lorraine](../../content/images/threats/lorraine/lorraine%20again.png)
 ![Lorraine](../../content/images/threats/lorraine/lorraine-5.png)
 ![Lorraine](../../content/images/threats/lorraine/lorraine-4.png)
 ![Lorraine](../../content/images/threats/lorraine/lorraine-3.png)
@@ -528,7 +528,7 @@
 - The message on the timeline was very suggestive because I had just found my mum's Twitter account. My cousin Leah had found me somehow a while back and I believe she told my mum I was on Twitter and gave her my details. 
 - I saw her following me and subsequently found out it really was her. Curiously, the hackers were more sure of that than me at that time! Initially, I had thought it was another fake account.
 
-![mum](../../content/images/mummy.png){width=65%}
+![mum](../../content/images/mummy.png)
 
 - Anyway, the whole interaction with this account was extremely threatening.
 
@@ -579,12 +579,12 @@
 
 - https://x.com/january_myth/status/1772034747775992249 -> the Taru Ann account, which may be sometimes run by Trish Penny retweets a post from 29th August 2023, around the time the hackers are revealing themselves. I don't remember seeing it at that time but I may have and it just didn't register as connected.
 
-![Love poem](../../content/tweets/taru-ann-poem-2.png){width=65%}
+![Love poem](../../content/tweets/taru-ann-poem-2.png)
 
 - At the same time, she retweets a pic from 12th June 2023, which I have been unable to locate so [asked the account owner about it directly](../../content/tweets/long-long-way-to-go.png) and she has posted the pic: https://x.com/january_myth/status/1860955287672213591/photo/1 but not the poem that went with it. I remember seeing that one but, again, I made no connection to this account.
 - I ask her about the poem.
 
-![taru ann poem and pic posted on 12th june 2023](../../content/images/taru-ann-poem.png){width=65%}
+![taru ann poem and pic posted on 12th june 2023](../../content/images/taru-ann-poem.png)
 
 - It's curious that she deleted the tweet from 12th June 2023.
 - She just deleted a tweet replied to me today (Friday 29th November) in a way to **call out** the fact that she deletes tweets from time to time, except she never did it before today (Friday 29th November).

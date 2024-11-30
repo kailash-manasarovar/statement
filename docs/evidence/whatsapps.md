@@ -6,13 +6,13 @@
 
 - WhatsApp thread from my Spanish phone: [link](../content/whatsapps/WhatsApp%20Chat%20with%20Robert%20Rodriguez.zip)
 
-![Robert the lawyer](../content/whatsapps/roberto-laywer.jpg){width=45%}
+![Robert the lawyer](../content/whatsapps/roberto-laywer.jpg)
 
 ## Chat about the leak with Pedro the caretaker
 
 - The leak was still ongoing in April, or it had reappeared in fact: 
 
-![Chat about the leak](../content/whatsapps/chat-about-the-leak-with%20pedro.jpg){width=45%}
+![Chat about the leak](../content/whatsapps/chat-about-the-leak-with%20pedro.jpg)
 
 ## Asking Knowhere if they have security cameras
 

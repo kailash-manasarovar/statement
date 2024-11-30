@@ -21,11 +21,11 @@
 - On Sunday 10 November, hackers post what I consider a threat to my brother's life.
 - The profile pic is clearly my brother, although the bottom part of this person may be someone else.
 
-![Brother is in profile pic](../../content/images/threats/image_123650291.JPG){width=65%}
+![Brother is in profile pic](../../content/images/threats/image_123650291.JPG)
 
 - The account details show sniffing dogs (Cano Lopez) and have a clear reference to death: RIP.
 
-![Account details have RIP and sniffing dogs](../../content/images/threats/image_123655411.JPG){width=65%}
+![Account details have RIP and sniffing dogs](../../content/images/threats/image_123655411.JPG)
 
 ## Bangkok
 
@@ -44,7 +44,7 @@
 
 - A fake account called Ligia Betton interacts with me. 
 
-![Ligia Betton](../../content/images/fake-accounts/Screenshot 2024-11-19 at 18.12.33.png){width=65%}
+![Ligia Betton](../../content/images/fake-accounts/Screenshot 2024-11-19 at 18.12.33.png)
 
 - I believe this is what is going on, i.e. a porn network (league) has a bet on me. People are making money off me now just like they have been since they made porn of me when I was 16.
 - I pray that police will act at some point.
@@ -53,7 +53,7 @@
 
 - I check the `@jctot19` account for the first time in ages, this Wednesday 20th November.
 
-![jctot19 latest](../../content/images/jctot19-latest.JPG){width=45%}
+![jctot19 latest](../../content/images/jctot19-latest.JPG)
 
 - He hasn't posted since the 15th January 2024, or he has deleted his posts from then.
 - The highlighted post from 9th January, mentioning the *chica*, appears to be referring to me. The account he is replying to is protected so I cannot see the conversation. The implication is that I am chasing him again and again. However, this is undoubtedly what he, Domingo, and their co-conspirators have been setting me up to *appear* to be doing.
@@ -83,7 +83,7 @@
 - I mention there is a problem with the water but we can discuss it later.
 - I have raised the issue with the [water pipes](../2023/september.md#the-water-pipes) twice already.
 
-![Bea wanting to know when I'm leaving](../../content/whatsapps/bea-panic.JPG){width=45%}
+![Bea wanting to know when I'm leaving](../../content/whatsapps/bea-panic.JPG)
 
 ## Tattoo
 
@@ -102,7 +102,7 @@
 - Carmen and Rocio Vidal still feature. Carmen is obviously Carmen Cano, Domingo's sister.
 - I post about [seduction techniques](../../evidence/manipulation.md) on Twitter: https://x.com/1FRGVN/status/1860132157890679006. Immediately, an account interacts with me that has a warning, and suggests the trumpet teacher has an alibi, and not to forget to cross examine Domingo (Camo).
 
-![Alibi](../../content/images/fake-accounts/dont-dare.png){width=65%}
+![Alibi](../../content/images/fake-accounts/dont-dare.png)
 
 - I suspect Carmen Cano to be behind most of these, including the threat to my brother's life.
 - This is my most translated tweet for ages:
