@@ -13,7 +13,7 @@
 
 ![Granny Smith](../../content/images/fake-accounts/lard-shugga.png)
 
-- This account is deleted over the last two days. The timing on that is interesting.
+- This account was deleted over the last two days. The timing on that is interesting.
 
 ## The laundry
 
@@ -52,6 +52,7 @@
 
 ![Beams ups and downs](../../content/tweets/beams-ups-and-downs.png)
 
+- He originally liked all my replies.
 - I know it's related and non-random, just like the other accounts that have interacted with me previously.
 - I look up "beams" in Spanish. It is "Vigas". I'm nearly sure that's the trumpet teacher's nickname because he has big legs.
 - There are sinister references from this account too, suggestions of violence. The "impulses are waiting in line" sentence is very suggestive.
@@ -59,7 +60,11 @@
 
 ![Beams clown](../../content/tweets/beams-clown.png)
 
-- This is a good example of the pattern of content coming from the various anonymous accounts that have interacted with me, which I know are related to the trumpet teacher and Domingo; subtle threats of violence, subtle mentions of knowledge we share, trigger words and symbols, content peppered with romance and kindness, normal communication apparently, then a shock of some sort like the clown pic.
+- This is a good example of the pattern of content coming from the various anonymous accounts that have interacted with me, which I know are related to the trumpet teacher and Domingo:
+    - Subtle threats of violence.
+    - Subtle mentions of knowledge we share.
+    - Trigger words and symbols, memes.
+    - Content peppered with romance and kindness, normal communication apparently, then a shock of some sort like the clown pic.
 - I remain extraordinarily highly sexually aroused during this month.
 
 !!! danger
@@ -69,7 +74,7 @@
 
 - I head to Madrid and stay from the 5th to the 11th of May. 
 - I'm flying out of Madrid on the 11th May to Bali for an event with work and need to get away from Denia as it is stressful being there.
-- Outside the hotel, I see strange guys hanging around and I always have the sense I'm being followed.
+- Outside my hotel in Madrid, I see strange guys hanging around and I always have the sense I'm being followed.
 - Words from random conversations I have are posted on fake account profiles.
 - Inside the hotel, online, I am stalked continuously and I believe they get full access again to my new Spanish mobile at this time.
 - I have forgotten to block the camera and there is a significant message that describes something in the room or something I'm wearing
@@ -84,7 +89,7 @@
 ## My speech
 
 - On Saturday 11th May, I give a speech at the Let Women Speak event in Madrid: https://youtu.be/l9X6o11IwBc?t=1988.
-- My speech describes being targeted by a "manada" (which mean "rape gang" in Spanish) in Denia and how it parallels precisely the child sexual abuse by a North London grooming gang from when I was 16.
+- My speech describes being targeted by a "manada" (which is vernacular for "rape gang" in Spanish) in Denia and how it parallels precisely the child sexual abuse by a North London grooming gang I experienced when I was 16.
 - I make the point that, I would be trans had I been born 30 years later and experienced the same thing.
 
 ### The Spanish feminists tell me why they didn't support me
@@ -95,6 +100,7 @@
 - I tell her, yes it was me. I was asking for help for the same things I'm talking about today.
 - "No, no, it couldn't be you. We heard this woman was unstable", she says, "like a victim of domestic violence".
 - I remain flabbergasted.
+- A woman interrogates me about what happened at lunch but my Spanish is so poor I can barely describe it.
 
 ## Telegram/Signal
 
@@ -107,7 +113,10 @@
 - It's not clear why although something in my mind believes it is the trumpet teacher again. It's very strange.
 - It was extremely weird in fact. I sent an extraordinarily long rant to this person's account while I was flying to Bali in May.
 - In it, I mentioned one image seen on `@jctot19` Google search throughout December which was a film directed by Mel Gibson about child sex trafficking, a true story: https://www.imdb.com/title/tt7599146/.
-- I wonder why they would have put that in Google search results for me to see, and think the worst.
+- The film is playing on Turkish Airlines at the time and I watch it.
+- It is a true story and the protagonist's wife is called Katharine.
+- It's all so "meaningful".
+- I wonder why they would have put that in Google search results for me to see, and I think the worst.
 
 !!! info
     - Was the trumpet teacher alerting me to child sex trafficking going on in Denia, with the conservatory somehow the training or recruitment ground?
@@ -131,7 +140,8 @@
 
 - I leave for Lourdes at the end of the month.
 - I plan to spend two weeks in Lourdes.
-- I need to be out of Denia as much as possible because it's enormously stressful being there as anytime I leave my house I am harassed and followed by locals.
+- I need to be out of Denia as much as possible.
+- It's enormously stressful being there as anytime I leave my house, shopping, going to the laundry, walking to the beach, I am harassed and followed by locals.
 - It's clear to me, however, that no matter where I am, the cyber stalking will continue.
 
 ## Tweets

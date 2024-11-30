@@ -18,6 +18,10 @@
 
 - There's no reply.
 
+## Threats at the laundry
+
+
+
 ## Fatima
 
 - I head to Madrid to stay one night before moving onto Fatima in Portugal. I need to be away from Denia as much as possible for my nervous system.
