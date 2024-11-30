@@ -78,7 +78,7 @@
 - Words from random conversations I have are posted on fake account profiles.
 - Inside the hotel, online, I am stalked continuously and I believe they get full access again to my new Spanish mobile at this time.
 - I have forgotten to block the camera and there is a significant message that describes something in the room or something I'm wearing
-- Around this time, I receive notification that the conservatory has banned mobiles from the building and I inform my friend about this.
+- On May 6th, I receive [an email notification that the conservatory has banned mobiles from the building](../../content/documents/emails/prohibiting-mobiles-conservatorio.pdf) and I inform my friend about this.
 - I am extremely sexually aroused during this time. And it felt like the trumpet teacher was in my mind.
 - They must have managed to drug me somehow during this time. I was out of my mind.
 
