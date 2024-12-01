@@ -16,7 +16,7 @@
 - I start to see another woman, over and over, every day.
 - It's the same pattern [as before](august.md#photos-of-abused-women-and-girls). 
 - The woman appears to be innocently on a date, then she is sending nudes. 
-- There are a whole bunch of "nearly nudes" where she is in see-through lingerie and taking selfies of herself probably in her sitting room.
+- There are a whole bunch of "nearly nudes" where she is in see-through lingerie and taking selfies of herself probably in her sitting room: https://x.com/StantonHan27273/status/1837180521790546020/photo/1.
 - Finally, I saw a whole series of pics where she is in the passenger seat of a car. You can see people close by to her that are not the person with the camera.
 - I wonder if it started as a regular date.
 - She is being photographed with clothes, then less clothes, then naked, and she looks like she's likely sedated and can't do anything about her situation.
