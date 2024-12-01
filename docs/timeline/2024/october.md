@@ -26,9 +26,10 @@
 
 - I head to Madrid to stay one night before moving onto Fatima in Portugal. I need to be away from Denia as much as possible for my nervous system.
 
-!!! warning "Why didn't you leave?"
-    - If I leave, then the story gets buried, the police do not investigate, and it happens again and again, and maybe someone is driven, again?, to suicide, or maybe they, again?, murder someone with poison.
+!!! warning "Why didn't you leave Denia?"
+    - If I leave, then the story gets buried, the police do not investigate, and it happens again and again, and maybe someone is driven, again?, to suicide, or maybe they, again?, murder someone with poison, and children again? could be groomed into goodness knows what.
 
+- Just before I leave, I empty the bins. There is a man in a car staring at me angrily. His wife is embarrassed and looking down in the passenger seat. I'm amazed that anyone could be angry at the person they have been terrorizing relentlessly. I guess it's guilt. I tweet about it and suggest the man, if he didn't like the porn of me masturbating that everyone has seen, he should take it up with the local porn technicians.
 - As I'm driving to the hotel I've booked in Madrid, all of a sudden, the volume disappears on Google maps so I'm lost on the busy M30/M40 junctions.
 - When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back. Nothing works.
 - Even though my iPhone camera is blocked, I get notifications on fake accounts of items in my hotel room. Of course, only the camera facing me is blocked, not the one looking out.
