@@ -1,3 +1,19 @@
+## Unable to access my laptop
+
+- Sunday 1st December, my laptop is inaccessible. The password does not work at all.
+- Even though I change the password regularly, it worked a few days ago.
+- I believe hackers have infiltrated my machine and forced me to have to reformat it again.
+- I was unable to recover access myself and had to get help from a local technician here in Bangkok where I'm staying.
+- I lose a bunch of *extremely* interesting screenshots taken over the month of November - since I last reformated the machine - in the process.
+- When I look at Twitter on my mobile, the first two likes are honey trap or fakes accounts that seem to be taking the piss out of the fact I cannot access my machine.
+- Taru Ann the Finnish honey trap account likes an old post of mine.
+
+![lost access Taru Ann](../../content/images/lost-access-1.JPG)
+
+- Then two people like a post that is very suggestive of the situation. Zee and Luke would be references to old friends Zoe and Luke Braganza Jones from Denia.
+
+![lost access Zee and Luke](../../content/images/lost-access-2.JPG)
+
 ## Sunday 8th December 2024
 
 - There is no doubt in my mind that what I have experienced at the hands of teachers and staff at the conservatory of Denia, their friends and family, could give a person a nervous breakdown or drive them to suicide.
