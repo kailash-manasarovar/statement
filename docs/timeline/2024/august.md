@@ -208,7 +208,7 @@
 - He stated he loved every one of them!
 - Some of these I believe are illicit and the subject doesn't know she is being photographed at this point. I believe these to be the "when she finds out" content.
 
-| Suspect targets |
+| Suspected targets posted in August |
 |-|
 | ![pic]( ../../content/images/targeted-women/1.png ){width=55%} 
 This looks like a first meeting. Has she traveled over? She appears to have her overnight back with her. There are pictures later on which show her in a video shoot of some sort with much longer hair. |
