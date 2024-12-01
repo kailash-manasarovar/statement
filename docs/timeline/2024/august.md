@@ -28,7 +28,7 @@
 - I realize this is exactly what has happened to Trish and, coupled with the fact she has a daughter and granddaughter, this is why she doesn't talk.
 - I see pictures on fake accounts of young and old women. I screenshot some of them.
 - He's also feeding me information regarding secret filming, spiking, and drug taking.
-- There is some suggestion that the gang has been involved in targeting children online as part of the global online child sexual abuse pornography epidemic.
+- There is some suggestion that the gang has been involved in targeting children online as part of the global online child sexual abuse pornography epidemic. After he talks to me about this a little, I see fake accounts with scared-looking children holding plastic toys in their hands. I did not save any of these.
 - I sense whoever I'm talking to wants out of this dreadful life.
 
 ## I realize I have been poisoned and drugged

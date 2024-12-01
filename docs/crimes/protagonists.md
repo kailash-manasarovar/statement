@@ -7,7 +7,7 @@
 - Given their name relates to all things canine and wolverine, any reference online to dogs, particularly when it also is content of a threatening or abusive nature, is interesting and suggests it is coming from them and their family.
 - Dogs feature constantly in the online harassment and threats.
 
-![Domingo lookalike or AI mix](../../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
+![Domingo lookalike or AI mix](../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
 
 ### Carmen Cano
 
@@ -34,7 +34,7 @@
 - Investigators will know immediately who he is.
 - The whole town of Denia and beyond knows who he is.
 
-![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
+![Trumpet teacher and Gloria receptionist](../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
 
 ## Trish Penny
 
@@ -46,20 +46,20 @@
 
 ## Paqui Fornet Pastor
 
-![Paqui Fornet Pastor 1](../../content/images/fake-accounts/paqui1.png)
+![Paqui Fornet Pastor 1](../content/images/fake-accounts/paqui1.png)
 
 ## Gloria the receptionist
 
-![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
+![Trumpet teacher and Gloria receptionist](../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
 
 ## Ana Requena 
 
-![Ana](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
+![Ana](../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
 
 ## Other teachers to a greater or lesser degree
 
-![Maria Hontanilla](../../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png)
-![Chamber music teacher from year 4](../../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png)
+![Maria Hontanilla](../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png)
+![Chamber music teacher from year 4](../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png)
 
 ## Twitter accounts of note
 
