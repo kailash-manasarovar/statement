@@ -106,6 +106,11 @@
 
 - I believe the hackers/stalkers had started to drug me seriously again at home since getting back to Denia in April.
 - A Telegram chat on my Spanish phone invited me to play a game which I downloaded, probably how they so easily got access again, and it was just endless boredom.
+
+!!! danger
+    - I wonder now if this is how they target children.
+    - Get them hooked into a game and then communicate online with them, hack their webcams like mine was, and manipulate them into something pedophilic. 
+
 - Then, in May, I was contacted on Twitter by an Elon Musk's brother, a fake account obviously, who told me Elon wanted to talk to me, and gave me the Signal details.
 - Weirdly, I'm hooked.
 - One of the first things this account says is "send pics". 
