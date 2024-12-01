@@ -51,16 +51,25 @@
 
 - I realize I'm one of hundreds, maybe thousands of targets.
 - Women and girls lured into relationships that don't exist with the intention of blackmail and exploitation, or silencing.
+- I'm seeing pictures of women that could be decades old. 
+- I can't believe it could be just one man doing all this.
 
 ## The trumpet teacher pics
 
 - He sends interactions with accounts that have pictures that could be the trumpet teacher and his family from a long while back.
 
 ![family](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
+
+- He talks about the above picture being the "lonely years" and there may be references to him being in the navy or armed services of some variety.
+- The following pic is apparently his dad, an extremely violent man who bullied his children appallingly, I'm told. I'm really sad for him when I hear all this.
+
 ![family](../../content/images/fake-accounts/family/Vigas%20dad.png)
+
+- I believe the pic below is the trumpet teacher's son, but of course I'm not at all sure about any of this and it could be an extremely elaborate con.
+
 ![family](../../content/images/fake-accounts/family/son.JPG)
 
-- At least that's what I'm supposed to think, I'm not entirely sure if these are genuine pics or not.
+- I'm not entirely sure if these are genuine pics or not.
 - However, I am delighted to receive them and I feel again a strong personal connection with whoever it is I'm communicating with.
 - These pics, coupled with the pics of the two boys make me feel like I have a collection of personal pics sent by the trumpet teacher. 
 - I also have the strange sensation the brother (possible twin) is called Andre.
@@ -86,12 +95,12 @@
 ## Conversations about porn
 
 - The hacker starts to make reference to having done porn, mainly gay porn throughout his life.
-- My video results on Google search for "1frgvn x" now include gay porn.
+- The video results on Google search for "1frgvn x" now include gay porn.
 - I feel like the trumpet teacher is baring his soul, telling me the truth about his life.
 - It just seems to get worse and worse for him. 
 - I empathize. I do not judge him.
 - He is as he is.
-- It makes sense to me now that he would not judge me when I made [my child sexual abuse disclosure](../2023/april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher) and perhaps saw something of himself in me at that moment.
+- It makes sense to me now that he would not judge me when I made [my child sexual abuse disclosure](../2023/april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher) and perhaps he saw something of himself in me at that moment.
 - I tell my friend from Lourdes that the trumpet teacher has told me he was in porn. She is horrified and asks me if I really want to be with someone like that.
 - I say I don't know but I also tell her that I'm devoted somehow; that something's going on that I have no control over so I just have to trust that it is all in God's plan.
 - I now wonder if everything I felt was just the effects of narcotics I did not know I was ingesting.
@@ -137,7 +146,7 @@
 - The conversation I'm having with the hacker is about these women, who they are, and how appalled I am.
 - They all look either that they believe they are in private, or they are drugged and in situations it is not clear they would agree to if they were in their right minds. 
 
-## Irene
+## Irene, the plate lady
 
 - We're clearly having a very intimate conversation about some very dark matters.
 - I ask, "So who was [plate lady](../2023/july.md#plate-lady-early-in-the-month) then?".
@@ -154,7 +163,7 @@
 - The pictures of Irene that I saw in July 2023 on the `@jctot19` and `@sinremite` accounts were at least 20 years old.
 - The hacker highlights another lady who may be being targeted, a sportswoman in Castellon, Lidia Sanchez Puebla.
 - I'm stunned.
-- I believe I have enough evidence to share and it's my responsibility to share it.
+- I believe I have enough evidence to share and I feel it's my responsibility to help these abused women.
 
 ## Time to write to people
 
@@ -167,7 +176,7 @@
     - Justice for the good people of Denia and the Marina Alta region; especially the children, women, and girls.
     - To ensure my safety in some way because these people clearly have no intention of leaving me alone.
 - Along with the letter, I send some of the pictures that have been sent on fake accounts that may be related. I send all the [trumpet teacher pics](#the-trumpet-teacher-pics). 
-- I also send pics of Rocio Vidal who I believe has been targeted as I mentioned seeing her on the bed about to take her clothes off.
+- I also send pics of Rocio Vidal who I believe has been targeted since, as I mentioned, I saw a fake account pic of her on the bed about to take her clothes off.
 
 ![Rocio Vidal](../../content/images/Rocio-Vidal-on-Google-search.png)
 
@@ -178,13 +187,13 @@
 
 - There comes a point in the conversation with the hacker over this time that feels like other people are now involved.
 - Peppered into the conversation are threats of violence, porn references, references to Ana again, wind up messages.
-- However, in our chat I was very clear that I could not feel jealousy towards any woman that might make a man I loved happy.
+- However, in our chat I was very clear that I could not feel jealousy towards any woman that might make a man I loved happy, so I wondered who was posting these things. It seemed like it was completely separate to the conversation I was having with the hacker who I believed was the trumpet teacher.
 - I assume others, Carmen Cano mainly, found out that we were communicating again and got involved. The reason I say Carmen Cano is because of things the hacker told me at that time.
-- This has always been the pattern. Communication starts in a way which seems relatively private. Then there seems to be other voices involved, a lot of wind ups. And then finally there is some shocking threat of violence or similar and communication breaks down. This is the pattern from:
+- This had always been the pattern. Communication starts in a way which seems relatively private. Then there seems to be other voices involved, then a lot of piss takes and wind ups, insults etc. And then finally there is some shocking threat of violence or similar and communication breaks down. This is the pattern from:
     - April to June 2023 while conversing over Twitter.
-    - June to August 2023 while conversing over Twitter although there were obviously more than one involved in this communication. As I mentioned to Matthew Copeland at the time, I felt I had an audience.
-    - After that, the pattern repeats mainly with fake account activity, such as the American account Matthew, the account from Madrid at Christmas, Beams, HierEncore, etc.
-- So the same pattern has started to develop now within this conversation we have been having about targeted women over the years.
+    - June to August 2023 while conversing over Twitter, although there were obviously more than one involved in this communication. As I mentioned to Matthew Copeland at the time, I felt I had an audience.
+    - After that, the pattern repeats mainly with fake account activity, such as the American account Matthew, the account from Madrid at Christmas, Beams, HierEncore, etc, any stalker account that communicated with me directly followed this pattern of abuse and harassment. 
+- So the same pattern has started to develop now within this intimate conversation we have been having that includes a discussion of targeted women over the years.
 - An account likes one of my posts one evening, and I see this extraordinarily ugly looking man on it with his daughter. It's classic fake account, just a few pics, all of him, but he looks like an evil person.
 - A few days later, I see this exact same guy with a woman at the baths in Cauterets while I'm there. I'm shocked.
 - I see him again a couple of days later in Lourdes.
@@ -202,7 +211,7 @@
 | Suspect targets |
 |-|
 | ![pic]( ../../content/images/targeted-women/1.png ){width=55%} 
-This looks like a first meeting. Has she traveled, she appears to have her overnight back with her. There are pictures later on which show her in a video shoot of some sort. |
+This looks like a first meeting. Has she traveled over? She appears to have her overnight back with her. There are pictures later on which show her in a video shoot of some sort with much longer hair. |
 | ![pic]( ../../content/images/targeted-women/2.png ){width=55%} |
 | ![pic]( ../../content/images/targeted-women/3.png ){width=55%} |
 | ![pic]( ../../content/images/targeted-women/4.png ){width=55%} |
@@ -222,3 +231,8 @@ This woman does not know she is being photographed. |
 | ![pic]( ../../content/images/targeted-women/15.png ){width=55%}  |
 | ![pic]( ../../content/images/targeted-women/16.png ){width=55%}  |
 | ![pic]( ../../content/images/targeted-women/17.png ){width=55%}  |
+| ![pic]( ../../content/images/targeted-women/18.png ){width=55%}  |
+| ![pic]( ../../content/images/targeted-women/19.png ){width=55%} 
+The two pics above are the same woman I often see dressed as a sexy nurse on a bed about to engage in sexual activity. It's never clear if she's aware of being filmed. I wonder if she is the nurse that lived at my apartment for a couple of weeks. Note the vile profile message that suggests she is dead in an umarked grave.  |
+| ![pic]( ../../content/images/targeted-women/20.png ){width=55%}
+This pic is a student of the conservatory who is a student of Domingo Lopez Cano: [Elsa](../2023/october.md#gang-stalking) who I have mentioned before. |
