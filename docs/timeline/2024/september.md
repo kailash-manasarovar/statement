@@ -62,7 +62,7 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 - I go for a walk along Las Rotas.
 - I take my analog phone so I'm not tracked and followed.
 - I'm tracked and followed.
-- Just before the restaurant Sendar, Carmen Cano passes me on a bike, uturns to stare at me, grins and cycles off.
+- Just before the restaurant Sendra, Carmen Cano passes me on a bike, u-turns abruptly and stops to stare at me, grins and cycles off.
 - I have this on camera.
 
 ## Sunday 29th September
@@ -76,6 +76,10 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 - I have this on camera.
 - I never go to the beach again.
 - Back home that night a fake account says possum man is looking for developers. The inference is I'm being offered a job in tech.
+
+!!! warning
+    - Something I realize now is that throughout the intense cyber stalking period, I would say September 2023 to May 2024, accounts about possums would regularly pop up on my Twitter feed; e.g. a possum of the day account came up regularly for ages.
+    - Like other accounts I saw with great regularity, violence and porn specifically, I never followed any of these accounts and it never made any sense for me to see them.
 
 ## Suspected targets
 

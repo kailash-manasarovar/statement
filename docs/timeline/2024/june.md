@@ -11,6 +11,9 @@
 
 ![Barnet post](../../content/documents/barnet-post.png)
 
+!!! info
+    - For anyone interested, here is my [election leaflet](../../content/documents/Katharine%20leaflet.pdf) which went out to 80,000 London constituents, twice, via Royal Mail.
+
 ### Novel additions
 
 - There are a few interesting things that should go in the novel here, not least that I was stalked by an original grooming gang member from 1989 (the one they arrested) outside Brent Cross tube on 3rd July while handing out leaflets.

@@ -20,7 +20,7 @@
 
 ## Threats at the laundry
 
-
+- Whenever I go to the laundry ... and this is true since they started to drug me back in December 2022...
 
 ## Fatima
 
