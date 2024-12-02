@@ -88,6 +88,14 @@ The full profile mentions "intense embarrassment" and I wonder if I'm seeing the
 
 ## Threats
 
+- At some point I see this pic in Google search.
+
+![monster](../../content/images/threats/monster.png)
+
+- It reminds me of a response to a tweet in March, probably when the [cyber stalking and threats were most intense](march.md#tuesday-12th-march) just before or after the piano concert.
+- At that moment, a monster face like the one in the pic simply appeared in the middle of my Twitter timeline, completely out of nowhere.
+- It was shocking and I realized they had total control of everything I could see on Twitter but I was so stressed I had to file it away to think about later.
+
 ### Murder
 
 - Here's a threatening message example.

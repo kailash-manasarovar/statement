@@ -55,12 +55,12 @@
     - Teachers: https://portal.edu.gva.es/conservatoridenia/es/departaments-es/
     - Staff: https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/
 
-- The "Ana is his girlfriend" lie was particularly vicious and, even though I really didn't even care, it upset me as intended.
+- The "Ana is his girlfriend" lie was particularly vicious and, even though I really didn't even care, it upset me as intended because it was relentless.
 - Aside from there being a host of pictures of [Ana Requena modeling](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png) and constant sexual references to her, there is also an interesting picture of the child catcher from Chitty Chitty Bang Bang.
 
 ![child catcher](../../content/images/ana-children.png)
 
-- This is a picture I viewed some time in 2022, retweeted and never looked at again. However, it appeared continuously up until even August 2024 when the stalkers starting going on about Ana again.
+- This is a picture I viewed some time in 2022, retweeted and never looked at again. However, it appeared continuously up until even August 2024 when the stalkers started going on about Ana again.
 - The inference is supposed to be that Ana has locked away the trumpet teacher's children.
 
 ## Other times
