@@ -19,7 +19,8 @@
 - It's the same pattern [as before](august.md#photos-of-abused-women-and-girls). 
 - The woman appears to be innocently on a date, then she is sending nudes. 
 - There are a whole bunch of "nearly nudes" where she is in see-through lingerie and taking selfies of herself probably in her sitting room: https://x.com/StantonHan27273/status/1837180521790546020/photo/1.
-- Finally, I saw a whole series of pics where she is in the passenger seat of a car. You can see people close by to her that are not the person with the camera.
+- Finally, I saw a whole series of pics where she is in the passenger seat of a car. You can see people (men) close by to her that are not the person with the camera. 
+- I saw a small man crouching down near the driver's seat.
 - I wonder if it started as a regular date.
 - She is being photographed with clothes, then less clothes, then naked, and she looks like she's likely sedated and can't do anything about her situation.
 - The inference is that something very dreadful and violent happens to her in the back of the car with a bunch of men around her.
@@ -61,8 +62,8 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 - I've seen it before.
 - I tweet about it in October: https://x.com/1FRGVN/status/1845101018746343666.
 - Something on it strikes me this time, however, which is the pictures of robot masks which I have seen on Google searches, and the mention of "special events".
-- I mention it to the hacker. I wonder if "special events" includes groomed and sedated women that aren't really consenting.
-- I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport), my very own "special event".
+- I mention it to the hacker. I wonder if "special events" includes groomed and sedated women that aren't really consenting, and well know men in the community hidden behind masks.
+- I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport); my very own "special event".
 
 ## Suspected targets
 
@@ -90,6 +91,8 @@ This picture must be of a woman seeing evidence of herself being filmed without 
 | ![pic]( ../../content/images/targeted-women/36.png ){width=55%} 
 The full profile mentions "intense embarrassment" and I wonder if I'm seeing the shocking moments of when targets "find out" prior to blackmailing or sexual exploitation. I wonder if the men delight at these moments and roar with laughter at the tricked and suffering women. |
 
+- I must mention that I also saw a woman crying in her bedroom, crouched down against the wall. I wish I'd screenshot this pic as it looked like it came from a secret camera probably around the air vents, maybe in a screw?
+
 ## Threats
 
 - At some point I see this pic in Google search.
@@ -97,6 +100,7 @@ The full profile mentions "intense embarrassment" and I wonder if I'm seeing the
 ![monster](../../content/images/threats/monster.png)
 
 - It reminds me of a response to a tweet in March, probably when the [cyber stalking and threats were most intense](march.md#tuesday-12th-march) just before or after the piano concert.
+- I tweet about it: https://x.com/1FRGVN/status/1835765992556818662.
 - At that moment, a monster face like the one in the pic simply appeared in the middle of my Twitter timeline, completely out of nowhere.
 - It was shocking and I realized they had total control of everything I could see on Twitter but I was so stressed I had to file it away to think about later.
 
@@ -108,6 +112,7 @@ The full profile mentions "intense embarrassment" and I wonder if I'm seeing the
 
 - And a warning to me about murder maybe. 
 - I was going back to my flat at the end of September and I think they really intended to poison me to get rid of me seeing as I just wouldn't leave Denia.
+- It must have been extremely annoying that I never left, but I'm conscious, even now, that leaving Denia means I'm open to being targeted out of sight, in a far worse manner probably.
 
 ![Murder warning](../../content/images/fake-accounts/murder-warning.png)
 
