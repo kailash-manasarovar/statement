@@ -55,35 +55,10 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 
 - As I drive into Denia I notice the huge billboard for the swinger club, Hedonia.
 - I've seen it before.
+- I tweet about it in October: https://x.com/1FRGVN/status/1845101018746343666.
 - Something on it strikes me this time, however, which is the pictures of robot masks which I have seen on Google searches, and the mention of "special events".
 - I mention it to the hacker. I wonder if "special events" includes groomed and sedated women that aren't really consenting.
 - I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport), my very own "special event".
-
-## Saturday 28th September
-
-- I go for a walk along Las Rotas.
-- I take my analog phone so I'm not tracked and followed.
-- I'm tracked and followed.
-- Just before the restaurant Sendra, Carmen Cano passes me on a bike, u-turns abruptly and stops to stare at me, grins and cycles off.
-- I have this on camera.
-
-## Sunday 29th September
-
-- I go for a walk along Las Marinas beach in the afternoon.
-- I am followed by older men the whole way along, men in their 50s and 60s.
-- On the way back home a couple starts walking in front of me.
-- The woman on the left is someone I've seen on a Twitter fake account and I had a screenshot of this prior to losing access to my machine on 1st December.
-- She has the same tattoo as the [innocent lady who gets into porn](august.md#photos-of-abused-women-and-girls).
-- The man on her right smiles and shows me his face. He looks like a possum.
-- I have this on camera.
-- I never go to the beach again.
-- Back home that night a fake account says possum man is looking for developers. The inference is I'm being offered a job in tech.
-
-!!! warning
-    - Something I realize now is that throughout the intense cyber stalking period, I would say September 2023 to May 2024, accounts about possums would regularly pop up on my Twitter feed; e.g. a possum of the day account came up regularly for ages.
-    - Like other accounts I saw with great regularity, violence and porn specifically, I never followed any of these accounts and it never made any sense for me to see them.
-
-- I don't know what any of this means.
 
 ## Suspected targets
 

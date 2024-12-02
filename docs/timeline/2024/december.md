@@ -22,6 +22,10 @@
 
 We also, curiously, see some activity on the Cloudflare infrastructure that runs this site that shows that people in Finland are requesting pages.
 
+## Threats
+
+- I continue to get online threats from fake accounts.
+
 ## Sunday 8th December 2024
 
 - There is no doubt in my mind that what I have experienced at the hands of teachers and staff at the conservatory of Denia, their friends and family, could give a person a nervous breakdown or drive them to suicide.

@@ -140,9 +140,12 @@
 
 ## Tweets
 
-These are a selection of tweets from this period which relate to everything that has been happening. Most of them have been translated, a lot, so I assume the Spanish are reading them.
+These are a selection of tweets from this period which relate to everything that has been happening. Most of them have been translated, a lot, so I assume the Spanish are reading them. Many of these tweets are confirmation of what has been going on.
 
-Many of these tweets are confirmation of what has been going on.
+!!! important
+    - I'm realizing everyone is reading my tweets. I don't know how as I don't get all that much activity on them but everyone seems to know everything I've said.
+    - A lot of my tweets have the intention of flushing the audience out, to see how far my reach goes.
+    - I find out literally everyone in the town knows everything about me, and every tiny thing I've said online, and likely a lot of lies too because they all hate me.
 
 ### @1frgvn
 

@@ -5,7 +5,9 @@
 
 ## Late October/early November
 
-- I'm feeling extremely unwell in my flat. My kidneys are aching. I have suddenly appearing dark circles under my eyes. My eyes are extremely blurry. My mind is confused and I can't remember simple things. I'm sure I'm being poisoned.
+- I'm feeling extremely unwell in my flat. My kidneys are aching.
+- Dark circles suddenly appear under my eyes - like they did after the chamber music class in January 2023. 
+- My eyes are extremely blurry. My mind is confused and I can't remember simple things. I'm sure I'm being poisoned.
 - It's impossible for me to go out walking without feeling like I'm going to be attacked in some way; psychological usually.
 - When I went shopping to the Carrefour the previous week, a couple parked their car close to mine and as I'm coming back to my car they start shrieking and laughing, and putting their phones up if they're recording me. I don't know who they are. Messages on Twitter fakes accounts that like my posts refer to it later on. It's been like that constantly since September 2023.
 - So I don't go out and consequently, if they are poisoning me through the air vents, I'm unable to get out to clean my lungs.
@@ -15,6 +17,8 @@
 - Two weeks later and I do feel better, my kidneys are not constantly aching and my mind is getting slowly clearer.
 - Last week in Bangkok I had my kidney checked out and all signs are good, except for my anion gap which is excessively low, 6.0 L mmol/L and could mean bromide, iodide, or salicylate ingestion. Common medical diagnostic tests do not consider cases such as mine.
 - If I drink one glass of wine, however, I have immediate frothy urine.
+- Update on 2nd December, the froth in my urine has now disappeared even when drinking wine.
+- I get a diagnosis of PACS from the eye hospital (primary angle closure suspect). Sudden onset glaucoma risk basically. No one in my family has this and everything else is completely normal. It's unusual.
 
 ## A threat to my brother's life
 
@@ -84,6 +88,8 @@
 - I have raised the issue with the [water pipes](../2023/september.md#the-water-pipes) twice already.
 
 ![Bea wanting to know when I'm leaving](../../content/whatsapps/bea-panic.JPG)
+
+- She hurriedly responds with a WhatsApp message from March when I had been terrorized and told her I would need to be leaving. But since then we have conversed and I never mentioned leaving again. In fact, quite the opposite so this reference is bogus.
 
 ## Tattoo
 
