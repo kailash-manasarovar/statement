@@ -8,8 +8,10 @@
 ![who is this](../../content/images/who%20is%20this.png)
 
 - The [email sparks off some conversations between us](../../content/documents/emails/who-is-this.pdf) and I get a chance to express my anger at Chris BJ who I believe knew exactly what was happening and how much danger I was in.
-- The email responses seem to suggest this was indeed the case too.
-- A few fake accounts give opinions on the email and what was said. One said they liked what I said at the end, that "we're all in porn".
+- Her email responses seem to suggest this was indeed the case too.
+- She only lies about the "porn" reference which I 100% remember her saying.
+- A few fake accounts give opinions on the email and what was said. 
+- One said they liked what I said at the end, that "we're all in porn".
 
 ## Another upsetting targeted woman
 
@@ -95,7 +97,7 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 | ![pic]( ../../content/images/targeted-women/26.png ){width=55%} |
 | ![pic]( ../../content/images/targeted-women/27.png ){width=55%} |
 | ![pic]( ../../content/images/targeted-women/28.png ){width=55%} 
-The above pic shows the woman from a previous pic in August with shorter hair. In this pic, she is revealing underwear which is something the innocent lady did too. I wonder if these are stages of grooming into porn. |
+The above pic shows the woman from a previous pic in August with shorter hair. In this pic, she is revealing underwear which is something the innocent lady did too. I wonder if these are stages of grooming into porn. She looks like she has been professionally made up. |
 | ![pic]( ../../content/images/targeted-women/29.png ){width=55%} 
 I think the above pic is probably a well-known Spanish actress but it came up on a fake account. |
 | ![pic]( ../../content/images/targeted-women/30.png ){width=55%}  |
@@ -117,19 +119,21 @@ The full profile mentions "intense embarrassment" and I wonder if I'm seeing the
 
 ![I just killed a man to watch him die](../../content/images/fake-accounts/i%20just%20killed%20a%20man.png)
 
-And a warning about murder maybe. I was going back to my flat at the end of September and I think they really intended to poison me to get rid of me seeing as I just wouldn't leave Denia.
+- And a warning to me about murder maybe. 
+- I was going back to my flat at the end of September and I think they really intended to poison me to get rid of me seeing as I just wouldn't leave Denia.
 
 ![Murder warning](../../content/images/fake-accounts/murder-warning.png)
 
 ### Poisoning
 
-- I wonder if this account is explaining how they managed to drug me in class at the conservatory, some sort of "cat ear medicine" meaning did they manage to put a puff of powder in my ear?
+- I wonder if this fake account contains an explanation of how they managed to drug me in class at the conservatory, some sort of "cat ear medicine" meaning did they manage to put a puff of powder in my ear?
+- Could that have happened while going into the conservatory before class and being surrounded by a crowd of people while going up the stairs?
 
 ![cat ear medicine](../../content/images/poisoning-in-the-ear.png)
 
-- I tweet about the rhabdo I got and how badly it affected me and my kidneys. The tweet is translated a lot.
+- I tweet about how people could be being spiked over long periods with drugs. The tweet is translated a lot.
 
-![translated kidney damage tweet](../../content/images/translated%20posts%20about%20spiking.png)
+![translated drug spiking tweet](../../content/images/translated%20posts%20about%20spiking.png)
 
 - I post an example of my proteinuria which has been bad since I had a chest infection at the end of August.
 
@@ -143,10 +147,15 @@ And a warning about murder maybe. I was going back to my flat at the end of Sept
 
 | Google searches from September |
 |-|
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-1.png ){width=55%} |
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-2.png ){width=55%} |
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-3.png ){width=55%} |
+| ![pic]( ../../content/images/google-searches/sept-24/google-search-1.png ){width=55%}
+Paqui Fornet Pastor still coming up. |
+| ![pic]( ../../content/images/google-searches/sept-24/google-search-2.png ){width=55%}
+Carmen still coming up. |
+| ![pic]( ../../content/images/google-searches/sept-24/google-search-3.png ){width=55%} 
+The message coming up again that I [showed Alessandra in December 2023](../2023/december.md#meeting-alessandra). |
 | ![pic]( ../../content/images/google-searches/sept-24/google-search-4.png ){width=55%} |
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-5.png ){width=55%} |
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-6.png ){width=55%} |
+| ![pic]( ../../content/images/google-searches/sept-24/google-search-5.png ){width=55%} 
+The pic of Jack Nicholson here was significant. |
+| ![pic]( ../../content/images/google-searches/sept-24/google-search-6.png ){width=55%} 
+The [stalker message from March](march.md#ana-account) still coming up and in first place. |
 

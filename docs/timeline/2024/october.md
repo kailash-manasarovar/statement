@@ -36,6 +36,8 @@
 
 ## Serious poisoning with intent to harm or kill
 
+![referencing poison](../../content/images/targeted-women/car-woman/7.png)
+
 - I travel to Fatima in Portugal over 19th - 27th October.
 - On Friday 25th October, in Fatima, I'm made redundant from my job.
 - I arrive back in Denia on 27th October.
