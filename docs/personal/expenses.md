@@ -3,6 +3,8 @@
 
 ## Hotels 
 
+It has been impossible for me to feel safe in Denia. I've nowhere else to go. London is complicated. I'm going to be homeless when I leave Denia which, for me, is very upsetting.
+
 ### March 2024
 
 - 14th to 24th  | AC Hotel Atocha by Marriot    | 1368.50
@@ -27,6 +29,11 @@
 - 19th to 20th  | NH Alcorcon                   | 127.60
 - 20th to 26th  | Mercure Fatima                | 658.34
 - 26th to 27th  | Ibis Getafe Madrid            | 107.20
+
+### November/December 2024
+
+- 9th to 6th    | Bangkok                       |
+- 9th to 30th   | Samui
 
 ## Travel
 
@@ -53,6 +60,8 @@
 
 ## Tech
 
+My laptops and phones are really unusable as they are infested with hacker software and ways for them to connect.
+
 - 19/01/2024    | Apple iPhone 14               | 859.00        | [receipt](../content/documents/evidence/iphone-bill.png)
 - 14/03/2024    | Two phones at Movixoz, Madrid | 134.00        | receipt on request
 - 13/04/2024    | Amazon analog phone           | 18.58         | receipt on request
@@ -65,3 +74,6 @@
 
 ## Lost work
 
+I've lost three jobs during this time. The first two, I believe, are due to the stress I was under while I was being drugged and stalked online and in Denia.
+
+So it's incalculable really. They were great jobs that paid extremely well.
