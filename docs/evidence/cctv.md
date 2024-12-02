@@ -10,3 +10,11 @@
 
 - There should be CCTV of the five big blokes that came in to terrorize me inside the building, and outside too.
 - The outside cams should have evidence of the blond woman who I believe is related to Domingo Cano.
+
+## Cauterets
+
+- The Bains de Rocher may have CCTV of the man that had stalked me online and then come to the baths while I was there on Sunday 25th August at around 17:30.
+
+## Lourdes
+
+- Les Halles in Lourdes may have CCTV of the same man nearly bumping into me; Monday 26th August at around 14:00.
