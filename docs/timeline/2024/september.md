@@ -81,6 +81,8 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
     - Something I realize now is that throughout the intense cyber stalking period, I would say September 2023 to May 2024, accounts about possums would regularly pop up on my Twitter feed; e.g. a possum of the day account came up regularly for ages.
     - Like other accounts I saw with great regularity, violence and porn specifically, I never followed any of these accounts and it never made any sense for me to see them.
 
+- I don't know what any of this means.
+
 ## Suspected targets
 
 | Suspected targets posted in September |

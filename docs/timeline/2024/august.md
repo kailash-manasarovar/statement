@@ -25,6 +25,7 @@
 - He tells me he's pure blood gypsy. He repeats, "I am a people".
 - I tell him I don't care, I'll learn his language.
 - He tells me his family will never accept me.
+- We talk about work and I send him job adverts for developers, work that I should be doing except the industry hates Women. I tell him he can go to the meetings and I'll help him with the coding.
 - He tells me that he has targeted 100s of women in the region and starts sending pictures of some of them.
 - I realize this is exactly what has happened to Trish and, coupled with the fact she has a daughter and granddaughter, this is why she doesn't talk.
 - I see pictures on fake accounts of young and old women. I screenshot some of them.
