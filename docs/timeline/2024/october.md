@@ -50,7 +50,8 @@
     - Something I realize now is that throughout the intense cyber stalking period, I would say September 2023 to May 2024, accounts about possums would regularly pop up on my Twitter feed; e.g. a possum of the day account came up regularly for ages.
     - Like other accounts I saw with great regularity, violence and porn specifically, I never followed any of these accounts and it never made any sense for me to see them.
 
-- I don't know what any of this means.
+- I do not know what any of this means. Is it more tricks to scare me? Why would they put so much effort into it. I don't understand. The whole thing makes no sense.
+- And how is anyone supposed to know what's going on if no one ever talks to you and if they can only lie anyway?
 
 ## Bump into Paul again
 

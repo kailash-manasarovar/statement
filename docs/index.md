@@ -9,7 +9,8 @@ hide:
     - If you are reading this without permission, or without the requisite credentials, you may be prosecuted.
     - I was going to password protect this but hackers broke my machine.
     - Luckily, a technical team in Bangkok got my access back although I lost a lot of data.
-    - I'm concerned that, by their actions, I could lose everything at any moment, so I will have to leave this published on a trust basis.
+    - I'm concerned that, by the actions of the hackers, I could lose everything at any moment, so I will have to leave this published on a trust basis.
+    - I'm also concerned about the continued threats of violence I receive and that now include family.
 
 ## Summary statement
 
