@@ -1,7 +1,7 @@
 ## Unable to access my laptop
 
 - Sunday 1st December, my laptop is inaccessible. The password does not work at all.
-- Even though I change the password regularly, it worked a few days ago.
+- I change the password regularly and it worked a few days ago.
 - I believe hackers have infiltrated my machine and forced me to have to reformat it again.
 - I was unable to recover access myself and had to get help from a [local technician here in Bangkok](../../content/images/reformat-machine.JPG) where I'm staying.
 - I lose a bunch of *extremely* interesting screenshots taken over the month of November - since I last reformated the machine - in the process. These include:
@@ -10,8 +10,9 @@
     - A picture of a woman I saw on the beach but about 20 years younger.
     - A very threatening picture of a man (rather like the [picture of the gypsy I saw in France](august.md#followed-by-the-gypsy-in-france).
     - Direct references to Domingo and Carmen Cano, poison and murder.
-- When I look at Twitter on my mobile, the first two likes are honey trap or fakes accounts that seem to be taking the piss out of the fact I cannot access my machine.
-- Taru Ann the Finnish honey trap account likes an old post of mine.
+- Fortunately, I already posted some of them, such as the [threat to my brother's life](november.md#a-threat-to-my-brothers-life).
+- When I look at Twitter on my mobile after my machine being inaccessible, the first two likes are honey trap or fakes accounts that seem to be taking the piss out of the fact I cannot access my machine.
+- Taru Ann, the Finnish honey trap account, likes an old post of mine.
 
 ![lost access Taru Ann](../../content/images/lost-access-1.JPG)
 
