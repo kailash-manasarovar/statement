@@ -1,5 +1,6 @@
 ## Sexual arousal
 
+- I head off to France.
 - As soon as I'm out of Denia, the intensity of the sexual arousal drops off and then stops.
 
 ## Conversation with the hacker
