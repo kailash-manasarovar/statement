@@ -8,6 +8,7 @@
     - This may have been the same day that, while we were at coffee, Trish was telling us all about how she had taken speed and other drugs.
     - I switched off at that point and was talking to someone else but from the periphery I remember they were talking about a Spanish brothel owner who had been in Finland and returned. It sounded like everyone knew who she was talking about.
     - I believe now she may have been referencing the trumpet teacher.
+    - If that is true, the implication is that the "sex" industry has infiltrated and controls the school board in Spain.
 
 - I go to the open day at the conservatory and meet Joan Carles Poquet and Paqui Fornet Pastor.
 - They seem angry with me. They give me dirty looks and are brusque with me.
