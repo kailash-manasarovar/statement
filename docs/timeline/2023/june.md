@@ -154,7 +154,7 @@
 
     ![YouTube results of trumpet teachers apparent name](../../content/images/vidal-s-s-h-search.png)
 
-## Sunday 16th June Alicante airport
+## Sunday 18th June Alicante airport
 
 - On my return from Dublin to Alicante, I'm walking towards the arrivals hall and I see the trumpet teacher standing there waiting.
 - I can't believe it could be him, I'm horrified actually.

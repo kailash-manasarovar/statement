@@ -49,6 +49,14 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 - I add photos that he has sent to me too, even thought I'm not sure if they are legit or not.
 - Certainly the screenshot of the concert I see in [June 2023 on Youtube](../2023/june.md#youtube) is legit and I send a copy of that in the pack.
 
+## Driving back to Denia
+
+- As I drive into Denia I notice the huge billboard for the swinger club, Hedonia.
+- I've seen it before.
+- Something on it strikes me this time, however, which is the pictures of robot masks which I have seen on Google searches, and the mention of "special events".
+- I mention it to the hacker. I wonder if "special events" includes groomed and sedated women that aren't really consenting.
+- I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport).
+
 ## Suspected targets
 
 | Suspected targets posted in September |
