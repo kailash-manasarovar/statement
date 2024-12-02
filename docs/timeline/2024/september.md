@@ -55,7 +55,7 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 - I've seen it before.
 - Something on it strikes me this time, however, which is the pictures of robot masks which I have seen on Google searches, and the mention of "special events".
 - I mention it to the hacker. I wonder if "special events" includes groomed and sedated women that aren't really consenting.
-- I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport).
+- I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport), my very own "special event".
 
 ## Suspected targets
 
