@@ -57,6 +57,26 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 - I mention it to the hacker. I wonder if "special events" includes groomed and sedated women that aren't really consenting.
 - I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport), my very own "special event".
 
+## Saturday 28th September
+
+- I go for a walk along Las Rotas.
+- I take my analog phone so I'm not tracked and followed.
+- I'm tracked and followed.
+- Just before the restaurant Sendar, Carmen Cano passes me on a bike, uturns to stare at me, grins and cycles off.
+- I have this on camera.
+
+## Sunday 29th September
+
+- I go for a walk along Las Marinas beach in the afternoon.
+- I am followed by older men the whole way along, men in their 50s and 60s.
+- On the way back home a couple starts walking in front of me.
+- The woman on the left is someone I've seen on a Twitter fake account and I had a screenshot of this prior to losing access to my machine on 1st December.
+- She has the same tattoo as the [innocent lady who gets into porn](august.md#photos-of-abused-women-and-girls).
+- The man on her right smiles and shows me his face. He looks like a possum.
+- I have this on camera.
+- I never go to the beach again.
+- Back home that night a fake account says possum man is looking for developers. The inference is I'm being offered a job in tech.
+
 ## Suspected targets
 
 | Suspected targets posted in September |

@@ -56,6 +56,7 @@
 - 19/01/2024    | Apple iPhone 14               | 859.00        | [receipt](../content/documents/evidence/iphone-bill.png)
 - 14/03/2024    | Two phones at Movixoz, Madrid | 134.00        | receipt on request
 - 13/04/2024    | Amazon analog phone           | 18.58         | receipt on request
+- 01/12/2024    | Reformat machine              | 27.65         | [receipt](../content/images/reformat-machine.JPG)
 
 ### Security tech
 
