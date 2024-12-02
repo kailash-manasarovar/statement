@@ -27,7 +27,11 @@
 | Car woman |
 |-|
 | ![pic]( ../../content/images/targeted-women/car-woman/1.png ){width=55%} |
+| ![pic]( ../../content/images/targeted-women/car-woman/1.5.png ){width=55%} |
 | ![pic]( ../../content/images/targeted-women/car-woman/2.png ){width=55%} |
+| ![pic]( ../../content/images/targeted-women/car-woman/2.2.png ){width=55%} |
+| ![pic]( ../../content/images/targeted-women/car-woman/2.5.png ){width=55%} |
+| ![pic]( ../../content/images/targeted-women/car-woman/2.9.png ){width=55%} |
 | ![pic]( ../../content/images/targeted-women/car-woman/3.png ){width=55%} |
 | ![pic]( ../../content/images/targeted-women/car-woman/4.png ){width=55%} |
 | ![pic]( ../../content/images/targeted-women/car-woman/5.png ){width=55%} |

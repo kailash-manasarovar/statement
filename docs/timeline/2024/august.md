@@ -146,6 +146,8 @@
 ![photo shoot](../../content/images/targeted-women/innocent-lady/5.png)
 ![photo shoot](../../content/images/targeted-women/innocent-lady/6.png)
 ![photo shoot](../../content/images/targeted-women/innocent-lady/7.png)
+![photo shoot](../../content/images/targeted-women/innocent-lady/7.5.png)
+![photo shoot](../../content/images/targeted-women/innocent-lady/8.png)
 
 - It was very disturbing to see this woman over and over. And this is only a small selection of the images I saw of her.
 - There were other women just like this too, going from privately sending nudes to clearly ending up in porn, likely sedated, non-consensual, and violent.
