@@ -7,6 +7,9 @@ hide:
 !!! warning
     - This is a private repo and is not available to the public.
     - If you are reading this without permission, or without the requisite credentials, you may be prosecuted.
+    - I was going to password protect this but hackers broke my machine.
+    - Luckily, a technical team in Bangkok got my access back although I lost a lot of data.
+    - I'm concerned that, by their actions, I could lose everything at any moment, so I will have to leave this published on a trust basis.
 
 ## Summary statement
 
