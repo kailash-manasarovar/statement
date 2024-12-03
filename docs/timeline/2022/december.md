@@ -28,3 +28,5 @@
 ## Dreams and premonitions
 
 - https://x.com/1FRGVN/status/1602792091238678528
+- I dreamt of the trumpet teacher and Russian dolls around this time. 
+- I also dreamt he had an evil brother who was like a devil.

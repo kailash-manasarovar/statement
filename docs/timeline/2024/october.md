@@ -191,9 +191,32 @@ Looks like a minor. |
 The profile account name references "car lady".  |
 | ![pic]( ../../content/images/targeted-women/oct-24/11.png){width=55%}
 The picture above looks like it's coming from a hacked phone.  |
+| ![pic]( ../../content/images/targeted-women/oct-24/11.5.png){width=55%}
+The street is the Calle Loreto in Denia.  |
 | ![pic]( ../../content/images/targeted-women/oct-24/12.png){width=55%}  
 Another minor child. |
 | ![pic]( ../../content/images/targeted-women/oct-24/13.png){width=55%} 
 The profile in which the child is included which references porn. |
 | ![pic]( ../../content/images/targeted-women/oct-24/14.png){width=55%}  |
 | ![pic]( ../../content/images/targeted-women/oct-24/15.png){width=55%}  |
+
+## Threats
+
+| Threats posted in October |
+|-|
+| ![pic]( ../../content/images/threats/oct-24/1.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/2.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/3.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/4.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/5.png){width=55%}
+| ![pic]( ../../content/images/threats/oct-24/6.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/7.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/8.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/9.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/10.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/11.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/12.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/13.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/14.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/15.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/16.png){width=55%} 
