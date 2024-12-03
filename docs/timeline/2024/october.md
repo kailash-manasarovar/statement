@@ -222,3 +222,26 @@ This same account had come up in March and I found the message threatening.
 | ![pic]( ../../content/images/threats/oct-24/15.png){width=55%} 
 Message from Hazel probably.
 | ![pic]( ../../content/images/threats/oct-24/16.png){width=55%} 
+
+
+## Fake accounts and tweets
+
+| Fake account activity  |
+|-|
+| ![pic]( ../../content/images/fake-accounts/messages-oct/1.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/2.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/3.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/4.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/5.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/6.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/7.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/8.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/9.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/10.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/11.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/12.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/13.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/14.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/15.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/16.png){width=55%} |
+
