@@ -1,7 +1,7 @@
 ## Going to the night shop
 
 - I go down to the Open 24 Market for some wine in the evening of 2nd November.
-- I guess the gang stalkers think I'm going to the Indian because they've put a monstrous full-size figure (Halloween monster) in the seat that Paul usually sits in whenever I "bump" into him.
+- I guess the gang stalkers (the entire population of Denia) think I'm going to the Indian because they've put a monstrous full-size figure (Halloween monster) in the seat that Paul usually sits in whenever they schedule me to "bump" into him.
 
 ## Late October/early November
 
@@ -11,7 +11,7 @@
 - It's impossible for me to go out walking without feeling like I'm going to be attacked in some way; psychological usually.
 - When I went shopping to the Carrefour the previous week, a couple parked their car close to mine and as I'm coming back to my car they start shrieking and laughing, and putting their phones up if they're recording me. I don't know who they are. Messages on Twitter fakes accounts that like my posts refer to it later on. It's been like that constantly since September 2023.
 - So I don't go out and consequently, if they are poisoning me through the air vents, I'm unable to get out to clean my lungs.
-- On Friday 1 November, as I come back from the taking the bin out, I bump into two women coming out of the apartment building, one of whom appears to be Carmen Cano.
+- On Friday 1 November, as I come back from the taking the bin out, I bump into two women coming out of the apartment building, one of whom I recognize as Carmen Cano.
 - My father is taken to hospital and I have to leave abruptly for London on 3rd November.
 - The irony is that if my father hadn't fallen, the poison may well have finished me off.
 - Two weeks later and I do feel better, my kidneys are not constantly aching and my mind is getting slowly clearer.
@@ -82,7 +82,7 @@
 - I spoke to my mother the other day and told her I was thinking about leaving the flat on 15th February 2025 and handing in notice in December.
 - I told no-one else this.
 - This morning, 21st November, I receive a WhatsApp from Beatriz, my landlady, saying I had said I was leaving the flat.
-- I did not at all say this to her at any time and have been planning on staying until 2026.
+- I did not say this to her at any time and I have been planning on staying until 2026.
 - I ask her who told her I'd said that.
 - I mention there is a problem with the water but we can discuss it later.
 - I have raised the issue with the [water pipes](../2023/september.md#the-water-pipes) twice already.
@@ -103,7 +103,7 @@
 ## Honey trap
 
 - I believe that the `@jctot19` account is fundamentally a honey-trap account.
-- Is it possible I blew his cover and that is why the original tweets stopped on 15th January.
+- Is it possible I blew his cover and that is why the original tweets stopped on 15th January?
 - Nevertheless, bizarrely, Google search results related to this account are still active. I notice the newer entries are coming from retweeted posts. I suspect the retweets are automated.
 - Carmen and Rocio Vidal still feature. Carmen is obviously Carmen Cano, Domingo's sister.
 - I post about [seduction techniques](../../evidence/manipulation.md) on Twitter: https://x.com/1FRGVN/status/1860132157890679006. Immediately, an account interacts with me that has a warning, and suggests the trumpet teacher has an alibi, and not to forget to cross examine Domingo (Camo).

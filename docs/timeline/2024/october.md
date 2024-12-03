@@ -186,70 +186,70 @@
 
 | Some suspected targets posted in October |
 |-|
-| ![pic]( ../../content/images/targeted-women/oct-24/4.png){width=55%} 
+| ![pic]( ../../content/images/targeted-women/oct-24/4.png) 
 Is this woman and the one below the same person? |
-| ![pic]( ../../content/images/targeted-women/oct-24/5.png){width=55%}  
+| ![pic]( ../../content/images/targeted-women/oct-24/5.png)  
 This looks like the woman on the beach with the tattoo.|
-| ![pic]( ../../content/images/targeted-women/oct-24/6.png){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/oct-24/7.png){width=55%} 
+| ![pic]( ../../content/images/targeted-women/oct-24/6.png)  |
+| ![pic]( ../../content/images/targeted-women/oct-24/7.png) 
 Looks like a minor. |
-| ![pic]( ../../content/images/targeted-women/oct-24/8.png){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/oct-24/9.png){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/oct-24/10.png){width=55%}
+| ![pic]( ../../content/images/targeted-women/oct-24/8.png)  |
+| ![pic]( ../../content/images/targeted-women/oct-24/9.png)  |
+| ![pic]( ../../content/images/targeted-women/oct-24/10.png)
 The profile account name references "car lady".  |
-| ![pic]( ../../content/images/targeted-women/oct-24/11.png){width=55%}
+| ![pic]( ../../content/images/targeted-women/oct-24/11.png)
 The picture above looks like it's coming from a hacked phone.  |
-| ![pic]( ../../content/images/targeted-women/oct-24/11.5.png){width=55%}
+| ![pic]( ../../content/images/targeted-women/oct-24/11.5.png)
 The street is the Calle Loreto in Denia.  |
-| ![pic]( ../../content/images/targeted-women/oct-24/12.png){width=55%}  
+| ![pic]( ../../content/images/targeted-women/oct-24/12.png)  
 Another minor child. |
-| ![pic]( ../../content/images/targeted-women/oct-24/13.png){width=55%} 
+| ![pic]( ../../content/images/targeted-women/oct-24/13.png) 
 The profile in which the child is included which references porn. |
-| ![pic]( ../../content/images/targeted-women/oct-24/14.png){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/oct-24/15.png){width=55%}  |
+| ![pic]( ../../content/images/targeted-women/oct-24/14.png)  |
+| ![pic]( ../../content/images/targeted-women/oct-24/15.png)  |
 
 ## Threats
 
 | Threats posted in October |
 |-|
-| ![pic]( ../../content/images/threats/oct-24/1.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/1.png)
 This same account had come up in March and I found the message threatening.
-| ![pic]( ../../content/images/threats/oct-24/2.png){width=55%} 
-| ![pic]( ../../content/images/threats/oct-24/3.png){width=55%} 
-| ![pic]( ../../content/images/threats/oct-24/4.png){width=55%} 
-| ![pic]( ../../content/images/threats/oct-24/5.png){width=55%}
-| ![pic]( ../../content/images/threats/oct-24/6.png){width=55%} 
-| ![pic]( ../../content/images/threats/oct-24/7.png){width=55%} 
-| ![pic]( ../../content/images/threats/oct-24/8.png){width=55%} 
-| ![pic]( ../../content/images/threats/oct-24/9.png){width=55%} 
-| ![pic]( ../../content/images/threats/oct-24/10.png){width=55%} 
-| ![pic]( ../../content/images/threats/oct-24/11.png){width=55%} 
-| ![pic]( ../../content/images/threats/oct-24/12.png){width=55%} 
-| ![pic]( ../../content/images/threats/oct-24/13.png){width=55%} 
-| ![pic]( ../../content/images/threats/oct-24/14.png){width=55%} 
-| ![pic]( ../../content/images/threats/oct-24/15.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/2.png) 
+| ![pic]( ../../content/images/threats/oct-24/3.png) 
+| ![pic]( ../../content/images/threats/oct-24/4.png) 
+| ![pic]( ../../content/images/threats/oct-24/5.png)
+| ![pic]( ../../content/images/threats/oct-24/6.png) 
+| ![pic]( ../../content/images/threats/oct-24/7.png) 
+| ![pic]( ../../content/images/threats/oct-24/8.png) 
+| ![pic]( ../../content/images/threats/oct-24/9.png) 
+| ![pic]( ../../content/images/threats/oct-24/10.png) 
+| ![pic]( ../../content/images/threats/oct-24/11.png) 
+| ![pic]( ../../content/images/threats/oct-24/12.png) 
+| ![pic]( ../../content/images/threats/oct-24/13.png) 
+| ![pic]( ../../content/images/threats/oct-24/14.png) 
+| ![pic]( ../../content/images/threats/oct-24/15.png) 
 Message from Hazel probably.
-| ![pic]( ../../content/images/threats/oct-24/16.png){width=55%} 
+| ![pic]( ../../content/images/threats/oct-24/16.png) 
 
 
 ## Fake accounts and tweets
 
 | Fake account activity  |
 |-|
-| ![pic]( ../../content/images/fake-accounts/messages-oct/1.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/2.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/3.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/4.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/5.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/6.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/7.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/8.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/9.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/10.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/11.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/12.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/13.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/14.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/15.png){width=55%} |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/16.png){width=55%} |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/1.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/2.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/3.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/4.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/5.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/6.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/7.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/8.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/9.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/10.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/11.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/12.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/13.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/14.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/15.png) |
+| ![pic]( ../../content/images/fake-accounts/messages-oct/16.png) |
 

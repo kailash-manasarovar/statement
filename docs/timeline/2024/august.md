@@ -221,29 +221,29 @@
 
 | Suspected targets posted in August |
 |-|
-| ![pic]( ../../content/images/targeted-women/1.png ){width=55%} 
+| ![pic]( ../../content/images/targeted-women/1.png ) 
 This looks like a first meeting. Has she traveled over? She appears to have her overnight back with her. There are pictures later on which show her in a video shoot of some sort with much longer hair. |
-| ![pic]( ../../content/images/targeted-women/2.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/3.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/4.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/5.png ){width=55%} 
+| ![pic]( ../../content/images/targeted-women/2.png ) |
+| ![pic]( ../../content/images/targeted-women/3.png ) |
+| ![pic]( ../../content/images/targeted-women/4.png ) |
+| ![pic]( ../../content/images/targeted-women/5.png ) 
 The obvious inference of the above two pics is clear and extremely disturbing. |
-| ![pic]( ../../content/images/targeted-women/6.png ){width=55%} 
+| ![pic]( ../../content/images/targeted-women/6.png ) 
 Referencing bunny girls maybe. Surely this is a photo shoot but the girls look extremely young. |
-| ![pic]( ../../content/images/targeted-women/7.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/8.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/9.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/10.png ){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/11.png ){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/12.png ){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/13.png ){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/14.png ){width=55%} 
+| ![pic]( ../../content/images/targeted-women/7.png ) |
+| ![pic]( ../../content/images/targeted-women/8.png ) |
+| ![pic]( ../../content/images/targeted-women/9.png ) |
+| ![pic]( ../../content/images/targeted-women/10.png )  |
+| ![pic]( ../../content/images/targeted-women/11.png )  |
+| ![pic]( ../../content/images/targeted-women/12.png )  |
+| ![pic]( ../../content/images/targeted-women/13.png )  |
+| ![pic]( ../../content/images/targeted-women/14.png ) 
 This woman does not know she is being photographed. |
-| ![pic]( ../../content/images/targeted-women/15.png ){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/16.png ){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/17.png ){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/18.png ){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/19.png ){width=55%} 
+| ![pic]( ../../content/images/targeted-women/15.png )  |
+| ![pic]( ../../content/images/targeted-women/16.png )  |
+| ![pic]( ../../content/images/targeted-women/17.png )  |
+| ![pic]( ../../content/images/targeted-women/18.png )  |
+| ![pic]( ../../content/images/targeted-women/19.png ) 
 The two pics above are the same woman I often see dressed as a sexy nurse on a bed about to engage in sexual activity. It's never clear if she's aware of being filmed. I wonder if she is the nurse that lived at my apartment for a couple of weeks. Note the vile profile message that suggests she is dead in an umarked grave.  |
-| ![pic]( ../../content/images/targeted-women/20.png ){width=55%}
+| ![pic]( ../../content/images/targeted-women/20.png )
 This pic looks exactly like a student of the conservatory studying under Domingo Lopez Cano: [Elsa](../2023/october.md#gang-stalking) who I have mentioned before. |

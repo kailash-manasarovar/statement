@@ -27,18 +27,18 @@
 
 | Car woman |
 |-|
-| ![pic]( ../../content/images/targeted-women/car-woman/1.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/car-woman/1.5.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/car-woman/2.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/car-woman/2.2.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/car-woman/2.5.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/car-woman/2.9.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/car-woman/3.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/car-woman/4.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/car-woman/5.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/car-woman/6.png ){width=55%} 
+| ![pic]( ../../content/images/targeted-women/car-woman/1.png ) |
+| ![pic]( ../../content/images/targeted-women/car-woman/1.5.png ) |
+| ![pic]( ../../content/images/targeted-women/car-woman/2.png ) |
+| ![pic]( ../../content/images/targeted-women/car-woman/2.2.png ) |
+| ![pic]( ../../content/images/targeted-women/car-woman/2.5.png ) |
+| ![pic]( ../../content/images/targeted-women/car-woman/2.9.png ) |
+| ![pic]( ../../content/images/targeted-women/car-woman/3.png ) |
+| ![pic]( ../../content/images/targeted-women/car-woman/4.png ) |
+| ![pic]( ../../content/images/targeted-women/car-woman/5.png ) |
+| ![pic]( ../../content/images/targeted-women/car-woman/6.png ) 
 I wondered if the above two pictures are the same woman as a child. |
-| ![pic]( ../../content/images/targeted-women/car-woman/7.png ){width=55%} 
+| ![pic]( ../../content/images/targeted-women/car-woman/7.png ) 
 This picture has the bananas and reminds me of the nude the woman sends while eating a banana. This fake account was sent to me at the beginning of October and references "home made poison". |
 
 ## The conversation continues
@@ -70,26 +70,26 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 
 | Suspected targets posted in September |
 |-|
-| ![pic]( ../../content/images/targeted-women/21.png ){width=55%}  
-| ![pic]( ../../content/images/targeted-women/22.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/23.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/24.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/25.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/26.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/27.png ){width=55%} |
-| ![pic]( ../../content/images/targeted-women/28.png ){width=55%} 
+| ![pic]( ../../content/images/targeted-women/21.png )  
+| ![pic]( ../../content/images/targeted-women/22.png ) |
+| ![pic]( ../../content/images/targeted-women/23.png ) |
+| ![pic]( ../../content/images/targeted-women/24.png ) |
+| ![pic]( ../../content/images/targeted-women/25.png ) |
+| ![pic]( ../../content/images/targeted-women/26.png ) |
+| ![pic]( ../../content/images/targeted-women/27.png ) |
+| ![pic]( ../../content/images/targeted-women/28.png ) 
 The above pic shows the woman from a previous pic in August with shorter hair. In this pic, she is revealing underwear which is something the innocent lady did too. I wonder if these are stages of grooming into porn. She looks like she has been professionally made up. |
-| ![pic]( ../../content/images/targeted-women/29.png ){width=55%} 
+| ![pic]( ../../content/images/targeted-women/29.png ) 
 I think the above pic is probably a well-known Spanish actress but it came up on a fake account. |
-| ![pic]( ../../content/images/targeted-women/30.png ){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/31.png ){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/32.png ){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/33.png ){width=55%}  |
-| ![pic]( ../../content/images/targeted-women/34.png ){width=55%} 
+| ![pic]( ../../content/images/targeted-women/30.png )  |
+| ![pic]( ../../content/images/targeted-women/31.png )  |
+| ![pic]( ../../content/images/targeted-women/32.png )  |
+| ![pic]( ../../content/images/targeted-women/33.png )  |
+| ![pic]( ../../content/images/targeted-women/34.png ) 
 Is the pic above hidden camera footage? Over a bathtub? |
-| ![pic]( ../../content/images/targeted-women/35.png ){width=55%} 
+| ![pic]( ../../content/images/targeted-women/35.png ) 
 This picture must be of a woman seeing evidence of herself being filmed without her knowledge.  |
-| ![pic]( ../../content/images/targeted-women/36.png ){width=55%} 
+| ![pic]( ../../content/images/targeted-women/36.png ) 
 The full profile mentions "intense embarrassment" and I wonder if I'm seeing the shocking moments of when targets "find out" prior to blackmailing or sexual exploitation. I wonder if the men delight at these moments and roar with laughter at the tricked and suffering women. |
 
 - I must mention that I also saw a woman crying in her bedroom, crouched down against the wall. I wish I'd screenshot this pic as it looked like it came from a secret camera probably around the air vents, maybe in a screw?
@@ -140,15 +140,15 @@ The full profile mentions "intense embarrassment" and I wonder if I'm seeing the
 
 | Google searches from September |
 |-|
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-1.png ){width=55%}
+| ![pic]( ../../content/images/google-searches/sept-24/google-search-1.png )
 Paqui Fornet Pastor still coming up. |
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-2.png ){width=55%}
+| ![pic]( ../../content/images/google-searches/sept-24/google-search-2.png )
 Carmen still coming up. |
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-3.png ){width=55%} 
+| ![pic]( ../../content/images/google-searches/sept-24/google-search-3.png ) 
 The message coming up again that I [showed Alessandra in December 2023](../2023/december.md#meeting-alessandra). |
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-4.png ){width=55%} |
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-5.png ){width=55%} 
+| ![pic]( ../../content/images/google-searches/sept-24/google-search-4.png ) |
+| ![pic]( ../../content/images/google-searches/sept-24/google-search-5.png ) 
 The pic of Jack Nicholson here was significant. |
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-6.png ){width=55%} 
+| ![pic]( ../../content/images/google-searches/sept-24/google-search-6.png ) 
 The [stalker message from March](march.md#ana-account) still coming up and in first place. |
 
