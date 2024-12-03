@@ -131,6 +131,12 @@
 
 - I'm trying to figure out how they're poisoning me.
 - My kitchen, where the water from the mains comes in that I use in tea, coffee, cooking, etc (I never drink it without boiling first) backs onto Marie Carmen's flat, number 16, and there is a big wardrobe in her flat against the joining wall.
+
+!!! danger "Alert, something I just remembered"
+    - I remember being in my flat, at work or relaxing, and hearing the water pipes in the kitchen squeaking as if they were moving around.
+    - I remember thinking it must have been cockroaches under the sink walking on the water pipe (which is like a hose) and I would go to check and see nothing.
+    - I wonder now was Marie Carmen, or someone else, accessing my water pipes from her flat somehow?
+
 - Is there some mechanism to access the apartment's drinking water in Marie Carmen's flat?
 - I get the paperwork for the flat on the other side, number 18. This apartment backs onto my bedroom and bathroom wall.
     - [Nota simple number 18](../../content/documents/evidence/number%2018%20beside%20me%20bedroom%20wall.pdf).
