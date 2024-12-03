@@ -134,8 +134,10 @@
 
 !!! danger "Alert, something I just remembered"
     - I remember being in my flat, at work or relaxing, and hearing the water pipes in the kitchen squeaking as if they were moving around.
+    - This was during 2022 and 2023, but not at all in 2024.
     - I remember thinking it must have been cockroaches under the sink walking on the water pipe (which is like a hose) and I would go to check and see nothing.
     - I wonder now was Marie Carmen, or someone else, accessing my water pipes from her flat somehow?
+    - Another weird sound was a short puff of air I would hear on a regular basis. I thought it was the hot water boiler. Now I'm not so sure.
 
 - Is there some mechanism to access the apartment's drinking water in Marie Carmen's flat?
 - I get the paperwork for the flat on the other side, number 18. This apartment backs onto my bedroom and bathroom wall.
