@@ -205,6 +205,7 @@ The profile in which the child is included which references porn. |
 | Threats posted in October |
 |-|
 | ![pic]( ../../content/images/threats/oct-24/1.png){width=55%} 
+This same account had come up in March and I found the message threatening.
 | ![pic]( ../../content/images/threats/oct-24/2.png){width=55%} 
 | ![pic]( ../../content/images/threats/oct-24/3.png){width=55%} 
 | ![pic]( ../../content/images/threats/oct-24/4.png){width=55%} 
@@ -219,4 +220,5 @@ The profile in which the child is included which references porn. |
 | ![pic]( ../../content/images/threats/oct-24/13.png){width=55%} 
 | ![pic]( ../../content/images/threats/oct-24/14.png){width=55%} 
 | ![pic]( ../../content/images/threats/oct-24/15.png){width=55%} 
+Message from Hazel probably.
 | ![pic]( ../../content/images/threats/oct-24/16.png){width=55%} 

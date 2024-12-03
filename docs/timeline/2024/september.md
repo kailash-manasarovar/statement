@@ -55,6 +55,7 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 - The reason I do this is because this is the only way I can communicate with anyone without the hackers and the whole criminal gang being aware of it.
 - I add photos that he has sent to me too, even thought I'm not sure if they are legit or not.
 - Certainly the screenshot of the concert I see in [June 2023 on Youtube](../2023/june.md#youtube) is legit and I send a copy of that in the pack.
+- At some point back in Denia, I see a giant message come up on my screen "thank you", and then it's gone.
 
 ## Driving back to Denia
 
