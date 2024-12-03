@@ -7,20 +7,20 @@
 ![translation](../../content/images/translated-poison.png)
 ![translation](../../content/images/poison-translation.png)
 
-- The message says: "Enjoy my homemade poison...".
+- The message says: "Enjoy my homemade poison. The poison made by my own family..".
 
 ## Activity in apartment number 18 next door
 
 - The next door apartment is barely used. I've heard people in there maybe twice for no more than a week in nearly three years.
 - There may have been people there for the summer holidays, while I was away, so I never thought it odd.
-- Whenever my neighbor, or Pedro the caretaker, referred to the people at number 18, it was always in a derogatory way, with a turned up nose, as if there was something not good about them.
+- Whenever my neighbor Marie Carmen, or Pedro the caretaker, referred to the people at number 18, it was always in a derogatory way, with a turned up nose, as if there was something not good about them.
 - However, from the moment I arrive back in Denia at the end of September 2024, there is a lot of activity in this apartment. People coming and going at all times. People talking loudly at night.
-- I saw a slim woman with shortish dark curly hair, of about 60 years old, going in and out.
+- I saw a slim woman with shortish dark curly hair, of about 60 years old, going in and out every day nearly.
 - One night, I hear a woman say in Spanish, loudly enough for me to hear, "and nothing was ever good enough for her", and I presumed she was referring to me. 
-- I guess that this is the main lie the people of Denia have been told about me and why they all support the gang stalkers and join in if they're so inclined.
+- I guess that this is the main lie the people of Denia have been told about me and why they all support the gang stalkers and join in if they're so inclined. The foreign woman who thought nothing was good enough in Denia, which is as far from the truth as possible.
 - They only needed a couple of people who I had contentious interactions with over the years to support that. 
 - One of those could possibly be my neighbor from Cami Llavador, Charo, who really didn't like me at all.
-- Another could be a woman Magpie I had been friends with years ago in 2006, someone who got extremely angry with me one afternoon after I said something rather innocuous, but she found extremely hurtful.
+- Another could be a woman Magpie I had been friends with years ago in 2006, someone who got extremely angry with me one afternoon after I said something rather innocuous yet truthful, something she found extremely hurtful.
 - I guess manipulating a whole town to hate someone can be really easy.
 
 ## Saturday 5th October
@@ -39,8 +39,8 @@
 - I go for a walk along Las Marinas beach in the afternoon.
 - I am followed by older men the whole way along, men in their 50s and 60s.
 - On the way back home a couple starts walking in front of me.
-- The woman on the left is someone I've seen on a Twitter fake account and I had a screenshot of this prior to losing access to my machine on 1st December.
-- She has the same tattoo as the [innocent lady who gets into porn](august.md#photos-of-abused-women-and-girls).
+- The woman on the left is someone I've seen on a Twitter fake account and I had a screenshot of this prior to losing access to my machine on 1st December. She has quite a masculine body.
+- She has the same tattoo as the [innocent lady who gets into porn](august.md#photos-of-abused-women-and-girls) on her arm and she takes pains to show me.
 - The man on her right smiles and shows me his face. He looks like a possum.
 - I have this on camera.
 - I never go to the beach again.
@@ -60,7 +60,7 @@
 - We chat a bit. I tell him I'm thinking about running women's rights activities in Denia.
 - There is a lot unsaid. 
 - The last time I spoke to him, in the same spot probably sometime in July, I mentioned that I was willing to pay EUR 500 for copies of the hacked sexual videos.
-- He had mentioned another guy at that time, an English man, being very popular with everyone, all the girls coming up to him and saying hi as if they knew him.
+- He had mentioned another guy at that time, an English man, being very popular with everyone, all the girls coming up to him and saying hello as if they knew him.
 - I wasn't sure how this related to what I'd just said.
 - I mentioned Halloween was coming up and did he think we should go out again. I said I would WhatsApp Alex about it.
 - I did. She didn't reply.
@@ -80,7 +80,7 @@
 
 ## Rape porn gangs
 
-- I tweet about my suspicions about what is going on: https://x.com/1FRGVN/status/1845183731658785112, and include some fake accounts to describe what I'm seeing.
+- I tweet about my suspicions about what is going on: https://x.com/1FRGVN/status/1845101018746343666, and include some fake accounts to describe what I'm seeing.
 
 ## Fatima
 
@@ -90,7 +90,7 @@
     - If I leave, then the story gets buried, the police do not investigate, and it happens again and again, and maybe someone is driven, again?, to suicide, or maybe they, again?, murder someone with poison, and children, again?, could be groomed into goodness knows what.
     - I felt a sense of obligation to the vulnerable and I've been waiting for my intuition to tell me what to do.
     - I was always working so hard, I had to think about that above and beyond everything else.
-    - It was never clear where I could go to either. I still don't know.
+    - It was never clear where I could go to either. I still don't know. My family home in London is non-optimal.
 
 - Just before I leave on Saturday 12th October, I empty the bins. 
 - There is a man in the driver's seat of a car staring at me angrily. 
@@ -120,18 +120,22 @@
 - Someone wants me to get seriously sick and/or possibly die.
 - If my dad did not have an accident on the 1st of November, and I had to rush back to London, I believe that Domingo's family may have made good on their threats and killed me via poisoning.
 - I take some samples of water and items related to the air vents to London in the hope that the police will one day find things serious enough to investigate and I will have evidence for them to analyze.
-- There is another [warning and condemnation about poisoning given via a fake account](august.md#i-realize-i-have-been-poisoned-and-drugged) on Halloween night, the 1st November.
+- There is another warning and condemnation about poisoning given via a fake account on Halloween night, the 1st November.
+
+![doctor pic](../../content/images/doctor-1.png)
+![doctor pic](../../content/images/doctor-2.png)
+
 - That day, Friday 1st November, in the afternoon, I'm certain I see Carmen Cano and the woman I have seen going in and out of number 18 leaving the building together. They smile at me as I walk by.
 
 ## Nota simple from the neighbors flats
 
 - I'm trying to figure out how they're poisoning me.
 - My kitchen, where the water from the mains comes in that I use in tea, coffee, cooking, etc (I never drink it without boiling first) backs onto Marie Carmen's flat, number 16, and there is a big wardrobe in her flat against the joining wall.
-- I get the paperwork for the flat on the other side, number 18.
+- Is there some mechanism to access the apartment's drinking water in Marie Carmen's flat?
+- I get the paperwork for the flat on the other side, number 18. This apartment backs onto my bedroom and bathroom wall.
     - [Nota simple number 18](../../content/documents/evidence/number%2018%20beside%20me%20bedroom%20wall.pdf).
 - And I get the paperwork for the flat above mine, number 23.
     - [Note simple number 23](../../content/documents/evidence/number%2023%20upstairs.pdf).
-- I'll leave the investigating to the investigators.
 
 ## Trying to find the cameras
 
@@ -150,3 +154,46 @@
 - [The email and responses](../../content/documents/emails/trata@policia.pdf).
 - I get a response from Denia police who were [decidedly unhelpful in February](february.md#policia-nacional).
 - I do not respond.
+
+## Silvia
+
+- The hackers imply that Silvia is the trumpet teacher's daughter and post pictures of a child who is supposed to be her.
+- The implication is that the trumpet teacher had a drug debt that he couldn't pay off and the pornographers had threatened to target his daughter Silvia.
+- In order to avoid this, the trumpet teacher had agreed to target and drug me at the conservatory of Denia.
+
+![pic]( ../../content/images/targeted-women/oct-24/1.png)
+
+- The profile pic came through a DM to me on Twitter with a reference to pornography with the child in the photo. I report this to Twitter.
+
+![pic]( ../../content/images/targeted-women/oct-24/2.png)  
+![pic]( ../../content/images/targeted-women/oct-24/3.png) 
+
+- I tweet about this and post on Facebook.
+- I don't know if it's true or yet another made up intrigue.
+
+## Suspected targets
+
+- There were a lot of minors posted on face accounts this month. 
+- I reported all suspected minors to Twitter.
+
+| Some suspected targets posted in October |
+|-|
+| ![pic]( ../../content/images/targeted-women/oct-24/4.png){width=55%} 
+Is this woman and the one below the same person? |
+| ![pic]( ../../content/images/targeted-women/oct-24/5.png){width=55%}  
+This looks like the woman on the beach with the tattoo.|
+| ![pic]( ../../content/images/targeted-women/oct-24/6.png){width=55%}  |
+| ![pic]( ../../content/images/targeted-women/oct-24/7.png){width=55%} 
+Looks like a minor. |
+| ![pic]( ../../content/images/targeted-women/oct-24/8.png){width=55%}  |
+| ![pic]( ../../content/images/targeted-women/oct-24/9.png){width=55%}  |
+| ![pic]( ../../content/images/targeted-women/oct-24/10.png){width=55%}
+The profile account name references "car lady".  |
+| ![pic]( ../../content/images/targeted-women/oct-24/11.png){width=55%}
+The picture above looks like it's coming from a hacked phone.  |
+| ![pic]( ../../content/images/targeted-women/oct-24/12.png){width=55%}  
+Another minor child. |
+| ![pic]( ../../content/images/targeted-women/oct-24/13.png){width=55%} 
+The profile in which the child is included which references porn. |
+| ![pic]( ../../content/images/targeted-women/oct-24/14.png){width=55%}  |
+| ![pic]( ../../content/images/targeted-women/oct-24/15.png){width=55%}  |
