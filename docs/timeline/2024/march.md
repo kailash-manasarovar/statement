@@ -10,9 +10,9 @@
 
 - I arrive at my piano lesson and, after a minute or two, all of a sudden, a woman enters the classroom.
 - She is a large dark curly-haired woman of about 50 years old and I would recognize her again.
-- Paqui explains the woman in an inspector from the Generalitat and she is here to help me.
+- Paqui explains the woman is an *inspector* from the Generalitat and she is here to help me.
 - I feel like it's probably an ambush and put my phone on record.
-- Paqui reiterates that the woman is here to help me with everything that's going on, and understand to mean how I previously told her I'm stressed because I'm being terrorized by Domingo and his mates. 
+- Paqui reiterates that the woman is here to help me with everything that's going on, and I understand that to mean because of how I previously told her I'm stressed because I'm being terrorized by Domingo and his mates. 
 - The woman talks about having to get the police involved.
 - I am delighted and express gratitude because something is finally happening after nearly two years of abuse instigated by a teacher, Domingo Cano.
 - I ask her why the Generalitat has not replied to any of my emails or letters.
@@ -61,20 +61,15 @@
 - He goes to talk to a local police officer and comes back.
 - He says I cannot raise anything with them as I don't have a partner and they only deal with male violence when it occurs within a partnership.
 
-### Human rights
+### Trying to find help
 
 - I don't know what to do, where to turn, who to ask for help.
-- The Policia Nacional are disinterested, the local police don't want to know, the Generalitat is suggesting they are going to have me arrested for being a victim of cyber stalking and gang stalking and talking about it on Twitter. It's overwhelmingly stressful.
-- I search for a human rights lawyer and send some random emails to try and get help.
-- I search for the European Court of Human Rights to try to reach out to them.
-- I'm unable to access their website, in the same way I could not access the website of the Guardia Civil and others.
-- I manage to put a [message in their contact box](../../content/documents/letters/echr-message.pdf) which I assume they will likely not receive.
-- That day, I'm followed by accounts related to human rights.
-
-![Human rights fake account](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-04%20at%2008.32.54.png)
-![Human rights fake account](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-08%20at%2008.35.00.png)
-
+- The Policia Nacional are disinterested, the local police don't want to know, the Generalitat is suggesting they are going to have *me* arrested for being a victim of cyber stalking and gang stalking and talking about it on Twitter. It's overwhelmingly stressful.
+- I have searched for a human rights lawyer and send some random emails to try and get help.
 - I was able to finally communicate with the ECHR when I was in Brussels in July: https://x.com/1FRGVN/status/1811523447123558841.
+
+!!! warning
+    - The stress levels are really intensifying during this period.
 
 ### A donation to a twitter account
 
@@ -213,6 +208,7 @@
 ### Ana dresses as if she's pregnant
 
 - The Ana girlfriend lie continues and, with the help of others, she choreographs ridiculous situations - i.e. tracks my movements using shared WhatsApp groups with the other teachers - in order that I see her going to the toilet dressed as if she is pregnant.
+- It's around this time I am feeling like I want to have a child, although this has been on and off for months. I believe this is suggestions from Twitter or online hacking, subliminal messages, etc.
 - On one of the last times I attended classes at the conservatory, probably Wednesday 13th March, Ana is playing trumpet music on her laptop and I hear it from her classroom as I walk by.
 
 ### A serious attack on my wellbeing from piano teachers at Denia conservatory
@@ -220,7 +216,7 @@
 - On Tuesday 12th March, there is a end of term piano concert at the Casa de Cultura in Dénia.
 - It's a huge set up, all meant to terrify me, probably give me a nervous breakdown, and maybe kill myself too.
 - Each piece the kids play at the concert is related to things I have said on Twitter, or in letters to the Generalitat asking for help that were ignored.
-- There are pieces with related names, including something like "Four Aunts" by a modern composer called Mercedes Zavala (this is a horribly aggressive piece that Antonio Signes Argudo plays very well), ([poison and aunts](../early-years/2014.md#back-in-denia)), and other related things.
+- There are pieces with related names, including something like "Four Aunts" by a modern composer called Mercedes Zavala (this is a horribly aggressive piece that Antonio Signes Argudo plays very well), [poison and aunts](../early-years/2014.md#back-in-denia), and other related things.
 
 ![Poisoned aunt](../../content/tweets/poisoned-aunt.png)
 
@@ -228,7 +224,8 @@
 - I recognize a couple as [two people I saw on the beach](../2023/september.md#people-on-the-beach) following me and part of the group of people making sexual noises the September previous.
 - At 7.30, the concert begins.
 - At that moment, the lights go down, and the door to the hall opens, and in walks a woman who has dressed to look exactly like Lorraine Blackbourn, my friend who committed suicide.
-- She has done a really good job of it too. I gasp.
+- She has done a really good job of it too. 
+- I gasp.
 - At precisely that moment, my security camera at home goes off and sounds an alarm on my phone. I don't have time to look.
 - The woman dressed as Lorraine (who I now believe to be Carmen Cano, Domingo's sister) and a man sit directly behind me, in seats that have been saved for them.
 - Trish Penny, Christine BJ, and another English woman have come to listen. They maybe know what's going on, it's not clear. Certainly there is a frosty feeling, and when we walk out and I insist I'm going to continue playing the piano, and play some Spanish flamenco at the next concert, Trish visibly grimaces.
@@ -364,7 +361,7 @@
 
 - We do some research into getting my devices examined for hacking so that I can amplify my report to the police.
 - We find out to have this done can cost thousands.
-- We find an expert in Alicante who is reasonable, and quote 600 euros for a laptop, phone, and two webcams.
+- We find an expert in Alicante who is reasonable, and quotes 600 euros for a laptop, phone, and two webcams.
 - My friend helps me [write a letter](../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf) to David Piñeiro, the technical expert at D.P.R., Arzobispo Loaces, 17, Local 1 - 2, 03003 Alicante.
 
 ## 16th March

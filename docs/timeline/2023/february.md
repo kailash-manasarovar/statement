@@ -7,7 +7,7 @@
 - I contact an acupuncturist in Dénia to ask for help: https://www.thaoqi.com/.
 - She is not back in town until May so she can't see me for a few months.
 - I go to see a homeopath in Dénia, Ana Villalba. I'm not sure I trust her.
-- Each time I see her she wants to hear about my abuse story, and not in a kind way. Each time I see her she mentions domestic violence.
+- Each time I see her she wants to hear about my child sexua abuse story, and not in a kind way. Each time I see her she mentions domestic violence.
 - She prescribes drops to take every day which I collect from the Romany pharmacy in Denia.
 
 ## PTSD
@@ -51,23 +51,25 @@
 - On one occasion, he mentions that he "needs to pay for his daughter's weddings".
 
 !!! tip "List of teachers and staff"
-    The current lists on the conservatory website may still reflect the state of the staff in 2023 although there will be changes.
-    - Teachers: https://portal.edu.gva.es/conservatoridenia/es/departaments-es/
-    - Staff: https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/
+    - The current lists on the conservatory website may still reflect the state of the staff in 2023 although there will be changes.
+        - Teachers: https://portal.edu.gva.es/conservatoridenia/es/departaments-es/
+        - Staff: https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/
 
 - The "Ana is his girlfriend" lie was particularly vicious and, even though I really didn't even care, it upset me as intended because it was relentless.
-- Aside from there being a host of pictures of [Ana Requena modeling](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png) and constant sexual references to her, there is also an interesting picture of the child catcher from Chitty Chitty Bang Bang.
+- During the cyber stakling to come, aside from there being a host of pictures of [Ana Requena modeling](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png) and constant sexual and other derogatory references to her, there is also an interesting picture of the child catcher from Chitty Chitty Bang Bang.
 
 ![child catcher](../../content/images/ana-children.png)
 
 - This is a picture I viewed some time in 2022, retweeted and never looked at again. However, it appeared continuously up until even August 2024 when the stalkers started going on about Ana again.
 - The inference is supposed to be that Ana has locked away the trumpet teacher's children.
+- These theme was repeated endlessly over fake account messages.
 
 ## Other times
 
 - I also find myself light-headed and high in other classes, including choir and harmony class.
 - Looking back, I can see that I was completely out of my mind during this time, and I had no idea that I was being drugged.
 - I was being medicated without my knowledge, and I believe this had been going on from at least December 2022 at the conservatory itself.
+- Obviously the drugging was most intense during the chamber music classes themselves where the trumpet teacher was present, but it was also going on outside them too.
 
 ## Unintended consequences of drugging an adult person without their knowledge
 
@@ -103,7 +105,7 @@
 - Maria and Mercedes say it meaningfully and look at me closely at piano class.
 - I hear the name everywhere, I don't know why.
 
-!!! info
+!!! info "Who is Silvia?"
     - To this day I don't know who or what Silvia refers to.
     - There have been numerous suggestions online about it such as:
         - Silvia is a trans identified young girl at the conservatory.

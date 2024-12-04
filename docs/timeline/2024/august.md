@@ -214,7 +214,7 @@
 ## Suspected targets 
 
 - In this section, I'll publish all the accounts I believe had pics of targets on them but please understand some may be incorrect due to the ephemeral nature of the interactions.
-- Also, please not that this is only a small proportion of what I saw. It has been impossible to collect everything. It would have meant taking constant screenshots.
+- Also, please note that this is only a small proportion of what I saw. It has been impossible to collect everything. It would have meant taking constant screenshots.
 - The hacker told me there were old and young, that the British expat community and other foreigners were targeted often, and he suggested one older woman may have dropped down dead from the shock of finding out, possibly in October 2022.
 - He stated he loved every one of them!
 - Some of these I believe are illicit and the subject doesn't know she is being photographed. I believe many of these to be the "when she finds out" content and I wonder if this is a porn genre.

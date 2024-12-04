@@ -2,10 +2,11 @@
 
 - When I arrived back from holiday, I noticed horrible brown streaks along the inside of the fridge and I am convinced that there are parasites in the flat and that is what has been making me so sick.
 - Furthermore, I had set a security camera up in the flat to record anything weird for the whole time I was away, which was nearly three months.
-- During that time, an enormous fly started the camera from time to time.
+- During that time, an enormous fly triggered the camera from time to time.
 - I have vomited a lot in the flat.
 - I ask Bea to replace the fridge as it's ancient and I tell her I am sick a lot.
 - She replaces the fridge immediately.
+- I continue to be sick a lot.
 
 ## Bullying starts quietly
 

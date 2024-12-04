@@ -1,6 +1,7 @@
 ## Going public on Twitter
 
 - There had been some suggestion something awful was going to happen to me on the 4th September at home in Spain, possibly that I would be arrested but I didn't know what for.
+- The way this happened was exactly the same way I knew something threatening was going to happen on the 12th June, i.e. tweet manipulation.
 - I innocently assumed it would be something to do with my angry tweets about Domingo from May that I had deleted, and related to my views on trans.
 - I realized that there had been a girl who thought she was a boy at the conservatory and her name was indeed Silvia.
     - https://x.com/1FRGVN/status/1697905359208296533
@@ -26,6 +27,10 @@
 
 - You can see the full profile in the last pic in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
 - I suspect at that point someone got concerned about the ramifications of what had been happening and were concerned about whether I was going to go to the police.
+
+## Rosa in town
+
+- Whenever I walk into Denia, I see Rosa Vidal who often nearly bumps into me but never says hello or acknowledges me.
 
 ## Problem with the car washer
 
@@ -68,7 +73,7 @@
 
 - It's hot and I go to the beach every day in the afternoon.
 - I'm followed up and down the beach every day by the same group of people that I begin to recognize each day.
-- There is a couple, a woman and man, who I see every day milling around me. The man is bald and is wearing dog tags. He has his back to me usually and has his dog tags hanging down the back of his neck on a chain.
+- There is a couple, a woman and man, who I see every day milling around me. The man is balding and is wearing dog tags. He has his back to me usually and has his dog tags hanging down the back of his neck on a chain.
 - The woman is in her early 50s. I'd recognize her face again. One day I smiled at her and she got really scared, really quickly, and I knew.
 - These two were at the [piano concert](../2024/march.md#tuesday-12th-march) at the Casa de Cultura on 12th March 2024.
 - One afternoon, I'm walking back along the beach and there's a group of young men sitting on chairs. The couple I've just mentioned is with them.
@@ -129,7 +134,7 @@
 - I meet Christine BJ for lunch and tell her everything that's been going on.
 - I tell her I think the engineer who is hacking me is called David.
 - I'm upset when she laughs at me in a jeering manner when I tell her that the teachers threw dirty water on me from an upstairs window.
-- She's really quite blaze about it all and rather dismissive. This continues to be her stance as the terror progresses.
+- She's really quite blase about it all and rather dismissive. This continues to be her stance as the terror progresses.
 - I realize there's really very few people I can trust, if anyone.
 
 ## Gypsy serenades through the tunnel
@@ -168,7 +173,7 @@
 
 ## Choir
 
-- We have a new teacher for choir, Salva Tur, an unpleasant man who thought we would like to hear his voice for 1 hour and 50 minutes of each class and then do 10 minutes of singing. 
+- We have a new teacher for choir, Salva Tur, an unpleasant man who thought we would like to hear him talking for 1 hour and 50 minutes of each class and then do 10 minutes of singing. 
 - The choir course, aside from the bullying, was excruciatingly boring.
 - When I introduce myself as he's going around the class, he grins at me in a knowing way, "oh, you're Katharine".
 - A little later he starts singing "it's too good to be true".

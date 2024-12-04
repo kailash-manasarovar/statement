@@ -1,6 +1,6 @@
 ## UK and Belgium
 
-- I do not come last in the election on the 7th July, second to last. I can't wait to run again.
+- I do not come last in the election on the 4th July, second to last. I can't wait to run again.
 - I to go to Brussels for a crypto conference with work.
 - I'm in Belgium till the 11th July.
 - When I'm in Belgium, I manage to access the ECHR website correctly and easily find a way to report what is going on for me. I receive a response in early August to my letter.
@@ -30,7 +30,7 @@
 - I tell my friend in Madrid (who doesn't really understand what I'm saying) and the expert in Alicante about this.
 - I explain it very clearly to the expert, with screenshots; See page 5 of the [email thread to the perito](../../content/documents/evidence/comms-with-perito.pdf).
 - I never hear anything from the expert in Alicante about this or anything else.
-- My friend phones him repeatedly and the receptionist fobs her off.
+- My friend phones him repeatedly for updates and the receptionist fobs her off.
 
 ## Sexual arousal
 

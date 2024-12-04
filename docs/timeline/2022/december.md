@@ -10,7 +10,7 @@
 - At some point I looked the trumpet teacher up online and found his Facebook page.
 - There was a picture of him, with two young girls. They all looked embarrassed to be there. 
 - There were some messages from people on his Facebook saying "look how much they've grown" so I assumed they were his daughters
-- I heard him tell my classmate Pablo - and when I asked him later he also told me - he was a secondary school teacher teaching music in the outskirts of Valencia, some 8kms away. I can't remember the name of the town he said, but it began with B.
+- I heard him tell my classmate Pablo - and when I asked him later he also told me - he was a secondary school teacher teaching music in the outskirts of Valencia, some 8kms away from the center of the city. I can't remember the name of the town he said, but it began with B.
 - I found no record of him teaching at any secondary school online.
 - When I looked at his Facebook page again over Christmas it appeared that he had deleted it.
 - The Facebook name was exactly the same as the name in the GV systems, Vidal Sastre Sanchez Hornero (VSSH).
@@ -29,4 +29,10 @@
 
 - https://x.com/1FRGVN/status/1602792091238678528
 - I dreamt of the trumpet teacher and Russian dolls around this time. 
-- I also dreamt he had an evil brother who was like a devil.
+- I also dreamt the trumpet teacher had an evil brother who was like a devil.
+- These things are to be included in the novel and can be ignored by investigators.
+
+## A seizure in Thailand
+
+- Something I didn't think to include previously but I probably should is the fact that while on holiday in Thailand over Christmas, I have some kind of seizure and end up at the emergency ward of Bangkok Hospital in Samui where my records remain.
+

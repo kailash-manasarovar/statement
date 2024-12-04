@@ -45,9 +45,6 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 
 - The conservation with the hacker continues while I'm in France up until the 21st September.
 - However, it is not as intimate as before, and the threats and porn are back again.
-- Here's an example of my side of the conversation.
-
-![example message](../../content/images/example%20message.png)
 
 ## Letters
 

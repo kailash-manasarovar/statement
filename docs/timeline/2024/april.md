@@ -101,7 +101,7 @@
 - The lawyer helps with translating, I believe over the phone, but he may have been present.
 - I tell them about how they have sexual films of me. I'm clearly very upset.
 - The lady in the shop is bound to remember me as she looked very alarmed when I was telling her how I had been filmed sexually without my knowledge.
-- However, I feel that I probably can't trust anyone here, so I only give them a few devices, and not the devices I know will come up positive for hacking.
+- However, I feel that I probably can't trust anyone here, so I only give them a few devices, and not the devices I am certain will come up positive for hacking.
 - I give them the following:
     - My Asus Zenbook 13 laptop: He finds nothing on here so I ask him to reformat the device for me. This device could be rechecked now as it was connected again to my new Movistar router which was accessed by hackers immediately it was installed.
     - The Yoigo router: He asks for the password to the router. I give it to him. He then says that he can't analyze routers. I kept the router so we can check again.
@@ -260,6 +260,7 @@
 ### Google searches
 
 ![](../../content/images/google-searches/april-24/Screenshot%202024-04-21%20at%2005.32.48.png)
+
 ![](../../content/images/google-searches/april-24/Screenshot%202024-04-21%20at%2005.34.20.png)
 ![](../../content/images/google-searches/april-24/Screenshot%202024-04-21%20at%2006.05.48.png)
 

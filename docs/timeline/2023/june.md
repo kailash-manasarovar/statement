@@ -25,9 +25,9 @@
 - One of Domingo's students, Adriana Mihaila Mañas, she is 14 or 15, runs over to him in an affected way. I believe he has requested her to do so.
 - Playing in this concert is an enormous joy for me and exuberant doesn't even cover how I feel about this experience.
 - I'm so happy when all the piano students are photographed at the end of the concert, I must be grinning from ear to ear. 
-- I notice that all the piano teachers, Paqui, Joan Carles, Domingo, are looking very unhappy, no smiles at all. I wonder now if it's because they're embarrassed at how happy I obviously am.
+- I notice that all the piano teachers, Paqui, Joan Carles, Domingo, are looking very unhappy, no smiles at all. I wonder now if it's because they're embarrassed at how happy I obviously am. I wonder if I appear drugged? There will be photos of this.
 - Underlying it all though is the stress from the constant gang stalking which I know is ramping up to something on Monday 12th June at the final chamber music class.
-- The recording of my performance that evening was never shared with me.
+- The recording of my performance that evening, and the photos, were never shared with me.
 
 ## Work stress
 
@@ -59,7 +59,7 @@
 
 !!! tip "Am I being primed and prepared for that day"
     - I wonder as part of the NLP suggestions was the last class with the trumpet teacher being set up as something significant.
-    - Certainly this "setting up of events I should be worried about" was an ongoing theme with the hackers, particularly in [August 2023](august.md#going-public-on-twitter) when I was so frightened I went public on Twitter.
+    - Certainly this "setting up of events I should be worried about" was an ongoing theme with the hackers, particularly in [August 2023](august.md#going-public-on-twitter) when I was so frightened I went public on Twitter, and again in [March 2024](../2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) when I became afraid for my life, and then again in [April 2024](../2024/april.md#lawyer) when I became certain I was going to be arrested.
 
 ## Sunday 11th June
 
@@ -109,6 +109,7 @@
 ## Tuesday 13th June
 
 - Maria phones me to ask me to go into the conservatory to sign something.
+- I believe now that she is checking up on me to see how upset I am and if I'll come in to sign something or not.
 - I ask Maria if everyone hates me. She says no, no one hates me. She's lying.
 - I go to my acupuncture session and I'm extremely traumatized and shocked about what bullies they all are at the conservatory.
 - The acupuncturist tells me I have diabetes, which I know fully well is a lie.
@@ -172,6 +173,14 @@
     - If I'm right in thinking airports keep CCTV for 5 years, then this will be recorded.
     - There will be footage of him arriving, with his mates maybe, waiting for me, then leaving again when I don't stop.
 
+!!! warning "Mentions of hallucinating"
+    - When I mentioned this on Twitter at some point in the future, I use the phrase "I thought I was hallucinating".
+    - An account picks up on that word and makes a big deal out of it, suggesting I might be the sort of person who hallucinates.
+    - I explain that, in English you can use exaggerated words to explain things like this and no-one will think you're mentally unwell.
+    - It reminded me of a time in a piano lesson with Maria where I had used the word "hallucinating" in a similar way.
+    - Maria had picked up on it as if I was stating I was mentally unwell and I had to explain to her the same word usage rules of English.
+    - I now believe that these instances were seen as opportune moments for suggesting I was mentally unwell or imagining things if I ever went to the police about what was going on.
+
 ## Back in Dénia
 
 - I run a block list on his followers and who he's following.
@@ -189,7 +198,9 @@
 - I'm also stubborn and deeply against injustices of all kinds. 
 - Moreover, my child sexual abuse history has made me utterly intolerant of injustices to children and I knew very well that if Domingo and his associates were able to behave in such a way to an adult student, they would most definitely be doing similar to minors.
 - I also realized that if I backed down and ran away, the evil would just grow.
-- I had no idea that running away was not actually what they really wanted, although perhaps that's what some of the teachers assumed. It's unclear how much and who knew about the mass voyeurism, drugging, and porn connection.
+- I had no idea that running away was not actually what they really wanted, although from the conservatory studies yes, and perhaps that's what some of the teachers assumed. 
+- It's unclear how much and who knew about the mass voyeurism, drugging, and porn connection.
+- There is also the important point that hackers will have known how much money I have for a long time, and it is not inconsiderable. I am a target on that basis alone.
 
 ## Rest of June
 
@@ -214,6 +225,7 @@
 - It's all set ups and contrived events designed to terrorize me.
 - It is indeed very stressful and I'm still feeling enormously sexually aroused all the time and I cannot think straight.
 - I believe the signs and symbols coupled with the promise of a relationship, the overwhelming sexual feelings, and whatever narcotics I'm ingesting create a sort of attachment to anything that has any relation to what's been going on.
+- I now believe these are well-known criminal manipulation techniques.
 
 ## Twitter
 

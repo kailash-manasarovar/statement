@@ -6,14 +6,14 @@
 
 !!! info "Looking back"
     - I believe now that the online romantic honey-trap grooming had really ramped up at this stage, and I was being fed NLP/hypnosis type suggestions on Twitter, and possibly elsewhere, which were reinforcing these drugged feelings of lightheadedness that I had in class.
-    - The trick was making me believe that I was in love and it was reciprocal.
+    - The trick was making me believe that I was in love and that it was reciprocal.
     - I believe that these NLP grooming techniques are able to suggest a reciprocity that doesn't necessarily exist.
 
 - Whenever the trumpet teacher turned up for class, not often, I felt the same lightheadedness in class.
 - Moreover, whenever I returned home from class I felt like I had run a marathon, my kidneys ached, and I had to lie down
 - I couldn't understand this at all.
 - It was never as intense as on Mondays during and after class but the lightheadedness, which I put down to being in love, continued every day of the week, even on the days when I never left the house.
-- I was always extremely anxious about going to class on a Monday and had to take my PTSD remedy beforehand to get calm enough to go.
+- I was always extremely anxious about going to class on a Monday and had to take my PTSD remedy beforehand to get calm enough to go. I believe this was because at some level I knew what was going on and it frightened me.
 
 ## Leaving class
 

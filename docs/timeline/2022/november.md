@@ -9,14 +9,14 @@
 ## Walking in Benijembla with the English ladies
 
 - I was hiking with the English ladies every Saturday.
-- One of the last Saturdays in November, 19th probably, we met at Benijembla, for a walk along the many trails around the village.
+- One of the last Saturdays in November, the 19th probably, we met at Benijembla, for a walk along the many trails around the village.
 - Christine Betterton Jones, Patricia (Trish) Penny, and some of the others were there.
-- Along the way we "bumped" into a small group of Spanish walkers, and Trish stayed back for a while to talk to them.
+- Along the way we "bumped" into a small group of Spanish walkers, and Trish stayed back for a while to talk to them. There were two men and a woman.
 - We all noticed Trish wasn't with us at some point and Christine said she was talking with the Spanish people as she knew them.
 - Trish reappeared at some point and we continued on.
 - At the end of the walk we went for coffee in Benijembla.
 - Trish and I were walking together back to the cars and she noticed the same group that she had seen up on the trail sitting at a table in a cafe.
-- She told me she wanted to speak to one of them. As we walked towards them, he got up and, as if she didn't know him at all, even though he was the part of the same group we had met earlier, she asked him about something to do with the landscape and paths on a map that she had in her hand.
+- She told me she wanted to speak to one of them. As we walked towards them, one of the men in the group got up and, as if she didn't know him at all, even though he was the part of the same group we had met earlier, she asked him about something to do with the landscape and paths on a map that she had in her hand.
 - I wasn't part of the chat and I saw a woman sitting on the seat beside where this guy had got up from. I noticed she looked really sad and worried.
 
 !!! note
@@ -30,7 +30,8 @@
 
 !!! warning
     - I now believe that the look the trumpet teacher gave me was a look of recognition. 
-    - He had seen me before; in pedophile rape porn from 1989. 
+    - He continued to give me that look in the first few classes.
+    - I believe now he had seen me before; in pedophile rape porn from 1989. 
     - Of course, they had found the clips on the dark net, maybe even reached out to the perpetrators. They had detailed information from my statement that they were eavesdropping on when I wrote it in 2015.
     - I believe this is what made them obsessed with me and plan the worst; for either monetary gain or because they're very very mentally unwell people, but it's probably mostly the money I expect.
     - I wonder how much in subscription fees a repeat rape-porn clip would earn on the porn networks?
@@ -46,7 +47,7 @@
 ## The trumpet teacher
 
 - At the end of November, 28th, all of a sudden, a trumpet teacher is found for the chamber music classes, every Monday, 8-9pm.
-- Gloria, the receptionist at the conservatory, leaves a message on my phone to say class is starting. It's a weird message where I hear the word guapo (handsome) and someone says something in the background, Paqui Fornet probably, then they both laugh weirdly.
+- Gloria, the receptionist at the conservatory, leaves a message on my phone earlier in the day to say class is starting. It's a weird message where I hear the word guapo (handsome) and someone says something in the background, Paqui Fornet probably, then they both laugh weirdly.
 - I go to class that evening and the same guy who Trish was talking to in Benijembla is there, in Jaume's room where I had been allowed to practice for my audition.
 - He says his name is Vidal.
 - In the Generalitat Valenciana systems, his name was/is Vidal Sastre Sanchez Hornero, although I'm told he now can't be found in there. I have believed for some time now that this is a false name, but there was no reason to think so then, other than when I asked him his name, and he answered Vidal, it didn't ring true somehow.
@@ -72,8 +73,9 @@
 ## His other classes
 
 - The trumpet teacher had two other classes; one was with the autistic girl, Candela Morales Lucas, 14 or so. She played the flute and a boy (could he be a trans boy?) played the guitar to accompany.
-- The other student he had was a doctor from the Dénia hospital, Joan, and his class was just before ours, 7-8pm.
-- AFAIK he had no other classes and he only came to the conservatory on Monday evenings.
+- The other student he had was an adult learner. A doctor from the Dénia hospital, Joan, and his class was just before ours, 7-8pm.
+- Incidentally, it was this guy who had been hiking with the trumpet teacher as [just mentioned](#walking-in-benijembla-with-the-english-ladies).
+- AFAIK the trumpet teacher had no other classes and he only came to the conservatory on Monday evenings.
 
 ## Attendance
 

@@ -9,7 +9,7 @@
 - I notice this and file it away, but I have a vague feeling that it seems as if they know what's going on at the conservatory somehow.
 - One of the other ladies says something like; "you wanna be careful, he might put you in the movies", but I thought it was just a joke.
 - My mind could not, at that time, possibly comprehend that a lone woman could be terrorized by everyone in a whole region of Spain, and beyond eventually, so I don't fully understand why Trish and Christine would be so unusually reticent.
-- It's so weird, I don't forget it.
+- It's so weird, however, I don't forget it.
 
 !!! info
     - This was the day that Christine made an off-the-cuff remark about Trish having done porn, which Trish brushed aside in an annoyed way, and which I thought must be a joke.
@@ -17,8 +17,9 @@
 - When we are alone a little later, I mention to Trish that the trumpet teacher is the same guy we saw in Benijembla.
 - Trish gets angry and changes the subject.
 - **I'm never invited to walk again.** In fact, I'm cut off completely from the English ladies walking group. It's shocking to me actually and I can't figure it out at all. I'm offended.
-- I still see Christine now and then for lunch, however.
+- I still see Christine now and then for lunch, however, as if everything's ok.
 - I now believe they saw no option but to exclude me, as they were surprised about how much I had noticed already, and would not want me going along each week babbling on about the terror they were well aware was planned and set up for me by local people they knew.
+- It would be embarrassing for them and probably make them feel guilty. So they stopped inviting me to come walking.
 
 ## Chamber music classes continue
 
@@ -27,6 +28,10 @@
 - I do believe he likes me though because he looks at me in a certain way, he cannot hold eye contact with me, and some of the things he says and does, outside of him behaving like an immature and sexist brute, make me quite sure he is attracted to me.
 - It also starts to feel electric in the classroom when I'm with him, like I'm vibrating.
 - I wonder if he feels it too.
+
+!!! danger "Spiking with aphrodisiacs"
+    - I had no suspicions I was being spiked with drugs at this time; something too awful to even consider being a possibility.
+    - However, everything I wrote about my feelings during that time - in letters and emails and tweets, and things I said to my therapists also - talks about how I never felt anything like this in my whole life, that my whole body was vibrating in class when I was with him, and I always mentioned the debilitating after effects each week particularly on my kidney health.
 
 ## Ganesha
 
@@ -54,6 +59,7 @@
 - The doctor, Joan, from the Dénia hospital attends his class which is scheduled before ours, 7-8pm.
 - There is no sound in the classroom, no music, no talking. Eventually the doctor comes out and they walk out together.
 - Class is normal but I do feel like there is an electricity between myself and the trumpet teacher, a chemistry.
+- My body is vibrating.
 - After class finishes, I'm surprised to find I cannot walk down the stairs as my calves are in excruciating pain at every step I take.
 - It is very strange and concerning, and when I get home I look my symptoms up on Google and discover I have the systems of rhabdomyolysis. 
 - I consider going to A&E as it is very serious but decide not to when I read that it can cure after a few days on its own.

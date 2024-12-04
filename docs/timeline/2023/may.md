@@ -53,7 +53,7 @@
 
 ### Harmony class that week
 
-- I used to walk from the conservatory to the tunnel after harmony class with Samuel Viciano Herranz on the way home. Every class that year.
+- I used to walk from the conservatory to the tunnel after harmony class with Samuel Viciano Herranz on the way home. We did that every class that school year 2022-2023.
 - We would chat about stuff. His English was good.
 - You may remember I told you he had been studying singing at [Javea conservatory](../2022/september.md#harmony) and had changed to do piano and study with Domingo and it was never really clear why. His singing voice was great and he was too old to be studying piano again.
 - He was planning on becoming an English teacher. He kept telling me about the English teacher's course he was going to do over the summer online.
@@ -65,7 +65,7 @@
     - Did Samuel require something in return for doing that.
 
 - On this particular evening, we walked home together and he constantly texted on his WhatsApp, as if he was repeating everything I said to someone. Domingo of course.
-- He also mentioned, bizarrely, a black man in a TV show and I believe he was referring to the `@AllyBrisket` account and suggesting it was Domingo.
+- He also mentioned, bizarrely and repeatedly, a black man in a TV show and I believe he was referring to the `@AllyBrisket` account and suggesting it was Domingo.
 
 ## Acupuncture
 
@@ -76,6 +76,7 @@
 - I think she steals some paper money I have put in my mobile phone.
 - When I'm on the table, I have the sensation she takes my bag out of the room and photographs my bank cards.
 - I say things that make her surprised at my intuition and awareness.
+- I tell her I believe I'm going to have a boyfriend soon.
 
 ## TEB with Robin Sullivan
 

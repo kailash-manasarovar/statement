@@ -8,7 +8,7 @@
 !!! tip "Gloria the receptionist"
     - Gloria was instrumental in tormenting me throughout and absolutely delighted at some of the nastier things I experienced.
     - She was fully involved too. She was always reading some "significant" book, or left something "significant" open, or on her desk, for me to see whenever I picked up a piano room key or brought it back after practicing.
-    - It's very curious to note she is (at the time of writing) listed as the representative of highly sensitive people on the conservatory website at the current time: *Representante del PAS*: https://portal.edu.gva.es/conservatoriDénia/es/centro/organigrama/
+    - It's very curious to note she is (at the time of writing) listed as the representative of highly sensitive people on the conservatory website: *Representante del PAS*: https://portal.edu.gva.es/conservatoriDénia/es/centro/organigrama/
 
     ![Gloria representing highly sensitive people](../../content/images/represent-pas.png)
 
@@ -21,7 +21,7 @@
 
 - I go upstairs. Maria Hontanilla is standing outside a piano room and we meet and say hello.
 - I realize now all this has been set up prior.
-- Maria and I are talking and then Domingo comes up the stairs. Two young female students are with him.
+- Maria and I are talking and then Domingo comes up the stairs. Two young female students are with him, minors of about 12 or 13 years old.
 - He goes to talk to Maria and the students are asking me questions. They are behaving oddly.
 - They are sort of nervous, giggly, and excited when I speak to them. It's weird and, now, extremely concerning.
 - Domingo leaves.
@@ -34,4 +34,4 @@
 - I'm scheduled to join for the third year professional studies in September.
 - At the audition, Domingo's female students are hanging around helping everyone. He's clearly told them to dress the same, and this includes hot pants and skimpy tops. The girls are 14 or 15 years old.
 - He tells the girls to go and talk to people, and they mill around talking to parents.
-- His control over them is a bit embarrassing and I wonder if he's doing it to "show me".
+- His control over them is a bit embarrassing and I wonder if he's doing it to "show me" how much he controls them.

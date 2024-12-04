@@ -138,6 +138,12 @@
 - I wonder now if this woman was somehow involved did she manage to drug me further because, when I got back to Madrid, I was still out of my mind.
 - Curiously, she spoke to me about similar things I had noticed on Twitter content which seemed to be trying to make me insecure about how I looked and whether I was attractive enough for men. I thought that was weird, not as weird at the blinking though.
 
+!!! info
+    - This has reminded me of a man I knew in Denia in 2014 or 15 who I had been introduced to by a French woman there who worked in an estate agency.
+    - We had been out one night and he walked a little way towards my home with me, and the whole time he kept blinking and winking at me, while grinning, in an extraordinarily weird manner.
+    - So weird, in fact, I mentioned it to the French woman in disgust.
+    - The man was Greek and may have been one of the [muscle men](#muscle-men-outside-the-tunnel) I just mentioned.
+
 ## Madrid
 
 - Back in Madrid after meditation, Matthew and I DM again.

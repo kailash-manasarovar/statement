@@ -5,7 +5,7 @@
 - I'm waiting for a key to a room with a piano.
 - All the teachers there are smirking at me.
 - I feel like I'm the better person so it doesn't bother me.
-- Nacho (Nacho Guerrero Nácher), the clarinet teacher, is there and he is talking to a mother who is with her daughter.
+- Nacho (Nacho Guerrero Nácher), the clarinet teacher, is there and he is talking to a mother who is with her daughter who must be no more than 8 years old.
 - Nacho looks at me quickly, then starts to caress the child's face, stroking it suggestively, while talking to the mother.
 - Everyone is embarrassed. I feel sick. Gloria looks away.
 - He is doing this to show me that he, a teacher at the conservatory, can do whatever he likes to the little girls.
@@ -46,7 +46,7 @@ Some of my tweets from that time.
     - This ended up being one of the more definitive ways the hackers communicated with me and shared information.
     - The hackers were able to manipulate the results of this Google search request.
     - Significant pictures, or posts, would appear in these results and then disappear. 
-    - This is where they will eventually post the picture of me in my underwear that I will take in August in France from my mobile phone.
+    - This is where they will eventually post the picture of me in my underwear that I will take in August 2023 in France from my mobile phone.
     - It's not clear how they can manipulate search in this way, although more recently the suggestion is a hidden cache on my machine.
     - I explain how this has been happening to the cyber expert the following May, who fails to produce any kind of criminal report for me.
     - I was not taking screenshots at this time because it was unclear what was going on, and at that time I had no idea I had been hacked.

@@ -50,7 +50,7 @@
 
     - Fake accounts like these may have one or two posts, messages in the profile itself, or in the top posts below the profile.
 
-- I wonder if she left hurriedly because she realized she was being drugged and related it to the apartment in some ways.
+- I wonder if she left hurriedly because she realized she was being drugged and related it to something in the apartment.
 
 ## Walking
 
