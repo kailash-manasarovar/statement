@@ -33,6 +33,11 @@
 - Trish Penny, when I asked her how she knew Vidal, said "who"? But it's clear she knows who this man is, and his brother.
 - Investigators will know immediately who he is.
 - The whole town of Denia and beyond knows who he is.
+- Here he is playing the trumpet.
+
+![The trumpet teacher](../content/images/youtube-video.png)
+
+- And here is an AI mix of him and Gloria the receptionist.
 
 ![Trumpet teacher and Gloria receptionist](../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
 
