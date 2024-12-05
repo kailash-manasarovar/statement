@@ -13,7 +13,7 @@
 
 !!! danger "Critical"
     - Just after posting this update. Commit no: [2370a8d](https://github.com/kailash-manasarovar/statement/commit/2370a8dc918f1d6d6a7b6ce3c9c3765965e03275) I feel like tweeting it so I do: https://x.com/1FRGVN/status/1864692459860893752
-    - Immediately: 
+    - Immediately, no more than a minute later: 
 
     ![are you okay](../../content/images/are-u-okay.png)
 
