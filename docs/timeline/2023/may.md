@@ -6,10 +6,16 @@
 - On the day of the concert, there are myself and Pablo, and the autistic girl and the guitarist performing, and a few parents.
 - As I'm walking around to room 5 where the concert will take place in the conservatory building, Ana Girbes asks me, "are you alright?". I have no idea why she would ask me this.
 
-!!! critical
+!!! danger "Critical"
     - Domingo will have requested her to say this to me.
     - This was part of my police statement to the police in 2014 and Domingo and his associates will suspect this will upset me.
     - There are more of these events.
+
+!!! danger "Critical"
+    - Just after posting this update. Commit no: [2370a8d](https://github.com/kailash-manasarovar/statement/commit/2370a8dc918f1d6d6a7b6ce3c9c3765965e03275) I feel like tweeting it so I do: https://x.com/1FRGVN/status/1864692459860893752
+    - Immediately: 
+
+    ![are you okay](../../content/images/are-u-okay.png)
 
 - As we are preparing, Ana Requena comes in significantly dressed up to the nines to put her instrument somewhere, same old weirdness, in a different room.
 - The trumpet teacher flirts with me outrageously in public. I flirt back. It's quite amusing.
