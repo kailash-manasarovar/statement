@@ -5,6 +5,12 @@
 - I'm clear that I do not want to do this, and it is obvious he knows why (bullying). But I have to agree because it is a requirement of the course.
 - On the day of the concert, there are myself and Pablo, and the autistic girl and the guitarist performing, and a few parents.
 - As I'm walking around to room 5 where the concert will take place in the conservatory building, Ana Girbes asks me, "are you alright?". I have no idea why she would ask me this.
+
+!!! critical
+    - Domingo will have requested her to say this to me.
+    - This was part of my police statement to the police in 2014 and Domingo and his associates will suspect this will upset me.
+    - There are more of these events.
+
 - As we are preparing, Ana Requena comes in significantly dressed up to the nines to put her instrument somewhere, same old weirdness, in a different room.
 - The trumpet teacher flirts with me outrageously in public. I flirt back. It's quite amusing.
 - I remember I have cause to say, after he asks me about my surname and just after Ana has been in, that "Katharine is sufficient," and he giggles.

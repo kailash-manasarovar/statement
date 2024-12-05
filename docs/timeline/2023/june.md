@@ -21,6 +21,12 @@
 - As we were preparing, and just as I was a few bars in, Domingo shouts "again?" in an accusatory tone very loudly.
 - I wonder what he means. Does he mean another ridiculous apparent romantic tryst for me at the conservatory? Or what.
 - As I go back to my seat after rehearsing, another one of the piano teachers asks me "are you alright"? I have no idea why she is asking me this.
+
+!!! critical
+    - Domingo will have requested her to say this to me.
+    - This was part of my police statement to the police in 2014 and Domingo and his associates will suspect this will upset me.
+    - There are more of these events.
+
 - At the time of writing I'm starting to believe "again" refers to events planned for me that will somewhat replicate the sexual abuse I suffered as a 16 year old in North London.
 - One of Domingo's students, Adriana Mihaila Mañas, she is 14 or 15, runs over to him in an affected way. I believe he has requested her to do so.
 - Playing in this concert is an enormous joy for me and exuberant doesn't even cover how I feel about this experience.
