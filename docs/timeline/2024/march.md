@@ -269,6 +269,15 @@
 - We look one up and she phones him. 
 - He is an expert in Alicante, Jorge. He sounds like he's totally stoned.
 
+### Jorge checks some stalker accounts
+
+- At some point, Jorge the expert looks at a list of stalker accounts that I send him.
+- Here is his response:
+
+![jorge checks accounts](../../content/images/jorge.JPG)
+
+- Here is the [whole WhatsApp chat with Jorge](../../content/whatsapps/WhatsApp%20Chat%20-%20Jorge%20Esclapez%20Deckcard23.zip).
+
 ### Choir class
 
 - I turn up to choir class that evening.
