@@ -127,6 +127,8 @@ nav:
     - Expenses: personal/expenses.md
     - Vocation: personal/vocational.md
     - Hacking: personal/hacking.md
+  - Conclusion:
+    - Theories: theories.md
 
 
 

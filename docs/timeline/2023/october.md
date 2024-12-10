@@ -28,6 +28,17 @@
 - In chamber music classes, the music is extremely suggestive of what's been going on and I am bravely playing my hand.
 - Piano classes are good and Paqui does a good job of pretending she's neutral.
 
+!!! important
+    - At this time, it was obvious to me that stalkers were reading my tweets around the clock.
+    - Because I was able to see how many people were translating my tweets, I knew what time they had to be up.
+    - It was very surprising to see people reading my tweets at all hours of the night.
+    - I wondered who would be up to,
+            - Read a tweet that needed to be shared,
+            - Share the tweet.
+            - See the alert about a tweet on the WhatsApp group or wherever they were sharing my information.
+            - Read it.
+    - Were they shift workers working at night, or were they truly around the world.
+
 ## Strawberries
 
 - One morning I wake up long before dawn to write a tweet thread about strawberries: https://x.com/1FRGVN/status/1713726935371551010.
