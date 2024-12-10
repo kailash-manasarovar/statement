@@ -33,10 +33,10 @@
     - Because I was able to see how many people were translating my tweets, I knew what time they had to be up.
     - It was very surprising to see people reading my tweets at all hours of the night.
     - I wondered who would be up to,
-            - Read a tweet that needed to be shared,
-            - Share the tweet.
-            - See the alert about a tweet on the WhatsApp group or wherever they were sharing my information.
-            - Read it.
+        - Read a tweet that needed to be shared,
+        - Share the tweet.
+        - See the alert about a tweet on the WhatsApp group or wherever they were sharing my information.
+        - Read it.
     - Were they shift workers working at night, or were they truly around the world.
 
 ## Strawberries
