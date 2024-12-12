@@ -32,8 +32,11 @@ It has been impossible for me to feel safe in Denia. I've nowhere else to go. Lo
 
 ### November/December 2024
 
-- 9th to 6th    | Bangkok                       |
-- 9th to 30th   | Samui
+- 9th to 6th    | Bangkok                       | 1,477.07
+
+## Rent
+
+
 
 ## Travel
 
