@@ -52,11 +52,7 @@
 - This would probably have had only little effect if it hadn't been coupled with some kind of narcotic substance.
 - I can't imagine how young girls deal with this. It must truly overwhelm them.
 - Are they doing it to minors too? Well, why wouldn't they if they could? 
-- They can do anything they want and no one will do anything about it.
-- And, furthermore, they've been utterly obsessed with my child sexual abuse experience for nearly 10 years.
-- If the wall of silence continues, they will just get worse, and they're monstrous as it is.
-- What's next? 
-- All silence is complicit.
+- The fact that been utterly obsessed with my child sexual abuse experience for nearly 10 years and have used the information I wrote in my statement to attempt to terrorize me has been enormously stressful as you can imagine.
 
 ### Negative
 

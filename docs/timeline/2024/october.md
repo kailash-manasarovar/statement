@@ -101,6 +101,15 @@
 - When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back. Nothing works.
 - When I arrive in Fatima the following evening, even though my iPhone camera is blocked, I get notifications on fake accounts of items in my hotel room. Of course, only the camera facing me is blocked, not the one looking out.
 
+## The router malfunctions while I'm in Fatima
+
+- On Tuesday 22nd October around 11am, my router at home functions.
+- My home security camera is unavailable.
+- I wonder if my home was accessed at this time before I got Movistar to organize to fix it.
+
+!!! danger
+    - Given the next week's experience with my health, and the ongoing health problems over the next months, including declining eyesight and a diagnosis of PACS, I believe it is highly likely Domingo Lopez Cano's family or associates accessed my home and were able to apply poison to food and even toiletries that I have taken with me.
+
 ## Serious poisoning with intent to harm or kill
 
 - I arrive back in Denia on 27th October.
