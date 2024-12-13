@@ -54,6 +54,12 @@
 - Are they doing it to minors too? Well, why wouldn't they if they could? 
 - The fact that been utterly obsessed with my child sexual abuse experience for nearly 10 years and have used the information I wrote in my statement to attempt to terrorize me has been enormously stressful as you can imagine.
 
+### Work
+
+- While I was being drugged it became impossible to deal with difficult situations at work.
+- The anxiety I was feeling was so intense, I couldn't cope with it and had to leave two jobs.
+- At the time, I thought it was because I had been suffering from anxiety for a long while but now I'm not so sure it was all my own original anxiety.
+
 ### Negative
 
 - My mind feels utterly polluted with porn and unhealthy sexual ideas. This is more so if I am feeling aroused. These thoughts are not my own. It's horrible.
