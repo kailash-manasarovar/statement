@@ -103,14 +103,21 @@
 
 ## The router malfunctions while I'm in Fatima
 
-- On Tuesday 22nd October around 11am, my router at home functions.
+- On Tuesday 22nd October around 11am, my router at home malfunctions.
+
+![camera offline](../../content/images/camera-offline.JPG){width=55%}
+
 - My home security camera is unavailable.
-- I wonder if my home was accessed at this time before I got Movistar to organize to fix it.
+- I wonder if my home was accessed over the few days before I returned.
 
 !!! danger
     - Given the next week's experience with my health, and the ongoing health problems over the next months, including declining eyesight and a diagnosis of PACS, I believe it is highly likely Domingo Lopez Cano's family or associates accessed my home and were able to apply poison to food and even toiletries that I have taken with me.
 
 ## Serious poisoning with intent to harm or kill
+
+!!! danger
+    - It is a crime to poison people with the intent to harm or kill.
+    - It is a crime to access someone's home without their permission in order to do so.
 
 - I arrive back in Denia on 27th October.
 - On Monday 28th October, I get an inexplicable and excruciating headache at home which lasts a couple of days. 
@@ -141,9 +148,12 @@
 - I'm trying to figure out how they're poisoning me.
 - My kitchen, where the water from the mains comes in that I use in tea, coffee, cooking, etc (I never drink it without boiling first) backs onto Marie Carmen's flat, number 16, and there is a big wardrobe in her flat against the joining wall.
 
+!!! danger
+    - There is a weird mechanism I always thought strange under the sink where a small plastic extremely dirty pipe comes out and into the water pipe.
+
 !!! danger "Alert, something I just remembered"
     - I remember being in my flat, at work or relaxing, and hearing the water pipes in the kitchen squeaking as if they were moving around.
-    - This was during 2022 and 2023, but not at all in 2024.
+    - This was during 2022 and 2023, maybe once in 2024.
     - I remember thinking it must have been cockroaches under the sink walking on the water pipe (which is like a hose) and I would go to check and see nothing.
     - I wonder now was Marie Carmen, or someone else, accessing my water pipes from her flat somehow?
     - Another weird sound was a short puff of air I would hear on a regular basis. I thought it was the hot water boiler. Now I'm not so sure.
