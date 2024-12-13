@@ -14,7 +14,7 @@
 
 ## Kidneys
 
-- Since December 2022, I have had trouble with my kidneys, particularly the right one.
+- Since December 2022, when the trumpet teacher began at the conservatory,  I have had trouble with my kidneys, particularly the right one.
 - At Christmas 2022, I had a seizure of some sort in Samui on holiday and I went to A&E at Bangkok Hospital. They told me everything was fine, it was just panic, but nevertheless I had frothy urine for a few days after that.
 - On 28th January, I got a mild form of rhabdo at chamber music class with the trumpet teacher.
 - I suffered frothy urine and other ill effects after that for some time.
