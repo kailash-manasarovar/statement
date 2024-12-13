@@ -58,7 +58,7 @@
 
 - While I was being drugged it became impossible to deal with difficult situations at work.
 - The anxiety I was feeling was so intense, I couldn't cope with it and had to leave two jobs.
-- At the time, I thought it was because I had been suffering from anxiety for a long while but now I'm not so sure it was all my own original anxiety.
+- At the time, I thought it was because I had been suffering from anxiety and depression for a long while, but now I'm not so sure it was *all* my own original anxiety because it was intense in a way it had never been before at work.
 
 ### Negative
 
