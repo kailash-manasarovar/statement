@@ -32,6 +32,20 @@
 
 ![frothy urine most days](../../content/images/frothy urine.png)
 
+!!! danger "Is this proof that stalkers from Denia did connect with child sex offenders in North London"
+    - During my election campaign, I and a bunch of volunteers would hand leaflets out in North London.
+    - On Wednesday 3rd July, I was handing out leaflets at Brent Cross tube station.
+    - Only myself and one other volunteer was with me and we were standing far apart from each other.
+    - At some point, I saw a man with a small boy of about 7.
+    - The man was black and wearing a yellow jumper. The boy was arabic looking with dark skin.
+    - The man was stumbling as he walked, he was very unbalanced, and the little boy seemed to be leading him towards my side.
+    - I saw the man was Winston May, ringleader of the pedophile grooming gang in Tottenham that had raped and abused me repeatedly in the summer of 1989.
+    - He look like he was out of his mind on drugs.
+    - I offered him a leaflet and insisted he took one when he said he already had one. He tried to get away from me as I walked towards me.
+    - Later, the volunteer who was with me told me a story that he had been sexually abused as a child when he was 7, in an African country, and that he had seen the abuser again when he was about 16 holding the hand of a young boy.
+    - Is this proof that the Denia criminal porn gangs, obsessed with whatever film they had found of me after reading my statement online which they probably took copies of, and with their UK connections, found ways to continue to terrorize me in London as I was running for election?
+    - It's difficult to understand exactly why this event happened, who would benefit, and how the Denia criminal gangs could not be involved in some way.
+
 ### Speech at LWS
 
 - At LWS in Hyde Park on 28th June, I make a speech.

@@ -1,6 +1,17 @@
-## Stress
+## Homeopath
 
-## PTSD
+- The homeopath I saw in Denia from early 2023 to March 2024 was Ana Vilalba.
+- In her notes, you will see I complained about the following symptoms over this time:
+    - Stress and anxiety, PTSD issues
+    - Kidney issues
+    - Urinary issues
+    - Vomiting and sickness 
+    - Eye problems, burning sensation, feeling like I can't see properly
+    - Tiredness
+    - Absent mindedness, can't think straight
+- Ana was over-interested in my sex abuse history and asked me about it nearly every visit.
+- She gave me drops which I took every day. Here are some of [my updates to her](../content/documents/emails/ana-homeopath-1.pdf).
+- When I left, I wrote her [this letter](../content/documents/emails/ana-homeopath-2.pdf) to which I received no reply.
 
 ## Hair narcotic test
 
