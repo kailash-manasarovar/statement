@@ -9,7 +9,7 @@
     - Eye problems, burning sensation, feeling like I can't see properly
     - Tiredness
     - Absent mindedness, can't think straight
-- Ana was over-interested in my sex abuse history and asked me about it nearly every visit.
+- Ana was over-interested in my sex abuse history and asked me about it every visit, asking questions like, "where were your parents" etc. The questions were not loving or kind.
 - She gave me drops which I took every day. Here are some of [my updates to her](../content/documents/emails/ana-homeopath-1.pdf).
 - When I left, I wrote her [this letter](../content/documents/emails/ana-homeopath-2.pdf) to which I received no reply.
 
