@@ -77,6 +77,7 @@ My laptops and phones are really unusable as they are infested with hacker softw
 
 ## Lost work
 
-I've lost three jobs during this time. The first two, I believe, are due to the stress I was under while I was being drugged and stalked online and in Denia.
-
-So it's incalculable really. They were great jobs that paid extremely well.
+- I lost three jobs during this period. The first two, I believe, I lost due to the stress I was under while I was being drugged and stalked online and in Denia.
+- The third was unfair dismissal which I'm going to court about.
+- Due to my [cognitive loss](health.md#cognitive-loss), I'm pretty sure I would struggle to maintain the same level of jobs I have been working for over the last 10 years.
+- My losses here are incalculable really. I did extremely well and made a lot of money.
