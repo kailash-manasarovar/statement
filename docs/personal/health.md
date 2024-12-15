@@ -16,6 +16,17 @@
 - Another thing she mentioned, every session, was domestic violence by giving an example of a patient who had finally found the strength to leave.
 - When I left, I wrote her [this letter](../content/documents/emails/ana-homeopath-2.pdf) to which I received no reply.
 
+## Cognitive loss
+
+- I believe I have lost my previous level of cognitive skills to a large degree and I can only assume this is due to being poisoned over time in my apartment.
+- I mentioned in my description of [March's traumatic events](../timeline/2024/march.md#changing-card-pin-numbers) that I had great difficulty performing simple tasks.
+- In fact, I have noticed my writing skills declining over the last year. It used to be extremely simple for me to prepare and execute writing tasks, now it isn't. 
+- I believe this makes it highly unlikely for me to continue working in the way I was before as things are now difficult.
+- I have also completely lost my ability to play chess well. I used to be extremely good at chess, and quick to understand the board and game status, and I always beat average players. I was always able to see the permutations of about 5 or 6 moves in advance.
+- Even when addicted to valium in 2018, I beat the men in the tech department during a chess tournament we set up at Goldman Sachs, much to their annoyance.
+- I subscribed to Chess.com in August and I couldn't quite believe how useless I am at chess. I'm below average now, if that, and I make ridiculous mistakes constantly.
+- I think this must be proof of poisoning; methanol is my guess.
+
 ## Hair narcotic test
 
 - On the 5th November 2024, at AlphaBioLabs in London, I undertook the 12 month hair analysis for narcotics.
@@ -60,24 +71,13 @@
 - Ocular pressure was not so high but I have been diagnosed, nonetheless, with Primary Angle Closure Suspect.
     - [Medical certificate for PACS](../content/documents/health/medical-certificate-PACS.JPG).
 
-## Psychological effects
+## Psycho-emotional effects
 
-- My mind has been battered with NLP/MRA seduction techniques and porn symbolism since, at least, December 2022.
+- My mind has been battered with online NLP/MRA seduction techniques and porn symbolism since, at least, December 2022.
 - This would probably have had only little effect if it hadn't been coupled with some kind of narcotic substance.
 - I can't imagine how young girls deal with this. It must truly overwhelm them.
-- Are they doing it to minors too? Well, why wouldn't they if they could? 
-- The fact that been utterly obsessed with my child sexual abuse experience for nearly 10 years and have used the information I wrote in my statement to attempt to terrorize me has been enormously stressful as you can imagine.
-
-### Cognitive loss
-
-- I believe I have lost my previous level of cognitive skills to a large degree and I can only assume this is due to being poisoned over time in my apartment.
-- I mentioned in my description of [March's traumatic events](../timeline/2024/march.md#changing-card-pin-numbers) that I had great difficulty performing simple tasks.
-- In fact, I have noticed my writing skills declining over the last year. It used to be extremely simple for me to prepare and execute writing tasks, now it isn't. 
-- I believe this makes it highly unlikely for me to continue working in the way I was before as things are now difficult.
-- I have also completely lost my ability to play chess well. I used to be extremely good at chess, and quick to understand the board and game status, and I always beat average players. I was always able to see the permutations of about 5 or 6 moves in advance.
-- Even when addicted to valium in 2018, I beat the men in the tech department during a chess tournament we set up at Goldman Sachs, much to their annoyance.
-- I subscribed to Chess.com in August and I couldn't quite believe how useless I am at chess. I'm below average now, if that, and I make ridiculous mistakes constantly.
-- I think this must be more proof of poisoning; methanol is my guess.
+- The safety of minors in the school system must take precedence. 
+- The fact that the criminal gang has been utterly obsessed with my child sexual abuse experience for nearly 10 years, and have used the information I wrote in my statement as part of their choreographed gang stalking has been enormously stressful as you can imagine.
 
 ### Work
 
