@@ -68,6 +68,17 @@
 - Are they doing it to minors too? Well, why wouldn't they if they could? 
 - The fact that been utterly obsessed with my child sexual abuse experience for nearly 10 years and have used the information I wrote in my statement to attempt to terrorize me has been enormously stressful as you can imagine.
 
+### Cognitive loss
+
+- I believe I have lost my previous level of cognitive skills to a large degree and I can only assume this is due to being poisoned over time in my apartment.
+- I mentioned in my description of [March's traumatic events](../timeline/2024/march.md#changing-card-pin-numbers) that I had great difficulty performing simple tasks.
+- In fact, I have noticed my writing skills declining over the last year. It used to be extremely simple for me to prepare and execute writing tasks, now it isn't. 
+- I believe this makes it highly unlikely for me to continue working in the way I was before as things are now difficult.
+- I have also completely lost my ability to play chess well. I used to be extremely good at chess, and quick to understand the board and game status, and I always beat average players. I was always able to see the permutations of about 5 or 6 moves in advance.
+- Even when addicted to valium in 2018, I beat the men in the tech department during a chess tournament we set up at Goldman Sachs, much to their annoyance.
+- I subscribed to Chess.com in August and I couldn't quite believe how useless I am at chess. I'm below average now, if that, and I make ridiculous mistakes constantly.
+- I think this must be more proof of poisoning; methanol is my guess.
+
 ### Work
 
 - While I was being drugged it became impossible to deal with difficult situations at work.
@@ -76,12 +87,14 @@
 
 ### Negative
 
-- My mind feels utterly polluted with porn and unhealthy sexual ideas. This is more so if I am feeling aroused. These thoughts are not my own. It's horrible.
-- I don't know when it started but I was overwhelmed with the feeling I was going to have a child with the trumpet teacher. It was intense and inexplicable. I think they were "throwing the (NLP) book at me", at this stage, and I wonder how many women have been trapped into marriage by these manipulation techniques and, therefore, a lifelong connection with someone they were probably unsure of, at best.
+- My mind feels utterly polluted with porn and unhealthy sexual ideas. This is more so if I am feeling aroused which thankfully I don't if I am not in flat in Denia. 
+- These thoughts are not my own. It's horrible.
+- I don't know when it started but I was overwhelmed with the feeling I was going to have a child with the trumpet teacher. It was intense and inexplicable. I think they were "throwing the (NLP/hypnosis/online seduction) book at me", at this stage, and I wonder how many women have been trapped into marriage by these manipulation techniques and, therefore, a lifelong connection with someone they were probably unsure of, at best.
 - There was a lot of content that I'm sure was intended to make me feel insecure about how I looked. Content about fat women when I was putting on weight. Content about acne when I had some. Even content about a tiny wart on my nose. Lots and lots of content about the urinary problems I was having that I did a lot of online searches about. It was relentless.
 
 ### Positive
 
-- Ironically, whatever NLP plus medication combo they were using on me healed me of anxiety and depression. 
+- Ironically, whatever NLP plus medication combo they were using on me that made me fall in love healed me completely of anxiety and depression. 
+- I wonder if I was on an informal drug trial.
 - I thought what I was experiencing was true love, and it probably was a little bit, but the real trigger was the drugs and sexual feelings in the context of love that I hadn't experienced for twenty years.
-- Another extremely positive effect of me going through all the NLP seduction techniques online in the context of sexual grooming of women and children is that I am able to describe it.
+- Another extremely positive effect of me enduring these NLP seduction techniques online in the context of sexual grooming of women and children is that I am now able to describe it.
