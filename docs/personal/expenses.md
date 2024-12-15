@@ -80,4 +80,5 @@ My laptops and phones are really unusable as they are infested with hacker softw
 - I lost three jobs during this period. The first two, I believe, I lost due to the stress I was under while I was being drugged and stalked online and in Denia.
 - The third was unfair dismissal which I'm going to court about.
 - Due to my [cognitive loss](health.md#cognitive-loss), I'm pretty sure I would struggle to maintain the same level of jobs I have been working for over the last 10 years.
-- My losses here are incalculable really. I did extremely well and made a lot of money.
+- My losses here are incalculable really. 
+- Prior to December 2022, I was doing extremely well at my work in a cognitive sense.
