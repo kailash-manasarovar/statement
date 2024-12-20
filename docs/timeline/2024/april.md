@@ -33,6 +33,11 @@
     - [Resignation letter in English](../../content/documents/emails/12.%20Resign%20from%20conservatory%20letter%20-%20EN.pdf).
     - [Resignation letter in Spanish](../../content/documents/emails/12.%20Resign%20from%20conservatory%20letter%20-%20ES.pdf).
     - [Email receipt of sending](../../content/documents/emails/12.%20Email%20receipt%20of%20resigation%20letter.png).
+- I tweet the letter also.
+
+![1](../../content/tweets/tweet-letter-1.JPG){width=28%}
+![2](../../content/tweets/tweet-letter-2.JPG){width=28%}
+![3](../../content/tweets/tweet-letter-3.JPG){width=28%}
 
 ## Paqui's response
 
