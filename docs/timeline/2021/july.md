@@ -1,8 +1,27 @@
+## The Portugese man next door at Lourdes
+
+- I'm living in a small studio flat at the [Zenitude Acacia](https://www.zenitude-hotel-residences.com/fr_FR/residence/lourdes/121), 1 A Chemin de Lannedarré, 65100 Lourdes in Lourdes, France.
+- I moved here at the beginning of January 2021.
+- From time to time, a man visits and he stays in the room next to me - or he has access to the room next to mine because I see him coming and going from there.
+- The reception staff know him to be Portuguese. 
+- He looks like the trumpet teacher, except I'm not to meet the trumpet teacher for 18-24 months still.
+
+!!! danger "This man is the trumpet teacher"
+    - I now believe this man to be the trumpet teacher.
+
+- This man visits from time to time, temporarily. I remember him maybe coming 3 or 4 times while I was there. He always stayed next door, or I saw him coming and going from the next door flat.
+- Whenever he stayed, he got together with some of the younger men there and they had loud drinking sessions into the night with loud music.
+- The staff at the Acacia will remember him; as will the male residents who drank with him, some of whom I will know too.
+
+!!! tip "Thoughts on this startling realization"
+    - Gypsies usually speak multiple languages, and I suspect it would not be hard to convince the French staff he was Portuguese not Spanish, except for identification documents.
+    - This man will have been tracking and stalking me for years and this is more proof of that.
+
 ## Dénia holiday
 
-- I'm living in France.
-- I go to Dénia for my summer holiday.
-- I meet Christine Betterton Jones for lunch a couple of times. She's an old friend I used to walk with, and talk about my PhD with, years before. She tells me her views on trans ideology and I quietly agree.
+- I go to Dénia for my summer holiday. I wonder now if that was "suggested" online to me.
+- The day I leave I feel extremely unwell in a weird way, not sick exactly but nothing is working properly. Thinking back, it is rather like the poisoned feeling I have been having in Denia over the last 3 years.
+- When in Denia, I meet Christine Betterton Jones for lunch a couple of times. She's an old friend I used to walk with, and talk about my PhD with, years before. She tells me her views on trans ideology and I quietly agree.
 - I share with her that I am a child sexual abuse survivor of a grooming gang. I also tell her that I probably would be trans and removing my breasts, womb, and ovaries had I been born 30 years later.
 - I tell Christine I have been suffering from a debilitating depression after reporting child sexual abuse to the Met Police in 2016.
 
