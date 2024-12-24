@@ -79,6 +79,14 @@
 - On this particular evening, we walked home together and he constantly texted on his WhatsApp, as if he was repeating everything I said to someone. Domingo of course.
 - He also mentioned, bizarrely and repeatedly, a black man in a TV show and I believe he was referring to the `@AllyBrisket` account and suggesting it was Domingo.
 
+!!! danger "Did the harmony teacher know I was being poisoned at home"
+    - One class this month, the harmony teacher was marking homework. Only myself and Sofia Matyash Piyankova were at class.
+    - The teacher, Adria Gil, was erratic as usual.
+    - As he was marking my homework, he announced very loudly, "What happened Katharine? Usually your homework is really good but this is terrible, it's like it's not you. Were you angry?" (which was a piss-take thing to say).
+    - I thought about it and I usually made tea and sat down to do my homework on a Sunday evening. I even remember this occasion as me not being able to get my thoughts straight at all and finding it very hard to concentrate and link ideas and chords.
+    - I had to work on the keyboard visually as I wasn't able to imagine in my mind the keys, which was something I had no trouble with all my life.
+    - I now wonder if Adria Gil knew I was being drugged/poisoned at home and was remarking on it.
+
 ## Acupuncture
 
 - Acupuncture sessions started this month and the therapist is surprised I'm even alive from the state of my pulses.
