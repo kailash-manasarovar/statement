@@ -42,6 +42,14 @@
     - Is this proof that the Denia criminal porn gangs, obsessed with whatever film they had found of me after reading my statement online which they probably took copies of, and with their UK connections, found ways to continue to terrorize me in London as I was running for election?
     - It's difficult to understand exactly why this event happened, who would benefit, and how the Denia criminal gangs could not be involved in some way.
 
+!!! danger "Volunteer list"
+    - I believe most of my "volunteers" were connected to Hazel and Sandra Smith in Denia in some way. Here is a list of them:
+        - Janet (calls herself So): constantly and extremely weirdly trying to distract me from campaigning.
+        - Steve: lovely man from N2 who kept saying he had been involved in vivisection activity in the 80s which I took to mean he was probably a police informant of some sort, but now I believe he was connected to the criminal gangs of Denia.
+        - Athena: Steve's "wife", a trans-sexual man. I believed this set up to be a way to discredit me in the future.
+        - Wesley Aguilar: a man who was clearly embarrassed about something as he could not look me in the eye. Had he seen the child rape porn I was in?
+        - There were a few other volunteers who I did trust that I won't mention here.
+
 ### Speech at LWS
 
 - At LWS in Hyde Park on 28th June, I make a speech.
