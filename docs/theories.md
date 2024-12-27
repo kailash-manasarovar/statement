@@ -11,7 +11,7 @@ I've always tried to find ways to explain it which put people in the best light.
 
 But everything got worse and worse, and anytime I uncovered some truth, it seemed there was more evil lurking underneath it. Nothing made sense and the elaborate and extremely resource-heavy and staged attacks still don't make sense under any scenario I can think up at this time.
 
-My current theory is as follows:
+## Current and ongoing theory
 
 1. Domingo singled me out as a good candidate for honey-trapping on the words of someone he knew, possibly Zoe Braganza Jones but more likely Hazel Smith.
 2. Domingo used Mercedes to lure me into the conservatory as a student.
@@ -40,3 +40,14 @@ My current theory is as follows:
     - I have never felt like this before and it started that week I was home from Fatima on 27th October until 3rd November when I left for London.
     - I have samples in London we can check for things like methanol or whatever they might have used to try to blind me.
 
+## Alternative theory
+
+- The alternative theory has a starting point which is the theory above but intermingled into that there is my child sexual abuse history.
+- I believe now that the trumpet teacher and Domingo Lopez Cano are a pornographer/honey trapper pair working with their families to film and rob Women and girls of their money and peaceful enjoyment of their lives.
+- They knew of my child sexual abuse history from Hazel Smith and from reading my police statement in 2016 while hacking my home network.
+- They planned to lure me back with the intention of a reenactment of the crimes committed against me in 1989. However, participants in the gang rape would be local "respectable" men; doctors, my neigbours, the dentist, etc.
+- I believe my apartment was set up to livestream my activities and an aphrodisiac of some sort was used which was overwhelming to me.
+- I now wonder if they sedated me and entered the flat without my knowledge and sexual attacked me while filming.
+- I have no recollection of that happening however; neither did I note any physical changes that may have pointed to that.
+- The trumpet teacher meeting me at the airport would have signified the beginning of a relationship but it would have included a reenactment of gang rape and/or online streaming of sexual activity at my apartment.
+- I believe men were already paying for access to this, may have paid in advance also, and may be disappointed that nothing more than masturbation happened.
