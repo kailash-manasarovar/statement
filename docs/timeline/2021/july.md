@@ -31,6 +31,14 @@
 ### Lorraine Blackbourn 
 
 - Lorraine Blackbourn killed herself the week I visited and her funeral was on or around the day I arrived. 
+
+!!! danger "Astonishing timing"
+    - I now believe Lorraine was targeted online like I was using NLP and sentiment manipulation.
+    - I believe she was driven to suicide.
+    - I don't know why she would have been targeted, but the timing of it is really interesting given my experiences. 
+    - Is there something even more sinister going on in Denia than just the regular porn gang epidemic activity?
+    - I also wonder now if she was being drugged/poisoned.
+
 - Lorraine was a British woman I used to work for in Dénia. She ran the English Studio academy there. 
 - I had previously disconnected from everyone I knew because I was so suicidal. It didn't seem fair to keep people close. I was also finding it extremely difficult to relate to people because of my experiences.
 - For these reasons, I wasn't in touch with anyone in Denia and I didn't know Lorraine had died by suicide until nearly a year later when I bumped into someone who told me. I had assumed Lorraine's death was due to illness.
