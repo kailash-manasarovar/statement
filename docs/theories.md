@@ -51,3 +51,5 @@ But everything got worse and worse, and anytime I uncovered some truth, it seeme
 - I have no recollection of that happening however; neither did I note any physical changes that may have pointed to that.
 - The trumpet teacher meeting me at the airport would have signified the beginning of a relationship but it would have included a reenactment of gang rape and/or online streaming of sexual activity at my apartment.
 - I believe men were already paying for access to this, may have paid in advance also, and may be disappointed that nothing more than masturbation happened.
+- I believe men had paid for, and received copies/viewings of, the original child rape porn from 1989 that Domingo Lopez Cano and the trumpet teacher managed to get hold of somehow.
+- Winston May popping up while I was campaigning for the general election seems to point to evidence of a connection between him and the Denia criminal gangs.
