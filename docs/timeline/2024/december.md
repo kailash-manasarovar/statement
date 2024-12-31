@@ -93,3 +93,10 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
 ![winston 3](../../content/images/fake-accounts/winston-like-3.JPG)
 
 - I continue to be completely alone against thousands.
+- It seems many many people would like me silenced.
+    - Criminal porn gangs from London.
+    - Criminal porn gangs from Denia.
+    - Any supporting the above including the Generalitat de Valencia.
+    - Ineffective police in UK and Spain.
+    - Misogynists generally.
+    - Women's groups who have been told things to discredit me that they believe.
