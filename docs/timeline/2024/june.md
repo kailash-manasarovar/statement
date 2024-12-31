@@ -44,11 +44,18 @@
 
 !!! danger "Volunteer list"
     - I believe most of my "volunteers" were connected to Hazel and Sandra Smith in Denia in some way. Here is a list of them:
-        - Janet (calls herself So): constantly and extremely weirdly trying to distract me from campaigning.
+        - Janet (calls herself So): constantly and extremely weirdly trying to distract me from campaigning. She gave me some items which may have contained poison.
         - Steve: lovely man from N2 who kept saying he had been involved in vivisection activity in the 80s which I took to mean he was probably a police informant of some sort, but now I believe he was connected to the criminal gangs of Denia.
         - Athena: Steve's "wife", a trans-sexual man. I believed this set up to be a way to discredit me in the future.
         - Wesley Aguilar: a man who was clearly embarrassed about something as he could not look me in the eye. Had he seen the child rape porn I was in?
         - There were a few other volunteers who I did trust that I won't mention here.
+
+### Gang of adult men talking about getting their dicks out at Finchley Central tube station
+
+- While handing out leaflets at Finchley Central tube one evening, a gang of about 8 men came to stand beside me. They spoke to me a little bit about their "male" group. They were weird. It was all very contrived.
+- As I walked past them they were all talking about getting their dicks out.
+- I told them no one wanted to see that.
+- I believe they could be police now, they were that sort of men.
 
 ### Speech at LWS
 

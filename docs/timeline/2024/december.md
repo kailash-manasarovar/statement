@@ -55,3 +55,39 @@
 This pic is one of a series of a woman photographed without her consent. |
 | ![pic]( ../../content/images/fake-accounts/nov-24/Screenshot%202024-12-02%20at%208.40.13 AM.png)  
 This woman in this pic could be related to the [innocent lady groomed into porn](august.md#photos-of-abused-women-and-girls). They look very alike and I have seen her in countless pics. |
+
+## Ongoing torment and terrorizing
+
+- In fact, the stalking and harassment on Twitter has not ceased.
+- There have been constant threats from Hazel Smith. It has been relentless actually. One saying "stay away bitch", I didn't manage to screenshot it but it will be available on the likes from this tweet: https://x.com/1FRGVN/status/1867853572647596391 as will many others.
+- Then, I send a message to [016-online@igualdad.gob.es](https://violenciagenero.igualdad.gob.es/en/informacionUtil/recursos/telefono016/home.htm) asking for help about what I'm going to do when I come back to Spain and explaining how much danger I'm in.
+- I get no help from them in reply, just a message to say I can contact them for advice. They give me no advice. I read the reply email and get an immediate communication.
+
+![no one cares](../../content/images/no-one-cares.JPG)
+
+- I receive messages and interactions from fake accounts with threats every day.
+
+![stay alive](../../content/images/stay-alive.JPG)
+
+- On December 30th, I receive interactions from fake accounts related to Winston May.
+- The first like is from a name "Winston" on a tweet of mine about Women's safety. So I look.
+
+![winston 1](../../content/images/fake-accounts/winston-like-1.JPG)
+
+- The first post on this fake account has his birthday, 5th December.
+
+![winston 2](../../content/images/fake-accounts/winston-like-2.JPG)
+
+- The tweet this account likes is from 5th December also.
+
+![winston 3](../../content/images/fake-accounts/winston-like-3.JPG)
+
+- One of the fake accounts from [suspected targets I posted earlier](august.md#suspected-targets) likes one of my posts again. I challenge them: https://x.com/1FRGVN/status/1872110003626414167. 
+
+![full banga challenge](../../content/images/fake-accounts/fullbanga-challenge.png)
+
+- I ask if the "pussy" they're referring to is mine from when I was a minor: https://x.com/1FRGVN/status/1872129900842545220.
+- There is no reply.
+- Another dodgy account makes reference to gang rape by black men.
+
+![porn gang or constabulary](../../content/images/fake-accounts/porn-gang-or-constabulary.png)
