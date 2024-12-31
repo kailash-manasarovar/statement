@@ -100,3 +100,26 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
     - Ineffective police in UK and Spain.
     - Misogynists generally.
     - Women's groups who have been told things to discredit me that they believe.
+
+## New Year's Eve
+
+- I decided to try to use the Linux laptop again which the [technician](../2024/april.md#hacking-expert) reset to factory settings.
+- I move my Google account over and change the password without connection to the MacOS.
+- They're in immediately by knowing a password they shouldn't know from the MacOS which is not online.
+- An account pops up on twitter which is a piss take.
+
+![psychic donut](../../content/images/fake-accounts/psychic-donut.png)
+
+- I already knew it but they have **total** access to my devices.
+- I am feeling overwhelmed with what has happened to me over the last 3 years, what I've lost, and the constant abuse I have been suffering including poisoning and drugging constantly. I tweet about it: https://x.com/1FRGVN/status/1874100344021803398.
+- Immediately a fake account called Sandra pops up.
+
+![sandra](../../content/images/fake-accounts/sandra-s.png)
+
+### Google search on `jctot19 x`
+
+- The usual pics coming up. One that I have noticed over the last months but it didn't register until today was a very scared looking man who looks exactly like Alfonso the Harmony teacher in year 4.
+- He was very alarmed when I told everyone I had to leave because my life had been threatened.
+- The hackers on Twitter referred to him as "Brat". I assume that would be Domingo as he would know him best.
+
+![harmony teacher looking scared](../../content/images/google-searches/harmony-teacher.png)
