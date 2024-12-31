@@ -58,16 +58,26 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
 
 ## Ongoing torment and terrorizing
 
-- In fact, the stalking and harassment on Twitter has not ceased.
-- There have been constant threats from Hazel Smith. It has been relentless actually. One saying "stay away bitch", I didn't manage to screenshot it but it will be available on the likes from this tweet: https://x.com/1FRGVN/status/1867853572647596391 as will many others.
-- Then, I send a message to [016-online@igualdad.gob.es](https://violenciagenero.igualdad.gob.es/en/informacionUtil/recursos/telefono016/home.htm) asking for help about what I'm going to do when I come back to Spain and explaining how much danger I'm in.
-- I get no help from them in reply, just a message to say I can contact them for advice. They give me no advice. I read the reply email and get an immediate communication.
+- The stalking and harassment on Twitter has not ceased.
+- There have been constant threats from Hazel and Sandra Smith. It has been relentless actually. One saying "stay away bitch", I didn't manage to screenshot it but it will be available on the likes from this tweet: https://x.com/1FRGVN/status/1867853572647596391 as will many others, including a bunch of messages about Toby going missing (Trish's son).
+- I send a message to [016-online@igualdad.gob.es](https://violenciagenero.igualdad.gob.es/en/informacionUtil/recursos/telefono016/home.htm) asking for help about what I'm going to do when I come back to Spain and explaining how much danger I'm in.
+- I get no help or advice from them in reply, just a message to say I can contact them for advice. They give me no advice. I read the reply email and get an immediate communication.
 
 ![no one cares](../../content/images/no-one-cares.JPG)
 
 - I receive messages and interactions from fake accounts with threats every day.
 
 ![stay alive](../../content/images/stay-alive.JPG)
+
+- One of the fake accounts from [suspected targets I posted earlier](august.md#suspected-targets) likes one of my posts again. I challenge them: https://x.com/1FRGVN/status/1872110003626414167. 
+
+![full banga challenge](../../content/images/fake-accounts/fullbanga-challenge.png)
+
+- I ask if the "pussy" they're referring to is mine from when I was a minor: https://x.com/1FRGVN/status/1872129900842545220.
+- There is no reply.
+- Another dodgy account makes reference to gang rape by black men.
+
+![porn gang or constabulary](../../content/images/fake-accounts/porn-gang-or-constabulary.png)
 
 - On December 30th, I receive interactions from fake accounts related to Winston May.
 - The first like is from a name "Winston" on a tweet of mine about Women's safety. So I look.
@@ -82,12 +92,4 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
 
 ![winston 3](../../content/images/fake-accounts/winston-like-3.JPG)
 
-- One of the fake accounts from [suspected targets I posted earlier](august.md#suspected-targets) likes one of my posts again. I challenge them: https://x.com/1FRGVN/status/1872110003626414167. 
-
-![full banga challenge](../../content/images/fake-accounts/fullbanga-challenge.png)
-
-- I ask if the "pussy" they're referring to is mine from when I was a minor: https://x.com/1FRGVN/status/1872129900842545220.
-- There is no reply.
-- Another dodgy account makes reference to gang rape by black men.
-
-![porn gang or constabulary](../../content/images/fake-accounts/porn-gang-or-constabulary.png)
+- I continue to be completely alone against thousands.
