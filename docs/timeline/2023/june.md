@@ -228,16 +228,17 @@
 ## The beach
 
 - I go to the beach every afternoon.
-- I feel like I'm being followed.
-- I walk up to the area of the beach that has a restaurant and a bar.
+- I feel like I'm being followed every time.
+- One afternoon, I walk up to the area of the beach that has a restaurant and a bar.
 - The bar plays Back to Black while two people who look like the trumpet teacher and Ana walk by. It's not them because I saw these two previously sitting on a white scarf on my walk to the end of the beach. The man is blatantly too young also.
 - The man opens the scarf to the air above his head, in a similar way that I did [in April](april.md#followed-on-the-beach) another time I was followed on my beach walk.
 - This sort of thing goes on continuously, any time I leave the house.
-- I can't believe people have nothing else to do with their lives.
+- I can't believe people have nothing better to do with their lives.
 - It's all set ups and contrived events designed to terrorize me.
+- Another time, I'm coming back home from the beach and walking towards the road. The trumpet teacher and the doctor Joan are in the grey Peugeot I mention [above](#sunday-11th-june). Joan looks at me and the trumpet teacher looks like he's saying "don't look, don't look", and he looks away.
 - It is indeed very stressful and I'm still feeling enormously sexually aroused all the time and I cannot think straight.
-- I believe the signs and symbols coupled with the promise of a relationship, the overwhelming sexual feelings, and whatever narcotics I'm ingesting create a sort of attachment to anything that has any relation to what's been going on.
-- I now believe these are well-known criminal manipulation techniques.
+- I believe the signs and symbols coupled with the promise of a relationship, the overwhelming sexual feelings, and whatever narcotics I'm ingesting create a sort of mental attachment to anything that has any relation to what's been going on.
+- I now know these are well-known criminal manipulation techniques usually employed by honey-trappers and pornographers/pimps on vulnerable women.
 
 ## Twitter
 

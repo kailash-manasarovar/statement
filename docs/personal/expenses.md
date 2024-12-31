@@ -1,9 +1,21 @@
+# Expenses
+
 !!! important
     - Prices in euros.
 
 ## Hotels 
 
-It has been impossible for me to feel safe in Denia. I've nowhere else to go. London is complicated. I'm going to be homeless when I leave Denia which, for me, is very upsetting.
+It is impossible for me to feel safe in Denia. I believe my life is in danger in Denia and probably throughout Spain and even beyond.
+
+I've nowhere else to go however. London is complicated. I'm going to be homeless when I leave Denia which, for me, is very upsetting and worrying.
+
+I will have to go back to London at least temporarily and this has been an extremely difficult place for me as my parents and brother have consistently downplayed anything that's happened to me over the years as unimportant, or my fault somehow.
+
+The things they say to me concerning me being the victim of child sexual abuse and rape have really been abhorrent at times.
+
+Living with my family is the main reason I became suicidally depressed after reporting child sexual abuse and rape to the Metropolitan police in 2016.
+
+So there has been no save place to go and I have had to stay in hotels a lot instead of my home.
 
 ### March 2024
 
@@ -82,3 +94,12 @@ My laptops and phones are really unusable as they are infested with hacker softw
 - Due to my [cognitive loss](health.md#cognitive-loss), I'm pretty sure I would struggle to maintain the same level of jobs I have been working for over the last 10 years.
 - My losses here are incalculable really. 
 - Prior to December 2022, I was doing extremely well at my work in a cognitive sense.
+
+## Estimated money earned by pornographers
+
+### 1989 porn
+
+- Incalculable. Certainly the porn that Winston May and his associates made of me in 1989 will have made hundreds of thousands of pounds over the last 35 years. Furthermore, when Domingo Lopez Cano, Hazel Smith, and their associates found this porn, they would likely have been reselling it, and certainly in lieu of the "reenactment" they had planned, as a taster.
+- I believe I was live-streamed at my apartment masturbating, again in lieu of a "reenactment" I suspect, but also because I managed to foil their evil plot and they had to sell something.
+- I believe the money they made on my is in the hundreds of thousands.
+- In the way that these people are really keen for you to know what they're doing at your expense cos it must give them a little kick; with a little hint there, a word here, little visual or statement, etc., the cars that drove past my house, beeping and taunting me, were expensive, fast, and new. 
