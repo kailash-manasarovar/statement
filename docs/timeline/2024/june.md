@@ -33,7 +33,7 @@
     - On Wednesday 3rd July, I was handing out leaflets at Brent Cross tube station.
     - Only myself and one other volunteer was with me and we were standing far apart from each other.
     - At some point, I saw a man with a small boy of about 7.
-    - The man was black and wearing a yellow jumper. The boy was arabic looking with dark skin.
+    - The man was black and wearing a yellow jumper and cream chimney-sweep hat. The boy was arabic looking with dark skin.
     - The man was stumbling as he walked, he was very unbalanced, and the little boy seemed to be leading him towards me.
     - I saw the man was Winston May, ringleader of the pedophile grooming gang in Tottenham that had raped and abused me repeatedly, and put me in porn, in the summer of 1989.
     - He look like he was out of his mind on drugs.
