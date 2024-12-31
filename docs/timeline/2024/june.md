@@ -15,7 +15,7 @@
     - With regards to my situation in Denia, running for election was a game changer.
     - For anyone interested, here is my [election leaflet](../../content/documents/Katharine%20leaflet.pdf) which went out to 80,000 London constituents, twice, via Royal Mail.
 
-### Continued stalking and health matters
+## Continued stalking and health matters
 
 - I'm stalked online constantly by hackers while I'm in the UK, and a conversation continues with them on DMs with fake accounts during this time. Copies available on request.
 - I tell my new friends about the gypsy trumpeter I'm in love with.
@@ -26,7 +26,17 @@
 - In Denia, I have frothy urine nearly every day. After about a week in Lourdes, this ceased.
 - It starts up again when I go back to Denia in July.
 
-### Election campaign
+## Election campaign
+
+### Gang of adult men talking about getting their dicks out at Finchley Central tube station
+
+- While handing out leaflets at Finchley Central tube one evening, a gang of about 8 men came to stand beside me. They spoke to me a little bit about their "male" group. They were weird. It was all very contrived.
+- As I walked past them they were all talking about getting their dicks out.
+- I told them no one wanted to see that.
+- I believe they could be police now, they were that sort of men. 
+- In retrospect I wonder if they were trying to scare me.
+
+### Winston May
 
 !!! danger "Is this proof that stalkers from Denia did connect with child sex offenders in North London"
     - During my election campaign, I and a bunch of volunteers would hand leaflets out in North London.
@@ -42,6 +52,8 @@
     - Is this proof that the Denia criminal porn gangs, obsessed with whatever film they had found of me after reading my statement online which they probably took copies of, and with their UK connections, found ways to continue to terrorize me in London as I was running for election?
     - It's difficult to understand exactly why this event happened, who would benefit, and how the Denia criminal gangs could not be involved in some way.
 
+### Volunteers not what they seem
+
 !!! danger "Volunteer list"
     - I believe most of my "volunteers" were connected to Hazel and Sandra Smith in Denia in some way. Here is a list of them:
         - Janet (calls herself So): constantly and extremely weirdly trying to distract me from campaigning. She gave me some items which may have contained poison.
@@ -49,13 +61,6 @@
         - Athena: Steve's "wife", a trans-sexual man. I believed this set up to be a way to discredit me in the future.
         - Wesley Aguilar: a man who was clearly embarrassed about something as he could not look me in the eye. Had he seen the child rape porn I was in?
         - There were a few other volunteers who I did trust that I won't mention here.
-
-### Gang of adult men talking about getting their dicks out at Finchley Central tube station
-
-- While handing out leaflets at Finchley Central tube one evening, a gang of about 8 men came to stand beside me. They spoke to me a little bit about their "male" group. They were weird. It was all very contrived.
-- As I walked past them they were all talking about getting their dicks out.
-- I told them no one wanted to see that.
-- I believe they could be police now, they were that sort of men.
 
 ### Speech at LWS
 
