@@ -107,6 +107,7 @@
 - It was extremely rude and a very unusual thing to say and I had no idea why he would say such a thing.
 - I now believe he knew I was being poisoned and drugged, and was telling me so.
 - It was clear he despised me for some reason.
+- I saw him around the urbanization from time to time. I now wonder if other flats are being used for similar purposes as mine is.
 
 ## Stones thrown at me
 
