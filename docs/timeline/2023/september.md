@@ -30,7 +30,10 @@
 
 ## Rosa in town
 
-- Whenever I walk into Denia, I see Rosa Vidal who often nearly bumps into me but never says hello or acknowledges me.
+- Whenever I walk into Denia, I see Rosa Vidal, Director of the Conservatory of Denia, who often nearly bumps into me but never says hello or acknowledges me.
+- She's doing it on purpose.
+- On one occasion she is sitting outside a shop I come out from next to a man resembling the trumpet teacher.
+- It frightens me.
 
 ## Problem with the car washer
 
@@ -88,6 +91,22 @@
 - Smurf cat's hat is like mine that I wear to the beach.
 
 ![Smurf cat's hat](../../content/images/smurf-cat-hat.png)
+
+## A handyman comes to fix a minor thing in the bathroom
+
+- At some point this month, the air extractor thing pops out of the ceiling in the bathroom.
+- I believe now they have come in and done this so I will call Beatrice for a handyman to fix it, which I do.
+- Pablo Carrasco, a plumber, +34-607-42-92-67, comes to fix it. It is an extremely minor thing that should take 5 minutes.
+- He goes into the bathroom and closes the door. He is in there for 30 minutes or so with the door closed.
+- I now wonder if he was sent to do something else entirely.
+- At the same time, I have to change my driving license to a Spanish one and there is a huge confusion with Northern Ireland and I'm very stressed because no-one is able to help me.
+- However, I'm excessively stressed, likely because of what is going on in Denia, and also because of being drugged somehow, I believe.
+- I'm on the phone to someone who is behaving in a particularly unhelpful way at the moment Pablo comes out of the bathroom.
+- I'm clearly very stressed and upset.
+- He barks at me, "You're sick!".
+- It was extremely rude and a very unusual thing to say and I had no idea why he would say such a thing.
+- I now believe he knew I was being poisoned and drugged, and was telling me so.
+- It was clear he despised me for some reason.
 
 ## Stones thrown at me
 

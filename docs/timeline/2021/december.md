@@ -18,7 +18,8 @@
 - She only gave me one key, of a set of four, and there was a bit of a drama about where the other keys were which seemed contrived.
 - I didn't trust Beatriz Garcia Morales and, from her weird behavior and manner, I felt it likely she would enter my apartment without my knowledge.
 - A few days later I suspected someone had been in without my knowledge.
-- I got the locks changed soon after.
+- I got the locks changed soon after by Carl Barclay, +34-659-85-36-45.
+- Nevertheless, I believe people have been entering my house whenever I'm not there on a regular basis the whole time I lived there. It's not clear how they got entry after I changed the locks. 
 
 !!! info "Who has been receiving my rent payments?"
     - Beatriz has changed the account I pay rent to twice now.
