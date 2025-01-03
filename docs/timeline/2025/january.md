@@ -7,3 +7,6 @@
 - She responds with an [email](../../content/documents/emails/the%20witch%20must%20drown-3-6.pdf) saying I'm hysterical.
 - So I'll just accept that I'm gonna be murdered or disappeared next week or sometime in the future.
 
+## Twitter translators
+
+- Currently all my tweets are getting few views as usual and a lot of translations.

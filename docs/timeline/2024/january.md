@@ -53,7 +53,9 @@
 - There was a to-and-fro, as before, all positive.
 - After a day of this, however, the content starts to be interspersed with references to porn, specifically violent and humiliating porn.
 - I posted one tweet with a sexual connotation, and he immediately reaches out to a random woman he hasn't seen in years.
-- It's very weird. I realize now it was all completely planned and set up.
+- The tweet I posted was "will you look me dead in the eyes".
+- This is a direct reference to Winston May as Winston May (who I detested, by the way, but totally controlled me) always looked me dead in the eyes during sex.
+- This may well be in my statement to the police.
 - I immediately stop communicating with him and delete the twitter account I had created.
 
 ### Novel entries
