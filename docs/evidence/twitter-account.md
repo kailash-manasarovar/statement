@@ -85,7 +85,7 @@
 
 ## Can't access spaces on desktop
 
-- For a long time, I have not been able to access Twitter spaces on my desk top.
+- For a long time, I have not been able to access Twitter spaces on my desktop.
 - I am able to access spaces on my mobile.
 - This might be ok, except on desktop I'm registered as already logged into a space which is interesting.
 
