@@ -96,7 +96,7 @@
 
 - At some point this month, the air extractor thing pops out of the ceiling in the bathroom.
 - I believe now they have come in and done this so I will call Beatrice for a handyman to fix it, which I do.
-- Pablo Carrasco, a plumber, +34-607-42-92-67, comes to fix it. It is an extremely minor thing that should take 5 minutes.
+- A man called Fabio comes to fix it, a handyman +34-727-70-53-89. It is an extremely minor thing that should take 5 minutes.
 - He goes into the bathroom and closes the door. He is in there for 30 minutes or so with the door closed.
 - I now wonder if he was sent to do something else entirely.
 - At the same time, I have to change my driving license to a Spanish one and there is a huge confusion with Northern Ireland and I'm very stressed because no-one is able to help me.
