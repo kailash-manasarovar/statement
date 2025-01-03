@@ -32,3 +32,9 @@
 
 !!! info
     - More recently, in October 2024, I bumped into him again in the building's gardens and he was unable to look me in the eye. He seemed embarrassed.
+
+## Online activity
+
+- Over this period I'm occasionally shown violent rape porn on Twitter which shocks me to the core.
+- It's not something I would ever look at and some of it looks very very real.
+- I now believe this sort of thing was posted by Domingo Lopez Cano and his associates to intimidate me.
