@@ -55,7 +55,7 @@
 - I posted one tweet with a sexual connotation, and he immediately reaches out to a random woman he hasn't seen in years.
 - The tweet I posted was "will you look me dead in the eyes".
 - This is a direct reference to Winston May as Winston May (who I detested, by the way, but totally controlled me) always looked me dead in the eyes during sex.
-- This may well be in my statement to the police.
+- This may well be in my statement to the police, but it is more likely viewable in the porn they made.
 - I immediately stop communicating with him and delete the twitter account I had created.
 
 ### Novel entries
