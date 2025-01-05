@@ -284,7 +284,7 @@
 - The teachers and the adult staff are extremely angry with me for showing up.
 - They set up Pablo to "bump" into me on the way into class. He seems really upset he had to do this and I'm furious about that.
 - In class, my security cam alarm goes off on my phone. I check it.
-- I can hear, recorded on my security camera, a group of men making ghost noises; "woooo-woooo". 
+- I can hear, recorded on my security camera, a group of men making ghost noises; "woooo-woooo". I laugh.
 - While I'm sitting in class, I text a message to Chris BJ saying something like "I think all this aggression is probably training for my political career".
 - Both the choir teacher's and the woman who sits beside me's (French horn player) phones beep at about the same time to alert them they've received a WhatsApp message.
 - They both read it at the same time.
@@ -292,6 +292,12 @@
 - The choir repertoire includes a song about domestic violence which is very aggressive and unpleasant, a horrible irony.
 - That night I become extremely anxious and scared.
 - On my way home, through the tunnel, a man walks towards me grinning and blows in my face.
+
+### Stalker activity
+
+- Stalker activity this night is relentless.
+- One of the fake accounts posts something like: "leave her, she's had enough now", and I felt an enormous upset. 
+- I believe this statement is audible in one of the rape porn films taken from 1989, probably when I was sedated, which was likely quite violent.
 
 ### Chest infection
 
