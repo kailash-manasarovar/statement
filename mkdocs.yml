@@ -48,6 +48,7 @@ nav:
     - Summary: index.md
   - Timeline:
     - Early years:
+      - 2001: timeline/early-years/2001.md
       - 2006: timeline/early-years/2006.md
       - 2007: timeline/early-years/2007.md
       - 2013: timeline/early-years/2013.md
