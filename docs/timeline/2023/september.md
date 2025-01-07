@@ -82,6 +82,10 @@
 - One afternoon, I'm walking back along the beach and there's a group of young men sitting on chairs. The couple I've just mentioned is with them.
 - As I walk past, the young men start making sexual moaning noises and touching themselves on their chests.
 
+### The man in the Alhambra pic
+
+- A couple of time while I'm stalked up and down the beach at Las Marinas this month I see the very same man from the [July pics](july.md#the-guy-at-the-alhambra) with a woman.
+
 ## Smurf cat
 
 - I go to the beach dressed pretty much like Smurf Cat, a meme that appears on my Jack Chardwood twitter account.

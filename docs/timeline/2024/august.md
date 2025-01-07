@@ -34,6 +34,7 @@
 - There is some suggestion that the gang has been involved in targeting children online as part of the global online child-sexual-abuse pornography epidemic. After he talks to me about this a little, I see fake accounts with scared-looking children holding plastic toys in their hands. I did not save or screenshot any of these. 
 - I'm reminded of the [game they invited me to play in May](may.md#telegramsignal).
 - I sense whoever I'm talking to wants out of this dreadful life.
+- I ask "How many more like me?". The answer is two more.
 
 ## I realize I have been poisoned and drugged
 

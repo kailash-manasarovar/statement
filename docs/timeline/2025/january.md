@@ -15,3 +15,7 @@
 
 - I now believe the trumpet teacher's name is Paco Sendra, the married man [Hazel Smith told she was having an affair with](../early-years/2007.md#hazel-smith) back in 2007.
 - I guess I could be wrong but it would be in keeping with the pure evil that has clearly made an extraordinarily special place something of a living hell for everyone.
+
+## Max Power
+
+- I get continual info on Twitter over January and late December informing me that the porn brand they are using to distribute whatever porn they make is Max Power, which makes [Samuel's email](../2022/october.md#sam-shares-some-files-with-me) from 2022 quite interesting.

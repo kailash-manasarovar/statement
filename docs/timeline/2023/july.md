@@ -70,6 +70,13 @@ Some of my tweets from that time.
 - At one point, the man tells plate lady something, and her face looks horrified.
 - Plate lady's horrified expression is somehow exaggerated in the photo.
 
+### The guy at the Alhambra
+
+- The plate lady pictures stop completely and I start seeing a similar "set" of repeated pictures with a specific character.
+- This time, it's a man sitting at a bench with the Alhambra behind him in Granada. 
+- The picture is viewable for a few weeks.
+- I see this man at the beach in September.
+
 ### Carmen
 
 - Results of this search always included a picture of a cartoon woman, Carmen. And they still do, even today.

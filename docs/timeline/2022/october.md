@@ -1,3 +1,13 @@
+## Sam shares some files with me
+
+- [Samuel](september.md#harmony) from harmony class shares some files with me regarding the homework via email.
+- This is his email:
+
+![Samuel's email](../../content/images/max-power.png)
+
+!!! info
+    - I have continual notifications on Twitter in December 2024/January 2025 that the porn brand the stalkers are using to distribute porn is Max Power.
+
 ## Being sick in the flat
 
 - When I arrived back from holiday, I noticed horrible brown streaks along the inside of the fridge and I am convinced that there are parasites in the flat and that is what has been making me so sick.
