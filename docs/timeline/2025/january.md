@@ -19,3 +19,4 @@
 ## Max Power
 
 - I get continual info on Twitter over January and late December informing me that the porn brand they are using to distribute whatever porn they make is Max Power, which makes [Samuel's email](../2022/october.md#sam-shares-some-files-with-me) from 2022 quite interesting.
+- Indeed, when I do a Google search on this, I notice many of the links that I can see on 1frgvn x google search videos are related to Max Power.
