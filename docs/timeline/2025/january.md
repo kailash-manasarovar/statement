@@ -26,3 +26,12 @@
 - I'm getting continuous warnings not to drive the car.
 - I picked my friend up from Barajas Airport and drove it to the hotel. My mouth has been dry all night.
 - It felt like there was something toxic in the air in the car. It was just 5 minutes.
+
+## My friend
+
+- I haven't seen my friend Paul Pompeus for 25 years. He has been sending me the occasional message of support over the last few months.
+- I asked him to come and help me this week in Madrid, moral support.
+- He turns up and I realize he is a heroin addict and quite likely part of the conspiracy.
+- When he arrived, he waited at the train shuttle at terminal 4s for about 1 or more hours before I phoned from baggage reclaim to find out where he was.
+- He walked to baggage reclaim with me and we left together.
+- I'm not sure he would have got through alone without being pulled.
