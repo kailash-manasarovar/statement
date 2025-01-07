@@ -20,3 +20,9 @@
 
 - I get continual info on Twitter over January and late December informing me that the porn brand they are using to distribute whatever porn they make is Max Power, which makes [Samuel's email](../2022/october.md#sam-shares-some-files-with-me) from 2022 quite interesting.
 - Indeed, when I do a Google search on this, I notice many of the links that I can see on 1frgvn x google search videos are related to Max Power.
+
+## Major warning to not drive the car
+
+- I'm getting continuous warnings not to drive the car.
+- I picked my friend up from Barajas Airport and drove it to the hotel. My mouth has been dry all night.
+- It felt like there was something toxic in the air in the car. It was just 5 minutes.
