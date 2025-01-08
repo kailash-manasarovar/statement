@@ -99,7 +99,7 @@
 - She is always wearing a mask and plastic surgical gloves.
 - I guess most people think this is due to ongoing covid fears. I'm not so sure now.
 - One of my classmates thought she was the cleaner.
-- Maria constantly complains about Paqui. She says she is a "bicho raro" and describes how Paqui is always terrorizing her in some way. I wonder if Paqui is being abused by her husband who seemed like a very unpleasant man when he came into the boat club and glared at everyone.
+- Maria constantly complains about Paqui. She says she is a "bicho raro" and describes how Paqui is always terrorizing her in some way. I wonder if Paqui is being abused by her husband who seemed like a very unpleasant man [when he came into the boat club and glared at everyone](march.md#choir-rehearsal-at-the-boat-club).
 
 !!! info
     - I now wonder if Paqui, and all the stalking ringleaders, make their intentions to destroy someone very plain.
@@ -107,6 +107,12 @@
 
 - Anyway, around this time, Maria is very stressed about the next year's assigned work from the Generalitat and keeps talking about how she is probably going to get a job at the superior conservatory in Valencia.
 - Knowing what I know now, it seems to me this would require some "enchufe", meaning a level of benevolence from those who can pull strings; i.e. Domingo.
+
+!!! info "Supplemental"
+    - Maria has been extremely stressed with regards to me getting my Spanish medical card.
+    - She is overly concerned about this with me, week on week.
+    - I tell her I have private medical insurance but she is hugely concerned about a possible future situation in which I would have no cover and need medical assistance.
+    - I wonder why.
 
 ## Followed on the beach
 
