@@ -51,7 +51,7 @@
 
 !!! tip "Sara"
     - A girl called Sara Pastor de Miguel attends classes this year, but she does not return for year 4.
-    - She looks a lot like the trumpet teacher and I now wonder if she could be his daughter, or a close family member, sent to report back on the unconsenting porn star maybe.
+    - She looks a lot like the trumpet teacher and I now wonder if she could be his daughter, or a close family member, sent to report back on the unconsenting British porn star.
     - Could the people of Denia really be this evil?
 
 !!! info "A curious irony"
