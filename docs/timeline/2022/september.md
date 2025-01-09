@@ -49,6 +49,11 @@
     - At some point, Samuel informs me they are buying a Steinway piano.
     - I am concerned about the safety of the girls and their mother.
 
+!!! tip "Sara"
+    - A girl called Sara Pastor de Miguel attends classes this year, but she does not return for year 4.
+    - She looks a lot like the trumpet teacher and I now wonder if she could be his daughter, or a close family member, sent to report back on the unconsenting porn star maybe.
+    - Could the people of Denia really be this evil?
+
 !!! info "A curious irony"
     - The harmony teacher minds me of Gene Hackman and I start thinking about the film, The Conversation, where Gene Hackman is recording and eavesdropping on a conversation between lovers.
     - I think of the piano music from that film and find it, and practice it often at the conservatory.
