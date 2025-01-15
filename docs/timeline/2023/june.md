@@ -183,7 +183,8 @@
 
 !!! danger "Criminal activity"
     - If I'm right in thinking airports keep CCTV for 5 years, then this will be recorded.
-    - There will be footage of him arriving, with his mates maybe, waiting for me, then leaving again when I don't stop.
+    - There will be footage of him arriving, with his mates, waiting for me, then leaving again when I don't stop.
+    - I also suspect it is highly likely that Winston May and his sex offending cohort would have been invited out at this stage, probably to "turn up" at my apartment for the grand finale which I expect would have involved me being gang raped probably to death. There is likely air ticket references and evidence for this.
 
 !!! warning "Mentions of hallucinating"
     - When I mentioned this on Twitter at some point in the future, I use the phrase "I thought I was hallucinating".
