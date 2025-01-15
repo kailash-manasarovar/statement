@@ -120,7 +120,7 @@
 - I'm feeling anxious and I'm constantly thinking about the trumpet teacher.
 - I "bump" into two young girls when my hat flies off and they hand it back to me. I wonder if the girls pulled my hat off.
 - The girls were angry looking. I'm starting to realize how important the fact that people involved in the scam are quite often angry.
-- I hold my scarf up to the air. It has a picture of an emoji sun on it.
+- I hold my scarf up to the air, like Juan Diego. It has a picture of an emoji sun on it.
 - I'm supposed to think these are his daughters. I do think it's a possibility. Not now.
 
 ## Twitter communications
