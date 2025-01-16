@@ -116,7 +116,7 @@
 ![My posts to Domingo and the hackers](../../content/tweets/Screenshot 2024-11-17 at 15.55.13.png)
 
 - The Sumithra account no longer exists.
-- If you look at the accounts that have followed the Sumithra account in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf, you will see they are all dog-related.
+- If you look at the accounts that have followed the Sumithra account in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf), you will see they are all dog-related.
 
 ## Going public on Twitter
 
