@@ -25,10 +25,11 @@
 
 !!! danger "In retrospect"
     - Now, January 2025, I also realize that criminals of Denia had been accessing my apartment and adding poisons and drugs to my bathroom products, and food and water. So, continued sexual feelings could also be explained by this.
-    
+
 - This may explain unpredictable sexual feelings I was having throughout this month in various situations away from Twitter, and there is a possibility that such a thing affected one other person too, details of which I will forward if necessary.
 - I start playing a lot of music on Twitter, I add links from YouTube while listening to it with my earphones, and I'm often dancing around my room in Cauterets.
 - I'm stalked by accounts on YouTube which you can see in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
+- I'm thinking about 1989 constantly, and specifically all the music from that time.
 
 ## I take a picture of myself in my pants
 
