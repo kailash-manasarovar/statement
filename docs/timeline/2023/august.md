@@ -22,6 +22,10 @@
 - I realize that Domingo and the trumpet teacher are continuing to harass me online, so I decide to fight back.
 - I find myself still thinking about the trumpet teacher constantly and, given it's not possible for me to be drugged, I now believe that, on top of the drugging, there was some NLP triggering mechanisms being built into my Twitter usage which could be relied upon to trigger sexual feelings in the absence of medication, and which had been set up during those medicated times.
 - Also, I wonder if there was some low level, sub-audio sexual sound files being generated through my phone (which I have safely stored so the police cyber experts can check the caches for evidence of this). 
+
+!!! danger "In retrospect"
+    - Now, January 2025, I also realize that criminals of Denia had been accessing my apartment and adding poisons and drugs to my bathroom products, and food and water. So, continued sexual feelings could also be explained by this.
+    
 - This may explain unpredictable sexual feelings I was having throughout this month in various situations away from Twitter, and there is a possibility that such a thing affected one other person too, details of which I will forward if necessary.
 - I start playing a lot of music on Twitter, I add links from YouTube while listening to it with my earphones, and I'm often dancing around my room in Cauterets.
 - I'm stalked by accounts on YouTube which you can see in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
