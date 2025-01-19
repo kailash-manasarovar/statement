@@ -14,6 +14,18 @@
 - I had no idea I was being drugged. None.
 - I didn't understand why the trumpet teacher wasn't talking to me directly but I was prepared to excuse it because of the feelings.
 
+## Transformational touch online with Robin
+
+- I had a session with Robin Sullivan of trauma therapy online either the 29th May or the 5th June. She will have the records of everything that happened in the sessions and anything I reported afterwards.
+- This was a Monday in which the trumpet teacher did not turn up for class.
+- We did HPA axis. I asked her for this due to the overwhelming anxiety I was feeling with regards to the trumpet teacher.
+- I had reported everything to my [therapist Robin previously](may.md#teb-with-robin-sullivan), including physical, psychological, and emotional effects of what was happening to me at the hands of the people of Denia.
+- It was very powerful and I slept well that night.
+- The following morning, I noticed a small piece of faeces in my pants. I had poo-ed myself during the night.
+- This was very startling. I had never done this before, not even when I was a child.
+- I reported this to Robin.
+- I now wonder if this is evidence of being sedated in my flat, and raped by unknown people whilst sedated, and filmed of course too.
+
 ## June 9th piano concert
 
 - The end of year piano concert took place at the boat club venue in Denia.
