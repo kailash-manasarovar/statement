@@ -8,7 +8,12 @@
     - https://x.com/1FRGVN/status/1698121721457365343
     - https://x.com/1FRGVN/status/1698016819951423781
     - https://x.com/1FRGVN/status/1697912956871217359
-- From this moment onwards, the English language of the stalker accounts is usually native and vernacular. I'm convinced this is when Hazel and her associates stepped in.
+- From this moment onwards, the English language of the stalker accounts is usually native and vernacular. I'm convinced this is when Hazel and her associates stepped in. I have no idea Hazel and Sandra Smith have been involved in this story since 2006.
+- The tweet that goes viral is here:
+
+![viral tweet when asking for GC help](../../content/tweets/tweet-that-went-viral.png)
+
+- At the time, I believe the wild interest on this tweet and the sudden 1000s of followers I gained were mostly genuine. I now believe that the majority of these accounts were fake accounts controlled by criminal gangs in UK and Spain.
 
 ### The cold shoulder from Spanish feminists
 
