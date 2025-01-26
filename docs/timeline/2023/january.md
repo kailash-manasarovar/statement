@@ -19,7 +19,7 @@
 - **I'm never invited to walk again.** In fact, I'm cut off completely from the English ladies walking group. It's shocking to me actually and I can't figure it out at all. I'm offended.
 - I still see Christine now and then for lunch, however, as if everything's ok.
 
-!!! warning
+!!! warning "Thoughts added later in retrospect after finishing this report"
     - I wonder what the conversations were like between Christine and whoever she was reporting back to, Trish probably.
     - Were there discussions on how likely it was that I would commit suicide, or whether they would have to murder me instead?
     - As the horror continued into late 2023 and then 2024, Were they surprised that I had managed to avoid whatever the trumpet teacher had been planning for me after June 12th 2023?
