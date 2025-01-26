@@ -18,6 +18,14 @@
 - Trish gets angry and changes the subject.
 - **I'm never invited to walk again.** In fact, I'm cut off completely from the English ladies walking group. It's shocking to me actually and I can't figure it out at all. I'm offended.
 - I still see Christine now and then for lunch, however, as if everything's ok.
+
+!!! warning
+    - I wonder what the conversations were like between Christine and whoever she was reporting back to, Trish probably.
+    - Were there discussions on how likely it was that I would commit suicide, or whether they would have to murder me instead?
+    - As the horror continued into late 2023 and then 2024, Were they surprised that I had managed to avoid whatever the trumpet teacher had been planning for me after June 12th 2023?
+    - Were they watching live spy cam porn from my apartment? Had they seen something similar a long time previously, around 2007 perhaps?
+    - Who are they discussing now? Could it be someone else who innocently joined the Javea Computer Club?
+
 - I now believe they saw no option but to exclude me, as they were surprised about how much I had noticed already, and would not want me going along each week babbling on about the terror they were well aware was planned and set up for me by local people they knew.
 - It would be embarrassing for them and probably make them feel guilty. So they stopped inviting me to come walking.
 
