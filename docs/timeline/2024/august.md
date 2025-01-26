@@ -225,7 +225,7 @@
 | ![pic]( ../../content/images/targeted-women/1.png ) 
 This looks like a first meeting. Has she traveled over? She appears to have her overnight back with her. There are pictures later on which show her in a video shoot of some sort with much longer hair. |
 | ![pic]( ../../content/images/targeted-women/2.png ) |
-| ![pic]( ../../content/images/targeted-women/3.png ) |
+| ![pic]( ../../content/images/targeted-women/3.png ) The profile message on this pic mentioned three blows to the head. |
 | ![pic]( ../../content/images/targeted-women/4.png ) |
 | ![pic]( ../../content/images/targeted-women/5.png ) 
 The obvious inference of the above two pics is clear and extremely disturbing. |
