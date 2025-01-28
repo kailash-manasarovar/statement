@@ -33,3 +33,10 @@
 - I believe my fears are exacerbated but given my experience over the last 3 years literally anything could happen.
 - Anything that might be a risk to my life, I have to take measures against, even if the risk appears to be low.
 
+## Seonaid Dawn and Granny Smith
+
+- Both suspect accounts, mentioned in [fake account list](../../evidence/twitter-account.md#fake-accounts), [Hazel Smith references from May 2024](../2024/may.md#hazel-smith-on-twitter), and elsewhere.
+
+![curious](../../content/tweets/granny-smith-seonaid-barber.png)
+
+- I've now started to block the criminal gang members and porn accounts, including these.
