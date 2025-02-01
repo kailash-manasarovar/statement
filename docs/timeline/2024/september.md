@@ -88,6 +88,10 @@ Is the pic above hidden camera footage? Over a bathtub? |
 This picture must be of a woman seeing evidence of herself being filmed without her knowledge.  |
 | ![pic]( ../../content/images/targeted-women/36.png ) 
 The full profile mentions "intense embarrassment" and I wonder if I'm seeing the shocking moments of when targets "find out" prior to blackmailing or sexual exploitation. I wonder if the men delight at these moments and roar with laughter at the tricked and suffering women. |
+| ![pic]( ../../content/images/targeted-women/37.png ) 
+New profile pic of this one posted January 2025 |
+| ![pic]( ../../content/images/targeted-women/38.png ) 
+Curious pic, it's not clear what/where the camera is that the woman is looking at |
 
 - I must mention that I also saw a woman crying in her bedroom, crouched down against the wall. I wish I'd screenshot this pic as it looked like it came from a secret camera probably around the air vents, maybe in a screw?
 
