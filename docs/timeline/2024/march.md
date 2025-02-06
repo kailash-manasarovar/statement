@@ -564,6 +564,14 @@
 - Whoever it was had done a fair bit of research on my Twitter activity and background to it.
 - Again, the English is extremely vernacular so it has to be a native.
 
+!!! danger "Did Mike Wenham have murderous intent towards me personally?"
+    - It turned out, around 2 weeks before Mike Wenham murdered Karolina, he had invited me out to drink ayahuasca, which I found rather strange, and I had refused.
+    - After Karoline was murdered, I remembered that while I was working for Mike in 2010, December time, he had also been doing part time building in a house in Leslie Road just up from my road. He had insisted I come and see him at this house on a Saturday morning in mid-December 2010. I went. 
+    - He had plastic all over the floors. It was a top floor maisonette and I was climbing the stairs. I noticed he had a stanley knife in his hand. Something didn't feel right and I left. He urged me to come up but I said I didn't have time.
+    - I didn't think about it again until after the murder.
+    - The similarities were extraordinary.
+    - Could anyone from Denia be involved in these events? It seems unlikely ...
+
 ## 20th March
 
 ### Domingo Cano
