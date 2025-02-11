@@ -30,6 +30,9 @@
     - Even though those feelings were mostly manipulated and manufactured, there was something real there, although it's not clear how much.
     - It was overwhelming.
 
+!!! tip
+    - The two Ana's (violin teacher and musical language teacher) make a great deal of pretending Ana the violin teacher is terribly jealous and angry with me for posting this information on Twitter later on in the year.
+
 ## International choir concert
 
 - I went to the international choir concert and met all my old pals.
