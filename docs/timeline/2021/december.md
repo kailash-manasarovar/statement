@@ -52,7 +52,7 @@
     - Fake accounts like these may have one or two posts, messages in the profile itself, or in the top posts below the profile.
 
 - I wonder if she left hurriedly because she realized she was being drugged and related it to something in the apartment.
-- The email address of the previous tenant may be `sonyaortyz@hotmail.com`, an unusual email address for the landlady which is written on the water bills.
+- The email address of the previous tenant may be `sonyaortyz@hotmail.com`, an unusual email address for the landlady which is written on the water bills and seems to be an oversight.
 
 ## Walking
 
