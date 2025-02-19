@@ -8,18 +8,21 @@
 - Carrer Furs 15, Bloque 1 Escalera 2 Piso 3 Apartamento 17, Dénia 03700 Alicante.
 - I contacted the landlady, Beatriz Garcia Morales, and signed the agreement.
 - The landlady, Beatriz, was angry and disagreeable. Hackers have more recently mentioned her demeanor online to me over the summer in 2024.
-- I signed the contract and moved in on December 15th. A copy of the signed contract will be posted in due course.
+- I signed the [rental contract](../../content/documents/contracto/rental-contract.pdf) and moved in on December 15th. A copy of the signed contract will be posted in due course.
 
-!!! danger "Something weird in the rental contract"
-    - There is a clause in the rental contract about what happens to my body and belongings if I were to die in the flat.
-    - It gave me cause to wonder.
+!!! danger "Death clause"
+
+    - There is a clause in the rental contract about what happens to my body and belongings if I were to die in the flat prior to the lease running out or after.
+    - It appears to relieve the owner of all indemnity.
+    - For a contract with an initial term of 1 year, this seems a little strange.
     - I have never seen a clause like that in a rental contract before and I have read a great many.
+    - Click to read the [death clause](../../content/documents/contracto/death%20clause.jpeg) in my rental contract.
 
 - She only gave me one key, of a set of four, and there was a bit of a drama about where the other keys were which seemed contrived.
 - I didn't trust Beatriz Garcia Morales and, from her weird behavior and manner, I felt it likely she would enter my apartment without my knowledge.
 - A few days later I suspected someone had been in without my knowledge.
-- I got the locks changed soon after by Carl Barclay, +34-659-85-36-45.
-- Nevertheless, I believe people have been entering my house whenever I'm not there on a regular basis the whole time I lived there. It's not clear how they got entry after I changed the locks. 
+- I got the locks changed soon after by locksmith Carl Barclay, +34-659-85-36-45.
+- Nevertheless, I believe people have been entering my house whenever I'm not there on a regular basis the whole time I lived there. It's not clear how they got entry after I changed the locks. I guess that would be a simple matter for a criminal gang.
 
 !!! info "Who has been receiving my rent payments?"
     - Beatriz has changed the account I pay rent to twice now.
