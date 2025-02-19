@@ -11,7 +11,16 @@ I've always tried to find ways to explain it which put people in the best light.
 
 But everything got worse and worse, and anytime I uncovered some truth, it seemed there was more evil lurking underneath it. Nothing made sense and the elaborate and extremely resource-heavy and staged attacks still don't make sense under any scenario I can think up at this time.
 
-## Current and ongoing theory
+## Misogyny of the worst kind
+
+- I believe that the people of Denia and the surrounding areas were told that I had been a victim of pedophile rape gangs in London in 1989.
+- I believe they were even shown the porn that the rapists made at that time where I was sedated and gang raped repeatedly, porn that undoubtedly very much "enriched" certain people's lives.
+- I believe that the people that targeted me commonly blame rape victims, and domestic violence victims, for the acts of rapists and abusers, and moreover, and more astonishingly, blame child victims of pedophiles for the acts of pedophiles.
+- I believe these rapists and pedophile protectors in Denia have the utmost respect for the gang leaders and instigators of the horror I endured for 3 years, and what, undoubtedly, many thousands of other women have endured in the region for decades and centuries even.
+- In the same way that trans activists are happy to sterilize and mutilate their children, and attack anyone questioning such barbaric practices, the people of Denia and the surrounding areas were delighted to have the change to target a lone woman, someone they thought vulnerable, because they insanely believed she deserved it.
+- I believe their behavior triggered an innate and unchecked blood-thirstiness that is out of control.
+
+## Previous theory
 
 1. Domingo singled me out as a good candidate for honey-trapping on the words of someone he knew, possibly Zoe Braganza Jones but more likely Hazel Smith.
 2. Domingo used Mercedes to lure me into the conservatory as a student.

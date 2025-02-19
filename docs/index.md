@@ -5,55 +5,54 @@ hide:
 ---
 
 !!! warning
-    - This is a private repo and is not available to the public.
-    - If you are reading this without permission, or without the requisite credentials, you may be prosecuted.
-    - I was going to password protect this but hackers broke my machine.
-    - Luckily, a technical team in Bangkok got my access back although I lost a lot of data.
-    - I'm concerned that, by the actions of the hackers, I could lose everything at any moment, so I will have to leave this published on a trust basis.
-    - I'm also concerned about the continued threats of violence I receive and that now include family.
+    - This is a private repo and currently unavailable to the public.
 
 ## Summary statement
 
-This document details the numerous crimes against myself, Katharine Margaret Murphy, of Carrer Furs 15, Bloque 1, Escalera 2, Piso 3, Apartamento 17, Dénia, 03700 Alicante Spain, that have taken place over the last years.
+This document details crimes against myself, Katharine Margaret Murphy, Y2775989H, currently residing at Carrer Furs 15, Bloque 1, Escalera 2, Piso 3, Apartamento 17, Dénia, 03700 Alicante Spain, that have taken place over the last three years since moving in on 15th December 2022.
 
 The report details the following:
 
-- Hacking of my home network, laptops, including work laptop, and mobile phones.
-- Cyber-stalking by teachers and staff at the conservatory of Dénia, Spain; their friends and families and, closely connected to them, organized criminal gangs.
-- Physical stalking, tracking my movements via hacked mobile phones, and possibly tracking on my car, in order to harass me and create intricate choreographed situations with the intention of terrorizing me.
+- Hacking of my home network, laptops - including work laptop - and mobile phones, most likely through direct access to my private home network via router MAC addresses.
+- Cyber-stalking by teachers, staff, and others at the conservatory of Dénia, Spain; their friends and families and, closely connected to them, organized criminal gangs.
+- Physical stalking, tracking my movements via hacked mobile phones, and possibly tracking on my car, in order to harass me and create intricate choreographed situations with the sole intention of terrorizing me.
 - Sexual grooming and honey trapping online and in a public learning establishment, the conservatory of Dénia.
-- Drugging without my knowledge, in class at the conservatory, at home, in the car, and possibly elsewhere.
+- Drugging/poisoning without my knowledge, in class at the conservatory, at home, in my car, and via access to my personal items, food, and toiletries, to continue the dosage while I was traveling away from Dénia for long periods.
 - Taking photos and videos of me of a sexual nature, and otherwise, from hacked devices and/or hidden cameras, and disseminating them throughout Dénia, and likely making money from them on paid-for WhatsApp apps and/or porn networks.
 - Mass voyeurism of myself through my hacked devices, probably also monetized.
 - Possible poisoning with strychnine, methanol, or similar, added maliciously to the water and air vents in my flat.
+- Gaining private access to extremely personal information about me, including possible access to pedophile pornography from many decades ago via British citizens living in Denia who had targeted me previously, and sharing this information with many people in the town in order to gain support in persecuting me and to justify further targeting, harassment, and terrorizing.
 
 !!! danger
-    - I'm beginning to believe it is methanol due to my symptoms over the past couple of years and my current loss of sight.
-    - See [Health](personal/health.md#eyes) for more information.
+    - See [Health](personal/health.md) for more information on health problems arising from 3 years of poisoning and drugging in Denia.
+    - See [Expenses](personal/expenses.md) for more information on the financial cost of enduring 3 years of gang stalking by the people of Denia.
+    - See [Vocational](personal/vocational.md) for more information on the professional cost to me personally due to the stress and inability to make good decisions due to being targeted and terrorized, and drugged/poisoned continuously for 3 years.
 
 ### Motive
 
 I have spent much time theorizing on why a whole town would put so much energy into threatening and terrorizing a woman they considered vulnerable for over two years. Please see my [concluding theory](theories.md) for the main reason I believe I was targeted.
 
-Besides that, my story will uncover a dark underlying motive which relates everything that has happened to me over the last years in Spain to my experience of child sexual abuse at the hands of a pedophile rape gang in North London in 1989 who put me in porn at that time.
+Besides that, my statement uncovers a dark underlying motive which relates everything that has happened to me over the last years in Spain to my experience of child sexual abuse at the hands of a pedophile rape gang in North London in 1989 who put me in porn at that time.
 
-I also believe that teachers and staff, their friends and family, and even my apparent friends, were easily encouraged to participate in mass gang stalking, and it is probably something they've "always done" to uppity women. 
+I believe that teachers and staff, their friends and family, and even my own "apparent" friends, were easily encouraged to participate in mass gang stalking, and it is probably something they've "always done" to uppity women; a sport, if you will, similar in nature bullfighting.
 
-However, the ringleaders' underlying motive, is always, of course, money; in this case, initially, and maybe still, my money, then money from porn and the likely huge interest generated in the global porn-addict population with a taste for pedophilia, which is arguably epidemic right now. 
+However, whatever the mob believe is going on, and whatever they told the children, the ringleaders' underlying motive is always financial; in this case, initially, and maybe still, my money; then the money from any spy-cam porn together with a huge interest generated in the global porn-addict population with a taste for pedophilia, which is arguably epidemic right now. 
 
 Given all these events have taken place within the context of studying at a public learning establishment, the Dénia music conservatory, which has in attendance hundreds of minor children, and a handful of adults; and given the elaborate and extremely professional nature of the electronic attacks and the sophistication of the drugging techniques, the likelihood of similar things happening to others, including minors, must be taken into serious consideration.
 
-### Why was I even in Dénia
+### Why was I in Dénia
 
-I just wanted to play the piano. 
+I love Denia. It is a special place and I enjoyed living there over the years. I had returned after being away for a few years but always felt Denia was a special safe place. I had no idea that I was being stalked by people in Denia since 2006. I had no idea of the seriously ugly underbelly of this place and the culture and how women and children are completely unsafe.
 
-![All I wanted was to play the piano](content/tweets/all-i-wanted.png){width=45%}
+In fact, I just wanted to play the piano. 
 
-I hope that no-one else goes through the hell I have been enduring for years in Dénia but, most importantly, I want children, especially young girls to be safe from sexual grooming for criminal purposes, i.e. early grooming for future involvement in porn and prostitution, or worse potentially, via studying at public learning establishments in Spain.
+![All I wanted was to play the piano](content/tweets/all-i-wanted.png){width=75%}
+
+I hope that no-one else goes through the hell I have been enduring for years in Dénia but, most importantly, I want children, especially young girls, to be safe from sexual grooming for criminal purposes, i.e. early grooming for future involvement in porn and prostitution, or worse potentially, via studying at public learning establishments in Spain.
 
 This photo is me playing the piano as a piano student of the conservatory of Dénia in 2015.
 
-![Katharine Murphy plays the piano at the boat club in Dénia in 2015](content/images/katharine-pianist.jpg){width=50%}
+![Katharine Murphy plays the piano at the boat club in Dénia in 2015](content/images/katharine-pianist.jpg){width=70%}
 
 ### Report layout
 
