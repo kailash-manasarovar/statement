@@ -18,7 +18,7 @@ The report details the following:
 - Physical stalking, tracking my movements via my hacked mobile phones, and possibly tracking on my car, in order to harass me and create intricate choreographed situations with the sole intention of terrorizing me.
 - Sexual grooming and honey-trapping online and in a public learning establishment, the conservatory of Dénia.
 - Drugging/poisoning without my knowledge, in class at the conservatory, at home, in my car, and via access to my personal items, such as food and toiletries, so as to continue the dosage while I was traveling away from Dénia for long periods.
-- Constant surveillance which included taking photos and videos of me of a sexual nature, and otherwise, from hacked devices and/or hidden cameras, and disseminating them throughout Dénia, and likely making money from them on paid-for WhatsApp apps and/or porn networks.
+- Constant surveillance which included taking photos and videos of me of a sexual nature, and otherwise, from hacked devices and/or hidden cameras, and disseminating them throughout Dénia, and likely making money from them on paid-for WhatsApp groups and/or porn networks.
 - Mass voyeurism of myself through my hacked devices, probably also monetized.
 - Possible poisoning with strychnine, methanol, or similar, added maliciously to the water and air vents in my flat.
 - Gaining private access to extremely personal information about me, including possible access to pedophile pornography made many decades ago with the help British citizens living in Dénia who had targeted me previously, and sharing this information with many people in the town in order to gain support in persecuting me and to justify further targeting, harassment, and terrorizing.
