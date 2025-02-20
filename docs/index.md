@@ -32,13 +32,13 @@ The report details the following:
 
 I have spent much time theorizing on why a whole town would put so much energy into threatening and terrorizing a woman they considered vulnerable for over two years. Please see my [concluding theory](theories.md) for the main reason I believe I was targeted.
 
-Besides that, my statement uncovers a dark underlying motive which relates everything that has happened to me over the last years in Spain to my experience of child sexual abuse at the hands of a pedophile rape gang in North London in 1989 who sedated me, raped me, and put me in porn at that time without my knowledge.
+Besides that, my statement uncovers a dark underlying motive which relates everything that has happened to me over the last years in Spain to my experience of child sexual abuse at the hands of a pedophile rape gang in North London in 1989 who sedated me, gang raped me repeatedly, and filmed it without my knowledge.
 
-I have only become certain that this porn exists in the last couple of years via communication with the people of Dénia.
+I have only become certain that this porn exists in the last couple of years via communication with the people of Dénia on my hacked devices.
 
-The people of Dénia knew more about my life than I did. And they hated me for it and believed my horrific experiences as a child, which gave me 30 years of PTSD, justified my destruction at their hands.
+It transpires that the people of Dénia knew more about my life than I did. And they hated me for it too. They hated the victim of pedophiles at the request of the known pedophiles they respect and revere in the town.
 
-I believe that, due to this horrible and secret information about me, teachers and staff at the conservatory of Dénia, their friends and family, and even my own "apparent" friends, were easily encouraged to participate in mass gang stalking, and it is probably something they've "always done" to uppity women they consider victims of men; a sport, if you will, similar in nature to bullfighting.
+I believe that, due to this horrible and secret information about me, teachers and staff at the conservatory of Dénia, their friends and family, and even my own "apparent" friends, were easily encouraged to participate in mass gang stalking, and it is probably something they've "always done" to uppity women they don't like or who are considered the justified victims of men; a sport, if you will, similar in nature to bullfighting.
 
 However, whatever the mob believe is going on, and whatever the criminals told the townsfolk and children, the ringleaders' underlying motive is always financial; in this case, initially, and maybe still, my money; then probably substantial earnings from spy-cam porn bolstered with the interest generated in the global and local porn-addict population with a taste for pedophilia, which is arguably epidemic right now. 
 
