@@ -54,7 +54,7 @@ In fact, I just wanted to play the piano and the standard of music teaching was 
 
 ![All I wanted was to play the piano](content/tweets/all-i-wanted.png){width=75%}
 
-I hope that no-one else goes through the hell I have been enduring for years in Dénia but, most importantly, I want children, especially young girls, to be safe from sexual grooming for criminal purposes, i.e. early grooming for future involvement in porn and prostitution via normal daily activities like studying at public learning establishments in Spain.
+I hope that no-one else goes through the hell I have been enduring for years in Dénia that put me in constant fear for my life, but, most importantly, I want children, especially young girls, to be safe from sexual grooming for criminal purposes, i.e. early grooming for future involvement in porn and prostitution via normal daily activities like studying at public learning establishments in Spain.
 
 This photo is of me playing the piano as a piano student of the conservatory of Dénia in 2015.
 
