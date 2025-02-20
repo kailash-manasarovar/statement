@@ -24,9 +24,9 @@ The report details the following:
 - Gaining private access to extremely personal information about me, including possible access to pedophile pornography made many decades ago with the help British citizens living in Dénia who had targeted me previously, and sharing this information with many people in the town in order to gain support in persecuting me and to justify further targeting, harassment, and terrorizing.
 
 !!! danger
-    - See [Health](personal/health.md) for more information on health problems arising from 3 years of poisoning and drugging in Denia.
-    - See [Expenses](personal/expenses.md) for more information on the financial cost of enduring 3 years of gang stalking by the people of Denia.
-    - See [Vocational](personal/vocational.md) for more information on the professional cost to me personally due to the stress and inability to make good decisions due to being targeted and terrorized, and drugged/poisoned continuously for 3 years.
+    - See [Health](personal/health.md) for more information on health problems arising from 3 years of poisoning and drugging in Dénia.
+    - See [Expenses](personal/expenses.md) for more information on the financial cost of enduring 3 years of gang stalking by the people of Dénia.
+    - See [Vocational](personal/vocational.md) for more information on the professional cost to me personally due to the stress and inability to make good decisions due to being targeted and terrorized, and drugged/poisoned continuously for 3 years in Dénia.
 
 ### Motive
 
