@@ -44,7 +44,7 @@ Given all these events have taken place within the context of studying at a publ
 
 I love Dénia. 
 
-![Denia](../docs/content/images/denia.avif)
+![Denia](content/images/denia.avif)
 
 It is a special place and I have enjoyed living there over the years on three separate occasions. 
 
