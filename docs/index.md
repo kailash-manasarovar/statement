@@ -36,7 +36,7 @@ Besides that, my statement uncovers a dark underlying motive which relates every
 
 I have only become certain that this porn exists in the last couple of years via communication with the people of Dénia.
 
-The people of Dénia knew more about my life than I did. And they hated me from it.
+The people of Dénia knew more about my life than I did. And they hated me for it and believed my horrific experiences as a child justified my destruction at their hands.
 
 I believe that, due to this horrible and secret information about me, teachers and staff at the conservatory of Dénia, their friends and family, and even my own "apparent" friends, were easily encouraged to participate in mass gang stalking, and it is probably something they've "always done" to uppity women they consider victims of men; a sport, if you will, similar in nature to bullfighting.
 
