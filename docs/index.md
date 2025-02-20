@@ -21,7 +21,7 @@ The report details the following:
 - Constant surveillance which included taking photos and videos of me of a sexual nature, and otherwise, from hacked devices and/or hidden cameras, and disseminating them throughout Dénia, and likely making money from them on paid-for WhatsApp groups and/or porn networks.
 - Mass voyeurism of myself through my hacked devices, probably also monetized.
 - Possible poisoning with strychnine, methanol, or similar, added maliciously to the water and air vents in my flat.
-- Gaining private access to extremely personal information about me, including possible access to pedophile pornography made many decades ago with the help British citizens living in Dénia who had targeted me previously, and sharing this information with many people in the town in order to gain support in persecuting me and to justify further targeting, harassment, and terrorizing.
+- Gaining private access to extremely personal information about me - including possible access to pedophile pornography made many decades ago - with the help of British citizens living in Dénia who had targeted me previously, and sharing this information with many people in the town in order to gain support in persecuting me and to justify further targeting, harassment, and terrorizing.
 
 !!! danger
     - See [Health](personal/health.md) for more information on health problems arising from 3 years of poisoning and drugging in Dénia.
@@ -30,7 +30,7 @@ The report details the following:
 
 ### Motive
 
-I have spent much time theorizing on why a whole town would put so much energy into threatening and terrorizing a woman they considered vulnerable for over two years. Please see my [concluding theory](theories.md) for the main reason I believe I was targeted.
+I have spent much time theorizing on why a whole town would put so much energy into threatening and terrorizing a woman they considered vulnerable for over three years. Please see my [concluding theory](theories.md) for the main reason I believe I was targeted.
 
 Besides that, my statement uncovers a dark underlying motive which relates everything that has happened to me over the last years in Spain to my experience of child sexual abuse at the hands of a pedophile rape gang in North London in 1989 who sedated me, gang raped me repeatedly, and filmed it without my knowledge.
 
