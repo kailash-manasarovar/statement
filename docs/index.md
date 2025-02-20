@@ -13,7 +13,7 @@ This document details crimes against myself, Katharine Margaret Murphy, Y2775989
 
 The report details the following:
 
-- Hacking of my home network, laptops - including work laptop - and mobile phones, most likely through direct access to my private home network via router MAC addresses.
+- Hacking of my home network, laptops - including work laptops from three different companies - and mobile phones, most likely through direct access to my private home network via router MAC addresses.
 - Cyber-stalking by teachers, staff, and others at the conservatory of Dénia, Spain; their friends and families and, closely connected to them, organized criminal gangs.
 - Physical stalking, tracking my movements via my hacked mobile phones, and possibly tracking on my car, in order to harass me and create intricate choreographed situations with the sole intention of terrorizing me.
 - Sexual grooming and honey-trapping online and in a public learning establishment, the conservatory of Dénia.
