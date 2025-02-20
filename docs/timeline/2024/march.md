@@ -397,7 +397,7 @@
 
 ### Email to Paqui
 
-- I [email Paqui](../../content/documents/emails/Letter%20to%20Paqui%2017:3.pdf) about the concert and subsequent events. I want her to clarify why I should feel fearful about going to the conservatory. She does not reply.
+- I [email Paqui](../../content/documents/emails/Letter%20to%20Paqui%2017-3.pdf) about the concert and subsequent events. I want her to clarify why I should feel fearful about going to the conservatory. She does not reply.
 - Her silence speaks a thousand words.
 - I realize I am indeed not safe so I excuse myself from classes following the week of Fallas which means public holidays in the Valencia region.
 
