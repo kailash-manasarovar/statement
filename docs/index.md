@@ -46,11 +46,11 @@ Given all these events have taken place within the context of studying at a publ
 
 ### Why Dénia?
 
-I love Dénia. 
+I love Dénia. I had many friends there and I sang in the International Choir for years. Studying the piano at the conservatory was an enormous privilege. 
 
 ![Denia](content/images/denia.avif)
 
-It is a special place and I have enjoyed living there over the years on three separate occasions. 
+It is a special, magical place. 
 
 I returned in 2022 after being away, but always felt Dénia was my special safe place. I had no idea that I had been targeted by criminals and porn gangs in Dénia since 2006. I had no idea of the ugly underbelly of this place, and the culture, and how women and children are particularly unsafe, even at public learning establishments.
 
