@@ -24,6 +24,16 @@
 - I end up blocking this person because it's just so weird but I think if you believe the lie, even a tiny bit, 10%, they have a hold over you. I believed it a little.
 - And, of course, who wouldn't be influenced by love and a potential relationship, being with someone you believe you really like, even if it is manufactured and fake?
 
+## Lucia in the dark room with Domingo
+
+- Every time I go to the conservatory some psycho-emotional torture awaits me. Domingo is always behind everything, orchestrating, directing everyone.
+- One Monday evening as I'm leaving class, I notice Domingo standing in the doorway of one of the teaching rooms beside where my class took place.
+- He looks at me meaningfully and menacingly and, as I walk past the open classroom door, I notice, in the darkened room with no lights on, Lucia, the minor, Domingo's student, looking out at me.
+- It's all set up to make me think something is going on.
+- And yet, the thing I'm supposed to think, which Domingo can ensure no-one tells anyone about - because look what happens to people who are concerned about the safety of minors in the conservatory system - *is* actually happening.
+- It's only a matter of time before the world finds out about the mass spy-cam porn voyeurism in Denia that includes violent sex crimes and the preparing of its future stars and where they come from.
+- The moment a victim feels safe enough to speak, and people are listening without wanting to murder them, there will be a tsunami of speakers, males and females. It's the same everywhere in the world.
+
 ## Google search
 
 - I am seeing multiple posts about "boyfriends" on my accounts' Google search result images. 
