@@ -5,22 +5,22 @@
 - The first Saturday in January I go hiking with the English ladies as normal.
 - I mention falling in love twice, once with a gay man on holiday and once with the trumpet teacher. 
 - Everyone's interested in the gay man I met on holiday, where he lives, what he does for work, etc.
-- Whenever I try to talk about the trumpet teacher, no one wants to know. Trish and Christine, especially, go quiet and tongue-tied.
+- Whenever I try to talk about the trumpet teacher, no one wants to know. Patricia and Christine, especially, go quiet and tongue-tied.
 - I notice this and file it away, but I have a vague feeling that it seems as if they know what's going on at the conservatory somehow.
 - One of the other ladies says something like; "you wanna be careful, he might put you in the movies", but I thought it was just a joke.
-- My mind could not, at that time, possibly comprehend that a lone woman could be terrorized by everyone in a whole region of Spain, and beyond eventually, so I don't fully understand why Trish and Christine would be so unusually reticent.
+- My mind could not, at that time, possibly comprehend that a lone woman could be terrorized by everyone in a whole region of Spain, and beyond eventually, so I don't fully understand why Patricia and Christine would be so unusually reticent.
 - It's so weird, however, I don't forget it.
 
 !!! info
-    - This was the day that Christine made an off-the-cuff remark about Trish having done porn, which Trish brushed aside in an annoyed way, and which I thought must be a joke.
+    - This was the day that Christine made an off-the-cuff remark about Patricia having done porn, which Patricia brushed aside in an annoyed way, and which I thought must be a joke.
 
-- When we are alone a little later, I mention to Trish that the trumpet teacher is the same guy we saw in Benijembla.
-- Trish gets angry and changes the subject.
+- When we are alone a little later, I mention to Patricia that the trumpet teacher is the same guy we saw in Benijembla.
+- Patricia gets angry and changes the subject.
 - **I'm never invited to walk again.** In fact, I'm cut off completely from the English ladies walking group. It's shocking to me actually and I can't figure it out at all. I'm offended.
 - I still see Christine now and then for lunch, however, as if everything's ok.
 
 !!! warning "Thoughts added later in retrospect after finishing this report"
-    - I wonder what the conversations were like between Christine and whoever she was reporting back to, Trish probably, Hazel Smith even.
+    - I wonder what the conversations were like between Christine and whoever she was reporting back to, Patricia probably, Hazel Smith even.
     - Were there discussions on how likely it was that I would commit suicide, or whether they would have to murder me instead?
     - As the horror continued into late 2023 and then 2024, Were they surprised that I had managed to avoid whatever the trumpet teacher had been planning for me after June 12th 2023?
     - Were they watching live spy cam porn from my apartment? Had they seen something similar a long time previously, around 2007 perhaps?

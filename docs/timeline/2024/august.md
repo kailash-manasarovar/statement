@@ -28,7 +28,7 @@
 - He tells me he's married. I say I don't care, I hope he's happy, and we can all be friends.
 - We talk about work and I send him job adverts for developers with salaries up to 300K; work that I should be doing with my skills and experience except the industry unilaterally hates Women. I tell him he can go to the meetings and I'll help him with the coding.
 - He tells me that he has targeted 100s of women in the region and starts sending pictures of some of them.
-- I realize this is exactly what has happened to Trish and, coupled with the fact she has a daughter and granddaughter, this is why she doesn't talk.
+- I realize this is exactly what has happened to Patricia and, coupled with the fact she has a daughter and granddaughter, this is why she doesn't talk.
 - I see pictures on fake accounts of young and old women. I screenshot some of them.
 - He's also feeding me information regarding secret filming, spiking, and drug taking.
 - There is some suggestion that the gang has been involved in targeting children online as part of the global online child-sexual-abuse pornography epidemic. After he talks to me about this a little, I see fake accounts with scared-looking children holding plastic toys in their hands. I did not save or screenshot any of these. 
@@ -112,10 +112,10 @@
 - I say I don't know but I also tell her that I'm devoted somehow; that something's going on that I have no control over so I just have to trust that it is all in God's plan.
 - I now wonder if everything I felt was just the long-term effects of narcotics I did not know I was ingesting.
 
-## Trish communication
+## Communication with Patricia
 
-- Trish sends me WhatsApp messages over this period which are rather unusual.
-- I'm very candid with her on [WhatsApp chats](../../evidence/whatsapps.md#trish-penny).
+- Patricia sends me WhatsApp messages over this period which are rather unusual.
+- I'm very candid with her on [WhatsApp chats](../../evidence/whatsapps.md#patricia).
 - I wonder if she is being asked to check up on me.
 - She ignores everything I say in my messages but keeps communicating with me.
 - I assume she is not allowed to make comments on anything I have said.

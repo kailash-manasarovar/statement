@@ -33,7 +33,7 @@ Nevertheless, a great many people have helped enrich criminals and there must be
 5. When I fell out with Domingo, some attempts were made to keep me in Denia: the job offer where I would be looking at genitals; Maria Hontanilla saying she would organize a job for me at Denia hospital.
 6. Before I left Denia in 2016, I wrote a statement to the Metropolitan police about the North London rape gangs which they will have seen.
 7. Between leaving Denia in 2016 and returning in 2022, I may have been surveilled continuously via the gitano hacking networks and they would have seen how much I was earning in those years, which was considerable.
-8. I was lured back to the conservatory with the help of Trish Penny and friends while walking.
+8. I was lured back to the conservatory with the help of Patricia and friends while walking.
 9. Once back, the gang stalking began, with the intention of:
     1. Me falling in love with the trumpet teacher.
     2. My crucifixion (termed funeral by the conservatory porn gangs) on 12th June 2023 where I would be hurt, shamed, and humiliated.

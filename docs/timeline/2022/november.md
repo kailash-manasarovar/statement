@@ -10,12 +10,12 @@
 
 - I was hiking with the English ladies every Saturday.
 - One of the last Saturdays in November, the 19th probably, we met at Benijembla, for a walk along the many trails around the village.
-- Christine Betterton Jones, Patricia (Trish) Penny, and some of the others were there.
-- Along the way we "bumped" into a small group of Spanish walkers, and Trish stayed back for a while to talk to them. There were two men and a woman.
-- We all noticed Trish wasn't with us at some point and Christine said she was talking with the Spanish people as she knew them.
-- Trish reappeared at some point and we continued on.
+- Christine Betterton Jones, Patricia (Patricia) Penny, and some of the others were there.
+- Along the way we "bumped" into a small group of Spanish walkers, and Patricia stayed back for a while to talk to them. There were two men and a woman.
+- We all noticed Patricia wasn't with us at some point and Christine said she was talking with the Spanish people as she knew them.
+- Patricia reappeared at some point and we continued on.
 - At the end of the walk we went for coffee in Benijembla.
-- Trish and I were walking together back to the cars and she noticed the same group that she had seen up on the trail sitting at a table in a cafe.
+- Patricia and I were walking together back to the cars and she noticed the same group that she had seen up on the trail sitting at a table in a cafe.
 - She told me she wanted to speak to one of them. As we walked towards them, one of the men in the group got up and, as if she didn't know him at all, even though he was the part of the same group we had met earlier, she asked him about something to do with the landscape and paths on a map that she had in her hand.
 - I wasn't part of the chat and I saw a woman sitting on the seat beside where this guy had got up from. I noticed she looked really sad and worried.
 
@@ -23,7 +23,7 @@
     - I assumed this woman was the man's wife or girlfriend and I wondered why she looked so unhappy.
     - Curiously, she looked a lot like the [girl in the video](../2023/june.md#youtube) I saw the following June.
 
-- Trish Penny had her back to me, and she was showing this guy the map and asking questions about it but it was as if, outside of my view, she was pointing to me, because he kept looking up at me and grinning. 
+- Patricia had her back to me, and she was showing this guy the map and asking questions about it but it was as if, outside of my view, she was pointing to me, because he kept looking up at me and grinning. 
 - His look reminded me of a look on one of the grooming gangs faces when I was 16. A man who had looked at me with delight before he raped me. A look of evil.
 - You don't forget looks like that.
 - The following week the same guy turns up to chamber music class. He is the missing trumpet teacher.
@@ -48,7 +48,7 @@
 
 - At the end of November, 28th, all of a sudden, a trumpet teacher is found for the chamber music classes, every Monday, 8-9pm.
 - Gloria, the receptionist at the conservatory, leaves a message on my phone earlier in the day to say class is starting. It's a weird message where I hear the word guapo (handsome) and someone says something in the background, Paqui Fornet probably, then they both laugh weirdly.
-- I go to class that evening and the same guy who Trish was talking to in Benijembla is there, in Jaume's room where I had been allowed to practice for my audition.
+- I go to class that evening and the same guy who Patricia was talking to in Benijembla is there, in Jaume's room where I had been allowed to practice for my audition.
 - He says his name is Vidal.
 - In the Generalitat Valenciana systems, his name was/is Vidal Sastre Sanchez Hornero, although I'm told he now can't be found in there. I have believed for some time now that this is a false name, but there was no reason to think so then, other than when I asked him his name, and he answered Vidal, it didn't ring true somehow.
 - So I came to class and we met, there was some immediate confusion about him needing the toilet, but he kept looking at his phone, and not really going anywhere, and then he was moving to the door, and he kept saying he was going to the toilet. 

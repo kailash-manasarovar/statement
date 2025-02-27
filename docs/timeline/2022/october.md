@@ -27,18 +27,18 @@
 - I have a strong sense that something sinister is going on that I'm unaware of. 
 - There is still no teacher for chamber music.
 
-## Patricia "Trish" Penny
+## Patricia "Patricia" Penny
 
-- I'm surprised to meet Trish Penny on a hike with the English ladies after so many years. She seems sad. I notice how much she has aged.
-- I tell Christine BJ this. She obviously tells Trish what I've said because the next time I see Trish she is angry with me.
+- I'm surprised to meet Patricia on a hike with the English ladies after so many years. She seems sad. I notice how much she has aged.
+- I tell Christine BJ this. She obviously tells Patricia what I've said because the next time I see Patricia she is angry with me.
 - I'm upset about this but people are people, and often can't be trusted to not share hurtful information.
-- I attempt to talk to Trish in a friendly way to make amends, and I talk about my life.
+- I attempt to talk to Patricia in a friendly way to make amends, and I talk about my life.
 - She mentions a man, a British policeman, who lived near her who had really scary eyes.
 - It was weird and reminded me of a short story I had written for the writing club I used to go to in Dénia in 2007, which incidentally David the gay English teacher was also a member of.
 - This was when I had started to write about child sexual abuse and grooming gangs in short-story form, and I had described one of the pedophiles with the exact words she used in our conversation.
 
 !!! note
-    - Could this have been a warning from Trish? Or were my British friends 100% complicit.
+    - Could this have been a warning from Patricia? Or were my British friends 100% complicit.
 
 ## Halloween
 

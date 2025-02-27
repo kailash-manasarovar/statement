@@ -28,7 +28,7 @@
 
 ![Technofix](../content/whatsapps/technofix-1.jpg){width=50%}![](../content/whatsapps/technofix-2.jpg){width=50%}
 
-## Trish Penny
+## Patricia
 
 - Curious WhatsApp communication where Trish appears to ignore everything I say.
 

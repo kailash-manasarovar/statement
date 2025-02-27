@@ -228,7 +228,7 @@
 - I gasp.
 - At precisely that moment, my security camera at home goes off and sounds an alarm on my phone. I don't have time to look.
 - The woman dressed as Lorraine (who I now believe to be Carmen Cano, Domingo's sister) and a man sit directly behind me, in seats that have been saved for them.
-- Trish Penny, Christine BJ, and another English woman have come to listen. They maybe know what's going on, it's not clear. Certainly there is a frosty feeling, and when we walk out and I insist I'm going to continue playing the piano, and play some Spanish flamenco at the next concert, Trish visibly grimaces.
+- Patricia, Christine BJ, and another English woman have come to listen. They maybe know what's going on, it's not clear. Certainly there is a frosty feeling, and when we walk out and I insist I'm going to continue playing the piano, and play some Spanish flamenco at the next concert, Patricia visibly grimaces.
 - When I get home that night, I check my camera security camera. 
 
 ![Screenshot of the security cam alarm pic](../../content/documents/evidence/12-march-alarm-notification.jpeg)
@@ -611,7 +611,7 @@
 
 ### `@1frgvn`
 
-- https://x.com/january_myth/status/1772034747775992249 -> the Taru Ann account, which may be sometimes run by Trish Penny retweets a post from 29th August 2023, around the time the hackers are revealing themselves. I don't remember seeing it at that time but I may have and it just didn't register as connected.
+- https://x.com/january_myth/status/1772034747775992249 -> the Taru Ann account, which may be sometimes run by Patricia retweets a post from 29th August 2023, around the time the hackers are revealing themselves. I don't remember seeing it at that time but I may have and it just didn't register as connected.
 
 ![Love poem](../../content/tweets/taru-ann-poem-2.png)
 
@@ -623,9 +623,9 @@
 - It's curious that she deleted the tweet from 12th June 2023.
 - She just deleted a tweet replied to me today (Friday 29th November) in a way to **call out** the fact that she deletes tweets from time to time, except she never did it before today (Friday 29th November).
 - I begin to suspect that whoever is managing the Taru Ann account could be well known to me.
-- On September 22nd, after weird communication from Trish Penny all summer, I wonder if Taru Ann is Trish from time to time by delegation: https://x.com/1FRGVN/status/1837596563557831058. The account likes my question in response. It could be anyone I guess but certainly someone involved somehow.
+- On September 22nd, after weird communication from Patricia all summer, I wonder if Taru Ann is Patricia from time to time by delegation: https://x.com/1FRGVN/status/1837596563557831058. The account likes my question in response. It could be anyone I guess but certainly someone involved somehow.
 
-![Could Trish be Taru Ann sometimes](../../content/tweets/trish-is-taru-ann.png)
+![Could Patricia be Taru Ann sometimes](../../content/tweets/trish-is-taru-ann.png)
 
 - https://x.com/1FRGVN/status/1764211138269422006
 - https://x.com/1FRGVN/status/1764210826007728603

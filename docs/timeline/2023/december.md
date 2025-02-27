@@ -69,10 +69,10 @@
 - I play some Bach: 
     - [Prelude](https://drive.google.com/file/d/1uciK2nH0yhWDLTMLR7zdDAJDivkmFHkY/view?usp=drive_link)
     - [Fugue](https://drive.google.com/file/d/1iGCjrTOu-spsz4GcQ4mndQ9bJLR3mIYE/view?usp=drive_link)
-- Trish Penny and Christine BJ come to the concert: I meet Christine from time to time for lunch so I guess I informed her about it then as I was still uninvited to hiking with the ladies!
-- After the concert, Christine, Trish, and I go for a drink in a bar nearby.
+- Patricia and Christine BJ come to the concert: I meet Christine from time to time for lunch so I guess I informed her about it then as I was still uninvited to hiking with the ladies!
+- After the concert, Christine, Patricia, and I go for a drink in a bar nearby.
 - We sit down and Christine says: "Why does someone always have to die?".
-- I start talking about the drama still going on. I probably say something like "I'm still in love". Trish looks upset. She leaves soon after.
+- I start talking about the drama still going on. I probably say something like "I'm still in love". Patricia looks upset. She leaves soon after.
 - Christine and I stay a bit longer for a talk.
 
 ## Christmas
@@ -120,7 +120,7 @@
 - I wonder now if they got high with whatever was in my car too.
 - It might be useful to track them down.
 - She was Finnish, he was German. She was much older than him.
-- Whenever I'm feeling a little bit paranoid, I wonder if she knew what was going on. There is a strong Finnish connection with the trumpet teacher, [something that Trish Penny said](../2022/march.md#conservatory-open-day) that first time we went walking and she was there. 
+- Whenever I'm feeling a little bit paranoid, I wonder if she knew what was going on. There is a strong Finnish connection with the trumpet teacher, [something that Patricia said](../2022/march.md#conservatory-open-day) that first time we went walking and she was there. 
 - She had a ukelele and sang Back to Black like I did in 2007 on Halloween.
 - She blinks weirdly at me while she's singing the song.
 

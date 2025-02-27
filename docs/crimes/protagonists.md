@@ -30,7 +30,7 @@
 - I do not believe this man's name is Vidal Sastre Sanchez Hornero, unless, of course, these criminal gangs are so arrogant and protected, they don't bother hiding themselves.
 - Symbols and memes related to him are horses, Trump.
 - He has a brother who may be a twin as they look nearly identical: the brother "made himself known to me" one evening when I walked through the tunnel during the intensive gang stalking in October 2023.
-- Trish Penny, when I asked her how she knew Vidal, said "who"? But it's clear she knows who this man is, and his brother.
+- Patricia, when I asked her how she knew Vidal, said "who"? But it's clear she knows who this man is, and his brother.
 - Investigators will know immediately who he is.
 - The whole town of Denia and beyond knows who he is.
 - Here he is playing the trumpet.
@@ -41,7 +41,7 @@
 
 ![Trumpet teacher and Gloria receptionist](../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
 
-## Trish Penny
+## Patricia
 
 
 

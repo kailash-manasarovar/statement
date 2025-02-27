@@ -74,7 +74,7 @@
         - Wesley Aguilar: a man who was clearly embarrassed about something as he could not look me in the eye. Had he seen the child rape porn I was in?
         - There were a few other volunteers who I did trust that I won't mention here.
 
-- I've since told So I don't trust her. I was warned about her on an [email from Trish Penny](../../content/documents/emails/trish-warning-about-So.png) on December 8th, 2024 (a significant date for me as everyone knows.)
+- I've since told So I don't trust her. I was warned about her on an [email from Patricia](../../content/documents/emails/trish-warning-about-So.png) on December 8th, 2024 (a significant date for me as everyone knows.)
 - I told her I didn't trust her. She since changed her profile with a message to me.
 
 ![so profile](../../content/images/so-profile.png)
