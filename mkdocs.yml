@@ -5,6 +5,7 @@ repo_name: Police statement
 
 theme:
   name: material
+  custom_dir: 'overrides'
   palette:
     # Palette toggle for light mode
     - scheme: default
