@@ -16,7 +16,7 @@
 
 ![lost access Taru Ann](../../content/images/lost-access-1.JPG)
 
-- Then two people like a post that is very suggestive of the situation. Zee and Luke would be references to old friends Zoe and Luke Braganza Jones from Denia.
+- Then two people like a post that is very suggestive of the situation. Zee and Luke would be references to old friends Zoe and Luke  from Denia.
 
 ![lost access Zee and Luke](../../content/images/lost-access-2.JPG)
 
