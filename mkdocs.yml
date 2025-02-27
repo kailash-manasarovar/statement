@@ -5,6 +5,7 @@ repo_name: Police statement
 
 theme:
   name: material
+  custom_dir: 'overrides'
   palette:
     # Palette toggle for light mode
     - scheme: default
@@ -134,6 +135,9 @@ nav:
     - Hacking: personal/hacking.md
   - Conclusion:
     - Theories: theories.md
+  - The novel:
+    - Fear and loathing in Las Marinas, Dénia: the-novel/book-cover.md
+    - Optional book covers: the-novel/optional-covers.md
 
 
 
