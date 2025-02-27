@@ -26,7 +26,7 @@ Nevertheless, a great many people have helped enrich criminals and there must be
 
 ## A summary of what happened with a start date of 2013
 
-1. Domingo singled me out as a good candidate for honey-trapping on the words of someone he knew, possibly Zoe Braganza Jones but more likely Hazel Smith in 2013/14.
+1. Domingo singled me out as a good candidate for honey-trapping on the words of someone he knew, possibly Zoe  Jones but more likely Hazel Smith in 2013/14.
 2. Domingo used Porsche to lure me into the conservatory as a student.
 3. Domingo arranged me to rent the flat I was in from September 2014 which may have had surveillance in the form of hidden cameras.
 4. I was hacked during that time and everything I did online was examined.
