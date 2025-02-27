@@ -1,6 +1,6 @@
 ## Conservatory open day
 
-- After one Saturday walking with the English ladies, including Christine Betterton Jones and Patricia (Patricia) Penny, where we were talking about music and my piano studies.
+- After one Saturday walking with the English ladies, including Christine and Patricia (Patricia) Penny, where we were talking about music and my piano studies.
 - I check the conservatory website when I get home and find there's an open day for new students.
 - I wonder now if the conversation was primed by Patricia maybe, and if she suggested I look at the website, or asked if I had.
 

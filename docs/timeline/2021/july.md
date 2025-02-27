@@ -21,7 +21,7 @@
 
 - I go to Dénia for my summer holiday. I wonder now if that was "suggested" online to me.
 - The day I leave I feel extremely unwell in a weird way, not sick exactly but nothing is working properly. Thinking back, it is rather like the poisoned feeling I have been having in Denia over the last 3 years.
-- When in Denia, I meet Christine Betterton Jones for lunch a couple of times. She's an old friend I used to walk with, and talk about my PhD with, years before. She tells me her views on trans ideology and I quietly agree.
+- When in Denia, I meet Christine for lunch a couple of times. She's an old friend I used to walk with, and talk about my PhD with, years before. She tells me her views on trans ideology and I quietly agree.
 - I share with her that I am a child sexual abuse survivor of a grooming gang. I also tell her that I probably would be trans and removing my breasts, womb, and ovaries had I been born 30 years later.
 - I tell Christine I have been suffering from a debilitating depression after reporting child sexual abuse to the Met Police in 2016.
 

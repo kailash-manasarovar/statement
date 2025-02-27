@@ -10,7 +10,7 @@
 
 - I was hiking with the English ladies every Saturday.
 - One of the last Saturdays in November, the 19th probably, we met at Benijembla, for a walk along the many trails around the village.
-- Christine Betterton Jones, Patricia (Patricia) Penny, and some of the others were there.
+- Christine, Patricia (Patricia) Penny, and some of the others were there.
 - Along the way we "bumped" into a small group of Spanish walkers, and Patricia stayed back for a while to talk to them. There were two men and a woman.
 - We all noticed Patricia wasn't with us at some point and Christine said she was talking with the Spanish people as she knew them.
 - Patricia reappeared at some point and we continued on.

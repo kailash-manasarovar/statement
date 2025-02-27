@@ -194,7 +194,7 @@
 ### Forwarded to Christine BJ
 
 - I don't trust the Generalitat anymore but I know how important to have documented proof of what's going on.
-- I forward [every communication I send to the GV to Chris Betterton Jones](../../content/documents/emails/Screenshot%202024-02-20%20at%2008.48.40.png).
+- I forward [every communication I send to the GV to Christine](../../content/documents/emails/Screenshot%202024-02-20%20at%2008.48.40.png).
 
 ## Twitter
 
