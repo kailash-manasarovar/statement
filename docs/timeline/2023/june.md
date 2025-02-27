@@ -119,7 +119,7 @@
 - As I leave class, I remind the trumpet teacher that the frog is a lucky frog and to look after it.
 - I walk out of the conservatory front door, and teachers and staff throw dirty water (I hope) onto me from an upstairs window (Ana Requena, the violin teacher's classroom actually). Their behavior reminds me of Carrie 1, the Stephen King horror novel.
 - I still have the silk t-shirt that they ruined with the stains on it.
-- As I walk home, I "bump" into Mercedes who I realize was waiting for me to walk the other way I go sometimes, the way she would have been more familiar with me going, and when she realized I'd gone a different way, she'd had to run. She was totally out of breath and trying to style it out. It was amusing to me.
+- As I walk home, I "bump" into Porsche who I realize was waiting for me to walk the other way I go sometimes, the way she would have been more familiar with me going, and when she realized I'd gone a different way, she'd had to run. She was totally out of breath and trying to style it out. It was amusing to me.
 - She was checking my face to see if I was crying. Perhaps she was recording it too.
 - I got home and went onto Twitter and tweeted something like "well that was a crappy ending wasn't it".
 - Suddenly, a huge number of people start to retweet my post and I discover I'm on a list of around 30 people and they're all laughing, jeering even, at what's happened.

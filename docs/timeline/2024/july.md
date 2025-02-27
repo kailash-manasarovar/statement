@@ -64,9 +64,9 @@
 - I masturbate and sometimes it feels like the trumpet teacher is in my head while this is happening. 
 - Comments on fake accounts talk about things that have happened with regards to my sexual arousal which people could *only* know if there were hidden cameras in my apartment.
 
-## I see Mercedes in the Carrefour
+## I see Porsche in the Carrefour
 
-- I go to the Carrefour and Mercedes is behind me in the queue.
+- I go to the Carrefour and Porsche is behind me in the queue.
 - She looks ashamed.
 - I put my thumbs up to the cashier who laughs.
 

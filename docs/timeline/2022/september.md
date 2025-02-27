@@ -23,10 +23,10 @@
 ### Piano
 
 - My teacher is Maria Hontanilla Alfonso. 
-- Mercedes Correas Lara is her student also. This doesn't make sense because Mercedes was in the first year in 2015-16, which means she should have finished her studies two years previously.
-- It's even more curious given that Mercedes has clearly done no practice in 6 years.
-- Whenever I go to class, Mercedes is finishing her class, and I wait 20/30 minutes while she eats into my class time (because she was late) before she leaves. 
-- Then Mercedes spends 10/15/20 minutes talking to her before she actually leaves. 
+- Porsche Correas Lara is her student also. This doesn't make sense because Porsche was in the first year in 2015-16, which means she should have finished her studies two years previously.
+- It's even more curious given that Porsche has clearly done no practice in 6 years.
+- Whenever I go to class, Porsche is finishing her class, and I wait 20/30 minutes while she eats into my class time (because she was late) before she leaves. 
+- Then Porsche spends 10/15/20 minutes talking to her before she actually leaves. 
 - Sometimes I'm left with 10 minutes of class. 
 - This is a weekly occurrence. 
 - I'm unable to stay later as I'm working and my hours aren't so flexible.

@@ -38,7 +38,7 @@
 - I went to the international choir concert and met all my old pals.
 - Paqui Fornet Pastor was there, my last piano teacher at the conservatory, someone very much involved in the bullying although I wasn't to know.
 - It was a concert where all the old members were invited to go and sing again.
-- Mercedes Correas had told me about it.
+- Porsche Correas had told me about it.
 - I met Klara Sarkadi and she spoke to me in a concerned way.
 - I got home that evening and got Covid.
 - I was in bed for about 3 days.
