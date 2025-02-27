@@ -1,1 +1,0 @@
-![book cover image](content/images/the-novel/cover.webp)
