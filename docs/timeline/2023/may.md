@@ -56,6 +56,14 @@
 - It really was my only transgression in all of this, but I was really angry. It was the only thing I felt at all guilty about, and only a tiny weeny bit. I was really only concerned that it might have upset Concha because I had mentioned her (not by name, no one by name).
 - I deleted the tweet on June 12th.
 
+## Possums
+
+- It was around this time I started to see Twitter posts related to possums. All the time.
+- Daily possum, Day of the possum, all sorts.
+- I have no interest in possums. I find them quite ugly.
+- This continues until October 2024 when I find out why.
+- It transpires that all these posts about possums that I see are specifically rendered on my account feed via root access to my machine.
+
 ## Next class
 
 - When I went back to the conservatory for chamber music class the next Monday, the whole atmosphere had changed.
