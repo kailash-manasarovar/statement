@@ -9,6 +9,13 @@
 
 - The message says: "Enjoy my homemade poison. The poison made by my own family..".
 
+## Is there a bible in the house?
+
+- I start to see continued X posts that refer to whether there is a "bible in the house".
+- This is usually written as a question.
+- I bought a bible during this time.
+- I believe someone was trying to warn me that the poison dose was going up and murder was the intention. Hence, a bible in the house for the priest to perform the last rights.
+
 ## Activity in apartment number 18 next door
 
 - The next door apartment is barely used. I've heard people in there maybe twice for no more than a week in nearly three years.
