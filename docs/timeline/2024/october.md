@@ -15,6 +15,7 @@
 - This is usually written as a question.
 - I bought a bible during this time.
 - I believe someone was trying to warn me that the poison dose was going up and murder was the intention. Hence, a bible in the house for the priest to perform the last rights.
+- These posts were in English and Spanish sometimes too.
 
 ## Activity in apartment number 18 next door
 
