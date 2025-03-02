@@ -34,7 +34,7 @@
 - I'm upset about this but people are people, and often can't be trusted to not share hurtful information.
 - I attempt to talk to Patricia in a friendly way to make amends, and I talk about my life.
 - She mentions a man, a British policeman, who lived near her who had really scary eyes.
-- It was weird and reminded me of a short story I had written for the writing club I used to go to in Dénia in 2007, which incidentally David the gay English teacher was also a member of.
+- It was weird and reminded me of a short story I had written for the writing club I used to go to in Dénia in 2007, which incidentally Dandy the gay English teacher was also a member of.
 - This was when I had started to write about child sexual abuse and grooming gangs in short-story form, and I had described one of the pedophiles with the exact words she used in our conversation.
 
 !!! note
