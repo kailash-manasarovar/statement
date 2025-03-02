@@ -60,7 +60,7 @@
 ![jctot19 latest](../../content/images/jctot19-latest.JPG)
 
 - He hasn't posted since the 15th January 2024, or he has deleted his posts from then.
-- The highlighted post from 9th January, mentioning the *chica*, appears to be referring to me. The account he is replying to is protected so I cannot see the conversation. The implication is that I am chasing him again and again. However, this is undoubtedly what he, Domingo, and their co-conspirators have been setting me up to *appear* to be doing.
+- The highlighted post from 9th January, mentioning the *chica*, appears to be referring to me. The account he is replying to is protected so I cannot see the conversation. The implication is that I am chasing him again and again. However, this is undoubtedly what he, Dominic, and their co-conspirators have been setting me up to *appear* to be doing.
 - This was after Christmas where I was extraordinarily high, flying is an understatement, and we have plenty of witnesses to that. I was exuberant. 
 - I look back and see I must have been drugged with something.
 - At that time, there were DM'ed conversations between myself and someone pretending to be him (the American account, Matthew). I relate all this in the [December 2023 section](../2023/december.md).
@@ -105,8 +105,8 @@
 - I believe that the `@jctot19` account is fundamentally a honey-trap account.
 - Is it possible I blew his cover and that is why the original tweets stopped on 15th January? I think it's highly likely given they shut everything down when I said [something that directly related to Winston May](january.md#galway).
 - Nevertheless, bizarrely, Google search results related to this account are still active. I notice the newer entries are coming from retweeted posts. I suspect the retweets are automated.
-- Carmen and Rocio Vidal still feature. Carmen is obviously Carmen Cano, Domingo's sister.
-- I post about [seduction techniques](../../evidence/manipulation.md) on Twitter: https://x.com/1FRGVN/status/1860132157890679006. Immediately, an account interacts with me that has a warning, and suggests the trumpet teacher has an alibi, and not to forget to cross examine Domingo (Camo).
+- Carmen and Rocio Vidal still feature. Carmen is obviously Carmen Cano, Dominic's sister.
+- I post about [seduction techniques](../../evidence/manipulation.md) on Twitter: https://x.com/1FRGVN/status/1860132157890679006. Immediately, an account interacts with me that has a warning, and suggests the trumpet teacher has an alibi, and not to forget to cross examine Dominic (Camo).
 
 ![Alibi](../../content/images/fake-accounts/dont-dare.png)
 
@@ -123,7 +123,7 @@
 - Please note my mind was so badly affected by all this over this year, it is quite hard for me to get everything together correctly, and I will need to cross check with hotel and travel schedules, and Twitter messages, but this will take some time.
 - I have completed up to January 2024 now, and fully drafted February 2024, so it's probably already enough to prove gang stalking, cyber stalking, and sexual grooming.
 - Hopefully I will be able to continue as best I can, but nothing would surprise me at this stage.
-- I believe I am continually targeted online by Domingo and Carmen Cano, Hazel Smith and her mother probably, and the trumpet teacher whoever he is.
+- I believe I am continually targeted online by Dominic and Carmen Cano, Hazel Smith and her mother probably, and the trumpet teacher whoever he is.
 
 ## Accessing the conservatory website
 

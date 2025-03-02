@@ -2,7 +2,7 @@
 
 - This account was likely Hazel, or her mum, as we had a long chat: https://x.com/1FRGVN/status/1785410648802734485.
 - The English on many of the stalker accounts was native. It could have been anyone in the region I suppose, except this account knew things that only myself and Hazel (or people who know her intimately) would know.
-- The account profile pic is the face of my chamber music teacher that year, Esteve, which means that Hazel must be connected to Domingo in some way.
+- The account profile pic is the face of my chamber music teacher that year, Esteve, which means that Hazel must be connected to Dominic in some way.
 - Esteve was a genuinely nice man in my opinion.
 
 ![Hazel](../../content/images/threats/hazel/choral-symphony.png)
@@ -60,7 +60,7 @@
 
 ![Beams clown](../../content/tweets/beams-clown.png)
 
-- This is a good example of the pattern of content coming from the various anonymous accounts that have interacted with me, which I know are related to the trumpet teacher and Domingo:
+- This is a good example of the pattern of content coming from the various anonymous accounts that have interacted with me, which I know are related to the trumpet teacher and Dominic:
     - Subtle threats of violence.
     - Subtle mentions of knowledge we share.
     - Trigger words and symbols, memes.

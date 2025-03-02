@@ -9,7 +9,7 @@
     - Genuine stalkers embroiled legit accounts into appearing to be stalkers.
 
 - Some I will point out as honey trap accounts; accounts used to lure people into a false sense of security and then, at some point, part with their money. 
-- Honey trap accounts double as stalkers given Domingo and the trumpet teacher's whole game is honey trap.
+- Honey trap accounts double as stalkers given Dominic and the trumpet teacher's whole game is honey trap.
 - Some of the stalker accounts will just be retweets, and I believe this is automated.
 
 !!! danger
@@ -61,7 +61,7 @@
 | ![ fake ]( ../content/images/fake-accounts/list/47.png ){width=50%} |  Stalker most likely. Possibly legit and/or duplicated/leached. |
 | ![ fake ]( ../content/images/fake-accounts/list/48.png ){width=50%} |  Stalker. Tweets on auto-regenerate by the looks. |
 | ![ fake ]( ../content/images/fake-accounts/list/49.png ){width=50%} |  Stalker. |
-| ![ fake ]( ../content/images/fake-accounts/list/50.png ){width=50%} |  Bonafide stalker and honey trapper. Often thought this was Domingo or Samuel. |
+| ![ fake ]( ../content/images/fake-accounts/list/50.png ){width=50%} |  Bonafide stalker and honey trapper. Often thought this was Dominic or Samuel. |
 | ![ fake ]( ../content/images/fake-accounts/list/53.png ){width=50%} |  Bonafide stalker and honey trapper. |
 | ![ fake ]( ../content/images/fake-accounts/GZ69WCMXQAEQdzB.png ){width=50%} |  Ana Requena modeling. |
 | ![ fake ]( ../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png ){width=50%} | Esteve the chamber music teacher.  |

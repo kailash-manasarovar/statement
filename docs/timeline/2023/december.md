@@ -7,7 +7,7 @@
 
 ![Rotten brother](../../content/tweets/rotten-brother.png)
 
-- The Mary G Lamarche account had been signalled on Google search results previously. I believe it is a hacker (honey trap, gang-stalker) account and possibly Domingo or his sister are behind it.
+- The Mary G Lamarche account had been signalled on Google search results previously. I believe it is a hacker (honey trap, gang-stalker) account and possibly Dominic or his sister are behind it.
 - I guess I'm supposed to believe it is the trumpet teacher.
 
 ## Muscle men outside the tunnel
@@ -197,7 +197,7 @@ Many of these tweets are confirmation of what has been going on.
 - https://x.com/1FRGVN/status/1741043648815653352 -> always questioning them.
 - https://x.com/1FRGVN/status/1741012146736291935 -> I don't understand the strawberries (the overwhelming sexual feelings). I never once consider I'm being drugged. It's just too evil to enter my mind.
 - https://x.com/1FRGVN/status/1740889587545751848 -> tweet about the Finnish lady who played Back 2 Black.
-- https://x.com/1FRGVN/status/1740812188800188865 -> the Romina account had been messing with me since April 2022. I had no idea it was connected to Domingo and the gang stalking but clearly it was, and I was starting to realize how long I had been stalked for. https://x.com/whoawmina
+- https://x.com/1FRGVN/status/1740812188800188865 -> the Romina account had been messing with me since April 2022. I had no idea it was connected to Dominic and the gang stalking but clearly it was, and I was starting to realize how long I had been stalked for. https://x.com/whoawmina
 - https://x.com/1FRGVN/status/1740837494638415890 -> responding to stalkers.
 - https://x.com/1FRGVN/status/1740831827743670449
 - https://x.com/1FRGVN/status/1740715260791697873 -> food poisoning.

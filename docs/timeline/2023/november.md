@@ -1,7 +1,7 @@
 ## Conservatory
 
 - Classes continue.
-- Choir class is full of threats towards me via suggestive scores, Nacho popping his nose in all the time and looking at me, discussions about trumpets, mentions of Vidal and how I'm thinking about him, Domingo's students asking me ridiculous things, the choir teacher being offensive towards me in Valenciano which I don't understand, comments from the children which seem weird, for example about my name, and other stuff.
+- Choir class is full of threats towards me via suggestive scores, Nacho popping his nose in all the time and looking at me, discussions about trumpets, mentions of Vidal and how I'm thinking about him, Dominic's students asking me ridiculous things, the choir teacher being offensive towards me in Valenciano which I don't understand, comments from the children which seem weird, for example about my name, and other stuff.
 - The choir teacher makes fun of my name somehow, I don't understand the joke. This goes on continually and even concerns some of the kids.
 - The French horn player, an adult woman who sits beside me, is involved. She waits at the stairs to see my reaction to Nacho as he passes by me one evening after class. When I grimace, she is satisfied and leaves.
 - I'm anxious, a lot, in choir class.
@@ -118,8 +118,8 @@ Many of these tweets are confirmation of what has been going on.
 
 ### @1frgvn
 
-- https://x.com/1FRGVN/status/1730335228047056929 -> Domingo's dad is (apparently) a car dealer, he told me in 2014, so I'm literally unable to get my car fixed anywhere without possible ridiculousness occurring.
-- https://x.com/1FRGVN/status/1730325008625398153 -> the `@g_lamarche` account is likely Domingo and came up on the Google search for `@jctot19` at some point to inform me of it.
+- https://x.com/1FRGVN/status/1730335228047056929 -> Dominic's dad is (apparently) a car dealer, he told me in 2014, so I'm literally unable to get my car fixed anywhere without possible ridiculousness occurring.
+- https://x.com/1FRGVN/status/1730325008625398153 -> the `@g_lamarche` account is likely Dominic and came up on the Google search for `@jctot19` at some point to inform me of it.
 - https://x.com/1FRGVN/status/1729784281482907991 -> Carrie 2 in reference to June 12 Carrie 1.
 - https://x.com/1FRGVN/status/1729385938495602851 -> concern about what they're planning for me.
 - https://x.com/1FRGVN/status/1728892631047168442

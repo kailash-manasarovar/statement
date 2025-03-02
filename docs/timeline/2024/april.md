@@ -214,7 +214,7 @@
     - It has the same eagle trigger, and Hebrew language as the one just mentioned.
     - I'm not sure if it is the same account. It could be.
     - The pinned thread on the timeline references a person targeted by someone who he had trusted, and had sex with, and was consequently stalked and filmed by secret cameras.
-    - I assume this is to suggest the trumpet teacher was targeted by Domingo who has been blackmailing him in some way since then.
+    - I assume this is to suggest the trumpet teacher was targeted by Dominic who has been blackmailing him in some way since then.
     - The account is here: https://x.com/Cr7Rival3711.
     - The pinned message is translated here:
 

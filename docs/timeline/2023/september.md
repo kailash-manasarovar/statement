@@ -2,7 +2,7 @@
 
 - There had been some suggestion something awful was going to happen to me on the 4th September at home in Spain, possibly that I would be arrested but I didn't know what for.
 - The way this happened was exactly the same way I knew something threatening was going to happen on the 12th June, i.e. tweet manipulation.
-- I innocently assumed it would be something to do with my angry tweets about Domingo from May that I had deleted, and related to my views on trans.
+- I innocently assumed it would be something to do with my angry tweets about Dominic from May that I had deleted, and related to my views on trans.
 - I realized that there had been a girl who thought she was a boy at the conservatory and her name was indeed Silvia.
     - https://x.com/1FRGVN/status/1697905359208296533
     - https://x.com/1FRGVN/status/1698121721457365343
@@ -47,7 +47,7 @@
 - I tell Pedro about being bullied by the conservatory.
 - Instead, I take it to a garage in Javea who make me wait all day and do nothing at all, and charge me for it too.
 - I realize I cannot take my car to any garage within about 100 miles radius, or more.
-- Domingo's dad is in the car business and I wonder if I met him in 2012 when I had a flat battery when I lived in the Passeig Periodista Ramon Ortega.
+- Dominic's dad is in the car business and I wonder if I met him in 2012 when I had a flat battery when I lived in the Passeig Periodista Ramon Ortega.
 
 ## The water pipes
 
@@ -230,7 +230,7 @@ Many of these tweets are confirmation of what has been going on.
 - https://x.com/1FRGVN/status/1707677154933129696
 - https://x.com/1FRGVN/status/1707672863283556809
 - https://x.com/1FRGVN/status/1707312762928382375 -> reference to the horses which kept popping up on my Twitter all over the summer.
-- https://x.com/1FRGVN/status/1707151247059321125 -> actual comms. Bryan Ferry is a reference to Nacho the clarinet teacher and Domingo is the inverted magician.
+- https://x.com/1FRGVN/status/1707151247059321125 -> actual comms. Bryan Ferry is a reference to Nacho the clarinet teacher and Dominic is the inverted magician.
 - https://x.com/1FRGVN/status/1706957895466713193
 - https://x.com/1FRGVN/status/1706609205908476079
 - https://x.com/1FRGVN/status/1704911917687382423
@@ -262,7 +262,7 @@ Many of these tweets are confirmation of what has been going on.
 
 ### @JackChardwood
 
-- https://x.com/JackChardwood/status/1704386000493887568 -> Smurf Cat. Donnie boy is what I call the engineer I believe Domingo's family have hired to hack me because of the constant references to Donatella and mutant ninja turtles.
+- https://x.com/JackChardwood/status/1704386000493887568 -> Smurf Cat. Donnie boy is what I call the engineer I believe Dominic's family have hired to hack me because of the constant references to Donatella and mutant ninja turtles.
 - https://x.com/JackChardwood/status/1703692928298688664 -> I offer the hackers a job.
 - https://x.com/JackChardwood/status/1703854346356560226 -> pheromone sprays in reference to how I felt in class next to the trumpet teacher.
-- https://x.com/JackChardwood/status/1697527520285855934 -> In reference to how mean with money Domingo was.
+- https://x.com/JackChardwood/status/1697527520285855934 -> In reference to how mean with money Dominic was.

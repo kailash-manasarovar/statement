@@ -1,7 +1,7 @@
 ## Poison warnings
 
 - I start to see references (warnings?) about poisoning.
-- The reference to gay men and muscle men here makes me think of Domingo.
+- The reference to gay men and muscle men here makes me think of Dominic.
 
 ![referencing poison](../../content/images/targeted-women/car-woman/7.png)
 ![translation](../../content/images/translated-poison.png)
@@ -144,7 +144,7 @@
 
 - I really feel like I'm being poisoned over this week in my flat, and quite intensely too.
 - Someone wants me to get seriously sick and/or possibly die.
-- If my dad did not have an accident on the 1st of November, and I had to rush back to London, I believe that Domingo's family may have made good on their threats and killed me via poisoning.
+- If my dad did not have an accident on the 1st of November, and I had to rush back to London, I believe that Dominic's family may have made good on their threats and killed me via poisoning.
 - I take some samples of water and items related to the air vents to London in the hope that the police will one day find things serious enough to investigate and I will have evidence for them to analyze.
 - There is another warning and condemnation about poisoning given via a fake account on Halloween night, the 1st November.
 

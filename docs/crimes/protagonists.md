@@ -1,13 +1,13 @@
 !!! tip
     - See the [list of teachers here](../timeline/early-years/2015.md#first-class-of-january) and their twitter (fake) account pics.
 
-## Domingo and Carmen Lopez Cano
+## Dominic and Carmen Lopez Cano
 
 - Key figures in the attacks.
 - Given their name relates to all things canine and wolverine, any reference online to dogs, particularly when it also is content of a threatening or abusive nature, is interesting and suggests it is coming from them and their family.
 - Dogs feature constantly in the online harassment and threats.
 
-![Domingo lookalike or AI mix](../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
+![Dominic lookalike or AI mix](../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
 
 ### Carmen Cano
 

@@ -7,8 +7,8 @@
 - As I'm walking around to room 5 where the concert will take place in the conservatory building, Ana Girbes asks me, "are you alright?". I have no idea why she would ask me this.
 
 !!! danger "Critical update of 5th December 2024"
-    - Domingo will have requested her to say this to me.
-    - This was part of my police statement to the police in 2014 and Domingo and his associates will suspect this will upset me.
+    - Dominic will have requested her to say this to me.
+    - This was part of my police statement to the police in 2014 and Dominic and his associates will suspect this will upset me.
     - There are more of these events.
 
 !!! danger "Critical update of 5th December 2024"
@@ -51,8 +51,8 @@
 - I went masked up.
 - I was thinking, with all this Twitter communication, he must talk to me, so I will go.
 - He didn't talk to me.
-- I was angry and posted an angry tweet about Domingo and his group of followers, and how it is extremely weird that the adult men are hanging out with 14 year old girls, that it's appalling he's able to get them to bully the choir teacher, etc.
-- I tweeted that Domingo is "probably a trans woman".
+- I was angry and posted an angry tweet about Dominic and his group of followers, and how it is extremely weird that the adult men are hanging out with 14 year old girls, that it's appalling he's able to get them to bully the choir teacher, etc.
+- I tweeted that Dominic is "probably a trans woman".
 - It really was my only transgression in all of this, but I was really angry. It was the only thing I felt at all guilty about, and only a tiny weeny bit. I was really only concerned that it might have upset Concha because I had mentioned her (not by name, no one by name).
 - I deleted the tweet on June 12th.
 
@@ -78,17 +78,17 @@
 
 - I used to walk from the conservatory to the tunnel after harmony class with Samuel Viciano Herranz on the way home. We did that every class that school year 2022-2023.
 - We would chat about stuff. His English was good.
-- You may remember I told you he had been studying singing at [Javea conservatory](../2022/september.md#harmony) and had changed to do piano and study with Domingo and it was never really clear why. His singing voice was great and he was too old to be studying piano again.
+- You may remember I told you he had been studying singing at [Javea conservatory](../2022/september.md#harmony) and had changed to do piano and study with Dominic and it was never really clear why. His singing voice was great and he was too old to be studying piano again.
 - He was planning on becoming an English teacher. He kept telling me about the English teacher's course he was going to do over the summer online.
 - He took pains to tell me how embarrassed he was his parents had paid for it.
 
 !!! danger "Back handers?"
     - I really do wonder who paid for it now.
-    - Did Samuel rearrange his whole life at Domingo's request so he could sit by me and talk to me in English every week at class.
+    - Did Samuel rearrange his whole life at Dominic's request so he could sit by me and talk to me in English every week at class.
     - Did Samuel require something in return for doing that.
 
-- On this particular evening, we walked home together and he constantly texted on his WhatsApp, as if he was repeating everything I said to someone. Domingo of course.
-- He also mentioned, bizarrely and repeatedly, a black man in a TV show and I believe he was referring to the `@AllyBrisket` account and suggesting it was Domingo.
+- On this particular evening, we walked home together and he constantly texted on his WhatsApp, as if he was repeating everything I said to someone. Dominic of course.
+- He also mentioned, bizarrely and repeatedly, a black man in a TV show and I believe he was referring to the `@AllyBrisket` account and suggesting it was Dominic.
 
 !!! danger "Did the harmony teacher know I was being poisoned at home"
     - One class this month, the harmony teacher was marking homework. Only myself and Sofia Matyash Piyankova were at class.

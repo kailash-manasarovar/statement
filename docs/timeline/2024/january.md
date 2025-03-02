@@ -24,13 +24,13 @@
 - I end up blocking this person because it's just so weird but I think if you believe the lie, even a tiny bit, 10%, they have a hold over you. I believed it a little.
 - And, of course, who wouldn't be influenced by love and a potential relationship, being with someone you believe you really like, even if it is manufactured and fake?
 
-## Lucia in the dark room with Domingo
+## Lucia in the dark room with Dominic
 
-- Every time I go to the conservatory some psycho-emotional torture awaits me. Domingo is always behind everything, orchestrating, directing everyone.
-- One Monday evening as I'm leaving class, I notice Domingo standing in the doorway of one of the teaching rooms beside where my class took place.
-- He looks at me meaningfully and menacingly and, as I walk past the open classroom door, I notice, in the darkened room with no lights on, Lucia, the minor, Domingo's student, looking out at me.
+- Every time I go to the conservatory some psycho-emotional torture awaits me. Dominic is always behind everything, orchestrating, directing everyone.
+- One Monday evening as I'm leaving class, I notice Dominic standing in the doorway of one of the teaching rooms beside where my class took place.
+- He looks at me meaningfully and menacingly and, as I walk past the open classroom door, I notice, in the darkened room with no lights on, Lucia, the minor, Dominic's student, looking out at me.
 - It's all set up to make me think something is going on.
-- And yet, the thing I'm supposed to think, which Domingo can ensure no-one tells anyone about - because look what happens to people who are concerned about the safety of minors in the conservatory system - *is* actually happening.
+- And yet, the thing I'm supposed to think, which Dominic can ensure no-one tells anyone about - because look what happens to people who are concerned about the safety of minors in the conservatory system - *is* actually happening.
 - It's only a matter of time before the world finds out about the mass spy-cam porn voyeurism in Denia that includes violent sex crimes and the preparing of its future stars and where they come from.
 - The moment a victim feels safe enough to speak, and people are listening without wanting to murder them, there will be a tsunami of speakers, males and females. It's the same everywhere in the world.
 
@@ -54,9 +54,9 @@
 
 - I'm still extraordinarily high from Christmas.
 - I head to Ireland on 10th January for my therapy course once again.
-- When I inform the choir teacher I will be away, he says, "as long as you're not going away for the weekend with your boyfriend", referring to what Domingo had got [his student Elsa](../2023/october.md#gang-stalking) to ask me. He says this every time I have to tell him I'm going to skip a class.
+- When I inform the choir teacher I will be away, he says, "as long as you're not going away for the weekend with your boyfriend", referring to what Dominic had got [his student Elsa](../2023/october.md#gang-stalking) to ask me. He says this every time I have to tell him I'm going to skip a class.
 - I open an anonymous account on Twitter, follow `@jctot19` on it, and post solely to my timeline without interacting with his account directly at all.
-- A post from him on 9th January, which I have only just seen at the time of writing (November 2024), mentions a *chica* and it appears to be referring to me. If so, the implication is that I am chasing him again and again. However, this is undoubtedly what he, Domingo, and their co-conspirators have been setting me up to *appear* to be doing.
+- A post from him on 9th January, which I have only just seen at the time of writing (November 2024), mentions a *chica* and it appears to be referring to me. If so, the implication is that I am chasing him again and again. However, this is undoubtedly what he, Dominic, and their co-conspirators have been setting me up to *appear* to be doing.
 - I wonder if this is how they defend themselves if anyone dares accuse them of sexual coercion/grooming and fraud-related matters. They say, oh she was obsessed with me. Well duh, yeah. You might well get obsessed with someone who drugs you and seduces you.
 - The first post I saw on his timeline, on 10th January, was an angel climbing a ladder to heaven, so I continued.
 - I posted about my therapy, and looked on his timeline for responses, as before.
@@ -107,13 +107,13 @@
     - Curiously, this was also part of my child sexual abuse statement to the police when I described what the pedophile had done to terrorize me and make me too afraid to say no.
     - He would be furiously angry with me, and then be kind, and then be angry again, and repeat, sometimes this was within seconds.
     - It was devastating to my mind and emotional stability and my body still reacts strongly to this sort of thing, even though inside I'm relatively calm.
-    - I wonder did the two Ana's know about this, or were they simply taking instruction from Domingo who knew tactics like this would destabilize me because he had read the statement himself.
+    - I wonder did the two Ana's know about this, or were they simply taking instruction from Dominic who knew tactics like this would destabilize me because he had read the statement himself.
 
 ## Conservatory women
 
-- At some point, I told Paqui that Domingo and his associates were terrorizing me. 
+- At some point, I told Paqui that Dominic and his associates were terrorizing me. 
 - It was just before a piano concert at the social centre in Denia in January 2024 which the students of the conservatory are usually invited to. She asked me was I going to go, and I asked her if it was safe for me to go.
-- She seemed alarmed at my question which is when I told her I was being terrorized by men, Domingo and others.
+- She seemed alarmed at my question which is when I told her I was being terrorized by men, Dominic and others.
 - I believe I can trust her at that point, at least a little bit.
 - I had no idea she was 100% involved.
 - Furthermore, as well as the two Ana's, Katia the singer is also angry with me in my chamber music class. I feel it is all very unfair. 
@@ -137,7 +137,7 @@
 - A few mornings later, when I'm practicing, Nacho pops his head into my room and says sorry and then disappears again.
 - I find it very weird and tweet about it. Something banal like, "hmm interesting", but they will know what I was referring to.
 - The next choir class, Nacho continues to be part of the bullying and threats. 
-- I see him interacting with all the young girls (Domingo's students) after class, and they're all saying "coffee" really loudly as he asks them if they'll "go for a coffee".
+- I see him interacting with all the young girls (Dominic's students) after class, and they're all saying "coffee" really loudly as he asks them if they'll "go for a coffee".
 - I ask Samuel what's going on, why are they saying "coffee" loudly, and he says, oh it's just a game.
 
 ## Nacho follows me around town
@@ -194,10 +194,10 @@
 - It's 3 months since I wrote the [original letter of complaint](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf) to which I never received any reply.
 - I mention buying a new phone in the email to the Generalitat, which I did, which was expensive, an iPhone 14 as suggested by someone at work. They hacked into it pretty much immediately.
 
-### Domingo demonstrates his control of women again
+### Dominic demonstrates his control of women again
 
 - The following day, I'm going to practice the piano at the conservatory.
-- As I'm going up the stairs, Domingo is coming down the stairs and he's sort of behind and semi-forcing this woman down along with him at his pace, like frogmarching. They are closely connected.
+- As I'm going up the stairs, Dominic is coming down the stairs and he's sort of behind and semi-forcing this woman down along with him at his pace, like frogmarching. They are closely connected.
 - It reminds me of how the man forces [the woman in the tunnel](../2023/november.md#tonya) along whenever I see them.
 - The woman looks mix-raced and I wonder if she is the German ex-girlfriend he mentioned back in 2014 although I would have expected her to be older, maybe.
 - It's a demonstration for my benefit. I'm not impressed.

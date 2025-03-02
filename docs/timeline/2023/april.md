@@ -33,8 +33,8 @@
 
 !!! important
     - As well as being out of my mind with "love", I also told my friend that there was another explanation for what was going on.
-    - I detailed to her my suspicions with regards to Domingo being behind a plot to humiliate me, and everything that had happened previously.
-    - However, the feelings were so intense, I could not believe, at that time, Domingo could be behind them too.
+    - I detailed to her my suspicions with regards to Dominic being behind a plot to humiliate me, and everything that had happened previously.
+    - However, the feelings were so intense, I could not believe, at that time, Dominic could be behind them too.
     - I thought they were genuine feelings.
     
 ## Novena
@@ -106,7 +106,7 @@
     - I wonder if Maria was referring to Paqui's expressed desire that I kill myself, perhaps.
 
 - Anyway, around this time, Maria is very stressed about the next year's assigned work from the Generalitat and keeps talking about how she is probably going to get a job at the superior conservatory in Valencia.
-- Knowing what I know now, it seems to me this would require some "enchufe", meaning a level of benevolence from those who can pull strings; i.e. Domingo.
+- Knowing what I know now, it seems to me this would require some "enchufe", meaning a level of benevolence from those who can pull strings; i.e. Dominic.
 
 !!! info "Supplemental"
     - Maria has been extremely stressed with regards to me getting my Spanish medical card.

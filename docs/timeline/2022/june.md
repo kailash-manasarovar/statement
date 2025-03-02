@@ -14,17 +14,17 @@
 
     - What could this possibly mean? 
     - Is she the go to person for kids who are struggling with emotions during their studies, or those that are being bullied?
-    - If the girls start feeling anxious and stressed, do they go to her so that she, in turn, informs Domingo or one of his cohort who might be worth targeting?
+    - If the girls start feeling anxious and stressed, do they go to her so that she, in turn, informs Dominic or one of his cohort who might be worth targeting?
     - I'm extremely concerned about this given her behavior with me which was wholly supportive of, and played an integral part in, bullying me at the conservatory, and wholly supportive of sexual grooming online, at a minimum.
 
-### Maria and Domingo
+### Maria and Dominic
 
 - I go upstairs. Maria Hontanilla is standing outside a piano room and we meet and say hello.
 - I realize now all this has been set up prior.
-- Maria and I are talking and then Domingo comes up the stairs. Two young female students are with him, minors of about 12 or 13 years old.
+- Maria and I are talking and then Dominic comes up the stairs. Two young female students are with him, minors of about 12 or 13 years old.
 - He goes to talk to Maria and the students are asking me questions. They are behaving oddly.
 - They are sort of nervous, giggly, and excited when I speak to them. It's weird and, now, extremely concerning.
-- Domingo leaves.
+- Dominic leaves.
 - Maria offers to help me with the audition and at some point suggests she is my teacher.
 - It's all a bit contrived but I agree.
 
@@ -32,6 +32,6 @@
 
 - I go to the audition and pass it.
 - I'm scheduled to join for the third year professional studies in September.
-- At the audition, Domingo's female students are hanging around helping everyone. He's clearly told them to dress the same, and this includes hot pants and skimpy tops. The girls are 14 or 15 years old.
+- At the audition, Dominic's female students are hanging around helping everyone. He's clearly told them to dress the same, and this includes hot pants and skimpy tops. The girls are 14 or 15 years old.
 - He tells the girls to go and talk to people, and they mill around talking to parents.
 - His control over them is a bit embarrassing and I wonder if he's doing it to "show me" how much he controls them.
