@@ -89,7 +89,7 @@
 ## Baby Jo
 
 - I'm followed by a crypto meme coin account on Twitter: https://x.com/BabyJoeERC.
-- Lorraine's son is called Joe and I taught him piano when he was 12 or 13. We had a great time too.
+- Elaine's son is called Joe and I taught him piano when he was 12 or 13. We had a great time too.
 - On Facebook, there's a lovely picture of Joe as a baby with his dummy in: https://www.facebook.com/photo/?fbid=10200343206052070&set=ecnf.1512218809.
 - I believe the account and meme coin was created to terrorize me, but they might have tried to make it into something.
 

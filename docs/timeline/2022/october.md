@@ -42,4 +42,4 @@
 
 ## Halloween
 
-- On the run up to Halloween I notice that, outside my flat and in full view from the window, an effigy is hanging off a lamppost. It feels sinister, especially considering Lorraine Blackbourn hung herself.
+- On the run up to Halloween I notice that, outside my flat and in full view from the window, an effigy is hanging off a lamppost. It feels sinister, especially considering Elaine Black hung herself.

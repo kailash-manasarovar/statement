@@ -28,30 +28,30 @@
 !!! info
     - The main reason I'm elaborating so much on my state of mind prior to rejoining the conservatory in September 2022 is to give a backdrop as to why I may not have been in a good position to ascertain immediately that I was being medicated/drugged without my knowledge or consent.
 
-### Lorraine Blackbourn 
+### Elaine Black 
 
-- Lorraine Blackbourn killed herself the week I visited and her funeral was on or around the day I arrived. 
+- Elaine Black killed herself the week I visited and her funeral was on or around the day I arrived. 
 
 !!! danger "Astonishing timing"
-    - I now believe Lorraine was targeted online like I was using NLP and sentiment manipulation.
+    - I now believe Elaine was targeted online like I was using NLP and sentiment manipulation.
     - I believe she was driven to suicide.
     - I don't know why she would have been targeted, but the timing of it is really interesting given my experiences. 
     - Is there something even more sinister going on in Denia than just the regular porn gang epidemic activity?
     - I also wonder now if she was being drugged/poisoned.
 
-- Lorraine was a British woman I used to work for in Dénia. She ran the English Studio academy there. 
+- Elaine was a British woman I used to work for in Dénia. She ran the English Studio academy there. 
 - I had previously disconnected from everyone I knew because I was so suicidal. It didn't seem fair to keep people close. I was also finding it extremely difficult to relate to people because of my experiences.
-- For these reasons, I wasn't in touch with anyone in Denia and I didn't know Lorraine had died by suicide until nearly a year later when I bumped into someone who told me. I had assumed Lorraine's death was due to illness.
+- For these reasons, I wasn't in touch with anyone in Denia and I didn't know Elaine had died by suicide until nearly a year later when I bumped into someone who told me. I had assumed Elaine's death was due to illness.
 
-!!! warning "Concerns about Lorraine's untimely death"
-    - I'm concerned now that Lorraine's may have been driven to suicide, in the same way gang stalkers clearly wanted my life to end.
-    - Fake and stalker accounts on Twitter often mentioned Lorraine in relation to stalking and "whistle-blowing", a reference I didn't understand, and still don't. Maybe law enforcement will understand what this means better.
+!!! warning "Concerns about Elaine's untimely death"
+    - I'm concerned now that Elaine's may have been driven to suicide, in the same way gang stalkers clearly wanted my life to end.
+    - Fake and stalker accounts on Twitter often mentioned Elaine in relation to stalking and "whistle-blowing", a reference I didn't understand, and still don't. Maybe law enforcement will understand what this means better.
     - The account below had been following me for some time around March 2024 when I finally left my studies at the conservatory due to being afraid for my life.
     - This account ran gang-stalking harassment interactions with me, with the help of some of the other accounts. I found the name and content choices interesting.
 
-    ![Lorraine tortured whistle-blower](../../content/images/fake-accounts/Screenshot 2024-03-08 at 08.34.02.png)
+    ![Elaine tortured whistle-blower](../../content/images/fake-accounts/Screenshot 2024-03-08 at 08.34.02.png)
 
-    ![Lorraine stalker post](../../content/images/fake-accounts/lorraine%20account.png)
+    ![Elaine stalker post](../../content/images/fake-accounts/lorraine%20account.png)
 
     - The account is now deleted.
 

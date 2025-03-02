@@ -10,7 +10,7 @@
     - In retrospect, it seems highly likely they would have known the full implications for me as a target.
     - Given that everyone knew I had been suicidally depressed, either because I shared the information with them personally (Christine BJ and Maria Hontanilla who I had trusted), or because they had access to my Twitter account very early on, one must assume that an attack like this would have as its main intention the suicide of the victim or total nervous breakdown.
     - Given the efficiency and skill of the attack, and its elaborate nature, one must ask how many local suicides may be explained by gang stalking.
-    - I cannot help wonder about what led Lorraine Blackbourn to kill herself, a mother of three with a successful local business. Anyone I asked about that always mentioned her "macho" boyfriend and at the root of my experiences is an undeniable and very vicious misogyny. I mention this in a [previous section](../2021/july.md#lorraine-blackbourn) with reference to cyber stalking and harassment on Twitter.
+    - I cannot help wonder about what led Elaine Black to kill herself, a mother of three with a successful local business. Anyone I asked about that always mentioned her "macho" boyfriend and at the root of my experiences is an undeniable and very vicious misogyny. I mention this in a [previous section](../2021/july.md#elaine-black) with reference to cyber stalking and harassment on Twitter.
 
 ## Documentation
 
@@ -37,7 +37,7 @@
 - The teacher is Adrià Gil Boronat, an erratic and extremely nervous man in his fifties.
 - One of my classmates is Samuel Viciano Herranz who has near perfect English. He is Domingo's student.
 - Samuel was studying singing at the Javea conservatory but moved to study piano in Dénia instead. It's not clear why.
-- Samuel tells me he used to be a student of Lorraine Blackbourn. I cry when he tells me this and have to leave the room. This is not like me normally.
+- Samuel tells me he used to be a student of Elaine Black. I cry when he tells me this and have to leave the room. This is not like me normally.
 - Elvira Valdivia Escribano is also in this class. She is a minor child and she is Domingo's student also.
 - Elvira has a sister, Lucía, in the year above who is also Domingo's student.
 

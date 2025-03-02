@@ -7,7 +7,7 @@
 
 ### Joe's mom
 
-- Of course, Joe's mom, to me, is Lorraine Blackbourn. 
+- Of course, Joe's mom, to me, is Elaine Black. 
 - This account pops up and likes significant posts from the past from time to time.
 - I wonder about it.
 

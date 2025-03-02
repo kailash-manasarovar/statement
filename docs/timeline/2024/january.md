@@ -154,7 +154,7 @@
 - I now wonder if I was being spiked by something anxiety-forming at this time but perhaps the behavior of teachers, staff, and students at the conservatory during this period is enough to explain the anxiety I'm feeling.
 - This anxiety grows until, probably, June when I'm in Lourdes and then head back to the UK for a few weeks. From February to May it is overwhelming. It is still not nearly as bad as the anxiety I experienced after reporting child sexual abuse to the police, however.
 - Everything that's going on is extraordinarily evil and I can hardly believe it.
-- I often wonder how many others have been targets like me. Undoubtedly loads. I wonder as well how many of those targets ended up in prostitution or porn, and if they were targeted as minors, or if they ended up having nervous breakdowns or killing themselves. I can't help but think about Lorraine.
+- I often wonder how many others have been targets like me. Undoubtedly loads. I wonder as well how many of those targets ended up in prostitution or porn, and if they were targeted as minors, or if they ended up having nervous breakdowns or killing themselves. I can't help but think about Elaine.
 
 ## Dick pics from the choir master
 

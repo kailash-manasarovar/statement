@@ -223,11 +223,11 @@
 - Before we begin, people are coming in to listen. Many of them look at me and smile.
 - I recognize a couple as [two people I saw on the beach](../2023/september.md#people-on-the-beach) following me and part of the group of people making sexual noises the September previous.
 - At 7.30, the concert begins.
-- At that moment, the lights go down, and the door to the hall opens, and in walks a woman who has dressed to look exactly like Lorraine Blackbourn, my friend who committed suicide.
+- At that moment, the lights go down, and the door to the hall opens, and in walks a woman who has dressed to look exactly like Elaine Black, my friend who committed suicide.
 - She has done a really good job of it too. 
 - I gasp.
 - At precisely that moment, my security camera at home goes off and sounds an alarm on my phone. I don't have time to look.
-- The woman dressed as Lorraine (who I now believe to be Carmen Cano, Domingo's sister) and a man sit directly behind me, in seats that have been saved for them.
+- The woman dressed as Elaine (who I now believe to be Carmen Cano, Domingo's sister) and a man sit directly behind me, in seats that have been saved for them.
 - Patricia, Christine BJ, and another English woman have come to listen. They maybe know what's going on, it's not clear. Certainly there is a frosty feeling, and when we walk out and I insist I'm going to continue playing the piano, and play some Spanish flamenco at the next concert, Patricia visibly grimaces.
 - When I get home that night, I check my camera security camera. 
 
@@ -315,7 +315,7 @@
 
 - I believe today the dose of anxiety causing substances was increased at my flat because I began to be extraordinarily stressed and scared the night of the 13th, probably after drinking a large mug of tea.
 - Given that I was not fearful after the ridiculous piano concert on the 12th, and went to choir on the 13th, it seems reasonable to suppose I was relatively unaffected by this choreographed terror, perhaps I was getting used to it.
-- However, the link to Lorraine Blackbourn was extremely sinister and got to me.
+- However, the link to Elaine Black was extremely sinister and got to me.
 - Eventually, I text and tweet to everyone that I would never commit suicide and, if I turn up dead and it looks like I did, it's suspicious: https://x.com/1FRGVN/status/1768046490272870687.
 - The following morning I am severely anxious. I'm bumping my head on things. I have to go to town. I am terrorized the whole way in and out. I feel horrendous.
 - I believe I was on serious drugs at this point that they were putting in the water.
@@ -501,24 +501,24 @@
 
 ![Ana Girbes](../../content/images/fake-accounts/ani-lovi/ana-3.png)
 
-### Lorraine threats 
+### Elaine threats 
 
-- Another account appeared to be a trigger to remind me of Lorraine Blackbourn who had hung herself in July 2021 in Denia. 
+- Another account appeared to be a trigger to remind me of Elaine Black who had hung herself in July 2021 in Denia. 
 - This account had been following me since January but the threat level ramped up in March.
 
-![Lorraine](../../content/images/threats/lorraine/lorraine%20account.png)
-![Lorraine](../../content/images/threats/lorraine/lorraine-2.png)
+![Elaine](../../content/images/threats/lorraine/lorraine%20account.png)
+![Elaine](../../content/images/threats/lorraine/lorraine-2.png)
 
 - I thought `@kiwipally` was also a stalker account as they were very active at this time.
 
-![Lorraine](../../content/images/threats/lorraine/lorraine%20again.png)
-![Lorraine](../../content/images/threats/lorraine/lorraine-5.png)
-![Lorraine](../../content/images/threats/lorraine/lorraine-4.png)
-![Lorraine](../../content/images/threats/lorraine/lorraine-3.png)
+![Elaine](../../content/images/threats/lorraine/lorraine%20again.png)
+![Elaine](../../content/images/threats/lorraine/lorraine-5.png)
+![Elaine](../../content/images/threats/lorraine/lorraine-4.png)
+![Elaine](../../content/images/threats/lorraine/lorraine-3.png)
 
 - The account no longer exists.
 
-![Lorraine](../../content/images/threats/lorraine/lorraine-6.png)
+![Elaine](../../content/images/threats/lorraine/lorraine-6.png)
 
 ## 19th March
 

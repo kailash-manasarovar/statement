@@ -38,7 +38,7 @@
 - I suggest that anyone found involved in the management or distribution of mass online voyeurism channels and/or non-consensual information about a private person is prosecuted most forcefully.
 - I suggest that, where possible, the bodies of any suspicious deaths in the region are exhumed and analyzed for poisons and narcotics.
 - I suggest that, all previous residents in my flat or any flat managed by anyone related to these matters, is checked up on, and questioned.
-- And a first point of call should be Lorraine Blackbourn's family, and anyone that knew her, and to have a look at any police complaints she may have made prior to her untimely death by suicide.
+- And a first point of call should be Elaine Black's family, and anyone that knew her, and to have a look at any police complaints she may have made prior to her untimely death by suicide.
 - Furthermore, if I was an investigator, I'd make sure to check every single student that Domingo Cano has taught over the years to see how many of them ended up in porn or prostitution and/or were exploited financially in some way.
 
 ## Fake accounts and targets
