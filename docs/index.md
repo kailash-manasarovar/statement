@@ -11,7 +11,7 @@ hide:
 
 This document details crimes committed against myself, Katharine Margaret Murphy, Y2775989H, currently residing at Carrer Furs 15, Bloque 1, Escalera 2, Piso 3, Apartamento 17, Dénia, 03700 Alicante Spain, not least attempted murder, that have taken place over the three years since moving into the apartment on 15th December 2022.
 
-### Mass domestic violence
+### Mass voyeurism, cyberstalking, gang stalking, and domestic violence
 
 The report details the following:
 
@@ -98,6 +98,10 @@ The report is set out into different sections.
 4. A summary of my personal suffering, physical and emotional trauma, and also the financial and professional costs I have suffered due to these horrible experiences.
 5. A concluding remark.
 6. Updates and images for the report coming out in novel form in the very near future.
+
+## Book cover
+
+![book cover option](content/images/the-novel/cover-3.webp)
 
 !!! tip
     - Contact me for any further information you may require on info@forgivenet.co.uk.
