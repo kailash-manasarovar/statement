@@ -26,6 +26,29 @@
 - I reported this to Robin.
 - I now wonder if this is evidence of being sedated in my flat, and raped by unknown people whilst sedated, and filmed of course too.
 
+## Penultimate class
+
+- The class on 5th June is just me and the trumpet teacher.
+- I bring a couple of tunes to play, Creep and Back to Black.
+- Creep is for Domingo.
+- Back to Black is for the trumpet teacher with regards to Ana his (apparent) girlfriend.
+- These are tunes recommended to me, I believe, by Mary at Lourdes.
+
+!!! info
+    - It's more likely that these other tunes were suggested to me by hackers on Twitter of course.
+    - At that class, the trumpet teacher asks me why I didn't bring them before to play.
+
+- I'm aware everything is a big joke, and I'm the butt of the joke, but I'm not aware of the extent of it. 
+- I mistakenly believe that only Domingo and his close associates are scheming against me.
+- The overwhelming feelings I'm having, and some of the things the trumpet teachers says, make me suggest to myself that the trumpet teacher doesn't really want to be a part of it all.
+- I think Ana is just a lie, it was all so contrived, and she grinned at me on the stairs like I was an idiot. 
+- Everything that was happening was extremely confusing to me, and I couldn't keep anything straight in my mind.
+- However, I'm aware something's going to happen at the last class of the school year, and I tweet about it as the day approaches.
+
+!!! tip "Am I being primed and prepared for that day"
+    - I wonder as part of the NLP suggestions was the last class with the trumpet teacher being set up as something significant.
+    - Certainly this "setting up of events I should be worried about" was an ongoing theme with the hackers, particularly in [August 2023](august.md#going-public-on-twitter) when I was so frightened I went public on Twitter, and again in [March 2024](../2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) when I became afraid for my life, and then again in [April 2024](../2024/april.md#lawyer) when I became certain I was going to be arrested.
+
 ## June 9th piano concert
 
 - The end of year piano concert took place at the boat club venue in Denia.
@@ -62,29 +85,6 @@
 - It felt like there was more to it.
 - The stress of being bullied at the conservatory, and the feelings of being high and anxious, made me unable to deal with any of this effectively.
 
-## Penultimate class
-
-- The class on 5th June is just me and the trumpet teacher.
-- I bring a couple of tunes to play, Creep and Back to Black.
-- Creep is for Domingo.
-- Back to Black is for the trumpet teacher with regards to Ana his (apparent) girlfriend.
-- These are tunes recommended to me, I believe, by Mary at Lourdes.
-
-!!! info
-    - It's more likely that these other tunes were suggested to me by hackers on Twitter of course.
-    - At that class, the trumpet teacher asks me why I didn't bring them before to play.
-
-- I'm aware everything is a big joke, and I'm the butt of the joke, but I'm not aware of the extent of it. 
-- I mistakenly believe that only Domingo and his close associates are scheming against me.
-- The overwhelming feelings I'm having, and some of the things the trumpet teachers says, make me suggest to myself that the trumpet teacher doesn't really want to be a part of it all.
-- I think Ana is just a lie, it was all so contrived, and she grinned at me on the stairs like I was an idiot. 
-- Everything that was happening was extremely confusing to me, and I couldn't keep anything straight in my mind.
-- However, I'm aware something's going to happen at the last class of the school year, and I tweet about it as the day approaches.
-
-!!! tip "Am I being primed and prepared for that day"
-    - I wonder as part of the NLP suggestions was the last class with the trumpet teacher being set up as something significant.
-    - Certainly this "setting up of events I should be worried about" was an ongoing theme with the hackers, particularly in [August 2023](august.md#going-public-on-twitter) when I was so frightened I went public on Twitter, and again in [March 2024](../2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) when I became afraid for my life, and then again in [April 2024](../2024/april.md#lawyer) when I became certain I was going to be arrested.
-
 ## Sunday 11th June
 
 - I often go to the beach on Sundays.
@@ -106,6 +106,8 @@
     - https://x.com/1FRGVN/status/1665611717223612416
 
 ## Last class, my funeral, apparently
+
+![Carrie](../../content/images/carrie.jpg)
 
 - I'm prepared for what is supposed to be my humiliation on Monday 12th June at chamber music class.
 - I bring the trumpet teacher a present to say thanks, a little wooden frog instrument. He tries to kiss me and I flinch away. I don't want to kiss him, he's hairy and I don't get a good feeling from him.
