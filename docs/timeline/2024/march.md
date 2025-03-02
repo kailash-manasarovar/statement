@@ -580,8 +580,8 @@
 - Samuel from harmony class back in [May 2023 when the cyber stalking really got going](../2023/may.md#harmony-class-that-week) may have signalled this account out to me during a weird chat.
 - At this point I'm so stressed I start communicating with accounts directly as if they are who I they think they are.
 
-![Dominic 1](../../content/images/fake-accounts/Dominic-1.png)
-![Dominic 2](../../content/images/fake-accounts/Dominic-2.png)
+![Dominic 1](../../content/images/fake-accounts/domingo-1.png)
+![Dominic 2](../../content/images/fake-accounts/domingo-2.png)
 
 ## 24th March
 
