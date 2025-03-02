@@ -55,7 +55,7 @@ Nevertheless, a great many people have helped enrich criminals and there must be
 
 ## Alternative theory with an earlier start date, probably 2006
 
-- I believe now that the trumpet teacher and Domingo Lopez Cano are a pornographer/honey trapper pair working with their families to film and rob women and girls of their money and peaceful enjoyment of their lives.
+- I believe now that the trumpet teacher and Dominic the piano teacher are a pornographer/honey trapper pair working with their families to film and rob women and girls of their money and peaceful enjoyment of their lives.
 - They knew of my child sexual abuse history from Hazel Smith in 2007 and from reading my police statement in 2016 while hacking my home network.
 - They planned to lure me back with the intention of a reenactment of the crimes committed against me in 1989. However, participants in the gang rape would be local "respectable" men; doctors, my neigbours, the dentist, etc.
 - I believe my apartment was set up to livestream my activities and an aphrodisiac of some sort was used on me which was overwhelming.
@@ -63,6 +63,6 @@ Nevertheless, a great many people have helped enrich criminals and there must be
 - I have no recollection of that happening however; neither did I note any physical changes that may have pointed to that.
 - The trumpet teacher meeting me at the airport would have signified the beginning of a relationship but it also could have included a reenactment of gang rape and/or online streaming of sexual activity at my apartment.
 - I believe men were already paying for access to this, may have paid in advance also, and may be disappointed that nothing more than masturbation happened.
-- I believe men had paid for, and received copies/viewings of, the original child rape porn from 1989 that Domingo Lopez Cano and the trumpet teacher managed to get hold of.
+- I believe men had paid for, and received copies/viewings of, the original child rape porn from 1989 that Dominic the piano teacher and the trumpet teacher managed to get hold of.
 - Winston May popping up while I was campaigning for the general election with a lot of police informant volunteers seems to point to a very close connection between the original London rape gang and the Denia criminal gangs.
 - It is highly likely the trumpet teacher's real name is Paco Sendra; the name of the married man [Hazel Smith told me she was having sex with in 2007](./timeline/early-years/2007.md#hazel-smith). The implications behind this are extraordinary.

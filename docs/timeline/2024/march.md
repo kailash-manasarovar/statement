@@ -14,7 +14,7 @@
 - I feel like it's probably an ambush and put my phone on record.
 - Paqui reiterates that the woman is here to help me with everything that's going on, and I understand that to mean because of how I previously told her I'm stressed because I'm being terrorized by Domingo and his mates. 
 - The woman talks about having to get the police involved.
-- I am delighted and express gratitude because something is finally happening after nearly two years of abuse instigated by a teacher, Domingo Cano.
+- I am delighted and express gratitude because something is finally happening after nearly two years of abuse instigated by a teacher, Dominic the piano teacher.
 - I ask her why the Generalitat has not replied to any of my emails or letters.
 - She says they did but they not have my street address!
 - She tells me they did reply in December but it came back to them because they did not have my street address. This is ridiculous.
@@ -85,7 +85,7 @@
 
 - Right after this, a fake account whizzes by on likes with the name Carmen Cano.
 - I can only assume it is a message from someone to make me think Carmen Cano is behind the scam.
-- Carmen Cano being Domingo Cano's sister.
+- Carmen Cano being Dominic the piano teacher's sister.
 
 ![Carmen Cano](../../content/images/fake-accounts/carmen-cano.png)
 
@@ -574,7 +574,7 @@
 
 ## 20th March
 
-### Domingo Cano
+### Dominic the piano teacher
 
 - The account `@AllyBrisket` had always seemed suspicious to me.
 - Samuel from harmony class back in [May 2023 when the cyber stalking really got going](../2023/may.md#harmony-class-that-week) may have signalled this account out to me during a weird chat.

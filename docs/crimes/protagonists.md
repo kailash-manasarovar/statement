@@ -17,7 +17,7 @@
 ![Carmen Cano](../content/images/google-searches/carmen-cano.JPG)
 ![Carmen Cano screenshot date](../content/images/google-searches/carmen-cano-date.JPG)
 
-- I have never met Carmen Cano but it's obvious that the picture of this woman has been merged with the face of Domingo Cano.
+- I have never met Carmen Cano but it's obvious that the picture of this woman has been merged with the face of Dominic the piano teacher.
 - I have another picture of her from a body cam I was wearing on 5th October. I went out without my mobile phone to go for a walk along Las Rota in Denia. I didn't want to be followed and tracked, but I wanted to still have means to call the police, so I brought my [analogue phone that I had bought in April](../timeline/2024/april.md#i-get-an-orange-sim). As I approached the restaurant Sendra, a woman cycles up behind me, then in front of me, she stops, smiles, and cycles off. It was Carmen Cano for sure. She looked a lot like the pics I have just posted. I have this on camera.
 
 !!! info

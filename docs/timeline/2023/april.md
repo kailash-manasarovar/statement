@@ -43,7 +43,7 @@
 - At that time, I wrote everything down on notes in my computer, including the things I was going to ask for in prayer, and all the things I wanted to happen in my life. 
 
 !!! danger "Criminal activity"
-    - Given that Domingo Lopez Cano and his associates, including his family and teachers and staff at the conservatory, had total access to my online activity, they knew everything that was going on for me privately; all my private desires and wishes, everything I was doing privately and publicly online, and including my prayers to Mary.
+    - Given that Dominic the piano teacher and his associates, including his family and teachers and staff at the conservatory, had total access to my online activity, they knew everything that was going on for me privately; all my private desires and wishes, everything I was doing privately and publicly online, and including my prayers to Mary.
     - It's important to keep this in mind as we go through the events.
 
 - The Novena is a 9 day prayer. On day 6 or 7, I was searching for his name in Google again, and his Twitter account came up, or so it seemed: `@jctot19`.
