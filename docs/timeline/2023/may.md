@@ -119,6 +119,9 @@
 - During one of my sessions with Robin, he phones me during the session, a missed call which I return.
 - When I speak to him he is taking the piss. He keeps talking about having "double sessions" because he missed so many classes, but it is in an extremely weird way (pervy even) and he is trying not to laugh as if he has an audience.
 
+!!! danger "Double sessions"
+    - Looking back, this sort of thing suggests that indeed they are sedating me and coming into my flat to sexually assault me, film it, and monetize it on porn networks.
+
 ## Twitter
 
 - The curious interaction on Twitter between my own account and `@jctot19` continues.

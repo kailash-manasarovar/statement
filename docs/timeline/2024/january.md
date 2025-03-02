@@ -72,6 +72,17 @@
 
 - There are additions to this period in Ireland related to something Steve said to me, an email exchange between myself and him, and some interesting communications.
 
+## Boots from Ireland
+
+- I buy some expensive boots in Galway. They're beautiful.
+- I bring them home and put them on my shoe rack.
+- A few days later I notice they are quite severely scuffed. I never noticed this in the shop but I haven't worn them so I contact the seller to complain.
+
+!!! danger "Evidence of people coming into my apartment"
+    - Looking back, this sort of thing strikes me as being to do with people entering my apartment without my knowledge whenever they got the chance to cause mischief, and add poison/drugs to my food and toiletries.
+
+- They are even more badly scuffed a year later when I pack them to leave in February 2024. I only wore them once for a couple of hours since complaining about the big scuff which looks to me malicious now.
+
 ## I buy an iPhone
 
 - I take a colleague's advice and buy and iPhone in the hope it will impede hackers.
