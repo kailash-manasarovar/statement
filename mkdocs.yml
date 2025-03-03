@@ -1,5 +1,6 @@
 site_name: Fear & loathing in Las Marinas
 site_author: Dra Katharine Murphy
+site_url: https://statement-bhw.pages.dev/
 copyright: Copyright &copy; 2025 Dra Katharine Murphy
 repo_name: Police statement
 
@@ -49,20 +50,20 @@ nav:
     - Summary: index.md
   - Timeline:
     - Early years:
-      - 2001: timeline/early-years/2001.md
-      - 2006: timeline/early-years/2006.md
-      - 2007: timeline/early-years/2007.md
-      - 2008: timeline/early-years/2008.md
-      - 2013: timeline/early-years/2013.md
-      - 2014: timeline/early-years/2014.md
-      - 2015: timeline/early-years/2015.md
-      - 2016: timeline/early-years/2016.md
+      - "2001": timeline/early-years/2001.md
+      - "2006": timeline/early-years/2006.md
+      - "2007": timeline/early-years/2007.md
+      - "2008": timeline/early-years/2008.md
+      - "2013": timeline/early-years/2013.md
+      - "2014": timeline/early-years/2014.md
+      - "2015": timeline/early-years/2015.md
+      - "2016": timeline/early-years/2016.md
       - Interim: timeline/early-years/interim.md
-    - 2021:
+    - "2021":
       - July: timeline/2021/july.md
       - October: timeline/2021/october.md
       - December: timeline/2021/december.md
-    - 2022:
+    - "2022":
       - February: timeline/2022/february.md
       - March: timeline/2022/march.md
       - June: timeline/2022/june.md
@@ -71,7 +72,7 @@ nav:
       - October: timeline/2022/october.md
       - November: timeline/2022/november.md
       - December: timeline/2022/december.md
-    - 2023:
+    - "2023":
       - January: timeline/2023/january.md
       - February: timeline/2023/february.md
       - March: timeline/2023/march.md
@@ -84,7 +85,7 @@ nav:
       - October: timeline/2023/october.md
       - November: timeline/2023/november.md
       - December: timeline/2023/december.md
-    - 2024:
+    - "2024":
       - January: timeline/2024/january.md
       - February: timeline/2024/february.md
       - March: timeline/2024/march.md
@@ -97,7 +98,7 @@ nav:
       - October: timeline/2024/october.md
       - November: timeline/2024/november.md
       - December: timeline/2024/december.md
-    - 2025:
+    - "2025":
       - January: timeline/2025/january.md
   - Crimes:
     - Traditional gang stalking in Spain: crimes/traditional-stalking.md
@@ -179,7 +180,7 @@ plugins:
   - search
   - open-in-new-tab
   - git-revision-date-localized
-  #- social
+  - social
 
 validation:
   absolute_links: warn
