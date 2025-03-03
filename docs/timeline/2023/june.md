@@ -142,6 +142,44 @@
 - While I'm on the acupuncture table, there is a violent storm outside, and lightning takes a tree down on the road outside.
 - I leave for Ireland, via Alicante airport, that evening and there are rainbows all over the region. I take it as a good sign.
 
+## Teachers and staff involved in gang stalking students at Denia Conservatory
+
+!!! warning
+    - You can find a list of current teachers and staff on the [conservatory website](https://portal.edu.gva.es/conservatoriDénia/es/inici/).
+    - The Generalitat Valenciana systems are so vulnerable to attack that it is possible that names are incorrect or even false in the GV systems and/or websites.
+    - As a taste of things to come, hackers created numerous fake Twitter accounts and sent them to me with pictures of all the conservatory teachers and staff of interest, often in their younger years. 
+    
+    For example:
+    
+    An AI mix of the trumpet teacher and Gloria the conservatory receptionist, an account which has been following me since September 2023 when I went public on Twitter.
+
+    ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png){width=35%}
+
+    My piano teacher for year 4, a young Paqui Fornet Pastor in a rather threatening pose. This was posted in March 2024, after what I felt were credible threats to my life when I didn't stop going into practice after the piano concert; the concert which set up to terrorize me into never coming back to the conservatory.
+
+    ![Paqui Fornet Pastor 1](../../content/images/fake-accounts/paqui1.png){width=35%}
+ 
+    An AI mix containing Dominic the piano teacher posted around March 2024.
+
+    ![Dominic lookalike or AI mix](../../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
+
+    A young Maria Hontanilla, posted around March 2024.
+
+    ![Maria Hontanilla](../../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png){width=35%}
+
+    The chamber music teacher from year 4, a lovely man, posted no doubt to cause unnecessary trouble as I can't imagine he would have been involved in stalking me. Posted around March 2024.
+
+    ![Chamber music teacher from year 4](../../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png){width=35%}
+
+    Ana the violin teacher in a modeling role for Finnish artist Julia Lohmann. A whole bunch of these pics were sent to me via the trumpet teacher's *apparent* account around June/July 2023 seemingly in order to convince me that Ana and the trumpet teacher were a romantic item.
+
+    ![Ana](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
+
+    - [Relevant tweet thread](https://x.com/1FRGVN/status/1846120069010473024).
+
+!!! danger "Critical"
+    - It is *highly* likely all these accounts are controlled by Hazel and Sandra Smith.
+
 ## Ireland
 
 - I don't bring my connected devices so I cannot use my own Twitter account.
