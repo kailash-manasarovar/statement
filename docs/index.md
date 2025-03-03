@@ -35,7 +35,7 @@ The report details the following:
 - How many other women have been targeted in a similar way?
 - Were any of them murdered?
 - How many of them ended up in porn or prostitution? This report reveals some real and some possible victims; all of the evidence sent to me by the hackers themselves.
-- How many of them were minors, and how were thoses minors targeted for grooming?
+- How many of them were minors, and how were those minors targeted for grooming?
 - Why did the stalkers appear to split into groups while I fought them, and start grassing each other up?
 
 !!! danger "My suffering"
