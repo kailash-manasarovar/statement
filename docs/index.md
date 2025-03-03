@@ -36,6 +36,7 @@ The report details the following:
 - Were any of them murdered?
 - How many of them ended up in porn or prostitution? This report reveals some real and some possible victims; all of the evidence sent to me by the hackers themselves.
 - How many of them were minors, and how were thoses minors targeted for grooming?
+- Why did the stalkers appear to split into groups while I fought them, and start grassing each other up?
 
 !!! danger "My suffering"
     - See [Health](personal/health.md) for more information on health problems arising from 3 years of poisoning and drugging in Dénia.
@@ -62,7 +63,9 @@ Given all these events have taken place within the context of studying at a publ
 
 One wonders if Dénia is simply a massive online porn studio; protected by corruption from top to bottom, where everyone has to do the bidding of the pornographers.
 
-Are the people of Dénia prisoners in their own homes?
+Are the people of Dénia prisoners in their own homes? 
+
+Are the cyber-stalkers who fed me information and evidence about actual crimes simply decent Dénia citizens unable to get help via any normal security routes?
 
 ## Why was I in Dénia?
 
