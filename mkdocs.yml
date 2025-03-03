@@ -179,7 +179,7 @@ plugins:
   - search
   - open-in-new-tab
   - git-revision-date-localized
-  - social
+  #- social
 
 validation:
   absolute_links: warn

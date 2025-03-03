@@ -5,3 +5,16 @@
   <script defer data-domain="statement-bhw.pages.dev" src="https://plausible.io/js/script.file-downloads.hash.outbound-links.js"></script>
   <script>window.plausible = window.plausible || function() { (window.plausible.q = window.plausible.q || []).push(arguments) }</script>
 {% endblock %}
+
+{% block extrahead %}
+  {{ super() }}
+<!-- Google tag (gtag.js) -->
+<script async src="https://www.googletagmanager.com/gtag/js?id=G-PLVHFQNSYR"></script>
+<script>
+  window.dataLayer = window.dataLayer || [];
+  function gtag(){dataLayer.push(arguments);}
+  gtag('js', new Date());
+
+  gtag('config', 'G-PLVHFQNSYR');
+</script>
+{% endblock %}
