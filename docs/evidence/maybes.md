@@ -28,6 +28,8 @@ This woman looks *a lot* like the woman at coffee with the trumpet teacher in Be
 
 ![Benijembla woman](../content/images/fake-accounts/woman%20in%20benijembla.png)
 
+The account seems legit but you never know: https://x.com/VirgisViews.
+
 Could she be the grown up version of this girl?
 
 <!-- add here -->
