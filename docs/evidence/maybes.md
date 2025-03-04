@@ -24,7 +24,7 @@
 
 ### Benijembla lady
 
-This woman looks *a lot* like the woman at coffee with the trumpet teacher in Benijembla that Saturday afternoon in 2022.
+This woman looks *a lot* like the woman at coffee with the trumpet teacher in Benijembla that [Saturday afternoon in 2022](../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies).
 
 ![Benijembla woman](../content/images/fake-accounts/woman%20in%20benijembla.png)
 
