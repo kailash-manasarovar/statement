@@ -49,7 +49,7 @@ I have spent much time theorizing on why a whole town would put so much energy i
 
 Besides that, my statement uncovers a dark underlying motive which relates everything that has happened to me over the last years in Spain to my experience of child sexual abuse at the hands of a pedophile rape gang in North London in 1989 who sedated me, gang raped me repeatedly, and filmed it without my knowledge; undoubtedly enriching themselves and others financially by doing so.
 
-I have only become certain that this porn exists in the last couple of years via communication with the people of Dénia on my hacked devices. Prior to this, I had a suspicion that I had been filmed but not to the extend I was.
+I have only become certain that this porn exists in the last couple of years via communication with the people of Dénia on my hacked devices. Prior to this, I had a suspicion that I had been filmed but not to the extent that happened.
 
 It transpires that the people of Dénia knew more about my life than I did. And they hated me for it too. They hated the victim of pedophiles at the request of the known pedophiles they respect and revere in the town.
 
