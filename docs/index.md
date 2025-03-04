@@ -57,7 +57,7 @@ I believe that, due to this horrible and secret information about me, teachers a
 
 The end goal was my death; either by suicide, or murder.
 
-However, whatever the criminals told the townsfolk and children, the ringleaders' underlying motive is always financial; in this case, initially, and maybe still, my money; then probably substantial earnings from spy-cam porn bolstered with the interest generated in the global and local porn-addict population with a taste for pedophilia, which is arguably epidemic right now. 
+However, whatever the criminals told the townsfolk and children, the ringleaders' underlying motive is always financial. In this case, initially, and maybe still, my money; then probably substantial earnings from spy-cam porn bolstered with the interest generated in the global and local porn-addict population with a taste for pedophilia, which is arguably epidemic right now. 
 
 Given all these events have taken place within the context of studying at a public learning establishment, the Dénia music conservatory, which has in attendance hundreds of minor children, young people, and a handful of adults; and given the elaborate and extremely professional nature of the electronic attacks and the sophistication of the drugging techniques, the likelihood of similar things happening to others, including minors, must be taken into serious consideration.
 
