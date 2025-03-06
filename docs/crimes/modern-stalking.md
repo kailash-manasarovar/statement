@@ -34,3 +34,7 @@ We might call this a new form of modern slavery/trafficking.
 - Once a fake account has created enough "confidence" in the wider group they are a part of online, they will invent a situation in which they can request money from the group.
 - These "situations" could be related to health, or family, generally anything which may invoke a "feeling sorry for" reaction in the targeted group.
 - Criminals can make huge amounts of money in this way for many years before anyone raises the alarm.
+
+!!! danger "Tip for law enforcement"
+    - I have only posted a small amount of these fake stalker accounts that I have seen in operation on a daily basis on X.com, and none from Facebook.
+    
