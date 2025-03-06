@@ -32,7 +32,7 @@ We might call this a new form of modern slavery/trafficking.
 
 Particularly generous groups, such as middle-aged British women, are special targets for criminal gangs.
 
-Once a fake account has created enough "confidence" in the wider group they are a part of online, they will invent a situation in which they can request money from the group.
+Once a fake account has created enough "confidence" in the wider group they are a part of online, they can invent a situation in which they request money from the group or actively promote another account who is requesting money.
 
 These "situations" could be related to health, or family, generally anything which may invoke a "feeling sorry for" reaction in the targeted group.
 
