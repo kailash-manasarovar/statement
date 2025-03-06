@@ -44,9 +44,8 @@ Another one with an apparently normal account, but who knows: https://www.facebo
 
 ## Protagonist as a child
 
-Could this be one of our main protagonists Hazel as a child? Did she post all the pictures of conservatory teachers on false accounts? Is she posting herself now, or are they getting her back?
+Could this be one of our main protagonists Hazel as a child? Did she post all the [pictures of conservatory teachers](../timeline/2023/june.md#teachers-and-staff-involved-in-gang-stalking-students-at-denia-conservatory) on false accounts? Is she posting herself now, or are they getting her back?
 
 ![Hazel maybe](../content/images/fake-accounts/haze-baby.png)
 
 Here's the account profile this came from: https://x.com/malize.
-
