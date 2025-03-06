@@ -8,7 +8,7 @@ Vast gangs of people are employed on social media by criminal gangs with the rem
 
 - Young women (and some men) targeted for porn and sexual grooming online, then blackmail and exploitation.
 - Children targeted for pedophile porn and sexual grooming; blackmail and exploitation may come when the target is grown up.
-- Wealthy individuals targeted by confidence tricksters in the guise of romantic partners who, depending on the situation, enrich themselves and the gang they work for, via the generosity of the target, family legacies, and threats whenever the target is sufficiently groomed and fearful.
+- Wealthy individuals targeted by confidence tricksters in the guise of romantic partners who, depending on the situation, enrich themselves and the gang they work for via the generosity of the target, family legacies, and threats whenever the target is sufficiently groomed and fearful.
 
 ### Children and young women
 
@@ -30,11 +30,19 @@ We might call this a new form of modern slavery/trafficking.
 
 ## Targeting particularly generous groups
 
-- Particularly generous groups, such as middle-aged British women, are special targets for criminal gangs.
-- Once a fake account has created enough "confidence" in the wider group they are a part of online, they will invent a situation in which they can request money from the group.
-- These "situations" could be related to health, or family, generally anything which may invoke a "feeling sorry for" reaction in the targeted group.
-- Criminals can make huge amounts of money in this way for many years before anyone raises the alarm.
+Particularly generous groups, such as middle-aged British women, are special targets for criminal gangs.
+
+Once a fake account has created enough "confidence" in the wider group they are a part of online, they will invent a situation in which they can request money from the group.
+
+These "situations" could be related to health, or family, generally anything which may invoke a "feeling sorry for" reaction in the targeted group.
+
+Criminals can make huge amounts of money in this way for many years before anyone raises the alarm.
 
 !!! danger "Tip for law enforcement"
     - I have only posted a small amount of these fake stalker accounts that I have seen in operation on a daily basis on X.com, and none from Facebook.
     
+## Being OK about all of this
+
+Given that I have been to the Spanish and UK police numerous times about personal suffering in this regard, and within a public school context, I can only assume the following:
+
+1. **No one cares about abused women and children in Spain.**
