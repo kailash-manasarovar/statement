@@ -192,6 +192,11 @@
 - We have a new teacher, Alfonso, for harmony.
 - One afternoon I see him following me around Denia.
 - It's clear that everyone knows what's been going on and has been invited to join in terrorizing the female target of the moment.
+- I wear a funny t-shirt to class in an attempt to make light of it all and carry on with my studies.
+
+![Don't poke the bear](../../content/images/dont-poke-the-bear.png)
+
+- I don't realize at this time that the gang stalkers, Dominic and his accomplices, intend nothing less than my total destruction.
 - I wonder what they've been told about me that would make them so eager to terrorize me, or whether it's just something they enjoy doing to random people (women and girls) from time to time.
 - I now wonder if they were always aware of the sexual grooming and the danger to minors.
 
