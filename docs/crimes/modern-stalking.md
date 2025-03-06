@@ -36,6 +36,10 @@ Once a fake account has created enough "confidence" in the wider group they are 
 
 These "situations" could be related to health, or family, generally anything which may invoke a "feeling sorry for" reaction in the targeted group.
 
+!!! tip "Duplicate accounts serve the same purpose"
+    - Criminal cyber systems can duplicate accounts for the same purpose.
+    - An account in which people have a lot of confidence may be duplicated briefly to achieve the same results.
+
 Criminals can make huge amounts of money in this way for many years before anyone raises the alarm.
 
 !!! danger "Tip for law enforcement"
