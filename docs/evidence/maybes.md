@@ -41,3 +41,12 @@ And who is this? He certainly has a big nose. Remember how they went on about bi
 ![Big nose](../content/images/fake-accounts/bignose.png)
 
 Another one with an apparently normal account, but who knows: https://www.facebook.com/profile.php?id=100087276017749.
+
+## Protagonist as a child
+
+Could this be one of our main protagonists Hazel as a child? Did she post all the pictures of conservatory teachers on false accounts? Is she posting herself now, or are they getting her back?
+
+![Hazel maybe](../content/images/fake-accounts/haze-baby.png)
+
+Here's the account profile this came from: https://x.com/malize.
+
