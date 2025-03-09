@@ -45,7 +45,7 @@ The report details the following:
 
 ## Motive
 
-I have spent much time theorizing on why a whole town would put so much energy into threatening and terrorizing a woman they considered vulnerable for over three years. Please see my [concluding theory](theories.md) for the main reason I believe I was targeted.
+I have spent much time theorizing on why a whole town would put so much energy into threatening and terrorizing a woman they considered vulnerable for over three years. Please see my [concluding theory](conclusion/theories.md) for the main reason I believe I was targeted.
 
 Besides that, my statement uncovers a dark underlying motive which relates everything that has happened to me over the last years in Spain to my experience of child sexual abuse at the hands of a pedophile rape gang in North London in 1989 who sedated me, gang raped me repeatedly, and filmed it without my knowledge; undoubtedly enriching themselves and others financially by doing so.
 

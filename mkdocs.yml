@@ -135,7 +135,8 @@ nav:
     - Vocation: personal/vocational.md
     - Hacking: personal/hacking.md
   - Conclusion:
-    - Theories: theories.md
+    - Justice: conclusion/a-proper-ending.md
+    - Theories: conclusion/theories.md
   - The novel:
     - Fear and loathing in Las Marinas, Dénia: the-novel/book-cover.md
     - Optional book covers: the-novel/optional-covers.md

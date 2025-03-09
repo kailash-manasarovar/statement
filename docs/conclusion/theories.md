@@ -65,4 +65,4 @@ Nevertheless, a great many people have helped enrich criminals and there must be
 - I believe men were already paying for access to this, may have paid in advance also, and may be disappointed that nothing more than masturbation happened.
 - I believe men had paid for, and received copies/viewings of, the original child rape porn from 1989 that Dominic the piano teacher and the trumpet teacher managed to get hold of.
 - Winston May popping up while I was campaigning for the general election with a lot of police informant volunteers seems to point to a very close connection between the original London rape gang and the Denia criminal gangs.
-- It is highly likely the trumpet teacher's real name is Paco Sendra; the name of the married man [Hazel Smith told me she was having sex with in 2007](./timeline/early-years/2007.md#hazel-smith). The implications behind this are extraordinary.
+- It is highly likely the trumpet teacher's real name is Paco Sendra; the name of the married man [Hazel Smith told me she was having sex with in 2007](../timeline/early-years/2007.md#hazel-smith). The implications behind this are extraordinary.
