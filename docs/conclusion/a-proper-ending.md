@@ -1,7 +1,5 @@
-## Justice
+The universe requires justice, as do all victims of sex offenders and abusive woman-hating brutes. 
 
-The universe and all victims of sex offenders and abusive brutes require justice.
-
-Perhaps the happiest ending to this tale is to make the streets and schools and learning establishments safe for young people again by jailing the evil.
+Perhaps the happiest ending to this tale would be to make the streets and schools and learning establishments safe for young people again by jailing the evil doers.
 
 ![Geoffrey Epstein in jail](../content/images/geoff-in-prison.png)
