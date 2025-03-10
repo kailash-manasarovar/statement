@@ -1,6 +1,40 @@
 !!! tip
     - See the [list of teachers here](../timeline/early-years/2015.md#first-class-of-january) and their twitter (fake) account pics.
 
+## Vidal Sastre Sanchez Hornero
+
+- This name probably relates to a group of criminals who control women by drugging them whilst having full root access to their social media activity.
+- In the past, sexually coercive behavior like this would usually be undertaken by pimps and perverts with the end goal of enticing and trapping women in the sex "industry". In the past, this would have been undertaken directly in physical settings, clubs and societies, bars, etc., and still is.
+- The sexual coercion in Denia and the region has taken a new and extremely troubling turn.
+- Criminals and other bad actors are able to gain access to a person's private home network and devices in a remarkably easy way. From there, malicious actors can monitor all their online activity, paying close attention to finances and anything incriminating.
+
+!!! danger "Would anyone want to live here if they knew how much danger women and children are in?"
+    - Visitors to the region should be warned that it is highly likely their online activity will be monitored very closely by locals.
+    - Visitors should expect that to happen and act accordingly.
+    - Even 4/5g mobile networks are vulnerable.
+
+- From here, criminals can manipulate a woman or child via their social media activity and otherwise extremely easily.
+- If they are being drugged as well, like perhaps the [flautist in this video](../timeline/2023/june.md#youtube), then it is highly likely the target will eventually suffer a physical sexual, or be manipulated into something apparently consensual, and then be put on porn networks without their consent.
+- Vidal Sastre Sanchez Hornero is not the trumpet teacher's name, although it is possible he is part of this group.
+- Whoever these people are, they are proud of their behavior, and arrogant enough to showcase their "controlling young girls" activity on [YouTube](https://www.youtube.com/@saxofonator/search?query=vidal%20sanchez%20sastre%20horneros).
+- All attacks "funerals" on women are videod and shared.
+
+## The trumpet teacher
+
+- I do not believe this man's name is Vidal Sastre Sanchez Hornero, unless, of course, these criminal gangs are so arrogant and protected, they don't bother hiding themselves.
+- Symbols and memes related to him are horses, Trump.
+- He has a brother who may be a twin as they look nearly identical: the brother "made himself known to me" one evening when I walked through the tunnel during the intensive gang stalking in October 2023.
+- Patricia, when I asked her how she knew Vidal, said "who"? But it's clear she knows who this man is, and his brother.
+- Investigators will know immediately who he is.
+- The whole town of Denia and beyond knows who he is.
+- Here he is playing the trumpet.
+
+![The trumpet teacher](../content/images/youtube-video.png)
+
+- And here is an AI mix of him and Gloria the receptionist.
+
+![Trumpet teacher and Gloria receptionist](../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
+
 ## Dominic and Carmen Lopez Cano
 
 - Key figures in the attacks.
@@ -25,30 +59,6 @@
 
 - On 1st November, the same woman is leaving my apartment building with another dark haired lady; a woman I have often seen going in and out of apartment number 18 next door to me since I got back to Denia from France at the end of April.
 
-## The trumpet teacher
-
-- I do not believe this man's name is Vidal Sastre Sanchez Hornero, unless, of course, these criminal gangs are so arrogant and protected, they don't bother hiding themselves.
-- Symbols and memes related to him are horses, Trump.
-- He has a brother who may be a twin as they look nearly identical: the brother "made himself known to me" one evening when I walked through the tunnel during the intensive gang stalking in October 2023.
-- Patricia, when I asked her how she knew Vidal, said "who"? But it's clear she knows who this man is, and his brother.
-- Investigators will know immediately who he is.
-- The whole town of Denia and beyond knows who he is.
-- Here he is playing the trumpet.
-
-![The trumpet teacher](../content/images/youtube-video.png)
-
-- And here is an AI mix of him and Gloria the receptionist.
-
-![Trumpet teacher and Gloria receptionist](../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
-
-## Patricia
-
-
-
-## Christine
-
-
-
 ## Paqui Fornet Pastor
 
 ![Paqui Fornet Pastor 1](../content/images/fake-accounts/paqui1.png)
@@ -71,3 +81,9 @@
 - `@jctot19`: I believe this must be the trumpet teacher's account although could be being controlled/managed by others too.
 - `@sinremite`: I believe this is Carmen Cano's account.
 
+## Everyone else
+
+- Members of the Javea Computer Club.
+- Members of expat walking groups.
+- Old (apparent) friends in Denia.
+- The whole town of Denia who were lied to about why I had been targeted and so felt justified in joining in the fun.

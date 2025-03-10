@@ -158,6 +158,12 @@
 - When I get back home and check Twitter, things the three of us have said in our conversation are posted on fake account profiles.
 - This happens with anyone I talk to.
 
+!!! tip "Background"
+    - A previously fit and strong woman, Alex suddenly became unwell with a weird autoimmune thing I can't remember.
+    - She underwent an extremely harsh surgery where she had a full bone marrow transplant around 2009/10 or thereabouts.
+    - She survived the surgery but her health was severely affected by it.
+    - She was apparently the first person in Spain to have undergone such surgery and the surgeons was a very important and significant man in his field.
+
 ## Meeting Christine
 
 - I meet Christine BJ for lunch and tell her everything that's been going on.
