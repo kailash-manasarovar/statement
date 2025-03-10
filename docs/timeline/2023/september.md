@@ -159,10 +159,11 @@
 - This happens with anyone I talk to.
 
 !!! tip "Background"
-    - A previously fit and strong woman, Alex suddenly became unwell with a weird autoimmune thing I can't remember.
-    - She underwent an extremely harsh surgery where she had a full bone marrow transplant around 2009/10 or thereabouts.
+    - A previously fit and strong woman, around 2008 or 2009, Alex suddenly became unwell with a weird autoimmune thing I can't remember.
+    - We weren't socializing at that time but I remember bumping into her and she was extremely anxious and worried about it.
+    - She underwent a harsh surgery where she had a full bone marrow transplant around 2009/10 or thereabouts.
     - She survived the surgery but her health was severely affected by it.
-    - She was apparently the first person in Spain to have undergone such surgery and the surgeons was a very important and significant man in his field.
+    - She was apparently the first person in Spain to have undergone such surgery and the surgeon was a very important and significant man in his field.
 
 ## Meeting Christine
 
