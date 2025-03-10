@@ -4,6 +4,14 @@ hide:
 - toc
 ---
 
+# Fear & loathing in Las Marinas
+
+- Las Marinas is a suburb of Dénia, Alicante, Spain. 
+- Suburb is probably the right word.
+- Wrong un's live there.
+
+![Book cover](content/images/the-novel/cover-2.webp)
+
 !!! warning
     - This is a private repo and currently unavailable to the public.
 
