@@ -60,6 +60,7 @@
 ## Walking
 
 - I met Christine BJ to go hiking on the mountain and she invited me to go walking with the English ladies on a regular basis once I returned in February 2022.
+- At this point, a couple of the expat-Anglophones offer me available apartments they suggest I might like to buy. 
 
 ## Back to France
 
