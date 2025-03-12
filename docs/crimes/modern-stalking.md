@@ -24,9 +24,9 @@ Criminal gangs operate large numbers of stalker accounts that they delegate to t
 
 These accounts look extremely legitimate and post regular updates that give them the appearance of normality.
 
-In areas where the wealthier people speak non-native languages, people speaking these languages will be targeted by the criminal gangs to participate in the confidence tricks and grooming online. 
+Some well-known accounts may have given delegated access to members of criminal gangs, wittingly or otherwise. Also, it is possible that company back-end insiders work for the gangs for the right price although I expect it's costly.
 
-We might call this a new form of modern slavery/trafficking.
+In areas where the wealthier people speak non-native languages, people speaking these languages will be targeted by the criminal gangs to participate in the confidence tricks and grooming online. We might call this a new form of modern slavery/trafficking.
 
 ## Targeting particularly generous groups
 
