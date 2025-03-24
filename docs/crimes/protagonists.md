@@ -65,7 +65,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ## The *other* trumpet teacher
 
 - The man in the pictures above is only half the man I remember.
-- While I was still being drugged, I thought he had a [twin brother](../timeline/2023/december.md#the-trumpet-teacher-has-a-brother). I mentioned this in an earlier draft (commit) of this document. I said "the brother made himself known to me one evening when I walked through the tunnel during the intensive gang stalking in December 2023."
+- While I was still being drugged, I thought he had a [twin brother](../timeline/2023/december.md#the-trumpet-teacher-has-a-brother) called Malachi. I mentioned this in an earlier draft (commit) of this document. I said "the brother made himself known to me one evening when I walked through the tunnel during the intensive gang stalking in December 2023."
 - He had been set up to walk past the tunnel entrance at the road just as I was walking out so that I would see him.
 - I did see him and I ran up behind him before crossing the road. And he flinched.
 - He looked exactly like the trumpet teacher, but different. So I called him a twin brother. I was certain he was the twin brother and by that time I was so used to this constant torment, every day there was some nasty set up "event" for me, that it seemed a reasonable thing for them to do.
