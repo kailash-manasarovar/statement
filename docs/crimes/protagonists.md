@@ -49,6 +49,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ![Hornero activity funeral home](../content/images/hornero/horn-funerals-1.png)
 
+- "Se la rifaron" means, they sold her off.
 - I do not believe Vidal Sastre Sanchez Hornero is the trumpet teacher's name under these circumstances, although it is possible he is part of this group.
 - Whoever these people are, they are proud of their behavior, and arrogant enough to showcase their "controlling young girls" activity on [YouTube](https://www.youtube.com/@saxofonator/search?query=vidal%20sanchez%20sastre%20horneros).
 - It appears that all attacks, or "funerals" of women are videoed and shared, and certainly my "funeral" on 12th June 2023, was excitedly recorded on the mobile phones of all present.
