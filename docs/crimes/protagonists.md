@@ -137,6 +137,11 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ![Maria Hontanilla](../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png)
 ![Chamber music teacher from year 4](../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png)
 
+## Hazel and Sandra Smith
+
+!!! info
+    - Details of the Channel 4 documentary featuring these two coming up soon.
+
 ## Twitter accounts of note
 
 - `@jctot19`: I believe this must be the trumpet teacher's account although could be being controlled/managed by others too.
