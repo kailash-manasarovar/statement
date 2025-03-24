@@ -35,29 +35,40 @@
 
 ![Trumpet teacher and Gloria receptionist](../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
 
-## Dominic and Carmen Lopez Cano
+## Dominic Lopez Cano
 
-- Key figures in the attacks.
-- Given their name relates to all things canine and wolverine, any reference online to dogs, particularly when it also is content of a threatening or abusive nature, is interesting and suggests it is coming from them and their family.
-- Dogs feature constantly in the online harassment and threats.
+- Domingo Lopez Cano was my piano teacher in [2014](../timeline/early-years/2014.md).
+- I met him first at the [conservatory audition](../timeline/early-years/2014.md#conservatory-audition).
+- Here he is in the summer of 2016, just after I left Dénia as I started to suffer from depression related to [going to the police about my experience in 1989 of sexual abuse by rape gangs in North London](../timeline/early-years/2015.md#statement-to-the-metropolitan-police).
+
+![Domingo et al](../content/images/domingo-target-mother-advertisement.jpg)
+
+- I wonder if the older woman to his right is his mother?
+- And I wonder who the young woman he is with is? Could she be another target?
+- Is this article from the [local paper](https://www.denia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-denia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
+- The name "Cano" relates to all things canine and "Lopez" to all things wolverine. While I was being stalked and terrorized online, there were a lot of references to these animals, and particularly when the stalking took a more serious threatening or abusive turn.
+- Indeed, dogs featured constantly in the online harassment and threats.
+- Here's a fake X account pic that communicated with me during the [March 2024 intensive online psychological abuse](../timeline/2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) of him as an older person.
 
 ![Dominic lookalike or AI mix](../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
 
-### Carmen Cano
+### Carmen Lopez Cano
 
-- I believe Carmen Cano ran many fake accounts that terrorized me.
+- Carmen is Domingo's sister.
+- I believe she ran many of the fake accounts that terrorized me, along with Hazel and Sandra Smith.
 - A picture of her was posted on my Google searches which I screen shot in April.
 
 ![Carmen Cano](../content/images/google-searches/carmen-cano.JPG)
 ![Carmen Cano screenshot date](../content/images/google-searches/carmen-cano-date.JPG)
 
+- It's not clear who was passing me this information.
 - I have never met Carmen Cano but it's obvious that the picture of this woman has been merged with the face of Dominic the piano teacher.
-- I have another picture of her from a body cam I was wearing on 5th October. I went out without my mobile phone to go for a walk along Las Rota in Denia. I didn't want to be followed and tracked, but I wanted to still have means to call the police, so I brought my [analogue phone that I had bought in April](../timeline/2024/april.md#i-get-an-orange-sim). As I approached the restaurant Sendra, a woman cycles up behind me, then in front of me, she stops, smiles, and cycles off. It was Carmen Cano for sure. She looked a lot like the pics I have just posted. I have this on camera.
+- I have another picture of her from a body cam I was wearing on 5th October. I went out without my mobile phone to go for a walk along Las Rota in Denia. I didn't want to be followed and tracked, but I wanted to still have means to call the police, so I brought my [analogue phone that I had bought in April](../timeline/2024/april.md#i-get-an-orange-sim). As I approached the restaurant Sendra, a woman cycles up behind me, then in front of me, she stops, smiles, and cycles off. It was Carmen Cano for sure. She looked a lot like the pics I have just posted. 
 
 !!! info
     - It seems like even 2g phones are trackable by these people.
 
-- On 1st November, the same woman is leaving my apartment building with another dark haired lady; a woman I have often seen going in and out of apartment number 18 next door to me since I got back to Denia from France at the end of April.
+- On 1st November, the same woman is leaving my apartment building with another dark haired lady; a woman I have often seen going in and out of apartment number 18 next door to me since I got back to Denia from France at the end of April. It could have been the older woman in the picture above from 2016, except with darker hair.
 
 ## Paqui Fornet Pastor
 
