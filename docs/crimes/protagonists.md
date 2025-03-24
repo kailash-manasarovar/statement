@@ -36,14 +36,14 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - In the past, sexually coercive behavior like this would usually be undertaken by pimps and perverts with the end goal of enticing and trapping women in the sex "industry" and this is certainly in keeping with the content the gangs shared with me online, such as [the pictures of the lady who went from innocent girl to hardcore porn activity](../timeline/2024/august.md#photos-of-abused-women-and-girls).
 - In the past, this would have been undertaken directly in physical settings, clubs and societies, bars, etc., and still is.
 - However, the sexual coercion techniques used in Dénia and the region has taken a new and extremely troubling turn.
-- Criminals and other bad actors are able to access to a person's private home network and devices in a remarkably easy way. From there, malicious actors can monitor all their online activity, paying close attention to finances and anything incriminating.
+- Criminals and other bad actors are now able to access to a person's private home network and devices in a remarkably easy way. From there, malicious actors can monitor all their online activity, paying close attention to finances and anything incriminating.
 
-!!! danger "Would anyone want to live here if they knew how much danger women and children are in?"
+!!! danger "Would anyone want to live here if they knew how much danger the wealthy, elderly, women and children are in?"
     - Visitors to the region should be warned that it is highly likely their online activity will be monitored very closely by locals.
     - Visitors should expect that to happen and act accordingly.
     - Even 4g/5g mobile networks, without access to wifi routers, are vulnerable.
 
-- With such access, criminals can manipulate and intimidate a woman or child via their social media activity and other online activity.
+- With such access, criminals can manipulate and intimidate a woman or child via their social media and other online activity.
 - If they are being drugged as well, like perhaps the [flautist in this video](../timeline/2023/june.md#youtube), then it is highly likely the target will eventually suffer a physical sexual, or be manipulated into something apparently consensual, and then be put on porn networks without their consent.
 - Here's another reference to a "funeral" or "sale" of a groomed young woman from the band in Valencia.
 
@@ -51,20 +51,20 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - I do not believe Vidal Sastre Sanchez Hornero is the trumpet teacher's name under these circumstances, although it is possible he is part of this group.
 - Whoever these people are, they are proud of their behavior, and arrogant enough to showcase their "controlling young girls" activity on [YouTube](https://www.youtube.com/@saxofonator/search?query=vidal%20sanchez%20sastre%20horneros).
-- It appears that all attacks "funerals" on women are videoed and shared and certainly my "funeral" on 12th June 2023, was excitedly recorded on the mobile phones of all present.
+- It appears that all attacks, or "funerals" of women are videoed and shared, and certainly my "funeral" on 12th June 2023, was excitedly recorded on the mobile phones of all present.
 
 ### A second opinion
 
 - Another version of events is that this person, having the name Vidal SSH, *is* the man in the pictures above, and he was set up to be the fall-guy if anything went wrong in the original plan.
 - His attendance at the conservatory could have been a cover for the other man, a known criminal from the area.
 - In this scenario, and following a recent tip from a reliable anonymous source, I was informed that the man in the pictures above was under investigation for grooming at the time he visited the conservatory in 2022/23.
-- If this is true, and the [pictures and videos](../timeline/2023/june.md#youtube) made very public do seem to suggest he was involved in some sort of grooming gang scenario, then could the criminal porn gangs have simply needed someone to play a part to hide the fact that real pimps and pornographers were entering the conservatory to do whatever they liked.
+- If this is true, and the [pictures and videos](../timeline/2023/june.md#youtube) made very public do seem to suggest he was involved in some sort of grooming gang scenario, then could the criminal porn gangs have simply needed someone to play a part to hide the fact that real pimps and pornographers were entering the conservatory freely to do whatever they liked.
 - And who better than someone already under suspicion for similar crimes?
 
 ## The *other* trumpet teacher
 
 - The man in the pictures above is only half the man I remember.
-- While I was still being drugged, I thought he had a twin brother. I mentioned this in an earlier draft (commit) of this document. I said "the brother made himself known to me one evening when I walked through the tunnel during the intensive gang stalking in October 2023."
+- While I was still being drugged, I thought he had a [twin brother](../timeline/2023/december.md#the-trumpet-teacher-has-a-brother). I mentioned this in an earlier draft (commit) of this document. I said "the brother made himself known to me one evening when I walked through the tunnel during the intensive gang stalking in December 2023."
 - He had been set up to walk past the tunnel entrance at the road just as I was walking out so that I would see him.
 - I did see him and I ran up behind him before crossing the road. And he flinched.
 - He looked exactly like the trumpet teacher, but different. So I called him a twin brother. I was certain he was the twin brother and by that time I was so used to this constant torment, every day there was some set up "event" for me, that it seemed a reasonable thing for them to do.
