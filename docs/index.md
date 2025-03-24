@@ -14,6 +14,8 @@ hide:
 
 !!! warning
     - This is a private repo and currently unavailable to the public.
+    - Due to the author only just liberating herself from constant poisoning and drugging, and due to the actions of the criminals in their intention to confuse and upset her with intricately choreographed scenes and events while she was under the influence of such substances, some of the story has yet to fully surface.
+    - For these reasons, content is at the editorial stage at the current time and not yet ready for publication.
 
 ## Summary statement
 
