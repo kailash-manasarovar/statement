@@ -2,7 +2,7 @@ This page lists the main players in the violent attack on my physical, emotional
 
 It includes teachers and staff from the conservatory of Dénia, and others.
 
-The people involved were seasoned professionals in the gang stalking game, and the chances of me being the only victim is *zero*. 
+The people involved were seasoned professionals in the gang-stalking game, and the chances of me being the only victim is *zero*. 
 
 The chances of me being the oldest victim, at least in the conservatory system, is very high.
 
@@ -24,7 +24,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ![Hornero 4](../content/images/hornero/horn-pic-4.jpg)
 
 - This is, indeed, the man who taught the class on Monday evenings that I attended.
-- However, I remember another man who looked dissimilar but seemingly I became confused about them being the same person, probably because I was on drugs, and probably because the situation was set up that way.
+- However, I remember another man who looked dissimilar but seemingly I became confused about them being the same person, probably because I was [on drugs without my knowledge](../timeline/2023/january.md#poisoning), and probably because the situation was set up with that intention.
 
 !!! tip "What?"
     - I know, this is crazy, but it's possible.
@@ -33,7 +33,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     - I believe this happened to me, as the man in the pictures above is very dissimilar to another man I remember taking the class from time to time.
 
 - One of my suspicions now is that this name probably relates to a group of criminals who control women by drugging them whilst having full root access to their social media activity.
-- In the past, sexually coercive behavior like this would usually be undertaken by pimps and perverts with the end goal of enticing and trapping women in the sex "industry" and this is certainly in keeping with the content the gangs shared with me online, such as [](../timeline/2024/august.md#photos-of-abused-women-and-girls).
+- In the past, sexually coercive behavior like this would usually be undertaken by pimps and perverts with the end goal of enticing and trapping women in the sex "industry" and this is certainly in keeping with the content the gangs shared with me online, such as [the pictures of the lady who went from innocent girl to hardcore porn activity](../timeline/2024/august.md#photos-of-abused-women-and-girls).
 - In the past, this would have been undertaken directly in physical settings, clubs and societies, bars, etc., and still is.
 - However, the sexual coercion techniques used in Dénia and the region has taken a new and extremely troubling turn.
 - Criminals and other bad actors are able to access to a person's private home network and devices in a remarkably easy way. From there, malicious actors can monitor all their online activity, paying close attention to finances and anything incriminating.
