@@ -24,6 +24,7 @@
 - At the concert, there was a moment where I saw the trumpet teacher (with his back to me) sitting in the front row watching the students of the orchestra play. I did not see his face but it seemed to be him.
 - To my left, I caught Domingo's eye. He was looking at me.
 - I knew the whole thing was a set up from that moment.
+- I think it's likely they wanted me to know because I could not know the full extent of the attack against me, and wouldn't for nearly three years more.
 
 ## Feeling unwell at home
 
