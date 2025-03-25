@@ -9,3 +9,4 @@
 ![Conservatory petition](../../content/images/conservatory-teachers.jpg)
 
 - From left-to-right, Joan Carles piano teacher, Jaume Signes trumpet teacher and director of the school, Paqui Fornet piano teacher, and Rosa Vidal vice director.
+- All of them will be aware of what happened to me, how I was targeted and why and by whom, and they all played their own little parts in tormenting a student, commendably.
