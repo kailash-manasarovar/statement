@@ -41,6 +41,11 @@
     - I had no suspicions I was being spiked with drugs at this time; something too awful to even consider being a possibility.
     - However, everything I wrote about my feelings during that time - in letters and emails and tweets, and things I said to my therapists also - talks about how I never felt anything like this in my whole life, that my whole body was vibrating in class when I was with him, and I always mentioned the debilitating after effects each week particularly on my kidney health.
 
+## Noises upstairs after Monday chamber music classes
+
+- Whenever a chamber music class takes place - which is not every week - after I arrive home I feel dreadful, my kidneys ache and I have to lie down.
+- Then I wake up late and I am kept from going back to sleep again by loud noises from the upstairs apartment; scraping chairs, loud TV, and loud voices.
+
 ## Ganesha
 
 - I print out a copy of Ganesha on an A4 piece of paper.

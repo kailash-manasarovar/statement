@@ -79,6 +79,13 @@
 - The safety of minors in the school system must take precedence. 
 - The fact that the criminal gang has been utterly obsessed with my child sexual abuse experience for nearly 10 years, and have used the information I wrote in my statement as part of their choreographed gang stalking has been enormously stressful as you can imagine.
 
+### Erotomania
+
+- Erotomania is when a person believes they are in love and in a relationship with someone, but they aren't.
+- It can be a [side-effect of certain drugs and medications](https://pubmed.ncbi.nlm.nih.gov/12662255/), such as antidepressants.
+- I wonder if certain substances, together with continued NLP/hypnosis techniques online, could imprint an erotomania effect on an unsuspecting target for abuse.
+- I wonder also if some other side-effects could arise from similar substances; such as autoimmune complaints like frozen shoulder, rheumatoid arthritis, lupus-type kidney complaints, etc.
+
 ### Work
 
 - While I was being drugged it became impossible to deal with difficult situations at work.
