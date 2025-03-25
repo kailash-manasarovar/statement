@@ -96,7 +96,7 @@
 ### Flirting
 
 - He started to flirt with me immediately; in a kind of garish ignorant way which seemed totally phoney to me.
-- I liked him.
+- I liked him and had only positive thoughts about him. It was hard to reconcile what was happening to me at the conservatory with my generous feelings about this person.
 
 ## Death of a teacher
 

@@ -13,20 +13,6 @@
 - With access like this, it is very easy to have actual conversations with a target through various methods (in my case fake account profile text) in real time.
 - My hacked devices have the evidence to prove such illicit access.
 
-## Common hacking activities
-
-- A silly example, but as I was trying to download a file (my X archive) for Chris BJ one Sunday afternoon that I was going to bring to her, and I told her at that time, April 2024 or so, that if anything happened to me, here's my X archive, so she knew I was afraid for my life, and then repeatedly downplayed everything afterwards as if it was nothing, and then said "why don't you leave?" as if it wasn't just nothing.
-- The download was blocked and took an extraordinary long time. This is an easy hack on Mac OS with the Spotlight tool.
-
-## Flashes on screen
-
-- I'll be looking at X and the screen will flash as if some other page flashed up at me but it was so quick I couldn't see what it was.
-- I wonder if it is subliminal images and perhaps it's saved to the caches of my machine.
-
-## X access
-
-- While I'm using X, the screen will sometimes bubble and images will disappear, and then it will bubble up again with new content and, quite often, at the very top, will be a hacker account with a "significant" message.
-
 ## Effect on me
 
 - When I think about how long Domingo the piano teacher and his family and associates had access to my private home life without my knowledge, and how often I must have been wondering around naked, or doing intimate things in my home that no one should have been watching, I feel really extremely upset and violated.
