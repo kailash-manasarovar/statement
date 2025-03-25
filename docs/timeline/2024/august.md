@@ -247,4 +247,4 @@ This woman does not know she is being photographed. |
 | ![pic]( ../../content/images/targeted-women/19.png ) 
 The two pics above are the same woman I often see dressed as a sexy nurse on a bed about to engage in sexual activity. It's never clear if she's aware of being filmed. I wonder if she is the nurse that lived at my apartment for a couple of weeks. Note the vile profile message that suggests she is dead in an umarked grave.  |
 | ![pic]( ../../content/images/targeted-women/20.png )
-This pic looks exactly like a student of the conservatory studying under Dominic the piano teacher: [Elsa](../2023/october.md#gang-stalking) who I have mentioned before. |
+This pic looks exactly like a student of the conservatory studying under Domingo the piano teacher: [Elsa](../2023/october.md#gang-stalking) who I have mentioned before. |

@@ -18,7 +18,7 @@
 - Things I have said on Twitter have been shared with the students and the choir teacher Salva. 
 - For example, this rather innocuous tweet: https://x.com/JackChardwood/status/1708197553483763859 is suggesting that the trumpet teacher come with me to Ireland because I need to hire a car and don't have a driving license.
 - A girl in the class comes up to me as I enter the choir classroom, and asks me, "Are you going away for the weekend?"
-- This girl (Elsa Martí García) is a piano student of Dominic. Her picture was also posted on a fake account I received during continued cyber-stalking in 2024.
+- This girl (Elsa Martí García) is a piano student of Domingo. Her picture was also posted on a fake account I received during continued cyber-stalking in 2024.
 
 ![Choir student](../../content/images/fake-accounts/choir-student.png)
 
@@ -119,7 +119,7 @@
 - I receive no reply at all, ever, not even a notification that my letter was received.
 - In fact, I write again, a few times, to the GV and I never receive any reply from them.
 - Given the seriousness of what I'm saying, it's more than weird that no-one replied to me.
-- On the `jctot19 x` Google search results, a picture is displayed with a trampoline at the bottom of apartment blocks which I take to mean that Dominic is very upset.
+- On the `jctot19 x` Google search results, a picture is displayed with a trampoline at the bottom of apartment blocks which I take to mean that Domingo is very upset.
 
 ## Hazel outside the conservatory
 
@@ -127,7 +127,7 @@
 - You may remember the reference from [earlier in 2007](../early-years/2007.md#hazel-smith).
 - I was leaving the conservatory not long after that, and she was outside with a man.
 - It's interesting because I never once mentioned her name on Twitter or any details that anyone except her would recognize.
-- So I was certain then that she was involved in the current gang stalking. I wonder if she has been involved in the ongoing spiking/poisoning, or even the 2014 threat of poisoning from Dominic. It's certainly worth considering.
+- So I was certain then that she was involved in the current gang stalking. I wonder if she has been involved in the ongoing spiking/poisoning, or even the 2014 threat of poisoning from Domingo. It's certainly worth considering.
 - Is it possible that the most evil people in a small town could have been introduced to something so abhorrent, but yet utterly addictive, which gave them utmost power over everyone? Is that the underlying nature of this story? I hope not, but I would not be surprised if it was.
 
 ## Porn intensifies
@@ -193,7 +193,7 @@ These are a selection of tweets from this period which relate to everything that
 - https://x.com/1FRGVN/status/1713262652103819341 -> reference to the table again.
 - https://x.com/1FRGVN/status/1712815203421688307
 - https://x.com/1FRGVN/status/1712456797456359427
-- https://x.com/1FRGVN/status/1711299138397032596 -> taking the piss out of muscle men, aka Dominic.
+- https://x.com/1FRGVN/status/1711299138397032596 -> taking the piss out of muscle men, aka Domingo.
 - https://x.com/1FRGVN/status/1710938372728885413
 - https://x.com/1FRGVN/status/1710594308020084863 -> replied to by Matthew, the account that is pretending to be the trumpet teacher.
 - https://x.com/1FRGVN/status/1710030138459484321 -> in reference to Matthew.

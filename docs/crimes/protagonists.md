@@ -85,7 +85,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - Symbols and memes related to him during the cyber stalking are horses, Trump, and more. I'll add these to the [memes section](../memes-triggers/memes.md) at some point.
 
-## Dominic Lopez Cano
+## Domingo Lopez Cano
 
 - Domingo Lopez Cano was my piano teacher in [2014](../timeline/early-years/2014.md).
 - I met him first at the [conservatory audition](../timeline/early-years/2014.md#conservatory-audition).
@@ -100,7 +100,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Indeed, dogs featured constantly in the online harassment and threats.
 - Here's a fake X account pic that communicated with me during the [March 2024 intensive online psychological abuse](../timeline/2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) of him as an older person.
 
-![Dominic lookalike or AI mix](../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
+![Domingo lookalike or AI mix](../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
 
 ### Carmen Lopez Cano
 
@@ -112,7 +112,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ![Carmen Cano screenshot date](../content/images/google-searches/carmen-cano-date.JPG)
 
 - It's not clear who was passing me this information.
-- I have never met Carmen Cano but it's obvious that the picture of this woman has been merged with the face of Dominic the piano teacher.
+- I have never met Carmen Cano but it's obvious that the picture of this woman has been merged with the face of Domingo the piano teacher.
 - I have another picture of her from a body cam I was wearing on 5th October. I went out without my mobile phone to go for a walk along Las Rota in Denia. I didn't want to be followed and tracked, but I wanted to still have means to call the police, so I brought my [analogue phone that I had bought in April](../timeline/2024/april.md#i-get-an-orange-sim). As I approached the restaurant Sendra, a woman cycles up behind me, then in front of me, she stops, smiles, and cycles off. It was Carmen Cano for sure. She looked a lot like the pics I have just posted. 
 
 !!! info

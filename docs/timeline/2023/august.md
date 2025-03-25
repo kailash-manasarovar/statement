@@ -19,7 +19,7 @@
 
 ## Fighting back
 
-- I realize that Dominic and the trumpet teacher are continuing to harass me online, so I decide to fight back.
+- I realize that Domingo and the trumpet teacher are continuing to harass me online, so I decide to fight back.
 - I find myself still thinking about the trumpet teacher constantly and, given it's not possible for me to be drugged, I now believe that, on top of the drugging, there was some NLP triggering mechanisms being built into my Twitter usage which could be relied upon to trigger sexual feelings in the absence of medication, and which had been set up during those medicated times.
 - Also, I wonder if there was some low level, sub-audio sexual sound files being generated through my phone (which I have safely stored so the police cyber experts can check the caches for evidence of this). 
 
@@ -78,13 +78,13 @@
 ![Threatening account](../../content/images/threats/marc-panico.png)
 
 - Curiously, this account now has completely changed tone: https://x.com/marcop51.
-- Some of the fake accounts that follow me are called **Durian**, so I know it's Dominic and his associates.
+- Some of the fake accounts that follow me are called **Durian**, so I know it's Domingo and his associates.
 - Another account is called JungleMary and this is significant because I have been playing a lot of jungle music online and tweeting jungle tracks. I am also devoted to Mary and often tweet about it too.
 
 ![Jungle Mary](../../content/images/fake-accounts/mary-just-me.png)
 
 - Also, "just me" is something I have said a lot previously.
-- [This document](../../content/tweets/august-2023-twitter.pdf) is a collection of some of those accounts. You will see durian mentioned and also the accounts mentioning dogs is a close relation to Dominic's surnames: Lopez Cano, which have a distinct canine connotation.
+- [This document](../../content/tweets/august-2023-twitter.pdf) is a collection of some of those accounts. You will see durian mentioned and also the accounts mentioning dogs is a close relation to Domingo's surnames: Lopez Cano, which have a distinct canine connotation.
 - Since I opened a Facebook account for the general election in the UK in June 2024, I have the same sort of spam accounts full of dogs and horses trying to connect with me.
 
 ## Tweet translations
@@ -110,10 +110,10 @@
 - I understand from her silence and their audacity that police action will be difficult to obtain. 
 - I [send an email to a private detective](../../content/documents/emails/pdick.pdf) in Spain to see if they can help me link these people to crimes against me. They say they cannot help me.
 - I send a post on my @JackChardwood account saying I won't go back if I'm in danger, and other things. 
-- An account, Sumithra, who follows an account Durian, follows me immediately (screenshots in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf)) and likes every post. I know it's Dominic and the trumpet teacher.
+- An account, Sumithra, who follows an account Durian, follows me immediately (screenshots in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf)) and likes every post. I know it's Domingo and the trumpet teacher.
 - https://x.com/JackChardwood/status/1696990588628029460
 
-![My posts to Dominic and the hackers](../../content/tweets/Screenshot 2024-11-17 at 15.55.13.png)
+![My posts to Domingo and the hackers](../../content/tweets/Screenshot 2024-11-17 at 15.55.13.png)
 
 - The Sumithra account no longer exists.
 - If you look at the accounts that have followed the Sumithra account in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf), you will see they are all dog-related.
@@ -176,7 +176,7 @@ Many of these tweets are confirmation of what has been going on.
 - https://x.com/1FRGVN/status/1691341944176168960
 - https://x.com/1FRGVN/status/1691069734983237632 -> reference to enchufe and corruption.
 - https://x.com/1FRGVN/status/1691044474225328128
-- https://x.com/1FRGVN/status/1691010959555379200 -> amazing this one, the pic on the last post of the thread came up on gifs and the character here actually looks like Dominic. Things like this made me think there were two camps to the stalkers, or they just took the piss out of each other constantly.
+- https://x.com/1FRGVN/status/1691010959555379200 -> amazing this one, the pic on the last post of the thread came up on gifs and the character here actually looks like Domingo. Things like this made me think there were two camps to the stalkers, or they just took the piss out of each other constantly.
 - https://x.com/1FRGVN/status/1691007234421972992 -> full thread.
 - https://x.com/1FRGVN/status/1690842596782833665
 - https://x.com/1FRGVN/status/1690840976900689920 -> still in love.

@@ -33,8 +33,8 @@
 
 !!! important
     - As well as being out of my mind with "love", I also told my friend that there was another explanation for what was going on.
-    - I detailed to her my suspicions with regards to Dominic being behind a plot to humiliate me, and everything that had happened previously.
-    - However, the feelings were so intense, I could not believe, at that time, Dominic could be behind them too.
+    - I detailed to her my suspicions with regards to Domingo being behind a plot to humiliate me, and everything that had happened previously.
+    - However, the feelings were so intense, I could not believe, at that time, Domingo could be behind them too.
     - I thought they were genuine feelings.
     
 ## Novena
@@ -43,7 +43,7 @@
 - At that time, I wrote everything down on notes in my computer, including the things I was going to ask for in prayer, and all the things I wanted to happen in my life. 
 
 !!! danger "Criminal activity"
-    - Given that Dominic the piano teacher and his associates, including his family and teachers and staff at the conservatory, had total access to my online activity, they knew everything that was going on for me privately; all my private desires and wishes, everything I was doing privately and publicly online, and including my prayers to Mary.
+    - Given that Domingo the piano teacher and his associates, including his family and teachers and staff at the conservatory, had total access to my online activity, they knew everything that was going on for me privately; all my private desires and wishes, everything I was doing privately and publicly online, and including my prayers to Mary.
     - It's important to keep this in mind as we go through the events.
 
 - The Novena is a 9 day prayer. On day 6 or 7, I was searching for his name in Google again, and his Twitter account came up, or so it seemed: `@jctot19`.
@@ -106,7 +106,7 @@
     - I wonder if Maria was referring to Paqui's expressed desire that I kill myself, perhaps.
 
 - Anyway, around this time, Maria is very stressed about the next year's assigned work from the Generalitat and keeps talking about how she is probably going to get a job at the superior conservatory in Valencia.
-- Knowing what I know now, it seems to me this would require some "enchufe", meaning a level of benevolence from those who can pull strings; i.e. Dominic.
+- Knowing what I know now, it seems to me this would require some "enchufe", meaning a level of benevolence from those who can pull strings; i.e. Domingo.
 
 !!! info "Supplemental"
     - Maria has been extremely stressed with regards to me getting my Spanish medical card.

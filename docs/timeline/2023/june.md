@@ -30,7 +30,7 @@
 
 - The class on 5th June is just me and the trumpet teacher.
 - I bring a couple of tunes to play, Creep and Back to Black.
-- Creep is for Dominic.
+- Creep is for Domingo.
 - Back to Black is for the trumpet teacher with regards to Ana his (apparent) girlfriend.
 - These are tunes recommended to me, I believe, by Mary at Lourdes.
 
@@ -39,7 +39,7 @@
     - At that class, the trumpet teacher asks me why I didn't bring them before to play.
 
 - I'm aware everything is a big joke, and I'm the butt of the joke, but I'm not aware of the extent of it. 
-- I mistakenly believe that only Dominic and his close associates are scheming against me.
+- I mistakenly believe that only Domingo and his close associates are scheming against me.
 - The overwhelming feelings I'm having, and some of the things the trumpet teachers says, make me suggest to myself that the trumpet teacher doesn't really want to be a part of it all.
 - I think Ana is just a lie, it was all so contrived, and she grinned at me on the stairs like I was an idiot. 
 - Everything that was happening was extremely confusing to me, and I couldn't keep anything straight in my mind.
@@ -53,13 +53,13 @@
 
 - The end of year piano concert took place at the boat club venue in Denia.
 - I played Philip Glass etude no 2.
-- As we were preparing, and just as I was a few bars in, Dominic shouts "again?" in an accusatory tone very loudly.
+- As we were preparing, and just as I was a few bars in, Domingo shouts "again?" in an accusatory tone very loudly.
 - I wonder what he means. Does he mean another ridiculous apparent romantic tryst for me at the conservatory? Or what.
 - As I go back to my seat after rehearsing, another one of the piano teachers asks me "are you alright"? I have no idea why she is asking me this.
 
 !!! danger "Critical update of 5th December 2024"
-    - Dominic will have requested her to say this to me.
-    - This was part of my police statement to the police in 2014 and Dominic and his associates will suspect this will upset me.
+    - Domingo will have requested her to say this to me.
+    - This was part of my police statement to the police in 2014 and Domingo and his associates will suspect this will upset me.
     - There are more of these events.
 
 !!! danger "Critical update of 5th December 2024"
@@ -69,10 +69,10 @@
     ![are you okay](../../content/images/are-u-okay.png)
 
 - At the time of writing I'm starting to believe "again" refers to events planned for me that will somewhat replicate the sexual abuse I suffered as a 16 year old in North London.
-- One of Dominic's students, Adriana Mihaila Mañas, she is 14 or 15, runs over to him in an affected way. I believe he has requested her to do so.
+- One of Domingo's students, Adriana Mihaila Mañas, she is 14 or 15, runs over to him in an affected way. I believe he has requested her to do so.
 - Playing in this concert is an enormous joy for me and exuberant doesn't even cover how I feel about this experience.
 - I'm so happy when all the piano students are photographed at the end of the concert, I must be grinning from ear to ear. 
-- I notice that all the piano teachers, Paqui, Joan Carles, Dominic, are looking very unhappy, no smiles at all. I wonder now if it's because they're embarrassed at how happy I obviously am. I wonder if I appear drugged? There will be photos of this.
+- I notice that all the piano teachers, Paqui, Joan Carles, Domingo, are looking very unhappy, no smiles at all. I wonder now if it's because they're embarrassed at how happy I obviously am. I wonder if I appear drugged? There will be photos of this.
 - Underlying it all though is the stress from the constant gang stalking which I know is ramping up to something on Monday 12th June at the final chamber music class.
 - The recording of my performance that evening, and the photos, were never shared with me.
 
@@ -91,7 +91,7 @@
 - As I'm walking down to the beach that afternoon, the trumpet teacher is driving towards me in a beat up, grey, Peugeot 205.
 - He sees me and takes a sharp, wheel-squealing turn into a no entry road. It's rather amusing.
 - I reminds me of the Truman Show and I feel like Truman.
-- I feel like he's coming back from scheming with Dominic and doesn't want me to see him.
+- I feel like he's coming back from scheming with Domingo and doesn't want me to see him.
 
 !!! info
     - I'm pretty sure he wanted me to see him. I'm just not sure why.
@@ -159,9 +159,9 @@
 
     ![Paqui Fornet Pastor 1](../../content/images/fake-accounts/paqui1.png){width=35%}
  
-    An AI mix containing Dominic the piano teacher posted around March 2024.
+    An AI mix containing Domingo the piano teacher posted around March 2024.
 
-    ![Dominic lookalike or AI mix](../../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
+    ![Domingo lookalike or AI mix](../../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
 
     A young Maria Hontanilla, posted around March 2024.
 
@@ -210,9 +210,9 @@
 !!! info
     - Offline download link: [https://www.youtube.com/watch?v=Td74vBNPrW0](https://drive.google.com/file/d/1AsGYbEVufI1pATGd1y0k4bAZ5Om_2gLg/view?usp=drive_link)
 
-- It may also be interesting to know who some of the other people in the group are, especially one particular woman in glasses on the left which could possibly be Carmen Cano, Dominic's sister, and looks very much like a woman I saw outside my apartment on Friday 1st November 2024.
+- It may also be interesting to know who some of the other people in the group are, especially one particular woman in glasses on the left which could possibly be Carmen Cano, Domingo's sister, and looks very much like a woman I saw outside my apartment on Friday 1st November 2024.
 - It is also interesting to note that they have managed to make a lament sound like a funeral march which, I believe, is intentional.
-- At the time I saw this I didn't really understand what I was looking at as nothing made any sense other than Dominic was "getting me back" for not allowing him to control me in 2014.
+- At the time I saw this I didn't really understand what I was looking at as nothing made any sense other than Domingo was "getting me back" for not allowing him to control me in 2014.
 
 !!! info "Interestingly"
     - There are many other YouTube videos with him in musical scenarios, some of which I felt concern a girl maybe being targeted.
@@ -261,7 +261,7 @@
 - This was not what they intended, and I knew that very well.
 - But how dare they treat a student like that! I couldn't believe at that time that such behavior could be considered normal, and protected by the school board, as I understand it is now.
 - I'm also stubborn and deeply against injustices of all kinds. 
-- Moreover, my child sexual abuse history has made me utterly intolerant of injustices to children and I knew very well that if Dominic and his associates were able to behave in such a way to an adult student, they would most definitely be doing similar to minors.
+- Moreover, my child sexual abuse history has made me utterly intolerant of injustices to children and I knew very well that if Domingo and his associates were able to behave in such a way to an adult student, they would most definitely be doing similar to minors.
 - I also realized that if I backed down and ran away, the evil would just grow.
 - I had no idea that running away was not actually what they really wanted, although from the conservatory studies yes, and perhaps that's what some of the teachers assumed. 
 - It's unclear how much and who knew about the mass voyeurism, drugging, and porn connection.
@@ -270,7 +270,7 @@
 ## Rest of June
 
 - I practice every day at the conservatory.
-- One morning I am practicing and Dominic opens the door and pokes his head through and looks at me meaningfully, as if to say "I won".
+- One morning I am practicing and Domingo opens the door and pokes his head through and looks at me meaningfully, as if to say "I won".
 - I feel overwhelmingly sexually aroused a lot at home, and masturbate often, even on the days I don't go to the conservatory.
 
 !!! info "In retrospect"

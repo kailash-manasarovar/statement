@@ -9,7 +9,7 @@
     - Genuine stalkers embroiled legit accounts into appearing to be stalkers.
 
 - Some I will point out as honey trap accounts; accounts used to lure people into a false sense of security and then, at some point, part with their money. 
-- Honey trap accounts double as stalkers given Dominic and the trumpet teacher's whole game is honey trap.
+- Honey trap accounts double as stalkers given Domingo and the trumpet teacher's whole game is honey trap.
 - Some of the stalker accounts will just be retweets, and I believe this is automated.
 
 !!! danger
@@ -61,12 +61,12 @@
 | ![ fake ]( ../content/images/fake-accounts/list/47.png ){width=50%} |  Stalker most likely. Possibly legit and/or duplicated/leached. |
 | ![ fake ]( ../content/images/fake-accounts/list/48.png ){width=50%} |  Stalker. Tweets on auto-regenerate by the looks. |
 | ![ fake ]( ../content/images/fake-accounts/list/49.png ){width=50%} |  Stalker. |
-| ![ fake ]( ../content/images/fake-accounts/list/50.png ){width=50%} |  Bonafide stalker and honey trapper. Often thought this was Dominic or Samuel. |
+| ![ fake ]( ../content/images/fake-accounts/list/50.png ){width=50%} |  Bonafide stalker and honey trapper. Often thought this was Domingo or Samuel. |
 | ![ fake ]( ../content/images/fake-accounts/list/53.png ){width=50%} |  Bonafide stalker and honey trapper. |
 | ![ fake ]( ../content/images/fake-accounts/GZ69WCMXQAEQdzB.png ){width=50%} |  Ana Requena modeling. |
 | ![ fake ]( ../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png ){width=50%} | Esteve the chamber music teacher.  |
 | ![ fake ]( ../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png ){width=50%} |  A young Maria Hontanilla on the left. |
-| ![ fake ]( ../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png ){width=50%} | Dominic the piano teacher face aged with AI.  |
+| ![ fake ]( ../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png ){width=50%} | Domingo the piano teacher face aged with AI.  |
 | ![ fake ]( ../content/images/fake-accounts/paqui1.png ){width=50%} | Paqui Fornet Pastor, younger, in a threatening pose.  |
 | ![ fake ]( ../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png ){width=50%} |  AI mix of the trumpet teacher and Gloria the conservatory receptionist. Is the suggestion they are related? She certainly was very familiar with him. |
 | ![ fake ]( ../content/images/fake-accounts/list/54.png ){width=50%} |  Stalker. Is this person the same as the following. |

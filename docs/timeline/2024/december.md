@@ -9,7 +9,7 @@
     - Pictures of possums.
     - A picture of a woman I saw on the beach but about 20 years younger.
     - A very threatening picture of a man (rather like the [picture of the gypsy I saw in France](august.md#followed-by-the-gypsy-in-france)).
-    - Direct references to Dominic and Carmen Cano, poison and murder.
+    - Direct references to Domingo and Carmen Cano, poison and murder.
 - Fortunately, I already posted some of them, such as the [threat to my brother's life](november.md#a-threat-to-my-brothers-life) as the hackers were getting extremely bold over November. I'll try to find some of the accounts I interacted with.
 - When I look at Twitter on my mobile after my machine being inaccessible, the first two likes are honey trap or fakes accounts that seem to be taking the piss out of the fact I cannot access my machine.
 - Taru Ann, the Finnish honey trap account, likes an old post of mine.
@@ -39,7 +39,7 @@
 - I suggest that, where possible, the bodies of any suspicious deaths in the region are exhumed and analyzed for poisons and narcotics.
 - I suggest that, all previous residents in my flat or any flat managed by anyone related to these matters, is checked up on, and questioned.
 - And a first point of call should be Elaine Black's family, and anyone that knew her, and to have a look at any police complaints she may have made prior to her untimely death by suicide.
-- Furthermore, if I was an investigator, I'd make sure to check every single student that Dominic the piano teacher has taught over the years to see how many of them ended up in porn or prostitution and/or were exploited financially in some way.
+- Furthermore, if I was an investigator, I'd make sure to check every single student that Domingo the piano teacher has taught over the years to see how many of them ended up in porn or prostitution and/or were exploited financially in some way.
 
 ## Fake accounts and targets
 
@@ -120,6 +120,6 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
 
 - The usual pics coming up. One that I have noticed over the last months but it didn't register until today was a very scared looking man who looks exactly like Alfonso the Harmony teacher in year 4.
 - He was very alarmed when I told everyone I had to leave because my life had been threatened.
-- The hackers on Twitter referred to him as "Brat". I assume that would be Dominic as he would know him best.
+- The hackers on Twitter referred to him as "Brat". I assume that would be Domingo as he would know him best.
 
 ![harmony teacher looking scared](../../content/images/google-searches/harmony-teacher.png)

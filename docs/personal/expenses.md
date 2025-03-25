@@ -99,7 +99,7 @@ My laptops and phones are really unusable as they are infested with hacker softw
 
 ### 1989 porn
 
-- Incalculable. Certainly the porn that Winston May and his associates made of me in 1989 will have made hundreds of thousands of pounds over the last 35 years. Furthermore, when Dominic the piano teacher, Hazel Smith, and their associates found this porn, they would likely have been reselling it, and certainly in lieu of the "reenactment" they had planned, as a taster.
+- Incalculable. Certainly the porn that Winston May and his associates made of me in 1989 will have made hundreds of thousands of pounds over the last 35 years. Furthermore, when Domingo the piano teacher, Hazel Smith, and their associates found this porn, they would likely have been reselling it, and certainly in lieu of the "reenactment" they had planned, as a taster.
 - I believe I was live-streamed at my apartment masturbating, again in lieu of a "reenactment" I suspect, but also because I managed to foil their evil plot and they had to sell something.
 - I believe the money they made on my is in the hundreds of thousands.
 - In the way that these people are really keen for you to know what they're doing at your expense cos it must give them a little kick; with a little hint there, a word here, little visual or statement, etc., the cars that drove past my house, beeping and taunting me, were expensive, fast, and new. 

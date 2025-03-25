@@ -21,7 +21,7 @@
 ## Bullying starts quietly
 
 - People are talking about me negatively at the conservatory; cold looks, weird laughter, a frosty feeling.
-- I hear the word "coffee" a lot and relate it to me complaining that Dominic invited me for coffee back in 2014, and he shouldn't have.
+- I hear the word "coffee" a lot and relate it to me complaining that Domingo invited me for coffee back in 2014, and he shouldn't have.
 - I'm having a hard time at work too.
 - I'm stressing unnecessarily.
 - I have a strong sense that something sinister is going on that I'm unaware of. 

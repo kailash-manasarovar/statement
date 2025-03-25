@@ -3,7 +3,7 @@
 - The trumpet teacher was flirting with me at the music classes.
 - I fancied him.
 - I hadn't liked a man like that since 2003, and I was still depressed, so it was all a bit unsettling.
-- I also felt it was all a set up and Dominic was behind it, for revenge.
+- I also felt it was all a set up and Domingo was behind it, for revenge.
 - I know that this "pretending to like you game" is what Spanish men do to women who "turn them down" and it had bizarrely happened to me before so I knew what was going on.
 - However, it was impossible to know how to deal with it.
 - I felt I was in a situation I could do nothing about at that time, except see what happened.

@@ -54,7 +54,7 @@
 - I believe I'm talking to the trumpet teacher still, or someone close to him.
 - I joke about "whipping them up into a frenzy" and post tweets saying we're going for coffee and such like.
 - He replies he never goes out but I say I'm just messing with them.
-- I use this phrase from time to time: https://x.com/1FRGVN/status/1779265814186610831 as it references the way Dominic is somehow able to get the little girls all excited and nervous, giggly and embarrassed around him.
+- I use this phrase from time to time: https://x.com/1FRGVN/status/1779265814186610831 as it references the way Domingo is somehow able to get the little girls all excited and nervous, giggly and embarrassed around him.
 - Down at the beach, young men come up to me and make references to coffee.
 - In this unusual way, we chat about things that have happened between us, that no one could know unless he told them, or is telling them; private looks we made to each other for example. I'm sure it's the trumpet teacher.
 - I feel extremely sexually aroused these last two weeks in July before I leave for Lourdes.

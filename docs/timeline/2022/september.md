@@ -4,7 +4,7 @@
 
 !!! tip "Essential context around gang stalkers ultimate goals"
     - The reader should realize that the teachers and staff at the conservatory of Dénia, and persons at that time unknown, and possibly even my English expat friends, had been planning an exaggerated and vicious gang stalking situation, with me as target and, although I was aware that something evil was going on, I was completely unaware of the extent of it and how many people were involved until March 2024, 18 months away.
-    - Therefore, everything I describe with regards to the actions and behavior of the staff and teachers at the conservatory of Dénia is part of a carefully choreographed deceit, managed and directed by Dominic the piano teacher Lopez and his associates, which include the trumpet teacher who was calling himself Vidal Sastre Sanchez Hornero, Dominic's family members especially his sister Carmen, and others such as Paqui Fornet Pastor and Maria Hontanilla, and other teachers and staff.
+    - Therefore, everything I describe with regards to the actions and behavior of the staff and teachers at the conservatory of Dénia is part of a carefully choreographed deceit, managed and directed by Domingo the piano teacher Lopez and his associates, which include the trumpet teacher who was calling himself Vidal Sastre Sanchez Hornero, Domingo's family members especially his sister Carmen, and others such as Paqui Fornet Pastor and Maria Hontanilla, and other teachers and staff.
     - It is not clear whether the staff and teachers at the conservatory were aware of the full implications of what was happening with regards to online criminal sexploitation and porn gangs, or whether they just assumed I was just another vulnerable woman being bullied, and this was a normal occurrence and rather enjoyable to them in the way that the local hangings might have been in the past.
     - The question is, did they, and people like Patricia and Christine, know about the underlying plot running parallel which was sexual grooming, clandestine medicating/spiking with aphrodisiac substances, porn gathered from cyber-stalking/hacking/voyeurism, and potentially far worse. 
     - In retrospect, it seems highly likely they would have known the full implications for me as a target.
@@ -35,17 +35,17 @@
 ### Harmony
 
 - The teacher is Adrià Gil Boronat, an erratic and extremely nervous man in his fifties.
-- One of my classmates is Samuel Viciano Herranz who has near perfect English. He is Dominic's student.
+- One of my classmates is Samuel Viciano Herranz who has near perfect English. He is Domingo's student.
 - Samuel was studying singing at the Javea conservatory but moved to study piano in Dénia instead. It's not clear why.
 - Samuel tells me he used to be a student of Elaine Black. I cry when he tells me this and have to leave the room. This is not like me normally.
-- Elvira Valdivia Escribano is also in this class. She is a minor child and she is Dominic's student also.
-- Elvira has a sister, Lucía, in the year above who is also Dominic's student.
+- Elvira Valdivia Escribano is also in this class. She is a minor child and she is Domingo's student also.
+- Elvira has a sister, Lucía, in the year above who is also Domingo's student.
 
 !!! warning "Elvira and Lucía"
     - Elvira and Lucía have moved to Dénia from Madrid.
     - They live with their mother who is very rich and possibly a widow or divorced.
-    - Dominic is often seen alone with Elvira and Lucía in the town.
-    - Dominic is alone with them a lot and will have had unfettered access to their phones.
+    - Domingo is often seen alone with Elvira and Lucía in the town.
+    - Domingo is alone with them a lot and will have had unfettered access to their phones.
     - At some point, Samuel informs me they are buying a Steinway piano.
     - I am concerned about the safety of the girls and their mother.
 
@@ -68,7 +68,7 @@
 !!! warning "Lucía bullies Concha"
     - Throughout the year, Lucía bullies Concha in choir class; sarcastic comments, dirty looks to the rest of the class, etc.
     - It's very embarrassing and I notice some of the other students are really angry and bored with this.
-    - It's obvious Dominic is instructing Lucía to bully Concha. Why is anyone's guess.
+    - It's obvious Domingo is instructing Lucía to bully Concha. Why is anyone's guess.
     - Is it because she acts as the go to person for any abuses by teachers as she will reveal to me when I reach out to her in July?
 
 ### Chamber music
@@ -77,8 +77,8 @@
 - I have been designated a trumpet student: Pablo Sesé Savall, a 14 year old boy.
 - There is no teacher assigned to this class in September.
 
-## Dominic's little group
+## Domingo's little group
 
-- Occasionally, I see Dominic around. 
+- Occasionally, I see Domingo around. 
 - He's always with his little group of youngsters, Elvira and Lucía, and Samuel, a man in his 20s.
-- It's cliquey and extremely weird. I'm concerned for the safety of Dominic's female students.
+- It's cliquey and extremely weird. I'm concerned for the safety of Domingo's female students.

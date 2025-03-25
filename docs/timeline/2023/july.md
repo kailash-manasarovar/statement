@@ -85,7 +85,7 @@ Some of my tweets from that time.
 ![Carmen in today's results](../../content/images/google-searches/Screenshot%202024-11-17%20at%2007.15.36.png)
 
 - Most of the images in the screenshot above are new, I haven't seen them previously, apart from the Carmen image which has been appearing on and off since July 2023, and the photo of Rocio Vidal which has been appearing probably since around October 2023 and we will talk about that [later](october.md#rocio-vidal) as it is significant.
-- Curiously, I thought Carmen was plate lady but that wasn't the case. Carmen, as I'm informed later, represents Carmen Cano, Dominic's sister, a major player in the deceit and harassment.
+- Curiously, I thought Carmen was plate lady but that wasn't the case. Carmen, as I'm informed later, represents Carmen Cano, Domingo's sister, a major player in the deceit and harassment.
 
 ### Ana
 
@@ -93,7 +93,7 @@ Some of my tweets from that time.
 
 ### Mortadelo y Filemón
 
-- Pictures of two cartoon men, Mortadelo y Filemón, I understood to reference the trumpet teacher and Dominic as crashing fools.
+- Pictures of two cartoon men, Mortadelo y Filemón, I understood to reference the trumpet teacher and Domingo as crashing fools.
 - It turns out that around this time the cartoonist died so that was in keeping with the times and, perhaps, was not related intentionally.
 
 ## Thailand
@@ -128,8 +128,8 @@ Some of my tweets from that time.
     - My Spanish is not very good so I always have to have a starting point of English. 
     - Here is my first [letter to Concha in English](../../content/documents/letters/Letter%20to%20Concha.pdf).
 
-- This letter was an attempt to apologize to Concha if I had upset her by mentioning Dominic's students bullying her on Twitter. I was worried about that, even though I never mentioned any names at any time.
-- It's clear from my letter that, at this stage, I have absolutely no idea what's really going on other than that I have been bullied by teachers and staff at the conservatory. I assume it was because I wrote the message expressing my feelings to the trumpet teacher in Spanish on Twitter and some angry tweets about Dominic when he didn't respond.
+- This letter was an attempt to apologize to Concha if I had upset her by mentioning Domingo's students bullying her on Twitter. I was worried about that, even though I never mentioned any names at any time.
+- It's clear from my letter that, at this stage, I have absolutely no idea what's really going on other than that I have been bullied by teachers and staff at the conservatory. I assume it was because I wrote the message expressing my feelings to the trumpet teacher in Spanish on Twitter and some angry tweets about Domingo when he didn't respond.
 - Concha was my friend so I felt I could reach out to her.
 - She responded by asking me if I had been abused by the trumpet teacher and, if I had, I was to report it immediately and she would help me.
 
@@ -171,14 +171,14 @@ Some of my tweets from that time.
 - I was very apologetic and assured him I would deal with it immediately I was back from France. I had been initially really scared they would stop me from driving in Spain.
 - We were talking about stuff, and I forgot a word I needed, the word for management service (gestor), as I was explaining I would get them to deal with it immediately, but I couldn't remember the word, and I was scratching my head ... and he says ...
 - "Ladrones de Dénia", which means bad people of Dénia.
-- It was an extraordinarily weird thing to say, and I took it to mean I had been grassed up by Dominic and his associates as I was driving to France because the identification document the conservatory had was my British driving license, and because of the good relationship I was having with this man, he informed me, somehow.
+- It was an extraordinarily weird thing to say, and I took it to mean I had been grassed up by Domingo and his associates as I was driving to France because the identification document the conservatory had was my British driving license, and because of the good relationship I was having with this man, he informed me, somehow.
 - What I didn't realize yet was that they could tell the police the exact moment I would be in a particular area of the carriageway, on the A23 outside Teruel, because they were tracking my movements and had been for some time probably. 
 - This stop, and the missed call previously, is surely evidence that my movements were being tracked.
 
 ## Lourdes
 
 - I arrive in Lourdes.
-- When I meet my friend, I'm sorry to tell her that my negative suspicions about what had been going on were correct and that I had been bullied and targeted by Dominic and his associates and that the trumpet teacher was involved also.
+- When I meet my friend, I'm sorry to tell her that my negative suspicions about what had been going on were correct and that I had been bullied and targeted by Domingo and his associates and that the trumpet teacher was involved also.
 - I was still in love, however. And still out of my mind.
 
 ## Tweets

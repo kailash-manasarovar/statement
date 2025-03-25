@@ -12,9 +12,9 @@
 - She is a large dark curly-haired woman of about 50 years old and I would recognize her again.
 - Paqui explains the woman is an *inspector* from the Generalitat and she is here to help me.
 - I feel like it's probably an ambush and put my phone on record.
-- Paqui reiterates that the woman is here to help me with everything that's going on, and I understand that to mean because of how I previously told her I'm stressed because I'm being terrorized by Dominic and his mates. 
+- Paqui reiterates that the woman is here to help me with everything that's going on, and I understand that to mean because of how I previously told her I'm stressed because I'm being terrorized by Domingo and his mates. 
 - The woman talks about having to get the police involved.
-- I am delighted and express gratitude because something is finally happening after nearly two years of abuse instigated by a teacher, Dominic the piano teacher.
+- I am delighted and express gratitude because something is finally happening after nearly two years of abuse instigated by a teacher, Domingo the piano teacher.
 - I ask her why the Generalitat has not replied to any of my emails or letters.
 - She says they did but they not have my street address!
 - She tells me they did reply in December but it came back to them because they did not have my street address. This is ridiculous.
@@ -44,7 +44,7 @@
 - I ask Gloria at the conservatory if anyone has handed in an iPad.
 - She becomes extremely concerned about it and we go looking around the building.
 - She is really upset about the thought an iPad might have been stolen. I find it astonishing.
-- Her concern for my iPad far extends any concern she might have had for me, a student, being terrorized by Dominic, a teacher, and his associates, which includes her of course.
+- Her concern for my iPad far extends any concern she might have had for me, a student, being terrorized by Domingo, a teacher, and his associates, which includes her of course.
 - When we are upstairs, I speak to her about what's going on privately. I tell her I can't believe how it just goes on and on.
 - She looks scared. She is shaking and her voice is trembling.
 - I tell her "you know it's not just me they're looking at online". An alarmed flash crosses her face.
@@ -54,7 +54,7 @@
 
 - I go to see Enric. I know him already from  when I lived in Denia previously in 2006-9, and we had friends in common.
 - I tell him everything. 
-- As I start to mention the threats from Dominic he shuts me down.
+- As I start to mention the threats from Domingo he shuts me down.
 - He says I should see the Denia local police who have a division for gender violence.
 - We go outside.
 - I'm speaking to him and he's laughing at me while I do. I wonder if someone is behind me making faces or playing the fool. It's unsettling.
@@ -85,7 +85,7 @@
 
 - Right after this, a fake account whizzes by on likes with the name Carmen Cano.
 - I can only assume it is a message from someone to make me think Carmen Cano is behind the scam.
-- Carmen Cano being Dominic the piano teacher's sister.
+- Carmen Cano being Domingo the piano teacher's sister.
 
 ![Carmen Cano](../../content/images/fake-accounts/carmen-cano.png)
 
@@ -227,7 +227,7 @@
 - She has done a really good job of it too. 
 - I gasp.
 - At precisely that moment, my security camera at home goes off and sounds an alarm on my phone. I don't have time to look.
-- The woman dressed as Elaine (who I now believe to be Carmen Cano, Dominic's sister) and a man sit directly behind me, in seats that have been saved for them.
+- The woman dressed as Elaine (who I now believe to be Carmen Cano, Domingo's sister) and a man sit directly behind me, in seats that have been saved for them.
 - Patricia, Christine BJ, and another English woman have come to listen. They maybe know what's going on, it's not clear. Certainly there is a frosty feeling, and when we walk out and I insist I'm going to continue playing the piano, and play some Spanish flamenco at the next concert, Patricia visibly grimaces.
 - When I get home that night, I check my camera security camera. 
 
@@ -353,7 +353,7 @@
 - I write a letter **by hand** to my parents and I date it the following morning. This is the first contact with them for nearly 3 years.
     - [Letter to parents of 15th March](../../content/documents/letters/letter-to-parents-march-15.pdf).
 - I explain I'm being terrorized and by whom. I try to keep it calm because my parents are elderly, and I don't know how things are with them. I don't want to upset them too much.
-- I tell them I believe that Dominic and his family are planning to murder me.
+- I tell them I believe that Domingo and his family are planning to murder me.
 - I remind them of what he told me all those years ago, the threat of poisoning, something that I had told them at that time.
 - While I'm in Madrid I reformat to factory settings both my Mac and iPhone. It doesn't appear to make any difference at all.
 
@@ -470,7 +470,7 @@
 
 ![hier encore threatening chat](../../content/images/threats/hier-4.png)
 
-- I believe this account, like many others, is manned by either Hazel or Sandra Smith together with Dominic and Carmen Cano by delegation. 
+- I believe this account, like many others, is manned by either Hazel or Sandra Smith together with Domingo and Carmen Cano by delegation. 
 - The reason I say that is because the English is extremely fluent, very vernacular for some messages, and then not at all.
 
 ### Ana account 
@@ -574,14 +574,14 @@
 
 ## 20th March
 
-### Dominic the piano teacher
+### Domingo the piano teacher
 
 - The account `@AllyBrisket` had always seemed suspicious to me.
 - Samuel from harmony class back in [May 2023 when the cyber stalking really got going](../2023/may.md#harmony-class-that-week) may have signalled this account out to me during a weird chat.
 - At this point I'm so stressed I start communicating with accounts directly as if they are who I they think they are.
 
-![Dominic 1](../../content/images/fake-accounts/domingo-1.png)
-![Dominic 2](../../content/images/fake-accounts/domingo-2.png)
+![Domingo 1](../../content/images/fake-accounts/domingo-1.png)
+![Domingo 2](../../content/images/fake-accounts/domingo-2.png)
 
 ## 24th March
 
