@@ -15,7 +15,7 @@ This is a non-exhaustive list of all the dreams or visions I remembered from aro
 - He was standing in front of me watching me do yoga.
 - He was in my bed numerous times: once having sex, once sleeping and waking up to see me looking at him at which point he said my name, and one time he was sobbing in my arms.
 - He was sitting on my garden furniture on the terrace.
-- He was in the kitchen with me.
+- He was in the kitchen with me, possibly slow dancing.
 - Marie Carmen my neighbor was in my flat standing in front of me, poking me in the chest.
 - Hazel Smith was in my flat with a man I didn’t know.
 - Men I didn’t know were in my flat, sometimes in the bathroom, two or three of them at the same time.
