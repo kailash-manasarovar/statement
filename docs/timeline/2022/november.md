@@ -70,27 +70,33 @@
 - Then the other student, Pablo Sesé Savall, a 14 year old boy, came to class. 
 - The trumpet teacher kept looking at me with that same grin I'd seen on him in Benijembla. It was disturbing.
 
-## His other classes
+### His other classes
 
 - The trumpet teacher had two other classes; one was with the autistic girl, Candela Morales Lucas, 14 or so. She played the flute and a boy (could he be a trans boy?) played the guitar to accompany.
 - The other student he had was an adult learner. A doctor from the Dénia hospital, Joan, and his class was just before ours, 7-8pm.
 - Incidentally, it was this guy who had been hiking with the trumpet teacher as [just mentioned](#walking-in-benijembla-with-the-english-ladies).
 - AFAIK the trumpet teacher had no other classes and he only came to the conservatory on Monday evenings.
 
-## Attendance
+### Attendance
 
 - The trumpet teacher skipped many many classes.
 - All in all he probably turned up to teach about 50% of the classes we had scheduled.
 - He (apparently) had the flu 3 times and numerous other more important things. It was very weird.
 
-## Skills and experience
+### Skills and experience
 
 - He appeared to have never been a teacher before, or was completely lazy and didn't care about what he was doing.
 - I took over the classes a little bit.
 
-## Flirting
+### Deafness
+
+- He seemed to have a hearing issue and a little bit of a speech impediment arising from this.
+- I found this faultiness very endearing.
+
+### Flirting
 
 - He started to flirt with me immediately; in a kind of garish ignorant way which seemed totally phoney to me.
+- I liked him.
 
 ## Death of a teacher
 
