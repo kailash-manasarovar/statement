@@ -17,6 +17,14 @@
 - I started to think about him a lot. I have a tendency to do this with men I like so there was nothing strange about it from my side. 
 - It was a bit irritating though, and I knew there was a "plot" against me with regards to all this, so it was a bit stressful too.
 
+## Dreaming of snakes
+
+- I started having strange dreams around this time, after I had encountered the trumpet teacher.
+- I usually tweeted about these dreams.
+- I dreamt often of snakes.
+
+![Dreaming of snakes](../../content/images/dreaming-of-snakes.png)
+
 ## Choir concert
 
 - There was a Christmas choir concert for the whole conservatory and it took place in the hall at the [Balearic Port](http://www.baleariaport.com/en/nuestros-servicios/espacios-socioculturales/).
@@ -25,6 +33,8 @@
 - To my left, I caught Domingo's eye. He was looking at me.
 - I knew the whole thing was a set up from that moment.
 - I think it's likely they wanted me to know because I could not know the full extent of the attack against me, and wouldn't for nearly three years more.
+
+
 
 ## Feeling unwell at home
 
