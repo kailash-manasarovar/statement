@@ -12,10 +12,18 @@
 - There were some messages from people on his Facebook saying "look how much they've grown" so I assumed they were his daughters
 - I heard him tell my classmate Pablo - and when I asked him later he also told me - he was a secondary school teacher teaching music in the outskirts of Valencia, some 8kms away from the center of the city. I can't remember the name of the town he said, but it began with B.
 - I found no record of him teaching at any secondary school online.
-- When I looked at his Facebook page again over Christmas it appeared that he had deleted it.
-- The Facebook name was exactly the same as the name in the GV systems, Vidal Sastre Sanchez Hornero (VSSH).
+- When I looked at his Facebook page again over Christmas it appeared that he had deleted it, or blocked me, I'm not familiar with how Facebook works.
+- The Facebook name was exactly the same as the name in the GV systems, **Vidal Sastre Sanchez Hornero*.
 - I started to think about him a lot. I have a tendency to do this with men I like so there was nothing strange about it from my side. 
 - It was a bit irritating though, and I knew there was a "plot" against me with regards to all this, so it was a bit stressful too.
+
+## Choir concert
+
+- There was a Christmas choir concert for the whole conservatory and it took place in the hall at the [Balearic Port](http://www.baleariaport.com/en/nuestros-servicios/espacios-socioculturales/).
+- I was feeling nervous and anxious a lot around this time. I didn't relate it to anything untoward.
+- At the concert, there was a moment where I saw the trumpet teacher (with his back to me) sitting in the front row watching the students of the orchestra play. I did not see his face but it seemed to be him.
+- To my left, I caught Domingo's eye. He was looking at me.
+- I knew the whole thing was a set up from that moment.
 
 ## Feeling unwell at home
 
