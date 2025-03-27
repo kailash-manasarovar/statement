@@ -35,7 +35,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     - Now you can set up a situation in which you have two, or more, people swapping the same role from time to time, so as to confuse the person into relating multiple people as the same one person.
     - Add to this, root access to the target's online activity, with the ability to flash whatever images you like up for subliminal stimulation.
     - I believe this happened to me, as the men in the pictures above are dissimilar to each other, *and* to another man I remember taking the class from time to time.
-    - And now, I'm wondering if all the pictures of Vidal Sastre Sanchez Hornero are of a number of different people.
+    - And now, I'm wondering if all the pictures of Vidal Sastre Sanchez Hornero that I personally recognize are of a number of different people.
     - If a group of men wanted to groom unwitting young girls, and get away with it, how better than to never be the same person the young girls see twice.
     - Even better if there is intimate activity with the target without her knowledge. The body, and mind under sedation, always remembers something.
     - Anyone making a complaint would be easily dismissed, not least because everyone else is aware there is a target and what's happening to her.
