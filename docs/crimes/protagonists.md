@@ -2,7 +2,7 @@ This page lists the main players in the violent attack on my physical, emotional
 
 It includes teachers and staff from the conservatory of Dénia, and others.
 
-The people involved were seasoned professionals in the gang-stalking game, and the chances of me being the only victim is *zero*. 
+The people involved were seasoned professionals in the gang-stalking game, and sexual grooming online and in person. Therefore, the chances of me being the only victim is *zero*. 
 
 The chances of me being the oldest victim, at least in the conservatory system, is very high.
 
@@ -10,7 +10,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - This is the name given to the trumpet teacher who turned up to teach class very sporadically starting at the [end of November 2022](../timeline/2022/november.md#the-trumpet-teacher).
 - I have not found it believable that this man's name is Vidal Sastre Sanchez Hornero, unless these criminal gangs are so arrogant and protected, they don't bother hiding themselves.
-- This is the name registered in the Generalitat Valenciana systems.
+- This is the name registered in the Generalitat Valenciana systems, even today, although an official told me the person could not be found.
 - He is apparently the director of a [band in Valencia](https://www.lamistatquart.com/) and this fits with his original story.
 - There are a bunch of references for this name online, including references which come from the Generalitat's formal lists of teachers.
 
@@ -23,17 +23,20 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ![Hornero 3](../content/images/hornero/horn-pic-3.jpg)
 ![Hornero 4](../content/images/hornero/horn-pic-4.jpg)
 
-- This is, indeed, the man who taught the class on Monday evenings that I attended.
-- However, I remember another man who looked dissimilar but seemingly I became confused about them being the same person, probably because I was [on drugs without my knowledge](../timeline/2023/january.md#poisoning), and probably because the online NLP/hypnosis situation was set up with that intention.
+- This is, indeed, the man who taught the class on Monday evenings that I attended. At least, I look at all these pictures and remember them as being the "trumpet teacher" who turned up to class sporadically on Mondays.
+- Another picture I recognized as him was from [the video of another girls "funeral"](../content/images/youtube-video.png) I had found in June 2023, in Dublin, when I was severely traumatized after the events of 12th June 2023.
+- However, looking at these pictures, I believe I remember another man who looked dissimilar again. - If this is true, seemingly I became confused about these people being the same person, probably because I was [on drugs without my knowledge](../timeline/2023/january.md#poisoning), and probably because the online NLP/hypnosis situation was set up with that intention.
 - Curiously, online face comparison tools say that none of the above pictures are of the same person.
 
 !!! tip "What?"
     - I know, this is crazy, but it's possible.
-    - Imagine if you have control of a person by giving them psycho-and-mood altering substances and they are unaware of it.
+    - Imagine if you have control of a person by giving them psychoactive and mood altering substances and they are unaware of it.
     - Now you can set up a situation in which you have two, or more, people swapping the same role from time to time, so as to confuse the person into relating the two people as the same one person.
-    - Add to this psychoactive substances and access to the targets online activity, with the ability to flash whatever images you like up.
-    - I believe this happened to me, as the man in the pictures above is very dissimilar to another man I remember taking the class from time to time.
+    - Add to this, root access to the target's online activity, with the ability to flash whatever images you like up.
+    - I believe this happened to me, as the men in the pictures above are dissimilar to each other, *and* to another man I remember taking the class from time to time.
     - And now, I'm wondering if all the pictures of Vidal Sastre Sanchez Hornero are of a number of different people.
+    - If a group of men wanted to groom unwitting young girls, and get away with it, how better than to never be the same person the young girls see twice.
+    - Anyone making a complaint would be easily dismissed, not least because everyone else is aware there is a target and what's happening to her.
 
 - One of my suspicions now is that this name probably relates to a group of criminals who control women by drugging them whilst having full root access to their social media activity.
 - In the past, sexually coercive behavior like this would usually be undertaken by pimps and perverts with the end goal of enticing and trapping women in the sex "industry" and this is certainly in keeping with the content the gangs shared with me online, such as [the pictures of the lady who went from innocent girl to hardcore porn activity](../timeline/2024/august.md#photos-of-abused-women-and-girls).
@@ -53,7 +56,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ![Hornero activity funeral home](../content/images/hornero/horn-funerals-1.png)
 
 - "Se la rifaron" means, they sold her off.
-- I do not believe Vidal Sastre Sanchez Hornero is the trumpet teacher's name under these circumstances.
+- I do not believe Vidal Sastre Sanchez Hornero is any of the trumpet teacher's names under these circumstances. 
 - Whoever these people are, they are proud of their behavior, and arrogant enough to showcase their "controlling young girls" activity on [YouTube](https://www.youtube.com/@saxofonator/search?query=vidal%20sanchez%20sastre%20horneros).
 - It appears that all attacks, or "funerals" of women are videoed and shared, and certainly my "funeral" on 12th June 2023, was excitedly recorded on the mobile phones of all present.
 
