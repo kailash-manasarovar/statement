@@ -19,3 +19,17 @@ This is a non-exhaustive list of all the dreams or visions I remembered from aro
 - Marie Carmen my neighbor was in my flat standing in front of me, poking me in the chest.
 - Hazel Smith was in my flat with a man I didn’t know.
 - Men I didn’t know were in my flat, sometimes in the bathroom, two or three of them at the same time.
+
+## Substances added in my home
+
+- In the water.
+- In the air vents.
+- In my toiletries, food, and water.
+
+## Drugged at the conservatory in class
+
+- Powder in my ear.
+- Powder on my neck.
+- Oil-based drugs on the music paper.
+- Oil-based drugs on the mobile phone screen.
+
