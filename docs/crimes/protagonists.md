@@ -86,8 +86,9 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Had both these men been at that first class?
 - Had they wheeled out this original person from Valencia just to keep his face in my head (although by that time, some of the trick had worn off, i.e. I had forgotten him mostly and thought he was a twin brother instead of the real thing).
 - Patricia, when I asked her how she knew Vidal, said "who"? But it's clear she knows who, at least one of these other men is, but perhaps not the man I thought was the brother or any of the men in the pictures above.
-- During other aspects of the stalking, the trumpet teacher posing as a hacker suggested to me there was a brother and sent pictures. I was convinced the brother was called Andrew, a clearly younger brother with blond hair, and I couldn't understand why the pictures didn't look like a twin!
-- In any case, serious investigators will know immediately who all of these people are, as will the whole town know the main players.
+- During more recent stalking events when I was still clearly under the influence of mind-altering substances, and even though I had been away from Denia for some weeks, the trumpet teacher posing as a hacker suggested to me there was a brother and a sister and sent [pictures](../timeline/2024/august.md#the-trumpet-teacher-pics). 
+- I was convinced the brother was called Andrew, a clearly younger brother with blond hair, but I couldn't understand why none of the pictures looked like there were twins and in fact the older brother, and the younger man which at the time of writing is still rendering on my Google searches, look like no-one I have seen before! At least not consciously.
+- In any case, serious investigators will know immediately who all of these people are, as will the whole town know who the main players are.
 - Here he is one of the VSSH team playing the trumpet.
 
 ![The trumpet teacher](../content/images/youtube-video.png)
