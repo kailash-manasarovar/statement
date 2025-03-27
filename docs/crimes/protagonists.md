@@ -25,14 +25,15 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - This is, indeed, the man who taught the class on Monday evenings that I attended. At least, I look at all these pictures and remember them as being the "trumpet teacher" who turned up to class sporadically on Mondays.
 - Another picture I recognized as him was from [the video of another girls "funeral"](../content/images/youtube-video.png) I had found in June 2023, in Dublin, when I was severely traumatized after the events of 12th June 2023.
-- However, looking at these pictures, I believe I remember another man who looked dissimilar again. - If this is true, seemingly I became confused about these people being the same person, probably because I was [on drugs without my knowledge](../timeline/2023/january.md#poisoning), and probably because the online NLP/hypnosis situation was set up with that intention.
+- However, looking at these pictures, I believe I remember another man who looked dissimilar again. 
+- If this is true, seemingly I became confused about these people being the same person, probably because I was [on drugs without my knowledge](../timeline/2023/january.md#poisoning), and probably because the online NLP/hypnosis situation was set up with that intention.
 - Curiously, online face comparison tools say that none of the above pictures are of the same person.
 
 !!! tip "What?"
     - I know, this is crazy, but it's possible.
     - Imagine if you have control of a person by giving them psychoactive and mood altering substances and they are unaware of it.
-    - Now you can set up a situation in which you have two, or more, people swapping the same role from time to time, so as to confuse the person into relating the two people as the same one person.
-    - Add to this, root access to the target's online activity, with the ability to flash whatever images you like up.
+    - Now you can set up a situation in which you have two, or more, people swapping the same role from time to time, so as to confuse the person into relating multiple people as the same one person.
+    - Add to this, root access to the target's online activity, with the ability to flash whatever images you like up for subliminal stimulation.
     - I believe this happened to me, as the men in the pictures above are dissimilar to each other, *and* to another man I remember taking the class from time to time.
     - And now, I'm wondering if all the pictures of Vidal Sastre Sanchez Hornero are of a number of different people.
     - If a group of men wanted to groom unwitting young girls, and get away with it, how better than to never be the same person the young girls see twice.
