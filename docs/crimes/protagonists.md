@@ -67,7 +67,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ### A second opinion
 
-- Another version of events is that this person, having the name Vidal SSH, *is* the man in the pictures above, and he was set up to be the fall-guy if anything went wrong in the original plan.
+- Another version of events is that if this person, having the name Vidal SSH, *is* the man in the pictures above, he may have been set up to be the fall-guy if anything went wrong in the original plan.
 - His attendance at the conservatory could have been a cover for the other man, a known criminal from the area.
 - In this scenario, and following a recent tip from a reliable anonymous source, I was informed that the man in the pictures above was under investigation for grooming at the time he visited the conservatory in 2022/23.
 - If this is true, and the [pictures and videos](../timeline/2023/june.md#youtube) made very public do seem to suggest he was involved in some sort of grooming gang scenario, then could the criminal porn gangs have simply needed someone to play a part to hide the fact that real pimps and pornographers were entering the conservatory freely to do whatever they liked.
@@ -75,18 +75,19 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ## The *other* trumpet teacher
 
-- The man in the pictures above is only half (or a quarter) of the man I remember.
-- While I was still being drugged, I thought he had a [twin brother](../timeline/2023/december.md#the-trumpet-teacher-has-a-brother) called Malachi. I mentioned this in an earlier draft (commit) of this document. I said "the brother made himself known to me one evening when I walked through the tunnel during the intensive gang stalking in December 2023."
+- The man in any of the pictures above is only half (or a quarter) of the man I remember.
+- While I was still being drugged, in late Autumn of 2023, I thought he had a [twin brother](../timeline/2023/december.md#the-trumpet-teacher-has-a-brother) called Malachi. I mentioned this in an earlier draft (commit) of this document. I said "the brother made himself known to me one evening when I walked through the tunnel during the intensive gang stalking."
 - He had been set up to walk past the tunnel entrance at the road just as I was walking out so that I would see him.
 - I did see him and I ran up behind him before crossing the road. And he flinched.
-- He looked exactly like the trumpet teacher, but different. So I called him a twin brother. I was certain he was the twin brother and by that time I was so used to this constant torment, every day there was some nasty set up "event" for me, that it seemed a reasonable thing for them to do.
-- I now wonder about this apparent "twin" and whether this particular incident was a set up to continue to remind me of what the man in the pictures above looked like because I had not behaved as expected and the trick had to continue.
+- He looked exactly like the trumpet teacher, but different. So I called him a twin brother. I was certain he was the twin brother and by that time I was so used to this constant torment, every day there was some nasty little set up "event" designed to terrorize and upset me, that it seemed a reasonable thing for them to do.
+- I now wonder about this apparent "twin" and whether this particular incident was set up to continue to remind me of what the man in the pictures above looked like because I had not behaved as expected, I had continued to attend classes at the conservatory so the trick had to continue.
 - I had assumed the man was a twin because he was *NOT AT ALL* like the man I had seen a number of times, such as the man who [turned up at the airport](../timeline/2023/june.md#sunday-18th-june-alicante-airport), or the man who had also [attended classes at the conservatory](../timeline/2023/february.md#observations-on-the-trumpet-teacher), or the man who had me pointed out to him by Patricia in [Benijembla](../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) and who had been at [the first chamber music class](../timeline/2022/december.md#chamber-music-classes) the following week.
 - Had both these men been at that first class?
-- Patricia, when I asked her how she knew Vidal, said "who"? But it's clear she knows who this other man is, but perhaps not the man I thought was his brother or the man in the pictures above. Or maybe she said "who" because it's not his name?
-- During other aspects of the stalking, the trumpet teacher posing as a hacker suggested to me there was a brother and sent pictures. I was convinced the brother was called Andrew but couldn't understand why the pictures didn't look like a twin!
-- In any case, serious investigators will know immediately who this person is as does the whole town.
-- Here he is playing the trumpet, except now I wonder about this and whether this was a fairly close likeness to the other guy.
+- Had they wheeled out this original person from Valencia just to keep his face in my head (although by that time, some of the trick had worn off, i.e. I had forgotten him mostly and thought he was a twin brother instead of the real thing).
+- Patricia, when I asked her how she knew Vidal, said "who"? But it's clear she knows who, at least one of these other men is, but perhaps not the man I thought was the brother or any of the men in the pictures above.
+- During other aspects of the stalking, the trumpet teacher posing as a hacker suggested to me there was a brother and sent pictures. I was convinced the brother was called Andrew, a clearly younger brother with blond hair, and I couldn't understand why the pictures didn't look like a twin!
+- In any case, serious investigators will know immediately who all of these people are, as will the whole town know the main players.
+- Here he is one of the VSSH team playing the trumpet.
 
 ![The trumpet teacher](../content/images/youtube-video.png)
 
@@ -94,7 +95,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ![Trumpet teacher and Gloria receptionist](../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
 
-- Symbols and memes related to him during the cyber stalking are horses, Trump, and more. I'll add these to the [memes section](../memes-triggers/memes.md) at some point.
+- Symbols and memes related to the trumpet teacher during the cyber stalking are horses, Trump, and more. I'll add these to the [memes section](../memes-triggers/memes.md) at some point as I go through all the material.
 
 ## Domingo Lopez Cano
 
@@ -106,8 +107,8 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - I wonder if the older woman to his right is his mother?
 - And I wonder who the young woman he is with is? Could she be another target?
-- Is this article from the [local paper](https://www.denia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-denia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
-- The name "Cano" relates to all things canine and "Lopez" to all things wolverine. While I was being stalked and terrorized online, there were a lot of references to these animals, and particularly when the stalking took a more serious threatening or abusive turn.
+- Is this article from the [local online newspaper](https://www.denia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-denia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
+- The name "Cano" relates to all things canine and "Lopez" to all things wolverine. While I was being stalked and terrorized online, there were a lot of references to these animals, and particularly when the stalking took a more seriously threatening or abusive turn.
 - Indeed, dogs featured constantly in the online harassment and threats.
 - Here's a fake X account pic that communicated with me during the [March 2024 intensive online psychological abuse](../timeline/2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) of him as an older person.
 
@@ -124,34 +125,41 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - It's not clear who was passing me this information.
 - I have never met Carmen Cano but it's obvious that the picture of this woman has been merged with the face of Domingo the piano teacher.
-- I have another picture of her from a body cam I was wearing on 5th October. I went out without my mobile phone to go for a walk along Las Rota in Denia. I didn't want to be followed and tracked, but I wanted to still have means to call the police, so I brought my [analogue phone that I had bought in April](../timeline/2024/april.md#i-get-an-orange-sim). As I approached the restaurant Sendra, a woman cycles up behind me, then in front of me, she stops, smiles, and cycles off. It was Carmen Cano for sure. She looked a lot like the pics I have just posted. 
+- I have another picture of her from a body cam I was wearing on 5th October 2024. I went out without my mobile phone to go for a walk along Las Rota in Denia. I didn't want to be followed and tracked, but I wanted to still have means to call the police, so I brought my [analogue phone that I had bought in April](../timeline/2024/april.md#i-get-an-orange-sim). As I approached the restaurant Sendra, a woman cycles up behind me, then in front of me; she stops, smiles, and cycles off. I believe it was Carmen Cano and I would recognize her again. She looked a lot like the pics I have just posted and possibly a blond woman who plays in the L'Amistat band. 
 
 !!! info
-    - It seems like even 2g phones are trackable by these people.
+    - It appears even 2g/3g phones are trackable by these people.
 
-- On 1st November, the same woman is leaving my apartment building with another dark haired lady; a woman I have often seen going in and out of apartment number 18 next door to me since I got back to Denia from France at the end of April. It could have been the older woman in the picture above from 2016, except with darker hair.
+- On 1st November, the same woman is leaving my apartment building with another dark haired lady; a woman I have often seen going in and out of apartment number 18 next door to me since I got back to Denia from France at the end of September 2024. It could have been the older woman in the picture above from 2016, except with darker hair.
 
-## Paqui Fornet Pastor
+## Accomplices
+
+### Paqui Fornet Pastor
 
 ![Paqui Fornet Pastor 1](../content/images/fake-accounts/paqui1.png)
 
-## Gloria the receptionist
+### Gloria the receptionist
 
 ![Trumpet teacher and Gloria receptionist](../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
 
-## Ana Requena 
+### Ana Requena 
 
 ![Ana](../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
 
-## Other teachers to a greater or lesser degree
+### Other teachers and students to a greater or lesser degree
 
 ![Maria Hontanilla](../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png)
 ![Chamber music teacher from year 4](../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png)
 
+!!! info 
+    - Placeholder for more.
+
 ## Hazel and Sandra Smith
 
-!!! info
-    - Details of the Channel 4 documentary featuring these two coming up soon.
+- Mentioned in [early days content](../timeline/early-years/2007.md#hazel-smith)
+
+    !!! info
+        - Details of the Channel 4 documentary featuring these two coming up soon.
 
 ## Twitter accounts of note
 
@@ -162,5 +170,6 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - Members of the Javea Computer Club.
 - Members of expat walking groups.
-- Old (apparent) friends in Denia.
-- The whole town of Denia who were lied to about why I had been targeted and so felt justified in joining in the fun.
+- Old (apparent) friends in Dénia.
+- The whole town of Dénia who were clearly lied to about why I had been targeted and so felt justified in joining in the fun. 
+- The only other option is that the town of Dénia is controlled by pure evil.
