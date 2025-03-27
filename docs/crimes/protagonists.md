@@ -44,7 +44,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - In the past, sexually coercive behavior like this would usually be undertaken by pimps and perverts with the end goal of enticing and trapping women in the sex "industry" and this is certainly in keeping with the content the gangs shared with me online, such as [the pictures of the lady who went from innocent girl to hardcore porn activity](../timeline/2024/august.md#photos-of-abused-women-and-girls).
 - In the past, this bait-and-switch activity would have been undertaken directly in physical settings, clubs and societies, bars, etc., and still is.
 - However, the sexual coercion techniques used in Dénia and the region has taken a new and extremely troubling turn.
-- Criminals and other bad actors are now able to access to a person's private home network and devices in a remarkably easy way. From there, malicious actors can monitor all their online activity, paying close attention to finances and anything incriminating.
+- Criminals and other bad actors are now able to access a person's private home network and devices in a remarkably easy way. From there, malicious actors can monitor all their online activity, paying close attention to finances and anything incriminating.
 
 !!! danger "Would anyone want to live here if they knew how much danger the wealthy, elderly, women and children are in?"
     - Visitors to the region should be warned that it is highly likely their online activity will be monitored very closely by locals.
