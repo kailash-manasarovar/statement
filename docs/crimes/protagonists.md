@@ -1,4 +1,4 @@
-This page lists the main players in the violent attack on my physical, emotional, and psychological wellbeing. 
+This page lists the main players in the violent three-year attack on my physical, emotional, sexual, and psychological wellbeing. 
 
 It includes teachers and staff from the conservatory of Dénia, and others.
 
