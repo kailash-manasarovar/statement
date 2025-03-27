@@ -89,7 +89,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - During more recent stalking events when I was still clearly under the influence of mind-altering substances, and even though I had been away from Dénia for a while (which begs the question as to how anyone was managing to drug me or whether I carried it with me from home in my toiletries), the trumpet teacher posing as a hacker suggested to me there was a brother and a sister and sent [pictures](../timeline/2024/august.md#the-trumpet-teacher-pics). 
 - I was convinced the brother was called Andrew, a clearly younger brother with blond hair, but I couldn't understand why none of the pictures looked like there were twins and in fact the older brother, and the younger man which at the time of writing is still rendering on my Google searches, look like no-one I have seen before! At least not consciously.
 - In any case, serious investigators will know immediately who all of these people are, as will the whole town know who the main players are.
-- Here he is one of the VSSH team playing the trumpet.
+- Here is one of the VSSH team playing the trumpet.
 
 ![The trumpet teacher](../content/images/youtube-video.png)
 
@@ -151,7 +151,10 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ### Other teachers and students to a greater or lesser degree
 
 ![Maria Hontanilla](../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png)
+
 ![Chamber music teacher from year 4](../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png)
+
+![Harmony teacher](../content/images/harmony-teacher.png)
 
 !!! info 
     - Placeholder for more.
