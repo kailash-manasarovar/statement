@@ -33,11 +33,11 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     - Now you can set up a situation in which you have two, or more, people swapping the same role from time to time, so as to confuse the person into relating the two people as the same one person.
     - Add to this psychoactive substances and access to the targets online activity, with the ability to flash whatever images you like up.
     - I believe this happened to me, as the man in the pictures above is very dissimilar to another man I remember taking the class from time to time.
-    - And now, I'm wondering if the pictures of Vidal Sastre Sanchez Hornero are of a number of different people.
+    - And now, I'm wondering if all the pictures of Vidal Sastre Sanchez Hornero are of a number of different people.
 
 - One of my suspicions now is that this name probably relates to a group of criminals who control women by drugging them whilst having full root access to their social media activity.
 - In the past, sexually coercive behavior like this would usually be undertaken by pimps and perverts with the end goal of enticing and trapping women in the sex "industry" and this is certainly in keeping with the content the gangs shared with me online, such as [the pictures of the lady who went from innocent girl to hardcore porn activity](../timeline/2024/august.md#photos-of-abused-women-and-girls).
-- In the past, this would have been undertaken directly in physical settings, clubs and societies, bars, etc., and still is.
+- In the past, this bait-and-switch activity would have been undertaken directly in physical settings, clubs and societies, bars, etc., and still is.
 - However, the sexual coercion techniques used in Dénia and the region has taken a new and extremely troubling turn.
 - Criminals and other bad actors are now able to access to a person's private home network and devices in a remarkably easy way. From there, malicious actors can monitor all their online activity, paying close attention to finances and anything incriminating.
 
@@ -53,9 +53,13 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ![Hornero activity funeral home](../content/images/hornero/horn-funerals-1.png)
 
 - "Se la rifaron" means, they sold her off.
-- I do not believe Vidal Sastre Sanchez Hornero is the trumpet teacher's name under these circumstances, although it is possible he is part of this group.
+- I do not believe Vidal Sastre Sanchez Hornero is the trumpet teacher's name under these circumstances.
 - Whoever these people are, they are proud of their behavior, and arrogant enough to showcase their "controlling young girls" activity on [YouTube](https://www.youtube.com/@saxofonator/search?query=vidal%20sanchez%20sastre%20horneros).
 - It appears that all attacks, or "funerals" of women are videoed and shared, and certainly my "funeral" on 12th June 2023, was excitedly recorded on the mobile phones of all present.
+
+!!! danger "Shocking"
+    - If I'm right about this, then the children of the conservatory would also have to be complicit in the deception and targeting of students by numerous adult males.
+    - This is a somewhat horrific thing to consider and I do hope it is not true but given statistics like all 11-year-old boys have seen pedophile gang rape porn and worse, usually in school, then nothing would surprise me anymore.
 
 ### A second opinion
 
