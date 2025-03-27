@@ -30,8 +30,8 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Curiously, online face comparison tools say that none of the above pictures are of the same person.
 
 !!! tip "What?"
-    - I know, this is crazy, but it's possible.
-    - Imagine if you have control of a person by giving them psychoactive and mood altering substances and they are unaware of it.
+    - I know, this sounds crazy, but it's possible.
+    - Imagine you have control of a person by giving them psychoactive and mood altering substances over long periods and they are unaware of it.
     - Now you can set up a situation in which you have two, or more, people swapping the same role from time to time, so as to confuse the person into relating multiple people as the same one person.
     - Add to this, root access to the target's online activity, with the ability to flash whatever images you like up for subliminal stimulation.
     - I believe this happened to me, as the men in the pictures above are dissimilar to each other, *and* to another man I remember taking the class from time to time.
@@ -161,7 +161,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ## Hazel and Sandra Smith
 
-- Mentioned in [early days content](../timeline/early-years/2007.md#hazel-smith)
+- Mentioned in [early days content](../timeline/early-years/2007.md#hazel-smith).
 
     !!! info
         - Details of the Channel 4 documentary featuring these two coming up soon.
