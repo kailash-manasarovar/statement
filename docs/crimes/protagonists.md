@@ -36,6 +36,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     - I believe this happened to me, as the men in the pictures above are dissimilar to each other, *and* to another man I remember taking the class from time to time.
     - And now, I'm wondering if all the pictures of Vidal Sastre Sanchez Hornero are of a number of different people.
     - If a group of men wanted to groom unwitting young girls, and get away with it, how better than to never be the same person the young girls see twice.
+    - Even better if there is intimate activity with the target without her knowledge. The body, and mind under sedation, always remembers something.
     - Anyone making a complaint would be easily dismissed, not least because everyone else is aware there is a target and what's happening to her.
 
 - One of my suspicions now is that this name probably relates to a group of criminals who control women by drugging them whilst having full root access to their social media activity.
