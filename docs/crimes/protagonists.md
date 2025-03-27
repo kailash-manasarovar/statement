@@ -24,13 +24,16 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ![Hornero 4](../content/images/hornero/horn-pic-4.jpg)
 
 - This is, indeed, the man who taught the class on Monday evenings that I attended.
-- However, I remember another man who looked dissimilar but seemingly I became confused about them being the same person, probably because I was [on drugs without my knowledge](../timeline/2023/january.md#poisoning), and probably because the situation was set up with that intention.
+- However, I remember another man who looked dissimilar but seemingly I became confused about them being the same person, probably because I was [on drugs without my knowledge](../timeline/2023/january.md#poisoning), and probably because the online NLP/hypnosis situation was set up with that intention.
+- Curiously, online face comparison tools say that none of the above pictures are of the same person.
 
 !!! tip "What?"
     - I know, this is crazy, but it's possible.
     - Imagine if you have control of a person by giving them psycho-and-mood altering substances and they are unaware of it.
-    - Now you can set up a situation in which you have two people swapping the same role from time to time, so as to confuse the person into relating the two people as the same one person.
+    - Now you can set up a situation in which you have two, or more, people swapping the same role from time to time, so as to confuse the person into relating the two people as the same one person.
+    - Add to this psychoactive substances and access to the targets online activity, with the ability to flash whatever images you like up.
     - I believe this happened to me, as the man in the pictures above is very dissimilar to another man I remember taking the class from time to time.
+    - And now, I'm wondering if the pictures of Vidal Sastre Sanchez Hornero are of a number of different people.
 
 - One of my suspicions now is that this name probably relates to a group of criminals who control women by drugging them whilst having full root access to their social media activity.
 - In the past, sexually coercive behavior like this would usually be undertaken by pimps and perverts with the end goal of enticing and trapping women in the sex "industry" and this is certainly in keeping with the content the gangs shared with me online, such as [the pictures of the lady who went from innocent girl to hardcore porn activity](../timeline/2024/august.md#photos-of-abused-women-and-girls).
@@ -64,7 +67,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ## The *other* trumpet teacher
 
-- The man in the pictures above is only half the man I remember.
+- The man in the pictures above is only half (or a quarter) of the man I remember.
 - While I was still being drugged, I thought he had a [twin brother](../timeline/2023/december.md#the-trumpet-teacher-has-a-brother) called Malachi. I mentioned this in an earlier draft (commit) of this document. I said "the brother made himself known to me one evening when I walked through the tunnel during the intensive gang stalking in December 2023."
 - He had been set up to walk past the tunnel entrance at the road just as I was walking out so that I would see him.
 - I did see him and I ran up behind him before crossing the road. And he flinched.
@@ -79,7 +82,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ![The trumpet teacher](../content/images/youtube-video.png)
 
-- And here is an AI mix of him and Gloria the receptionist.
+- And here is an AI mix of one of the above and Gloria the receptionist.
 
 ![Trumpet teacher and Gloria receptionist](../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
 
