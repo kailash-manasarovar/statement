@@ -162,7 +162,7 @@
 
     ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png){width=35%}
 
-    My piano teacher for year 4, a young Paqui Fornet Pastor in a rather threatening pose. This was posted in March 2024, after what I felt were credible threats to my life when I didn't stop going into practice after the piano concert; the concert which set up to terrorize me into never coming back to the conservatory.
+    My piano teacher for year 4, a young Paqui Fornet Pastor in a rather threatening pose. This was posted in March 2024, after what I felt were credible threats to my life when I didn't stop going into practice after the piano concert; the concert which was set up to terrorize me into never coming back to the conservatory.
 
     ![Paqui Fornet Pastor 1](../../content/images/fake-accounts/paqui1.png){width=35%}
  
@@ -174,7 +174,7 @@
 
     ![Maria Hontanilla](../../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png){width=35%}
 
-    The chamber music teacher from year 4, a lovely man, posted no doubt to cause unnecessary trouble as I can't imagine he would have been involved in stalking me. Posted around March 2024.
+    The chamber music teacher from year 4, a lovely man, posted no doubt to cause unnecessary trouble as I can't imagine he would have been involved in stalking me, at least not to the murderous extent of many of the other teachers. Posted around March 2024.
 
     ![Chamber music teacher from year 4](../../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png){width=35%}
 
