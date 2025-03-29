@@ -36,7 +36,7 @@
 !!! danger
     - I now believe this was an attempt to commence a regular sexual relationship with me at my apartment which would then be live-streamed on porn networks.
 
-![Sedating me and coming into my room](../content/images/sedating/sedating-2.png)
+![Sedating me and coming into my room](../../content/images/sedating/sedating-2.png)
 
 ## Observations on the trumpet teacher
 

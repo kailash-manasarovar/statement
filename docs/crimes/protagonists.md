@@ -152,9 +152,15 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ### Other teachers and students to a greater or lesser degree
 
+- Maria Hontanilla, my piano teacher during year 3 of professional piano.
+
 ![Maria Hontanilla](../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png)
 
+- Esteve the chamber music teacher in year 4. 
+
 ![Chamber music teacher from year 4](../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png)
+
+- Alfonso the harmony teacher in year 4.
 
 ![Harmony teacher](../content/images/harmony-teacher.png)
 

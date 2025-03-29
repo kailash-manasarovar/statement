@@ -15,7 +15,7 @@
 - It was never as intense as on Mondays during and after class but the lightheadedness, which I put down to being in love, continued every day of the week, even on the days when I never left the house.
 - I was always extremely anxious about going to class on a Monday and had to take my PTSD remedy beforehand to get calm enough to go. I believe this was because at some level I knew what was going on and it frightened me.
 
-![Sedating me and coming into my room](../content/images/sedating/sedating-3.png)
+![Sedating me and coming into my room](../../content/images/sedating/sedating-3.png)
 
 ## Leaving class
 

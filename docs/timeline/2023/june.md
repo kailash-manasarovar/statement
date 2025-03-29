@@ -152,7 +152,7 @@
 ## Teachers and staff involved in gang stalking students at Dénia Conservatory
 
 !!! warning
-    - You can find a list of current teachers and staff on the [conservatory website](https://portal.edu.gva.es/conservatoriDénia/es/inici/).
+    - You can find a list of current teachers and staff on the [conservatory website](https://portal.edu.gva.es/conservatoridenia/es/inici/).
     - The Generalitat Valenciana systems are so vulnerable to attack that it is possible that names are incorrect or even false in the GV systems and/or websites.
     - As a taste of things to come, hackers created numerous fake Twitter accounts and sent them to me with pictures of all the conservatory teachers and staff of interest, often in their younger years. 
     
@@ -183,6 +183,10 @@
     ![Ana](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
 
     - [Relevant tweet thread](https://x.com/1FRGVN/status/1846120069010473024).
+
+    A more recent pic of what looks like Alfonso the harmony teacher who had been rather shocked when I informed him I was leaving because I feared for my life.
+
+    ![Harmony teacher](../../content/images/harmony-teacher.png)
 
 !!! danger "Critical"
     - It is *highly* likely all these accounts are controlled by Hazel and Sandra Smith.
