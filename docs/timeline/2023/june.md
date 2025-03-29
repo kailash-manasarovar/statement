@@ -256,6 +256,7 @@
     - It reminded me of a time in a piano lesson with Maria where I had used the word "hallucinating" in a similar way.
     - Maria had picked up on it as if I was stating I was mentally unwell and I had to explain to her the same word usage rules of English.
     - I now believe that these instances were seen as opportune moments for suggesting I was mentally unwell or imagining things if I ever went to the police about what was going on.
+    - **Or**, the instances in which people got excited over my use of the word "hallucinate" were due to the fact they knew I was being given hallucinogens of some variety without my knowledge.
 
 ## Back in Dénia
 
