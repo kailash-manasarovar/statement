@@ -121,19 +121,20 @@
 - We play Creep and My Way.
 - Before we play My Way, he tells Pablo to make sure he's recording on his phone, and he starts recording on his phone.
 - It's ugly. Every note is a sort of attack on me personally.
-- The trumpet teachers blows his trumpet extremely loudly in my ear, so that it hurts, and he is marching up and down angrily, blowing his trumpet, and it's all with the intention of humiliating me.
+- The trumpet teacher blows his trumpet extremely loudly in my ear, so that it hurts, and he is marching up and down angrily, blowing his trumpet, and it's all with the intention of humiliating me.
 - Gloria comes to the door when we're done and is practically wetting herself with laughter.
 - I'm not at all surprised at any of it but it hurts of course.
+- I'm quite sure I'm not the one in the wrong, however, and I'm slightly appalled that grown adults are behaving this way, especially given the fact they have guardianship powers over a great many people's children.
 - As I leave class, I remind the trumpet teacher that the frog is a lucky frog and to look after it.
 - I walk out of the conservatory front door, and teachers and staff throw dirty water (I hope) onto me from an upstairs window (Ana Requena, the violin teacher's classroom actually). Their behavior reminds me of Carrie 1, the Stephen King horror novel.
 - I still have the silk t-shirt that they ruined with the stains on it.
-- As I walk home, I "bump" into Porsche who I realize was waiting for me to walk the other way I go sometimes, the way she would have been more familiar with me going, and when she realized I'd gone a different way, she'd had to run. She was totally out of breath and trying to style it out. It was amusing to me.
+- As I walk home, I "bump" into Porsche who I realize was waiting for me to walk the other way I go sometimes, the way she would have been more familiar with me going, and when she realized I'd gone a different way, she'd had to run. This poor woman in her 70s was totally out of breath and trying to style it out. It was actually rather amusing.
 - She was checking my face to see if I was crying. Perhaps she was recording it too.
 - I got home and went onto Twitter and tweeted something like "well that was a crappy ending wasn't it".
-- Suddenly, a huge number of people start to retweet my post and I discover I'm on a list of around 30 people and they're all laughing, jeering even, at what's happened.
+- Suddenly, a huge number of people start to retweet my post and I discover I'm on a list of around 30 people and they're all laughing and jeering at what's happened.
 - I block the list owner and delete all my tweets from the last six months that were related to everything that had been going on at the conservatory
 - I'm shocked and alarmed. I had no idea so many people were involved in the deception, and the humiliation, at that time. 
-- I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also so high all the time I could not get my head straight about anything that had happened.
+- I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also so high all the time (anxious, euphoric, sexually aroused, scared again, all on a loop) I could not get my head straight about anything.
 
 !!! info "Related tweets"
     - https://x.com/1FRGVN/status/1670583744283983874
