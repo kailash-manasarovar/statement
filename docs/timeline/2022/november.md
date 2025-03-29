@@ -6,18 +6,32 @@
 - She replaces them.
 - Pedro, the caretaker, is amazed that she has spent some money on the flat.
 
+## Hanuman arrives
+
+- I carry [Hindu diety Hanuman](https://en.wikipedia.org/wiki/Hanuman) with me wherever I go, for protection.
+- On one walk with the English ladies, I have a leak in my bag and Hanuman pops out onto the ground as I sort out my stuff.
+- The ladies laugh at my silliness and one of them asks me who Hanuman is.
+- I explain.
+- The ladies very much enjoy the story of Hanuman; except, as I am inform them that Hanuman protects women and children from evil men, I notice Patricia is standing a little bit away and looking downward. She doesn't join in the conversation.
+
+<iframe width="857" height="228" src="https://www.youtube.com/embed/xAEbrieJsOU" title="Hanuman Ashtottara Namavalli | 108 Names of Lord Hanuman – Must Listen to Remove Negative Energy" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
 ## Walking in Benijembla with the English ladies
 
-- I was hiking with the English ladies every Saturday.
+- I was hiking with the English ladies every Saturday at that time.
 - One of the last Saturdays in November, the 19th probably, we met at Benijembla, for a walk along the many trails around the village.
-- Christine, Patricia (Patricia) Penny, and some of the others were there.
-- Along the way we "bumped" into a small group of Spanish walkers, and Patricia stayed back for a while to talk to them. There were two men and a woman.
+- Christine, Patricia (Patricia) Penny, and some of the others were there. This is the same day that I introduce everyone to Hanuman, and the same day that we see some amazing cloud formations and I remark that God did a very good job with clouds.
+- On this particular Saturday morning we "bumped" into a small group of Spanish walkers, and Patricia stayed back for a while to talk to them. There were two men and a woman.
 - We all noticed Patricia wasn't with us at some point and Christine said she was talking with the Spanish people as she knew them.
 - Patricia reappeared at some point and we continued on.
 - At the end of the walk we went for coffee in Benijembla.
 - Patricia and I were walking together back to the cars and she noticed the same group that she had seen up on the trail sitting at a table in a cafe.
 - She told me she wanted to speak to one of them. As we walked towards them, one of the men in the group got up and, as if she didn't know him at all, even though he was the part of the same group we had met earlier, she asked him about something to do with the landscape and paths on a map that she had in her hand.
-- I wasn't part of the chat and I saw a woman sitting on the seat beside where this guy had got up from. I noticed she looked really sad and worried.
+- It was this man pictured with what looks to be his father.
+
+![Hornero or whatever his name is, and his dad](../../content/images/hornero/horn-pic-4.jpg).
+
+- I wasn't part of the chat between them and I saw a woman sitting on the seat beside where this guy had got up from. I noticed she looked really sad and worried.
 
 !!! note
     - I assumed this woman was the man's wife or girlfriend and I wondered why she looked so unhappy.
