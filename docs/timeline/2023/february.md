@@ -63,8 +63,8 @@
 
 !!! tip "List of teachers and staff"
     - The current lists on the conservatory website may still reflect the state of the staff in 2023 although there will be changes.
-        - Teachers: https://portal.edu.gva.es/conservatoriDénia/es/departaments-es/
-        - Staff: https://portal.edu.gva.es/conservatoriDénia/es/centro/organigrama/
+        - Teachers: https://portal.edu.gva.es/conservatoridenia/es/departaments-es/
+        - Staff: https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/
 
 - The "Ana is his girlfriend" lie was particularly vicious and, even though I really didn't even care, it upset me as intended because it was relentless and I believed I was in love and it was an overpowering feeling.
 - During the cyber stalking to come, aside from there being a host of pictures of [Ana Requena modeling](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png) and constant sexual and other derogatory references to her, there is also an interesting picture of the child catcher from Chitty Chitty Bang Bang.
