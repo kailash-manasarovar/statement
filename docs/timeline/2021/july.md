@@ -20,8 +20,8 @@
 ## Dénia holiday
 
 - I go to Dénia for my summer holiday. I wonder now if that was "suggested" online to me.
-- The day I leave I feel extremely unwell in a weird way, not sick exactly but nothing is working properly. Thinking back, it is rather like the poisoned feeling I have been having in Denia over the last 3 years.
-- When in Denia, I meet Christine for lunch a couple of times. She's an old friend I used to walk with, and talk about my PhD with, years before. She tells me her views on trans ideology and I quietly agree.
+- The day I leave I feel extremely unwell in a weird way, not sick exactly but nothing is working properly. Thinking back, it is rather like the poisoned feeling I have been having in Dénia over the last 3 years.
+- When in Dénia, I meet Christine for lunch a couple of times. She's an old friend I used to walk with, and talk about my PhD with, years before. She tells me her views on trans ideology and I quietly agree.
 - I share with her that I am a child sexual abuse survivor of a grooming gang. I also tell her that I probably would be trans and removing my breasts, womb, and ovaries had I been born 30 years later.
 - I tell Christine I have been suffering from a debilitating depression after reporting child sexual abuse to the Met Police in 2016.
 
@@ -36,12 +36,12 @@
     - I now believe Elaine was targeted online like I was using NLP and sentiment manipulation.
     - I believe she was driven to suicide.
     - I don't know why she would have been targeted, but the timing of it is really interesting given my experiences. 
-    - Is there something even more sinister going on in Denia than just the regular porn gang epidemic activity?
+    - Is there something even more sinister going on in Dénia than just the regular porn gang epidemic activity?
     - I also wonder now if she was being drugged/poisoned.
 
 - Elaine was a British woman I used to work for in Dénia. She ran the English Studio academy there. 
 - I had previously disconnected from everyone I knew because I was so suicidal. It didn't seem fair to keep people close. I was also finding it extremely difficult to relate to people because of my experiences.
-- For these reasons, I wasn't in touch with anyone in Denia and I didn't know Elaine had died by suicide until nearly a year later when I bumped into someone who told me. I had assumed Elaine's death was due to illness.
+- For these reasons, I wasn't in touch with anyone in Dénia and I didn't know Elaine had died by suicide until nearly a year later when I bumped into someone who told me. I had assumed Elaine's death was due to illness.
 
 !!! warning "Concerns about Elaine's untimely death"
     - I'm concerned now that Elaine's may have been driven to suicide, in the same way gang stalkers clearly wanted my life to end.

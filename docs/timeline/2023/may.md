@@ -20,7 +20,7 @@
 - As we are preparing, Ana Requena comes in significantly dressed up to the nines to put her instrument somewhere, same old weirdness, in a different room.
 - The trumpet teacher flirts with me outrageously in public. I flirt back. It's quite amusing.
 - I remember I have cause to say, after he asks me about my surname and just after Ana has been in, that "Katharine is sufficient," and he giggles.
-- At one stage, our eyes lock, and there is a powerful and undeniably reciprocal sexual attraction which is rather overwhelming to both of us.
+- At one stage, our eyes lock, and there is a powerful and unDéniably reciprocal sexual attraction which is rather overwhelming to both of us.
 - The trumpet teacher heads to the back of the room, with his back to us, humming gently, for about 5 minutes, to collect himself.
 - I sit as far away from him as possible in the room, and he gives me a wide birth too.
 - I tweet about this later on, and other stuff as I tell my story on Twitter: https://x.com/1FRGVN/status/1759770318409695275.
@@ -35,7 +35,7 @@
 
 ## International choir concert
 
-- I went to the [international choir concert](https://www.denia.com/el-orfeo-de-denia-celebra-sus-40-anos-con-un-emotivo-concierto-que-unio-varias-generaciones-de-coristas/) and met all my old pals. 
+- I went to the [international choir concert](https://www.Dénia.com/el-orfeo-de-Dénia-celebra-sus-40-anos-con-un-emotivo-concierto-que-unio-varias-generaciones-de-coristas/) and met all my old pals. 
 - Here's a picture of the event from the local online press.
 
 ![The international choir concert](../../content/images/coro-con-klari.webp)

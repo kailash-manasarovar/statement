@@ -1,7 +1,7 @@
 ## Going to the night shop
 
 - I go down to the Open 24 Market for some wine in the evening of 2nd November.
-- I guess the gang stalkers (the entire population of Denia) think I'm going to the Indian because they've put a monstrous full-size figure (Halloween monster) in the seat that Paul usually sits in whenever they schedule me to "bump" into him.
+- I guess the gang stalkers (the entire population of Dénia) think I'm going to the Indian because they've put a monstrous full-size figure (Halloween monster) in the seat that Paul usually sits in whenever they schedule me to "bump" into him.
 
 ## Late October/early November
 

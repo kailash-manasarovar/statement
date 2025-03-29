@@ -8,7 +8,7 @@
 - This blue car often features in the stalking from this moment. I guess he was showing me the car so I'd recognize it again when I saw it.
 
 !!! info
-    - Hopefully it's now extremely clear that the people in Denia are able to know where I am at any time.
+    - Hopefully it's now extremely clear that the people in Dénia are able to know where I am at any time.
     - This could only be possible by tracking me via access to my mobile.
     - It's like they're constantly poised to begin something. They must put enormous effort into this. I wonder what benefit they could be getting from their behavior.
 
@@ -24,7 +24,7 @@
 
 - This photo was sent the same time I was receiving tons of fake accounts with women who were clearly being sexual abused in some way, or that was the inference one was supposed to make, including women groomed from innocently sending nudes, or doing innocent photo shoots, to actually doing porn.
 - I was concerned enough to send this pic to the Policia Nacional trafficking email (which is supposed to be anonymous) in October 2024.
-- I got a reply from Denia Police which, at the time of writing, I have not responded to given their [total lack of interest](../2024/february.md#policia-nacional) when I visited them and my subsequent suspicion that I cannot trust them to help me.
+- I got a reply from Dénia Police which, at the time of writing, I have not responded to given their [total lack of interest](../2024/february.md#policia-nacional) when I visited them and my subsequent suspicion that I cannot trust them to help me.
 - In chamber music classes, the music is extremely suggestive of what's been going on and I am bravely playing my hand.
 - Piano classes are good and Paqui does a good job of pretending she's neutral.
 

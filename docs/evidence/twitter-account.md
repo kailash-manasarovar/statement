@@ -75,7 +75,7 @@
 | ![ fake ]( ../content/images/fake-accounts/list/22.png ){width=50%} |  Possibly legit and delegated/leached. |
 | ![ fake ]( ../content/images/fake-accounts/list/29.png ){width=50%} |  Definitely criminal gang. Most curiously, Seonaid ended up running for general election with the Party of Women alongside me. She had been instrumental in tag-teaming with stalker, specifically Elaine Tortured Whistleblower in March just before the second conservatory "crucifixion" at the piano concert on 12th March. |
 | ![ fake ]( ../content/images/fake-accounts/list/23.png ){width=50%} |  Stalker. `@ChipShopTony` |
-| ![ fake ]( ../content/images/fake-accounts/list/26.png ){width=50%} |  Stalker account with a picture of a random person from Denia. |
+| ![ fake ]( ../content/images/fake-accounts/list/26.png ){width=50%} |  Stalker account with a picture of a random person from Dénia. |
 | ![ fake ]( ../content/images/fake-accounts/list/51.png ){width=50%} |  Stalker. |
 | ![ fake ]( ../content/images/fake-accounts/list/52.png ){width=50%} |  An account that popped up on 13th March, I believe referring to Katia who may have been upset that I was stating I was afraid of being robbed and fearful of my life. |
 | ![ fake ]( ../content/images/fake-accounts/list/56.png ){width=50%} |  Threatening profile message. |

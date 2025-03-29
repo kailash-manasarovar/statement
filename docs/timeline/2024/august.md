@@ -1,11 +1,11 @@
 ## Sexual arousal
 
 - I head off to France.
-- As soon as I'm out of Denia, the intensity of the sexual arousal drops off and then stops.
+- As soon as I'm out of Dénia, the intensity of the sexual arousal drops off and then stops.
 
 ## Conversation with the hacker
 
-- I travel to Lourdes and spend the whole summer in France up until 21st September when I return, via Madrid, to Denia.
+- I travel to Lourdes and spend the whole summer in France up until 21st September when I return, via Madrid, to Dénia.
 - I communicate with the hacker directly in the following way:
     - I add a message to my Twitter profile.
     - He replies in the profile message of a fake account.
@@ -45,13 +45,13 @@
 - It's all becoming clear to me, finally.
 - I say "omg, you drugged me at class and gave me rhabdo".
 - He responds, "I am so sorry".
-- On November 1st 2024, when I'm back in Denia, and although the conversation by that time has stopped mostly, the hacker uses a fake account to tell me something about this.
+- On November 1st 2024, when I'm back in Dénia, and although the conversation by that time has stopped mostly, the hacker uses a fake account to tell me something about this.
 - I've just recently got back from Fatima, and I see the word "medico" which is doctor in Spanish, so I'm triggered to translate the profile message.
 
 ![doctor pic](../../content/images/doctor-1.png)
 ![doctor pic](../../content/images/doctor-2.png)
 
-- I also suspect this is a warning because the week I am in Denia at my flat, from 27th October until I leave for London on the 3rd November 2024, I am certain I am being poisoned, and quite seriously too.
+- I also suspect this is a warning because the week I am in Dénia at my flat, from 27th October until I leave for London on the 3rd November 2024, I am certain I am being poisoned, and quite seriously too.
 
 ## Hundreds of women like me
 
@@ -183,7 +183,7 @@
 
 - I also copy and send this letter to 40+ agencies, newspapers, and well known people, all over the world.
 - I do this for two reasons:
-    - Justice for the good people of Denia and the Marina Alta region; especially the children, women, and girls.
+    - Justice for the good people of Dénia and the Marina Alta region; especially the children, women, and girls.
     - To ensure my safety in some way because these people clearly have no intention of leaving me alone.
 - Along with the letter, I send some of the pictures that have been sent on fake accounts that may be related. I send all the [trumpet teacher pics](#the-trumpet-teacher-pics). 
 - I also send pics of Rocio Vidal who I believe has been targeted since, as I mentioned, I saw a fake account pic of her on the bed about to take her clothes off.

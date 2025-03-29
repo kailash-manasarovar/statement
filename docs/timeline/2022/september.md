@@ -10,7 +10,7 @@
     - In retrospect, it seems highly likely they would have known the full implications for me as a target.
     - Given that everyone knew I had been suicidally depressed, either because I shared the information with them personally (Christine BJ and Maria Hontanilla who I had trusted), or because they had access to my Twitter account very early on, one must assume that an attack like this would have as its main intention the suicide of the victim or total nervous breakdown.
     - Given the efficiency and skill of the attack, and its elaborate nature, one must ask how many local suicides may be explained by gang stalking.
-    - I cannot help wonder about what led Elaine Black to kill herself, a mother of three with a successful local business. Anyone I asked about that always mentioned her "macho" boyfriend and at the root of my experiences is an undeniable and very vicious misogyny. I mention this in a [previous section](../2021/july.md#elaine-black) with reference to cyber stalking and harassment on Twitter.
+    - I cannot help wonder about what led Elaine Black to kill herself, a mother of three with a successful local business. Anyone I asked about that always mentioned her "macho" boyfriend and at the root of my experiences is an unDéniable and very vicious misogyny. I mention this in a [previous section](../2021/july.md#elaine-black) with reference to cyber stalking and harassment on Twitter.
 
 ## Documentation
 
@@ -52,7 +52,7 @@
 !!! tip "Sara"
     - A girl called Sara Pastor de Miguel attends classes this year, but she does not return for year 4.
     - She looks a lot like the trumpet teacher and I now wonder if she could be his daughter, or a close family member, sent to report back on the unconsenting British rape porn star.
-    - Could the people of Denia really be this evil?
+    - Could the people of Dénia really be this evil?
 
 !!! info "A curious irony"
     - The harmony teacher minds me of Gene Hackman and I start thinking about the film, The Conversation, where Gene Hackman is recording and eavesdropping on a conversation between lovers.

@@ -15,7 +15,7 @@
 
 ### Alice Lara
 
-- Lara is a common name in the Denia area. 
+- Lara is a common name in the Dénia area. 
 - I wonder who Alice Lara is. She looks stressed.
 - The man in this pic looks like half of some of the AI-mix pics of the engineer who has been [full time stalking me](../content/images/fake-accounts/messages-oct/13.png).
 

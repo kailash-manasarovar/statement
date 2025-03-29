@@ -52,11 +52,11 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 - The reason I do this is because this is the only way I can communicate with anyone without the hackers and the whole criminal gang being aware of it.
 - I add photos that he has sent to me too, even thought I'm not sure if they are legit or not.
 - Certainly the screenshot of the concert I see in [June 2023 on Youtube](../2023/june.md#youtube) is legit and I send a copy of that in the pack.
-- At some point back in Denia, I see a giant message come up on my screen "thank you", and then it's gone.
+- At some point back in Dénia, I see a giant message come up on my screen "thank you", and then it's gone.
 
-## Driving back to Denia
+## Driving back to Dénia
 
-- As I drive into Denia I notice the huge billboard for the swinger club, Hedonia.
+- As I drive into Dénia I notice the huge billboard for the swinger club, Hedonia.
 - I've seen it before.
 - I tweet about it in October: https://x.com/1FRGVN/status/1845101018746343666.
 - Something on it strikes me this time, however, which is the pictures of robot masks which I have seen on Google searches, and the mention of "special events".
@@ -113,8 +113,8 @@ Curious pic, it's not clear what/where the camera is that the woman is looking a
 ![I just killed a man to watch him die](../../content/images/fake-accounts/i%20just%20killed%20a%20man.png)
 
 - And a warning to me about murder maybe. 
-- I was going back to my flat at the end of September and I think they really intended to poison me to get rid of me seeing as I just wouldn't leave Denia.
-- It must have been extremely annoying that I never left, but I'm conscious, even now, that leaving Denia means I'm open to being targeted out of sight, in a far worse manner probably.
+- I was going back to my flat at the end of September and I think they really intended to poison me to get rid of me seeing as I just wouldn't leave Dénia.
+- It must have been extremely annoying that I never left, but I'm conscious, even now, that leaving Dénia means I'm open to being targeted out of sight, in a far worse manner probably.
 
 ![Murder warning](../../content/images/fake-accounts/murder-warning.png)
 

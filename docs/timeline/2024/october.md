@@ -22,10 +22,10 @@
 - The next door apartment is barely used. I've heard people in there maybe twice for no more than a week in nearly three years.
 - There may have been people there for the summer holidays, while I was away, so I never thought it odd.
 - Whenever my neighbor Marie Carmen, or Pedro the caretaker, referred to the people at number 18, it was always in a derogatory way, with a turned up nose, as if there was something not good about them.
-- However, from the moment I arrive back in Denia at the end of September 2024, there is a lot of activity in this apartment. People coming and going at all times. People talking loudly at night.
+- However, from the moment I arrive back in Dénia at the end of September 2024, there is a lot of activity in this apartment. People coming and going at all times. People talking loudly at night.
 - I saw a slim woman with shortish dark curly hair, of about 60 years old, going in and out every day nearly.
 - One night, I hear a woman say in Spanish, loudly enough for me to hear, "and nothing was ever good enough for her", and I presumed she was referring to me. 
-- I guess that this is the main lie the people of Denia have been told about me and why they all support the gang stalkers and join in if they're so inclined. The foreign woman who thought nothing was good enough in Denia, which is as far from the truth as possible.
+- I guess that this is the main lie the people of Dénia have been told about me and why they all support the gang stalkers and join in if they're so inclined. The foreign woman who thought nothing was good enough in Dénia, which is as far from the truth as possible.
 - They only needed a couple of people who I had contentious interactions with over the years to support that. 
 - One of those could possibly be my neighbor from Cami Llavador, Charo, who really didn't like me at all.
 - Another could be a woman Magpie I had been friends with years ago in 2006, someone who got extremely angry with me one afternoon after I said something rather innocuous yet truthful, something she found extremely hurtful.
@@ -65,7 +65,7 @@
 
 - On 6th October, on my way to the Indian restaurant, I bump into Paul who is having a beer at the Open 24 Market at Plaza Benidorm, the usual place I "bump" into him.
 - He's clearly been asked to check up on me.
-- We chat a bit. I tell him I'm thinking about running women's rights activities in Denia.
+- We chat a bit. I tell him I'm thinking about running women's rights activities in Dénia.
 - There is a lot unsaid. 
 - The last time I spoke to him, in the same spot probably sometime in July, I mentioned that I was willing to pay EUR 500 for copies of the hacked sexual videos.
 - He had mentioned another guy at that time, an English man, being very popular with everyone, all the girls coming up to him and saying hello as if they knew him.
@@ -92,9 +92,9 @@
 
 ## Fatima
 
-- I head to Madrid to stay one night before traveling to Fatima in Portugal. I need to be away from Denia as much as possible for my nervous system.
+- I head to Madrid to stay one night before traveling to Fatima in Portugal. I need to be away from Dénia as much as possible for my nervous system.
 
-!!! warning "Why didn't you leave Denia?"
+!!! warning "Why didn't you leave Dénia?"
     - If I leave, then the story gets buried, the police do not investigate, and it happens again and again, and maybe someone is driven, again?, to suicide, or maybe they, again?, murder someone with poison, and children, again?, could be groomed into goodness knows what.
     - I felt a sense of obligation to the vulnerable and I've been waiting for my intuition to tell me what to do.
     - I was always working so hard, I had to think about that above and beyond everything else.
@@ -129,13 +129,13 @@
     - It is a crime to poison people with the intent to harm or kill.
     - It is a crime to access someone's home without their permission in order to do so.
 
-- I arrive back in Denia on 27th October.
+- I arrive back in Dénia on 27th October.
 - On Monday 28th October, I get an inexplicable and excruciating headache at home which lasts a couple of days. 
 - While sitting at my desk, on the Monday morning, drinking my coffee, I experience shooting nerve pains all over my face.
 - My kidneys start to really ache over the week; the dull aching gets worse and worse.
 
 !!! info "Pain in kidneys"
-    - I have experienced pain like this (although not as intense) continuously while I'm in my flat in Denia since, probably, January 2023.
+    - I have experienced pain like this (although not as intense) continuously while I'm in my flat in Dénia since, probably, January 2023.
     - I can describe it as a dull backache that starts about midday and gets worse until I have to lie down for a bit.
 
 - My urine becomes extremely frothy and it was fine the week before in Fatima.
@@ -189,14 +189,14 @@
 
 - I send a mail to the `trata@policia.es` email, an anonymous email where I'm told I can send information safely.
 - [The email and responses](../../content/documents/emails/trata@policia.pdf).
-- I get a response from Denia police who were [decidedly unhelpful in February](february.md#policia-nacional).
+- I get a response from Dénia police who were [decidedly unhelpful in February](february.md#policia-nacional).
 - I do not respond.
 
 ## Silvia
 
 - The hackers imply that Silvia is the trumpet teacher's daughter and post pictures of a child who is supposed to be her.
 - The implication is that the trumpet teacher had a drug debt that he couldn't pay off and the pornographers had threatened to target his daughter Silvia.
-- In order to avoid this, the trumpet teacher had agreed to target and drug me at the conservatory of Denia.
+- In order to avoid this, the trumpet teacher had agreed to target and drug me at the conservatory of Dénia.
 
 ![pic]( ../../content/images/targeted-women/oct-24/1.png)
 
@@ -229,7 +229,7 @@ The profile account name references "car lady".  |
 | ![pic]( ../../content/images/targeted-women/oct-24/11.png)
 The picture above looks like it's coming from a hacked phone.  |
 | ![pic]( ../../content/images/targeted-women/oct-24/11.5.png)
-The street is the Calle Loreto in Denia.  |
+The street is the Calle Loreto in Dénia.  |
 | ![pic]( ../../content/images/targeted-women/oct-24/12.png)  
 Another minor child. |
 | ![pic]( ../../content/images/targeted-women/oct-24/13.png) 

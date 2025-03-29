@@ -18,7 +18,7 @@
 ### The cold shoulder from Spanish feminists
 
 - Well known feminists reach out to me to see if they can help.
-- I cannot be clear with them about what the Denia hackers are going to do because it is all suggestions from ramped up threats online.
+- I cannot be clear with them about what the Dénia hackers are going to do because it is all suggestions from ramped up threats online.
 - They decide unilaterally I'm lying and that I'm not to be trusted.
 - One, in particular, upsets me enormously by telling me, "you're not being hacked", as if it's all in my mind or I'm lying. This was extraordinarily triggering.
 - I realize that feminists are as misogynist as everyone else. I knew that anyway.
@@ -35,7 +35,7 @@
 
 ## Rosa in town
 
-- Whenever I walk into Denia, I see Rosa Vidal, Director of the Conservatory of Denia, who often nearly bumps into me but never says hello or acknowledges me.
+- Whenever I walk into Dénia, I see Rosa Vidal, Director of the Conservatory of Dénia, who often nearly bumps into me but never says hello or acknowledges me.
 - She's doing it on purpose.
 - On one occasion she is sitting outside a shop I come out from next to a man resembling the trumpet teacher.
 - It frightens me.
@@ -64,7 +64,7 @@
 - Basically, you cannot close off the water pipes to my flat. The water pipe outside the door is broken, and so is the one at the bottom of the building. They are broken in exactly the same way too. So there is no way to close off the water coming from the mains.
 - I wonder if this is because, if you are poisoning someone, perhaps in a drip-feed type manner, and they can close off the pipes when they leave the building, then the poison, or narcotic, or whatever, could collect in large doses and kill someone instantaneously. 
 - I wonder if that's happened before. I wonder if that's why there is a specific clause about me dying in the apartment in my tenancy agreement. 
-- Could the people of Denia be that evil?
+- Could the people of Dénia be that evil?
 - I believe any of the caretakers at Carrer Furs 13-15 will be able to tell the police how criminals have been able to add poison and narcotics to the water running into my apartment.
 
 ## Men outside with handheld devices
@@ -109,7 +109,7 @@
 - He goes into the bathroom and closes the door. He is in there for 30 minutes or so with the door closed.
 - I now wonder if he was sent to do something else entirely.
 - At the same time, I have to change my driving license to a Spanish one and there is a huge confusion with Northern Ireland and I'm very stressed because no-one is able to help me.
-- However, I'm excessively stressed, likely because of what is going on in Denia, and also because of being drugged somehow, I believe.
+- However, I'm excessively stressed, likely because of what is going on in Dénia, and also because of being drugged somehow, I believe.
 - I'm on the phone to someone who is behaving in a particularly unhelpful way at the moment Pablo comes out of the bathroom.
 - I'm clearly very stressed and upset.
 - He barks at me, "You're sick!".
@@ -145,8 +145,8 @@
 
 ## Alex and Paul
 
-- I knock on Paul's door to say hello. He is surprised to see me. He's an old friend from Denia.
-- He puts me and Alex (Alessandra) in contact, another old friend from Denia.
+- I knock on Paul's door to say hello. He is surprised to see me. He's an old friend from Dénia.
+- He puts me and Alex (Alessandra) in contact, another old friend from Dénia.
 - I meet Alex and tell her everything that's been happening. I must appear extremely stressed and anxious.
 - Myself, Paul, and Alex meet for coffee soon after.
 - Paul tells me rather private things that I suspect the stalkers are hoping I'll tweet about.
@@ -197,7 +197,7 @@
 ## Harmony classes
 
 - We have a new teacher, Alfonso, for harmony.
-- One afternoon I see him following me around Denia.
+- One afternoon I see him following me around Dénia.
 - It's clear that everyone knows what's been going on and has been invited to join in terrorizing the female target of the moment.
 - I wear a funny t-shirt to class in an attempt to make light of it all and carry on with my studies.
 

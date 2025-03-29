@@ -24,7 +24,7 @@
 - Also, I wonder if there was some low level, sub-audio sexual sound files being generated through my phone (which I have safely stored so the police cyber experts can check the caches for evidence of this). 
 
 !!! danger "In retrospect"
-    - Now, January 2025, I also realize that criminals of Denia had been accessing my apartment and adding poisons and drugs to my bathroom products, and food and water. So, continued sexual feelings could also be explained by this.
+    - Now, January 2025, I also realize that criminals of Dénia had been accessing my apartment and adding poisons and drugs to my bathroom products, and food and water. So, continued sexual feelings could also be explained by this.
 
 - This may explain unpredictable sexual feelings I was having throughout this month in various situations away from Twitter, and there is a possibility that such a thing affected one other person too, details of which I will forward if necessary.
 - I start playing a lot of music on Twitter, I add links from YouTube while listening to it with my earphones, and I'm often dancing around my room in Cauterets.
@@ -51,7 +51,7 @@
 - I know the account is related to what's been going on because the hair in the profile picture - at that time - is the same hair I saw in July when I was seeing a lot of pictures of the ceramics artist and Ana doing modelling. I believe it was just posted on its own like that.
 - I have a public tweet conversation with this person which is linked at the bottom of the page along with the other significant tweets.
 - I see weird stuff going on with this account, such as my likes being added to posts, without me actually adding them myself. I think it's a glitch.
-- We end up DM'ing in December significantly, and for sure it's someone from Denia.
+- We end up DM'ing in December significantly, and for sure it's someone from Dénia.
 - I take a look at some of the posts on this account and I note extremely enticing, honey-trap-type content from women.
 - I often look at my phone during the day. 
 - As I'm looking at YouTube on the desktop one day I notice a video in the bottom section of the page which looks like me while I'm looking at my phone, singing along to the song I'm listening to. I'm startled.
@@ -121,7 +121,7 @@
 ## Going public on Twitter
 
 - I don't know what to do, I feel like parasites are all over me and I can't get them off.
-- I'm on my way back to Spain and I believe the intensifying harassment is due to them not wanting me to return to Denia.
+- I'm on my way back to Spain and I believe the intensifying harassment is due to them not wanting me to return to Dénia.
 - There has always been a suggestion that I was targeted for my gender critical beliefs, amongst other things.
 - The only possible thing I can do is to go public on Twitter and ask for help, which I do.
 - Going public means adding my real name to my Twitter account Dr Katharine Murphy.
@@ -196,7 +196,7 @@ Many of these tweets are confirmation of what has been going on.
 - https://x.com/JackChardwood/status/1697014897698029945 -> reiterating what I'm claiming here at the appropriate time.
 - https://x.com/JackChardwood/status/1696996664555225110
 - https://x.com/JackChardwood/status/1696996474561736881
-- https://x.com/JackChardwood/status/1696990588628029460 -> concerned for my safety in Denia.
+- https://x.com/JackChardwood/status/1696990588628029460 -> concerned for my safety in Dénia.
 - https://x.com/JackChardwood/status/1696986746322289064
 - https://x.com/JackChardwood/status/1696986510459879442
 - https://x.com/JackChardwood/status/1696984188530884843

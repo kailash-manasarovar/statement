@@ -73,7 +73,7 @@
 ## Madrid
 
 - I head to Madrid and stay from the 5th to the 11th of May. 
-- I'm flying out of Madrid on the 11th May to Bali for an event with work and need to get away from Denia as it is stressful being there.
+- I'm flying out of Madrid on the 11th May to Bali for an event with work and need to get away from Dénia as it is stressful being there.
 - Outside my hotel in Madrid, I see strange guys hanging around and I always have the sense I'm being followed.
 - Words from random conversations I have are posted on fake account profiles.
 - Inside the hotel, online, I am stalked continuously and I believe they get full access again to my new Spanish mobile at this time.
@@ -89,14 +89,14 @@
 ## My speech
 
 - On Saturday 11th May, I give a speech at the Let Women Speak event in Madrid: https://youtu.be/l9X6o11IwBc?t=1988.
-- My speech describes being targeted by a "manada" (which is vernacular for "rape gang" in Spanish) in Denia and how it parallels precisely the child sexual abuse by a North London grooming gang I experienced when I was 16.
+- My speech describes being targeted by a "manada" (which is vernacular for "rape gang" in Spanish) in Dénia and how it parallels precisely the child sexual abuse by a North London grooming gang I experienced when I was 16.
 - I make the point that, I would be trans had I been born 30 years later and experienced the same thing.
 
 ### The Spanish feminists tell me why they didn't support me
 
 - At the event, and in the online meetings prior, I meet Spanish feminists.
 - They realize they know me from the [previous September when I went public on Twitter](../2023/september.md#going-public-on-twitter).
-- One of the organizers explains that, yes, we heard about someone from Denia conservatory, but it wasn't you.
+- One of the organizers explains that, yes, we heard about someone from Dénia conservatory, but it wasn't you.
 - I tell her, yes it was me. I was asking for help for the same things I'm talking about today.
 - "No, no, it couldn't be you. We heard this woman was unstable", she says, "like a victim of domestic violence".
 - I remain flabbergasted.
@@ -104,7 +104,7 @@
 
 ## Telegram/Signal
 
-- I believe the hackers/stalkers had started to drug me seriously again at home since getting back to Denia in April.
+- I believe the hackers/stalkers had started to drug me seriously again at home since getting back to Dénia in April.
 - A Telegram chat on my Spanish phone invited me to play a game which I downloaded, probably how they so easily got access again, and it was just endless boredom.
 
 !!! danger
@@ -124,7 +124,7 @@
 - I wonder why they would have put that in Google search results for me to see, and I think the worst.
 
 !!! info
-    - Was the trumpet teacher alerting me to child sex trafficking going on in Denia, with the conservatory somehow the training or recruitment ground?
+    - Was the trumpet teacher alerting me to child sex trafficking going on in Dénia, with the conservatory somehow the training or recruitment ground?
     - It seemed preposterous to me.
     - More likely, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police) and had become obsessed by it for some reason.
 
@@ -145,7 +145,7 @@
 
 - I leave for Lourdes at the end of the month.
 - I plan to spend two weeks in Lourdes.
-- I need to be out of Denia as much as possible.
+- I need to be out of Dénia as much as possible.
 - It's enormously stressful being there as anytime I leave my house, shopping, going to the laundry, walking to the beach, I am harassed and followed by locals.
 - It's clear to me, however, that no matter where I am, the cyber stalking will continue.
 

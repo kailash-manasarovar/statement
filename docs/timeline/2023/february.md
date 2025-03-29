@@ -8,7 +8,7 @@
 - She is not back in town until May so she can't see me for a few months.
 - I go to see a homeopath in Dénia, Ana Villalba. I'm not sure I trust her.
 - Each time I see her she wants to hear about my child sexua abuse story, and not in a kind way. Each time I see her she mentions domestic violence.
-- She prescribes drops to take every day which I collect from the Romany pharmacy in Denia.
+- She prescribes drops to take every day which I collect from the Romany pharmacy in Dénia.
 
 ## PTSD
 
@@ -63,8 +63,8 @@
 
 !!! tip "List of teachers and staff"
     - The current lists on the conservatory website may still reflect the state of the staff in 2023 although there will be changes.
-        - Teachers: https://portal.edu.gva.es/conservatoridenia/es/departaments-es/
-        - Staff: https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/
+        - Teachers: https://portal.edu.gva.es/conservatoriDénia/es/departaments-es/
+        - Staff: https://portal.edu.gva.es/conservatoriDénia/es/centro/organigrama/
 
 - The "Ana is his girlfriend" lie was particularly vicious and, even though I really didn't even care, it upset me as intended because it was relentless and I believed I was in love and it was an overpowering feeling.
 - During the cyber stalking to come, aside from there being a host of pictures of [Ana Requena modeling](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png) and constant sexual and other derogatory references to her, there is also an interesting picture of the child catcher from Chitty Chitty Bang Bang.

@@ -23,7 +23,7 @@
 ## Technofix
 
 - I have no idea who these are. I phoned this company in April so I believe it is the cyber expert from Alicante, but they have a different name.
-- I made a call to them without realizing it, in Denia in October 2024.
+- I made a call to them without realizing it, in Dénia in October 2024.
 - It was extremely weird. I think hackers took control of my phone and made this call.
 
 ![Technofix](../content/whatsapps/technofix-1.jpg){width=50%}![](../content/whatsapps/technofix-2.jpg){width=50%}

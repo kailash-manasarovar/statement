@@ -56,7 +56,7 @@
 ## Twitter starts to get more threatening
 
 - I'm followed by a weird fake account, Mark Moseley, who is just like the other fake accounts that interact with me directly, but decidedly more violent in tone. He seems unhinged.
-- He is, apparently, a homeless drug addict from Portland Oregon but he baits me with information only the people of Denia would know.
+- He is, apparently, a homeless drug addict from Portland Oregon but he baits me with information only the people of Dénia would know.
 - This goes on for a few weeks. I, again, think it is the trumpet teacher or someone related to him. He gives many details of things only he or his associates could know.
 - I tell him I don't believe who he says he is. He posts an identification document for Mark Moseley from Portland Oregon.
 - I guess now that it's another delegate, hacked, or stolen account.

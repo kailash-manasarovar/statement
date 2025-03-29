@@ -4,7 +4,7 @@
 - I changed all my plans and spent most of December in Dénia instead.
 - I stayed at two hotels and logged into their networks.
 - I had been doing a lot of apartment searches since August and had found nothing at all.
-- On December 8th, however, a very significant day for me spiritually, while I was in Denia, an apartment came up for rent which was perfect; too good to be true even.
+- On December 8th, however, a very significant day for me spiritually, while I was in Dénia, an apartment came up for rent which was perfect; too good to be true even.
 - Carrer Furs 15, Bloque 1 Escalera 2 Piso 3 Apartamento 17, Dénia 03700 Alicante.
 - I contacted the landlady, Beatriz Garcia Morales, and signed the agreement.
 - The landlady, Beatriz, was angry and disagreeable. Hackers have more recently mentioned her demeanor online to me over the summer in 2024.

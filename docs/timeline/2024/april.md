@@ -116,7 +116,7 @@
 
 ## I get an Orange SIM
 
-- I go to Orange in Denia to get a SIM for my analog phone that cannot connect to Internet.
+- I go to Orange in Dénia to get a SIM for my analog phone that cannot connect to Internet.
 - I'm hoping that I can use it in emergencies and that I can't be followed using it in the way that I have been.
 - The number they give me ends in 007.
 - I buy another simple phone which won't have access to Internet on Amazon: https://www.amazon.co.uk/gp/your-account/order-details?ie=UTF8&orderID=203-8343216-4317911&ref=ppx_yo2ov_dt_b_fed_order_details
@@ -181,7 +181,7 @@
 - I apply to volunteer and be a steward.
 - I'm also planning to speak too.
 
-## The trumpet teacher in Denia
+## The trumpet teacher in Dénia
 
 - It must be the 28th April, a Sunday, I go to the Chinese restaurant.
 - As I'm walking back home, I pass by a group of gypsies, a small girl running up beside me who I smile at and who gets shy and runs back to the group.

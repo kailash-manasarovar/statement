@@ -4,7 +4,7 @@
 
 ## Conservatory news
 
-- On [Denia.com](https://www.denia.com/wp-content/uploads/2025/03/firmas-recogidas-para-un-nuevo-conservatorio-de-musica-en-denia-scaled.jpg) there is a report on a petition raised regarding a new building for the conservatory.
+- On [Dénia.com](https://www.Dénia.com/wp-content/uploads/2025/03/firmas-recogidas-para-un-nuevo-conservatorio-de-musica-en-Dénia-scaled.jpg) there is a report on a petition raised regarding a new building for the conservatory.
 
 ![Conservatory petition](../../content/images/conservatory-teachers.jpg)
 

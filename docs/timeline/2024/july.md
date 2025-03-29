@@ -10,9 +10,9 @@
 
 ## Evidence of mass cyber stalking technology
 
-- I'm back in Denia on 15th July. 
+- I'm back in Dénia on 15th July. 
 - I was not sexually aroused at all while I'm away.
-- After a couple of days back in Denia, the sexual arousal starts up again.
+- After a couple of days back in Dénia, the sexual arousal starts up again.
 - Morever, communication with the hacker begins again in earnest.
 - It starts in a very interesting way.
 - A post comes up on my `@JackChardwood` account referencing [*strawberries*](../2023/october.md#strawberries) on July 17th, and something about staying or leaving. 
@@ -26,7 +26,7 @@
 - This is extraordinary. I've never seen anything like it on my JC account which gets no views at all usually.
 - And for this to happen on a tweet about "strawberries". Well, there is no doubt this is evidence of cyber stalking.
 - And not only that, but the fact that the cyber stalkers/hackers have technology that can generate this sort of intense activity on Twitter at the drop of a hat. 
-- It must be expensive technology. Why would they be using such technology, such resources, to terrorize a lone and vulnerable foreign woman in Denia? It doesn't make any sense.
+- It must be expensive technology. Why would they be using such technology, such resources, to terrorize a lone and vulnerable foreign woman in Dénia? It doesn't make any sense.
 - I tell my friend in Madrid (who doesn't really understand what I'm saying) and the expert in Alicante about this.
 - I explain it very clearly to the expert, with screenshots; See page 5 of the [email thread to the perito](../../content/documents/evidence/comms-with-perito.pdf).
 - I never hear anything from the expert in Alicante about this or anything else.
@@ -34,7 +34,7 @@
 
 ## Sexual arousal
 
-- During the time I am back in Denia over this month I am extraordinarily sexually aroused and masturbate often.
+- During the time I am back in Dénia over this month I am extraordinarily sexually aroused and masturbate often.
 
 ## Big chat with the hacker begins
 
@@ -58,7 +58,7 @@
 - Down at the beach, young men come up to me and make references to coffee.
 - In this unusual way, we chat about things that have happened between us, that no one could know unless he told them, or is telling them; private looks we made to each other for example. I'm sure it's the trumpet teacher.
 - I feel extremely sexually aroused these last two weeks in July before I leave for Lourdes.
-- It's important to note that I felt no sexual arousal while I was away, it's only when I come back to Denia and stay in my flat that this begins again.
+- It's important to note that I felt no sexual arousal while I was away, it's only when I come back to Dénia and stay in my flat that this begins again.
 - I don't go out much now as it feels so dangerous but I try to go to the beach in the afternoon as there are a lot of people there, tourists.
 - I wear my hiker's camera on these outings.
 - I masturbate and sometimes it feels like the trumpet teacher is in my head while this is happening. 

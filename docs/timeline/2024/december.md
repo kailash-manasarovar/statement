@@ -16,7 +16,7 @@
 
 ![lost access Taru Ann](../../content/images/lost-access-1.JPG)
 
-- Then two people like a post that is very suggestive of the situation. Zee and Luke would be references to old friends Zoe and Luke  from Denia.
+- Then two people like a post that is very suggestive of the situation. Zee and Luke would be references to old friends Zoe and Luke  from Dénia.
 
 ![lost access Zee and Luke](../../content/images/lost-access-2.JPG)
 
@@ -28,7 +28,7 @@
 
 ## Sunday 8th December 2024
 
-- There is no doubt in my mind that what I have experienced at the hands of teachers and staff at the conservatory of Denia, their friends and family, could give a person a nervous breakdown or drive them to suicide.
+- There is no doubt in my mind that what I have experienced at the hands of teachers and staff at the conservatory of Dénia, their friends and family, could give a person a nervous breakdown or drive them to suicide.
 - Perhaps the intention was murder all along. It certainly seems so from my point of view.
 - I suggest investigators check all local suicide stats and untimely deaths of anyone, particular young people, who have a history of complaining about being terrorized or harassed in any way.
 - I would also double check any women that may have been accused of being "hysterical" or similar when making gang stalking claims against public institutions such as schools or colleges, particularly public musical clubs and activities in Spain.
@@ -95,7 +95,7 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
 - I continue to be completely alone against thousands.
 - It seems many many people would like me silenced.
     - Criminal porn gangs from London.
-    - Criminal porn gangs from Denia.
+    - Criminal porn gangs from Dénia.
     - Any supporting the above including the Generalitat de Valencia.
     - Ineffective police in UK and Spain.
     - Misogynists generally.

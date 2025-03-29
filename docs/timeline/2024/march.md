@@ -52,10 +52,10 @@
 
 ### Enric Gil
 
-- I go to see Enric. I know him already from  when I lived in Denia previously in 2006-9, and we had friends in common.
+- I go to see Enric. I know him already from  when I lived in Dénia previously in 2006-9, and we had friends in common.
 - I tell him everything. 
 - As I start to mention the threats from Domingo he shuts me down.
-- He says I should see the Denia local police who have a division for gender violence.
+- He says I should see the Dénia local police who have a division for gender violence.
 - We go outside.
 - I'm speaking to him and he's laughing at me while I do. I wonder if someone is behind me making faces or playing the fool. It's unsettling.
 - He goes to talk to a local police officer and comes back.
@@ -98,7 +98,7 @@
 - This shop had a picture in the window of Frida Khalo for months.
 - Often, in the Google search results for `@jctot19` there were pictures of Frida Khalo and references to the trumpet teacher having another girlfriend.
 - Ridiculous, I know.
-- Amazing that the people of Denia would put so much effort into all this, and it must have cost a lot of time, effort, and money to keep it going. 
+- Amazing that the people of Dénia would put so much effort into all this, and it must have cost a lot of time, effort, and money to keep it going. 
 - I now wonder if they were perhaps making more money than they were spending from either:
     - Mass voyeurism on social media of "hunted" or targeted women in Spain.
     - Mass voyeurism of women being filmed on hidden cameras in their homes, possibly amateur porn networks, something I often saw in my Google results.
@@ -166,7 +166,7 @@
 
 ### Nowhere
 
-- I get a desk at Nowhere co-working space in Denia: https://knowheredenia.com.
+- I get a desk at Nowhere co-working space in Dénia: https://knowhereDénia.com.
 
 ### I tweet about it
 
@@ -211,7 +211,7 @@
 - It's around this time I am feeling like I want to have a child, although this has been on and off for months. I believe this is suggestions from Twitter or online hacking, subliminal messages, etc.
 - On one of the last times I attended classes at the conservatory, probably Wednesday 13th March, Ana is playing trumpet music on her laptop and I hear it from her classroom as I walk by.
 
-### A serious attack on my wellbeing from piano teachers at Denia conservatory
+### A serious attack on my wellbeing from piano teachers at Dénia conservatory
 
 - On Tuesday 12th March, there is a end of term piano concert at the Casa de Cultura in Dénia.
 - It's a huge set up, all meant to terrify me, probably give me a nervous breakdown, and maybe kill myself too.
@@ -255,7 +255,7 @@
 ### Translator
 
 - It's time to go to the police again but I need a translator to help me deal with them properly.
-- After my experience with the [police in Denia in February](february.md#policia-nacional), I believe I need firm proof of hacking before I can go to them again!
+- After my experience with the [police in Dénia in February](february.md#policia-nacional), I believe I need firm proof of hacking before I can go to them again!
 - I get a recommendation, Sara Lebanon, through an Irish woman Brenda who incidentally knows Alessandra very well. 
 - I tell her everything, the child sexual abuse I suffered (she's very alarmed at this) and how it made me intolerant of children being sexualized at the conservatory, and how I had been targeted for basically mentioning that very informally in 2015. 
 - She says to me, "Oh at least you know you're not imagining it." I wonder why she would say that. She says it a few times.
@@ -335,12 +335,12 @@
 - I went back to work
 - After a while, five big Russian or Ukrainian blokes come in and stand opposite me at the desks. They are pretending to talk about the computer. They are dressed like labourers. They are extremely rough types, five of them.
 - I find it extremely threatening.
-- I decide to leave Denia.
-- When I leave the offices about two hours later, they are outside at the exact the moment I step outside the door, surrounding a blond woman I've seen before in Denia.
+- I decide to leave Dénia.
+- When I leave the offices about two hours later, they are outside at the exact the moment I step outside the door, surrounding a blond woman I've seen before in Dénia.
 
 ### Madrid
 
-- In fear, I leave Denia to go to Madrid and I stay from 14th-24th March at the AC Hotel Atocha by Marriot.
+- In fear, I leave Dénia to go to Madrid and I stay from 14th-24th March at the AC Hotel Atocha by Marriot.
 
 !!! important
     - My hotel costs run into the thousands but I feel I have no choice.
@@ -503,7 +503,7 @@
 
 ### Elaine threats 
 
-- Another account appeared to be a trigger to remind me of Elaine Black who had hung herself in July 2021 in Denia. 
+- Another account appeared to be a trigger to remind me of Elaine Black who had hung herself in July 2021 in Dénia. 
 - This account had been following me since January but the threat level ramped up in March.
 
 ![Elaine](../../content/images/threats/lorraine/lorraine%20account.png)
@@ -524,7 +524,7 @@
 
 ### Changing card PIN numbers
 
-- I order a new bank card but I won't be able to use it until I get back to Denia in April.
+- I order a new bank card but I won't be able to use it until I get back to Dénia in April.
 - I decide to change the card PIN numbers on my bank cards in Madrid.
 - This process is extraordinarily difficult, it is as if I don't have the mental capacity to do a simple task like this.
 - It takes me three or four trips to the ATM machine at the banks to finally do it, a whole day in fact.
@@ -570,7 +570,7 @@
     - He had plastic all over the floors. It was a top floor maisonette and I was climbing the stairs. I noticed he had a stanley knife in his hand. Something didn't feel right and I left. He urged me to come up but I said I didn't have time.
     - I didn't think about it again until after the murder.
     - The similarities were extraordinary.
-    - Could anyone from Denia be involved in these events? It seems unlikely ...
+    - Could anyone from Dénia be involved in these events? It seems unlikely ...
 
 ## 20th March
 

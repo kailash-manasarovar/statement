@@ -31,7 +31,7 @@
 
 ## Choir rehearsal at the boat club
 
-- At the end of term we have a choir rehearsal at the boat club in Denia.
+- At the end of term we have a choir rehearsal at the boat club in Dénia.
 - Paqui's husband is there, scowling and glaring at everyone.
 - He looks extremely angry.
 - It's weird.

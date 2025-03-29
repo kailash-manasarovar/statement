@@ -81,7 +81,7 @@ Are the cyber-stalkers who fed me information and evidence about actual crimes s
 
 I love Dénia. 
 
-I had many friends there and I sang in the Orfeó de Dénia choir, led by Klara Sarkadi, for years. It was while singing with Klara Sarkadi's choir that I met people who helped me enter the [conservatory of Dénia](https://portal.edu.gva.es/conservatoridenia/) to study the piano.
+I had many friends there and I sang in the Orfeó de Dénia choir, led by Klara Sarkadi, for years. It was while singing with Klara Sarkadi's choir that I met people who helped me enter the [conservatory of Dénia](https://portal.edu.gva.es/conservatoriDenia/) to study the piano.
 
 Studying the piano at the conservatory was an enormous privilege. 
 

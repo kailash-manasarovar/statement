@@ -105,7 +105,7 @@
 ## Dentist
 
 - At some point, I tried to find a dentist.
-- I looked up a dentist in Javea to go to but there was porn all over their website so I decided to contact a dentist in Denia instead.
+- I looked up a dentist in Javea to go to but there was porn all over their website so I decided to contact a dentist in Dénia instead.
 - I went to https://www.adentaria.com/.
 - I was having some inflammation around my wisdom tooth on the top right side, and it was painful and raw, and I was a bit concerned.
 - The dentist came in, masked up and didn't even say hello to me.

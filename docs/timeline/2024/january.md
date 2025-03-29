@@ -31,7 +31,7 @@
 - He looks at me meaningfully and menacingly and, as I walk past the open classroom door, I notice, in the darkened room with no lights on, Lucia, the minor, Domingo's student, looking out at me.
 - It's all set up to make me think something is going on.
 - And yet, the thing I'm supposed to think, which Domingo can ensure no-one tells anyone about - because look what happens to people who are concerned about the safety of minors in the conservatory system - *is* actually happening.
-- It's only a matter of time before the world finds out about the mass spy-cam porn voyeurism in Denia that includes violent sex crimes and the preparing of its future stars and where they come from.
+- It's only a matter of time before the world finds out about the mass spy-cam porn voyeurism in Dénia that includes violent sex crimes and the preparing of its future stars and where they come from.
 - The moment a victim feels safe enough to speak, and people are listening without wanting to murder them, there will be a tsunami of speakers, males and females. It's the same everywhere in the world.
 
 ## Google search
@@ -112,7 +112,7 @@
 ## Conservatory women
 
 - At some point, I told Paqui that Domingo and his associates were terrorizing me. 
-- It was just before a piano concert at the social centre in Denia in January 2024 which the students of the conservatory are usually invited to. She asked me was I going to go, and I asked her if it was safe for me to go.
+- It was just before a piano concert at the social centre in Dénia in January 2024 which the students of the conservatory are usually invited to. She asked me was I going to go, and I asked her if it was safe for me to go.
 - She seemed alarmed at my question which is when I told her I was being terrorized by men, Domingo and others.
 - I believe I can trust her at that point, at least a little bit.
 - I had no idea she was 100% involved.
@@ -142,7 +142,7 @@
 
 ## Nacho follows me around town
 
-- One Saturday, I need to run some errands in Denia.
+- One Saturday, I need to run some errands in Dénia.
 - Nacho is always there, wherever I am, walking by in view.
 - He's following me, trying to upset me.
 - I smile and laugh at him. He looks embarrassed.

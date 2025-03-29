@@ -108,7 +108,7 @@
     - They accept in the letter that the dismissal is unlawful.
     - I get a Spanish lawyer who appears to be colluding with the Spanish company so I have to fire them in December 2024.
     - There's a lot more to this story; this is just a quick sketch.
-    - Being targeted at my job for being "transphobic", which I'm not, on top of being targeted by criminal gangs of Denia is really too much for one person to cope with without any support at all.
+    - Being targeted at my job for being "transphobic", which I'm not, on top of being targeted by criminal gangs of Dénia is really too much for one person to cope with without any support at all.
 
 ## Tweets
 
@@ -138,7 +138,7 @@ Many of these tweets are confirmation of what has been going on.
 - https://x.com/1FRGVN/status/1721133303716057526
 - https://x.com/1FRGVN/status/1721087990095630838
 - https://x.com/1FRGVN/status/1720741073004245379 -> curiously, Elon posts a violin player (Ana) playing over piano music (me).
-- https://x.com/1FRGVN/status/1720383165729051042 -> story of how I got to Denia. I had no suspicion the whole thing was a set up at that stage, none at all.
+- https://x.com/1FRGVN/status/1720383165729051042 -> story of how I got to Dénia. I had no suspicion the whole thing was a set up at that stage, none at all.
 - https://x.com/1FRGVN/status/1719532076725072313 -> coming home from being out at Halloween and posting the song I sang.
 
 

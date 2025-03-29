@@ -1,6 +1,6 @@
 ## Homeopath
 
-- The homeopath I saw in Denia from early 2023 to March 2024 was Ana Vilalba.
+- The homeopath I saw in Dénia from early 2023 to March 2024 was Ana Vilalba.
 - In her notes, you will see I complained about the following symptoms over this time:
     - Stress and anxiety, PTSD issues primarily
     - Inflamed gums, teeth issues
@@ -44,10 +44,10 @@
 - On 28th January, I got a mild form of rhabdo at chamber music class with the trumpet teacher.
 - I suffered frothy urine and other ill effects after that for some time.
 - I went on a strict kidney diet, lost a lot of weight (15kg) and the urine problem became intermittent.
-- I went to my GP in Denia for a blood test to check for kidney failure markers. They did a blood test for everything and skipped the kidney function test. There was no explanation why.
-- I went to the pharmacy in Denia to do a DIY creatinine test. They never had one available. It was not clear why.
+- I went to my GP in Dénia for a blood test to check for kidney failure markers. They did a blood test for everything and skipped the kidney function test. There was no explanation why.
+- I went to the pharmacy in Dénia to do a DIY creatinine test. They never had one available. It was not clear why.
 - The frothy urine and pain in my kidney area always comes back hard if I'm unwell. So, for example, when I had Covid in May 2023, my kidneys were battered from it. This was also true when I had the serious chest infection from 13th March to 5th April where I even cracked a rib coughing. I also became unwell in August 2024 with a chest infection. During these times I had frothy urine and back pain all the time.
-- My urine became frothy again whenever I was back in Denia living at Carrer Furs.
+- My urine became frothy again whenever I was back in Dénia living at Carrer Furs.
 - On 12th November 2024, at Bangkok Hospital, I undertook the comprehensive kidney analysis tests.
 - Everything was normal except for anion gap which was low.
     - [Kidney analysis results page 1](../content/documents/health/kidney-1.JPG)
@@ -62,9 +62,9 @@
 - I was told I had high ocular pressure and needed to come in to have it monitored regularly as it could be a sign of sudden onset glaucoma which can cause blindness.
 - I went in regularly until the I left for holidays and the pressure was always high. I went once in France too I believe.
 - Alain Afflelou didn't note every check that I had but usually did.
-- I was away from Denia until September 2023. When I got back, I went for an ocular pressure check again and the pressure was low again. They told me I didn't need to come back for monitoring anymore.
+- I was away from Dénia until September 2023. When I got back, I went for an ocular pressure check again and the pressure was low again. They told me I didn't need to come back for monitoring anymore.
 - Since then it's been difficult to think straight about anything and I failed to go for a check up again until November 2024.
-- My eyes had been feeling pretty OK up until I spent a week back in my apartment in Denia at the end of October 2024 when I started to feel really unwell.
+- My eyes had been feeling pretty OK up until I spent a week back in my apartment in Dénia at the end of October 2024 when I started to feel really unwell.
 - Included in those unwell feelings was concerns about my eyes: burning sensation, blurred vision, headaches, shooting nerve pains around the face.
 - I got a preliminary eye pressure check in Bangkok mid-November and was informed the pressure was high.
 - Today, Thursday 28th November, I had a full analysis and checkup done at Rutnin Eye Hospital in Bangkok.
@@ -94,7 +94,7 @@
 
 ### Negative
 
-- My mind feels utterly polluted with porn and unhealthy sexual ideas. This is more so if I am feeling aroused which thankfully I don't if I am not in flat in Denia. 
+- My mind feels utterly polluted with porn and unhealthy sexual ideas. This is more so if I am feeling aroused which thankfully I don't if I am not in flat in Dénia. 
 - These thoughts are not my own. It's horrible.
 - I don't know when it started but I was overwhelmed with the feeling I was going to have a child with the trumpet teacher. It was intense and inexplicable. I think they were "throwing the (NLP/hypnosis/online seduction) book at me", at this stage, and I wonder how many women have been trapped into marriage by these manipulation techniques and, therefore, a lifelong connection with someone they were probably unsure of, at best.
 - There was a lot of content that I'm sure was intended to make me feel insecure about how I looked. Content about fat women when I was putting on weight. Content about acne when I had some. Even content about a tiny wart on my nose. Lots and lots of content about the urinary problems I was having that I did a lot of online searches about. It was relentless.

@@ -10,7 +10,7 @@
 ## Seduction techniques
 
 - Ideally, the trick begins with an actual physical person, the object of desire, coupled with online seduction techniques and drugging/spiking with narcotics/herbs.
-- In my case, this was an elaborate set up that took place during scheduled chamber music classes at the conservatory of Denia, while hundreds of minors were in attendance.
+- In my case, this was an elaborate set up that took place during scheduled chamber music classes at the conservatory of Dénia, while hundreds of minors were in attendance.
 - A minor child was also present during the physical seduction techniques, which included drugging.
 - I imagine in many target's cases, this initial phase will be the beginning of a new relationship, possibly started online, and online communication will be essential to its continuance.
 - The seduction is reinforced over time online using professional NLP seduction techniques, and then will intensify whenever the target is physically together with the object of desire, a real life person. In my case (and likely many others) a teacher.

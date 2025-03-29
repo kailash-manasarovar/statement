@@ -131,7 +131,7 @@
     - I believe the blinking comes from when I was being repeatedly raped, and the assault on the body that took place at those times.
     - Blinking may have been my only way to register sexual assault as it was happening and while I was sedated.
     - If I'm right about the Finnish woman, in deeply paranoid moments, it certainly appears much more is going on than at first meets the eye.
-    - I wonder if *all* the teachers and staff, especially the women, and the townsfolk of Denia are aware of the depths of evil this story potentially contains.
+    - I wonder if *all* the teachers and staff, especially the women, and the townsfolk of Dénia are aware of the depths of evil this story potentially contains.
     - It's perhaps important to note that abuse sufferers, like myself, are going to be broadly more open to subtle seduction manipulation techniques due to the tearing down of psychological boundaries during such attacks.
     - Ironically, we will also notice them more clearly due to our heightened awareness capabilities.
 
@@ -139,7 +139,7 @@
 - Curiously, she spoke to me about similar things I had noticed on Twitter content which seemed to be trying to make me insecure about how I looked and whether I was attractive enough for men. I thought that was weird, not as weird at the blinking though.
 
 !!! info
-    - This has reminded me of a man I knew in Denia in 2014 or 15 who I had been introduced to by a French woman there who worked in an estate agency.
+    - This has reminded me of a man I knew in Dénia in 2014 or 15 who I had been introduced to by a French woman there who worked in an estate agency.
     - We had been out one night and he walked a little way towards my home with me, and the whole time he kept blinking and winking at me, while grinning, in an extraordinarily weird manner.
     - So weird, in fact, I mentioned it to the French woman in disgust.
     - The man was Greek and may have been one of the [muscle men](#muscle-men-outside-the-tunnel) I just mentioned.
@@ -150,7 +150,7 @@
 - We talk about things from the chamber music class with the trumpet teacher, and other stuff. It's personal matters only people related to the gang stalking would know.
 - In one of these chats, I ask him to come to Madrid. He says it's not happening.
 - I'm not sure it's actually the trumpet teacher at all but I'm extremely high and sexually aroused at this time and it's difficult to keep clear about what's going on.
-- I masturbate and I'm 100% sure now (at the time of writing) the sound of this happening is shared in real time with people in Denia and beyond maybe, as the phone is on the bedside table.
+- I masturbate and I'm 100% sure now (at the time of writing) the sound of this happening is shared in real time with people in Dénia and beyond maybe, as the phone is on the bedside table.
 - I visit a friend and tell her everything that's been going on.
 - I tell her I'm communicating with the trumpet teacher with Twitter DMs, and I'm convinced I have a boyfriend, or soon will have one.
 - I ask her about Spanish men, what they're like, etc.
@@ -171,7 +171,7 @@
 
 - "Look at her, remind you of anything?", the account asks.
 - I understand immediate that the reference is to me being hacked and filmed in my hotel room in France.
-- I wonder who is managing this account but it is certainly someone who knows what's been going on, right back to before I went public on Twitter, when, I assume, the gang stalking was Denia-contained.
+- I wonder who is managing this account but it is certainly someone who knows what's been going on, right back to before I went public on Twitter, when, I assume, the gang stalking was Dénia-contained.
 - The hotel room in the photo also looks exactly like the hotel room I'm in at that moment.
 
 ## Twitter
@@ -247,7 +247,7 @@ Many of these tweets are confirmation of what has been going on.
 - https://x.com/1FRGVN/status/1731058092475916788
 - https://x.com/1FRGVN/status/1730977373212889274
 - https://x.com/1FRGVN/status/1730680949266841930 -> quote regarding Pablo and the fact he had to witness the psychological attack against a "vulnerable" female by males he probably respected, and he was a great kid. Note Matthew has something to say about this.
-- https://x.com/1FRGVN/status/1730640137279639877 -> the Hanuman temple I want to build in Denia.
+- https://x.com/1FRGVN/status/1730640137279639877 -> the Hanuman temple I want to build in Dénia.
 - https://x.com/1FRGVN/status/1730355508186386608
 - https://x.com/1FRGVN/status/1730335228047056929 -> practical issues around being the town pariah.
 

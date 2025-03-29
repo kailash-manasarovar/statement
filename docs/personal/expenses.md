@@ -5,9 +5,9 @@
 
 ## Hotels 
 
-It is impossible for me to feel safe in Denia. I believe my life is in danger in Denia and probably throughout Spain and even beyond.
+It is impossible for me to feel safe in Dénia. I believe my life is in danger in Dénia and probably throughout Spain and even beyond.
 
-I've nowhere else to go however. London is complicated. I'm going to be homeless when I leave Denia which, for me, is very upsetting and worrying.
+I've nowhere else to go however. London is complicated. I'm going to be homeless when I leave Dénia which, for me, is very upsetting and worrying.
 
 I will have to go back to London at least temporarily and this has been an extremely difficult place for me as my parents and brother have consistently downplayed anything that's happened to me over the years as unimportant, or my fault somehow.
 
@@ -89,7 +89,7 @@ My laptops and phones are really unusable as they are infested with hacker softw
 
 ## Lost work
 
-- I lost three jobs during this period. The first two, I believe, I lost due to the stress I was under while I was being drugged and stalked online and in Denia.
+- I lost three jobs during this period. The first two, I believe, I lost due to the stress I was under while I was being drugged and stalked online and in Dénia.
 - The third was unfair dismissal which I'm going to court about.
 - Due to my [cognitive loss](health.md#cognitive-loss), I'm pretty sure I would struggle to maintain the same level of jobs I have been working for over the last 10 years.
 - My losses here are incalculable really. 

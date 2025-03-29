@@ -19,7 +19,7 @@
 - I had a session with Robin Sullivan of trauma therapy online either the 29th May or the 5th June. She will have the records of everything that happened in the sessions and anything I reported afterwards.
 - This was a Monday in which the trumpet teacher did not turn up for class.
 - We did HPA axis. I asked her for this due to the overwhelming anxiety I was feeling with regards to the trumpet teacher.
-- I had reported everything to my [therapist Robin previously](may.md#teb-with-robin-sullivan), including physical, psychological, and emotional effects of what was happening to me at the hands of the people of Denia.
+- I had reported everything to my [therapist Robin previously](may.md#teb-with-robin-sullivan), including physical, psychological, and emotional effects of what was happening to me at the hands of the people of Dénia.
 - It was very powerful and I slept well that night.
 - The following morning, I noticed a small piece of faeces in my pants. I had poo-ed myself during the night.
 - This was very startling. I had never done this before, not even when I was a child.
@@ -51,7 +51,7 @@
 
 ## June 9th piano concert
 
-- The end of year piano concert took place at the boat club venue in Denia.
+- The end of year piano concert took place at the boat club venue in Dénia.
 - I played Philip Glass etude no 2.
 - As we were preparing, and just as I was a few bars in, Domingo shouts "again?" in an accusatory tone very loudly.
 - I wonder what he means. Does he mean another ridiculous apparent romantic tryst for me at the conservatory? Or what.
@@ -142,7 +142,7 @@
 - While I'm on the acupuncture table, there is a violent storm outside, and lightning takes a tree down on the road outside.
 - I leave for Ireland, via Alicante airport, that evening and there are rainbows all over the region. I take it as a good sign.
 
-## Teachers and staff involved in gang stalking students at Denia Conservatory
+## Teachers and staff involved in gang stalking students at Dénia Conservatory
 
 !!! warning
     - You can find a list of current teachers and staff on the [conservatory website](https://portal.edu.gva.es/conservatoriDénia/es/inici/).

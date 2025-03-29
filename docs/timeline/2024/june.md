@@ -12,7 +12,7 @@
 ![Barnet post](../../content/documents/barnet-post.png)
 
 !!! info
-    - With regards to my situation in Denia, running for election was a game changer.
+    - With regards to my situation in Dénia, running for election was a game changer.
     - For anyone interested, here is my [election leaflet](../../content/documents/Katharine%20leaflet.pdf) which went out to 80,000 London constituents, twice, via Royal Mail.
 
 ## Continued stalking and health matters
@@ -23,8 +23,8 @@
 - I'm aware that everything I do online is seen by hackers. Everything.
 - Electioneering is a social business and I drink alcohol most days.
 - However, I feel no ill effects like I do when I am at home in Dénia. It's weird.
-- In Denia, I have frothy urine nearly every day. After about a week in Lourdes, this ceased.
-- It starts up again when I go back to Denia in July.
+- In Dénia, I have frothy urine nearly every day. After about a week in Lourdes, this ceased.
+- It starts up again when I go back to Dénia in July.
 
 ## Election campaign
 
@@ -38,7 +38,7 @@
 
 ### Winston May
 
-!!! danger "Is this proof that stalkers from Denia did connect with child sex offenders in North London"
+!!! danger "Is this proof that stalkers from Dénia did connect with child sex offenders in North London"
     - During my election campaign, I and a bunch of volunteers would hand leaflets out in North London.
     - On Wednesday 3rd July, I was handing out leaflets at Brent Cross tube station.
     - Only myself and one other volunteer was with me and we were standing far apart from each other.
@@ -49,8 +49,8 @@
     - He look like he was out of his mind on drugs.
     - I offered him a leaflet and insisted he took one when he said he already had one. He tried to get away from me as I walked towards him.
     - Later, the volunteer who was with me told me a story that he had been sexually abused as a child when he was 7, in an African country, and that he had seen the abuser again when he was about 16 holding the hand of a young boy.
-    - Is this proof that the Denia criminal porn gangs, obsessed with whatever film they had found of me after reading my statement online which they probably took copies of, and with their UK connections, found ways to continue to terrorize me in London as I was running for election?
-    - It's difficult to understand exactly why this event happened, who would benefit, and how the Denia criminal gangs could not be involved in some way.
+    - Is this proof that the Dénia criminal porn gangs, obsessed with whatever film they had found of me after reading my statement online which they probably took copies of, and with their UK connections, found ways to continue to terrorize me in London as I was running for election?
+    - It's difficult to understand exactly why this event happened, who would benefit, and how the Dénia criminal gangs could not be involved in some way.
 
 ### Speech at LWS
 
@@ -67,9 +67,9 @@
 ### Volunteers not what they seem
 
 !!! danger "Volunteer list"
-    - I believe most of my "volunteers" were connected to Hazel and Sandra Smith in Denia in some way. Here is a list of them:
+    - I believe most of my "volunteers" were connected to Hazel and Sandra Smith in Dénia in some way. Here is a list of them:
         - Janet (calls herself So): constantly and extremely weirdly trying to distract me from campaigning. She gave me some items which may have contained poison.
-        - Steve Norman: lovely man from N2 who kept saying he had been involved in vivisection activity in the 80s which I took to mean he was probably a police informant of some sort, but now I believe he was connected to the criminal gangs of Denia.
+        - Steve Norman: lovely man from N2 who kept saying he had been involved in vivisection activity in the 80s which I took to mean he was probably a police informant of some sort, but now I believe he was connected to the criminal gangs of Dénia.
         - Athena Norman: Steve's "wife", a trans-sexual man. I believed this set up to be a way to discredit me in the future.
         - Wesley Aguilar: a man who was clearly embarrassed about something as he could not look me in the eye. Had he seen the child rape porn I was in?
         - There were a few other volunteers who I did trust that I won't mention here.
@@ -81,4 +81,4 @@
 
 ## No sexual arousal
 
-- I am not sexually aroused at all this month away from Denia.
+- I am not sexually aroused at all this month away from Dénia.
