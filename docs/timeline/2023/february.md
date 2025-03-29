@@ -36,13 +36,19 @@
 !!! danger
     - I now believe this was an attempt to commence a regular sexual relationship with me at my apartment which would then be live-streamed on porn networks.
 
+![Sedating me and coming into my room](../content/images/sedating/sedating-2.png)
+
 ## Observations on the trumpet teacher
 
 - The trumpet teacher seems poor and he is badly dressed.
 - He seems like a desperate man somehow. I wonder if he takes drugs. He doesn't smell of smoke.
 - Of the few classes he does turn up to, in some of the earlier classes he appears to be wearing a prison-issue shirt.
 - I bring in a lot of the music we study, and he goes to photocopy it. Gloria will be helping him no doubt. Sometimes he takes a long time doing the photocopying.
-- When he returns, I notice that he holds the pages he gives me in the top corner only.
+- When he returns, I notice that he holds the pages he gives me in the top corner only. 
+
+!!! tip "Bait and switch"
+    - Could these moments, whenever he left the class to go to the photocopier, be the time when the two men switched over?
+
 - Sometimes he asks me about something on his phone and hands me his phone so I'm holding it. It's never clear what he wants.
 
 !!! info "What I thought he might have wanted"

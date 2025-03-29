@@ -45,6 +45,9 @@
 
 - Whenever a chamber music class takes place - which is not every week - after I arrive home I feel dreadful, my kidneys ache and I have to lie down.
 - Then I wake up late and I am kept from going back to sleep again by loud noises from the upstairs apartment; scraping chairs, loud TV, and loud voices.
+- Did people come into my apartment without my knowledge, and while I was there, every Monday night after chamber music class?
+
+![Sedating me and coming into my room](../content/images/sedating/sedating-1.png)
 
 ## Ganesha
 

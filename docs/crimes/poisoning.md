@@ -3,6 +3,10 @@
 - I believe it is highly likely I was sedated from time-to-time, possibly every Monday night there was a chamber music class.
 - People were certainly accessing my apartment without my knowledge to add drugs to my toiletries which would continue to affect me while I was traveling.
 - I believe now it is highly likely people came into my flat and assaulted me on camera without my knowledge.
+- It's not clear who it was but it was certainly related to my studies at the conservatory in some way.
+
+![Sedating me and coming into my room](../content/images/sedating/sedating-0.png)
+
 - It is certain that every time I arrived back from the chamber music class I felt extremely unwell, my kidneys aching, and I had to sleep.
 - Also, I had a number of weird dreams and visions that may point to things happening to me while I was unconscious.
 
