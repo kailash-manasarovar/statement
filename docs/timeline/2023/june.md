@@ -111,6 +111,12 @@
 
 - I'm prepared for what is supposed to be my humiliation on Monday 12th June at chamber music class.
 - I bring the trumpet teacher a present to say thanks, a little wooden frog instrument. He tries to kiss me and I flinch away. I don't want to kiss him, he's hairy and I don't get a good feeling from him.
+
+!!! tip "The lucky frog"
+    ![Forg the lucky world-saving frog](../../content/images/forg/forg-in-wanderland.png)
+
+    Wee Forg, the lucky world-saving frog will become more and more important to our story as we go along.
+    
 - I tell him that the frog is lucky. 
 - We play Creep and My Way.
 - Before we play My Way, he tells Pablo to make sure he's recording on his phone, and he starts recording on his phone.
