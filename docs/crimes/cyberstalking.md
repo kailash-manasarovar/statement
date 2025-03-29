@@ -11,5 +11,9 @@
 ## Terror in Dénia
 
 - One comes across things like this while searching online: https://www.jazznblues.es/2017/09/un-buen-blues-gambas-de-denia-y-porno.html?m=1 and wonders if all women in Dénia are under attack from the porn gangs/cyber stalkers there.
-- It seems reasonable to assume the whole town must be being controlled and terrorized by them through threats to themselves or their children, daughters especially.
+- The page is down now but here's a summary of what you could read there, apparently written by a local woman.
+
+![Jazz and blues porno](../content/images/jazz-and-blues-porn-summary.png)
+
+- It seems reasonable to assume the whole town must be being controlled and terrorized by hackers with an obvious porn obsession through threats to themselves or their children, daughters especially.
 - Is this why it is so easy to drum up the significant resources required to target a lone foreign woman as I have been.
