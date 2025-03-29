@@ -35,7 +35,7 @@
 
 ## International choir concert
 
-- I went to the [international choir concert](https://www.Dénia.com/el-orfeo-de-Dénia-celebra-sus-40-anos-con-un-emotivo-concierto-que-unio-varias-generaciones-de-coristas/) and met all my old pals. 
+- I went to the [international choir concert](https://www.denia.com/el-orfeo-de-Dénia-celebra-sus-40-anos-con-un-emotivo-concierto-que-unio-varias-generaciones-de-coristas/) and met all my old pals. 
 - Here's a picture of the event from the local online press.
 
 ![The international choir concert](../../content/images/coro-con-klari.webp)
