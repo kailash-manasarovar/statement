@@ -116,8 +116,8 @@
     ![Forg the lucky world-saving frog](../../content/images/forg/forg-in-wanderland.png)
 
     Wee Forg, the lucky world-saving frog will become more and more important to our story as we go along.
-    
-- I tell him that the frog is lucky. 
+
+- I tell him that the frog is lucky and that he should look after it.
 - We play Creep and My Way.
 - Before we play My Way, he tells Pablo to make sure he's recording on his phone, and he starts recording on his phone.
 - It's ugly. Every note is a sort of attack on me personally.
