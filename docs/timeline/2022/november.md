@@ -8,7 +8,7 @@
 
 ## Hanuman arrives
 
-- I carry [Hindu diety Hanuman](https://en.wikipedia.org/wiki/Hanuman) with me wherever I go, for protection.
+- I carry [Hindu deity Hanuman](https://en.wikipedia.org/wiki/Hanuman) with me wherever I go, for protection.
 - On one walk with the English ladies, I have a leak in my bag and Hanuman pops out onto the ground as I sort out my stuff.
 - The ladies laugh at my silliness and one of them asks me who Hanuman is.
 - I explain.
