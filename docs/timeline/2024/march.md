@@ -166,7 +166,7 @@
 
 ### Nowhere
 
-- I get a desk at Nowhere co-working space in Dénia: https://knowheredenia.com.
+- I get a desk at Nowhere co-working space in Dénia: https://www.knowheredenia.com/.
 
 ### I tweet about it
 

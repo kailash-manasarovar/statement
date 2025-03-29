@@ -1,14 +1,14 @@
 ## Preparing for the audition
 
 - The head of studies, Jaume Signes, a trumpet teacher, allows me to use his room, the trumpet teaching room, room 6, every day to practice my pieces for the audition on a stand up piano.
-- One day, Gloria Muñoz Pimentel (this is the name on the [conservatory website currently](https://portal.edu.gva.es/conservatoriDénia/es/centro/organigrama/) although I thought her name was different, I could be wrong), one of the receptionists, tells me I cannot use the trumpet teaching room I've been using as it's busy, but there is a room free upstairs instead.
+- One day, Gloria Muñoz Pimentel (this is the name on the [conservatory website currently](https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/) although I thought her name was different, I could be wrong), one of the receptionists, tells me I cannot use the trumpet teaching room I've been using as it's busy, but there is a room free upstairs instead.
 
 ### Gloria
 
 !!! tip "Gloria the receptionist"
     - Gloria was instrumental in tormenting me throughout and absolutely delighted at some of the nastier things I experienced.
     - She was fully involved too. She was always reading some "significant" book, or left something "significant" open, or on her desk, for me to see whenever I picked up a piano room key or brought it back after practicing.
-    - It's very curious to note she is (at the time of writing) listed as the representative of highly sensitive people on the conservatory website: *Representante del PAS*: https://portal.edu.gva.es/conservatoriDénia/es/centro/organigrama/
+    - It's very curious to note she is (at the time of writing) listed as the representative of highly sensitive people on the conservatory website: *Representante del PAS*: https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/
 
     ![Gloria representing highly sensitive people](../../content/images/represent-pas.png)
 
