@@ -10,8 +10,11 @@
     - Eye problems, burning sensation, feeling like I can't see properly
     - Tiredness
     - Absent mindedness, can't think straight
+- I also reported being unusually and overly sexually aroused. I was a bit embarrassed about this and only alluded to it in writing.
+- Ana did not want me to write to her with information. She insisted I phoned her but I was uncomfortable speaking about my health issues in my flat as the neighbors would hear.
+- I didn't think it unusual that Ana was so insistent I didn't write anything down until recently.
 - Ana was over-interested in my sexual abuse history and asked me about it every visit, asking questions like, "where were your parents" etc. The questions were not loving or kind, and felt like she was trying to find a way to blame me for it.
-- She gave me homeopathic drops which I took every day. Here are some of [my updates to her](../content/documents/emails/ana-homeopath-1.pdf).
+- She gave me homeopathic drops which I got from the [Farmacia Romany](https://www.facebook.com/farmaciaromany/) and I took them every day. Here are some of [my updates to her](../content/documents/emails/ana-homeopath-1.pdf).
 - When I complained about my eyes, she suggested an eye mist company that she had an account with Quinton Medical, and I bought two or three eye mist products.
 - Another thing she mentioned, every session, was domestic violence by giving an example of a patient who had finally found the strength to leave.
 - When I left, I wrote her [this letter](../content/documents/emails/ana-homeopath-2.pdf) to which I received no reply.
