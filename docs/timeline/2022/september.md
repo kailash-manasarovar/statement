@@ -1,6 +1,9 @@
-## Classes start
+## Classes start at the conservatory
 
 - I commence the year 3 professional piano studies at the conservatory of Dénia.
+- The organized stalking begins, although I won't know the horrible extent of it for another 18 months when I begin to seriously fear for my life.
+
+![Organized stalking](../../content/images/organized-stalking.png)
 
 !!! tip "Essential context around gang stalkers ultimate goals"
     - The reader should realize that the teachers and staff at the conservatory of Dénia, and persons at that time unknown, and possibly even my English expat friends, had been planning an exaggerated and vicious gang stalking situation, with me as target and, although I was aware that something evil was going on, I was completely unaware of the extent of it and how many people were involved until March 2024, 18 months away.
