@@ -34,6 +34,8 @@
 
 - On the 5th November 2024, at AlphaBioLabs in London, I undertook the 12 month hair analysis for narcotics.
 - The results came back negative.
+- I remained unconvinced and asked them to repeat the test with the second hair sample they took.
+- They didn't have the second hair sample.
 
 ## Heavy metal analysis
 
