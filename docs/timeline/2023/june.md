@@ -136,6 +136,8 @@
 - I'm shocked and alarmed. I had no idea so many people were involved in the deception, and the humiliation, at that time. 
 - I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also so high all the time (anxious, euphoric, sexually aroused, scared again, all on a loop) I could not get my head straight about anything.
 
+![Carrie Stephen King](../../content/images/carrie-2.jpg)
+
 !!! info "Related tweets"
     - https://x.com/1FRGVN/status/1670583744283983874
 
