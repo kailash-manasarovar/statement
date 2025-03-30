@@ -48,7 +48,14 @@ So there has been no save place to go and I have had to stay in hotels a lot ins
 
 ## Rent
 
+- I take enormous exception at having paid monthly rent to criminal gangs who were poisoning, drugging, and filming me in my apartment.
+- I'd like it all paid back. I wasn't paying rent to be murdered or driven to suicide.
+- It's around 21,000 EURs paid to three different accounts.
 
+## Poisoned clothes, belongings, and car
+
+- I'm estimating at least 5,000 EUR of clothes, toiletries, furniture, and belongings I have had to jettison because it is perilous to touch.
+- This includes the car which I have had detailed once, but clearly will need further cleaning.
 
 ## Travel
 

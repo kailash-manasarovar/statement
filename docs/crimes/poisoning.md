@@ -26,9 +26,12 @@ This is a non-exhaustive list of all the dreams or visions I remembered from aro
 
 ## Substances added in my home
 
-- In the water.
-- In the air vents.
-- In my toiletries, food, and water.
+- Into the water I would use for making hot drinks and cooking, and for washing myself.
+- Into the air vents via the air conditioning system, upstairs access to which I was never given a key.
+- Into my toiletries, food, and water by entering my apartment while I was not there.
+- Before I left my apartment in February 2025, my car was severely sprayed as were all my belongings at home, clothes, soft furnishings, even furniture. I know this because I started to get sudden onset rheumatoid arthritis and nose bleeds and I couldn't understand why. The RA is focused on various parts of the body related to the clothes or shoes I'm wearing, or the things I'm touching.
+- I thought this RA was yet another autoimmune but when I traveled away from all my belongings for a short time, it cleared up. On returning home, it started up again.
+- I'm now throwing everything away or repeat washing it (10 times I'm told is how many times you have to wash such items to get rid of poisons).
 
 ## Drugged at the conservatory in class
 

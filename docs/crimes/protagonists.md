@@ -38,8 +38,8 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     - And now, I'm wondering if all the pictures of Vidal Sastre Sanchez Hornero that I personally recognize are of a number of different people.
     - If a group of men wanted to groom unwitting young girls, and get away with it, how better than to never be the same person the young girls see twice.
     - Even better if there is intimate activity with the target without her knowledge. The body, and mind under sedation, always remembers something.
-    - Anyone making a complaint would be easily dismissed, not least because everyone else is aware there is a target and what's happening to her.
-    - And if they really wanted to make sure she was confused about what she was seeing, they might try to blind her, perhaps with low-level continuous methanol doses direct into the water supply at her apartment.
+    - Anyone making a complaint would be easily dismissed, not least because everyone else is aware there is a target and what's happening to her, and that this is protected by the highest authority of the land.
+    - And if they really wanted to make sure she was confused about what she was seeing, they might try to blind her, perhaps with low-level continuous methanol doses direct into the water supply at her apartment, or if she's really feisty why not just spray all her clothes and belongings in high dose pesticides.
 
 - One of my suspicions now is that this name probably relates to a group of criminals who control women by drugging them whilst having full root access to their social media activity.
 - In the past, sexually coercive behavior like this would usually be undertaken by pimps and perverts with the end goal of enticing and trapping women in the sex "industry" and this is certainly in keeping with the content the gangs shared with me online, such as [the pictures of the lady who went from innocent girl to hardcore porn activity](../timeline/2024/august.md#photos-of-abused-women-and-girls).
