@@ -117,6 +117,6 @@ The report is set out into different sections.
 ![book cover option](content/images/the-novel/cover-3.webp)
 
 !!! tip
-    - Contact me for any further information you may require on info@forgivenet.co.uk.
+    - Contact me for any further information you may require on query@fearandloathinginlasmarinas.com.
     - This may include copies of any correspondence, emails, call logs, WhatsApp message, poison/drug samples for testing, etc.
     - Agent and publisher details coming soon.
