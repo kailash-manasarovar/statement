@@ -236,7 +236,7 @@
 - https://x.com/1FRGVN/status/1784677373998207117 -> speech snippets for Madrid Let Women Speak.
 - https://x.com/1FRGVN/status/1784565249028284779 -> I informed my old workplaces that I had been hacked while working for them.
 - https://x.com/1FRGVN/status/1784542558862918107
-- https://x.com/1FRGVN/status/1784540203220074912 -> mentioning remembering the facepack thing from [2014](../early-years/2016.md#may).
+- https://x.com/1FRGVN/status/1784540203220074912 -> mentioning remembering the face-pack thing from [2014](../early-years/2016.md#may).
 - https://x.com/1FRGVN/status/1784528919112106410 -> I had told my friend it felt like all these witches were sitting round knitting and casting evil spells on me.
 - https://x.com/1FRGVN/status/1784521239114953166 -> reference to hacking.
 - https://x.com/1FRGVN/status/1784264538151370833
