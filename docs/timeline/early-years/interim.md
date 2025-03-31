@@ -10,7 +10,7 @@
 - The Metropolitan Police refer me to the Rape Crisis centre in Hornsey.
 - I'm on the waiting list for a therapist. I'm told it could take over year to get to the front of the queue.
 - In the meantime, I attend group therapy.
-- It may be the first session I attend. As I'm approaching the Rape Crisis building a man approaches me on a bicycle. It is Winston M's accomplice from 1989. The man I could never remember the name of.
+- It may be the first session I attend. As I'm approaching the Rape Crisis building a man circles me on a bicycle. It is Winston M's accomplice from 1989. The man I could never remember the name of.
 - He is extremely skinny. His legs are like sticks. He looks unwell; like he has been doing hard drugs for decades. I am in no doubt about who he is.
 - I take my place in the circle.
 - As we begin, the facilitator says to the group of women "just be aware that there could be a police officer here today".
@@ -66,7 +66,7 @@
 - I work to distract myself. I work three jobs sometimes.
 - I don't like Belfast. I find it a very harsh environment.
 - I start volunteering with Childline and find out about trans ideology with regards to the sterilization and mutilation of children. I am utterly horrified!
-- I realize that if I had been born 30 years later, I would have sought comfort in the trans belief that I didn't have to be female anymore and that life would be easier.
+- I realize that if I had been born 30 years later, I would have sought comfort in the trans belief that I didn't have to be female anymore after serious sexual abuse, and I would believe that life would be easier that way.
 - I tentatively join Twitter at one point to keep abreast of what's going on, but I get scared and delete my account.
 
 ## End of December 2020
