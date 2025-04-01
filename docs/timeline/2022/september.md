@@ -13,7 +13,7 @@
     - In retrospect, it seems highly likely they would have known the full implications for me as a target.
     - Given that everyone knew I had been suicidally depressed, either because I shared the information with them personally (Christine BJ and Maria Hontanilla who I had trusted), or because they had access to my Twitter account very early on, one must assume that an attack like this would have as its main intention the suicide of the victim or total nervous breakdown.
     - Given the efficiency and skill of the attack, and its elaborate nature, one must ask how many local suicides may be explained by gang stalking.
-    - I cannot help wonder about what led Elaine Black to kill herself, a mother of three with a successful local business. Anyone I asked about that always mentioned her "macho" boyfriend and at the root of my experiences is an unDéniable and very vicious misogyny. I mention this in a [previous section](../2021/july.md#elaine-black) with reference to cyber stalking and harassment on Twitter.
+    - I cannot help wonder about what led Elaine Black to kill herself, a mother of three with a successful local business. Anyone I asked about that always mentioned her "macho" boyfriend and at the root of my experiences is an undeniable and very vicious misogyny. I mention this in a [previous section](../2021/july.md#elaine-black) with reference to cyber stalking and harassment on Twitter.
 
 ## Documentation
 
