@@ -66,7 +66,7 @@
 
 - I build and deploy the [forgivenet® crypto app](https://1frgvn.com/).
 
-![1FRGVN](../../content/images/1frgvn.png)
+[![1FRGVN](../../content/images/1frgvn.png)](https://1frgvn.com/)
 
 ## 2020
 
