@@ -18,6 +18,10 @@ This is a non-exhaustive list of all the dreams or visions I remembered from aro
 - He was sitting on the settee in my living room watching me do yoga.
 - He was standing in front of me watching me do yoga.
 - He was in my bed numerous times: once having sex, once sleeping and waking up to see me looking at him at which point he said my name, and one time he was sobbing in my arms.
+
+!!! tip
+    - Me and this man, whoever he is, are in love.
+    
 - He was sitting on my garden furniture on the terrace.
 - He was in the kitchen with me, possibly slow dancing.
 - Marie Carmen my neighbor was in my flat standing in front of me, poking me in the chest.
