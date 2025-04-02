@@ -50,8 +50,9 @@
 - For these reasons, I wasn't in touch with anyone in Dénia and I didn't know Elaine had died by suicide until nearly a year later when I bumped into someone who told me. At the time, I had assumed Elaine's death was due to illness.
 
 !!! warning "Concerns about Elaine's untimely death"
-    - I'm concerned now that Elaine's may have been driven to suicide, in the same way gang stalkers clearly wanted my life to end.
-    - Fake and stalker accounts on Twitter often mentioned Elaine in relation to stalking and "whistle-blowing", a reference I didn't understand, and still don't. Maybe law enforcement will understand what this means better.
+    - I'm concerned now that Elaine may have been driven to suicide, in the same way gang stalkers clearly wanted my life to end.
+    - Fake and stalker accounts on Twitter often mentioned Elaine in relation to stalking and "whistle-blowing", a reference I didn't understand, and still don't. 
+    - Maybe law enforcement will understand what this means better, or maybe they ignored her too.
     - The account below had been following me for some time around March 2024 when I finally left my studies at the conservatory due to being afraid for my life.
     - This account ran gang-stalking harassment interactions with me, with the help of some of the other accounts. I found the name and content choices interesting.
 
