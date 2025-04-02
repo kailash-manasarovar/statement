@@ -1,4 +1,4 @@
-# 2021 | December
+# December 2021
 
 ## Dénia
 

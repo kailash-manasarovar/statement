@@ -1,4 +1,4 @@
-# 2021 | October
+# October 2021
 
 ## Going no-contact
 

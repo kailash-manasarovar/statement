@@ -1,4 +1,4 @@
-# 2024 | March
+# March 2024
 
 ## Monday 4th March chamber music
 
