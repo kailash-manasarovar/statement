@@ -53,7 +53,7 @@
     - I'm concerned now that Elaine may have been driven to suicide, in the same way gang stalkers clearly wanted my life to end.
     - Fake and stalker accounts on Twitter often mentioned Elaine in relation to stalking and "whistle-blowing", a reference I didn't understand, and still don't. 
     - Maybe law enforcement will understand what this means better, or maybe they ignored her too.
-    - The account below had been following me for some time around March 2024 when I finally left my studies at the conservatory due to being afraid for my life.
+    - The account below had been following me for some time around March 2024 when I finally left my studies at the conservatory due to being made afraid for my life.
     - This account ran gang-stalking harassment interactions with me, with the help of some of the other accounts. I found the name and content choices interesting.
 
     ![Elaine tortured whistle-blower](../../content/images/fake-accounts/Screenshot 2024-03-08 at 08.34.02.png)
