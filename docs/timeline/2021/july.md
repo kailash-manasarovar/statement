@@ -1,6 +1,9 @@
 # July 2021
 
-- I am in Lourdes, France for the whole of 2021.
+- I stay in Lourdes, France for the whole of 2021, in the hope I may heal my broken heart. 
+
+![Bernadette](../../content/images/bernadette.jpg)
+
 - I rent a small studio flat at the [Zenitude Acacia](https://www.zenitude-hotel-residences.com/fr_FR/residence/lourdes/121), 1 A Chemin de Lannedarré, 65100 Lourdes.
 - I moved in at the beginning of January.
 
