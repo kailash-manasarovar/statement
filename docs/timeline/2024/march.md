@@ -12,6 +12,9 @@
 
 - I arrive at my piano lesson and, after a minute or two, all of a sudden, a woman enters the classroom.
 - She is a large dark curly-haired woman of about 50 years old and I would recognize her again.
+
+![An inspector calls from the GV](../../content/images/inspector.png)
+
 - Paqui explains the woman is an *inspector* from the Generalitat and she is here to help me.
 - I feel like it's probably an ambush and put my phone on record.
 - Paqui reiterates that the woman is here to help me with everything that's going on, and I understand that to mean because of how I previously told her I'm stressed because I'm being terrorized by Domingo and his mates. 
