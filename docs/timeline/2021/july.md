@@ -72,3 +72,6 @@
 - I am anonymous and I use my account to support activists against the abuses to children and Women's rights arising from trans ideology. 
 - I also use Twitter extensively as therapy and post often about my child sexual abuse experiences and the suicidal depression I have been suffering since 2015.
 - Anyone stalking or surveilling me at that time will have had a deep insight into my state of mind and could only assume that a three-year campaign of terror against me would likely drive me to suicide.
+- As well as my state of mind, I mention old experiences which will be used later on to intimidate and terrorize me while I'm being stalked online.
+
+![Karolina](../../content/images/karolina.png)
