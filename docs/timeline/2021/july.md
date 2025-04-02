@@ -1,4 +1,4 @@
-# 2021 July
+# 2021 | July
 
 - I am in Lourdes, France for the whole of 2021.
 - I rent a small studio flat at the [Zenitude Acacia](https://www.zenitude-hotel-residences.com/fr_FR/residence/lourdes/121), 1 A Chemin de Lannedarré, 65100 Lourdes.
