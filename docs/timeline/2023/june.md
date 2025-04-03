@@ -1,3 +1,5 @@
+# June 2023
+
 ## Twitter
 
 - The Twitter suggestions and odd communication continued.
@@ -286,13 +288,16 @@
 - My system is very regulated unlike it's chaotic nearly dead state - especially with regards to my kidneys - at other sessions.
 - She does a blood analysis strip and tells me it is highly likely I have diabetes.
 - I know she is lying.
-- I take my sarong to put in my back. She forcefully insists on folding my sarong for me.
+- She says I should visit my GP about this.
+- I pick up my sarong to put in my bag to take home. She forcefully insists on folding my sarong for me.
 - While folding it up, she rolls up a needle into it which I find when I get home.
 - I cancel all sessions with her without telling her why.
 
 !!! tip "My suspicions about all this"
     - I believe I would have gone alone to my GP after Tao's concerns, and he would have confirmed a diabetes diagnosis and given me medication for it.
     - Glaucoma is then explainable.
+
+![Tao Qi](../../content/images/taru-ann-poem.png)
 
 ## Rest of June
 
