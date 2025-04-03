@@ -36,6 +36,8 @@
     - I'm wondering if sometimes the neighbors who were involved in the conspiracy, probably the upstairs ones, were able to speak directly to me through the walls of my apartment (given the walls were so thin and you can hear everything).
     - If I was being drugged and in a very confused state, a statement like "He is not for you" might appear to be coming from my own mind.
     - It was an alien thought.
+    - The question is, why would the criminals want me to think that he was not for me on top of wanting me to believe there is a relationship?
+    - Is it because there were so many other men they were filming me with and they needed me to be unsure of everything due to that?
 
 ## Leaving class
 
