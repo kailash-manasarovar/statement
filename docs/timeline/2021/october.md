@@ -13,5 +13,5 @@
 !!! tip "Isolating victims of gender violence"
     - Gender violence involves isolating targets from any possible support networks.
     - In my case, I was already fully isolated when I arrived in Dénia, an abuser's dream.
-    - I never felt isolated or alone, however.
+    - I never once felt isolated or alone, however.
     - The criminals will be very aware that I have a strong spiritual practice. However, they must be atheists, or perhaps they believe God hates women as much as they do, especially abused ones; a foolish stance for a believer.
