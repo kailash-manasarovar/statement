@@ -17,6 +17,26 @@
 
 ![Sedating me and coming into my room](../../content/images/sedating/sedating-3.png)
 
+## Dreaming of the trumpet teacher
+
+- It is a Tuesday after a Monday class with the trumpet teacher.
+- I dream the trumpet teacher is sobbing uncontrollably, and I hold him in my arms.
+- We are in my bed.
+- I cannot get him out of my head, it is excruciating.
+- I believe I am in love with this man, and that he loves me back.
+- I wake up and sit with my hands in my head. My thoughts are like a hurricane.
+
+### A loud voice
+
+- As I'm sitting at the end of my bed, distressed, I hear a loud voice say: "He is not for you."
+- I have no idea where this voice comes from.
+- I don't believe this voice.
+
+!!! tip "Suggestions through the walls"
+    - I'm wondering if sometimes the neighbors who were involved in the conspiracy, probably the upstairs ones, were able to speak directly to me through the walls of my apartment (given the walls were so thin and you can hear everything).
+    - If I was being drugged and in a very confused state, a statement like "He is not for you" might appear to be coming from my own mind.
+    - It was an alien thought.
+
 ## Leaving class
 
 - Whenever I left the chamber music class to go home on a Monday night, Gloria would be there at reception.
