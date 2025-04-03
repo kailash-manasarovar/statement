@@ -95,3 +95,9 @@
     - Example: https://x.com/1FRGVN/status/1686848541346443270
 
 - The doctor never comes to class again after this. He only came to two classes in total. 
+- I go to my GP on a few occasions over the next months after this incident because I am extremely concerned about my kidney health.
+- I ask for a full blood work up including kidney analysis. 
+- They send blood and urine to the lab to do all the tests, except when the results come back they haven't done the kidney tests.
+- I ask why. The GP doesn't know.
+- I try to do a test myself from the local chemist; their pamphlet says they have them available. They never have it whenever I ask for it and they never seem to know why or when it's coming in.
+- One of the pharmacists tells me, "Oh, I don't think we sell the kidney tests anymore."
