@@ -26,7 +26,7 @@
 - I tell him I don't care, I'll learn his language.
 - He tells me his family will never accept me.
 - He tells me he's married. I say I don't care, I hope he's happy, and we can all be friends.
-- We talk about work and I send him job adverts for developers with salaries up to 300K; work that I should be doing with my skills and experience except the industry unilaterally hates Women. I tell him he can go to the meetings and I'll help him with the coding.
+- We talk about work and I send him job adverts for developers with salaries up to 300K; work that I should be doing with my skills and experience except the industry unilaterally hates women. I tell him he can go to the meetings and I'll help him with the coding.
 - He tells me that he has targeted 100s of women in the region and starts sending pictures of some of them.
 - I realize this is exactly what has happened to Patricia and, coupled with the fact she has a daughter and granddaughter, this is why she doesn't talk.
 - I see pictures on fake accounts of young and old women. I screenshot some of them.
@@ -56,7 +56,7 @@
 ## Hundreds of women like me
 
 - I realize I'm one of hundreds, maybe thousands of targets.
-- Women and girls lured into relationships that don't exist with the intention of blackmail and exploitation, or silencing.
+- women and girls lured into relationships that don't exist with the intention of blackmail and exploitation, or silencing.
 - I'm seeing pictures of women that could be decades old. 
 - I can't believe it could be just one man doing all this.
 

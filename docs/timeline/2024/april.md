@@ -175,9 +175,9 @@
     - It's never clear why they would do this apart from to somehow keep the game/con/fraud going, so that I will continue to believe there is a reciprocal relationship going on in some weird way.
     - They are long-game honey-trappers, after all.
 
-## Let Women Speak
+## Let women Speak
 
-- Posey Parker (Kelly Jay Keen) is coming to do a Let Women Speak event in Madrid in May.
+- Posey Parker (Kelly Jay Keen) is coming to do a Let women Speak event in Madrid in May.
 - I apply to volunteer and be a steward.
 - I'm also planning to speak too.
 
@@ -233,7 +233,7 @@
 ### `@1frgvn`
 
 - https://x.com/1FRGVN/status/1784719295261384849 -> smelling toast.
-- https://x.com/1FRGVN/status/1784677373998207117 -> speech snippets for Madrid Let Women Speak.
+- https://x.com/1FRGVN/status/1784677373998207117 -> speech snippets for Madrid Let women Speak.
 - https://x.com/1FRGVN/status/1784565249028284779 -> I informed my old workplaces that I had been hacked while working for them.
 - https://x.com/1FRGVN/status/1784542558862918107
 - https://x.com/1FRGVN/status/1784540203220074912 -> mentioning remembering the face-pack thing from [2014](../early-years/2016.md#may).

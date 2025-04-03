@@ -88,7 +88,7 @@
 
 ## My speech
 
-- On Saturday 11th May, I give a speech at the Let Women Speak event in Madrid: https://youtu.be/l9X6o11IwBc?t=1988.
+- On Saturday 11th May, I give a speech at the Let women Speak event in Madrid: https://youtu.be/l9X6o11IwBc?t=1988.
 - My speech describes being targeted by a "manada" (which is vernacular for "rape gang" in Spanish) in Dénia and how it parallels precisely the child sexual abuse by a North London grooming gang I experienced when I was 16.
 - I make the point that, I would be trans had I been born 30 years later and experienced the same thing.
 

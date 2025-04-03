@@ -1,9 +1,9 @@
-## The feminist community of Women and others
+## The feminist community of women and others
 
 - It's important to note why this community is so interesting to scammers.
 - We are an extremely generous community and support fundraisers, charities, and requests for money more than any other community probably.
 - It is also the ideal community to target for long game honey trapping or confidence trickster crime.
-- Women also are open to sexploitation and emotional honey trapping for fraud.
+- women also are open to sexploitation and emotional honey trapping for fraud.
 - Young people, particularly girls, are now prey to porn gangs and manipulation undoubtedly starts online.
 - Children are now prey to porn gangs and manipulation undoubtedly starts online.
 

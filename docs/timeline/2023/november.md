@@ -100,7 +100,7 @@
     - On an offsite in Bali in May, I am threatened with sexual violence from a Rust engineer who has started that week. He has clearly been told to target me. Anthony is at the dinner table when this happens. I tweet about it and tell Spanish HR the following morning.
     - At the Bali offsite and in Belgium at EthCC in July, Polygon employees come up to me continually to say, oh I'm sorry you're leaving, which I'm not.
     - My team refuses to communicate with me at all. Meetings are sabotaged by Hans' angry outbursts. I am unable to do my job.
-    - An email comes from from Kellie-J Keen as leader of the [Party Of Women](https://www.partyofwomen.org/) in UK in June asking if we could like to stand as a candidate for general election.
+    - An email comes from from Kellie-J Keen as leader of the [Party Of women](https://www.partyofwomen.org/) in UK in June asking if we could like to stand as a candidate for general election.
     - I take 2 weeks off and run a political campaign in North London and come second-to-last in Finchley & Golders Green.
     - I step down as technical writing team lead and Gabriel Silva steps in and gives all work to Anthony and Hans, with me left with nothing to do. Anything I do write he asks Hans to do over. He picks on me in meetings and gives me impossible tasks which I actually complete.
     - By September/October, I'm getting really upset about it and contact HR to start harassment procedures because it's clear to me I'm being shoved out due to my political views.

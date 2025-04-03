@@ -2,7 +2,7 @@
 
 - I spend two weeks in Lourdes.
 - A snap election is called in the UK.
-- An email comes round from the [Party of Women](https://www.partyofwomen.org/) asking members to run for election.
+- An email comes round from the [Party of women](https://www.partyofwomen.org/) asking members to run for election.
 - Something tells me I should run for election in the UK and I go for it.
 
 ## UK
@@ -61,7 +61,7 @@
 ![my speech](../../content/documents/speeches/my-speech.png)
 
 !!! important
-    - Running for election at the UK General Election in July 2024 for the Party of Women was a game changer for me, quite possibly a life saving act.
+    - Running for election at the UK General Election in July 2024 for the Party of women was a game changer for me, quite possibly a life saving act.
     - In one of the first messages in our long communication from July and over August, the hacker said "well I wasn't expecting that" with regards to it.
 
 ### Volunteers not what they seem

@@ -80,7 +80,7 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
 ![porn gang or constabulary](../../content/images/fake-accounts/porn-gang-or-constabulary.png)
 
 - On December 30th, I receive interactions from fake accounts related to Winston May.
-- The first like is from a name "Winston" on a tweet of mine about Women's safety. So I look.
+- The first like is from a name "Winston" on a tweet of mine about women's safety. So I look.
 
 ![winston 1](../../content/images/fake-accounts/winston-like-1.JPG)
 
@@ -99,7 +99,7 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
     - Any supporting the above including the Generalitat de Valencia.
     - Ineffective police in UK and Spain.
     - Misogynists generally.
-    - Women's groups who have been told things to discredit me that they believe.
+    - women's groups who have been told things to discredit me that they believe.
 
 ## New Year's Eve
 
