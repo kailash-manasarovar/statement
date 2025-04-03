@@ -7,8 +7,15 @@
 - I contact an acupuncturist in Dénia to ask for help: https://www.thaoqi.com/.
 - She is not back in town until May so she can't see me for a few months.
 - I go to see a homeopath in Dénia, Ana Villalba. I'm not sure I trust her.
-- Each time I see her she wants to hear about my child sexua abuse story, and not in a kind way. Each time I see her she mentions domestic violence.
+- Each time I see her she wants to hear about my child sexual abuse story, and not in a kind way. Each time I see her she mentions domestic violence.
 - She prescribes drops to take every day which I collect from the Romany pharmacy in Dénia.
+
+## A scan at the medical centre
+
+- I go for a scan at the medical centre because I'm so concerned about my kidney health.
+- The doctor who does the scan - no exaggeration - looks in the air while he puts the ultra sound thing on my stomach and moves it around quickly.
+- He doesn't look at the screen at all.
+- It's all over in about 2 minutes and he says I'm fine.
 
 ## PTSD
 
