@@ -147,7 +147,6 @@
 - I believe now that she is checking up on me to see how upset I am and if I'll come in to sign something or not.
 - I ask Maria if everyone hates me. She says no, no one hates me. She's lying.
 - I go to my acupuncture session and I'm extremely traumatized and shocked about what bullies they all are at the conservatory.
-- The acupuncturist tells me I have diabetes, which I know fully well is a lie.
 - While I'm on the acupuncture table, there is a violent storm outside, and lightning takes a tree down on the road outside.
 - I leave for Ireland, via Alicante airport, that evening and there are rainbows all over the region. I take it as a good sign.
 
@@ -280,6 +279,20 @@
 - I had no idea that running away was not actually what they really wanted, although from the conservatory studies yes, and perhaps that's what some of the teachers assumed. 
 - It's unclear how much and who knew about the mass voyeurism, drugging, and porn connection.
 - There is also the important point that hackers will have known how much money I have for a long time, and it is not inconsiderable. I am a target on that basis alone.
+
+## Last session with the acupuncturist
+
+- I have another acupuncture session with Tao Qi.
+- My system is very regulated unlike it's chaotic nearly dead state - especially with regards to my kidneys - at other sessions.
+- She does a blood analysis strip and tells me it is highly likely I have diabetes.
+- I know she is lying.
+- I take my sarong to put in my back. She forcefully insists on folding my sarong for me.
+- While folding it up, she rolls up a needle into it which I find when I get home.
+- I cancel all sessions with her without telling her why.
+
+!!! tip "My suspicions about all this"
+    - I believe I would have gone alone to my GP after Tao's concerns, and he would have confirmed a diabetes diagnosis and given me medication for it.
+    - Glaucoma is then explainable.
 
 ## Rest of June
 

@@ -106,7 +106,7 @@
 
 ## Acupuncture
 
-- Acupuncture sessions started this month and the therapist is surprised I'm even alive from the state of my pulses.
+- Acupuncture sessions started this month and the therapist is surprised I'm even alive from the state of my pulses, especially my kidneys.
 - I explain that I've had some stress and my abuse history.
 - I don't trust her. Something's not right with her.
 - When I tell her I work in crypto, she grins that grin.
