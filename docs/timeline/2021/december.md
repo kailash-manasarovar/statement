@@ -70,12 +70,12 @@
 ![Christmas dinner](../../content/images/christmas-dinner.PNG)
 
 - They invite me to go walking with them every weekend. I'm delighted.
-- Patricia is there with a black curly-haired younger man in a kaftan.
+- Patricia is there with a black curly-haired younger man in a kaftan. I wonder if it is her husband.
 
 ![Patricia and her husband](../../content/images/p-and-dodgy-bloke-1.PNG)
 
-- She's keen I join the choir she's a member of. 
-- A couple of the expat-Anglophones offer me available apartments they suggest I might like to buy. 
+- She's keen I join the choir she's a member of that meet once a week but I'm not ready for that level of social activity. 
+- A couple of the expat-Anglophones offer me available apartments they own, or they are looking after as power of attorney, and they suggest I might like to buy them. 
 
 ## Back to France
 
