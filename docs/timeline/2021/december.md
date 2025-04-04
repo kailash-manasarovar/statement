@@ -18,18 +18,19 @@
     - It appears to relieve the owner of all indemnity enforced by Spanish law.
     - For a contract with an initial term of 1 year, this seems a little strange, sinister even.
     - I have never seen a clause like that in a rental contract before and I have read a great many.
+    - Did someone get caught up in a legal situation previously in a case of a targeted person who did not have a clause like this in their rental contract?
     - Click to read the [death clause](../../content/documents/contracto/death%20clause.jpeg) in my rental contract.
 
 - She only gave me one key, of a set of four, and there was a bit of a drama about where the other keys were which seemed contrived.
 - I didn't trust Beatriz Garcia Morales and, from her weird behavior and manner, I felt it likely she would enter my apartment without my knowledge.
 - A few days later I suspected someone had been in without my knowledge.
-- I got the locks changed soon after by locksmith Carl Barclay, +34-659-85-36-45.
-- Nevertheless, I believe people have been entering my house whenever I'm not there on a regular basis the whole time I lived there. It's not clear how they got entry after I changed the locks. I guess that would be a simple matter for a criminal gang.
+- I got the locks changed soon after by a British locksmith Carl Barclay.
+- Even so, I believe people were entering my house whenever I was not there on a regular basis the whole time I lived there. It's not clear how they got entry after I changed the locks. I guess that would be a simple matter for a criminal gang.
 
 !!! info "Who has been receiving my rent payments?"
-    - Beatriz has changed the account I pay rent to twice now.
-    - I have paid rent to three different accounts in two-and-a-half year's of tenancy.
-    - I don't believe all these accounts are hers and I suspect that finding out who in fact owns these accounts may be very enlightening.
+    - The landlady changed the account I pay rent to twice in three years.
+    - I paid rent to three different accounts in three year's of tenancy.
+    - I don't believe all these accounts are hers and I suspect that finding out who in fact owns these accounts may be very enlightening to law enforcement.
         - ES7320950444909122412071
         - ES1201280601880100047345
         - ES6800865106190015755620
@@ -40,8 +41,9 @@
 - The water ran brown in the bathtub. The boiler was so old it broke down a year later and had to be replaced.
 - There was untold rubbish in the kitchen cupboards which I cleaned out.
 - There were semen stains on the sofa. 
-- At the time, I thought it was because the apartment had probably been used as an AirBNB type property and the visitors may have been on romantic weekends. It was disgusting though and I cleaned it off.
-- The landlady, the caretaker at the time Pedro, and my neighbor Marie Carmen at number 16 talked about a woman renting the flat just before me, and running away shortly after without saying why. She was a nurse at the Dénia hospital.
+- At the time, I thought the semen stains were because the apartment had probably been used as an AirBNB type property and the visitors may have been on romantic weekends. It was disgusting though and I cleaned it off.
+- The landlady, the caretaker at the time Pedro, and my neighbor Marie Carmen at number 16 talked about a woman renting the flat just before me, and running away shortly after without saying why. 
+- She was apparently a nurse at the Dénia hospital and may have been called Sonia Ortiz.
 
 !!! important
     - I believe the references to the nurse also relate to a woman the gang stalkers have more recently been posting on Twitter in poses which are clearly going to be pornographic - filmed with or without her knowledge. 
@@ -57,7 +59,7 @@
     - Fake accounts like these may have one or two posts, messages in the profile itself, or in the top posts below the profile.
 
 - I wonder if she left hurriedly because she realized she was being drugged and related it to something in the apartment.
-- The email address of the previous tenant may be `sonyaortyz@hotmail.com`, an unusual email address for the landlady which is written on the water bills and seems to be an oversight.
+- The email address of the previous tenant may be `sonyaortyz@hotmail.com`.
 
 ## Christmas 
 
@@ -72,9 +74,9 @@
 
 ![Patricia and her husband](../../content/images/p-and-dodgy-bloke-1.PNG)
 
-- She's keen I join the choir she's a member of. I'm not keen on socializing though.
+- She's keen I join the choir she's a member of. 
 - A couple of the expat-Anglophones offer me available apartments they suggest I might like to buy. 
 
 ## Back to France
 
-- I went back to France at the end of December to finalize the flat there.
+- I return to Lourdes at the end of December to finalize the flat there and move to Spain.
