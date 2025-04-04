@@ -229,6 +229,9 @@
 - I recognize a couple as [two people I saw on the beach](../2023/september.md#people-on-the-beach) following me and part of the group of people making sexual noises the September previous.
 - At 7.30, the concert begins.
 - At that moment, the lights go down, and the door to the hall opens, and in walks a woman who has dressed to look exactly like Elaine Black, my friend who committed suicide.
+
+![The most evil people in Denia by far](../../content/images/lorraine-at-the-piano-concert.png)
+
 - She has done a really good job of it too. 
 - I gasp.
 - At precisely that moment, my security camera at home goes off and sounds an alarm on my phone. I don't have time to look.
