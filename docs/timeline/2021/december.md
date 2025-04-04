@@ -9,14 +9,14 @@
 - On December 8th, however, a very significant day for me spiritually, while I was in Dénia, an apartment came up for rent which was perfect; too good to be true even.
 - Carrer Furs 15, Bloque 1 Escalera 2 Piso 3 Apartamento 17, Dénia 03700 Alicante.
 - I contacted the landlady, Beatriz Garcia Morales, and signed the agreement.
-- The landlady, Beatriz, was angry and disagreeable. Hackers have more recently mentioned her demeanor online to me over the summer in 2024.
-- I signed the [rental contract](../../content/documents/contracto/rental-contract.pdf) and moved in on December 15th. A copy of the signed contract will be posted in due course.
+- The landlady, Beatriz, was angry and disagreeable. Hackers recently mentioned her grumpy demeanor online to me over the summer in 2024.
+- I signed the [rental contract](../../content/documents/contracto/rental-contract.pdf) and moved in on December 15th.
 
 !!! danger "Death clause"
 
-    - There is a clause in the rental contract about what happens to my body and belongings if I were to die in the flat prior to the lease running out or after.
-    - It appears to relieve the owner of all indemnity.
-    - For a contract with an initial term of 1 year, this seems a little strange.
+    - There is a clause in the rental contract about what happens if I were to die in the flat prior to termination of the lease.
+    - It appears to relieve the owner of all indemnity enforced by Spanish law.
+    - For a contract with an initial term of 1 year, this seems a little strange, sinister even.
     - I have never seen a clause like that in a rental contract before and I have read a great many.
     - Click to read the [death clause](../../content/documents/contracto/death%20clause.jpeg) in my rental contract.
 
