@@ -20,7 +20,8 @@ This is a non-exhaustive list of all the dreams or visions I remembered from aro
 - He was in my bed numerous times: once having sex, once sleeping and waking up to see me looking at him at which point he said my name, and one time he was sobbing in my arms.
 
 !!! tip
-    - Me and this man, whoever he is, are in love.
+    - Me and the man who was sobbing in my arms, whoever he is, are in love.
+    - The man who said my name looked more like [Patricia's husband](../content/images/p-and-dodgy-bloke-2.PNG). I do hope it wasn't.
     
 - He was sitting on my garden furniture on the terrace.
 - He was in the kitchen with me, possibly slow dancing.
