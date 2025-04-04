@@ -119,7 +119,9 @@
 - I wonder if she is being asked to check up on me.
 - She ignores everything I say in my messages but keeps communicating with me.
 - I assume she is not allowed to make comments on anything I have said.
-- It is very sinister.
+- It is very sinister. She sounds tired and too hot to be sat at her laptop. I wonder if her man is being kind to her.
+
+![Patricia communicating with me weirdly](../../content/images/p-and-dodgy-bloke-2.PNG)
 
 ## Photos of abused women and girls
 

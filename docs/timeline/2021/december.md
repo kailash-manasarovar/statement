@@ -59,10 +59,21 @@
 - I wonder if she left hurriedly because she realized she was being drugged and related it to something in the apartment.
 - The email address of the previous tenant may be `sonyaortyz@hotmail.com`, an unusual email address for the landlady which is written on the water bills and seems to be an oversight.
 
-## Walking
+## Christmas 
 
-- I met Christine BJ to go hiking on the mountain and she invited me to go walking with the English ladies on a regular basis once I returned in February 2022.
-- At this point, a couple of the expat-Anglophones offer me available apartments they suggest I might like to buy. 
+### Chinese
+
+- Christine invites me for a Chinese on Christmas Day. A bunch of the expats are there.
+
+![Christmas dinner](../../content/images/christmas-dinner.PNG)
+
+- They invite me to go walking with them every weekend. I'm delighted.
+- Patricia is there with a black curly-haired younger man in a kaftan.
+
+![Patricia and her husband](../../content/images/p-and-dodgy-bloke-1.PNG)
+
+- She's keen I join the choir she's a member of. I'm not keen on socializing though.
+- A couple of the expat-Anglophones offer me available apartments they suggest I might like to buy. 
 
 ## Back to France
 
