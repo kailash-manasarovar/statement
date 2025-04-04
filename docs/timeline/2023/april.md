@@ -62,6 +62,14 @@
 - The next class I had with him he was extremely angry with me for no obvious reason at all.
 - I knew then it had been his account I had found (except it wasn't of course, or sort of was).
 
+## Dreaming of the trumpet teacher
+
+- Tuesday morning before I wake up I dream I wake up to see the trumpet teacher in my bed, staring at me.
+- He says, "Katharine".
+- I turn my back on him.
+
+![PP's husband?](../../content/images/vssh-memory-1.PNG)
+
 ## Disclosing child sexual abuse to the trumpet teacher
 
 - Something got me up in the middle of the night to post a tweet, in Spanish, on my Twitter account that told him I liked him.
