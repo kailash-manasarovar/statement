@@ -45,20 +45,20 @@
 - The landlady, the caretaker at the time Pedro, and my neighbor Marie Carmen at number 16 talked about a woman renting the flat just before me, and running away shortly after without saying why. 
 - She was apparently a nurse at the Dénia hospital and may have been called Sonia Ortiz.
 
-!!! important
-    - I believe the references to the nurse also relate to a woman the gang stalkers have more recently been posting on Twitter in poses which are clearly going to be pornographic - filmed with or without her knowledge. 
-    - She is often dressed as a nurse.
-    - The following fake account was posted sometime in the summer of 2024.
+!!! important "Fake accounts referring to the nurse"
+    - Cyber-gang stalkers, more recently, posted a lot of references via fake accounts on Twitter to nurses.
+    - Women in fake accounts are often dressed up as nurses and in poses which are clearly going to be pornographic and quite often obviously filmed without the knowledge of the woman.
+    - The following fake account came up in my mentions sometime in the summer of 2024.
 
     ![The nurse profile pic](../../content/images/fake-accounts/nurse1.png)
 
-    - Note the threatening statement, a common characteristic of the cyber-stalking I have been enduring.
+    - Note the threatening statement, a common characteristic of the cyber-stalking I have been enduring since June 2023.
 
     ![The nurse profile](../../content/images/fake-accounts/nurse2.png)
 
-    - Fake accounts like these may have one or two posts, messages in the profile itself, or in the top posts below the profile.
+    - Fake accounts like these may have one or two posts, or specific messages in the profile itself, or in the top few posts below the profile.
 
-- I wonder if she left hurriedly because she realized she was being drugged and related it to something in the apartment.
+- I wonder if the nurse left hurriedly because she realized she was being drugged and related it to something in the apartment.
 - The email address of the previous tenant may be `sonyaortyz@hotmail.com`.
 
 ## Christmas 

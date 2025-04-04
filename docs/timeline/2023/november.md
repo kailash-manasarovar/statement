@@ -54,7 +54,7 @@
 ## Dreaming of Jesus Christ
 
 - I dream of dirty brown apartments and criminal activity.
-- It turns into a nightmare and call out the name of Jesus Christ.
+- It turns into a nightmare and I call out the name of Jesus Christ to help me.
 - He comes and states, very loudly, "Vidal Sastre Sanchez Hornero control your sex".
 - I'm not sure what this really means until 2025.
 
