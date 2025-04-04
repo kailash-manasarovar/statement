@@ -51,6 +51,13 @@
 - There is NO-ONE in the driver's seat. Whoever was driving has ducked down behind the seats, and is driving extremely slowly, and I cannot see anyone in the driver's seat.
 - It certainly could not be the trumpet teacher as he is quite a large man and he would probably find it quite hard to hide his bulk.
 
+## Dreaming of Jesus Christ
+
+- I dream of dirty brown apartments and criminal activity.
+- It turns into a nightmare and call out the name of Jesus Christ.
+- He comes and states, very loudly, "Vidal Sastre Sanchez Hornero control your sex".
+- I'm not sure what this really means until 2025.
+
 ## Matthew
 
 - The account `@Matthew49200183` has been following me since August 2023. I'm supposed to think it is the trumpet teacher.
