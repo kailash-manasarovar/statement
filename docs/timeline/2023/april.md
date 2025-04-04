@@ -64,15 +64,17 @@
 
 ## Dreaming of the trumpet teacher
 
-- Tuesday morning before I wake up I dream I wake up to see the trumpet teacher in my bed, staring at me.
+- Tuesday morning before I wake up, I dream I wake up to see the trumpet teacher in my bed, staring at me.
 - He says, "Katharine".
-- I turn my back on him.
+- I turn my back on him. He is not someone I want anything to do with.
 
 ![PP's husband?](../../content/images/vssh-memory-1.PNG)
 
+- I wake up still obsessed and in love with the trumpet teacher.
+
 ## Disclosing child sexual abuse to the trumpet teacher
 
-- Something got me up in the middle of the night to post a tweet, in Spanish, on my Twitter account that told him I liked him.
+- A few days later, something got me up in the middle of the night to post a tweet, in Spanish, on my Twitter account that told him I liked him.
 - It was mature and innocuous, and very honest.
 - I explained I had been sexually abused as a child and this made relationships difficult for me.
 - The next chamber music class I went to at the conservatory it felt like EVERYONE knew what I had written; the whole building was hushed.

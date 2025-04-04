@@ -19,10 +19,13 @@
 
 ## Dreaming of the trumpet teacher
 
-- It is a Tuesday after a Monday class with the trumpet teacher.
+- It is Tuesday in the wee hours, 3am, after a Monday class with the trumpet teacher.
 - I dream the trumpet teacher is sobbing uncontrollably, and I hold him in my arms.
 - We are in my bed.
-- I cannot get him out of my head, it is excruciating.
+
+![The trumpet teacher sobbing in my arms](../../content/images/sobbing-1.png)
+
+- I cannot get the man out of my head, it is excruciating.
 - I believe I am in love with this man, and that he loves me back.
 - I wake up and sit with my hands in my head. My thoughts are like a hurricane.
 
