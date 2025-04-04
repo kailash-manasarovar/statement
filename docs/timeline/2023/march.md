@@ -41,6 +41,9 @@
     - It was an alien thought.
     - The question is, why would the criminals want me to think that he was not for me on top of wanting me to believe there is a relationship?
     - Is it because there were so many other men they were filming me with, they needed me to be unsure of everything I was thinking and feeling?
+    - Do they do the sobbing trick to all the girls?
+
+    ![Sobbing again](../../content/images/sobbing-2.png)
 
 ## Leaving class
 
