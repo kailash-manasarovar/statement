@@ -29,6 +29,6 @@
 - Over the last three years, I have felt a lot like a Spanish bull in the ring, tormented and tortured by a large group of men, the community cheering them on.
 - I believe that, in essence, this terrorizing of vulnerable living beings by brave male Spaniards is the foundation of what happened to me.
 - An age old tradition of silencing uppity women, I expect.
-- Except now, with the porn epidemic in full swing, and men more and more enticed into pedophilia and worse as they bore of the daily sexual violence against women and children, with baby-rape porn the most lucrative of all now, a culture like this is probably doomed if they don't do something about it, and quick.
+- Except now, with the porn epidemic in full swing, and men more and more enticed into pedophilia and worse as they bore of the daily sexual violence against women and children, with baby-rape porn the most lucrative of all, a culture like this is probably doomed if they don't do something about it, and quick.
 
 ![The bullfight evolved](../content/images/bull-fight.png)
