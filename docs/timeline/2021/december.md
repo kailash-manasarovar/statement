@@ -42,7 +42,7 @@
 - There was untold rubbish in the kitchen cupboards which I cleaned out.
 - There were semen stains on the sofa. 
 - At the time, I thought the semen stains were because the apartment had probably been used as an AirBNB type property and the visitors may have been on romantic weekends. It was disgusting though and I cleaned it off.
-- The landlady, the caretaker at the time Pedro, and my neighbor Marie Carmen at number 16 talked about a woman renting the flat just before me, and running away shortly after without saying why. 
+- The landlady, her parents, the caretaker at the time Pedro, and my elderly neighbor Marie Carmen at number 16 kept telling me about a woman who rented the flat just before me, and ran away shortly after without saying why. 
 - She was apparently a nurse at the Dénia hospital and may have been called Sonia Ortiz.
 
 !!! important "Fake accounts referring to the nurse"
@@ -76,6 +76,14 @@
 
 - She's keen I join the choir she's a member of that meet once a week but I'm not ready for that level of social activity. 
 - A couple of the expat-Anglophones offer me available apartments they own, or they are looking after as power of attorney, and they suggest I might like to buy them. 
+
+## Feeling unwell
+
+- While I'm in my new apartment, I start to feel unwell.
+- I vomit on a few occasions after a couple of glasses of wine. I also feel extremely woozy after drinking wine in my apartment.
+- Nothing has changed in my drinking patterns and I have not vomited after alcohol in many many years.
+- This is the beginning of a pattern of unwellness related to something in my new apartment in Carrer Furs 15, Dénia.
+- I don't suspect anything.
 
 ## Back to France
 
