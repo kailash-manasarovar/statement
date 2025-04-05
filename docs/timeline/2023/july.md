@@ -116,11 +116,29 @@ Some of my tweets from that time.
     - However, this tweet is definitively public and available so I'm guessing delegated access and/or involvement of the account owner.
 
 - Curiously, and something I've only just realized, is that I had no sexual feelings at all while I was in Thailand.
-- I met a woman on holiday with her family in Thailand and I told her everything.
+- I met a woman on holiday with her family in Thailand, Hala, and I told her everything that had happened.
+
+### A nightmare, and God is there too
+
+- One night, during the detox, I have a terrifying dream.
+- I dream that Domingo and his family will have me arrested by the police, for some lie they invent, and I end up in jail for 7 years.
+- I wake up, horrified. The wall beside my bed starts to glow. It is a window into another dimension, another world. I see trees, a forest.
+- Something's coming.
+- It's light like I've never seen before and it has nearly reached my bedroom.
+- I'm so scared I get out of bed and run to an area of the room which is out of the 'line of sight', as it were, of the Light which is pounding in to my bedroom at the wall beside my bed.
+- I'm hyperventilating, crouched down, terrified.
+- The dream ends as the light gently fades.
+- I feel like a biblical character when God comes with a message; someone who lies down on the floor in fear.
+- It's all just too terrifying to comprehend.
+- The next morning, I'm still reeling from this dream. I'm certain I'm going to be arrested and end up in jail for 7 years.
+- I tell Hala and her ex-husband and the centre manager Patrick about my nightmare, but not about the light cos that's a bit embarrassing.
+- Looking back, I can see I was psychologically unbalanced somehow at this time, and I wonder now if I was still ingesting some sort of psychoactive substance via my toiletries, or perhaps through some of my health supplements like my antifungal product maybe.
+- I wonder now, in 2025, if I was being micro-dosed with mushrooms which were coupled with NLP/hypnosis techniques online for specific mind-controlling effects.
+- I wonder too if this rather backfired on the criminal gangs as it seemed to be cracking open my mind in exceptionally good ways. I can't believe this was intentional.
 
 ## Durian for Gloria
 
-- On my way home to Spain, I buy a present for Concha and a present for Gloria.
+- On my way back home to Spain, I buy a present for Concha and a present for Gloria.
 - I'm so disgusted with Gloria's behavior, I buy her some durian which is quite delicious but famously doesn't smell very nice.
 - I include a [letter to Concha in Spanish](../../content/documents/letters/Letter%20to%20Concha-ES.pdf) in Concha's present and I WhatsApp message her later to make sure she has received it.
 

@@ -282,6 +282,10 @@
 - It's unclear how much and who knew about the mass voyeurism, drugging, and porn connection.
 - There is also the important point that hackers will have known how much money I have for a long time, and it is not inconsiderable. I am a target on that basis alone.
 
+!!! tip "Laptop"
+    - On one occasion I go into practice, there is a laptop sitting on the desk in the piano room.
+    - I realize Domingo can set me up as looking like I stole something from the conservatory so I take a picture of it.
+
 ## Last session with the acupuncturist
 
 - I have another acupuncture session with Tao Qi.
