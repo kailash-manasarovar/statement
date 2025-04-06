@@ -36,6 +36,6 @@
 
 ![choker seeds](../../content/images/choker-seeds.png)
 
-- Cyber-stalkers called it "planting seeds" as preliminary activity on the run up to a serious crime.
-- The "choker seeds" were the seeds which when sprouted, and you noticed, would take the breath from your lungs the shock would be so great.
+- Cyber-stalkers and honey-trappers call this "planting seeds" as preliminary activity on the run up to a serious crime.
+- The "choker seeds" are the seeds which when sprout, and you notice, take the breath from your lungs the shock is so great.
 - One wonders if any targets might have suffered heart attacks, or similar, from the "choker seeds".
