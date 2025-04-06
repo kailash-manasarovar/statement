@@ -32,7 +32,7 @@
 
 - Over this period I'm occasionally shown violent rape porn on Twitter which shocks me to the core.
 - It's not something I would ever look at and some of it looks very, very real.
-- I now believe this sort of thing was posted to intimidate me by Domingo the piano teacher and his associates who had already hacked into my network and had root access to my laptop.
+- I now believe this sort of thing was posted by teachers and staff at the conservatory and their criminal associates who had already hacked into my network and had root access to my laptop.
 
 ![choker seeds](../../content/images/choker-seeds.png)
 
