@@ -1,3 +1,5 @@
+# February 2022
+
 ## Mary Magdalene’s Cave; the Sainte Baume Grotto
 
 - I do a [TEB intensive](https://www.austinattach.com/transforming-the-experience-based-brain/online-training/) trauma therapy course before leaving Lourdes.

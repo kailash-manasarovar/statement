@@ -1,3 +1,5 @@
+# June 2022
+
 ## Preparing for the conservatory audition
 
 - The head of studies, Jaume Signes, a trumpet teacher, allows me to use his room, the trumpet teaching room, room 6, every day to practice my pieces for the audition on a stand up piano.
