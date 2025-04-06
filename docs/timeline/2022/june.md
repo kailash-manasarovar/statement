@@ -1,5 +1,19 @@
 # June 2022
 
+## Walking and health
+
+- I go walking every weekend; with the English ladies on Saturdays and then on Sundays I might go for a walk on my own.
+- Whenever I walk, I notice my fingers swell up. 
+- I know this is kidney-health related.
+- I'm nauseated often in my apartment. I don't know why but I have experienced substantial vomiting fits which are a bit inexplicable. I wonder the refrigerator is so old it is leaking bacteria onto my food.
+- My eyes are tired and my sight is often blurry.
+
+### Meeting Zoe while walking
+
+- On one Saturday, I bump into an old friend I hadn't seen in years while walking along Las Rotas.
+- She tells me about Elaine Black's suicide.
+- I'm devastated.
+
 ## Preparing for the conservatory audition
 
 - The head of studies, Jaume Signes, a trumpet teacher, allows me to use his room, the trumpet teaching room, room 6, every day to practice my pieces for the audition on a stand up piano.
