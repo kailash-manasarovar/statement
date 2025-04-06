@@ -97,10 +97,11 @@
     - We are outside. It is spring time and we are among a semi-circle of trees.
 
     ![wedding day](../../content/images/wedding-day.png)
-    
+
     - It is a happy and joyous occasion.
     - I wake up.
-    - A joyful hopeful vision to ease the sudden realization that I had been silenced in the most appalling manner from nearly the beginning of my life.
+    - God gave me a joyful and hopeful vision to ease the sudden realization that I had been silenced in the most appalling manner from nearly the beginning of my life. Ironically, I thought that the trumpet teacher was my betrothed, but I expect this was part of the NLP suggestion and online manipulation. 
+    - Whoever my husband to be *is* in the vision, I am in his head.
 
 - When I was [on my knees in January 2019](#january-2019), I had prayed to Mary for help, and somehow I came across [Steve's website](https://www.austinattach.com/).
 - I watched a few videos and listened to a few lectures.
