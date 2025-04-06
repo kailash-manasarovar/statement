@@ -28,5 +28,6 @@
     - Even more so now as I am afraid to go out as I am usually followed and terrorized in some manner by local people who always seem to know exactly where I am or where I'm going to be as they have prepared themselves in some way to ambush me and terrorize me. It's extraordinary.
     - You would only have to take a walk with me into town to see the reactions of people and understand that many people I've never met know exactly who I am, and not in a good way.
 
-- My regular eye tests start to show high eye pressure, something I have never suffered from before and I'm asked to go in regularly to the opticians have it checked out as it's apparently dangerous.
+- I often feel unwell in my apartment, nauseated and tired.
+- My regular eye tests start to show high eye pressure, something I - or anyone in my family - have never suffered from before and I'm asked to go in regularly to the opticians have it checked out as it's apparently dangerous.
 

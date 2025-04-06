@@ -81,6 +81,27 @@
 
 - I begin my trauma therapy study and practice with Stephen Terrell from Austin Texas.
 - I attend the first in-person course in Cork Ireland in February.
+
+!!! tip "Visions past and future"
+    - About 75 people, professional therapists and others, turned up for that first course in Cork.
+    - At the end of the first day, Steve told us we may dream about him that night. He was joking of course.
+    - I did dream of Steve. Well, his voice directed the dream.
+    - I had two visions, one of the past and one of the future.
+    - In the first vision, I am pre-verbal, about 1 year old, and I'm practicing walking in the kitchen by hanging onto the cupboard and draws and going around.
+    - My aunt is looking after me and my cousin. I'm not sure where my mother is.
+    - Suddenly, from behind, hands grab my throat and start to squeeze. I can't breath or speak and I'm terrified. I don't know who is behind me throttling me.
+    - My aunt's voice says from behind, "Oh look, someone's throttling you Katie".
+    - My cousin is going ballistic, screaming and crying.
+    - I wake a little, shocked and sweating. I fall back to sleep.
+    - It is my wedding day, except, I'm looking at myself through the eyes of the groom. 
+    - We are outside. It is spring time and we are among a semi-circle of trees.
+
+    ![wedding day](../../content/images/wedding-day.png)
+    
+    - It is a happy and joyous occasion.
+    - I wake up.
+    - A joyful hopeful vision to ease the sudden realization that I had been silenced in the most appalling manner from nearly the beginning of my life.
+
 - When I was [on my knees in January 2019](#january-2019), I had prayed to Mary for help, and somehow I came across [Steve's website](https://www.austinattach.com/).
 - I watched a few videos and listened to a few lectures.
 
