@@ -1,15 +1,8 @@
 ## Conservatory open day
 
-- After one Saturday walking with the English ladies, including Christine and Patricia (Patricia) Penny, where we were talking about music and my piano studies.
+- It's a Saturday afternoon after walking with the English ladies.
+- We spoke a lot about music and my piano studies.
 - I check the conservatory website when I get home and find there's an open day for new students.
-- I wonder now if the conversation was primed by Patricia maybe, and if she suggested I look at the website, or asked if I had.
-
-!!! info
-    - This may have been the same day that, while we were at coffee, Patricia was telling us all about how she had taken speed and other drugs.
-    - I switched off at that point and was talking to someone else but from the periphery I remember they were talking about a Spanish brothel owner who had been in Finland and returned. It sounded like everyone knew who she was talking about.
-    - I believe now she may have been referencing the trumpet teacher.
-    - If that is true, the implication from my experiences is that the "sex" industry has infiltrated the school systems in Spain, and controls it to an extent.
-
 - I go to the open day at the conservatory and meet Joan Carles Poquet and Paqui Fornet Pastor.
 - They seem angry with me. They give me dirty looks and are brusque with me.
 - Even so, I apply for year 3 of professional piano studies and start preparing for the exam.

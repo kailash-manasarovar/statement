@@ -31,7 +31,18 @@
 
 - I'm surprised to meet Patricia on a hike with the English ladies after so many years. She seems sad. I notice how much she has aged.
 - I tell Christine BJ this. She obviously tells Patricia what I've said because the next time I see Patricia she is angry with me.
-- I'm upset about this but people are people, and often can't be trusted to not share hurtful information.
+- I forget that I saw her at Christmas but she was sitting at another table and it was dark in the house afterwards.
+
+!!! tip "Actually, this is weird"
+    - I've seen Patricia a few times by all accounts so why do I think it's the first time I've seen her in years?
+
+!!! info
+    - This may have been the same day that, while we were at coffee, Patricia was telling us all about how she had taken speed and other drugs.
+    - I switched off at that point and was talking to someone else but from the periphery I remember they were talking about a Spanish brothel owner who had been in Finland and returned. It sounded like everyone knew who she was talking about.
+    - I believe now she may have been referencing the trumpet teacher.
+    - If that is true, the implication is that the "sex" industry has infiltrated the school systems in Spain, and controls it to an extent.
+
+- I'm upset about my words hurting someone unintentionally but people are people, and often can't be trusted to not share hurtful information.
 - I attempt to talk to Patricia in a friendly way to make amends, and I talk about my life.
 - She mentions a man, a British policeman, who lived near her who had really scary eyes.
 - It was weird and reminded me of a short story I had written for the writing club I used to go to in Dénia in 2007, which incidentally Dandy the gay English teacher was also a member of.
