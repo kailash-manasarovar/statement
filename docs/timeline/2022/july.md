@@ -1,4 +1,6 @@
-## Summer
+# July 2022
+
+## Summer holidays
 
 - I set off in the car to spend the whole summer in the UK and in France. I'm working remotely so I only take a couple of weeks off for proper vacation.
 - Google maps starts sending me on bizarre journeys which often include driving down miles of what are nearly dirt tracks. I'm unable to fix this in settings.
@@ -20,7 +22,7 @@
 - One hot Saturday, I spend the whole day walking around the island. 
 - On one of the northern beaches, I notice a small piece of jet on the sand. I pick it up.
 - I try to snap it. It snaps into two.
-- I discard the pieces back into the sand and walk off.
+- I discard the pieces back onto the sand, and walk off.
 - I take a few steps down the beach and something stops me as I realize I just broke a stone into two with my bare hands. I decide to go back and look for the pieces.
 - I find them.
 
@@ -28,7 +30,7 @@
 
 ## Glastonbury
 
-- A stone expert in Glastonbury High Street tells me that jet stone is related to Archangel Michael and puts it in a silver holder which I wear around my neck.
+- A stone expert in Glastonbury High Street tells me that jet stone is related to Archangel Michael and puts the pieces in a silver holder which I wear around my neck.
 - I start a detox program at a healing centre on Wearyall Hill.
 
 ### Crystal dreaming
