@@ -44,6 +44,8 @@
 
 - I go to the audition and pass it.
 - I'm scheduled to join the conservatory again for the third year professional piano studies in September.
-- At the audition, Domingo's female students are hanging around helping everyone. He's clearly told them to dress in the same way, and this includes hot pants and skimpy tops. The girls are 14 or 15 years old.
+- At the audition, Domingo's female students are hanging around helping everyone. 
+- The girls are all dressed in the same way; hot pants and skimpy tops. 
+- The girls are 14 or 15 years old.
 - He tells the girls to go and talk to people, and they mill around talking to parents.
 - His control over them is embarrassing and cringeworthy.
