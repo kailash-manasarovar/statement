@@ -38,7 +38,7 @@
     -  I had even been hallucinating during those two weeks. I only realized this, with a shock, in February 2025.
     - The toiletries that I had taken with me to Bangkok from Spain were also full of the same toxic substances.
     - I hadn't yet realized any of this at the time of writing.
-    - Much of the first draft of this statement I wrote under those circumstances, and for those reasons, I could have been misled.
+    - Much of the first draft of this statement I wrote under those circumstances, and for this reason, I could have easily been misled by anyone controlling my online activity.
 
 ## Conservatory audition
 
