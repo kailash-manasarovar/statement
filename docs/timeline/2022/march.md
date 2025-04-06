@@ -7,10 +7,11 @@
 - They seem angry with me. They give me dirty looks and are brusque with me.
 - Even so, I apply for year 3 of professional piano studies and start preparing for the exam.
 
-!!! note "About me"
-    - I love playing the piano; it's an absolute joy, and people's ridiculous attitudes cannot stop me.
-    - I don't care if people don't like me. 
-    - I don't expect people to try to murder me just because they don't like me. Especially when they are civil servants working in a government public school setting, and taking care of hundreds of children. That would be insane, wouldn't it?
+!!! note "I love playing the piano"
+    - It's an absolute joy and people's ridiculous attitudes cannot stop me.
+    - I don't care if people don't like me. Most people don't.
+    - I don't expect people to try to murder me (or anyone else) just because they don't like me, however. Especially when they are civil servants working in a government-funded school setting, and taking care of hundreds of children. 
+    - That would be insane, wouldn't it?
 
 ## Upstairs neighbor at Carrer Furs
 
