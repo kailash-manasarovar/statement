@@ -54,7 +54,7 @@
 - I see a psychotherapist once a week at Barnet Hospital.
 - I'm healing.
 - I realize I have to get away from my family if I want to really heal.
-- I make plans to move to Ireland.
+- I make plans to move to Ireland. I'm choosing Ireland because I have connected with a trauma therapist who is going to be giving courses there from February 2020.
 - I'm still feeling suicidally depressed and anxious but less so, and I'm not using any medication or drinking alcohol.
 
 ## October 2019
@@ -76,6 +76,22 @@
 - I start volunteering with Childline and find out about trans ideology with regards to the sterilization and mutilation of children. I am utterly horrified!
 - I realize that if I had been born 30 years later, I would have sought comfort in the trans belief that I didn't have to be female anymore after serious sexual abuse, and I would believe that life would be easier that way.
 - I tentatively join Twitter at one point to keep abreast of what's going on, but I get scared and delete my account.
+
+### Transforming the experienced-based brain
+
+- I begin my trauma therapy study and practice with Stephen Terrell from Austin Texas.
+- I attend the first in-person course in Cork Ireland in February.
+- When I was [on my knees in January 2019](#january-2019), I had prayed to Mary for help, and somehow I came across [Steve's website](https://www.austinattach.com/).
+- I watched a few videos and listened to a few lectures.
+
+<iframe width="672" height="378" src="https://www.youtube.com/embed/MGkLEPmdkcE" title="Transforming The Experience Based Brain | Stephen Terrell" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+- Something resonated strongly.
+- I noticed the picture of Bernadette behind his desk in his office.
+- My intuition was telling me he could help me, and so I reached out to him.
+- He said he wasn't able to take me on as a client as he was too busy, and in Texas, but instead he suggested I attend his courses and learn about the practice.
+- I have been attending these courses around three times a year since 2020 and I am now a qualified practitioner.
+- [TEB](https://www.austinattach.com/transforming-the-experience-based-brain/) gave me the resilience and strength I needed to survive a criminally vicious and prolonged attack on my physical, psychological, emotional, and sexual wellbeing I suffered at the hands of the people of Dénia that included teachers and staff at the conservatory there.
 
 ## End of December 2020
 

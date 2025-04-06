@@ -1,3 +1,10 @@
+## Mary Magdalene’s Cave the Sainte Baume Grotto
+
+- I do a [TEB intensive](https://www.austinattach.com/transforming-the-experience-based-brain/online-training/) trauma therapy course before leaving Lourdes.
+- I then drive to the [Sainte Baume](https://perfectlyprovence.co/mary-magdalenes-cave-the-sainte-baume-grotto/) grotto and stay with the Dominicans and hang out with the spirit of Mary Magdalene who spent her later life in meditation there.
+
+![Sainte Baume grotto](../../content/images/Sainte-Baume-Grotto.webp)
+
 ## Moving back to Dénia
 
 - I move to my new flat in Dénia: Carrer Furs 15, B1 Escalera 2 Piso 3 Apartamento 17, Dénia 03700 Alicante Spain.
