@@ -18,7 +18,7 @@
 - I spend a month in Lindisfarne in the same house I built the [forgivenet®](https://1frgvn.com/) in November 2019.
 - I'm curiously unwell here, thinking back.
 - I put on a lot of weight. I'm extremely tired all the time. I have a lot of nightmares and I can't sleep at night. My hands are always swollen.
-- I'm struggling with work relationships and feeling quite paranoid about work.
+- I'm struggling with work relationships. I'm feeling quite paranoid.
 - One hot Saturday, I spend the whole day walking around the island. 
 - On one of the northern beaches, I notice a small piece of jet on the sand. I pick it up.
 - I try to snap it. It snaps into two.
