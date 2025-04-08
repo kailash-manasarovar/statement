@@ -35,7 +35,32 @@
 
 ### Crystal dreaming
 
+- Glastonbury is a magical place, full of mystery and strange goings on.
+- During the war, a group led by renowned occultist [Dion Fortune](https://catherineauman.com/dion-fortune/) led country-wide prayers to rid the world of Nazism.
+- Ms Fortune lived on the slopes of Glastonbury Tor in what is now an excellent B&B called Berachah.
 
+![Glastonbury Tor](../../content/images/glastonbury-tor.webp)
+
+- More curiously, perhaps, at least for me, is the fact that this was the B&B I stayed at when I studied shamanism in 2005, just after I got some money out of the blue, and my visit there may have marked one of the first times I was very obviously monitored by British criminal gangs for the purposes of ... everything this statement is about. 
+- Yes, Richard, we know why you were there now, and you told me anyway in the car, remember?
+- In July 2022, I visited again and stayed in another healing centre close by where they run colonic fasting retreats.
+- On the third night of my stay, the retreat leader asked me if I wanted to sleep with a powerful crystal in my room for the night.
+- I saw no reason why not to experiment, and agreed.
+- I had the scariest dream EVER.
+- It was lucid, as if everything I was dreaming was actually happening at the time. 
+- It was a Wednesday, or thereabouts, in late July.
+- In the dream, there was a meeting, downstairs, in the living room of the house.
+- Countless people had been invited and were arriving. The room was packed.
+- They were double parking in the road and on the drive.
+- I looked out of the window of my bedroom and saw them walking up the garden path to the front door, to enter and assemble.
+- The purpose of the meeting was to discuss, and plan, how they were going to murder me.
+- It was horrifying and I was extremely troubled by it.
+- A loud voice kept entering the dream to tell me to remove the crystal: "Get it OUT!", the voice shouted.
+- Eventually I took the crystal downstairs and managed to get to sleep.
+- I didn't mention the dream to anyone in the house, obviously, as it was very distressing and it had too much to do with my present surroundings.
+- It's clear to me now that I saw something that was actually happening, or had very recently happened, 2000 kilometers away in Las Marinas.
+
+![Planning the murder of innocents](../../content/images/planning-the-murder-of-innocents.png)
 
 ### Tarot
 
