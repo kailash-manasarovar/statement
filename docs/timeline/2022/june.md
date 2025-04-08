@@ -36,6 +36,8 @@
     - Nervous, anxious, flushed, heart-racing, confused, sexually aroused.
     - It's around this time I start to realize the full extent of the clandestine drugging I was a victim of.
 
+    ![whipped up into a frenzy](../../content/images/whipped-up-into-a-frenzy.png)
+
 - Domingo leaves without speaking to me.
 - Maria offers to help me with the audition and at some point suggests she is my teacher.
 - It's all a bit contrived but I agree.
