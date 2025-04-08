@@ -26,7 +26,16 @@
 - While Maria and I are talking, Domingo comes up the stairs. Two young female students are with him; minors of about 12 or 13 years old.
 - It's all very contrived and set up.
 - Domingo goes to talk to Maria and leaves the students to talk to me. They are behaving oddly.
-- They are sort of nervous, giggly, and excited when I speak to them. It's weird and, now, extremely concerning.
+- They are flushed and nervous, giggly and excited when I speak to them.
+- This is not the only time I see girls behaving like this.
+- I call it 'whipped up into a frenzy' when I'm chatting with the hackers online in 2024.
+- It was always weird and, now, it is extremely concerning.
+
+!!! tip "Excited and nervous females"
+    - In 2024, as I am having a [close and intimate chat with the criminal gangs online](../2024/august.md#conversation-with-the-hacker) I realize this is *exactly* how I used to feel in class at the conservatory with the trumpet teacher, and at other times too.
+    - Nervous, anxious, flushed, heart-racing, confused, sexually aroused.
+    - It's around this time I start to realize the full extent of the clandestine drugging I was a victim of.
+
 - Domingo leaves without speaking to me.
 - Maria offers to help me with the audition and at some point suggests she is my teacher.
 - It's all a bit contrived but I agree.
