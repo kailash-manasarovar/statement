@@ -64,4 +64,14 @@
 
 ### Tarot
 
+- The next day, I agree to have my tarot cards read.
+- I wasn't keen but everyone else did it, so I did too.
+- I have always understood these sorts of things to be a little bit unhealthy, for various reasons we could go into at another time.
+- Anyway, it's an interesting draw, fairly positive, but the most curious thing about it was the card that landed in the hopes and fears position of the Celtic cross spread.
+- It was the Knight of Wands.
 
+![Knight of Wands](../../content/images/night-of-wands.jpg)
+
+- I wasn't sure of the significance, nor did I care much, but the reader insisted a man would be coming into my life and I would have to be careful of him.
+- I thought it was preposterous. I was a sworn celibate for life.
+- I promptly forgot all about it until probably around November 2023 when the gender-violence and terrorizing in Dénia and online was becoming fever-pitched, mainly because I stubbornly refused to be terrorized out of my home and out of the conservatory where I was enjoying playing the piano and learning about music.
