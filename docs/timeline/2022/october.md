@@ -6,12 +6,12 @@
 ![Samuel's email](../../content/images/max-power.png)
 
 !!! info "[Choker seed](march.md#planting-the-choker-seeds)"
-    - I asked Samuel why his email was called Max Power.
+    - I asked Samuel why his email name was Max Power, it seemed strange to me.
     - He did not answer my question.
     - I now believe this was another [choker seed](march.md#planting-the-choker-seeds).
-    - There were continual notifications on X via fake accounts and on manipulated Google search results for a long time that the brand the stalkers and voyeurs use to distribute porn is Max Power.
-    - Making this connection explains why Samuel simply stopped talking to me after my ['funeral' on 12th June 2023](../2023/june.md#last-class-my-funeral-apparently) at the end of the 3rd year. 
-    - I was not supposed to return to the conservatory after that and people like Samuel, who had been helping the criminal gangs out, would have finished their obligations and been paid I suspect.
+    - There were continual references on X via fake accounts, and on manipulated Google search results, throughout 2023 and 2024 to the porn brand Max Power.
+    - This choker seed may explain why Samuel simply stopped talking to me after my ['funeral' on 12th June 2023](../2023/june.md#last-class-my-funeral-apparently) at the end of the 3rd year. 
+    - I was not supposed to return to the conservatory after that and people like Samuel, who had been helping the criminal gangs out, would have finished their obligations and been paid, I suspect, and probably wanted nothing more to do with the ongoing crimes.
 
 - Every time we walk home together, Samuel tells me he is planning to take a costly TEFL course online the following summer.
 
