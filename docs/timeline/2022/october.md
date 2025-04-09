@@ -59,7 +59,7 @@
 
 !!! note
     - Could this have been a warning from Patricia? Or were my British friends 100% complicit.
-    - It seems likely now that Hazel Smith would have gotten this information from her friendship with Dandy and passed it onto Patricia, who is a clear associate, with instructions to repeat it, [choker seed style](march.md#planting-the-choker-seeds). 
+    - It seems likely now that Hazel Smith would have gotten this information from her friendship with Dandy and passed it onto Patricia, who is a clear associate, with instructions to repeat it, [choker-seed style](march.md#planting-the-choker-seeds). 
 
 ## Halloween
 
