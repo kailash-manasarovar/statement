@@ -1,3 +1,23 @@
+## Omens in the Pyrenees
+
+- I'm staying in Cauterets, a small town near Lourdes in the Pyrenees.
+- It's close to the high mountains and I go for long hikes whenever I can.
+- When I'm back in my room I start to think about the rave music from 1989, and I listen to it on YouTube.
+- I tweet about curious events during this time.
+- On one trip particular trip early in the month, a crow is unusually vocal. Some might say this was a warning.
+
+![Vocal crow](../../content/images/crow-warning.png)
+
+- Later in the month, I post something which also appears to be premonitory.
+
+![Premonitions](../../content/images/premonitions.png)
+
+## Threatening tweets
+
+- An example of some threatening tweets I mentioned [in a previous chapter](march.md#planting-the-choker-seeds), now deleted by the author.
+
+![Threatening tweets](../../content/images/threats/threatening-tweets.png)
+
 ## Classes start at the conservatory
 
 - I commence the year 3 professional piano studies at the conservatory of Dénia.

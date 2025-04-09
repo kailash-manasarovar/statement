@@ -55,15 +55,23 @@
 - I explain it is happening now, in England. They don't care.
 - I tell them I've been to the police numerous times in Spain and they don't care.
 - Not our problem, they say.
+- I tell them I have been shown flashed images of rape-porn I was in as a child.
+- They say, "show us", and obviously I can't.
+- I tell them, "they're not stupid, they're not going to give me evidence for that but I know it was me."
+- If you can't show us, we're not interested.
+- I tell them I'm being continually threatened online on X.
 - I show them some of the online threats I've endured, including the picture of my brother with RIP below it. They tell me nothing I have shown them is a threat.
 - The blond one keeps cutting me off and saying, forcefully, "You haven't shown us anything, just show us something".
 - I try to but everything I say is cut off as not being criminal.
+- Whenever I try to slow them down and deal with what I do have methodically, they start to rush me, demanding I show them something, and changing the subject when I'm trying to explain something to them.
 - It's very unpleasant.
 - I tell them British children are in danger in Spain. They're not interested.
-- I tell them I was stalked by criminal rape-gang members while I was campaigning for election in July.
+- I tell them I was stalked by North London rape-gang members I had already told the police about while I was campaigning for election in July.
 - They want to know who I stood for in the election. I tell them; Party of Women. 
 - They tell me the criminal gang members can go wherever they like. It's not a crime.
 - It's so incongruent, I ask them if they've been told to dismiss everything I'm saying by someone.
 - They get annoyed.
 - I take their numbers down on my hacked laptop. The blond one says, "Oh, wait, we'll write it down for you." I say, no no, let me put your numbers in here. She still wants to write the numbers down for me. I wonder why she doesn't want me to write their details into my hacked laptop.
 - I realize they are going to do nothing for me, as usual, so I let them leave. They were trying to get away from the minute we started to speak. They stayed 20 minutes.
+
+![We don't care](../../content/images/we-dont-care.png)
