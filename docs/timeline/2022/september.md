@@ -43,7 +43,7 @@
 - The teacher is Adrià Gil Boronat, an erratic and extremely nervous man in his fifties.
 - One of my classmates is Samuel Viciano Herranz who has near perfect English. He is Domingo's student.
 - Samuel had been studying singing at the Javea conservatory but moved to study piano in Dénia instead. It's not clear why. He doesn't have a good reason for it and his singing voice is amazing. 
-- Samuel makes a huge effort to help me throughout this year with translation and explanations of things the teacher says. After the end of the course, in [June 2023](../2023/june.md), Samuel rarely speaks to me. 
+- Samuel makes a huge effort to help me throughout this year with translation and explaining things the fast-speaking teacher says. After the end of the course, in [June 2023](../2023/june.md), Samuel rarely speaks to me at all. 
 - Samuel tells me he used to be a student of Elaine Black. I cry when he tells me this and have to leave the room. This is not like me normally.
 - Elvira is also in this class. She is a minor child and she is Domingo's student also.
 - Elvira has a sister, Lucía, in the year above who is also Domingo's student.
