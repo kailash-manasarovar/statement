@@ -66,8 +66,8 @@
 
     <iframe width="1280" height="720" src="https://www.youtube.com/embed/elJL5D6HTvA" title="The Conversation (1974) ORIGINAL TRAILER [HD 1080p]" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-    - I think of the piano music from that film.
-    - I find it and practice it often at the conservatory.
+    - I start thinking of the piano music from that film.
+    - I find the sheet music online and practice it often at the conservatory.
 
     <iframe width="857" height="228" src="https://www.youtube.com/embed/RUsEIdHxBPk" title="Main theme from The Conversation (1974)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
@@ -75,23 +75,25 @@
 
 - The teacher is Concha Ballester.
 - I have known Concha for years, since 2014.
-- I sold her a guitar before I left Dénia in 2016, and she used to come to the international choir from time to time.
+- I sold her a guitar before I left Dénia in 2016, and she used to come to the Orfeo de Dénia choir with Klara Sarkadi from time to time.
 - Elvira and Lucía are both in the choir class.
 
-!!! warning "Lucía bullies Concha"
+!!! warning "Students bullying teachers at the request of other teachers"
     - Throughout the year, Lucía bullies Concha in choir class; sarcastic comments, dirty looks to the rest of the class, etc.
     - It's very embarrassing and I notice some of the other students are really angry and bored with this.
     - It's obvious Domingo is instructing Lucía to bully Concha. Why is anyone's guess.
-    - Is it because she acts as the go to person for any abuses by teachers as she will reveal to me when I reach out to her in July?
+    - Is it because Concha is the go-to person for any students experiencing sexual or grooming abuses from teachers, as she will reveal to me when I reach out to her in July 2023?
 
 ### Chamber music
 
 - This class is where I accompany a soloist.
-- I have been designated a trumpet student: Pablo Sesé Savall, a 14 year old boy.
+- I have been designated a trumpet student: Pablo, a 14 year old boy.
 - There is no teacher assigned to this class in September.
+- There will be no teacher assigned to this class until the end of November. This is extremely unusual as the Generalitat has an over abundance of music teachers available at all times.
 
 ## Domingo's little group
 
-- Occasionally, I see Domingo around. 
+- Occasionally, I see Domingo around the conservatory and sometimes in the town. 
 - He's always with his little group of youngsters, Elvira and Lucía, and Samuel, a man in his 20s.
-- It's cliquey and extremely weird. I'm concerned for the safety of Domingo's female students.
+- It's cliquey, at best, but extremely weird. 
+- I remain concerned for the safety of Domingo's female students.
