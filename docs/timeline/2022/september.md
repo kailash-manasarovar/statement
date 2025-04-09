@@ -17,7 +17,7 @@
     - That certain NPCs seemed to benefit financially, or talk about possible financial or personal benefits to themselves, adds more credence to the previous point.
     - It is clear, however, that whatever horrible ending my persecutors planned for me did not work out, again and again, and so they had to rethink and adjust their conspiracy, over and over, until it got to the stage where I genuinely feared for my life, in March 2024, and I felt I had no option but to leave my studies at the conservatory.
 
-## Documentation
+## Matriculation and classes
 
 - Some documentation regarding my [application and sign up for studies](../../content/documents/papeles-conservatorio/2022-3/application/signing-up.zip).
 - Piano teacher [preference document](../../content/documents/papeles-conservatorio/2022-3/Formulari%20tria%20professorat%2022-23.pdf).
@@ -28,40 +28,47 @@
 ### Piano
 
 - My teacher is Maria Hontanilla Alfonso. 
-- Porsche  is her student also. This doesn't make sense because Porsche was in the first year in 2015-16, which means she should have finished her studies two years previously.
+- [Porsche](../early-years/2013.md#meeting-porsche) is her student also. This doesn't make sense because Porsche was in the first year in 2015-16, which means she should have finished her studies two years previously.
 - It's even more curious given that Porsche has clearly done no practice in 6 years.
-- Whenever I go to class, Porsche is finishing her class, and I wait 20/30 minutes while she eats into my class time (because she was late) before she leaves. 
-- Then Porsche spends 10/15/20 minutes talking to her before she actually leaves. 
-- Sometimes I'm left with 10 minutes of class. 
+- Whenever I go to class, Porsche is finishing her class and I wait 20/30 minutes while she eats into my class time (because she was late) before she finishes. 
+- Then Porsche spends 10/15/20 minutes talking to Maria before she actually leaves. 
+- Sometimes I'm left with just 10 minutes of class. 
 - This is a weekly occurrence. 
-- I'm unable to stay later as I'm working and my hours aren't so flexible.
-- It feels purposeful but I don't complain. I feel like complaining will make them feel justified about something.
+- I'm unable to stay later as I'm working and my hours aren't flexible.
+- It feels purposeful but I don't complain. 
+- I feel like complaining will make them feel justified about something.
 
 ### Harmony
 
 - The teacher is Adrià Gil Boronat, an erratic and extremely nervous man in his fifties.
 - One of my classmates is Samuel Viciano Herranz who has near perfect English. He is Domingo's student.
-- Samuel was studying singing at the Javea conservatory but moved to study piano in Dénia instead. It's not clear why.
+- Samuel had been studying singing at the Javea conservatory but moved to study piano in Dénia instead. It's not clear why. He doesn't have a good reason for it and his singing voice is amazing. 
+- Samuel makes a huge effort to help me throughout this year with translation and explanations of things the teacher says. After the end of the course, in [June 2023](../2023/june.md), Samuel rarely speaks to me. 
 - Samuel tells me he used to be a student of Elaine Black. I cry when he tells me this and have to leave the room. This is not like me normally.
-- Elvira Valdivia Escribano is also in this class. She is a minor child and she is Domingo's student also.
+- Elvira is also in this class. She is a minor child and she is Domingo's student also.
 - Elvira has a sister, Lucía, in the year above who is also Domingo's student.
 
 !!! warning "Elvira and Lucía"
     - Elvira and Lucía have moved to Dénia from Madrid.
     - They live with their mother who is very rich and possibly a widow or divorced.
     - Domingo is often seen alone with Elvira and Lucía in the town.
-    - Domingo is alone with them a lot and will have had unfettered access to their phones.
-    - At some point, Samuel informs me they are buying a Steinway piano.
-    - I am concerned about the safety of the girls and their mother.
+    - Domingo is alone with them a lot and will have had unfettered access to their mobiles as he does with all his students.
+    - At some point, Samuel informs me that the girl's mother is buying a Steinway piano.
+    - I am concerned about the safety of these females.
 
 !!! tip "Sara"
     - A girl called Sara Pastor de Miguel attends classes this year, but she does not return for year 4.
-    - She looks a lot like the trumpet teacher and I now wonder if she could be his daughter, or a close family member, sent to report back on the unconsenting British rape porn star.
-    - Could the people of Dénia really be this evil?
+    - She looks a lot like (one of) the trumpet teachers and I now wonder if she could be a daughter, or a close family member, sent to report back on the unconsenting British rape porn star.
 
 !!! info "A curious irony"
     - The harmony teacher minds me of Gene Hackman and I start thinking about the film, The Conversation, where Gene Hackman is recording and eavesdropping on a conversation between lovers.
-    - I think of the piano music from that film and find it, and practice it often at the conservatory.
+
+    <iframe width="1280" height="720" src="https://www.youtube.com/embed/elJL5D6HTvA" title="The Conversation (1974) ORIGINAL TRAILER [HD 1080p]" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+    - I think of the piano music from that film.
+    - I find it and practice it often at the conservatory.
+
+    <iframe width="857" height="228" src="https://www.youtube.com/embed/RUsEIdHxBPk" title="Main theme from The Conversation (1974)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ### Choir
 
