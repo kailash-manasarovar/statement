@@ -58,8 +58,8 @@
     - I am concerned about the safety of these females.
 
 !!! tip "Sara"
-    - A girl called Sara Pastor de Miguel attends classes this year, but she does not return for year 4.
-    - She looks a lot like (one of) the trumpet teachers and I now wonder if she could be a daughter, or a close family member, sent to report back on the unconsenting British rape porn star.
+    - A girl called Sara attends classes this year, but she does not return for year 4.
+    - She looks a lot like (one of) the trumpet teachers and I eventually wonder if she could be a daughter, or a close family member, sent to report back on the unconsenting British rape porn star.
 
 !!! info "A curious irony"
     - The harmony teacher minds me of Gene Hackman and I start thinking about the film, The Conversation, where Gene Hackman is recording and eavesdropping on a conversation between lovers.
