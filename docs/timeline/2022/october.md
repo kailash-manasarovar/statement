@@ -40,7 +40,7 @@
 ## Patricia
 
 - I'm surprised to meet Patricia on a hike with the English ladies after so many years. She seems sad. I notice how much she has aged.
-- I forgot that I saw her at Christmas but she was sitting at another table and it was dark in the house afterwards.
+- I forgot that I saw her at Christmas but she was sitting at another table and it was dark in the house afterwards. I hadn't walked with her since 2007 probably.
 - I tell Christine that I'm surprised at how much she has aged. She obviously tells Patricia what I've said because the next time I see Patricia she is angry with me.
 
 !!! info "Gang stalking tactics"
