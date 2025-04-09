@@ -91,7 +91,7 @@
 - There is no teacher assigned to this class in September.
 - There will be no teacher assigned to this class until the end of November. This is extremely unusual as the Generalitat has an over abundance of music teachers available at all times.
 
-## Domingo's little group
+## Domingo's little group of youngsters
 
 - Occasionally, I see Domingo around the conservatory and sometimes in the town. 
 - He's always with his little group of youngsters, Elvira and Lucía, and Samuel, a man in his 20s.
