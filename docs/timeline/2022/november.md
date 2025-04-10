@@ -1,53 +1,68 @@
 ## The boiler breaks down
 
-- The landlady, Bea, tells me she is putting the rent up 8% from December 15th.
+- The landlady tells me she is putting the rent up 8% from December 15th.
 - The boiler breaks down, it is leaking. The water has run brown on turning the taps on since the day I moved in.
 - I ask Bea to replace the boiler and the oven, which has never worked properly.
 - She replaces them.
 - Pedro, the caretaker, is amazed that she has spent some money on the flat.
 
-## Hanuman arrives
+## Hanuman enters the picture
 
 - I carry [Hindu deity Hanuman](https://en.wikipedia.org/wiki/Hanuman) with me wherever I go, for protection.
 - On one walk with the English ladies, I have a leak in my bag and Hanuman pops out onto the ground as I sort out my stuff.
 - The ladies laugh at my silliness and one of them asks me who Hanuman is.
 - I explain.
-- The ladies very much enjoy the story of Hanuman; except, as I am inform them that Hanuman protects women and children from evil men, I notice Patricia is standing a little bit away and looking downward. She doesn't join in the conversation.
+- The ladies very much enjoy the story of Hanuman; except, as I am informing them that Hanuman protects women and children from evil men, I notice Patricia is standing a little bit away and looking downwards. She doesn't join in the conversation.
 
 <iframe width="857" height="228" src="https://www.youtube.com/embed/xAEbrieJsOU" title="Hanuman Ashtottara Namavalli | 108 Names of Lord Hanuman – Must Listen to Remove Negative Energy" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ## Walking in Benijembla with the English ladies
 
 - I was hiking with the English ladies every Saturday at that time.
-- One of the last Saturdays in November, the 19th probably, we met at Benijembla, for a walk along the many trails around the village.
-- Christine, Patricia (Patricia) Penny, and some of the others were there. This is the same day that I introduce everyone to Hanuman, and the same day that we see some amazing cloud formations and I remark that God did a very good job with clouds.
-- On this particular Saturday morning we "bumped" into a small group of Spanish walkers, and Patricia stayed back for a while to talk to them. There were two men and a woman.
-- We all noticed Patricia wasn't with us at some point and Christine said she was talking with the Spanish people as she knew them.
+- One of the last Saturdays in November, the 19th probably, we meet at Benijembla, for a walk along the many trails around the village.
+- Christine, Patricia, and some of the others were there. 
+- This is the same Saturday morning that I serendipitously introduce everyone to Hanuman, and the same day that we see some amazing cloud formations and I remark that God did a very good job with clouds.
+- As we were climbing up towards the forest fire helipad, we "bumped" into a small group of Spanish walkers.  
+- Patricia stayed back for a while to talk to them. There were two men and a woman.
+- I was shepherded off by Christine at that point.
+- Eventually, we all noticed Patricia wasn't with us. Christine said she was talking with the Spanish people as she knew them.
 - Patricia reappeared at some point and we continued on.
-- At the end of the walk we went for coffee in Benijembla.
-- Patricia and I were walking together back to the cars and she noticed the same group that she had seen up on the trail sitting at a table in a cafe.
+- At the end of the walk we went for coffee in Benijembla. I am shepherded next to Patricia at the table.
+- Patricia and I then got up together to walk back to the cars, and she noticed the same group that she had seen up on the trail sitting at a table in a cafe.
 - She told me she wanted to speak to one of them. As we walked towards them, one of the men in the group got up and, as if she didn't know him at all, even though he was the part of the same group we had met earlier, she asked him about something to do with the landscape and paths on a map that she had in her hand.
-- It was this man pictured with what looks to be his father.
+- It was the man pictured below with what looks to be his father.
 
 ![Hornero or whatever his name is, and his dad](../../content/images/hornero/horn-pic-4.jpg).
 
-- I wasn't part of the chat between them and I saw a woman sitting on the seat beside where this guy had got up from. I noticed she looked really sad and worried.
+- I wasn't included in the discussion between them and, while I was standing there, I noticed a woman sitting on the bench outside the Bon Aire restaurant, just where this guy had got up from.
 
-!!! note
+![Bon Aire restaurant in Benijembla](../../content/images/restaurante-bon-aire.png)
+
+- The woman looked sad and worried.
+
+!!! note "Who was she?"
     - I assumed this woman was the man's wife or girlfriend and I wondered why she looked so unhappy.
-    - Curiously, she looked a lot like the [girl in the video](../2023/june.md#youtube) I saw the following June.
+    - Curiously, she looked a lot like the [girl in the video](../2023/june.md#youtube) I saw the following June 2023, but not as young.
 
 - Patricia had her back to me, and she was showing this guy the map and asking questions about it but it was as if, outside of my view, she was pointing to me, because he kept looking up at me and grinning. 
 - His look reminded me of a look on one of the grooming gangs faces when I was 16. A man who had looked at me with delight before he raped me. A look of evil.
 - You don't forget looks like that.
-- The following week the same guy turns up to chamber music class. He is the missing trumpet teacher.
+- This was something I had mentioned very clearly in my [police statement from 2016](../early-years/2015.md#statement-to-the-metropolitan-police).
+- The following week the same guy turns up to teach my chamber music class. He is the missing trumpet teacher.
 
-!!! warning
-    - I now believe that the look the trumpet teacher gave me was a look of recognition. 
-    - He continued to give me that look in the first few classes.
-    - I believe now he had seen me before; in pedophile rape porn from 1989. 
-    - Of course, they had found the clips on the dark net, maybe even reached out to the perpetrators. They had detailed information from my statement that they were eavesdropping on when I wrote it in 2015.
-    - I believe this is what made them obsessed with me and plan the worst; for either monetary gain or because they're very very mentally unwell people, but it's probably mostly the money I expect.
+!!! warning "Intentionally triggering memories of child sexual abuse"
+    - I believe that the look the trumpet teacher gave me that day in Benijembla was a look of recognition, but also a look that was meant to remind me of something I had said in my [police statement](../early-years/2015.md#statement-to-the-metropolitan-police).
+    - This look, another [choker seed](march.md#planting-the-choker-seeds), was something criminal gangs believed would trigger PTSD related to the child rape-gang abuse I had experienced in 1989.
+    - Online triggering of memories of the same crimes, including the music of the time, violent rape images on Twitter, and rave scene connections, was taking place in parallel.
+    - The man continued to give me *that look* in the first few classes.
+    - His behavior certainly did trigger memories of pedophile rape-gang members Winston M and his associates for many months, and I related this to a friend at one point, but curiously and ironically this triggering activity would end up being extraordinarily healing for me, a gift from God even.
+    - I believe it is highly likely that this man, teachers and staff at the conservatory, and all their criminal associates, perhaps even the English ladies, had seen me starring, sedated, in pedophile rape porn from 1989. 
+    - Of course, after reading my police statement they will have found the clips on the dark net, maybe even reached out to the perpetrators. Perhaps they had all this information back [in 2007](../early-years/2007.md#hazel-smith). 
+    - This malicious psychological triggering activity using words, phrases, and behaviors I had described in my statement went on throughout the terror in Dénia and was meted out to me by teachers and staff at the conservatory sometimes while I was in class.
+    - They certainly had enough detailed information about my personal experience of child sexual abuse by North London rape gangs for terrorizing me, and I can only assume their goal was my total destruction by nervous breakdown or suicide.
+    - For the regular people of Dénia, perhaps that would be enough. Maybe they had bets on how things would end for me.
+    - For the porn gangs, I believe my situation was in an even more perilous state, if there could be one, whereby my eventual destruction would include me being raped repeatedly by men who had seen the porn and were rather keen to meet me in person, if you will.
+    - I had no idea I was being drugged, and possibly sedated, in my own home at this stage or how that would get worse and worse for me over time.
     - I wonder how much in subscription fees a repeat rape-porn clip would earn on the porn networks?
     - I wonder if it's possible to claim such moneys back in litigation? Both from the original perpetrators and then again from the Dénia porn gangs.
 
