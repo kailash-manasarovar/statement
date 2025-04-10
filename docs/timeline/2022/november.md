@@ -133,6 +133,7 @@
 - He started to flirt with me immediately; in garish ignorant manner which seemed totally phoney.
 - I liked him and had only positive thoughts about him. 
 - It is hard to reconcile what was happening to me at the conservatory with my generous feelings about this person.
+- I wonder now if my excruciating ambivalence was due to constant online manipulation while drugged, like a Pavlov dog, something else I mentioned in my police statement written in 2015.
 
 ## Death of a teacher
 
