@@ -24,7 +24,7 @@
 - This is the same Saturday morning that I serendipitously introduce everyone to Hanuman, and the same day that we see some amazing cloud formations and I remark that God did a very good job with clouds.
 - As we were climbing up towards the forest fire helipad, we "bumped" into a small group of Spanish walkers.  
 - Patricia stayed back for a while to talk to them. There were two men and a woman.
-- I was shepherded off by Christine at that point.
+- I was shepherded off by Christine.
 - Eventually, we all noticed Patricia wasn't with us. Christine said she was talking with the Spanish people as she knew them.
 - Patricia reappeared at some point and we continued on.
 - At the end of the walk we went for coffee in Benijembla. I am shepherded next to Patricia at the table.
@@ -55,10 +55,10 @@
     - This look, another [choker seed](march.md#planting-the-choker-seeds), was something criminal gangs believed would trigger PTSD related to the child rape-gang abuse I had experienced in 1989.
     - Online triggering of memories of the same crimes, including the music of the time, violent rape images on Twitter, and rave scene connections, was taking place in parallel.
     - The man continued to give me *that look* in the first few classes.
-    - His behavior certainly did trigger memories of pedophile rape-gang members Winston M and his associates for many months, and I related this to a friend at one point, but curiously and ironically this triggering activity would end up being extraordinarily healing for me, a gift from God even.
+    - His behavior certainly did trigger memories of pedophile rape-gang members Winston M and his associates for many months, and I even related all this to a friend verbatim in September 2023, but curiously and ironically this triggering activity would end up being extraordinarily healing for me, a gift from God even.
     - I believe it is highly likely that this man, teachers and staff at the conservatory, and all their criminal associates, perhaps even the English ladies, had seen me starring, sedated, in pedophile rape porn from 1989. 
     - Of course, after reading my police statement they will have found the clips on the dark net, maybe even reached out to the perpetrators. Perhaps they had all this information back [in 2007](../early-years/2007.md#hazel-smith). 
-    - This malicious psychological triggering activity using words, phrases, and behaviors I had described in my statement went on throughout the terror in Dénia and was meted out to me by teachers and staff at the conservatory sometimes while I was in class.
+    - This malicious psychological triggering activity using words, phrases, and behaviors I had described in my statement went on throughout the terror in Dénia and was even meted out to me by teachers and staff at the conservatory sometimes while I was in class.
     - They certainly had enough detailed information about my personal experience of child sexual abuse by North London rape gangs for terrorizing me, and I can only assume their goal was my total destruction by nervous breakdown or suicide.
     - For the regular people of Dénia, perhaps that would be enough. Maybe they had bets on how things would end for me.
     - For the porn gangs, I believe my situation was in an even more perilous state, if there could be one, whereby my eventual destruction would include me being raped repeatedly by men who had seen the porn and were rather keen to meet me in person, if you will.
@@ -71,46 +71,52 @@
 - One Saturday morning I head to the Chinese bazaar.
 - A rough looking man is there with his tiny (I assumed) daughters, aged 4 and 2 probably.
 - The 4-year-old is dressed like a cheap prostitute: platform stilettos, glittery mini-dress, garish make up, hair done up. It was horrifying.
-- Given I now know they were tracking me via my mobile phone, I'm pretty sure this was another set up for me to see.
+- Given I now know that criminal gangs were tracking my every move via my mobile phone, I'm pretty sure this was another set up for me to see.
 
 ## The trumpet teacher
 
-- At the end of November, 28th, all of a sudden, a trumpet teacher is found for the chamber music classes, every Monday, 8-9pm.
+- At the end of November, on the 28th, all of a sudden, a trumpet teacher is found for the chamber music classes scheduled every Monday at 8-9pm.
 - Gloria, the receptionist at the conservatory, leaves a message on my phone earlier in the day to say class is starting. It's a weird message where I hear the word guapo (handsome) and someone says something in the background, Paqui Fornet probably, then they both laugh weirdly.
 - I go to class that evening and the same guy who Patricia was talking to in Benijembla is there, in Jaume's room where I had been allowed to practice for my audition.
 - He says his name is Vidal.
-- In the Generalitat Valenciana systems, his name was/is Vidal Sastre Sanchez Hornero, although I'm told he now can't be found in there. I have believed for some time now that this is a false name, but there was no reason to think so then, other than when I asked him his name, and he answered Vidal, it didn't ring true somehow.
-- So I came to class and we met, there was some immediate confusion about him needing the toilet, but he kept looking at his phone, and not really going anywhere, and then he was moving to the door, and he kept saying he was going to the toilet. 
+- In the Generalitat Valenciana systems, his name was/is Vidal Sastre Sanchez Hornero, although I was told by a government official that this person doesn't exist! 
+- I have believed for some time now that this is a false name, but there was no reason to think so then, other than when I asked him his name, and he answered Vidal, it didn't ring true somehow. He didn't seem to believe it as he was saying it.
+- After I entered the class, there was some immediate confusion about him needing the toilet, but he kept looking at his phone, and not really going anywhere except up and down the room a bit, and then he was moving to the door, and he kept saying he was going to the toilet. 
 - It was weird and contrived.
 - The toilet is just next door to room 6 at the conservatory. 
-- I heard him bump into a woman and start talking to her.
-- It was weird, they were talking, I was feeling a bit light headed and smiley. 
+- I heard him "bump" into a woman and start talking to her.
+- I started to feel a bit light headed and smiley, flushed. 
 - I heard someone say my name, Katharine, and so I looked out of the door.
-- He was standing over Ana Requena Marín, the violin teacher, talking to her softly.
-- It sounds like he's telling her about why he's only just arrived at class at the end of November and missed two months of the year already. I don't understand what his reasons are.
+- The trumpet teacher was standing over Ana Requena Marín, the violin teacher, and talking to her softly.
+- It sounds like he's explaining why he's only just arrived at class at the end of November and missed two months of the year already. I don't understand what he is saying.
+- I'm sort of amazed by him but I'm not quite sure why.
 
 !!! tip "Incidentally"
     - In a future class I actually asked him directly where he had been for September, October, and most of November.
-    - He answered in a bizarre and incomprehensible babble of Spanish and Valenciano, which was obviously so that I didn't understand him.
+    - He answered in a bizarre and incomprehensible babble of Spanish and Valenciano, obviously so that I didn't understand.
 
-- She was sort of slouching and looking embarrassed and answering him sheepishly. 
-- He came back into class and I was feeling light-headed and a little high actually, smiley.
-- I thought it was because I fancied him. He was an attractive man.
-- Then the other student, Pablo Sesé Savall, a 14 year old boy, came to class. 
-- The trumpet teacher kept looking at me with that same grin I'd seen on him in Benijembla. It was disturbing.
+- Ana was sort of slouching and looking embarrassed and answering him sheepishly. 
+- He came back into class and I was feeling very light-headed and a little high actually, smiley.
+- My heart was racing.
+- I thought it was because I fancied him. 
+- Then the other student, Pablo Sesé Savall, a 14 year old boy, turned up to class. 
+- The trumpet teacher kept looking at me with that same grin I'd seen on him in Benijembla. 
+- It was disturbing.
 
 ### His other classes
 
-- The trumpet teacher had two other classes; one was with the autistic girl, Candela Morales Lucas, 14 or so. She played the flute and a boy (could he be a trans boy?) played the guitar to accompany.
+- The trumpet teacher had two other classes; one was with the autistic girl, Candela Morales Lucas, 14 or so. She played the flute and a boy (could he be a trans boy?) who played the guitar to accompany.
 - The other student he had was an adult learner. A doctor from the Dénia hospital, Joan, and his class was just before ours, 7-8pm.
-- Incidentally, it was this guy who had been hiking with the trumpet teacher as [just mentioned](#walking-in-benijembla-with-the-english-ladies).
+- Incidentally, I believe I had already seen this guy hiking with the trumpet teacher as [just mentioned](#walking-in-benijembla-with-the-english-ladies). 
 - AFAIK the trumpet teacher had no other classes and he only came to the conservatory on Monday evenings.
 
 ### Attendance
 
-- The trumpet teacher skipped many many classes.
+- The trumpet teacher skipped many, many classes.
 - All in all he probably turned up to teach about 50% of the classes we had scheduled.
-- He (apparently) had the flu 3 times and numerous other more important things. It was very weird.
+- He (apparently) had the flu 3 times and numerous other more important things to do. 
+- It was all very weird at the time and especially for someone who would never expect a murderous conspiracy of civil servants in a Spanish music school.
+- One must ask the question. Is this sort of thing very common in Spain?
 
 ### Skills and experience
 
@@ -124,22 +130,28 @@
 
 ### Flirting
 
-- He started to flirt with me immediately; in a kind of garish ignorant way which seemed totally phoney to me.
-- I liked him and had only positive thoughts about him. It was hard to reconcile what was happening to me at the conservatory with my generous feelings about this person.
+- He started to flirt with me immediately; in garish ignorant manner which seemed totally phoney.
+- I liked him and had only positive thoughts about him. 
+- It is hard to reconcile what was happening to me at the conservatory with my generous feelings about this person.
 
 ## Death of a teacher
 
-- There was an untimely death of a young male teacher around this time. I wonder now if it was suicide.
+- There was an untimely death of a young male teacher around this time at the conservatory. 
+- I wonder now if it was suicide.
 
 ## Dentist
 
-- At some point, I tried to find a dentist.
-- I looked up a dentist in Javea to go to but there was porn all over their website so I decided to contact a dentist in Dénia instead.
+- Along with all the other health problems such as vomiting and sore eyes, I also experienced an extremely painful gum inflammation at this time. My gums were painful and raw.
+- It seemed to be focused on the wisdom tooth area of my right jaw but was sore and painful all over my gums.
+- I put it down to peri-menopause after Googling my symptoms but continued to be concerned about it and the wisdom teeth I still have.
+- I started looking for a dentist.
+- I looked a German dentist up in Javea and made an appointment. However, I was shocked to see porn all over their website, which I told them about by email. Concerned about the porn, I eventually decided to contact a dentist in Dénia instead.
 - I went to https://www.adentaria.com/.
-- I was having some inflammation around my wisdom tooth on the top right side, and it was painful and raw, and I was a bit concerned.
+- I explained I was a nervous patient on arrival.
 - The dentist came in, masked up and didn't even say hello to me.
 - He immediately starts poking my teeth with his poker and saying I needed a whole bunch of fillings.
 - It was horrendous. I stopped the whole thing and left.
 - I was never able to delete their WhatsApp contact from my phone. It was a weird glitch.
-- Now I believe this was all set up by hackers. I was directed to go to this particular dentist, he knew I was coming, and was pretty brutish towards me.
-- I now believe the plan was I would meet this dentist again at some point, and he would probably still be masked up.
+- Now I believe this was all set up by hackers. I was directed to go to this particular dentist.
+- The dentist seemed to know who I was, and did his best to terrify me by being pretty brutish towards me.
+- I now wonder if the plan was that I would meet this dentist again, and he would probably still be masked up.
