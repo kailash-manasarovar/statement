@@ -125,15 +125,17 @@
 
 ### Deafness
 
-- He seemed to have a hearing issue and a little bit of a speech impediment arising from this.
-- I found this faultiness very endearing.
+- He seemed to have a hearing issue, and a bit of a speech impediment arising from it.
+- I found his faultiness strangely endearing.
 
 ### Flirting
 
-- He started to flirt with me immediately; in garish ignorant manner which seemed totally phoney.
+- He started to flirt with me immediately; in a garish ignorant manner which seemed totally phoney.
 - I liked him and had only positive thoughts about him. 
 - It is hard to reconcile what was happening to me at the conservatory with my generous feelings about this person.
-- I wonder now if my excruciating ambivalence was due to constant online manipulation while drugged, like a Pavlov dog, something else I mentioned in my police statement written in 2015.
+- I wonder now if my excruciating ambivalence was due to constant online manipulation while drugged, just like a Pavlov dog; something else I mentioned in my police statement written in 2015.
+
+![Forglov's dogs](../../content/images/forg/forglovs-dogs.png)
 
 ## Death of a teacher
 
@@ -150,9 +152,14 @@
 - I went to https://www.adentaria.com/.
 - I explained I was a nervous patient on arrival.
 - The dentist came in, masked up and didn't even say hello to me.
+
+![Scary dentist](../../content/images/dentist.png)
+
 - He immediately starts poking my teeth with his poker and saying I needed a whole bunch of fillings.
 - It was horrendous. I stopped the whole thing and left.
 - I was never able to delete their WhatsApp contact from my phone. It was a weird glitch.
 - Now I believe this was all set up by hackers. I was directed to go to this particular dentist.
 - The dentist seemed to know who I was, and did his best to terrify me by being pretty brutish towards me.
 - I now wonder if the plan was that I would meet this dentist again, and he would probably still be masked up.
+
+![Dentish review](../../content/images/dentist-review.png)
