@@ -133,7 +133,7 @@
 - He started to flirt with me immediately; in a garish ignorant manner which seemed totally phoney.
 - I liked him and had only positive thoughts about him. 
 - It is hard to reconcile what was happening to me at the conservatory with my generous feelings about this person.
-- I wonder now if my excruciating ambivalence was due to constant online manipulation while drugged, just like a Pavlov dog; something else I mentioned in my police statement written in 2015.
+- I wonder now if my excruciating ambivalence was due to constant online manipulation while drugged, just like a Pavlov dog; something else I mentioned in my [police statement written in 2015](../early-years/2015.md#statement-to-the-metropolitan-police).
 
 ![Forglov's dogs](../../content/images/forg/forglovs-dogs.png)
 
@@ -155,11 +155,12 @@
 
 ![Scary dentist](../../content/images/dentist.png)
 
-- He immediately starts poking my teeth with his poker and saying I needed a whole bunch of fillings.
-- It was horrendous. I stopped the whole thing and left.
-- I was never able to delete their WhatsApp contact from my phone. It was a weird glitch.
-- Now I believe this was all set up by hackers. I was directed to go to this particular dentist.
-- The dentist seemed to know who I was, and did his best to terrify me by being pretty brutish towards me.
+- He immediately starts poking my teeth with his poker and listing off to the girl a whole bunch of fillings I apparently need.
+- It was horrendous.
+- I stopped the whole thing and left.
+- I was never able to delete their WhatsApp contact from my phone. It was a weird glitch which I still have in evidence.
+- I now believe this was all set up by cyber-stalkers. I was directed to go to this particular dentist.
+- The dentist seemed to know who I was, and he did his best to terrify me by being brutish towards me.
 - I now wonder if the plan was that I would meet this dentist again, and he would probably still be masked up.
 
 ![Dentish review](../../content/images/dentist-review.png)
