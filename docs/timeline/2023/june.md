@@ -196,9 +196,17 @@
 
 ## Ireland
 
+- It's the first TEB course I've taken in person since February 2020 in Cork.
+- I'm utterly traumatized from my experience over the last 6 months and especially over the last week.
 - I don't bring my connected devices so I cannot use my own Twitter account.
 - I create a fake account and start following `@jctot19`.
+- I'm angry. 
+- I tweet a list of pros and cons about the man.
+
+![Pros and cons](../../content/images/pros-and-cons.jpeg)
+
 - The weird "communication" continues between myself and this account, as whoever is running it knows immediately that it is me.
+- I have a long WhatsApp chat with Sally where I complain that the man is lazy. I hear about this again and again over the next year or so online.
 
 !!! info
     - What I did not know at this time was that they had full access to my mobile phone anyway so they knew exactly what I was doing online at any given moment.
