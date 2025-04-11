@@ -54,9 +54,37 @@
 ## A seizure in Thailand
 
 - Online and in-person bullying by criminal gangs, and teachers and staff at the conservatory of Dénia included using my own words and experiences that I had described in detail in my [2015 police statement I sent via email to the Metropolitan Police](../early-years/2015.md#statement-to-the-metropolitan-police) and repeating and replaying them back to me in order to cause me enormous distress and psychological injury.
-- I did not know this was happening at this time. Indeed, it has only become clear to me in early 2025 after leaving Dénia and washing or throwing away most of my belongings which the criminals had doused in pesticides while I was away from my apartment, probably in mid-October 2024.
+- I did not know this was happening at this time. Indeed, it has only become clear to me in early 2025 after leaving Dénia, replacing all my bathroom products, and washing or throwing away most of my belongings which the criminals had doused in pesticides while I was away from my apartment, probably in mid-October 2024.
 - In any case, constant triggering and reminders of my experience of being sexually abused by a North London rape-gang when I was a child was the backdrop to my psychological and emotional state while I was on holiday in Thailand over Christmas 2022.
-- 
+- It is highly likely my bathroom products I brought from Spain contained some psychoactive substance, maybe low level doses of methanol.
+- I couldn't stop thinking about the trumpet teacher.
+- Ironically, this environment was the backdrop for the most profound healing experience I have probably experienced in 25 years of attempting to heal my body, mind, and soul from the effects of being sedated and gang-raped repeatedly without my knowledge when I was 16.
+- It was the 21st December, winter solstice.
+- I was taking a massage with Polly at the healing centre in Samui.
+- It was day 3 of the detox and my blood pressure was extremely low.
+- As I was lying facedown on the bed, my blood pressure got even lower, and my heart started to race uncontrollably.
+- Polly touched me in a certain way and my body started to convulse.
+- It felt like something very violent was happening to me, but I didn't know what.
+- It was like being surrounded by a gang of violent men kicking and hitting me while I tried to protect myself from them.
+- My body convulsed into a protective state. It contracted smaller, and expanded again, convulsing, contracting, expanding, over and over, while I shouted, "No, NO, NO!"
+- It was terrifying. 
+- The whole center was alarmed.
+- I thought I was having a heart attack and went directly to A&E in Samui.
+- They checked everything over and I was completely fine.
+- They told me I had an anxiety attack but they didn't know I had spent 35 years in a state of panic and never had an anxiety attack quite like this one.
 
-- Something I didn't think to include previously but I probably should is the fact that while on holiday in Thailand over Christmas, I have some kind of seizure and end up at the emergency ward of Bangkok Hospital in Samui where my records remain.
+![A & E Samui](../../content/images/a-and-e.png)
 
+- The next morning, I woke up, and everything was different.
+- It took me a few weeks to realize what was different, but when I did, I was awestruck.
+- I realized that every step I had taken in my life since I was attacked in 1989 was in fear. Every single thing I did, every person I spoke to, every situation in my life was soaked in fear and dread.
+- It was as if, at any moment, at any second, wherever I was and whatever I was doing, I was in extreme danger and I had to be continually aware of it.
+- I realized my whole physical system had been working overtime to support this for 35 years; flooding my organs with hormones, second-by-second, just so I could be ready to run or fight.
+- And it was all over.
+- Completely.
+- Since my system's reenactment of sedated gang-rape on 21st December 2022, every step I take in the world is without fear.
+- That was the difference I noticed.
+- I believe that without the vile acts of Dénia criminals, teachers and staff at the conservatory, and whatever substances they were starting to micro or macro-dose me with, I'd still be walking in fear.
+- It's highly likely that had I not had this healing experience, I would be very dead and gone now, to the delight of the people that terrorized me in Dénia.
+
+![No more fear](../../content/images/no-more-fear.png)
