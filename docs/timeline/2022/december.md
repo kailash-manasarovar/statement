@@ -41,8 +41,7 @@
 - During the month, there was a Christmas choir concert in which the whole conservatory participated.
 - It took place in the events hall at the [Balearic Port](http://www.baleariaport.com/en/nuestros-servicios/espacios-socioculturales/).
 - I was feeling nervous and anxious a lot around this time. 
-- At the concert there was a lot of moving around, waiting.
-- I saw the trumpet teacher sitting close to where I was standing for a few minute. 
+- I saw the trumpet teacher sitting close to where I was standing for a few minutes. 
 - His back was to me and he was sitting in the front row watching the students of the orchestra play. 
 - I did not see his face but it seemed to be him by the physique and clothing.
 - To my left, I caught Domingo's eye. He was staring at me.
