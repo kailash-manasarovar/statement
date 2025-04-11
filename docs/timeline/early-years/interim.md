@@ -115,7 +115,7 @@
 - I have been attending these courses around three times a year since 2020 and I am now a qualified practitioner.
 - It is curious that I didn't see Steve in person again until just a few days after teachers and staff at the conservatory of Dénia set up my 'funeral' in the attempt to completely destroy me. 
 - At that training, in [June 2023](../2023/june.md#ireland), I was utterly traumatized, completely shattered; everyone noticed. Yet, again, Steve's work brought me back to my center of resilience and strength.
-- [TEB](https://www.austinattach.com/transforming-the-experience-based-brain/) has given me the support and strength I needed to survive the 3-year-long, criminally vicious attack on my physical, psychological, emotional, and sexual wellbeing I suffered at the hands of the people of Dénia that included teachers and staff at the conservatory.
+- [TEB](https://www.austinattach.com/transforming-the-experience-based-brain/) has given me the support and strength I needed to survive the 3-year-long, criminally vicious attack on my physical, psychological, emotional, and sexual wellbeing that I suffered at the hands of the people of Dénia including teachers and staff at the conservatory.
 
 ## End of December 2020
 
