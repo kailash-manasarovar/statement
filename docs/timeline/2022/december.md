@@ -53,5 +53,10 @@
 
 ## A seizure in Thailand
 
+- Online and in-person bullying by criminal gangs and teachers and staff at the conservatory of Dénia included taking my own words and experiences I wrote down in my [2015 police statement I sent via email to the Metropolitan Police](../early-years/2015.md#statement-to-the-metropolitan-police) and repeating them back to me in order to cause me enormous distress and psychological injury.
+- I did not know this was happening at this time. Indeed, it has only become clear to me in early 2025 after leaving Dénia and washing or throwing away most of my belongings which the criminals had doused in pesticides while I was away from my apartment, probably in mid-October 2024.
+- In any case, constant triggering and reminders of my experience of being sexually abused by a North London rape-gang when I was a child was the backdrop to my psychological and emotional state while I was on holiday in Thailand over Christmas 2022.
+- 
+
 - Something I didn't think to include previously but I probably should is the fact that while on holiday in Thailand over Christmas, I have some kind of seizure and end up at the emergency ward of Bangkok Hospital in Samui where my records remain.
 

@@ -80,19 +80,28 @@
 ### Transforming the experienced-based brain
 
 - I begin my trauma therapy study and practice with Stephen Terrell from Austin Texas.
+- When I was [on my knees in January 2019](#january-2019), I had prayed to Mary for help, and somehow I came across [Steve's website](https://www.austinattach.com/).
+- I watched a few videos and listened to some lectures.
+
+<iframe width="672" height="378" src="https://www.youtube.com/embed/MGkLEPmdkcE" title="Transforming The Experience Based Brain | Stephen Terrell" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+- Something resonated strongly.
+- I noticed the picture of Bernadette behind his desk in his office.
+- My intuition was telling me he could help me, and so I reached out to him.
+- He said he wasn't able to take me on as a client as he was too busy, and in Texas, but instead he suggested I attend his courses and learn about the practice.
 - I attend the first in-person course in Cork Ireland in February.
 
 !!! tip "Visions past and future"
     - About 75 people, professional therapists and others, turned up for that first course in Cork.
     - At the end of the first day, Steve told us we may dream about him that night. He was joking of course.
-    - I did dream of Steve. Well, his voice directed the dream.
+    - I did dream of Steve that night. Well, his voice commented in the dream.
     - I had two visions, one of the past and one of the future.
-    - In the first vision, I am pre-verbal, about 1 year old, and I'm practicing walking in the kitchen by hanging onto the cupboard and draws and going around.
+    - In the first vision, I am pre-verbal, about 1 year old, and I'm practicing walking in the kitchen by hanging onto the cupboard and drawers and pulling myself around.
     - My aunt is looking after me and my cousin. I'm not sure where my mother is.
     - Suddenly, from behind, hands grab my throat and start to squeeze. I can't breath or speak and I'm terrified. I don't know who is behind me throttling me.
     - My aunt's voice says from behind, "Oh look, someone's throttling you Katie".
     - My cousin is going ballistic, screaming and crying.
-    - I wake a little, shocked and sweating. I fall back to sleep.
+    - I wake a little back in Cork, shocked and sweating. I fall back to sleep again.
     - It is my wedding day, except, I'm looking at myself through the eyes of the groom. 
     - We are outside. It is spring time and we are among a semi-circle of trees.
 
@@ -101,19 +110,12 @@
     - It is a happy and joyous occasion.
     - I wake up.
     - God gave me a joyful and hopeful vision to ease the sudden realization that I had been silenced in the most appalling manner from nearly the beginning of my life. Ironically, I thought that the trumpet teacher was my betrothed, but I expect this was part of the NLP suggestion and online manipulation. 
-    - Whoever my husband to be *is* in the vision, I am in his head.
+    - Whoever my husband to be *is* in the vision, I am in his head looking at myself.
 
-- When I was [on my knees in January 2019](#january-2019), I had prayed to Mary for help, and somehow I came across [Steve's website](https://www.austinattach.com/).
-- I watched a few videos and listened to a few lectures.
-
-<iframe width="672" height="378" src="https://www.youtube.com/embed/MGkLEPmdkcE" title="Transforming The Experience Based Brain | Stephen Terrell" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-
-- Something resonated strongly.
-- I noticed the picture of Bernadette behind his desk in his office.
-- My intuition was telling me he could help me, and so I reached out to him.
-- He said he wasn't able to take me on as a client as he was too busy, and in Texas, but instead he suggested I attend his courses and learn about the practice.
 - I have been attending these courses around three times a year since 2020 and I am now a qualified practitioner.
-- [TEB](https://www.austinattach.com/transforming-the-experience-based-brain/) gave me the resilience and strength I needed to survive a criminally vicious and prolonged attack on my physical, psychological, emotional, and sexual wellbeing I suffered at the hands of the people of Dénia that included teachers and staff at the conservatory there.
+- It is curious that I didn't see Steve in person again until just a few days after teachers and staff at the conservatory of Dénia set up my 'funeral' in the attempt to completely destroy me. 
+- At that training, in [June 2023](../2023/june.md#ireland), I was utterly traumatized, completely shattered, it was noticed by everyone. Yet, again, Steve's work brought me back to a centered place of resilience.
+- [TEB](https://www.austinattach.com/transforming-the-experience-based-brain/) has given me the support and strength I needed to survive the 3-year-long, criminally vicious attack on my physical, psychological, emotional, and sexual wellbeing I suffered at the hands of the people of Dénia that included teachers and staff at the conservatory.
 
 ## End of December 2020
 
