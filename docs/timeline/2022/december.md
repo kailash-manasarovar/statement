@@ -49,6 +49,8 @@
 - At that moment, I knew the whole thing was a set up and Domingo was behind it.
 - I was not at all surprised.
 
+![Snakes](../../content/images/snakes.png)
+
 ## Feeling unwell at home
 
 - I felt unwell a lot at home; headaches, stressed and unsettled emotionally, and nauseated at times.
