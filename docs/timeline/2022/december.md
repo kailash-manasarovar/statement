@@ -20,7 +20,10 @@
 ## Dreams and premonitions
 
 - I started having strange dreams around this time, after I had met the trumpet teacher.
-- I dreamt of the trumpet teacher with regards to Russian dolls. He was the tiny baby at the center of the Russian doll stack.
+- I dreamt of the trumpet teacher and Russian dolls. He was the tiny baby at the center of the Russian doll stack.
+
+![Russian dolls](../../content/images/russian-dolls.png)
+
 - "He's just a baby", I heard, a lot, in dreams. "You have to look after him," the dream said.
 - I dreamt of snakes too, a lot.
 - I dreamt the trumpet teacher had an evil brother who was a devil.
