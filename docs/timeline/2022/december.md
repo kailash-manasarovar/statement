@@ -41,7 +41,9 @@
 - During the month, there was a Christmas choir concert in which the whole conservatory participated.
 - It took place in the events hall at the [Balearic Port](http://www.baleariaport.com/en/nuestros-servicios/espacios-socioculturales/).
 - I was feeling nervous and anxious a lot around this time. 
-- At the concert, I saw the trumpet teacher sitting close to where I was standing, with his back to me in the front row watching the students of the orchestra play. 
+- At the concert there was a lot of moving around, waiting.
+- I saw the trumpet teacher sitting close to where I was standing for a few minute. 
+- His back was to me and he was sitting in the front row watching the students of the orchestra play. 
 - I did not see his face but it seemed to be him by the physique and clothing.
 - To my left, I caught Domingo's eye. He was staring at me.
 - At that moment, I knew the whole thing was a set up and Domingo was behind it.
@@ -49,7 +51,7 @@
 
 ## Feeling unwell at home
 
-- I felt unwell a lot at home, disordered emotionally and nauseated at times.
+- I felt unwell a lot at home; headaches, stressed and unsettled emotionally, and nauseated at times.
 - I often drink wine at the weekend, not much, a couple of glasses usually.
 - However, I usually became extremely unwell after drinking just two glasses of red wine and this was strange.
 - It was as if my body didn't have the capacity to handle the alcohol for some reason.
