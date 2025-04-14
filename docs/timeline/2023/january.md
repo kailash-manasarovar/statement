@@ -111,22 +111,23 @@
 - I consider going to A&E as it is very serious and a person can require dialysis, but I decide not to when I read that it can cure after a few days on its own.
 - The pain goes on for about 5 days then disappears.
 - I have some other unusual symptoms too: sudden dark rings under my eyes, aching in my back at the kidney area, and particularly the right kidney. My urine is frothy, especially after eating anything with albumin in such as eggs or dairy.
-- I have an enormous dramatic bump and discoloration on my left thumbnail, remnants of which are still apparent to this day, and similar but less on my right. It's ugly and very noticeable. 
+- I have an enormous dramatic bump and discoloration on my left thumbnail, remnants of which are still apparent to this day, and similar but less on the right thumbnail. It's ugly and very noticeable. 
 - Maria Hontanilla notices my traumatized thumbnail and mentions it in piano class that week.
-- All these symptoms tie in with the rhabdo diagnosis which requires some major trauma to have happened to the muscles and internal systems. 
+- All these symptoms tie in with a rhabdo diagnosis which requires major trauma to muscles and internal systems. 
 - Rhabdo is something you get when you:
     - Are in a car accident.
     - Run a marathon dehydrated.
     - Get hit by lightning.
     - Are poisoned.
-- I put it down to a hike I did at the weekend, but there was nothing extraordinary about the hike other than I had sweat a lot and it was cold at the summit.
+- I put it down to a hike I did at the weekend, but there was nothing extraordinary about the hike other than I had sweated a lot and it was extremely cold at the summit.
 - However, I had recently done far more strenuous hikes in the Pyrenees. 
-- There was no other explanation at that time however.
+- There was no other explanation at that time, however.
 - I lost a lot of weight after this, probably 10kg or thereabouts, 15kg in total since the [seizure in Thailand](../2022/december.md#a-seizure-in-thailand).
 
 !!! info "Tweets related to rhabdo"
     - I didn't tweet about rhabdo at the time but I did Google search it extensively.
-    - I mention it in August of 2023 at the time the "conversation" with hackers really began.
+    - Given I was being monitored online continuously, teachers and staff at the conservatory will have been very aware of what I was experiencing and its ramifications.
+    - I mention rhabdo in August of 2023 at the time the "conversation" with hackers really began.
     - Example: https://x.com/1FRGVN/status/1686848541346443270
     
     ![Rhabdo tweet](../../content/images/rhabdo-tweet.png)
@@ -138,8 +139,8 @@
 - I go to my GP on a few occasions over the next months after this incident because I am extremely concerned about my kidney health.
 - I ask for a full blood work up including kidney analysis. 
 - They send blood and urine to the lab to do all the tests, except when the results come back they have done everything except the kidney tests.
-- I ask why. The GP doesn't know.
-- I try to do a test myself from the local chemist; their pamphlet says they have them available. They never have it whenever I ask for it, and they never seem to know why or when it's coming in.
+- I ask why. The GP doesn't know and doesn't offer another solution or to repeat the test.
+- I try to do a test myself from the local chemist; their pamphlet says they have them available. They never have the test whenever I ask for it, and they never seem to know why they don't have it, or when it's coming in.
 - One of the pharmacists tells me, "Oh, I don't think we sell the kidney tests anymore."
 
 ### Hiking the following weekend
