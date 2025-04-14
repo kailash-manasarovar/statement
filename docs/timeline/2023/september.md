@@ -81,6 +81,9 @@
 
 - It's hot and I go to the beach every day in the afternoon.
 - I'm followed up and down the beach every day by the same group of people that I begin to recognize each day.
+
+![Beach stalkers](../../content/images/stalked-on-the-beach.png)
+
 - There is a couple, a woman and man, who I see every day milling around me. The man is balding and is wearing dog tags. He has his back to me usually and has his dog tags hanging down the back of his neck on a chain.
 - The woman is in her early 50s. I'd recognize her face again. One day I smiled at her and she got really scared, really quickly, and I knew.
 - These two were at the [piano concert](../2024/march.md#tuesday-12th-march) at the Casa de Cultura on 12th March 2024.
