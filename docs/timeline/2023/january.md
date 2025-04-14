@@ -99,7 +99,7 @@
 
 ## Serious poisoning at chamber-music class
 
-- On Monday 30th January I go to chamber music class as normal for 8pm.
+- On Monday 30th January I go to chamber music class at Dénia conservatory as normal for 8pm.
 - The doctor, Joan, from the [Dénia hospital](https://denia.san.gva.es/es/localizacion) attends his class which is scheduled before mine at 7-8pm.
 - I'm a little early so I wait outside. No-one is around.
 - There is no sound coming from inside the classroom; no music, no talking, nothing. 
