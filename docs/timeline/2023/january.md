@@ -100,8 +100,9 @@
 ## Serious poisoning at chamber-music class
 
 - On Monday 30th January I go to chamber music class as normal for 8pm.
-- The doctor, Joan, from the Dénia hospital attends his class which is scheduled before mine at 7-8pm.
-- I'm a little early. There is no sound coming from the classroom; no music, no talking. 
+- The doctor, Joan, from the [Dénia hospital](https://denia.san.gva.es/es/localizacion) attends his class which is scheduled before mine at 7-8pm.
+- I'm a little early so I wait outside. No-one is around.
+- There is no sound coming from inside the classroom; no music, no talking, nothing. 
 - Eventually the doctor comes out with the trumpet teacher and they leave together; the trumpet teacher returning after a few minutes.
 - Class is relatively normal except there is an electricity between myself and the trumpet teacher, a chemistry.
 - My body is vibrating.
@@ -109,16 +110,18 @@
 - It is very strange and concerning, and when I get home I look my symptoms up on Google and discover I have the systems of rhabdomyolysis. 
 - I consider going to A&E as it is very serious and a person can require dialysis, but I decide not to when I read that it can cure after a few days on its own.
 - The pain goes on for about 5 days then disappears.
-- I have some other unusual symptoms too: sudden dark rings under my eyes, aching in my back at the kidney area, and particularly the right kidney. My urine is frothy too.
-- I have an enormous dramatic bump and discoloration on my left thumbnail, and similar but less on my right. It's ugly and very noticeable. 
-- Maria Hontanilla notices it and mentions it in piano class that week.
-- All these symptoms tie in with the rhabdo diagnosis which requires some major trauma to the muscles and internal systems. 
+- I have some other unusual symptoms too: sudden dark rings under my eyes, aching in my back at the kidney area, and particularly the right kidney. My urine is frothy, especially after eating anything with albumin in such as eggs or dairy.
+- I have an enormous dramatic bump and discoloration on my left thumbnail, remnants of which are still apparent to this day, and similar but less on my right. It's ugly and very noticeable. 
+- Maria Hontanilla notices my traumatized thumbnail and mentions it in piano class that week.
+- All these symptoms tie in with the rhabdo diagnosis which requires some major trauma to have happened to the muscles and internal systems. 
 - Rhabdo is something you get when you:
     - Are in a car accident.
     - Run a marathon dehydrated.
     - Get hit by lightning.
     - Are poisoned.
-- I put it down to a hike I did at the weekend, but there was nothing extraordinary about the hike, and I had recently done far more strenuous hikes in the Pyrenees. There was no other explanation at that time however.
+- I put it down to a hike I did at the weekend, but there was nothing extraordinary about the hike other than I had sweat a lot and it was cold at the summit.
+- However, I had recently done far more strenuous hikes in the Pyrenees. 
+- There was no other explanation at that time however.
 - I lost a lot of weight after this, probably 10kg or thereabouts, 15kg in total since the [seizure in Thailand](../2022/december.md#a-seizure-in-thailand).
 
 !!! info "Tweets related to rhabdo"
@@ -138,3 +141,18 @@
 - I ask why. The GP doesn't know.
 - I try to do a test myself from the local chemist; their pamphlet says they have them available. They never have it whenever I ask for it, and they never seem to know why or when it's coming in.
 - One of the pharmacists tells me, "Oh, I don't think we sell the kidney tests anymore."
+
+### Hiking the following weekend
+
+- I decide to go hiking in the [Montgo national park](https://parquesnaturales.gva.es/es/web/pn-el-montgo) again the following weekend.
+
+![Montgo](../../content/images/montgo.jpg)
+
+- There is a bike crash on the mountain and a huge traffic jam.
+- I wait for about 30 minutes but there is still a delay.
+- Everyone starts to turn around and go back the way they came.
+- As each car disappears, I creep up, closer to the front of the queue, and I wait.
+- Eventually, I see a couple of cyclists on the road but nothing serious.
+- Even so, a man from the policia comes and tell everyone to turn around and go home.
+- I wonder about this now.
+- Could anyone have been heavily invested in making sure I didn't get rhabdo again at class the following Monday? And, if so, why?
