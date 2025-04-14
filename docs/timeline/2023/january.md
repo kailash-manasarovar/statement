@@ -21,7 +21,7 @@
     - I thought must be a joke.
     - It was extremely weird.
 
-- When we are alone a little later, I mention to Patricia that the trumpet teacher is the same guy we saw in Benijembla at the end of November.
+- When we are alone a little later, I mention to Patricia that the trumpet teacher is the same guy we saw in [Benijembla at the end of November](../2022/november.md#walking-in-benijembla-with-the-english-ladies).
 - Patricia gets angry and changes the subject.
 - **I'm never invited to walk again.** In fact, I'm cut off completely from the English ladies walking group. It's shocking to me actually and I can't figure it out at all. 
 - I'm offended and upset.
@@ -43,15 +43,24 @@
 
 ## Chamber music classes continue
 
-- The chamber music classes continue.
-- The trumpet teacher is flirting with me more and more, but his behavior is sort of garish and ignorant; phoney.
-- I do believe he likes me though because he looks at me in a certain way, he cannot hold eye contact with me, and some of the things he says and does, outside of him behaving like an immature and sexist brute, make me quite sure he is attracted to me.
-- It also starts to feel electric in the classroom when I'm with him, like I'm vibrating.
+- The chamber music classes continue on a Monday evening, whenever the trumpet teacher can be bothered to turn up.
+
+!!! tip "Attendance"
+    - The trumpet teacher's attendance is extremely poor. He has missed nearly 3 months of classes before he arrives, and only turns up to maximum 50% of the classes scheduled to the end of the school year.
+    - I wonder now if his sketchy attendance was more about a group of men's availability on Monday evenings, and not just his alone.
+
+- The trumpet teacher flirts with me more and more, but his behavior is garish and ignorant; phoney.
+- Nevertheless, I believe he likes me because he looks at me in a certain way, he cannot hold eye contact with me, and some of the things he says and does - outside of him behaving like an immature and sexist brute - make me quite sure he is sexually attracted to me.
+- It also starts to feel electric in the classroom when I'm with him. I feel breathless and flushed, and my whole body is vibrating.
 - I wonder if he feels it too.
 
 !!! danger "Spiking with aphrodisiacs"
-    - I had no suspicions I was being spiked with drugs at this time; something too awful to even consider being a possibility.
-    - However, everything I wrote about my feelings during that time - in letters and emails and tweets, and things I said to my therapists also - talks about how I never felt anything like this in my whole life, that my whole body was vibrating in class when I was with him, and I always mentioned the debilitating after effects each week particularly on my kidney health.
+    - I had no clue at all I was being spiked with drugs in class.
+    - However, everything I wrote about my feelings over this period supports this - in letters, emails, and tweets.
+    - More damning perhaps are the things I told my therapists such as a list of health problems that correlate with poisoning, about how I had never felt anything like what I was feeling in the chamber music class before in my whole life, that my whole body was vibrating in class when I was with him, how my PTSD levels were fever pitched before going to class but seemed to drop off once I was there, and other things.
+    - Most especially, I always mentioned the debilitating after effects of class each week, particularly on my kidney health, and how I would come home and go straight to my bedroom and lie down I was so exhausted.
+
+    ![Sedating](../../content/images/sedating/sedating-2.png)
 
 ## Noises upstairs after Monday chamber music classes
 
