@@ -76,8 +76,13 @@
 ## Ganesha
 
 - I print out a copy of Ganesha on an A4 piece of paper.
-- Ganesha removes obstacles in the Hindu faith so I take it to chamber music class in my folder because there is something sinister going on that I don't understand. It is an obstacle to my peace that needs to be removed.
-- The trumpet teacher grabbed my folder in class that day. He started to look inside it as if he was annoyed about something. It was weird and quite aggressive and, at that moment, it seemed to me he had information about something in my folder that he shouldn't have.
+- Ganesha is a Hindu god who removes obstacles. 
+
+![Ganesha](../../content/images/ganesha.jpg)
+
+- I take it to chamber music class in my folder because there is something sinister going on that I don't understand which is a major obstacle to my peace of mind.
+- The trumpet teacher grabbed my folder in class that day. 
+- He started to look inside my folder as if he was annoyed about something. It was weird and quite aggressive and, at that moment, it seemed to me he had information about something I had put in my folder that he shouldn't have.
 
 ## Yoga
 
@@ -86,8 +91,11 @@
 - It was very bizarre but there was a sense of a dark figure standing watching me, and it was him.
 - I can't explain this.
 
-!!! info
-    - After I find out in August that all my devices have been hacked to a very extreme extent; key loggers, root access, full access to cameras, etc, and for a long time too, this memory is startling.
+![Yoga with the dark figure](../../content/images/yoga.png)
+
+!!! info "What I made of this"
+    - After I find out in August 2023 that all my devices have been hacked to an extraordinary extent; key loggers, root access, full access to cameras and microphones, etc, and for a long time too, this memory is startling as it is highly likely cyber-stalkers were literally watching me do yoga.
+    - After I realize I was being drugged continuously, this memory is even more concerning.
 
 ## Poisoning
 
