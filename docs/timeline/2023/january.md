@@ -68,7 +68,8 @@
 - After every chamber music class, I arrive home feeling dreadful; my kidneys ache, I'm exhausted, and I have to lie down.
 - I fall asleep and wake up late, lying on top of the bed in my clothes.
 - I put my pyjamas on and get into bed, but I am kept from going back to sleep by loud noises from the upstairs apartment; scraping chairs, loud TV, and loud laughing voices, men and women.
-- Did those people upstairs have anything to do with the conspiracy?
+- Did those people upstairs have anything to do with the conspiracy? 
+- It's curious they were only ever there on a Monday night.
 
 ![Sedating me and coming into my room](../../content/images/sedating/sedating-1.png)
 
