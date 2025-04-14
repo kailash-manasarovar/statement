@@ -7,11 +7,11 @@
 - Everyone's interested in the gay man I met on holiday, where he lives, what he does for a living, etc.
 - Whenever I try to talk about the trumpet teacher, no one wants to know. Patricia and Christine, especially, go silent and tongue-tied.
 - I have a vague feeling that all my English friends know what's going on at the conservatory somehow, and it's not good. 
-- Their reaction adds to my apprehension.
+- Their reactions add to my near-constant apprehension and stress levels.
 - One of the other ladies says something like; "you wanna be careful, he might put you in the movies", but whenever people said incongruous things like this, I thought it was just a joke.
 - I notice everything and file it away.
-- My mind could not, at that time, possibly comprehend that a female student of the conservatory could be terrorized by teachers and staff there, and ignored by the school board and police when trying to get help. 
-- For this cultural ignorance, perhaps, I didn't fully understand why Patricia and Christine would be so unusually reticent.
+- My mind could not, at that time, possibly comprehend that a female student of the conservatory could be terrorized by teachers and staff there, and be ignored by the school board and police when trying to get help. 
+- For my cultural ignorance, perhaps, I didn't fully understand why Patricia and Christine would be so unusually reticent.
 - It's so weird, however, I don't forget it.
 
 !!! info "Oh, Patricia's done porn"
@@ -19,7 +19,7 @@
     - "She's done porn", she said.
     - Patricia shrugged and brushed it aside in an annoyed way, and said nothing.
     - I thought must be a joke.
-    - It was weird.
+    - It was extremely weird.
 
 - When we are alone a little later, I mention to Patricia that the trumpet teacher is the same guy we saw in Benijembla at the end of November.
 - Patricia gets angry and changes the subject.
@@ -36,8 +36,10 @@
     - As the horror continued into late 2023 and then 2024, were they surprised that I had managed to avoid whatever the trumpet teacher, Domingo's family and the Smith's had been planning for me after June 12th 2023?
     - Who are they targeting now, I wonder? A wealthy ex-pat new to the area with no knowledge of the extent of criminal corruption that controls even the schools your children might go to? Or a beautiful foreign minor child they're keen to quickly get up on the porn networks and start earning for them?
 
-- They must have seen no option but to exclude me, as they were surprised about how much I had noticed already, and would not want me going along each week babbling on about the terror they were well aware was planned and set up for me by local people they knew.
-- It would be embarrassing for them and they had to keep it quiet from other members of the walking group, some of whom had been complaining about weird and unusual health problems.
+![Walking with the English ladies](../../content/images/walking-in-the-mountains.png)
+
+- They must have seen no option but to exclude me, as they were surprised about how much I had noticed already, and would not want me going along each week babbling on about the terror, drugging, and poisoning they were likely well aware was coming up, set up for me by local people they knew.
+- It would be embarrassing for them and they would have had to keep it quiet from other members of the walking group, some of whom had been complaining about weird and unusual health problems I now wonder about in a different way, as you might do if you had my experience, or were hearing about it.
 
 ## Chamber music classes continue
 
