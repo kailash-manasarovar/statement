@@ -58,6 +58,20 @@
 - He comes and states, very loudly, "Vidal Sastre Sanchez Hornero control your sex".
 - I'm not sure what this really means until 2025.
 
+## First time they flash up my naked 16-year-old body on X
+
+- It was probably around this time that I first saw a flash of what was obviously my 16-year-old naked body.
+- My knees were up as if I was in a little ball, but I was lying on my back. 
+- My skin was practically blue I was so pale, dappled.
+- I may have had my hair in a pony tail. It wasn't clear.
+- It was horrifying and I knew immediately that teachers and staff at the conservatory had seen me in rape-gang porn.
+- Here's a picture of me around that time, probably taken just a month or so before rape-gangs of North London put me in rape-gang porn.
+
+![Wee me](../../content/images/wee-katie.jpeg)
+
+- I still find it really hard to accept that a whole town would feel justified in destroying a person because of something like this happening to them when they were a child.
+- Is there anyone decent left in Dénia?
+
 ## Matthew
 
 - The account `@Matthew49200183` has been following me since August 2023. I'm supposed to think it is the trumpet teacher.
