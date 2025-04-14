@@ -63,11 +63,12 @@
 
     ![Sedating](../../content/images/sedating/sedating-2.png)
 
-## Noises upstairs after Monday chamber music classes
+### Noises upstairs after Monday's chamber-music classes
 
-- Whenever a chamber music class takes place - which is not every week - after I arrive home I feel dreadful, my kidneys ache and I have to lie down.
-- Then I wake up late and I am kept from going back to sleep again by loud noises from the upstairs apartment; scraping chairs, loud TV, and loud voices.
-- Did people come into my apartment without my knowledge, and while I was there, every Monday night after chamber music class?
+- After every chamber music class, I arrive home feeling dreadful; my kidneys ache, I'm exhausted, and I have to lie down.
+- I fall asleep and wake up late, lying on top of the bed in my clothes.
+- I put my pyjamas on and get into bed, but I am kept from going back to sleep by loud noises from the upstairs apartment; scraping chairs, loud TV, and loud laughing voices, men and women.
+- Did those people upstairs have anything to do with the conspiracy?
 
 ![Sedating me and coming into my room](../../content/images/sedating/sedating-1.png)
 
