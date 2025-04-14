@@ -93,7 +93,7 @@
 
 ![Yoga with the dark figure](../../content/images/yoga.png)
 
-!!! info "What on earth to make of this"
+!!! info "What on earth to make of this?"
     - After I find out in August 2023 that all my devices have been hacked to an extraordinary extent; key loggers, root access, full access to cameras and microphones, and for a long time too, this memory is startling as it is highly likely cyber-stalkers were *literally* watching me do yoga.
     - After I realize I was being drugged continuously, this memory is even more concerning.
 
@@ -101,31 +101,40 @@
 
 - On Monday 30th January I go to chamber music class as normal for 8pm.
 - The doctor, Joan, from the Dénia hospital attends his class which is scheduled before mine at 7-8pm.
-- I'm a little early. There is no sound coming from the classroom; no music, no talking. Eventually the doctor comes out with the trumpet teacher and they leave together.
-- Class is normal but I am feeling like there is an electricity between myself and the trumpet teacher, a chemistry.
+- I'm a little early. There is no sound coming from the classroom; no music, no talking. 
+- Eventually the doctor comes out with the trumpet teacher and they leave together; the trumpet teacher returning after a few minutes.
+- Class is relatively normal except there is an electricity between myself and the trumpet teacher, a chemistry.
 - My body is vibrating.
-- After class finishes, I'm surprised to find I cannot walk down the stairs as my calves are in excruciating pain at every step I take.
+- After class finishes, I'm surprised to find I cannot walk down the stairs of the conservatory as my calves are in excruciating pain at every step I take.
 - It is very strange and concerning, and when I get home I look my symptoms up on Google and discover I have the systems of rhabdomyolysis. 
-- I consider going to A&E as it is very serious but decide not to when I read that it can cure after a few days on its own.
+- I consider going to A&E as it is very serious and a person can require dialysis, but I decide not to when I read that it can cure after a few days on its own.
 - The pain goes on for about 5 days then disappears.
 - I have some other unusual symptoms too: sudden dark rings under my eyes, aching in my back at the kidney area, and particularly the right kidney. My urine is frothy too.
-- I have an enormous dramatic bump and discoloration on my left thumbnail, and similar but less on my right. It's ugly and very noticeable. Maria Hontanilla notices it and mentions it in piano class.
-- All these symptoms tie in with the rhabdo diagnosis which requires some major trauma to the muscles and internal systems. Rhabdo is something you get when you:
+- I have an enormous dramatic bump and discoloration on my left thumbnail, and similar but less on my right. It's ugly and very noticeable. 
+- Maria Hontanilla notices it and mentions it in piano class that week.
+- All these symptoms tie in with the rhabdo diagnosis which requires some major trauma to the muscles and internal systems. 
+- Rhabdo is something you get when you:
     - Are in a car accident.
     - Run a marathon dehydrated.
     - Get hit by lightning.
     - Are poisoned.
 - I put it down to a hike I did at the weekend, but there was nothing extraordinary about the hike, and I had recently done far more strenuous hikes in the Pyrenees. There was no other explanation at that time however.
+- I lost a lot of weight after this, probably 10kg or thereabouts, 15kg in total since the [seizure in Thailand](../2022/december.md#a-seizure-in-thailand).
 
 !!! info "Tweets related to rhabdo"
     - I didn't tweet about rhabdo at the time but I did Google search it extensively.
     - I mention it in August of 2023 at the time the "conversation" with hackers really began.
     - Example: https://x.com/1FRGVN/status/1686848541346443270
+    
+    ![Rhabdo tweet](../../content/images/rhabdo-tweet.png)
 
-- The doctor never comes to class again after this. He only came to two classes in total. 
+    - These tweets were viewed a lot by an audience needing to translate them, I assume Spanish cyber-stalkers from Dénia.
+
+- The doctor **never comes to class again** after this. He only came to two classes in total. 
+- When Pablo and I asked where he was, the trumpet teacher told us he was at the hospital as he was a doctor.
 - I go to my GP on a few occasions over the next months after this incident because I am extremely concerned about my kidney health.
 - I ask for a full blood work up including kidney analysis. 
-- They send blood and urine to the lab to do all the tests, except when the results come back they haven't done the kidney tests.
+- They send blood and urine to the lab to do all the tests, except when the results come back they have done everything except the kidney tests.
 - I ask why. The GP doesn't know.
-- I try to do a test myself from the local chemist; their pamphlet says they have them available. They never have it whenever I ask for it and they never seem to know why or when it's coming in.
+- I try to do a test myself from the local chemist; their pamphlet says they have them available. They never have it whenever I ask for it, and they never seem to know why or when it's coming in.
 - One of the pharmacists tells me, "Oh, I don't think we sell the kidney tests anymore."
