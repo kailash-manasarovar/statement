@@ -60,7 +60,7 @@
 
 ## First time they flash up my naked 16-year-old body on X
 
-- It was probably around this time that I first saw a flash of what was obviously my 16-year-old naked body.
+- It was probably around this time that I first saw a flash of what was obviously my 16-year-old naked body on an X post on my timeline, obviously posted by the hackers.
 - My knees were up as if I was in a little ball, but I was lying on my back. 
 - My skin was practically blue I was so pale, dappled.
 - I may have had my hair in a pony tail. It wasn't clear.
