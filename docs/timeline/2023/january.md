@@ -3,31 +3,41 @@
 ## Hiking with the English ladies
 
 - The first Saturday in January I go hiking with the English ladies as normal.
-- I mention falling in love twice, once with a gay man on holiday and once with the trumpet teacher. 
-- Everyone's interested in the gay man I met on holiday, where he lives, what he does for work, etc.
-- Whenever I try to talk about the trumpet teacher, no one wants to know. Patricia and Christine, especially, go quiet and tongue-tied.
-- I notice this and file it away, but I have a vague feeling that it seems as if they know what's going on at the conservatory somehow.
-- One of the other ladies says something like; "you wanna be careful, he might put you in the movies", but I thought it was just a joke.
-- My mind could not, at that time, possibly comprehend that a lone woman could be terrorized by everyone in a whole region of Spain, and beyond eventually, so I don't fully understand why Patricia and Christine would be so unusually reticent.
+- I mention falling in love twice; once with a gay man on holiday and once with the trumpet teacher. 
+- Everyone's interested in the gay man I met on holiday, where he lives, what he does for a living, etc.
+- Whenever I try to talk about the trumpet teacher, no one wants to know. Patricia and Christine, especially, go silent and tongue-tied.
+- I have a vague feeling that all my English friends know what's going on at the conservatory somehow, and it's not good. 
+- Their reaction adds to my apprehension.
+- One of the other ladies says something like; "you wanna be careful, he might put you in the movies", but whenever people said incongruous things like this, I thought it was just a joke.
+- I notice everything and file it away.
+- My mind could not, at that time, possibly comprehend that a female student of the conservatory could be terrorized by teachers and staff there, and ignored by the school board and police when trying to get help. 
+- For this cultural ignorance, perhaps, I didn't fully understand why Patricia and Christine would be so unusually reticent.
 - It's so weird, however, I don't forget it.
 
-!!! info
-    - This was the day that Christine made an off-the-cuff remark about Patricia having done porn, which Patricia brushed aside in an annoyed way, and which I thought must be a joke.
+!!! info "Oh, Patricia's done porn"
+    - This was the day that Christine made an off-the-cuff remark about Patricia being in porn.
+    - "She's done porn", she said.
+    - Patricia shrugged and brushed it aside in an annoyed way, and said nothing.
+    - I thought must be a joke.
+    - It was weird.
 
-- When we are alone a little later, I mention to Patricia that the trumpet teacher is the same guy we saw in Benijembla.
+- When we are alone a little later, I mention to Patricia that the trumpet teacher is the same guy we saw in Benijembla at the end of November.
 - Patricia gets angry and changes the subject.
-- **I'm never invited to walk again.** In fact, I'm cut off completely from the English ladies walking group. It's shocking to me actually and I can't figure it out at all. I'm offended.
-- I still see Christine now and then for lunch, however, as if everything's ok.
+- **I'm never invited to walk again.** In fact, I'm cut off completely from the English ladies walking group. It's shocking to me actually and I can't figure it out at all. 
+- I'm offended and upset.
+- I still see Christine now and then for lunch, however, and she behaves as if everything's fine.
 
-!!! warning "Thoughts added later in retrospect after finishing this report"
-    - I wonder what the conversations were like between Christine and whoever she was reporting back to, Patricia probably, Hazel Smith even.
-    - Were there discussions on how likely it was that I would commit suicide, or whether they would have to murder me instead?
-    - As the horror continued into late 2023 and then 2024, Were they surprised that I had managed to avoid whatever the trumpet teacher had been planning for me after June 12th 2023?
-    - Were they watching live spy cam porn from my apartment? Had they seen something similar a long time previously, around 2007 perhaps?
-    - Who are they discussing now? Could it be someone else who had innocently joined the Javea Computer Club?
+!!! warning "Reporting back"
+    - Having successfully removed my only (apparent) support network, the criminals will have required someone to report back on me. 
+    - And that must have been Christine in her 'let's have lunch' capacity, even though she had completely stopped inviting me out to walk.
+    - It's funny how everyone treated me as if I was an idiot.
+    - I wonder what the conversations were like between Christine and whoever she was reporting back to, Patricia probably, Hazel Smith eventually.
+    - Were there discussions on how likely it was that I would have a nervous breakdown or commit suicide, if I would be terrorized sufficiently to leave the conservatory and enter a honey-trap relationship, the likelihood of having to murder me if things worked out a different way than planned?
+    - As the horror continued into late 2023 and then 2024, were they surprised that I had managed to avoid whatever the trumpet teacher, Domingo's family and the Smith's had been planning for me after June 12th 2023?
+    - Who are they targeting now, I wonder? A wealthy ex-pat new to the area with no knowledge of the extent of criminal corruption that controls even the schools your children might go to? Or a beautiful foreign minor child they're keen to quickly get up on the porn networks and start earning for them?
 
-- I now believe they saw no option but to exclude me, as they were surprised about how much I had noticed already, and would not want me going along each week babbling on about the terror they were well aware was planned and set up for me by local people they knew.
-- It would be embarrassing for them and probably make them feel guilty. So they stopped inviting me to come walking.
+- They must have seen no option but to exclude me, as they were surprised about how much I had noticed already, and would not want me going along each week babbling on about the terror they were well aware was planned and set up for me by local people they knew.
+- It would be embarrassing for them and they had to keep it quiet from other members of the walking group, some of whom had been complaining about weird and unusual health problems.
 
 ## Chamber music classes continue
 
