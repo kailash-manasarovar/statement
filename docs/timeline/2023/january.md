@@ -93,20 +93,16 @@
 
 ![Yoga with the dark figure](../../content/images/yoga.png)
 
-!!! info "What I made of this"
-    - After I find out in August 2023 that all my devices have been hacked to an extraordinary extent; key loggers, root access, full access to cameras and microphones, etc, and for a long time too, this memory is startling as it is highly likely cyber-stalkers were literally watching me do yoga.
+!!! info "What on earth to make of this"
+    - After I find out in August 2023 that all my devices have been hacked to an extraordinary extent; key loggers, root access, full access to cameras and microphones, and for a long time too, this memory is startling as it is highly likely cyber-stalkers were *literally* watching me do yoga.
     - After I realize I was being drugged continuously, this memory is even more concerning.
 
-## Poisoning
+## Serious poisoning at chamber-music class
 
-!!! danger "Crime alert"
-    - Drugging people without their knowledge is a crime.
-    - Drugging people and causing them serious injury by doing so is a crime.
-
-- On Monday 30th January I go to class as normal for 8pm.
-- The doctor, Joan, from the Dénia hospital attends his class which is scheduled before ours, 7-8pm.
-- There is no sound in the classroom, no music, no talking. Eventually the doctor comes out and they walk out together.
-- Class is normal but I do feel like there is an electricity between myself and the trumpet teacher, a chemistry.
+- On Monday 30th January I go to chamber music class as normal for 8pm.
+- The doctor, Joan, from the Dénia hospital attends his class which is scheduled before mine at 7-8pm.
+- I'm a little early. There is no sound coming from the classroom; no music, no talking. Eventually the doctor comes out with the trumpet teacher and they leave together.
+- Class is normal but I am feeling like there is an electricity between myself and the trumpet teacher, a chemistry.
 - My body is vibrating.
 - After class finishes, I'm surprised to find I cannot walk down the stairs as my calves are in excruciating pain at every step I take.
 - It is very strange and concerning, and when I get home I look my symptoms up on Google and discover I have the systems of rhabdomyolysis. 

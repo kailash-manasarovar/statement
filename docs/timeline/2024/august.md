@@ -38,7 +38,7 @@
 
 ## I realize I have been poisoned and drugged
 
-- It took a while but I finally realize why I got [rhabdo at class](../2023/january.md#poisoning).
+- It took a while but I finally realize why I got [rhabdo at class](../2023/january.md#serious-poisoning-at-chamber-music-class).
 - It was something I would never have suspected. I had such a high regard for the teachers and staff at the conservatory.
 - https://x.com/1FRGVN/status/1825575948257009675
 - I start to think about my state of mind in general over the last two years.

@@ -2,7 +2,7 @@
 
 Modern stalking for criminal purposes uses typical traditional bullying and gang-stalking tactics together with cyberstalking, especially of a target's social media accounts. Depending on the circumstances, and how valuable the target is, to make it extremely unlikely a target has the power to escape, the criminal gangs will use drugging and poisoning tactics too.
 
-As we have seen by my experience, [drugging is now taking place in the classroom](../timeline/2023/january.md#poisoning).
+As we have seen by my experience, [drugging is now taking place in the classroom](../timeline/2023/january.md#serious-poisoning-at-chamber-music-class).
 
 Vast gangs of people are employed on social media by criminal gangs with the remit of hunting down vulnerable people for targeting. These people could be:
 

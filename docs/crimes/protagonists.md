@@ -26,7 +26,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - This is, indeed, the man who taught the class on Monday evenings that I attended. At least, I look at all these pictures and remember them as being the "trumpet teacher" who turned up to class sporadically on Mondays.
 - Another picture I recognized as him was from [the video of another girls "funeral"](../content/images/youtube-video.png) I had found in June 2023, in Dublin, when I was severely traumatized after the events of 12th June 2023.
 - However, looking at these pictures, I believe I remember another man who looked dissimilar again. 
-- If this is true, seemingly I became confused about these people being the same person, probably because I was [on drugs without my knowledge](../timeline/2023/january.md#poisoning), and probably because the online NLP/hypnosis situation was set up with that intention.
+- If this is true, seemingly I became confused about these people being the same person, probably because I was [on drugs without my knowledge](../timeline/2023/january.md#serious-poisoning-at-chamber-music-class), and probably because the online NLP/hypnosis situation was set up with that intention.
 - Curiously, online face comparison tools say that none of the above pictures are of the same person.
 
 !!! tip "What?"
