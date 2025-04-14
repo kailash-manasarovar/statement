@@ -59,6 +59,7 @@
     - However, everything I wrote about my feelings over this period supports this - in letters, emails, and tweets.
     - More damning perhaps are the things I told my therapists such as a list of health problems that correlate with poisoning, about how I had never felt anything like what I was feeling in the chamber music class before in my whole life, that my whole body was vibrating in class when I was with him, how my PTSD levels were fever pitched before going to class but seemed to drop off once I was there, and other things.
     - Most especially, I always mentioned the debilitating aftereffects of class each week, particularly on my kidney health, and how I would come home and go straight to my bedroom and lie down I was so exhausted.
+    - Then, of course, there was the class in January after which I had [rhabdomyolysis](#serious-poisoning-at-chamber-music-class).
     - Was this the moment, Monday evening after class with the trumpet teacher, that I was sedated and filmed with men who had access to my apartment?
 
     ![Sedating](../../content/images/sedating/sedating-2.png)
