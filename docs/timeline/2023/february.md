@@ -120,7 +120,7 @@
 - The Ana theme was repeated endlessly over fake account messages, and by Ana herself at the conservatory.
 - The lie and their dedication to it was extraordinary. 
 - I can only assume they were all having enormous fun terrorizing me. 
-- These were the actions of professional and seasoned gang stalkers and I can only wonder at how many students they have destroyed over the years, and how many of those students were minors, and when cyber-stalking porn-gangs realized they could very easily get in on the act.
+- These were the actions of professional and seasoned gang stalkers and I can only wonder at how many students they have destroyed over the years, and how many of those students were minors, and I also wonder about when the local cyber-stalking porn-gangs realized they could very easily get in on the act.
 
 ### Civil service exams
 
