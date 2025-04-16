@@ -96,8 +96,8 @@
 
 - Teachers and staff at the conservatory put enormous effort into trying to convince me that the trumpet teacher and Ana Requena Marín, the violin teacher, were having a romantic liaison.
 - This included constant choreographed events, in the conservatory and around town, that were designed to torment and upset me.
-- All choreographed events relied upon constant knowledge of my whereabouts which they could only have had with access to my mobile activity.
-- These ideas were reinforced online with subliminal suggestions and NLP, and this was further reinforced with things other people might say or do.
+- All choreographed events relied upon minute-by-minute knowledge of my whereabouts which they could only have had with access to my mobile activity.
+- The lie was reinforced online with subliminal suggestions and NLP, and further reinforced with things other people might say or do.
 - The Ana lie started at the first class when the trumpet teacher [bumps into her](../2022/november.md#the-trumpet-teacher) outside the toilet next to the classroom, and I am high and euphoric at that moment having been successfully spiked with some kind of psychoactive mood-altering substance.
 - As this lie progressed, Ana interrupts every chamber music class for a few minutes to bring her instrument and leave it in the room, for reasons unclear, something that never happens normally.
 - Ana and Rosa María Vidal Orengo come in together sometimes to do this.
@@ -109,7 +109,7 @@
         - Teachers: https://portal.edu.gva.es/conservatoridenia/es/departaments-es/
         - Staff: https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/
 
-- The "Ana is his girlfriend" lie was particularly vicious and, even though I really didn't care, it upset me as intended because it was relentless, and I believed I was in love, and the feeling was overpowering even if false.
+- The "Ana is his girlfriend" lie was particularly vicious and, even though I really didn't care, it upset me as intended because it was relentless, and I believed I was in love, and the feeling was overpowering, even if false.
 - During the cyber stalking to come, aside from there being a host of pictures of [Ana Requena modeling](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png) and constant sexual and other derogatory references to her, there is also an interesting picture of the child catcher from Chitty Chitty Bang Bang.
 
 ![child catcher](../../content/images/ana-children.png)
@@ -119,11 +119,12 @@
 - The lies evolved into Ana is pregnant with his child.
 - The Ana theme was repeated endlessly over fake account messages, and by Ana herself at the conservatory.
 - The lie and their dedication to it was extraordinary. 
-- I can only assume they were really enjoying terrorizing me.
+- I can only assume they were all having enormous fun terrorizing me. 
+- These were the actions of professional and seasoned gang stalkers and I can only wonder at how many students they have destroyed over the years, and how many of those students were minors, and when cyber-stalking porn-gangs realized they could very easily get in on the act.
 
 ### Civil service exams
 
-- On one occasion Rosa and Ana interrupt the class with their instruments, Rosa mentions to the trumpet teacher not to forget that it is his *funcionario* exam the following week.
+- On one occasion Rosa and Ana interrupt the class with their instruments and Rosa mentions to the trumpet teacher not to forget that it is his *funcionario* exam the following week.
 - I understood that to mean he was sitting the exam to become eligible for a pension, and whenever I arrive at class, the trumpet teacher is often practicing for his exam and he says so.
 - On one occasion, he mentions that he "needs to pay for his daughters' weddings".
 
