@@ -1,3 +1,5 @@
+# October 2022
+
 ## Sam shares some files with me
 
 - [Samuel](september.md#harmony), in a friendly and helpful manner, shares some files with me regarding the harmony class homework via email.

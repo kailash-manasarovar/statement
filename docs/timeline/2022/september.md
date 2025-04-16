@@ -1,3 +1,5 @@
+# September 2022
+
 ## Omens in the Pyrenees
 
 - I'm staying in Cauterets, a small town near Lourdes in the Pyrenees.
