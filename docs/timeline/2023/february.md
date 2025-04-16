@@ -3,6 +3,7 @@
 ## Mental state and health concerns
 
 - I can't stop thinking about this man, the trumpet teacher. My mind is racing with thoughts about him.
+- I excessively plan novel after novel about our romantic adventures in my head! 
 - I'm extremely concerned about rhabdo and having kidney damage.
 - I consider my GP to be ineffective.
 - I go on a very strict kidney diet to try to heal myself.
@@ -60,39 +61,65 @@
 - When he returns, I notice that he holds the pages he gives me in the top corner only. 
 
 !!! tip "Bait and switch"
-    - Could these moments, whenever he left the class to go to the photocopier, be the time when the two men switched over?
+    - Could these moments, whenever he leaves the class to go to the photocopier, or perhaps when he [goes downstairs with the doctor](january.md#serious-poisoning-at-chamber-music-class) be when different men switch over?
+    - When I think back on the men that took the trumpet teacher role, there seemed to be a soft spoken one who I had genuinely good feelings about, and a brash and violent one who made me feel nervous and afraid. 
+    - Could these two have been the same person? 
+    - When I look at the [men in the trumpet-teacher photos](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero), I don't remember having good feelings for him/them.
+    - When I think back, I remember a slighter man at class, with a physique I found attractive.
+    - And then, I also remember that the man who came to class was a large lumbering man, with extremely muscular forearms.
 
 - Sometimes he asks me about something on his phone and hands me his phone so I'm holding it. It's never clear what he wants.
 
 !!! info "What I thought he might have wanted"
-    - When I realized I had been targeted by criminal gangs, I had a theory that he was getting me to touch his phone so he could record my fingerprints.
-    - I now think that perhaps he had some substance on the phone screen that he wanted me to touch and therefore ingest.
-    - I wonder now also if he was ingesting whatever it was he was giving me but of his own accord.
+    - When I realized I had been targeted by criminal gangs, I had a theory that he was getting me to touch his phone so he could record my fingerprints for future theft.
+    - I now wonder if also perhaps he had some substance on the phone screen that he wanted me to touch and absorb through my skin.
+    - Was he ingesting whatever it was he was spiking me with too, but of his own accord?
+
+- His hands are small and his fingers thin and delicate.
+
+### Plot awareness
+
+- Whatever drugs they were giving me made me extremely and unusually aware of hidden things going on, plots and subplots.
+- Of course, I knew about the plot with Domingo, and what was coming up (a 'funeral' of some sort which I really didn't care about) so my experience of the classes were tainted with this knowledge.
+- And, at the same time, I had such a good feeling for this man, I had only generous views of him. I felt he must be on my side.
+- In one class, the three of us are sitting close together and practicing, and the trumpet teacher announces that we will play *My Way* for the concert.
+- I chuckle conspiratorially.
+- The man gets angry. He jumps up and starts interrogating me and all the answers I give him make him even more enraged.
+- I tell him I was joking. It's rather funny. 
+- Pablo and I look at each other and shrug. We have no idea what got into him.
+
+![Angry trumpet teacher](../../content/images/angry-trumpet-teacher.png)
 
 ## Ana the violin teacher
 
-- The choreographed torment includes the suggestion that the trumpet teacher and Ana Requena Marín are having a romantic liaison.
-- Ana comes into classroom every chamber music class with her instrument to leave it in the room, for reasons unclear, something that never happens normally.
-- Ana and Rosa María Vidal Orengo come in together sometimes with instruments which they leave in this room.
-- It's all very contrived.
+- Teachers and staff at the conservatory put enormous effort into trying to convince me that the trumpet teacher and Ana Requena Marín, the violin teacher, were having a romantic liaison.
+- This included constant choreographed events, in the conservatory and around town, that were designed to torment and upset me.
+- All choreographed events relied upon constant knowledge of my whereabouts which they could only have had with access to my mobile activity.
+- These ideas were reinforced online with subliminal suggestions and NLP, and this was further reinforced with things other people might say or do.
+- The Ana lie started at the first class when the trumpet teacher [bumps into her](../2022/november.md#the-trumpet-teacher) outside the toilet next to the classroom, and I am high and euphoric at that moment having been successfully spiked with some kind of psychoactive mood-altering substance.
+- As this lie progressed, Ana interrupts every chamber music class for a few minutes to bring her instrument and leave it in the room, for reasons unclear, something that never happens normally.
+- Ana and Rosa María Vidal Orengo come in together sometimes to do this.
+- It's all very contrived. 
 - Rosa is the vice director of the conservatory.
-- On one occasion, Rosa mentions to the trumpet teacher that it is his *funcionario* exam the following week.
-- I understood that he was sitting the exam to become eligible for a pension and whenever I arrive at class, the trumpet teacher is often practicing for his exam and he says so.
-- On one occasion, he mentions that he "needs to pay for his daughter's weddings".
+- On one occasion, Rosa mentions to the trumpet teacher not to forget that it is his *funcionario* exam the following week.
+- I understood that to mean he was sitting the exam to become eligible for a pension, and whenever I arrive at class, the trumpet teacher is often practicing for his exam and he says so.
+- On one occasion, he mentions that he "needs to pay for his daughters' weddings".
 
-!!! tip "List of teachers and staff"
+!!! tip "List of teachers and staff at the conservatory"
     - The current lists on the conservatory website may still reflect the state of the staff in 2023 although there will be changes.
         - Teachers: https://portal.edu.gva.es/conservatoridenia/es/departaments-es/
         - Staff: https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/
 
-- The "Ana is his girlfriend" lie was particularly vicious and, even though I really didn't even care, it upset me as intended because it was relentless and I believed I was in love and it was an overpowering feeling.
+- The "Ana is his girlfriend" lie was particularly vicious and, even though I really didn't care, it upset me as intended because it was relentless, and I believed I was in love, and the feeling was overpowering even if false.
 - During the cyber stalking to come, aside from there being a host of pictures of [Ana Requena modeling](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png) and constant sexual and other derogatory references to her, there is also an interesting picture of the child catcher from Chitty Chitty Bang Bang.
 
 ![child catcher](../../content/images/ana-children.png)
 
-- This is a picture I viewed some time in 2022, retweeted and never looked at again. However, it appeared continuously up until even August 2024 when the stalkers started going on about Ana again.
+- This is a picture I viewed some time in 2022, retweeted and never looked at again. However, it appeared on manipulated [Google search results](../../evidence/google-searches.md) continuously, up until even August 2024, when the stalkers started going on about Ana again.
 - The inference is supposed to be that Ana has locked away the trumpet teacher's children and so he can't free himself from her to be with me.
-- This theme was repeated endlessly over fake account messages and by Ana herself at the conservatory.
+- The lies evolved into Ana is pregnant with his child.
+- The Ana theme was repeated endlessly over fake account messages and by Ana herself at the conservatory.
+- The lie was extraordinary, and I can only assume they were really enjoying terrorizing me.
 
 ## Other times
 
