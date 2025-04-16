@@ -1,3 +1,5 @@
+# February 2023
+
 ## Mental state and health concerns
 
 - I can't stop thinking about this man, the trumpet teacher. My mind is racing with thoughts about him.
