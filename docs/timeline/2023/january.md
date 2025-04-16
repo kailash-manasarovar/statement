@@ -137,7 +137,11 @@
 
 - The doctor **never comes to class again** after this. He only came to two classes in total. 
 - When Pablo and I asked where he was, the trumpet teacher told us he was at the hospital as he was a doctor.
+
+### Going to my doctor
+
 - I go to my GP on a few occasions over the next months after this incident because I am extremely concerned about my kidney health.
+- I never mention my specific concerns about my kidneys, or the rhabdo experience.
 - I ask for a full blood work up including kidney analysis. 
 - They send blood and urine to the lab to do all the tests, except when the results come back they have done everything except the kidney tests.
 - I ask why. The GP doesn't know and doesn't offer another solution or to repeat the test.

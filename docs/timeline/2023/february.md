@@ -4,18 +4,22 @@
 
 - I can't stop thinking about this man, the trumpet teacher. My mind is racing with thoughts about him.
 - I'm extremely concerned about rhabdo and having kidney damage.
+- I consider my GP to be ineffective.
 - I go on a very strict kidney diet to try to heal myself.
-- I start to lose a lot of weight but I manage to stop the froth in my urine which is exacerbated with dairy and any albumin intake.
+- I start to lose a lot of weight but I manage to stop the froth in my urine which is exacerbated with any dairy or albumin intake.
 - I contact an acupuncturist in Dénia to ask for help: https://www.thaoqi.com/.
 - She is not back in town until May so she can't see me for a few months.
 - I go to see a homeopath in Dénia, Ana Villalba. I'm not sure I trust her.
-- Each time I see her she wants to hear about my child sexual abuse story, and not in a kind way. Each time I see her she mentions domestic violence.
+- Each time I see her she wants to hear about my child sexual abuse story, and not in a kind way. I feel like I'm being interrogated.
+- Each time I see her she mentions her patients who have freed themselves of domestic violence.
 - She prescribes drops to take every day which I collect from the Romany pharmacy in Dénia.
+- She takes copious written notes.
+- She asks me to phone her regularly. I explain I'm uncomfortable speaking on the phone in Spanish.
 
 ## A scan at the medical centre
 
 - I go for a scan at the medical centre because I'm so concerned about my kidney health.
-- The doctor who does the scan - no exaggeration - looks in the air while he puts the ultra sound thing on my stomach and moves it around quickly.
+- The doctor who does the scan - and this is no exaggeration - looks in the air while he puts the ultra sound on my stomach and moves it around quickly.
 - He doesn't look at the screen at all.
 - It's all over in about 2 minutes and he says I'm fine.
 
@@ -30,20 +34,20 @@
 - However, whenever I'm in class with him my whole body vibrates. 
 - I have never felt like this before in my life and I reiterate that in many written messages to people while I had no idea what was going on. 
 - He starts to take interest in me at one class and ask me questions about my life. I have a severe PTSD reaction - due to child sexual abuse - where I become scared and I'm not able to talk to him without being rude.
-- Back at home I'm upset about this because it has caused me problems all my life.
-- The irony is it was actually alarm bells.
-- In any case, I believe he likes me and I'm devastated I cannot respond.
+- Back at home I'm upset about this because this reaction has caused me problems all my life.
+- The irony is the reaction was genuine alarm bells.
+- I'm not aware of this at that time, however, and I believe he likes me and I'm devastated I cannot respond to him normally.
 
 ## Gang stalking at the conservatory and the promise of a relationship
 
 - The trumpet teacher flirts with me whenever I go to class.
-- I'm extremely high at class and find him exceedingly and overwhelmingly attractive.
-- Situations happen around the conservatory which seem to indicate there is a bit of gossip going on about a possible relationship. The men are always excited around me. I mention a lot of this in my [letters to the Generalitat](october.md#first-letter-to-the-generalitat) and elsewhere.
+- I'm extremely high at class, flushed and excited, vibrating, and I find the man who takes the class exceedingly and overwhelmingly attractive.
+- Situations happen around the conservatory which seem to indicate there is a bit of gossip going on about a possible relationship. The male teachers are always excited around me, running to see me when I'm in other classes, pointing and laughing. I mention a lot of this activity in my [letters to the Generalitat](october.md#first-letter-to-the-generalitat) and elsewhere.
 - At one chamber music class, I don't remember which one, the trumpet teacher suggests he is free in the afternoons and the implication is that we could maybe get together.
 - For me, this is a bit much. I haven't had sexual relations for nearly 13 years, and I haven't had a proper boyfriend for over 20 years. I don't reply.
 
 !!! danger
-    - I now believe this was an attempt to commence a regular sexual relationship with me at my apartment which would then be live-streamed on porn networks.
+    - Was this an attempt to commence a regular sexual relationship with me at my apartment which could then be live-streamed on porn networks?
 
 ![Sedating me and coming into my room](../../content/images/sedating/sedating-2.png)
 
