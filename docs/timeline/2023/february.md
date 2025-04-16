@@ -92,6 +92,8 @@
 
 ## Ana the violin teacher
 
+![Evil violin teacher](../../content/images/evil-violin-teacher.png)
+
 - Teachers and staff at the conservatory put enormous effort into trying to convince me that the trumpet teacher and Ana Requena Marín, the violin teacher, were having a romantic liaison.
 - This included constant choreographed events, in the conservatory and around town, that were designed to torment and upset me.
 - All choreographed events relied upon constant knowledge of my whereabouts which they could only have had with access to my mobile activity.
@@ -101,9 +103,6 @@
 - Ana and Rosa María Vidal Orengo come in together sometimes to do this.
 - It's all very contrived. 
 - Rosa is the vice director of the conservatory.
-- On one occasion, Rosa mentions to the trumpet teacher not to forget that it is his *funcionario* exam the following week.
-- I understood that to mean he was sitting the exam to become eligible for a pension, and whenever I arrive at class, the trumpet teacher is often practicing for his exam and he says so.
-- On one occasion, he mentions that he "needs to pay for his daughters' weddings".
 
 !!! tip "List of teachers and staff at the conservatory"
     - The current lists on the conservatory website may still reflect the state of the staff in 2023 although there will be changes.
@@ -121,6 +120,12 @@
 - The Ana theme was repeated endlessly over fake account messages, and by Ana herself at the conservatory.
 - The lie and their dedication to it was extraordinary. 
 - I can only assume they were really enjoying terrorizing me.
+
+### Civil service exams
+
+- On one occasion Rosa and Ana interrupt the class with their instruments, Rosa mentions to the trumpet teacher not to forget that it is his *funcionario* exam the following week.
+- I understood that to mean he was sitting the exam to become eligible for a pension, and whenever I arrive at class, the trumpet teacher is often practicing for his exam and he says so.
+- On one occasion, he mentions that he "needs to pay for his daughters' weddings".
 
 ## Feeling high at other times too
 
