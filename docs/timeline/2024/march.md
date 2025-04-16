@@ -615,6 +615,14 @@
 - I print and send it registered from my Mumbai hotel.
 - I don't know if anyone received it.
 
+## Cowards hiding behind the women
+
+- What I find very interesting is how the women in this sick history are as equally evil as the men.
+- What's unsurprising is how the men are happy to remain hidden while they push the women out in front, to eventually take the blame when it all goes tits-up for them, which is inevitable of course.
+- I wonder if, nowadays, girls with parents in the know get jobs as make-up artists, set designers, poisoners, rape victim shepherdesses, and similar, in the burgeoning local rape-spy-cam porn industry while their parents pray fervently that their daughters will not be targeted, but I guess even they become a coward's worthy challenge.
+
+![Murderous bands of women](../../content/images/women-as-bad.png)
+
 ## Tweets
 
 ### `@1frgvn`
