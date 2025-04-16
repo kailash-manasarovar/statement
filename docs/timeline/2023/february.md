@@ -118,8 +118,9 @@
 - This is a picture I viewed some time in 2022, retweeted and never looked at again. However, it appeared on manipulated [Google search results](../../evidence/google-searches.md) continuously, up until even August 2024, when the stalkers started going on about Ana again.
 - The inference is supposed to be that Ana has locked away the trumpet teacher's children and so he can't free himself from her to be with me.
 - The lies evolved into Ana is pregnant with his child.
-- The Ana theme was repeated endlessly over fake account messages and by Ana herself at the conservatory.
-- The lie was extraordinary, and I can only assume they were really enjoying terrorizing me.
+- The Ana theme was repeated endlessly over fake account messages, and by Ana herself at the conservatory.
+- The lie and their dedication to it was extraordinary. 
+- I can only assume they were really enjoying terrorizing me.
 
 ## Other times
 
