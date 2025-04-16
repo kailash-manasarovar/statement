@@ -122,12 +122,13 @@
 - The lie and their dedication to it was extraordinary. 
 - I can only assume they were really enjoying terrorizing me.
 
-## Other times
+## Feeling high at other times too
 
-- I also find myself light-headed and high in other classes, including choir and harmony class.
+- I also find myself light-headed and euphoric in other classes, including choir and harmony class.
 - Looking back, I can see that I was completely out of my mind during this time, and I had no idea that I was being drugged.
 - I was being medicated without my knowledge, and I believe this had been going on from at least December 2022 at the conservatory itself.
-- Obviously the drugging was most intense during the chamber music classes themselves where the trumpet teacher was present, but it was also going on outside them too.
+- The drugging was most intense during the chamber music classes where a trumpet teacher was physically present, but I was experiencing this elsewhere too.
+- When the criminal's plans didn't work out for them as they had hoped, and I continued turning up for music classes, the drugging became more intense.
 
 ## Unintended consequences of drugging an adult person without their knowledge
 
