@@ -109,5 +109,5 @@
 
 ## Work stress
 
-- Work is becoming extremely stressful and I'm not able to handle the normal situations that are going on there.
+- Work is becoming extremely stressful and I'm unable to handle the normal situations that are going on there.
 - I quit my job but I have another one lined up to go to immediately.
