@@ -80,10 +80,20 @@
 
 - I'm reminded of the song Misty, I used to play it at university.
 - It's from the film about a stalker, Play Misty for Me.
-- I'm playing it one day at class with Maria who was busy with something else, as usual.
-- She reads the marks out for me for the term, telling me the marks the trumpet teacher has given me.
+
+<iframe width="1280" height="720" src="https://www.youtube.com/embed/P_tAU3GM9XI" title="Erroll Garner plays Misty" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+!!! quote
+    Erroll Garner was inspired to write "Misty" on a flight from San Francisco to Chicago which passed through a thunderstorm: as the plane descended into O'Hare, Garner (was thinking about his wife) and he looked through the window to see a rainbow glowing through a haze and (the word Misty and the tune popped into his head). Erroll was moved to begin composing "Misty" on the spot.
+    
+    - https://en.wikipedia.org/wiki/Misty_(song)
+    - https://www.steynonline.com/11411/misty
+
+- I'm playing it one day at class with Maria, who was busy with something else as usual.
+- She reads the marks out for me for the term. She tells me the marks the trumpet teacher has given me and that he has left me a little comment saying something like I'm very motivated. Looking back, I realize his comment is extremely telling with regards to what's actually going on for me.
+- I expect the Generalitat will have deleted all the system records now.
 - I tell her I feel like I'm on fire. She tells me I'm in love with him.
-- She calls him Charlot; the name the Spanish user for Charlie Chaplin.
+- She calls him Charlot; the name the Spanish use for Charlie Chaplin.
 
 ## Choir rehearsal at the boat club
 
