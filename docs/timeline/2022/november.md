@@ -82,6 +82,15 @@
 - I go to class that evening and the same guy who Patricia was talking to in Benijembla is there, in Jaume's room where I had been allowed to practice for my audition.
 - He says his name is Vidal.
 - In the Generalitat Valenciana systems, his name was/is Vidal Sastre Sanchez Hornero, although I was told by a government official that this person doesn't exist! 
+
+!!! tip "The cover up continues"
+    - In October 2024, a Spanish government official approaches me and wants to know what's going on.
+    - She can hardly hide her disgust with me, I assume because she knows about the sexual abuse I suffered as a child as I did tell her.
+    - And, even though she tells me she is going to help me, it is very clear she is not on my side.
+    - A few weeks later, she tells us there's no record of Vidal Sastre Sanchez Hornero in the Generalitat systems.
+    - Ironically, she also tells me I must have a written timeline of data as my story is just a chaos.
+    - It is on her advice I start writing this statement in November 2024.
+
 - I have believed for some time now that this is a false name, but there was no reason to think so then, other than when I asked him his name, and he answered Vidal, it didn't ring true somehow. He didn't seem to believe it as he was saying it.
 - After I entered the class, there was some immediate confusion about him needing the toilet, but he kept looking at his phone, and not really going anywhere except up and down the room a bit, and then he was moving to the door, and he kept saying he was going to the toilet. 
 - It was weird and contrived.
