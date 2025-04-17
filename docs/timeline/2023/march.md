@@ -33,9 +33,9 @@
 
 - Whenever the trumpet teacher turned up for class, not often, I felt the same lightheadedness and euphoria, my whole body vibrating.
 - Moreover, whenever I returned home from class I felt like I had run a marathon, my kidneys ached, and I had to lie down
-- I couldn't understand this at all.
-- It was never as intense as on Mondays during and after class but the lightheadedness, which I put down to being in love, continued every day of the week, even on the days when I never left the house.
-- I was always extremely anxious about going to class on a Monday and had to take my PTSD remedy beforehand to get calm enough to go. I believe this was because at some level I knew what was going on and it frightened me.
+- I couldn't understand it and told all my therapists about what I was experiencing.
+- They were never as intense as on Mondays during and after chamber music class but these feelings, which I put down to being in love, continued every day of the week, even on the days I didn't leave the house.
+- I was always extremely anxious about going to class on a Monday and had to take my PTSD remedy beforehand to get calm enough to go. I believe this was because, at a subconscious level, I knew exactly what was going on and it frightened me.
 
 ![Sedating me and coming into my room](../../content/images/sedating/sedating-3.png)
 
@@ -47,7 +47,7 @@
 
 ![The trumpet teacher sobbing in my arms](../../content/images/sobbing-1.png)
 
-- I cannot get the man out of my head, it is excruciating.
+- The following morning I cannot get the man out of my head, it is excruciating.
 - I believe I am in love with this man, and that he loves me back.
 - I wake up and sit with my hands in my head. My thoughts are like a hurricane.
 
@@ -64,13 +64,17 @@
     - The question is, why would the criminals want me to think that he was not for me on top of wanting me to believe there is a relationship?
     - Is it because there were so many other men they were filming me with, they needed me to be unsure of everything I was thinking and feeling?
     - Do they do the sobbing trick to all the girls?
+    - Or was the poor fellow unable to help himself, and he fell in love with me back?
+    - Maybe he had fallen in love first, maybe years before, and briefly, in that moment, he became aware of the enormity of his mistakes?
 
     ![Sobbing again](../../content/images/sobbing-2.png)
 
-## Leaving class
+## Gloria winks conspiratorially
 
-- Whenever I left the chamber music class to go home on a Monday night, Gloria would be there at reception.
-- She would grin and wink at me in a conspiratorial manner.
+- Whenever I leave the chamber music class to go home on a Monday night, Gloria is at reception.
+- She grins and winks at me in a conspiratorial manner.
+- She knows everything that was going on.
+- She will probably have a list of all the victims, maybe some souvenirs too.
 
 ## Piano classes
 
@@ -79,7 +83,7 @@
 - I'm playing it one day at class with Maria who was busy with something else, as usual.
 - She reads the marks out for me for the term, telling me the marks the trumpet teacher has given me.
 - I tell her I feel like I'm on fire. She tells me I'm in love with him.
-- She calls him Charlot, which is what the Spanish call Charlie Chaplin.
+- She calls him Charlot; the name the Spanish user for Charlie Chaplin.
 
 ## Choir rehearsal at the boat club
 
