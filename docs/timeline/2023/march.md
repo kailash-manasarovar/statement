@@ -1,15 +1,37 @@
-## Chamber music classes continued
+# March 2023
 
-- One day in March, the trumpet teacher canceled a class by sending a WhatsApp message during the day at some point. I cried that he was not coming. It was *extraordinarily* weird. I don't cry as a rule. It takes an awful lot to make me cry. I felt that I must really be in love with this guy.
-- I found myself always harboring the expectation that he would be coming home with me after class, and I bought extra food for that purpose. There was no reason at all to think that might happen and, even if it were, that's something I'm not sure I would have been at all OK with anyway.
-- All this was just thoughts only. Nothing real or tangible.
+## Chamber music classes continue
 
-!!! info "Looking back"
-    - I believe now that the online romantic honey-trap grooming had really ramped up at this stage, and I was being fed NLP/hypnosis type suggestions on Twitter, and possibly elsewhere, which were reinforcing these drugged feelings of lightheadedness that I had in class.
-    - The trick was making me believe that I was in love and that it was reciprocal.
-    - I believe that these NLP grooming techniques are able to suggest a reciprocity that doesn't necessarily exist.
+- The conspiracy, sexual grooming, gang stalking, and terror continue.
+- The trumpet teacher canceled one of the classes on WhatsApp. I cried that he was not coming. It was *extraordinarily* weird. I don't cry as a rule. It takes an awful lot to make me cry. I felt that I must really be in love with this guy!
+- I found myself always harboring the expectation that he would be coming home with me after class, and I bought extra food for that purpose. There was no reason at all to think that might happen and, even if it were,  I'm pretty sure I would **not** have been OK with that anyway.
+- All of it seemed to be just thoughts. Nothing real or tangible.
+- The online romantic honey-trap grooming was really ramping up at this stage. I was being fed NLP/hypnosis suggestions on Twitter and elsewhere, which reinforced the euphoria I experienced in class.
+- However, this alone would probably not have been enough to trap me, and so I was constantly fed mood-enhancing substances over the week which can exaggerate a small idea or feeling, and breakdown personal boundaries.
+- But even those two things together might not break the strongest of minds, and so it is my view that there was *actual* physical sexual activity happening while I was sedated in my apartment; something which became addictive to me without my conscious awareness; a honeymoon period if you will.
 
-- Whenever the trumpet teacher turned up for class, not often, I felt the same lightheadedness in class.
+!!! danger "A really, really evil man"
+    - If this is true, and myself and the trumpet teacher *were* having a sexual relationship, albeit with me completely sedated, then it could be described as somewhat consensual.
+    - Was this activity *out-of-scope* for the trumpet teacher's gang? Was this how he cheated the British gangs, and the reason why everyone got so angry with each other, and started careening around chaotically in the shared-mind arena, and start grassing each other and themselves up so marvelously?
+
+- The trick was making me believe that I was in love and that it was reciprocal.
+- It worked.
+- He may have loved me back. It'd be hard not to.
+
+!!! info "Seduction techniques - a primer"
+    
+    - NLP grooming techniques can suggest a romantic reciprocity that doesn't exist.
+    - Add mood-enhancing substances to the mix and you are 100% controlling a person's thoughts and emotions.
+    - I tweeted about this a lot as I reasoned my way out of the sticky mire of evil intentions.
+
+    ![Seduction techniques](../../content/images/seduction-techniques.png)
+
+    - https://x.com/1FRGVN/status/1860132157890679006 
+    - There are many public resources that explain this process in detail.
+
+### Each class on a Monday
+
+- Whenever the trumpet teacher turned up for class, not often, I felt the same lightheadedness and euphoria, my whole body vibrating.
 - Moreover, whenever I returned home from class I felt like I had run a marathon, my kidneys ached, and I had to lie down
 - I couldn't understand this at all.
 - It was never as intense as on Mondays during and after class but the lightheadedness, which I put down to being in love, continued every day of the week, even on the days when I never left the house.

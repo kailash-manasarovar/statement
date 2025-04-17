@@ -208,7 +208,7 @@ Many of these tweets are confirmation of what has been going on.
 - https://x.com/1FRGVN/status/1740102880126996657 -> messing with them really.
 - https://x.com/1FRGVN/status/1740331983136551267
 - https://x.com/1FRGVN/status/1740314691388203079 -> unwitting infamy.
-- https://x.com/1FRGVN/status/1740290316970738083 -> the cry I reference I mention [here](march.md#chamber-music-classes-continued)
+- https://x.com/1FRGVN/status/1740290316970738083 -> the cry I reference I mention [here](march.md#chamber-music-classes-continue)
 - https://x.com/1FRGVN/status/1740273934833201503 -> only cried for love twice in my life.
 - https://x.com/1FRGVN/status/1740268855480795581 -> talking about everything that's going on.
 - https://x.com/1FRGVN/status/1740127866447094097
