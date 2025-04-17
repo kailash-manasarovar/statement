@@ -85,7 +85,7 @@
 
 !!! tip "The cover up continues"
     - In October 2024, a Spanish government official approaches me and wants to know what's going on.
-    - She can hardly hide her disgust with me, I assume because she knows about the sexual abuse I suffered as a child as I did tell her.
+    - She can hardly hide her disgust with me, I assume it's because I told her about the sexual abuse I suffered as a child.
     - And, even though she tells me she is going to help me, it is very clear she is not on my side.
     - A few weeks later, she tells us there's no record of Vidal Sastre Sanchez Hornero in the Generalitat systems.
     - Ironically, she also tells me I must have a written timeline of data as my story is just a chaos.

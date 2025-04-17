@@ -50,6 +50,9 @@
 - The following morning I cannot get the man out of my head, it is excruciating.
 - I believe I am in love with this man, and that he loves me back.
 - I wake up and sit with my hands in my head. My thoughts are like a hurricane.
+- I tweet about this in August 2023, when hackers started to reveal themselves to me and communication begins in earnest.
+
+![I held you in my arms](../../content/images/i-held-you-in-my-arms.png)
 
 ### A loud voice
 
