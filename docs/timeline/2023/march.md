@@ -98,14 +98,16 @@
 ## Choir rehearsal at the boat club
 
 - At the end of term we have a choir rehearsal at the boat club in Dénia.
-- Paqui's husband is there, scowling and glaring at everyone.
+- Concha is the choir master. Paqui Fornet is there filming and that's apparently the reason for the extra rehearsal. 
+- It's all a bit contrived and time-wasting.
+- Paqui Fornet's husband is there too. He sits scowling and glaring at everyone. I feel him looking at me.
 - He looks extremely angry.
 - It's weird.
 
-!!! tip
-    - I now believe Paqui brought him in to see me.
+!!! tip "Show and tell"
+    - I now believe Paqui created this situation in order that he might see me, the target.
 
 ## Work stress
 
-- Work is becoming extremely stressful and I'm not able to handle the things that are going on there.
+- Work is becoming extremely stressful and I'm not able to handle the normal situations that are going on there.
 - I quit my job but I have another one lined up to go to immediately.
