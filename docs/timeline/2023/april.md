@@ -47,14 +47,13 @@
 - I meet [Sally in Lourdes](../early-years/2014.md#march-to-july). 
 - I tell her I'm in love.
 - I can't stop talking about the thoughts racing through and looping around my mind continuously. 
-- She can confirm how crazy I was about all this, and for how long too. It went on for well over a year; I assume while I was being drugged.
+- Sally can confirm how crazy I was about all this, and for how long too. It went on for well over a year; I assume while I was being drugged.
 - While sitting across the river from the grotto, I text the trumpet teacher the Philip Glass music I had arranged the night before.
 - About half an hour later, I walk over to the grotto to sit with the pilgrims in front of Mary.
 - My phone goes off. It's WhatsApp. The trumpet teacher has replied.
-- I believe it is *more than serendipitous* that he has texted me at that moment, in the grotto at Lourdes, at 12.30pm, Mary's hour.
+- I believe it is *more than serendipitous* that he has texted me at that moment, in the grotto at Lourdes, at 12.30pm. Mary's hour.
 - I have no idea that hackers and pornographers are tracking my movements and carefully building a trap.
-- With Sally later, I talk about having babies and getting married. I'm obsessed and euphoric. It was absurd and unhinged but, even though my suspicions remained, I couldn't ground myself at all.
-- Sally told me about Novena prayers so I bought a Novena candle and started to pray.
+- With Sally later, I talk about having babies and getting married. I'm obsessed and euphoric. I keep thinking about how old Sarah was when she had her first child. It was absurd and unhinged but, even though my suspicions remained, I couldn't ground myself at all.
 
 !!! danger "My suspicions"
     - As well as being out of my mind with "love", I also told Sally that there was another explanation for what was going on.
@@ -64,6 +63,7 @@
     
 ## Novena
 
+- Sally told me about Novena prayers so I bought a Novena candle and started to pray.
 - I prayed to Mary to ask her to give me a way to communicate honestly with this man.
 - At that time, I wrote everything down on notes in my computer, including the things I was going to ask for in prayer, and all the things I wanted to happen in my life. 
 
