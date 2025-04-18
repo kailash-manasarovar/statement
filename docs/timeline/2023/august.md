@@ -17,6 +17,13 @@
 - There are some weird things too which don't make sense, such as confusing access issues with my Skype account, strange messages on Twitter.
 - In truth the hackers are upping the game and getting ready to reveal themselves.
 
+### In the baths at Cauterets with Sally
+
+- I take Sally to the baths at Cauterets.
+- She behaves as if she is very shy of being in her swimming suit in public.
+- We sit in the bubbly beds outside beside each other.
+- I tell her I'm going to tame the trumpet teacher.
+
 ## Fighting back
 
 - I realize that Domingo and the trumpet teacher are continuing to harass me online, so I decide to fight back.
