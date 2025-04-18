@@ -1,11 +1,22 @@
+# April 2023
+
 ## Hanuman Jayanti
 
 - On April 6th, 2023, I set off for Lourdes for Easter week.
 - It just so happened to be Hanuman Jayanti that day too, a full moon. This is like Hanuman's birthday every year and is a great celebration.
-- About an hour from home, just outside of Valencia on the AP-7, I suddenly started to feel an overwhelming sexual arousal.
+
+![Hanuman Jayanti](../../content/images/hanuman-jayanti.png)
+
+- About an hour from home, just outside of Valencia on the AP-7, I suddenly start to feel an overwhelming sexual arousal.
 - I had no idea what was causing this but I knew it was to do with the trumpet teacher.
 - I felt like the feelings were for him.
-- I was out of my mind that day with racing thoughts about love and romance. It was extremely intense.
+- I was out of my mind that day with racing thoughts about love and romance. It was extremely intense and destabilizing.
+- I write about this on X about 6 months later: https://x.com/1FRGVN/status/1713726935371551010.
+
+![Strawberries](../../content/images/strawberries.png)
+
+- My twitter thread causes something of a ruckus in the town of Dénia, and people start to leave strawberries at my feet on my route to and from the conservatory for classes.
+- It's almost as if the whole town is reading my tweets, and the whole town knows about the sedated sexual relationship I'm having, or had been having at that time, with the trumpet teacher.
 
 ## Good Friday
 
