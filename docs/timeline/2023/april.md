@@ -52,6 +52,9 @@
 - About half an hour later, I walk over to the grotto to sit with the pilgrims in front of Mary.
 - My phone goes off. It's WhatsApp. The trumpet teacher has replied.
 - I believe it is *more than serendipitous* that he has texted me at that moment, in the grotto at Lourdes, at 12.30pm. Mary's hour.
+
+![Forgie and his love at Lourdes](../../content/images/forg/forgie-and-his-love-at-lourdes.png)
+
 - I have no idea that hackers and pornographers are tracking my movements and carefully building a trap.
 - With Sally later, I talk about having babies and getting married. I'm obsessed and euphoric. I keep thinking about how old Sarah was when she had her first child. It was absurd and unhinged but, even though my suspicions remained, I couldn't ground myself at all.
 
