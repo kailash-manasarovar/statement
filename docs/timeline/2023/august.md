@@ -4,6 +4,7 @@
 - I have spent one week in Lourdes already before I head up to Cauterets.
 - The online activity intensifies and I'm starting to realize people are watching me continuously online.
 - I connect with an old friend on Facebook, Matthew Copeland, and tell him I believe I have an audience on Twitter so I'm DJ'ing to them.
+- I tell him it's the chirps of the century.
 
 ![maff](../../content/messages/mc-1.png)
 ![maff](../../content/messages/mc-2.png)
