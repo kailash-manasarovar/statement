@@ -75,7 +75,7 @@
 ## Gloria winks conspiratorially
 
 - Whenever I leave the chamber music class to go home on a Monday night, Gloria is at reception.
-- She grins and winks at me in a conspiratorial manner.
+- Not one to turn a blind eye, she grins and winks at me in a conspiratorial manner.
 - She obviously knows everything that's going on.
 - She will probably have a list of all the victims, maybe some souvenirs too.
 

@@ -121,7 +121,7 @@
     - Get hit by lightning.
     - Are poisoned.
 - I put it down to a hike I did at the weekend, but there was nothing extraordinary about the hike other than I had sweated a lot and it was extremely cold at the summit.
-- However, I had recently done far more strenuous hikes in the Pyrenees. 
+- I had recently done far more strenuous hikes in the Pyrenees. 
 - There was no other explanation at that time, however.
 - I lost a lot of weight after this, probably 10kg or thereabouts, 15kg in total since the [seizure in Thailand](../2022/december.md#a-seizure-in-thailand).
 
