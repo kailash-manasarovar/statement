@@ -19,6 +19,9 @@
 ![Strawberries](../../content/images/strawberries.png)
 
 - This twitter thread causes something of a ruckus in the town of Dénia in October 2023, and people start to leave strawberries at my feet on my route to and from the conservatory for classes.
+
+![Strawberries on the streets](../../content/images/strawbs-in-denia.png)
+
 - It's almost as if the whole town is reading my tweets, and the whole town knows about the sedated sexual relationship I'm having, or had been having at that time, with the trumpet teacher.
 
 ## Good Friday
