@@ -26,7 +26,7 @@
 
 ## Good Friday
 
-- On April 7th, Good Friday, I remained sexually aroused.
+- On April 7th, Good Friday, I remain sexually aroused.
 - I was staying at the Mercure Hotel, Lourdes.
 - I masturbated in my hotel room. It was the first sexual activity I had experienced for over 12 years.
 - My laptop was open on the desk at the time, and the camera was facing the bed. 
@@ -40,7 +40,7 @@
 !!! tip "Back to Black"
     - Back in 2008, I dressed up for carnival weekend with friends from Dénia.
     - I wore a cow outfit and took my ukelele with me.
-    - I serenaded anyone who might be listening with Amy Winehouse's Back to Black, continuously, so that even the Montgo could enjoy it.
+    - I serenaded anyone who might be listening with Amy Winehouse's Back to Black, continuously, so that even the Montgo might enjoy it.
     - There are photos, somewhere.
 
     ![Back to Black](../../content/images/back-2-black.jpg)
@@ -49,8 +49,8 @@
 
 - I meet [Sally in Lourdes](../early-years/2014.md#march-to-july). 
 - I tell her I'm in love.
-- I can't stop talking about the thoughts racing through and looping around my mind continuously. 
-- Sally can confirm how crazy I was about all this, and for how long too. It went on for well over a year; I assume while I was being drugged.
+- I talk incessantly about the thoughts racing through and looping around my mind continuously. 
+- Sally can confirm how crazy I was about all this, and for how long too. It went on for well over 18 months more; I assume while I was being drugged.
 - While sitting across the river from the grotto, I text the trumpet teacher the Philip Glass music I had arranged the night before.
 - About half an hour later, I walk over to the grotto to sit with the pilgrims in front of Mary.
 - My phone goes off. It's WhatsApp. The trumpet teacher has replied.
@@ -63,8 +63,8 @@
 
 !!! danger "My suspicions"
     - As well as being out of my mind with "love", I also told Sally that there was another explanation for what was going on.
-    - I detailed to her my suspicions with regards to Domingo and the plot to humiliate me, and everything that had happened previously.
-    - However, the feelings were so intense, I could not believe, at that time, that Domingo could be behind these feelings too.
+    - I detailed my suspicions with regards to Domingo and the plot to humiliate me, and everything that had happened previously.
+    - However, the feelings were so intense, I could not believe, at that time, that Domingo could be behind this too.
     - Sally, unknown to me at the time, was taking notes and reporting back. It is not yet clear to whom.
     
 ## Novena
