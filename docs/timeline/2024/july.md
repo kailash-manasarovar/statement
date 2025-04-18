@@ -35,6 +35,9 @@
 ## Sexual arousal
 
 - During the time I am back in Dénia over this month I am extraordinarily sexually aroused and masturbate often.
+- Hackers post images with people in the same position I might have been while masturbating.
+- Something was making me open my mouth and tilt my head back if I was in the bathroom, I have no idea what.
+- I would masturbate under my covers in my bedroom, and after that I would see posts of people with their heads covered in blankets.
 
 ## Big chat with the hacker begins
 

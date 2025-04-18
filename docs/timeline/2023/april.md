@@ -23,19 +23,24 @@
 
 ## Good Friday
 
-- On April 7th, Good Friday, I remained sexually aroused, not to the same extent as the day before in my car however.
+- On April 7th, Good Friday, I remained sexually aroused.
 - I was staying at the Mercure Hotel, Lourdes.
-- Nevertheless, I masturbated in my hotel room. It was the first sexual activity I had had since January 2011.
+- I masturbated in my hotel room. It was the first sexual activity I had experienced for over 12 years.
 - My laptop was open on the desk at the time, and the camera was facing the bed. 
-
-!!! danger "Crime alert"
-    - This is the first pornographic video the hackers recorded of me.
-
-- That night I was thinking about music to take to the chamber music class. I got hotel reception to print off some Philip Glass music which I had arranged for two trumpets.
+- That night I was thinking about the music I wanted to take to the chamber music class. 
+- I got the hotel reception to print off some Philip Glass music which I had arranged for two trumpets and piano.
 - At the same time, two other songs popped into my head:
-    - Creep by Radiohead, and
-    - Back to Black by Amy Winehouse.
-- I found arrangements for trumpet and piano for these songs too, and reception printed them off for me.
+    - *Creep* by Radiohead, and
+    - *Back to Black* by Amy Winehouse.
+- I found arrangements for trumpet and piano for these songs too.
+
+!!! tip "Back to Black - 1"
+    - Back in 2008, I dressed up for carnival weekend with friends from Dénia.
+    - I wore a cow outfit and took my ukelele with me.
+    - I serenaded anyone who might be listening with Amy Winehouse's Back to Black, continuously, so that even the Montgo could enjoy it.
+    - There are photos, somewhere.
+
+    ![Back to Black](../../content/images/back-2-black.jpg)
 
 ## Easter Saturday
 
