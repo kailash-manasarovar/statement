@@ -7,6 +7,8 @@
 
 ![Hanuman Jayanti](../../content/images/hanuman-jayanti.png)
 
+- Hanuman is celibate. 
+- I myself had not experienced any sexual activity, at all, since late 2010. At least, none I was aware of.
 - About an hour from home, just outside of Valencia on the AP-7, I suddenly start to feel an overwhelming sexual arousal.
 - I had no idea what was causing this but I knew it was to do with the trumpet teacher.
 - I felt like the feelings were for him.
