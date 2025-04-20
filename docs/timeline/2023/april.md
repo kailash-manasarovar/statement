@@ -66,7 +66,7 @@
     - I detailed my suspicions with regards to Domingo and the plot to humiliate me, and everything that had happened previously.
     - However, the feelings were so intense, I could not believe, at that time, that Domingo could be behind this too.
     - Sally, unknown to me at the time, was taking notes and reporting back. It is not yet clear to whom.
-    
+
 ## Novena
 
 - Sally told me about Novena prayers so I bought a Novena candle and started to pray.
@@ -87,6 +87,27 @@
 - I told my friend what had happened and we were amazed. It was a miracle!
 - I followed his Twitter account and he blocked me immediately.
 - I consequently thought it wasn't his account after all, or maybe he was concerned about being followed by someone with my political views on gender ideology in schools. He was a school teacher after all!
+
+## Expecting to see him in Lourdes
+
+- While I'm in Lourdes, I expect to see the trumpet teacher at any moment.
+- I imagine he will be there with his secondary school class.
+- I believe this because of the time he [handed me his phone](march.md#the-trumpet-teacher-hands-me-his-phone) and I saw he was making travel plans for a large group of people going to France.
+- I also believe this because I'm out of my mind on some psychoactive substance I'm unaware is probably in my shampoo; and most likely there is some online reinforcement of this too.
+- I have a vision of the trumpet teacher with a large group of people; he himself rising up to be seen above the figures who surround him.
+- I'm reminded of this vision when I see Sally in Lourdes again, sometime in 2024, and she gives me a bunch of Psalms of David to read for protection against the evil people in Dénia who plan to do me harm.
+
+!!! quote "Psalm 27"
+
+    <i>Then my head will be exalted <br>
+    above the enemies who surround me; </br>
+    at his sacred tent I will sacrifice with shouts of joy; </br>
+    I will sing and make music to the Lord. </br></i>
+
+    ![His head was exalted](../../content/images/his-head-exalted-above-all-the-rest.png)
+
+- I think of this again and again throughout 2023 and 2024. 
+- I feel it cannot be wistful, meaningless mind dithering.
 
 ## Back in chamber music class
 
@@ -119,7 +140,7 @@
 
 - I was extremely high that day, my whole body vibrating in class as usual, something I thought was to do with chemistry between us, and my kidneys were aching as usual after class, and I had to lie down.
 - The picture was like opium to my mind and heart. I was 100% caught in the trap at that moment.
-- I texted my friend from Lourdes about all this.
+- I texted my friend Sally from Lourdes about all this.
 
 !!! tip "Interestingly"
     - The cyber-stalking never stopped and there continued to be accounts following me pretending to be him. I never knew if they were really him or not but I played along in any case.

@@ -39,6 +39,17 @@
 
 ![Sedating me and coming into my room](../../content/images/sedating/sedating-3.png)
 
+### The trumpet teacher hands me his phone
+
+- I arrive at class one evening. The trumpet teacher is busy on his phone.
+- I sit down to wait for class to begin.
+- I am light headed and euphoric.
+- The trumpet teacher stands up and says, "Katharine, please help me".
+- He passes me his phone and asks me something (I can't remember what).
+- I take his phone and see he is on `Booking.com` looking for accommodation in France for about 30 or 40 people.
+- Before I can figure out what he wants, or what I'm looking at, my classmate Pablo enters the room and the class begins; the conversation about whatever is on his phone is over and the matter is never mentioned again.
+- Later, I will think there is some substance on his phone that I have absorbed through the screen.
+
 ## Dreaming of the trumpet teacher
 
 - It is Tuesday in the wee hours, 3am, after a Monday class with the trumpet teacher.

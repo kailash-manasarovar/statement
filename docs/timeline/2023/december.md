@@ -43,7 +43,7 @@
 - Ana Girbes has her beginner's class playing *The Adam's Family* on various percussion instruments.
 - There are about 10 players made up of very young prepubescent children.
 - It should be fun but she looks furious.
-- At home that night, I first see Ana represented as an angry fierce transformer on the trumpet teacher's Google search.
+- At home that night, I first see Ana represented as an angry fierce transformer on the trumpet teacher's Google search results.
 
 ![Ana represented as a transformer](../../content/images/ana-transformer.png)
 
