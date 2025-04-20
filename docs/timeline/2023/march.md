@@ -48,7 +48,7 @@
 - He passes me his phone and asks me something (I can't remember what).
 - I take his phone and see he is on `Booking.com` looking for accommodation in France for about 30 or 40 people.
 - Before I can figure out what he wants, or what I'm looking at, my classmate Pablo enters the room and the class begins; the conversation about whatever is on his phone is over and the matter is never mentioned again.
-- Later, I will think there is some substance on his phone that I have absorbed through the screen.
+- When I remember this strange incident around a year later, I will think the reason for it could be there is some psychoactive substance on his phone that I have absorbed through the screen.
 
 ## Dreaming of the trumpet teacher
 
