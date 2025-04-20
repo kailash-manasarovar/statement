@@ -39,6 +39,13 @@
         - Read it.
     - Were they shift workers working at night, or were they truly around the world.
 
+### Cannabis bar right outside the conservatory
+
+- Sometimes when we are sitting in choir class, the room fills with the smell of cannabis.
+- It's coming from the shop that's just opened right outside the conservatory where 100s of kids and their parents visit every day.
+- I find it strange that the town would allow this.
+- Salva often closes the windows because of the strong smell.
+
 ## Strawberries
 
 - One morning I wake up long before dawn to write a tweet thread about strawberries: https://x.com/1FRGVN/status/1713726935371551010.

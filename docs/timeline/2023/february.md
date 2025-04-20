@@ -118,7 +118,10 @@
 - The inference is supposed to be that Ana has locked away the trumpet teacher's children and so he can't free himself from her to be with me.
 - The lies evolved into Ana is pregnant with his child.
 - The Ana theme was repeated endlessly over fake account messages, and by Ana herself at the conservatory.
-- The lie and their dedication to it was extraordinary. 
+- The lie and the teacher's at the conservatory's dedication to it was extraordinary. 
+- Ana and the other teachers would be lying in wait for me; as I came out of the toilet, as I left a classroom, as I was walking in the street with my friend. They would be ready with an angry word, a contrived expression, a certain activity or way they had dressed that day.
+- It was all so ridiculous and, ironically, had little direct effect apart from me wondering if they were retarded.
+- However, couple this relentless activity with mind-altering substances and it became a constant psychological water-torture that chipped away at my self-assurance and wellbeing.
 - I can only assume they were all having enormous fun terrorizing me. 
 - These were the actions of professional and seasoned gang stalkers and I can only wonder at how many students they have destroyed over the years, and how many of those students were minors, and I also wonder about when the local cyber-stalking porn-gangs realized they could very easily get in on the act.
 
