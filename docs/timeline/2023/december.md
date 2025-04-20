@@ -41,7 +41,7 @@
 - Paqui Fornet insists I attend a concert taking place in the conservatory one evening.
 - I go along.
 - Ana Girbes has her beginner's class playing *The Adam's Family* on various percussion instruments.
-- Her class is made up of a range of young pre-pubescent children.
+- There are about 10 players made up of very young prepubescent children.
 - It should be fun but she looks furious.
 - At home that night, I first see Ana represented as an angry fierce transformer on the trumpet teacher's Google search.
 
