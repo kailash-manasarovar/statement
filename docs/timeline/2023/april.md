@@ -108,7 +108,7 @@
 
 - I think of this again and again throughout 2023 and 2024. 
 - I feel it cannot be wistful, meaningless mind dithering.
-- I'm writing it all down now; everything that comes back to me, and at the perfect moment too.
+- I'm writing it all down now; everything that comes back to me, and at the perfect moment too. It feels like something outside us has been orchestrating everything.
 
 ## Back in chamber music class
 
