@@ -70,6 +70,14 @@
 !!! danger
     - Whatever is going on is showing no signs of stopping, even though I have been terrorized sufficiently to stop my studies at the conservatory.
 
+## Dreaming of the pedophile
+
+- I dream of Winston M.
+- He is wearing a yellow and grey jumper and a white chimney-sweep hat.
+- We are in a kind of makeshift room, like an annex building.
+- There are fold up tables with people sitting at them.
+- He looks at me.
+
 ## Madrid
 
 - I head to Madrid and stay from the 5th to the 11th of May. 
