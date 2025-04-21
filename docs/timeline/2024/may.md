@@ -73,8 +73,9 @@
 ## Dreaming of the pedophile
 
 - I dream of Winston M.
-- He is wearing a yellow and grey jumper and a white chimney-sweep hat.
-- We are in a kind of makeshift room, like an annex building.
+- I don't think I have ever dreamed of Winston M, apart from a few months after the attacks when I dreamed we were in the same house in Plevna Crescent, and I had asked him if I could go to the toilet, and when I went, I wet the bed in real life. I hadn't wet the bed since I was very small.
+- He is wearing a yellow and grey checked jumper and a white chimney-sweep hat.
+- We are in a kind of makeshift wooden room, like an annex building.
 - There are fold up tables with people sitting at them.
 - He looks at me.
 
