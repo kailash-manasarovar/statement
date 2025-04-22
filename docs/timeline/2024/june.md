@@ -48,7 +48,7 @@
     - Shortly afterwards, a man with a small boy stumbled towards me through the station.
     - The man was black and he was wearing a yellow jumper with diamond checks and a cream chimney-sweep hat. 
     - The boy was arabic looking with dark skin.
-    - He was stumbling as he walked, he was very unbalanced. The little boy seemed to be leading him towards me.
+    - The man was stumbling as he walked, he was very unbalanced. The little boy seemed to be leading him towards me.
 
     ![Winston May at Brent Cross](../../content/images/winston-brent-cross.png)
 

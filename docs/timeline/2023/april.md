@@ -177,6 +177,16 @@
     - I tell her I have private medical insurance but she is hugely concerned about a possible future situation in which I would have no cover and need medical assistance.
     - I wonder why.
 
+## Tarot
+
+- I remember the tarot reading from [the summer before in Glastonbury](../2022/july.md#glastonbury).
+- I'm shocked that the Knight of Wands card divination was so precise.
+- I start doing the tarot online.
+- I ask for a card to describe what is happening between myself and trumpet teacher; what does our relationship stand for, or mean?
+- I pull Strength.
+
+![Strength](../../content/images/RWS_Tarot_08_Strength.jpg)
+
 ## Followed on the beach
 
 - I go for a walk on the Las Marinas beach one Sunday afternoon.
