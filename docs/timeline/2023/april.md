@@ -215,7 +215,7 @@
 - Instead, I "bump" into two young girls when my hat flies off and they hand it back to me. I wonder later if the girls pulled my hat off.
 - The two girls, who resembled the two girls I had seen on his facebook page in December, were angry or scared looking.
 - I'm starting to realize now that people involved in the scam are quite often angry and scared. I wonder if that's because they don't really want to be involved in a murderous conspiracy against someone they don't know.
-- I hold my scarf up to the air. It has a picture of a burning sun with a rolling eyes emoji on it, which is curious. 
+- I hold my scarf up to the air. It has a picture of a burning sun with a rolling eyes emoji on it.
 
 ![girls on the beach](../../content/images/girls-on-the-beach.png)
 
@@ -227,7 +227,7 @@
 
 - I knew the trumpet teacher was looking at my tweets, even though he had blocked me. 
 - I was able to see the `@jctot19` tweets on another browser where I was not logged in on my account.
-- I was unaware that many, many people were observing my every move online and knew. I thought it was just him who was looking. 
+- I was unaware that many, many people were observing my every move online. I thought it was just him who was looking. 
 - It's not clear why I wasn't more suspicious about this.
 - Perhaps it was because a weird sort of communication had started up between my account `@1frgvn` and `@jctot19`, an exchange of symbolic romantic messages via tweets, but nothing was ever said directly or in person.
 - I continued to feel sexually aroused, even on the days I never left the house. I tweeted many things to that affect, most of which I deleted on June 12th when I found out I was being stalked by a great many Twitter accounts.
@@ -237,7 +237,7 @@
 
 ![Angry tweet example](../../content/tweets/annoyed.png)
 
-- And even though he was ignoring me in person, on Twitter, via his account, he was suggesting he liked me.
+- And even though he was (apparently) ignoring me in person, on Twitter, via the `@jctot19` account, he was suggesting he liked me.
 - All this was extraordinarily confusing coupled with my state of mind and the constant sexual arousal.
 
 !!! info "Tweet examples related to terror at the conservatory April-June 2023"
