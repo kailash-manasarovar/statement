@@ -171,7 +171,7 @@
 
 - I bought or made t-shirts with him on them and wore them to chamber music class to feel safer.
 - I was truly obsessed with Hanuman; and I still am, but not to the extent I was during 2023.
-- I became a devotee of Hanuman at this time and, by association, Ram.
+- I became a lifelong devotee of Hanuman at this time and, by association, Ram.
 
 !!! tip "Who is Hanuman?"
     - Hanuman is a major player in the Hindu epic the Ramayana.
