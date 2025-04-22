@@ -12,7 +12,7 @@
 - There was no question about that in my mind at the time.
 - About an hour from home, just outside of Valencia on the AP-7, I suddenly start to feel an overwhelming sexual arousal.
 - I had no idea what was causing this but I knew it was to do with the trumpet teacher.
-- The feelings were for him. I was sure of it.
+- My feelings were for him. I was sure of it.
 - I was out of my mind that day with racing thoughts about love and romance. It was extremely intense and destabilizing.
 - I write about this on X about 6 months later: https://x.com/1FRGVN/status/1713726935371551010.
 
@@ -70,23 +70,31 @@
 ## Novena
 
 - Sally told me about Novena prayers so I bought a Novena candle and started to pray.
-- I prayed to Mary to ask her to give me a way to communicate honestly with this man.
-- At that time, I wrote everything down on notes in my computer, including the things I was going to ask for in prayer, and all the things I wanted to happen in my life. 
+- *I asked Mary to undo all the knots in the way of communicating honestly with this man.*
+- At that time, I was writing all my private thoughts down on notes in my computer, including the things I was going to ask for in prayer, and all the things I wanted to happen in my life including my feelings for the trumpet teacher.
 
-!!! danger "Criminal activity"
-    - Given that Domingo the piano teacher and his associates, including his family and teachers and staff at the conservatory, had total access to my online activity, they knew everything that was going on for me privately; all my private desires and wishes, everything I was doing privately and publicly online, and including my prayers to Mary.
-    - It's important to keep this in mind as we go through the events.
+!!! danger "The whole town of Dénia knows everything about me - and who else? - via hacking"
+    - Given that Domingo the piano teacher and his associates, including his family and teachers and staff at the conservatory, had full access to my online activity, they knew everything that was going on for me privately; all my private desires and wishes, everything I was doing privately and publicly online, including the content of my prayers to Mary.
+    - They had seen me masturbating in my hotel room too.
+    - I, of course, have no idea this is happening at that time.
 
-- The Novena is a 9 day prayer. On day 6 or 7, I was searching for his name in Google again, and his Twitter account came up, or so it seemed: `@jctot19`.
-- The larger profile pic certainly looked like it could be him.
+- The Novena prayer is a nine-day prayer. 
+- On evening six or seven of the prayer, I was searching for his name in Google again, ["Vidal Sastre Sanchez Hornero"](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero) and his Twitter account came up in results, or so it seemed: `@jctot19`.
+- The larger profile pic certainly looked like it could very well be him.
 
-!!! info "jctot19: the trumpet teacher's twitter account"
+!!! info "`@jctot19`: the trumpet teacher's twitter account"
 
     ![jctot19](../../content/images/jctot19.png)
 
-- I told my friend what had happened and we were amazed. It was a miracle!
-- I followed his Twitter account and he blocked me immediately.
-- I consequently thought it wasn't his account after all, or maybe he was concerned about being followed by someone with my political views on gender ideology in schools. He was a school teacher after all!
+- The next day I told Sally what had happened. We were amazed. It was a miracle!
+- I followed his Twitter account. 
+- The account blocked me immediately.
+- I consequently thought it couldn't be his account after all, or maybe he was concerned about being followed by someone with my political views on gender ideology in schools. He was a school teacher after all!
+
+!!! tip "More on the `@jctot19` account"
+    - It turned out this account was not run by the trumpet teacher at all, whoever he was.
+    - It was instead a bona fide honey-trap account run by numerous criminal gang members which may have on occasion been the trumpet teacher himself, but on other occasions was most likely Carmen Cano, Domingo Cano's sister, and other Spanish gang members from Dénia.
+    - It was unlikely to have been controlled by anyone else at the conservatory.
 
 ## Expecting to see him in Lourdes
 
