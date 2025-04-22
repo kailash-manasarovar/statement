@@ -156,9 +156,15 @@
 - I subscribed to an Indian TV show of 630-odd episodes about his childhood and his relationship with Ram: https://www.sonyliv.com/shows/sankatmochan-mahabali-hanuman-1700000109.
 - I created little videos that I found delightful and put them on Facebook: https://www.facebook.com/jack.chardwood.3/videos.
 - I put Hanuman music on my phone and alarm clock.
+
+<audio controls>
+  <source src="https://drive.google.com/file/d/1M-7r4KXqDW6-fMtYmDe8GwoIZJhCddjw/view?usp=drive_link" type="audio/mp3">
+  Your browser does not support the audio element.
+</audio>
+
 - I bought or made t-shirts with him on them and wore them to chamber music class to feel safer.
 - I was truly obsessed with Hanuman; and I still am, but not to the extent I was during 2023.
-- I became a devotee.
+- I became a devotee of Hanuman at this time and, by association, Ram.
 
 !!! tip "Who is Hanuman?"
     - Hanuman is a major player in the Hindu epic the Ramayana.
