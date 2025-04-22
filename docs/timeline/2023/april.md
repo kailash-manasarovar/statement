@@ -120,7 +120,7 @@
 
 ## Back in chamber music class
 
-- The next class I had with him on Monday 17th or 24th April (the conservatory was closed on one of these days) he was extremely angry with me for no obvious reason at all.
+- The next class I had with him on Monday 24th April he was extremely angry with me for no obvious reason at all.
 - His anger surprised me and I stared at him. He could not hold my eye contact and looked away.
 - I knew at that moment the `@jctot` account was his. At least, that was my assumption.
 - Was the trumpet teacher angry because he knew I had fallen into a vile trap he could do nothing about?
@@ -210,24 +210,35 @@
 ## Followed on the beach
 
 - I go for a walk on the Las Marinas beach one Sunday afternoon.
-- I'm feeling anxious and I'm constantly thinking about the trumpet teacher.
-- I "bump" into two young girls when my hat flies off and they hand it back to me. I wonder if the girls pulled my hat off.
-- The girls were angry looking. I'm starting to realize how important the fact that people involved in the scam are quite often angry.
-- I hold my scarf up to the air, like Juan Diego. It has a picture of an emoji sun on it.
-- I'm supposed to think these are his daughters. I do think it's a possibility. Not now.
+- I'm feeling anxious and I'm constantly thinking about the trumpet teacher. 
+- I expect to bump into him at any moment. It's not clear why I believe this.
+- Instead, I "bump" into two young girls when my hat flies off and they hand it back to me. I wonder later if the girls pulled my hat off.
+- The two girls, who resembled the two girls I had seen on his facebook page in December, were angry or scared looking.
+- I'm starting to realize now that people involved in the scam are quite often angry and scared. I wonder if that's because they don't really want to be involved in a murderous conspiracy against someone they don't know.
+- I hold my scarf up to the air. It has a picture of a burning sun with a rolling eyes emoji on it, which is curious. 
+
+![girls on the beach](../../content/images/girls-on-the-beach.png)
+
+- I had bought the sarong in Thailand at Christmas.
+- I guess I'm supposed to think these two are his daughters. 
+- I do think it's a possibility at that time.
 
 ## Twitter communications
 
-- I knew the trumpet teacher was looking at my tweets, even though he had blocked me. Back then, this was possible on Twitter.
-- I was looking at his tweets on another browser where I was not logged in.
-- Bear in mind that all this was obvious from the hacker's perspective, someone who is watching my every move online in realtime.
-- I was not aware that many, many people were also observing my every move online. I thought it was just him.
-- A weird sort of communication started up, an exchange of symbolic romantic messages via tweets, but nothing was ever said directly or in person.
-- I continued to feel sexually aroused, even on the days I never left the house. I tweeted many things to that affect, most of which I deleted on June 12th when I found out I was being stalked by so many Twitter accounts.
+- I knew the trumpet teacher was looking at my tweets, even though he had blocked me. 
+- I was able to see the `@jctot19` tweets on another browser where I was not logged in on my account.
+- I was unaware that many, many people were observing my every move online and knew. I thought it was just him who was looking. 
+- It's not clear why I wasn't more suspicious about this.
+- Perhaps it was because a weird sort of communication had started up between my account `@1frgvn` and `@jctot19`, an exchange of symbolic romantic messages via tweets, but nothing was ever said directly or in person.
+- I continued to feel sexually aroused, even on the days I never left the house. I tweeted many things to that affect, most of which I deleted on June 12th when I found out I was being stalked by a great many Twitter accounts.
 - I also tweeted a lot of irreverent comical things related to sexism and the like.
-- I was annoyed that this man had clearly read my extremely personal tweet, and he had told the conservatory what I had written, and yet he was ignoring me. I deleted the tweet shortly after.
+- I was annoyed that this man had clearly read my extremely personal tweet, and that he had told everyone at the conservatory what I had written, and yet he was ignoring me. 
+- Occasionally I tweeted angry messages because it was so frustrating.
+
+![Angry tweet example](../../content/tweets/annoyed.png)
+
 - And even though he was ignoring me in person, on Twitter, via his account, he was suggesting he liked me.
-- It was extremely confusing with my state of mind and the constant sexual arousal.
+- All this was extraordinarily confusing coupled with my state of mind and the constant sexual arousal.
 
 !!! info "Tweet examples related to terror at the conservatory April-June 2023"
 
