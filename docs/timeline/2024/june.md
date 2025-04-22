@@ -41,16 +41,21 @@
 !!! danger "Is this proof that stalkers from Dénia did connect with child sex offenders in North London"
     - During my election campaign, I and a bunch of volunteers would hand leaflets out in North London.
     - On Wednesday 3rd July, I was handing out leaflets at Brent Cross tube station.
-    - Only myself and one other volunteer was with me and we were standing far apart from each other.
+    - One of the volunteers stood very close to me and distracted me all evening with continuous chatter. At one point, she stood extremely close and blocked my view of where people were walking. She was sort of shouting in my ear while I tried to ignore her.
+    - She left and only myself and one other volunteer was with me and we were standing far apart from each other.
     - At some point, I saw a man with a small boy of about 7.
-    - The man was black and wearing a yellow jumper and cream chimney-sweep hat. The boy was arabic looking with dark skin.
+    - The man was black and wearing a yellow jumper with diamond checks and cream chimney-sweep hat. The boy was arabic looking with dark skin.
     - The man was stumbling as he walked, he was very unbalanced, and the little boy seemed to be leading him towards me.
+
+    ![Winston May at Brent Cross](../../content/images/winston-brent-cross.png)
+
     - I saw the man was Winston May, ringleader of the pedophile grooming gang in Tottenham that had raped and abused me repeatedly, and put me in porn, in the summer of 1989.
     - He look like he was out of his mind on drugs.
     - I offered him a leaflet and insisted he took one when he said he already had one. He tried to get away from me as I walked towards him.
     - Later, the volunteer who was with me told me a story that he had been sexually abused as a child when he was 7, in an African country, and that he had seen the abuser again when he was about 16 holding the hand of a young boy.
     - Is this proof that the Dénia criminal porn gangs, obsessed with whatever film they had found of me after reading my statement online which they probably took copies of, and with their UK connections, found ways to continue to terrorize me in London as I was running for election?
     - It's difficult to understand exactly why this event happened, who would benefit, and how the Dénia criminal gangs could not be involved in some way.
+    - Could this event have been the police trying to terrorize me, a rape gang survivor, out of politics?
 
 ### Speech at LWS
 
