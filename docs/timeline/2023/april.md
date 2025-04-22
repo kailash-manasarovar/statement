@@ -193,7 +193,7 @@
 !!! info "Maria is very concerned that I get covered by Spanish public healthcare"
     - Maria was extremely anxious that I got my Spanish medical card.
     - She was overly concerned about this, and brought it up every week until I got my SIP card.
-    - Before that, I tell her I have private medical insurance but she is hugely concerned about a possible future situation in which I would have no cover and need medical assistance.
+    - Before that, I tell her not to worry, I have private medical insurance but she is hugely concerned about a possible future situation in which I would have no cover and need medical assistance.
     - She seems relieved when I tell her I have received my medical card.
     - I wonder why she would be so concerned about this.
 
