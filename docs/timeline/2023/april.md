@@ -67,7 +67,7 @@
     - However, the feelings were so intense, I could not believe, at that time, that Domingo could be behind this too.
     - Sally, unknown to me at the time, was taking notes and reporting back. It is not yet clear to whom.
 
-## Novena
+## The Novena prayer
 
 - Sally told me about Novena prayers so I bought a Novena candle and started to pray.
 - *I asked Mary to undo all the knots in the way of communicating honestly with this man.*
@@ -87,7 +87,7 @@
     ![jctot19](../../content/images/jctot19.png)
 
 - The next day I told Sally what had happened. We were amazed. It was a miracle!
-- I followed his Twitter account. 
+- I followed the Twitter account. 
 - The account blocked me immediately.
 - I consequently thought it couldn't be his account after all, or maybe he was concerned about being followed by someone with my political views on gender ideology in schools. He was a school teacher after all!
 
