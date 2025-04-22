@@ -120,42 +120,49 @@
 
 ## Back in chamber music class
 
-- The next class I had with him he was extremely angry with me for no obvious reason at all.
+- The next class I had with him on Monday 17th or 24th April (the conservatory was closed on one of these days) he was extremely angry with me for no obvious reason at all.
 - His anger surprised me and I stared at him. He could not hold my eye contact and looked away.
 - I knew at that moment the `@jctot` account was his. At least, that was my assumption.
 - Was the trumpet teacher angry because he knew I had fallen into a vile trap he could do nothing about?
 
 ## Dreaming of the trumpet teacher
 
-- Tuesday morning before I wake up, I dream I wake up to see the trumpet teacher in my bed, staring at me.
+- On the Monday night after the class, I dream I wake up to see the trumpet teacher in my bed, staring at me.
 - He says, "Katharine".
-- I turn my back on him. He is not someone I want anything to do with.
+- I turn my back on him. I'm appalled. He is not someone I want anything to do with.
 
 ![PP's husband?](../../content/images/vssh-memory-1.PNG)
 
-- I wake up still obsessed and in love with the trumpet teacher.
+- I wake up even more obsessed and in love with the trumpet teacher.
 
 ## Disclosing child sexual abuse to the trumpet teacher
 
-- A few days later, something got me up in the middle of the night to post a tweet, in Spanish, on my Twitter account that told him I liked him.
-- It was mature and innocuous, and very honest.
-- I explained I had been sexually abused as a child and this made relationships difficult for me.
-- The next chamber music class I went to at the conservatory it felt like EVERYONE knew what I had written; the whole building was hushed.
-- His demeanor towards me was kind in class that day and this was probably the most powerful grooming technique of all because for the first time in my life, on disclosing sexual abuse to someone I cared about:
+- A few days later, something woke me up in the middle of the night to post a tweet, in Spanish, on my Twitter account to tell him I liked him.
+- I must have assumed, or hoped, he would be reading my tweets at that time.
+- It was a mature and innocuous message, and very honest.
+- I explained I had been sexually abused as a child and this made relationships very difficult for me.
+- At the next chamber music class, the following Monday, he was waiting for me at the door.
+- It felt like EVERYONE knew what I had written; the whole building was hushed.
+- His demeanor towards me was soft and kind in class that day and this was probably the most powerful grooming technique of all because for the first time in my life, on disclosing sexual abuse to someone I cared about:
     - I was not judged.
     - I was not hated or attacked (although ironically that was exactly what was happening).
 - When I got home that evening, his Twitter account posted a beautiful picture which felt like it was a response to me.
-- The account `@jctot19` has now deleted most posts from that period, but this is what the account posted and I saw it after class.
+- The account `@jctot19` has now deleted most posts from that period, but this is what the account posted and I saw it after that class.
 
 ![Studio Ghibli](../../content/images/ghibli.png)
 
 - I was extremely high that day, my whole body vibrating in class as usual, something I thought was to do with chemistry between us, and my kidneys were aching as usual after class, and I had to lie down.
-- The picture was like opium to my mind and heart. I was 100% caught in the trap at that moment.
+- The picture was like opium to my mind and heart. 
+- I was 100% caught in the trap at that moment.
 - I texted my friend Sally from Lourdes about all this.
 
-!!! tip "Interestingly"
-    - The cyber-stalking never stopped and there continued to be accounts following me pretending to be him. I never knew if they were really him or not but I played along in any case.
-    - A few of these accounts mentioned Studio Ghibli and I believe they are well aware this was a key to binding my mind into believing the trumpet teacher cared about me.
+!!! tip "The Studio Ghibli tweet"
+    - As the cyber-terrorism continued into late 2023 and on into 2024, numerous fake accounts followed me pretending to be the trumpet teacher.
+    - I never knew if they were really him or not, but I played along in any case.
+    - A few of these accounts mentioned Studio Ghibli and, whenever they did, it was like they were teasing me about me this bear trap snapping shut on me. 
+    - Cyber-terrorists were well aware this picture, coupled with drugging and my disclosure, were the key to fully binding my mind into believing the trumpet teacher cared about me back.
+    - It was very powerful sorcery and I can't imagine young inexperienced girls would be able to escape once targeted.
+    - An example fake account here:
 
     ![Studio ghibli account](../../content/images/fake-accounts/giltrap-1.png)
 
@@ -164,7 +171,8 @@
 
     ![Studio ghibli account](../../content/images/fake-accounts/ghibli-2.png)
 
-    - I believe stalker accounts with reference to this picture are posted to terrorize and humiliate me, but being in love could never be humiliating. It felt wonderful, in fact.
+    - Fake accounts posted references like this to terrorize and humiliate me, but being in love could never be humiliating.
+    - It felt wonderful, in fact, and became an extraordinarily powerful force for good in my life, healing me completely of depression.
 
 ## Maria Hontanilla
 
