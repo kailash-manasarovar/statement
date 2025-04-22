@@ -155,14 +155,7 @@
 - Thinking back, something similar had happened in 2015 in Dénia too.
 - I subscribed to an Indian TV show of 630-odd episodes about his childhood and his relationship with Ram: https://www.sonyliv.com/shows/sankatmochan-mahabali-hanuman-1700000109.
 - I created little videos that I found delightful and put them on Facebook: https://www.facebook.com/jack.chardwood.3/videos.
-- I put Hanuman music on my phone as a ring tone.
-
-<audio controls>
-  <source src="../../../content/sounds/hanuman-alarm-ring.wav" type="audio/wav">
-  Your browser does not support the audio element.
-</audio>
-
-- And I put Hanuman music on my alarm clock which wakes me up, every morning, for over a year.
+- I put Hanuman music on my phone as a ring tone, and I put Hanuman music on my alarm clock which wakes me up, every morning, for over a year.
 
 <audio controls>
   <source src="../../../content/sounds/devotion.mp3" type="audio/mp3">
