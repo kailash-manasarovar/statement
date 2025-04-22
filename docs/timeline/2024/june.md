@@ -63,7 +63,7 @@
     - Had I been receiving subliminal death threats online which triggered a will change?
     - It's difficult to understand exactly why this event happened, who would benefit, and how the Dénia criminal gangs could not be involved in some way.
     - Could this event have been set up by the police themselves; trying to terrorize a rape gang survivor out of politics?
-    - Later, I remember my [dream about Winston M from May](may.md#dreaming-of-the-pedophile).
+    - Later, I remember my [dream from a month previous](may.md#dreaming-of-the-pedophile).
 
 ### Speech at LWS
 
