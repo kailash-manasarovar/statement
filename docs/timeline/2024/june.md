@@ -45,7 +45,7 @@
     - At one point, she stood extremely close and, being a very large lady, she blocked my view of the people walking into the station. She was sort of shouting in my ear at that moment, while I tried to ignore her.
     - It was exaggerated behavior and quite absurd. I was even more suspicious of this woman's intentions.
     - She left and only myself and one other volunteer was with me. We were standing at separate exits, fairly far apart from each other, but I could see him.
-    - At some point, I saw a man with a small boy of about 7 coming from my volunteers direction.
+    - At some point, I saw a man with a small boy coming from my volunteers direction.
     - The man was black and he was wearing a yellow jumper with diamond checks and a cream chimney-sweep hat. 
     - The boy was arabic looking with dark skin.
     - He was stumbling as he walked, he was very unbalanced. The little boy seemed to be leading him towards me.
