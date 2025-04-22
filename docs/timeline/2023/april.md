@@ -176,24 +176,26 @@
 
 ## Maria Hontanilla
 
-- Maria is anxious all the time. This seems to be her natural state. Is she being poisoned?
+- Maria my piano teacher is anxious and distressed, all the time. It seems to be her natural state. 
+- She gets obsessed over small things and talks incessantly about them.
 - She is always wearing a mask and plastic surgical gloves.
 - I guess most people think this is due to ongoing covid fears. I'm not so sure now.
+
+![Maria Hontanilla](../../content/images/maria-h.png)
+
 - One of my classmates thought she was the cleaner.
-- Maria constantly complains about Paqui. She says she is a "bicho raro" and describes how Paqui is always terrorizing her in some way. I wonder if Paqui is being abused by her husband who seemed like a very unpleasant man [when he came into the boat club and glared at everyone](march.md#choir-rehearsal-at-the-boat-club).
+- Maria constantly complains about Paqui Fornet Pastor. She says she is a "bicho raro" and describes how Paqui is always terrorizing her in some way.
+- I wonder if Paqui is being abused by her husband who seemed like a very unpleasant man [when he came into the boat club and glared at everyone](march.md#choir-rehearsal-at-the-boat-club).
+- Maria is extremely stressed about her assigned classes for the next school year from the Generalitat.
+- She keeps telling me how she is probably going to get a job at the superior conservatory in Valencia, and work just a few hours in the mornings.
+- Knowing what I know now, it seems to me this would require some "enchufe", meaning a level of benevolence from those who can pull strings.
 
-!!! info
-    - I now wonder if Paqui, and all the stalking ringleaders, make their intentions to destroy someone very plain.
-    - I wonder if Maria was referring to Paqui's expressed desire that I kill myself, perhaps.
-
-- Anyway, around this time, Maria is very stressed about the next year's assigned work from the Generalitat and keeps talking about how she is probably going to get a job at the superior conservatory in Valencia.
-- Knowing what I know now, it seems to me this would require some "enchufe", meaning a level of benevolence from those who can pull strings; i.e. Domingo.
-
-!!! info "Supplemental"
-    - Maria has been extremely stressed with regards to me getting my Spanish medical card.
-    - She is overly concerned about this with me, week on week.
-    - I tell her I have private medical insurance but she is hugely concerned about a possible future situation in which I would have no cover and need medical assistance.
-    - I wonder why.
+!!! info "Maria is very concerned that I get covered by Spanish public healthcare"
+    - Maria was extremely anxious that I got my Spanish medical card.
+    - She was overly concerned about this, and brought it up every week until I got my SIP card.
+    - Before that, I tell her I have private medical insurance but she is hugely concerned about a possible future situation in which I would have no cover and need medical assistance.
+    - She seems relieved when I tell her I have received my medical card.
+    - I wonder why she would be so concerned about this.
 
 ## Tarot
 
