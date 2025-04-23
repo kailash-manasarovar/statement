@@ -1,37 +1,52 @@
 ## Chamber music concert
 
-- The trumpet teacher tells me that Pablo and I have to do a concert.
-- It is originally arranged for the Casa de Cultura in the town, but then somehow it changes and it's going to be in the conservatory instead.
-- I'm clear that I do not want to do this, and it is obvious he knows why (bullying). But I have to agree because it is a requirement of the course.
-- On the day of the concert, there are myself and Pablo, and the autistic girl and the guitarist performing, and a few parents.
-- As I'm walking around to room 5 where the concert will take place in the conservatory building, Ana Girbes asks me, "are you alright?". I have no idea why she would ask me this.
+- A small concert is arranged. 
+- We will play [Misty](march.md#piano-classes) and another rehearsal tune.
+- The thought of everyone coming to a concert where myself and the trumpet teacher are in the same room, and with everything that's happened so far; the constant bullying, my feelings for him, how my whole body vibrates whenever I'm with him, the whole conservatory knowing something of my child sexual abuse history, because he told them, and him not speaking to me about any of it. It's all too much. 
+- I'm clear with the trumpet teacher that I do not want to do it, but I have to agree because it is a requirement of the course.
+- It feels like a set up; a trap. I'm right about this with no details.
+- The concert is originally arranged for the [Casa de Cultura](https://www.denia.com/casa-de-cultura/) in the town.
+- After my groans of complaint, the venue somehow changes and the concert will take place at the conservatory instead. 
+- Myself and Pablo, and the autistic girl and her guitarist partner turn up to play.
+- I am, as usual, euphoric, anxious, and high.
+- We wait in the trumpet teaching room while he goes out (and conspires with the other teachers).
+- When it's time to set up, we all walk around to the concert room 5 at the conservatory.
+- Ana Girbes is standing outside her room which is on the way.
+- As I pass her, she asks me loudly, "Are you alright?". 
+- It's incongruous.
+- I have no idea why she would ask me this.
 
-!!! danger "Critical update of 5th December 2024"
-    - Domingo will have requested her to say this to me.
-    - This was part of my police statement to the police in 2014 and Domingo and his associates will suspect this will upset me.
-    - There are more of these events.
+!!! danger "Teachers repeat phrases from my police statement"
+    - Someone told her to say this to me as I walked past her and she did as she was told.
+    - This came from my [police statement to the police in 2015](../early-years/2015.md#statement-to-the-metropolitan-police) in which I detailed clear memories from that time, including things people had said to me.
+    - This phrase, specifically, was something an old school friend had said to me when I was in a traumatized freeze state after smoking pot. 
+    - I didn't know my police statement was being read by the original British porn and prostitution gangs themselves, and their Spanish counterparts in Dénia, and that a repeat of everything that had happened to me when I was 16 was being organized and choreographed for 2023.
+    - On the run up to the 12th June 2023, when I was supposed to have been so terrorized I would leave my studies at the conservatory and never come back, these triggering events became more frequent.
+    - We can only guess at what was originally intended for me beyond 12th June 2023.
 
-!!! danger "Critical update of 5th December 2024"
-    - Just after posting this update. Commit no: [2370a8d](https://github.com/kailash-manasarovar/statement/commit/2370a8dc918f1d6d6a7b6ce3c9c3765965e03275) I feel like tweeting it so I do: https://x.com/1FRGVN/status/1864692459860893752
-    - Immediately, no more than a minute later: 
+!!! danger "Further confirmation in December 2024?"
+    - Just after posting this update: commit no: [2370a8d](https://github.com/kailash-manasarovar/statement/commit/2370a8dc918f1d6d6a7b6ce3c9c3765965e03275), I feel like tweeting it so I do: https://x.com/1FRGVN/status/1864692459860893752
+
+    ![police statement tweet](../../content/tweets/police-statement.png)
+
+    - A few moments later: 
 
     ![are you okay](../../content/images/are-u-okay.png)
 
-- As we are preparing, Ana Requena comes in significantly dressed up to the nines to put her instrument somewhere, same old weirdness, in a different room.
+- As we are setting up the concert, Ana Requena comes in again with her instrument, this time dressed up like she's going out; same old contrived weirdness.
 - The trumpet teacher flirts with me outrageously in public. I flirt back. It's quite amusing.
-- I remember I have cause to say, after he asks me about my surname and just after Ana has been in, that "Katharine is sufficient," and he giggles.
-- At one stage, our eyes lock, and there is a powerful and unDéniably reciprocal sexual attraction which is rather overwhelming to both of us.
+- I remember I have cause to say, after he asks me about my surname, and just after Ana has been in, that "Katharine is sufficient," and he giggles. He primes this, of course.
+- At one stage, our eyes lock, and there is a powerful and undeniably reciprocal sexual attraction which is rather overwhelming to both of us.
 - The trumpet teacher heads to the back of the room, with his back to us, humming gently, for about 5 minutes, to collect himself.
-- I sit as far away from him as possible in the room, and he gives me a wide birth too.
-- I tweet about this later on, and other stuff as I tell my story on Twitter: https://x.com/1FRGVN/status/1759770318409695275.
+- I sit as far away from him as possible in the room. I don't look at him, and he gives me a wide birth too.
+- The sexual arousal I have for this man is overpowering.
+- I tweet about this later on, and other key evidence as I tell my story on X: https://x.com/1FRGVN/status/1759770318409695275. 
+- Eventually the concert begins and is successful, although I hear the trumpet teacher instructing Pablo to mess up on the Misty tune.
 
-!!! important
-    - It's key to remember that this was the first man I had had any sexual feelings for since 2011.
-    - Even though those feelings were mostly manipulated and manufactured, there was something real there, although it's not clear how much.
-    - It was overwhelming.
+![Chamber music concert](../../content/images/chamber-music-concert.png)
 
-!!! tip
-    - The two Ana's (violin teacher and musical language teacher) make a great deal of pretending Ana the violin teacher is terribly jealous and angry with me for posting this information on Twitter later on in the year.
+- It's interesting to see how much of the conspiracy I had figured out by February 2024 when I posted this and that I still hadn't realized I was being drugged continuously.
+- The two Ana's (violin teacher and musical language teacher) make a great fuss of pretending that Ana the violin teacher is terribly jealous and angry with me for posting this information on X in February 2024.
 
 ## International choir concert
 
