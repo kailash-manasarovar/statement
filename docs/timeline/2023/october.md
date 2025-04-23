@@ -152,6 +152,7 @@
 - Prior to arriving, John has appeared a little fearful and wanted to go and find the tail I had lost from my cow costume. He said, "why don't you come with me Katie". What was he afraid of?
 - The others lead the way and we end up in the Irish bar on the Calle La Mar.
 - Once inside, we "bump into" this very dodgy French bloke who says he studies guitar at the conservatory and wants to know things about me. 
+- I turn to Alex and say; "Sometimes it takes an outsider".
 - A young man with him dressed as the joker is quite menacing towards me.
 - I sing a song, a cockney song, You Made Me Love You, which blows their minds a little.
 - Alessandra tells me later, a few times, that the French man had wanted to know about Halloween in 2007 and whether I had a ukelele and had sung Back to Black.
