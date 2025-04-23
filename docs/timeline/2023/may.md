@@ -17,12 +17,13 @@
 - I have no idea why she would ask me this.
 
 !!! danger "Teachers repeat phrases from my police statement"
-    - Someone told her to say this to me as I walked past her and she did as she was told.
-    - This came from my [police statement to the police in 2015](../early-years/2015.md#statement-to-the-metropolitan-police) in which I detailed clear memories from that time, including things people had said to me.
+    - Someone told Ana to say this to me as I walked past her, and she did as she was told.
+    - This came directly from my [police statement to the police in 2015](../early-years/2015.md#statement-to-the-metropolitan-police) in which I detailed clear memories from that time, including things people had said to me.
     - This phrase, specifically, was something an old school friend had said to me when I was in a traumatized freeze state after smoking pot. 
     - I didn't know my police statement was being read by the original British porn and prostitution gangs themselves, and their Spanish counterparts in Dénia, and that a repeat of everything that had happened to me when I was 16 was being organized and choreographed for 2023.
     - On the run up to the 12th June 2023, when I was supposed to have been so terrorized I would leave my studies at the conservatory and never come back, these triggering events became more frequent.
     - We can only guess at what was originally intended for me beyond 12th June 2023.
+    - Whatever it was, my actions ensured it didn't happen, and teachers and staff at the conservatory had to double down and continue terrorizing me on into the following study year.
 
 !!! danger "Further confirmation in December 2024?"
     - Just after posting this update: commit no: [2370a8d](https://github.com/kailash-manasarovar/statement/commit/2370a8dc918f1d6d6a7b6ce3c9c3765965e03275), I feel like tweeting it so I do: https://x.com/1FRGVN/status/1864692459860893752
@@ -45,7 +46,7 @@
 
 ![Chamber music concert](../../content/images/chamber-music-concert.png)
 
-- It's interesting to see how much of the conspiracy I had figured out by February 2024 when I posted this and that I still hadn't realized I was being drugged continuously.
+- It's interesting to see how much of the conspiracy I had figured out by February 2024 when I posted this, it wasn't much. I still hadn't realized I was being drugged continuously.
 - The two Ana's (violin teacher and musical language teacher) make a great fuss of pretending that Ana the violin teacher is terribly jealous and angry with me for posting this information on X in February 2024.
 
 ## International choir concert
