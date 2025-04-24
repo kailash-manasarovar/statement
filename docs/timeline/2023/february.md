@@ -179,7 +179,7 @@
 ## Silvia
 
 - People keep saying a name so that I can hear it, Silvia.
-- Maria and Porsche say it meaningfully and look at me closely at piano class.
+- Maria and Mercedes say it meaningfully and look at me closely at piano class.
 - I hear the name everywhere, I don't know why.
 
 !!! info "Who is Silvia?"

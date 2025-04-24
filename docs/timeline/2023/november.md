@@ -155,7 +155,7 @@ Many of these tweets are confirmation of what has been going on.
 - https://x.com/1FRGVN/status/1724176144633610597 -> response to a lot of hacker activity.
 - https://x.com/1FRGVN/status/1723295242957328485 -> commentary on the stalking. Season 1 is 2014. Season 2 is up to June 12 2023. Season 3 is ongoing. These sorts of posts probably really wound them up.
 - https://x.com/1FRGVN/status/1722879891593375965 -> another annoying one.
-- https://x.com/1FRGVN/status/1721197950951477588 -> reference to Porsche.
+- https://x.com/1FRGVN/status/1721197950951477588 -> reference to Mercedes.
 - https://x.com/1FRGVN/status/1721133303716057526
 - https://x.com/1FRGVN/status/1721087990095630838
 - https://x.com/1FRGVN/status/1720741073004245379 -> curiously, Elon posts a violin player (Ana) playing over piano music (me).

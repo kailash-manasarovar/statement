@@ -49,22 +49,27 @@
 - It's interesting to see how much of the conspiracy I had figured out by February 2024 when I posted this, it wasn't much. I still hadn't realized I was being drugged continuously.
 - The two Ana's (violin teacher and musical language teacher) make a great fuss of pretending that Ana the violin teacher is terribly jealous and angry with me for posting this information on X in February 2024.
 
-## International choir concert
+## Concert de Orfeo de Dénia
 
-- I went to the [international choir concert](https://www.denia.com/el-orfeo-de-denia-celebra-sus-40-anos-con-un-emotivo-concierto-que-unio-varias-generaciones-de-coristas/) and met all my old pals. 
-- Here's a picture of the event from the local online press.
+- The choir I used to sing in, the Orfeo de Dénia, gave a [concert to celebrate 40 years of activity](https://www.denia.com/el-orfeo-de-denia-celebra-sus-40-anos-con-un-emotivo-concierto-que-unio-varias-generaciones-de-coristas/).
+- Mercedes had told me about it at my piano classes.
+- I went along and met some of my old pals. It was really wonderful to see them again.
 
 ![The international choir concert](../../content/images/coro-con-klari.webp)
 
-- [Paqui Fornet Pastor](../../crimes/protagonists.md#paqui-fornet-pastor) was there, my last piano teacher at the conservatory, someone very much involved in the bullying although I couldn't have known that at the time.
-- It was a concert where all the old members were invited to go and sing again.
-- Porsche had told me about it.
-- I met some of my old friends in the choir and it was really wonderful to see them.
-- I saw Klara Sarkadi and we chatted for a while. She spoke to me in a concerned way. She seemed nervous. 
-- Looking back, Klari's demeanor spoke volumes about her close relationship to Domingo and what she knew was going on for me at that time.
+- [Paqui Fornet Pastor](../../crimes/protagonists.md#paqui-fornet-pastor) was there, my final piano teacher at the conservatory when I eventually left in fear of my life in March 2024; someone very much involved in the conspiracy and gang-stalking although I couldn't have known that at the time.
+- I saw Klara Sarkadi, the choir master, for the first time in nearly 10 years and we chatted for a while. 
+- She spoke to me in a concerned way. She seemed nervous. Her mouth was dry and she kept tripping up on her words.
+- Klara Sarkadi is a good friend of Domingo Cano. She has known him for years. She would ask me about him, what I thought of him and similar, back in [2014 when I first had classes with him](../early-years/2014.md#first-piano-class-at-the-end-end-of-september). I didn't realize she was reporting back.
+- Klara has more recently been studying to be an orchestral conductor at the superior conservatory of Alicante.
+
+![Klara Sarkadi linkedin](../../content/images/klara-sarkadi.png)
+
+- One wonders how she managed to get all that ['enchufe'](https://crossidiomas.com/tener-enchufe/) in the conservatory system? The same public school system which is actively sexually grooming students and attempting to murder anyone who complains.
+- Looking back, Klari's demeanor towards me at that time spoke volumes about her close relationship to Domingo and what *she knew* was going on for me at that time.
 - I got home that evening and got Covid.
 - I was in bed for about 3 days.
-- It battered my kidneys. I was really worried about my kidney health.
+- Covid battered my kidneys. I was really worried about my kidney health.
 - When I managed to get out of bed, the weird communication with the trumpet teacher continued on Twitter.
 
 ## Conservatory choir concert

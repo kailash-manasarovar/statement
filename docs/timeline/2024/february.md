@@ -45,11 +45,11 @@
 - It seems sensible to have some formal documentation on record and so I email the Generalitat Valenciana in Alicante, details given by the previous brief response I received in January:
     - [Another complaint in English](../../content/documents/emails/feb-10-email-to-alicante-en.pdf).
     - [Another complaint in Spanish](../../content/documents/emails/feb-10-email-to-alicante-es.pdf).
-    - [Proof of sending via email](../../content/documents/emails/receipt-of-feb-email.pdf) -> this includes an extra short email I wrote about my concerns that Porsche would lie about me and proof that was sent also.
+    - [Proof of sending via email](../../content/documents/emails/receipt-of-feb-email.pdf) -> this includes an extra short email I wrote about my concerns that Mercedes would lie about me and proof that was sent also.
 
 ## The conservatory knows about my correspondence to the Generalitat
 
-- When I go to the conservatory the following week, it is very clear that everyone knows what I have said in the email I sent to the Generalitat at the weekend, particularly with regards to Porsche, who is crying and moaning at reception with Gloria about something.
+- When I go to the conservatory the following week, it is very clear that everyone knows what I have said in the email I sent to the Generalitat at the weekend, particularly with regards to Mercedes, who is crying and moaning at reception with Gloria about something.
 - It feels, again, set up and contrived.
 - No one speaks to me about anything.
 

@@ -27,7 +27,7 @@
 
 - Every day, in the morning and around lunchtime, a couple of cars will drive by and beep their horns when they're level with my apartment.
 - One of the cars looks like the same car as was [lingering outside my flats in February](january.md#threatening-men-outside).
-- One of the cars was a grey Porsche sedan, or similar, sporty.
+- One of the cars was a grey Mercedes sedan, or similar, sporty.
 
 ## Climbing the Montgo
 
