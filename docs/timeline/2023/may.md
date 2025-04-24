@@ -77,7 +77,9 @@
 - I was probably still infectious but I went to the conservatory choir concert nevertheless.
 - I went masked up.
 - I was thinking, with all this Twitter communication, he must talk to me, so I will go.
+- I saw him in the audience.
 - He didn't talk to me.
+- Nacho the clarinet teacher, close friend of Domingo Cano, stares at me and laughs like a hyena.
 - I was angry and posted an angry tweet about Domingo and his group of followers, and how it is extremely weird that the adult men are hanging out with 14 year old girls, that it's appalling he's able to get them to bully the choir teacher, etc.
 - I tweeted that Domingo is "probably a trans woman".
 - It really was my only transgression in all of this, but I was really angry. It was the only thing I felt at all guilty about, and only a tiny weeny bit. I was really only concerned that it might have upset Concha because I had mentioned her (not by name, no one by name).
