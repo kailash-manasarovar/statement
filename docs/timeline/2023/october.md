@@ -46,6 +46,12 @@
 - I find it strange that the town would allow this.
 - Salva often closes the windows because of the strong smell.
 
+## October 7th 2023
+
+- I'm on Twitter all morning seeing posts from Israel.
+- It's like I'm there.
+- Everything changes at that moment.
+
 ## Strawberries
 
 - One morning I wake up long before dawn to write a tweet thread about strawberries: https://x.com/1FRGVN/status/1713726935371551010.
