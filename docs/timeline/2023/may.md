@@ -80,13 +80,24 @@
 - I saw him in the audience.
 - He didn't talk to me.
 - Nacho the clarinet teacher, close friend of Domingo Cano, stares at me and laughs like a hyena.
-- I got home angry.
-- I posted an angry tweet about Domingo and his little group of followers; how it is extremely weird that adult men are hang out with 14 year old girls, that a male teacher can get his group of little girls to bully another teacher in their own class.
-- I tweeted that Domingo is "probably a trans woman".
+- I arrive home angry.
+- I post an angry tweet about Domingo and his little group of followers; how it is extremely weird that adult men are hanging out with 14 year old girls, that a male teacher can get this group of little girls to bully another teacher in their own class, and other things.
+- I tweet that Domingo is "probably a trans woman".
 - It really was my only transgression in all of this, but I was really angry.
-- It was the only thing I ever felt at all guilty about, in three years of psychological, sexual, and emotional torture, and only a tiny weeny bit.
+- In fact, it was the only thing I ever felt at all guilty about, in three years of psychological, sexual, and emotional torture, and only a tiny weeny bit.
 - I was really only concerned that my tweet might have upset Concha because I had mentioned her (not by name).
 - I deleted the tweet on June 12th.
+
+## Next class at the conservatory
+
+- When I went back to the conservatory for chamber music class the next Monday, the whole atmosphere had changed again.
+- Gloria threw her hands up at me at reception angrily.
+- I felt a coldness towards me I had not felt before.
+- It was obvious everyone knew what I had said on X about Domingo.
+- In my mind, I thought the trumpet teacher must be telling everyone what I had said. I believed he was the only person reading at my tweets!
+- It was all very disconcerting, and yet the physical vibrations got even stronger in class.
+- I tried to ask him if he felt it too. I couldn't.
+- I was out of my mind.
 
 ## Possums
 
@@ -101,16 +112,6 @@
 - Since October 2024, no possums.
 - Given hackers have root access to all my devices, they have been able to manipulate my X timeline, and other social media accounts, directly. 
 - I suspect there is a specific piece of software developed precisely for this purpose that law enforcement, if they were ever interested in protecting women and children, would find examples of on all my devices.
-
-## Next class
-
-- When I went back to the conservatory for chamber music class the next Monday, the whole atmosphere had changed.
-- Gloria threw her hands up at me at reception angrily.
-- It was obvious everyone knew what I had said on Twitter.
-- I thought the trumpet teacher must be telling everyone what I had said.
-- It was all very disconcerting, and yet the physical vibrations got even stronger in class.
-- I wanted to ask him if he felt it too.
-- I was out of my mind.
 
 ### Harmony class that week
 
