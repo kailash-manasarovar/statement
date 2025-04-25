@@ -1,3 +1,26 @@
+## Acupuncture with Thao Qi
+
+- The [acupuncturist](https://www.thaoqi.com/) I spoke to in [February](february.md#mental-state-and-health-concerns), when I became extremely concerned about my health, is back in Dénia.
+- We arrange sessions to start this month.
+- When I visit, she is surprised at the poor state of my pulses, especially my kidneys and tells me my right kidney is practically dead.
+- I explain that I've had some recent stresses, and my abuse history, and to expect my pulses to be weak due to this.
+- I don't trust her. Something's not right.
+- She only takes cash.
+- When I tell her I work in crypto, she grins that grin.
+- In one session, I have a 20 euro note in my phone jacket. It is not there when I look for it later.
+- When I'm on the table, I have the sensation she takes my bag out of the room and photographs my bank cards.
+- I do not bring my bag or wallet to sessions again.
+- She gives me a pad and instructs me to take it home and write down my feelings on it. I don't.
+- She insists I bring the pad back.
+- I say things that make her surprised at my intuition and awareness.
+- I tell her I believe I'm going to have a boyfriend soon.
+
+### I see Thao at the beach
+
+- On one of my Sunday walks this month, I see Thao at the beach sitting in the spot I usually stop at.
+- It feels contrived, a set up, so I ignore her and walk home instead.
+- I never see her at the beach again.
+
 ## Chamber music concert
 
 - A small concert is arranged. 
@@ -154,17 +177,6 @@
 - Did Adria know or suspect I was being drugged/poisoned at home, and was he remarking on it?
 - Had my tweet about Domingo being a 'trans woman' made everyone at the conservatory more open about their hatred and violent intentions towards me?
 - Was that the instruction from above? For everyone to "treat the bitch extremely badly from now on"?
-
-## Acupuncture with Thao Qi
-
-- Acupuncture sessions started this month and the therapist is surprised I'm even alive from the state of my pulses, especially my kidneys.
-- I explain that I've had some stress and my abuse history.
-- I don't trust her. Something's not right with her.
-- When I tell her I work in crypto, she grins that grin.
-- I think she steals some paper money I have put in my mobile phone.
-- When I'm on the table, I have the sensation she takes my bag out of the room and photographs my bank cards.
-- I say things that make her surprised at my intuition and awareness.
-- I tell her I believe I'm going to have a boyfriend soon.
 
 ## TEB with Robin Sullivan
 
