@@ -16,7 +16,7 @@
 - I now believe the trumpet teacher's name is Paco Sendra, the married man [Hazel Smith told she was having an affair with](../early-years/2007.md#hazel-smith) back in 2007.
 
 !!! tip "Correction"
-    - Paco Sendra is clearly not the man's name as this is the name of a famous footballer. Possibly Hazel Smith would not have known that at the time.
+    - Paco Sendra is most likely not the man's name as this is the name of a famous footballer. Possibly Hazel Smith would not have known that at the time.
     - This really is a long game isn't it.
 
 ## Max Power
@@ -75,3 +75,10 @@
 - I realize they are going to do nothing for me, as usual, so I let them leave. They were trying to get away from the minute we started to speak. They stayed 20 minutes.
 
 ![We don't care](../../content/images/we-dont-care.png)
+
+## Seeking asylum in another country
+
+- I am clearly unsafe in the United Kingdom as well as Spain and France, and especially in North London where my family live.
+- I access the Israel website for asylum seekers and try to make an application.
+- My web access is continuously blocked.
+- I give up.
