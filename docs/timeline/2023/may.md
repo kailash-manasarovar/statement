@@ -113,31 +113,49 @@
 - Given hackers have root access to all my devices, they can manipulate my X timeline, and other social media accounts, directly. 
 - I suspect there is a specific piece of software developed precisely for this purpose that law enforcement - if they were ever interested in protecting women and children - would find examples of on all my devices.
 
-## Harmony class that week
+## Harmony class the week after my first explosive tweet
 
-- I used to walk from the conservatory to the tunnel after harmony class with Samuel Viciano Herranz on the way home. We did that every class that school year 2022-2023.
-- We would chat about stuff. His English was good.
-- You may remember I told you he had been studying singing at [Javea conservatory](../2022/september.md#harmony) and had changed to do piano and study with Domingo and it was never really clear why. His singing voice was great and he was too old to be studying piano again.
-- He was planning on becoming an English teacher. He kept telling me about the English teacher's course he was going to do over the summer online.
+- After every harmony class, Samuel walked part of the way home with me and we chatted in English. 
+- Samuel was planning on being an English teacher.
+- You may remember I told you he had been studying singing at [Javea conservatory](../2022/september.md#harmony) and had changed to study piano with Domingo instead and it was never really clear why. 
+- His singing voice was great and he was too old to be studying piano again.
+- Whenever I asked him about why he had changed studies, he didn't really have a solid reason and instead sounded like he felt he was wasting his time. There was a sense of not really having any choice in the matter also.
+- Nevertheless, he was really excited about becoming an English teacher. He kept telling me about the English teacher's course he was going to do over the summer online.
 - He took pains to tell me how embarrassed he was his parents had paid for it.
 
 !!! danger "Back handers?"
-    - I really do wonder who paid for it now.
-    - Did Samuel rearrange his whole life at Domingo's request so he could sit by me and talk to me in English every week at class.
-    - Did Samuel require something in return for doing that.
+    - Who paid for Samuel's online English teaching course? Was it really his parents?
+    - Or did Samuel rearrange his whole life at Domingo's request so he could sit by me and talk to me in English every week at class, and on the way home, and report back.
+    - Was he being well paid for his services to the local porn industry?
+    - Would he have been able to refuse such a request safely?
 
-- On this particular evening, we walked home together and he constantly texted on his WhatsApp, as if he was repeating everything I said to someone. Domingo of course.
-- He also mentioned, bizarrely and repeatedly, a black man in a TV show and I believe he was referring to the `@AllyBrisket` account and suggesting it was Domingo.
+- On this particular evening, the first harmony class after I called Domingo a 'trans woman' on X, we walked home together.
+- He was firing questions at me. He mentioned smoking pot, drugs, raving. He talked about how there were drug dealers everywhere. It was all most incongruous.
+- Samuel had his phone in his hand, and any time I said anything, he stopped and typed something into a WhatsApp chat.
+- It was as if he was repeating everything I said to someone. Domingo of course, his piano teacher.
+- He also mentioned, bizarrely and repeatedly, a black man in a UK TV show and I believe he was referring to the `@AllyBrisket` account and suggesting it was Domingo.
+- Did Samuel know that a person under the influence of certain psychoactive substances would understand suggestions like these in an exaggerated way?
 
-!!! danger "Did the harmony teacher know I was being poisoned at home"
-    - One class this month, the harmony teacher was marking homework. Only myself and Sofia Matyash Piyankova were at class.
-    - The teacher, Adria Gil, was erratic and bizarrely behaved, as usual.
-    - As he was marking my homework, he announced very loudly, "What happened Katharine? Usually your homework is really good but this is terrible, it's like it's not you. Were you angry?" (which was a piss-take thing to say).
-    - I thought about it and I usually made tea and sat down to do my homework on a Sunday evening. I even remember this occasion as me not being able to get my thoughts straight at all and finding it very hard to concentrate and link ideas and chords.
-    - I had to work on the keyboard visually as I wasn't able to imagine in my mind the keys, which was something I had no trouble with all my life.
-    - I now wonder if Adria Gil knew I was being drugged/poisoned at home and was remarking on it.
+### Did the harmony teacher know I was being poisoned at home?
 
-## Acupuncture
+- In one of the last classes in May, the harmony teacher was marking homework. 
+- Only myself and one other student, Sofia, were there.
+- The teacher, Adria Gil, was erratic and bizarrely behaved, as usual.
+- As he was marking my homework, he announced very loudly, "What happened Katharine? Usually your homework is really good but this is terrible, it's not like you at all."
+- He says, "Were you angry?", and laughs.
+
+![Gene Hackman](../../content/images/gene-hackman.png)
+
+- He says all this again and again.
+- He was right, there was something extremely off about this particular piece of homework compared to the others.
+- I thought about it and I remembered making tea and sitting down to do my homework, as usual, on a Sunday evening. 
+- I remembered this occasion very well because I was not able to get my thoughts straight about anything at all. I was finding it very hard to concentrate and link ideas to keys and chords. It was like I had to push through a solid wall to get any thought about music to make sense. I was constantly going back and forth to the keyboard to check my work.
+    - I had to keep going to the keyboard as I wasn't able to visualize the keys; something I had no trouble with all my life.
+- Did Adria know or suspect I was being drugged/poisoned at home, and was he remarking on it?
+- Had my tweet about Domingo being a 'trans woman' made everyone at the conservatory more open about their hatred and violent intentions towards me?
+- Was that the instruction from above? For everyone to "treat the bitch extremely badly from now on"?
+
+## Acupuncture with Thao Qi
 
 - Acupuncture sessions started this month and the therapist is surprised I'm even alive from the state of my pulses, especially my kidneys.
 - I explain that I've had some stress and my abuse history.
