@@ -140,7 +140,7 @@
 
 - In one of the last classes in May, the harmony teacher was marking homework. 
 - Only myself and one other student, Sofia, were there.
-- The teacher, Adria Gil, was erratic and bizarrely behaved, as usual.
+- The teacher, [Adria Gil](../2022/september.md#harmony), was erratic and bizarrely behaved, as usual.
 - As he was marking my homework, he announced very loudly, "What happened Katharine? Usually your homework is really good but this is terrible, it's not like you at all."
 - He says, "Were you angry?", and laughs in a jeering manner.
 
