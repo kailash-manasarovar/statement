@@ -178,18 +178,26 @@
 - Had my tweet about Domingo being a 'trans woman' made everyone at the conservatory more open about their hatred and violent intentions towards me?
 - Was that the instruction from above? For everyone to "treat the bitch extremely badly from now on"?
 
-## TEB with Robin Sullivan
+## TEB with Robin
 
-- I do Transformational Touch therapy with Robin Sullivan, the therapy that I do myself and have been learning in Ireland with Stephen Terrell, and I explain to her how I've been feeling, about this man, and my feelings for him.
+- I book a number of Transformational Touch therapy sessions with Robin Sullivan.
+- Transforming the experienced-based brain, or [TEB](https://www.austinattach.com/transforming-the-experience-based-brain/), is the therapy that I have been learning in Ireland and online with Stephen Terrell since 2020.
+- I explain in detail to Robin how I've been feeling, about this man, and my feelings for him.
 - I detail the intensity of it, and also my kidney problems and when they began.
-- I explain how I have never felt this way in my life. She remains unconvinced and says let's leave that to one side.
+- I explain how I have never felt this way in my life about someone.
+- She remains unconvinced and says let's leave that to one side.
 - I am clearly out of my mind.
-- She can corroborate all this.
-- During one of my sessions with Robin, he phones me during the session, a missed call which I return.
+- During one of my sessions with Robin, he phones me during the session.
+- It's a missed call which I return.
 - When I speak to him he is taking the piss. He keeps talking about having "double sessions" because he missed so many classes, but it is in an extremely weird way (pervy even) and he is trying not to laugh as if he has an audience.
 
 !!! danger "Double sessions"
     - Looking back, this sort of thing suggests that indeed they are sedating me and coming into my flat to sexually assault me, film it, and monetize it on porn networks.
+    - Does 'double session' refer to more than one man involved?
+
+- I usually book these therapy session to take place on the Monday before a chamber music class, mainly to calm my nerves and anxiety about going.
+- After one Monday evening when there is both a TEB session and a chamber music class, I wake the following morning and I have a small bolus faeces in my knickers.
+- I report this to Robin, and other TEB practitioners when I am in Ireland in June.
 
 ## Twitter
 
