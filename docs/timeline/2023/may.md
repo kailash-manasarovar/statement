@@ -211,12 +211,13 @@
 ![Man with headphones](../../content/tweets/man-with-headphones.JPG)
 
 - [The Lives of Others](https://en.wikipedia.org/wiki/The_Lives_of_Others) is about the secret police listening into residents' lives in East Germany during the Cold War. The irony was lost on me at the time.
+- The tweets below were part of the screenshot I took and didn't bother to edit. They were not related to the Lives of Others tweet.
 
 ### Translated threats
 
-- It just occurred to me to look up the translation of the tweets above; time of writing 25th April 2025.
+- It just occurred to me to look up the translation of the other tweets above; time of writing 25th April 2025.
 - Notice the translation of '10' into something rather sinister.
-- These sorts of rewritten-UI threats have been ongoing on X, and elsewhere, while British and Spanish criminal gangs have had access to my machines and are upset their evil is backfiring on them.
+- These sorts of rewritten-UI threats have been ongoing on X, and elsewhere, while British and Spanish criminal gangs have had access to my machines and are angry with me because their evil is backfiring on them.
 
 ![Translated threat](../../content/tweets/man-with-headphones-translated.png)
 
