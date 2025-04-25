@@ -74,14 +74,14 @@
 
 ## Conservatory choir concert
 
-- I was probably still infectious but I went to the conservatory choir concert nevertheless.
-- I went masked up.
-- I was thinking, with all this Twitter communication, he must talk to me, so I will go.
+- The conservatory performed a summer choir and orchestra concert which was also a graduation celebration for the 6th year students passing out.
+- I was probably still infectious with Covid, but I went to the conservatory choir concert nonetheless, masked up.
+- I was thinking; with all this Twitter communication, the trumpet teacher must talk to me, so I will go.
 - I saw him in the audience.
 - He didn't talk to me.
 - Nacho the clarinet teacher, close friend of Domingo Cano, stares at me and laughs like a hyena.
 - I arrive home angry.
-- I post an angry tweet about Domingo and his little group of followers; how it is extremely weird that adult men are hanging out with 14 year old girls, that a male teacher can get this group of little girls to bully another teacher in their own class, and other things.
+- I post an angry tweet about Domingo and his little group of followers; how it is extremely weird that adult men are hanging out with 14 year old girls, that a male teacher can get this group of little girls to bully another teacher, and other things.
 - I tweet that Domingo is "probably a trans woman".
 - It really was my only transgression in all of this, but I was really angry.
 - In fact, it was the only thing I ever felt at all guilty about, in three years of psychological, sexual, and emotional torture, and only a tiny weeny bit.
@@ -95,7 +95,7 @@
 - I felt a coldness towards me I had not felt before.
 - It was obvious everyone knew what I had said on X about Domingo.
 - In my mind, I thought the trumpet teacher must be telling everyone what I had said. I believed he was the only person reading at my tweets!
-- It was all very disconcerting, and yet the physical vibrations got even stronger in class.
+- It was all very disconcerting, and yet the physical vibrations I was feeling were even stronger in class. My whole body was vibrating.
 - I tried to ask him if he felt it too. I couldn't.
 - I was out of my mind.
 
@@ -110,8 +110,8 @@
 - I certainly never followed any of these accounts.
 - This nonsense continues until October 2024 when I find out why I'm seeing possums all the time on my X feed.
 - Since October 2024, no possums.
-- Given hackers have root access to all my devices, they have been able to manipulate my X timeline, and other social media accounts, directly. 
-- I suspect there is a specific piece of software developed precisely for this purpose that law enforcement, if they were ever interested in protecting women and children, would find examples of on all my devices.
+- Given hackers have root access to all my devices, they can manipulate my X timeline, and other social media accounts, directly. 
+- I suspect there is a specific piece of software developed precisely for this purpose that law enforcement - if they were ever interested in protecting women and children - would find examples of on all my devices.
 
 ### Harmony class that week
 
