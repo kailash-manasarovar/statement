@@ -247,6 +247,7 @@
 - Could he really be posting it himself?
 - I wonder who was posting content which appeared to be grassing-up the trumpet teacher?
 - And why?
+- Had the trumpet teacher been planning to keep me for himself, and betrayed the British and Spanish criminal gangs of Denia in doing so?
 
 ## Sunday 18th June Alicante airport
 
