@@ -51,6 +51,7 @@
 - I'm on Twitter all morning seeing posts from Israel.
 - It's like I'm there.
 - Everything changes at that moment.
+- I realize that all the requests for money for Palestinian children I had seen on X over the last years were a scam. I'm relieved I never fell for that one.
 
 ## Strawberries
 
