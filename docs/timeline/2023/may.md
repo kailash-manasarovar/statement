@@ -142,11 +142,11 @@
 - Only myself and one other student, Sofia, were there.
 - The teacher, Adria Gil, was erratic and bizarrely behaved, as usual.
 - As he was marking my homework, he announced very loudly, "What happened Katharine? Usually your homework is really good but this is terrible, it's not like you at all."
-- He says, "Were you angry?", and laughs.
+- He says, "Were you angry?", and laughs in a jeering manner.
 
 ![Gene Hackman](../../content/images/gene-hackman.png)
 
-- He says all this again and again.
+- He says this again and again, laughing.
 - He was right, there was something extremely off about this particular piece of homework compared to the others.
 - I thought about it and I remembered making tea and sitting down to do my homework, as usual, on a Sunday evening. 
 - I remembered this occasion very well because I was not able to get my thoughts straight about anything at all. I was finding it very hard to concentrate and link ideas to keys and chords. It was like I had to push through a solid wall to get any thought about music to make sense. I was constantly going back and forth to the keyboard to check my work.
