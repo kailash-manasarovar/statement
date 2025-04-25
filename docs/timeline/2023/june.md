@@ -241,6 +241,13 @@
 
     ![YouTube results of trumpet teachers apparent name](../../content/images/vidal-s-s-h-search.png)
 
+### Who is posting this for me to see?
+
+- It seems to me that this is rather damning content for the trumpet teacher.
+- Could he really be posting it himself?
+- I wonder who was posting content which appeared to be grassing-up the trumpet teacher?
+- And why?
+
 ## Sunday 18th June Alicante airport
 
 - On my return from Dublin to Alicante, I'm walking towards the arrivals hall and I see the trumpet teacher standing there waiting.
