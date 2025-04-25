@@ -38,6 +38,10 @@
 - The "Find My" app suddenly appears asking whether I want to remove it or not. I'm still being tracked.
 - A man walks past me making porn faces at me.
 
+### Hackers seem to be annoyed
+
+- A direct message pops up: "Who's paying you?"
+
 ## Drugs test
 
 - My drugs test over the last 12 months comes back completely negative.

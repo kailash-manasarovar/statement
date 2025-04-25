@@ -114,7 +114,7 @@
 
 ## Policia Nacional
 
-- Having been threatened with real violence, I (reluctantly I must say) go to report the gang stalking and everything to the police in Dénia the next morning.
+- Having been threatened with real violence, I (reluctantly I must say) go to report the gang stalking and everything that's been happening to me that I'm aware of at that time to the police in Dénia the next morning.
 - I take all my documentation in Spanish detailing the story so far, including all my communication with the Generalitat.
 - The policeman who deals with me reads the two letters I wrote to Concha the June before, tells me there is no crime, and that I should go home.
 - I have a stack of documentation I would like them to read, but they are not at all interested.
@@ -124,6 +124,8 @@
 - I'm utterly flabbergasted, and leave.
 - While I was there, a woman police officer was holding up her mobile phone as if she was filming me the whole time.
 - I wondered if they knew exactly who I was and what was happening to me.
+
+![Policia](../../content/images/policia-denia.png)
 
 ## European Court of Human Rights
 

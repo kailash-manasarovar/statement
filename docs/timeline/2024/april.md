@@ -130,6 +130,10 @@
 - Everything is threatening to me now.
 - I'm overwhelmed with sexual arousal yet again.
 
+### Hackers seem to be annoyed
+
+- A direct message springs up asking: "Why are your bank cards inaccessible?"
+
 ## Let that sink in
 
 - Google search shows pictures of sinks, i.e. let that sink in.
