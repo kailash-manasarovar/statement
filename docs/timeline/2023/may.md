@@ -15,7 +15,7 @@
 - I say things that make her surprised at my intuition and awareness.
 - I tell her I believe I'm going to have a boyfriend soon.
 
-### I see Thao at the beach
+### Thao at the beach
 
 - On one of my Sunday walks this month, I see Thao at the beach sitting in the spot I usually stop at.
 - It feels contrived, a set up, so I ignore her and walk home instead.
