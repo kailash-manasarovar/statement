@@ -113,7 +113,7 @@
 - Given hackers have root access to all my devices, they can manipulate my X timeline, and other social media accounts, directly. 
 - I suspect there is a specific piece of software developed precisely for this purpose that law enforcement - if they were ever interested in protecting women and children - would find examples of on all my devices.
 
-### Harmony class that week
+## Harmony class that week
 
 - I used to walk from the conservatory to the tunnel after harmony class with Samuel Viciano Herranz on the way home. We did that every class that school year 2022-2023.
 - We would chat about stuff. His English was good.
