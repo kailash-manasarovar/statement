@@ -158,6 +158,7 @@
 - It was as if he was repeating everything I said to someone. Domingo of course, his piano teacher.
 - He also mentioned, bizarrely and repeatedly, a black man in a UK TV show and I believe he was referring to the `@AllyBrisket` account and suggesting it was Domingo.
 - Did Samuel know that a person under the influence of certain psychoactive substances would understand suggestions like these in an exaggerated way?
+- Or does my tendency to think better of people get in the way of the truth which is that the real trigger is black men, i.e. reference to the sedated rape-gang porn from 1989 and that which everyone knew was coming up for me again in real life after [my 'funeral' on 12th June 2023](june.md#last-class-my-funeral-apparently), but didn't.
 
 ### Did the harmony teacher know I was being poisoned at home?
 
