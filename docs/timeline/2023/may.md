@@ -202,10 +202,22 @@
 
 ## Twitter
 
-- The curious interaction on Twitter between my own account and `@jctot19` continues.
-- He posts something on his timeline, a pic, a meme, and it's clearly for me and I respond.
+- The curious and intense interactions on X between my own account and the `@jctot19` account continues.
+- I have no doubt that this account is the trumpet teacher's account and that he and maybe just a few of his mates are reading my tweets.
+- He posts something on his timeline; a pic, a meme, or a message which is clearly for me and I respond.
+- There is a continuous back and forth.
 - One significant post was in regards to a favorite film.
 
 ![Man with headphones](../../content/tweets/man-with-headphones.JPG)
 
-- This is a film called [The Lives of Others](https://en.wikipedia.org/wiki/The_Lives_of_Others) and is about the secret police listening into the resident's lives in East Germany. The irony was lost on me at the time.
+- [The Lives of Others](https://en.wikipedia.org/wiki/The_Lives_of_Others) is about the secret police listening into residents' lives in East Germany during the Cold War. The irony was lost on me at the time.
+
+### Translated threats
+
+- It just occurred to me to look up the translation of the tweets above; time of writing 25th April 2025.
+- Notice the translation of '10' into something rather sinister.
+- These sorts of rewritten-UI threats have been ongoing on X, and elsewhere, while British and Spanish criminal gangs have had access to my machines and are upset their evil is backfiring on them.
+
+![Translated threat](../../content/tweets/man-with-headphones-translated.png)
+
+- The Metropolitan police have told me this sort of thing is not a threat or worth investigating.

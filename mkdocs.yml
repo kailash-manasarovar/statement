@@ -143,7 +143,19 @@ nav:
     - Fear and loathing in Las Marinas, Dénia: the-novel/book-cover.md
     - Optional book covers: the-novel/optional-covers.md
 
+extra:
+  social:
+    - icon: fontawesome/brands/x-twitter
+      name: 1FRGVN on X
+      link: https://x.com/1FRGVN
+    - icon: fontawesome/brands/facebook
+      name: 1FRGVN on Facebook
+      link: https://www.facebook.com/profile.php?id=61561067270886
+    - icon: fontawesome/brands/github
+      name: 1FRGVN on GitHub
+      link: https://github.com/kailash-manasarovar/statement
 
+      
 
 extra_css:
   - extra.css
