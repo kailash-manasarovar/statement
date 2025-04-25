@@ -175,6 +175,10 @@
     - It's never clear why they would do this apart from to somehow keep the game/con/fraud going, so that I will continue to believe there is a reciprocal relationship going on in some weird way.
     - They are long-game honey-trappers, after all.
 
+## Counting Omer
+
+- I start counting the Omer on X: https://x.com/1FRGVN/status/1782868597125095773.
+
 ## Let women Speak
 
 - Posey Parker (Kelly Jay Keen) is coming to do a Let women Speak event in Madrid in May.
