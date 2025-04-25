@@ -80,18 +80,27 @@
 - I saw him in the audience.
 - He didn't talk to me.
 - Nacho the clarinet teacher, close friend of Domingo Cano, stares at me and laughs like a hyena.
-- I was angry and posted an angry tweet about Domingo and his group of followers, and how it is extremely weird that the adult men are hanging out with 14 year old girls, that it's appalling he's able to get them to bully the choir teacher, etc.
+- I got home angry.
+- I posted an angry tweet about Domingo and his little group of followers; how it is extremely weird that adult men are hang out with 14 year old girls, that a male teacher can get his group of little girls to bully another teacher in their own class.
 - I tweeted that Domingo is "probably a trans woman".
-- It really was my only transgression in all of this, but I was really angry. It was the only thing I felt at all guilty about, and only a tiny weeny bit. I was really only concerned that it might have upset Concha because I had mentioned her (not by name, no one by name).
+- It really was my only transgression in all of this, but I was really angry.
+- It was the only thing I ever felt at all guilty about, in three years of psychological, sexual, and emotional torture, and only a tiny weeny bit.
+- I was really only concerned that my tweet might have upset Concha because I had mentioned her (not by name).
 - I deleted the tweet on June 12th.
 
 ## Possums
 
-- It was around this time I started to see Twitter posts related to possums. All the time.
-- Daily possum, Day of the possum, all sorts.
-- I have no interest in possums. I find them quite ugly.
-- This continues until October 2024 when I find out why.
-- It transpires that all these posts about possums that I see are specifically rendered on my account feed via root access to my machine.
+- It was around this time I started to see X posts related to possums. All. The. Time.
+- Daily possum, day of the possum, possum every hour, all sorts: https://x.com/PossumEveryHour.
+
+![Possums](../../content/images/possum-every-hour.png)
+
+- I have no interest in possums. I find them quite ugly. 
+- I certainly never followed any of these accounts.
+- This nonsense continues until October 2024 when I find out why I'm seeing possums all the time on my X feed.
+- Since October 2024, no possums.
+- Given hackers have root access to all my devices, they have been able to manipulate my X timeline, and other social media accounts, directly. 
+- I suspect there is a specific piece of software developed precisely for this purpose that law enforcement, if they were ever interested in protecting women and children, would find examples of on all my devices.
 
 ## Next class
 
