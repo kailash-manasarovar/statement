@@ -210,6 +210,14 @@
 
 ## Tuesday 12th March
 
+### Pablo is given a role again
+
+- I'm walking into Denia to attend harmony classes with Alfonso.
+- As I approach the road of the conservatory, Pablo from my chamber music class comes out of a doorway. He looks frustrated and upset. I realize he has been asked to join in the choreography of terror against me.
+- I feel bad for him and run past him.
+- Teachers glare at me angrily as I enter the conservatory.
+- Domingo has his hands on a very young girl's shoulders on the steps going up to the front door. It looks like he is adjusting her rucksack but I wonder now if this is a demonstration for my benefit of the power he has over very young children.
+
 ### Ana dresses as if she's pregnant
 
 - The Ana girlfriend lie continues and, with the help of others, she choreographs ridiculous situations - i.e. tracks my movements using shared WhatsApp groups with the other teachers - in order that I see her going to the toilet dressed as if she is pregnant.

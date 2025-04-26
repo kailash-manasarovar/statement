@@ -5,7 +5,8 @@
 - Communication with the trumpet teacher continues.
 - The `@jctot19` account posts tweets suggesting he is coming over, that we will go out, that he will ask me out, that he really likes me; wanting to know if he will get English ham or Spanish jamon for his dinner.
 - I tweet irreverence back, and it is quite amusing at times.
-- Is this how they administered [Stockholm syndrome](https://en.wikipedia.org/wiki/Stockholm_syndrome) so that I would feel a loyalty towards a man engaged in serious criminal-gang activity against me?
+- It feels like a relationship somehow.
+- Is this how they administered [Stockholm syndrome](https://en.wikipedia.org/wiki/Stockholm_syndrome) so that I would feel loyalty towards a man engaged in serious criminal-gang activity against me?
 - Is this how they manipulated me into making constant excuses for his behavior in my mind?
 - Did they even have to bother given the police literally don't care about the safety of women and children at public learning establishments in Spain?
 - Perhaps terrorizing women and girls in this cowardly way is how they gain respect for themselves as men in a deeply misogynist culture?
@@ -17,10 +18,12 @@
 
 - I was so high on this feeling of being in love, it felt real to me.
 - How else could I explain how I was feeling all the time? It was 24 hours a day.
-- I thought continuously about him, and I felt extremely sexually aroused all the time, even in other classes like choir for example.
+- I thought continuously about this man, and I felt extremely sexually aroused all the time.
+- I was even super-high in other classes, like choir for example.
 - I can't imagine what people must have been thinking.
 - I was feeling something I had never felt before in my life, it was really powerful. 
 - I had no idea I was being drugged. None.
+- I suspect the drugging could have been easily arranged while coming up the stairs to class. There always seemed to be a large group of older kids and teachers on the stairs with me when I came into class.
 - I didn't understand why the trumpet teacher wasn't talking to me directly but I was prepared to excuse it because of the feelings.
 
 ## Transformational touch online with Robin
