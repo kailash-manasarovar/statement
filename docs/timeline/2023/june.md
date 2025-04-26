@@ -17,15 +17,26 @@
 ## Love
 
 - I was so high on this feeling of being in love, it felt real to me.
-- It still does at the time of writing; April 2025. I cannot explain this, and I'm ironically very grounded at the same time.
-- I can only give all of it to God to use for His purposes, which seem to be rather good, at least from my perspective.
+
+!!! tip "Retrospectively"
+    - It still feels real at the time of writing; April 2025. 
+    - I cannot explain this, and I've always been aware of the trick to some extent, awareness still expanding.
+    - Ironically, I feel very grounded at the same time. It's strange. I can't explain it.
+    - From the very beginning, I have been giving all of it to God to use for His purposes, which seem to be rather good, at least from my perspective.
+
 - How else could I explain how I was feeling all the time? It was 24 hours a day.
 - I thought continuously about this man, and I felt extremely sexually aroused all the time.
-- I was even super-high in other classes, like choir for example.
-- I can't imagine what people must have been thinking.
-- I was feeling something I had never felt before in my life, it was really powerful. 
+- I was even super-high and aroused in other classes, like choir for example.
+- I can't imagine what people must have been thinking; more likely they knew exactly what was going on.
+- I was feeling something I had never felt before in my life. It was really powerful. 
 - I had no idea I was being drugged. None.
-- I suspect the drugging could have been easily arranged while coming up the stairs to class. There always seemed to be a large group of older kids and teachers on the stairs with me when I came into class.
+
+!!! danger "How did they drug me?"
+    - Aside from having access to my apartment's water and air vents, I believe I was drugged while at the conservatory and during classes. This certainly happened on the [28 January 2023](january.md#serious-poisoning-at-chamber-music-class).
+    - I also suspect that the drugging could have happened as I entered the conservatory too.
+    - There always seemed to be a large group of older kids, and teachers, in reception or on the stairs with me whenever I came into class.
+    - Someone could easily have added powder to my neck skin, or in my ear, at those moments.
+
 - I didn't understand why the trumpet teacher wasn't talking to me directly but I was prepared to excuse it because of the feelings.
 
 ## Transformational touch online with Robin
