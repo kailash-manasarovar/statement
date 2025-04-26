@@ -3,15 +3,15 @@
 ## Twitter/X
 
 - Communication with the trumpet teacher continues.
-- The `@jctot19` account posted tweets suggesting he was coming over, that we would go out, that he would ask me out, that he really liked me; wanting to know if he would get English ham or Spanish jamon for his dinner.
-- I tweeted irreverence back, and it was quite amusing at times.
-- Is this how they administered [Stockholm syndrome](https://en.wikipedia.org/wiki/Stockholm_syndrome) so that I would feel a loyalty towards a man engaged in serious criminal activity against me?
+- The `@jctot19` account posts tweets suggesting he is coming over, that we will go out, that he will ask me out, that he really likes me; wanting to know if he will get English ham or Spanish jamon for his dinner.
+- I tweet irreverence back, and it is quite amusing at times.
+- Is this how they administered [Stockholm syndrome](https://en.wikipedia.org/wiki/Stockholm_syndrome) so that I would feel a loyalty towards a man engaged in serious criminal-gang activity against me?
 - Is this how they manipulated me into making constant excuses for his behavior in my mind?
 - Did they even have to bother given the police literally don't care about the safety of women and children at public learning establishments in Spain?
-- Perhaps terrorizing women and girls in this cowardly way is how they gain respect for themselves as men in a deeply misogynist culture.
+- Perhaps terrorizing women and girls in this cowardly way is how they gain respect for themselves as men in a deeply misogynist culture?
 - They certainly got a lot more than they bargained for with me.
 
-![]
+![Tiger-girl in the bullring](../../content/images/bull-fight.png)
 
 ## Love
 
