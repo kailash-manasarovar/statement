@@ -39,26 +39,6 @@
 
 - I didn't understand why the trumpet teacher wasn't talking to me directly but I was prepared to excuse it because of the feelings.
 
-## Transformational touch online with Robin
-
-- I had a TEB session with Robin Sullivan online on either the 29th May or the 5th June. She will have written records of everything that happened in the sessions and anything I reported afterwards.
-- I reported this session at the [end of May](may.md#teb-with-robin) and I also detailed all physical, psychological, and emotional effects of what was happening to me at the hands of the people of Dénia.
-- I booked TEB sessions with Robin on Mondays to steady myself emotionally for going to class that evening. Sometimes he came, mostly not. 
-
-!!! tip "Attendance"
-    - Of course, the trumpet teacher's sketchy attendance makes it hard to remember specific days and times he may have turned up to class, and precisely what happened at those times in class and at home.
-    - It's clear that reporting events such as this to the police, and being confused about days and times he turned up for class or not, makes it easy for the criminal gangs to provide alibies, and/or police to cast doubts on victim's truthfulness.
-
-- On one of the Monday's in which the trumpet teacher did not turn up for class, I have a TEB session with Robin and we do the HPA axis enhancement which supports the fear centres of the nervous system.
-- I asked her for this due to the overwhelming anxiety I was feeling with regards to the trumpet teacher and going to his classes.
-- The healing was very powerful and I went to bed afterwards, about 7pm, and woke up the next morning.
-- I felt I slept well that night.
-- However, on waking, I noticed a small bolus of faeces in my knickers. 
-- It appeared that I had poo-ed myself during the night.
-- This was very startling. I had never done this before, not even when I was a child.
-- I reported this to Robin and others.
-- I now wonder if this is evidence of being sedated in my flat, and raped by unknown people whilst sedated, and filmed of course too.
-
 ## Penultimate class
 
 - The class on 5th June is just me and the trumpet teacher.

@@ -213,23 +213,35 @@
 ## TEB with Robin
 
 - I book a number of Transformational Touch therapy sessions with Robin Sullivan.
-- I usually book these therapy sessions to take place on the Monday before a chamber music class, mainly to calm my nerves and anxiety about going.
+- I detailed all 
+- I book these therapy sessions to take place on the Monday before a chamber music class, mainly to calm my nerves and anxiety before going to class. Sometimes he came, often he canceled.
+
+!!! tip "Attendance"
+    - Of course, the trumpet teacher's sketchy attendance makes it hard to remember specific days and times he may have turned up to class, and precisely what happened at those times in class and at home.
+    - It's clear that reporting events such as this to the police, and being confused about days and times he turned up for class or not, makes it easy for the criminal gangs to provide alibies, and/or police to cast doubts on victim's truthfulness.
+
 - Transforming the experienced-based brain, or [TEB](https://www.austinattach.com/transforming-the-experience-based-brain/), is the therapy that I have been learning in Ireland and online with Stephen Terrell since 2020.
-- I explain in detail to Robin how I've been feeling, about this man the trumpet teacher, the chaos and anxiety I'm experiencing, and my powerful feelings for him.
+- I explain in detail to Robin the physical, psychological, and emotional effects of what was happening to me at the hands of the people of Dénia at that time and since January; about how I've been feeling, about this man the trumpet teacher, apparently being in love, the chaos and anxiety, and my powerful feelings for him.
 - I detail the intensity of it, and also my kidney problems and when they began.
 - I explain how I have never felt this way about someone before.
 - She remains unconvinced and says let's leave that to one side.
 - I am clearly out of my mind.
+- She will have written records of everything that happened in the sessions and anything I reported afterwards.
 - During one of my sessions with Robin, he phones me during the session.
 - It's a missed call which I return.
-- When I speak to him he is taking the piss. He is calling to cancel class, and he keeps talking about having "double sessions" because he missed so many classes, but it is in an extremely weird way (pervy even) and he is trying not to laugh as if he has an audience.
+- When I speak to him he is taking the piss. He is calling to cancel class that day, and he keeps talking about having "double sessions" because he missed so many classes, but it is in an extremely weird way (pervy even) and he is trying not to laugh as if he has an audience.
 
 !!! danger "Double sessions"
     - Looking back, this sort of thing suggests that indeed they are sedating me and coming into my flat to sexually assault me, film it, and monetize it on porn networks.
     - Does 'double session' refer to more than one man involved?
 
-- After one Monday evening when I believe there is both a TEB session and a chamber music class, we do the HPA axis enhancement.
+- This evening, I had asked for the HPA axis enhancement which supports the fear centres of the nervous system.
+- I asked her for this due to the overwhelming anxiety I was feeling with regards to the trumpet teacher and going to his classes.
+- The healing was very powerful and I went to bed afterwards, about 7pm, and woke up the next morning.
+- I felt that I had slept well that night.
 - I wake the following morning and I have a small bolus of faeces in my knickers.
+- It appeared that I had poo-ed myself during the night.
+- This was very startling. I had never done this before, not even when I was a child.
 - I report this to Robin, and other TEB practitioners when I am in Ireland in June.
 
 ## Twitter
