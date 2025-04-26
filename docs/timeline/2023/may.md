@@ -218,17 +218,16 @@
 - Sometimes he came to class, often he canceled.
 
 !!! tip "Attendance"
-    - Of course, the trumpet teacher's sketchy attendance makes it hard to remember specific days and times he may have turned up to class, and precisely what happened at those times in class or at home.
-    - It's clear that reporting events such as this to the police, and being confused about days and times he turned up for class or not, makes it easy for the criminal gangs to provide alibies, and/or police to cast doubts on victim's truthfulness.
+    - Of course, the trumpet teacher's sketchy attendance makes it hard to remember specific days and times he may have turned up to class, and precisely what happened at those times in class or at home, unless it was of an exaggerated significance such as the [rhabdo event in January](january.md#serious-poisoning-at-chamber-music-class).
+    - It's clear that reporting events such as this to the police, and being confused about days and times he turned up for class or not, makes it easy for the criminal gangs to provide alibies, and/or police to cast doubts on victims' truthfulness.
 
-
-- I explain in detail to Robin the physical, psychological, and emotional effects of what was happening to me at the hands of the people of Dénia at that time and since January; about how I've been feeling, about this man the trumpet teacher, about apparently being in love, the chaos and anxiety, and my powerful feelings for him.
+- I explain in detail to Robin the physical, psychological, and emotional effects of what was happening to me at the hands of teachers and staff at the conservatory of Dénia at that time, and since January; about how I've been feeling, about this man the trumpet teacher, about apparently being in love, the chaos and anxiety, and my powerful feelings for him.
 - I detail the intensity of it, the sexual arousal, and also my kidney problems and when they began.
 - I explain how I have never felt this way about someone before.
 - She remains unconvinced and says let's leave the trumpet teacher relationship to one side.
 - I am clearly out of my mind.
 - She will have written records of everything that happened in the sessions and anything I reported afterwards.
-- During one of my sessions with Robin, the trumpet teacher phones me.
+- During one of my sessions with Robin, on the 29th May, the trumpet teacher phones me.
 - When the treatment is over, I return his missed call.
 - When I speak to him he sounds like he is taking the piss. He is calling to cancel class that day, and he keeps talking about having "double sessions" because he missed so many classes, but it is in an extremely weird way (pervy even) and he is trying not to laugh as if he has an audience.
 
@@ -237,7 +236,7 @@
     - Does 'double session' refer to more than one man involved?
 
 - That evening, I had asked Robin for the HPA axis enhancement which supports the fear centres of the nervous system.
-- I asked her for this due to the overwhelming anxiety I was feeling with regards to the trumpet teacher and going to his classes.
+- I asked her for this due to the overwhelming anxiety I was feeling with regards to the trumpet teacher and going to his classes and my continuing kidney issues.
 - The healing was very powerful and I went to bed afterwards, about 7pm, and woke up the next morning.
 - I felt that I had slept well that night.
 - I wake the following morning and I have a small bolus of faeces in my knickers.
