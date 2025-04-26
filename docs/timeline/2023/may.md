@@ -21,6 +21,15 @@
 - It feels contrived, a set up, so I ignore her and walk home instead.
 - I never see her at the beach again.
 
+## I love the smell of garbure in the morning
+
+- The constant stalking, and whatever else is happening to me unawares, causes me to go into fighting mode.
+- Whenever I feel this way, I post something to that effect.
+- One of my favorite memes, related to my relationship with Mary, was about garbure.
+- https://x.com/1FRGVN/status/1658010374677962753.
+
+![I love the smell of garbure in the morning](../../content/tweets/garbure.png)
+
 ## Chamber music concert
 
 - A small concert is arranged. 
@@ -93,6 +102,10 @@
 - I got home that evening and got Covid.
 - I was in bed for about 3 days.
 - Covid battered my kidneys. I was really worried about my kidney health.
+- Covid hit me very hard, in fact.
+
+![Covid tweet](../../content/tweets/covid.png)
+
 - When I managed to get out of bed, the weird communication with the trumpet teacher continued on Twitter.
 
 ## Conservatory choir concert
@@ -121,6 +134,9 @@
 - It was all very disconcerting, and yet the physical vibrations I was feeling were even stronger in class. My whole body was vibrating.
 - I tried to ask him if he felt it too. I couldn't.
 - I was out of my mind.
+- At the same time, I continued to feel under constant threat.
+
+![Threat levels](../../content/tweets/threat-levels-against-women.png)
 
 ## Possums
 
@@ -135,6 +151,21 @@
 - Since October 2024, no possums.
 - Given hackers have root access to all my devices, they can manipulate my X timeline, and other social media accounts, directly. 
 - I suspect there is a specific piece of software developed precisely for this purpose that law enforcement - if they were ever interested in protecting women and children - would find examples of on all my devices.
+
+## Aware of the plot
+
+- I'm aware that there is something very sinister going on but it is all hidden.
+- I relate everything to my experiences with and concerns about Domingo Cano.
+- From time to time I tweet where I'm at with my understanding of everything that's going on for me.
+
+![Tweet about Domingo](../../content/tweets/aware-of-the-plot.png)
+
+### Jaws
+
+- I continue to relate the behavior of the trumpet teacher to the shark in Jaws.
+- I'm finding adequate symbolism to describe what's happening plus parallels to healing everywhere I look.
+
+![Jaws](../../content/tweets/we-need-a-bigger-boat.png)
 
 ## Harmony class the week after my first explosive tweet
 
@@ -206,6 +237,10 @@
 - I have no doubt that this account is the trumpet teacher's account and that he and maybe just a few of his mates are reading my tweets.
 - He posts something on his timeline; a pic, a meme, or a message which is clearly for me and I respond.
 - There is a continuous back and forth.
+- I flirt continuously with what I think is him.
+
+![Love declarations](../../content/tweets/love-declarations.png)
+
 - One significant post was in regards to a favorite film.
 
 ![Man with headphones](../../content/tweets/man-with-headphones.JPG)
@@ -222,3 +257,10 @@
 ![Translated threat](../../content/tweets/man-with-headphones-translated.png)
 
 - The Metropolitan police have told me this sort of thing is not a threat or worth investigating.
+
+### A Course In Miracles
+
+- Around this time, I start the course text once again.
+- I will share a lot of this with my stalker friends over the next years.
+
+![Beginning the course again](../../content/tweets/the-course.png)

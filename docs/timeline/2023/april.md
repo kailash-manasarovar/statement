@@ -89,6 +89,10 @@
 - The next day I told Sally what had happened. We were amazed. It was a miracle!
 - I followed the Twitter account. 
 - The account blocked me immediately.
+- I post a reaction on X.
+
+![The shark dies](../../content/tweets/the-shark-dies.png)
+
 - I consequently thought it couldn't be his account after all, or maybe he was concerned about being followed by someone with my political views on gender ideology in schools. He was a school teacher after all!
 
 !!! tip "More on the `@jctot19` account"
@@ -124,6 +128,7 @@
 - His anger surprised me and I stared at him. He could not hold my eye contact and looked away.
 - I knew at that moment the `@jctot` account was his. At least, that was my assumption.
 - Was the trumpet teacher angry because he knew I had fallen into a vile trap he could do nothing about?
+- Or was he angry that his intention to keep me for himself was probably scuppered?
 
 ## Dreaming of the trumpet teacher
 
@@ -173,6 +178,14 @@
 
     - Fake accounts posted references like this to terrorize and humiliate me, but being in love could never be humiliating.
     - It felt wonderful, in fact, and became an extraordinarily powerful force for good in my life, healing me completely of depression.
+
+### Garbure
+
+- It's clear everyone knows what's going on and no-one is going to communicate with me directly about it.
+- This is excruciatingly stressful and feels like an assault on my whole person.
+- My inner warrior emerges again.
+
+![Garbure](../../content/tweets/garbure-april.png)
 
 ## Maria Hontanilla
 
@@ -240,7 +253,7 @@
 - And even though he was (apparently) ignoring me in person, on Twitter, via the `@jctot19` account, he was suggesting he liked me.
 - All this was extraordinarily confusing coupled with my state of mind and the constant sexual arousal.
 
-!!! info "Tweet examples related to terror at the conservatory April-June 2023"
+!!! info "More tweet examples related to terror at the conservatory April-June 2023"
 
     - https://x.com/1FRGVN/status/1660980901776433153
     - https://x.com/1FRGVN/status/1660951524904763392

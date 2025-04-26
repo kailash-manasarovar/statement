@@ -54,7 +54,7 @@
 ## June 9th piano concert
 
 - The end of year piano concert took place at the boat club venue in Dénia.
-- I played Philip Glass etude no 2.
+- I played Philip Glass etude no 2: https://www.youtube.com/watch?v=850kyfwmRcM.
 - As we were preparing, and just as I was a few bars in, Domingo shouts "again?" in an accusatory tone very loudly.
 - I wonder what he means. Does he mean another ridiculous apparent romantic tryst for me at the conservatory? Or what.
 - As I go back to my seat after rehearsing, another one of the piano teachers asks me "are you alright"? I have no idea why she is asking me this.
@@ -77,6 +77,7 @@
 - I notice that all the piano teachers, Paqui, Joan Carles, Domingo, are looking very unhappy, no smiles at all. I wonder now if it's because they're embarrassed at how happy I obviously am. I wonder if I appear drugged? There will be photos of this.
 - Underlying it all though is the stress from the constant gang stalking which I know is ramping up to something on Monday 12th June at the final chamber music class.
 - The recording of my performance that evening, and the photos, were never shared with me.
+- I was exuberant about performing that day: https://x.com/1FRGVN/status/1667242652163514406.
 
 ## Work stress
 
@@ -92,7 +93,7 @@
 - I often go to the beach on Sundays.
 - As I'm walking down to the beach that afternoon, the trumpet teacher is driving towards me in a beat up, grey, Peugeot 205.
 - He sees me and takes a sharp, wheel-squealing turn into a no entry road. It's rather amusing.
-- I reminds me of the Truman Show and I feel like Truman.
+- I reminds me of the Truman Show and I feel like Truman: https://x.com/1FRGVN/status/1667925200292159490.
 - I feel like he's coming back from scheming with Domingo and doesn't want me to see him.
 
 !!! info
@@ -106,6 +107,13 @@
     - https://x.com/1FRGVN/status/1667925200292159490
     - https://x.com/1FRGVN/status/1667785711263596545
     - https://x.com/1FRGVN/status/1665611717223612416
+
+### Fighting talk; telling them I knew and that there must be repercussions
+
+- On some level, I knew what was coming, and that it would be extremely ugly.
+- At every level I'm a fighter.
+- I'm inspired to post Buckminster Fuller's quote in full about the trim tab.
+- https://x.com/1FRGVN/status/1667785711263596545.
 
 ## Last class, my funeral, apparently
 
@@ -376,3 +384,34 @@ All the twitter activity is on my `@1frgvn` account at this stage.
 ![Long long way to go](../../content/tweets/long-long-way-to-go.png)
 
 - There is no reply.
+
+### Interesting tweets from this period that suggest communication with online groups unknown
+
+After 12th June, I became more conscious I had been stalked online by a large group of people. I believed I had managed to block them but was aware a conversation was starting.
+
+Something I had not yet realized at that time was that every tweet was being read by a bunch of Spanish-speaking people who were translating them. You can see this on analytics. I would only start realizing this was going on when I was in France.
+
+A lot of this is very telling.
+
+- https://x.com/1FRGVN/status/1674499946681102348
+- https://x.com/1FRGVN/status/1674508801444048911
+- https://x.com/1FRGVN/status/1674175133030686725
+- https://x.com/1FRGVN/status/1674020464258174977
+- https://x.com/1FRGVN/status/1673979287773298690
+- https://x.com/1FRGVN/status/1673232678357803010
+- https://x.com/1FRGVN/status/1672905764166402048
+- https://x.com/1FRGVN/status/1672536083425312774
+- https://x.com/1FRGVN/status/1672531934046552064
+- https://x.com/1FRGVN/status/1672518913081368576
+- https://x.com/1FRGVN/status/1671791604066136066
+- https://x.com/1FRGVN/status/1671431628248297472
+- https://x.com/1FRGVN/status/1671381584144891905
+- https://x.com/1FRGVN/status/1670583744283983874 -> commentary on 12th June
+- https://x.com/1FRGVN/status/1668539402967035905 -> 13th June Love will find a way
+- https://x.com/1FRGVN/status/1668534709599494144 -> 13th June Life on Mars
+- https://x.com/1FRGVN/status/1668171820179103745 -> 12th June calm before the storm
+- https://x.com/1FRGVN/status/1667836859181932548 -> 11th June
+- https://x.com/1FRGVN/status/1666071924944846848
+- https://x.com/1FRGVN/status/1665611717223612416 -> intolerable levels of doubt and fear
+- https://x.com/1FRGVN/status/1665430464847331328 -> Ho'oponopono
+- https://x.com/1FRGVN/status/1664572450112258049

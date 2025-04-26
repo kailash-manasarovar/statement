@@ -29,6 +29,10 @@
     - https://x.com/1FRGVN/status/1860132157890679006 
     - There are many public resources that explain this process in detail.
 
+- It was excruciating however, as intended, and I tweeted my personal reactions, unaware they were being read by everyone.
+
+![Hunting the shark](../../content/tweets/hunting-the-shark.png)
+
 ### Each class on a Monday
 
 - Whenever the trumpet teacher turned up for class, not often, I felt the same lightheadedness and euphoria, my whole body vibrating.

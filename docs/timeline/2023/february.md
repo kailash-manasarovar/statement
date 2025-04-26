@@ -38,6 +38,9 @@
 - Back at home I'm upset about this because this reaction has caused me problems all my life.
 - The irony is the reaction was genuine alarm bells.
 - I'm not aware of this at that time, however, and I believe he likes me and I'm devastated I cannot respond to him normally.
+- I tweet my reactions, and how I associate the trumpet teacher to the shark in Jaws.
+
+![Hunting the shark](../../content/tweets/hunting-the-shark-feb-23.png)
 
 ## Gang stalking at the conservatory and the promise of a relationship
 
