@@ -222,13 +222,14 @@
 - I am clearly out of my mind.
 - During one of my sessions with Robin, he phones me during the session.
 - It's a missed call which I return.
-- When I speak to him he is taking the piss. He keeps talking about having "double sessions" because he missed so many classes, but it is in an extremely weird way (pervy even) and he is trying not to laugh as if he has an audience.
+- When I speak to him he is taking the piss. He is calling to cancel class, and he keeps talking about having "double sessions" because he missed so many classes, but it is in an extremely weird way (pervy even) and he is trying not to laugh as if he has an audience.
 
 !!! danger "Double sessions"
     - Looking back, this sort of thing suggests that indeed they are sedating me and coming into my flat to sexually assault me, film it, and monetize it on porn networks.
     - Does 'double session' refer to more than one man involved?
 
-- After one Monday evening when there is both a TEB session and a chamber music class, I wake the following morning and I have a small bolus of faeces in my knickers.
+- After one Monday evening when I believe there is both a TEB session and a chamber music class, we do the HPA axis enhancement.
+- I wake the following morning and I have a small bolus of faeces in my knickers.
 - I report this to Robin, and other TEB practitioners when I am in Ireland in June.
 
 ## Twitter
