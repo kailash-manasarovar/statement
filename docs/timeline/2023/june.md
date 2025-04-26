@@ -1,10 +1,17 @@
 # June 2023
 
-## Twitter
+## Twitter/X
 
-- The Twitter suggestions and odd communication continued.
-- They were things like he was coming over, we would go out, he would ask me out, that he really liked me, would he get English ham or Spanish jamon for his dinner.
+- Communication with the trumpet teacher continues.
+- The `@jctot19` account posted tweets suggesting he was coming over, that we would go out, that he would ask me out, that he really liked me; wanting to know if he would get English ham or Spanish jamon for his dinner.
 - I tweeted irreverence back, and it was quite amusing at times.
+- Is this how they administered [Stockholm syndrome](https://en.wikipedia.org/wiki/Stockholm_syndrome) so that I would feel a loyalty towards a man engaged in serious criminal activity against me?
+- Is this how they manipulated me into making constant excuses for his behavior in my mind?
+- Did they even have to bother given the police literally don't care about the safety of women and children at public learning establishments in Spain?
+- Perhaps terrorizing women and girls in this cowardly way is how they gain respect for themselves as men in a deeply misogynist culture.
+- They certainly got a lot more than they bargained for with me.
+
+![]
 
 ## Love
 
