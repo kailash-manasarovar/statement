@@ -215,8 +215,9 @@
 - I'm walking into Denia to attend harmony classes with Alfonso.
 - As I approach the road of the conservatory, Pablo from my chamber music class comes out of a doorway. He looks frustrated and upset. I realize he has been asked to join in the choreography of terror against me.
 - I feel bad for him and run past him.
-- Teachers glare at me angrily as I enter the conservatory.
-- Domingo has his hands on a very young girl's shoulders on the steps going up to the front door. It looks like he is adjusting her rucksack but I wonder now if this is a demonstration for my benefit of the power he has over very young children.
+- Teachers glare at me angrily as I enter the conservatory. It's a warning.
+- Domingo has his hands on a small girl of about 6 years old's shoulders on the steps going up to the front door. He glances at me meaningfully in the way he does.
+- It looks like he is adjusting her rucksack but I wonder now if this is a demonstration for my benefit of the power he has over very young children and how no-one can do a thing about it.
 
 ### Ana dresses as if she's pregnant
 
