@@ -17,6 +17,8 @@
 ## Love
 
 - I was so high on this feeling of being in love, it felt real to me.
+- It still does at the time of writing; April 2025. I cannot explain this, and I'm ironically very grounded at the same time.
+- I can only give all of it to God to use for His purposes, which seem to be rather good, at least from my perspective.
 - How else could I explain how I was feeling all the time? It was 24 hours a day.
 - I thought continuously about this man, and I felt extremely sexually aroused all the time.
 - I was even super-high in other classes, like choir for example.
