@@ -6,13 +6,14 @@
 - The `@jctot19` account posts tweets suggesting he is coming over, that we will go out, that he will ask me out, that he really likes me; wanting to know if he will get English ham or Spanish jamon for his dinner.
 - I tweet irreverence back, and it is quite amusing at times.
 - It feels like a relationship somehow.
+- Most of the posts I saw over this time are now deleted.
 - Is this how they administered [Stockholm syndrome](https://en.wikipedia.org/wiki/Stockholm_syndrome) so that I would feel loyalty towards a man engaged in serious criminal-gang activity against me?
 - Is this how they manipulated me into making constant excuses for his behavior in my mind?
 - Did they even have to bother given the police literally don't care about the safety of women and children at public learning establishments in Spain?
 - Perhaps terrorizing women and girls in this cowardly way is how they gain respect for themselves as men in a deeply misogynist culture?
 - They certainly got a lot more than they bargained for with me.
 
-![Tiger-girl in the bullring](../../content/images/bull-fight.png)
+![Tiger-girl in the bullring](../../content/images/planning-the-murder-of-innocents.png)
 
 ## Love
 
@@ -35,32 +36,41 @@
     - Aside from having access to my apartment's water and air vents, I believe I was drugged while at the conservatory and during classes. This certainly happened on the [28 January 2023](january.md#serious-poisoning-at-chamber-music-class).
     - I also suspect that the drugging could have happened as I entered the conservatory too.
     - There always seemed to be a large group of older kids, and teachers, in reception or on the stairs with me whenever I came into class.
-    - Someone could easily have added powder to my neck skin, or in my ear, at those moments.
+    - Someone could easily have added powder to my neck skin, or close to my ear, at those moments.
 
 - I didn't understand why the trumpet teacher wasn't talking to me directly but I was prepared to excuse it because of the feelings.
 
-## Penultimate class
+## Penultimate chamber music class
 
-- The class on 5th June is just me and the trumpet teacher.
+- The second-to-last chamber music class is on 5th June.
+- Pablo does not attend; only myself and the trumpet teacher.
+- The trumpet teacher looks like he has been taking testosterone and exercising. He's much bigger than he was at the end of November and even his face looks muscular.
+
+![Muscular trumpet teacher](../../content/images/muscles-1.png)
+
+- I wonder if he is pumping iron with Domingo and the Dénia testosterone (woman-hating) addicts.
 - I bring a couple of tunes to play, Creep and Back to Black.
 - Creep is for Domingo.
 - Back to Black is for the trumpet teacher with regards to Ana his (apparent) girlfriend.
 - These are tunes recommended to me, I believe, by Mary at Lourdes.
+- We play them, and the trumpet teacher can't look me in the eye. He looks guilty.
+- He asks me quietly why I didn't bring them before.
+- I'm aware everything is a big joke, and I'm the butt of the joke, but I'm not aware of the extent of the conspiracy and how it has my total destruction as its end goal. 
+- I mistakenly believe that only Domingo and his close associates are scheming against me. and it was so ridiculous and immature that on a day-to-day level I really didn't care.
+- Moreover, the overwhelming sexual feelings I'm having, and some of the things the trumpet teacher says, seem to suggest he doesn't really want to be involved in this nonsense.
+- The Ana relationship is obviously a lie; the conservatory's total dedication and commitment to it was so contrived. 
+- Ana had grinned at me on the stairs like I was an idiot, and I just thought they were all so ridiculous and easily ignored.
+- None of these childish games really bothered me, and I'm certain they would have bothered me *not at all* if I wasn't being drugged.
+- However, on top of the constant childishness, everything that was happening was extremely confusing. I couldn't keep anything straight in my mind.
+- Nevertheless, I'm clear in my mind that something horrible is going to happen at the last chamber music class of the school year, on the 12th.
+- I tweet about my feelings as the day approaches: https://x.com/1FRGVN/status/1665611717223612416.
 
-!!! info
-    - It's more likely that these other tunes were suggested to me by hackers on Twitter of course.
-    - At that class, the trumpet teacher asks me why I didn't bring them before to play.
+![Intolerable levels of doubt and fear](../../content/tweets/intolerable-doubt-and-fear.png)
 
-- I'm aware everything is a big joke, and I'm the butt of the joke, but I'm not aware of the extent of it. 
-- I mistakenly believe that only Domingo and his close associates are scheming against me.
-- The overwhelming feelings I'm having, and some of the things the trumpet teachers says, make me suggest to myself that the trumpet teacher doesn't really want to be a part of it all.
-- I think Ana is just a lie, it was all so contrived, and she grinned at me on the stairs like I was an idiot. 
-- Everything that was happening was extremely confusing to me, and I couldn't keep anything straight in my mind.
-- However, I'm aware something's going to happen at the last class of the school year, and I tweet about it as the day approaches.
-
-!!! tip "Am I being primed and prepared for that day"
-    - I wonder as part of the NLP suggestions was the last class with the trumpet teacher being set up as something significant.
-    - Certainly this "setting up of events I should be worried about" was an ongoing theme with the hackers, particularly in [August 2023](august.md#going-public-on-twitter) when I was so frightened I went public on Twitter, and again in [March 2024](../2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) when I became afraid for my life, and then again in [April 2024](../2024/april.md#lawyer) when I became certain I was going to be arrested.
+!!! tip "Was I being primed and groomed online for that day?"
+    - A "setting up of events I should be worried about" was an ongoing theme with the hackers, particularly in [August 2023](august.md#going-public-on-twitter) when I was so frightened I went public on Twitter, and then again in [March 2024](../2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) when I became afraid for my life, and then again in [April 2024](../2024/april.md#lawyer) when I became certain I was going to be arrested.
+    - Is the childishness an intended and sinister part of the murderous plots?
+    - Will an avalanche of victims corroborate my story with their own horrible experiences at the hands of teachers and staff of the Generalitat's conservatory system?
 
 ## June 9th piano concert
 
@@ -117,14 +127,12 @@
 !!! info "Related tweets"
     - https://x.com/1FRGVN/status/1667925200292159490
     - https://x.com/1FRGVN/status/1667785711263596545
-    - https://x.com/1FRGVN/status/1665611717223612416
 
 ### Fighting talk; telling them I knew and that there must be repercussions
 
 - On some level, I knew what was coming, and that it would be extremely ugly.
 - At every level I'm a fighter.
 - I'm inspired to post Buckminster Fuller's quote in full about the trim tab.
-- https://x.com/1FRGVN/status/1667785711263596545.
 
 ## Last class, my funeral, apparently
 
@@ -423,6 +431,5 @@ A lot of this is very telling.
 - https://x.com/1FRGVN/status/1668171820179103745 -> 12th June calm before the storm
 - https://x.com/1FRGVN/status/1667836859181932548 -> 11th June
 - https://x.com/1FRGVN/status/1666071924944846848
-- https://x.com/1FRGVN/status/1665611717223612416 -> intolerable levels of doubt and fear
 - https://x.com/1FRGVN/status/1665430464847331328 -> Ho'oponopono
 - https://x.com/1FRGVN/status/1664572450112258049
