@@ -179,6 +179,12 @@
 
 - Even [my alarm](https://drive.google.com/file/d/10Fohbs4oCy6qU2rnG40F3blPJ6TheJL9/view?usp=sharing) that I listened to every morning to wake me up was a devotional prayer from Hanuman to Ram.
 
+### Dreaming of the trumpet teacher
+
+- Whenever I watched an episode of Sankat Mochan Mahabali Hanuman, it was as if my best friend was sitting beside me watching the show with me, and he was as delighted with it as I was.
+- I could practically see the trumpet teacher,sitting beside me on the sofa. I could certainly feel him.
+- I cannot explain this.
+
 ## Silvia
 
 - People keep saying a name so that I can hear it, Silvia.

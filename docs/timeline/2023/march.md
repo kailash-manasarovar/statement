@@ -87,6 +87,15 @@
 
     ![Sobbing again](../../content/images/sobbing-2.png)
 
+### A simple wooden box on the sofa
+
+- I dream or vision a solid but simple wooden coffin-shaped box lying on the sofa in my sitting room.
+- I see it all the time.
+- It's a large box, big enough for a reasonably large man.
+- I imagine it means that we will be married and I will bury him.
+- Although I wonder now if I was completely off about that and, instead, it was in relation to the previous target who may have lived in the apartment, and died.
+- And of course, it may have been a warning to me personally about the intentions of the people pretending to have normal roles in my life.
+
 ## Gloria winks conspiratorially
 
 - Whenever I leave the chamber music class to go home on a Monday night, Gloria is at reception.

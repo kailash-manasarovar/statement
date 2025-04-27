@@ -21,7 +21,7 @@
 !!! tip "Retrospectively"
     - It still feels real at the time of writing; April 2025. 
     - I cannot explain this, and I've always been aware of the trick to some extent, awareness still expanding.
-    - Ironically, I feel very grounded at the same time. It's strange. I can't explain it.
+    - Ironically, I feel very grounded at the same time. It's strange and inexplicable.
     - From the very beginning, I have been giving all of it to God to use for His purposes, which seem to be rather good, at least from my perspective.
 
 - How else could I explain how I was feeling all the time? It was 24 hours a day.
