@@ -55,8 +55,8 @@
 - These are tunes recommended to me, I believe, by Mary at Lourdes.
 - We play them, and the trumpet teacher can't look me in the eye. He looks guilty.
 - He asks me quietly why I didn't bring them before.
-- I'm aware everything is a big joke, and I'm the butt of the joke, but I'm not aware of the extent of the conspiracy and how it has my total destruction as its end goal. 
-- I mistakenly believe that only Domingo and his close associates are scheming against me. and it was so ridiculous and immature that on a day-to-day level I really didn't care.
+- I'm aware everything is a big joke, and I'm the butt of the joke, but I'm unaware of the extent of the conspiracy and how it has my total destruction as its end goal. 
+- I mistakenly believe that only Domingo and his close associates are scheming against me; and it was so ridiculous and immature that on a day-to-day level I really didn't care.
 - Moreover, the overwhelming sexual feelings I'm having, and some of the things the trumpet teacher says, seem to suggest he doesn't really want to be involved in this nonsense.
 - The Ana relationship is obviously a lie; the conservatory's total dedication and commitment to it was so contrived. 
 - Ana had grinned at me on the stairs like I was an idiot, and I just thought they were all so ridiculous and easily ignored.
@@ -74,31 +74,29 @@
 
 ## June 9th piano concert
 
-- The end of year piano concert took place at the boat club venue in Dénia.
-- I played Philip Glass etude no 2: https://www.youtube.com/watch?v=850kyfwmRcM.
-- As we were preparing, and just as I was a few bars in, Domingo shouts "again?" in an accusatory tone very loudly.
-- I wonder what he means. Does he mean another ridiculous apparent romantic tryst for me at the conservatory? Or what.
-- As I go back to my seat after rehearsing, another one of the piano teachers asks me "are you alright"? I have no idea why she is asking me this.
+- The end of year piano concert takes place at the boat club venue in Dénia.
+- A huge crowd of parents and children comes to listen to piano students of all levels and all ages.
+- All the teachers attend.
+- I play Philip Glass etude no 2: https://www.youtube.com/watch?v=850kyfwmRcM.
+- Before the concert begins, and as we were all preparing, and just as I was a few bars into rehearsing my piece, Domingo shouts **"Again?"** in an accusatory tone, very very loudly.
+- The whole auditorium hears him.
+- I wonder what he means. Does he mean another ridiculous *apparent* romantic tryst for me at the conservatory? Or something more sinister, perhaps, like a replay of the child sexual abuse events from 1989?
+- As I am returning to my seat after rehearsing, another one of the piano teachers, a woman who looks like her other job is porn-star, asks me **"Are you alright"?**
+- I have no idea why she is asking me this.
+- You may remember this happened before when Ana Girbes asked me, incongruously, "Are you alright?" just before the [chamber music concert](may.md#chamber-music-concert), and more recently during online terror with regards to these words, which came directly from my [police statement of 2015](../early-years/2015.md#statement-to-the-metropolitan-police); incidents which appear to confirm the significance of such a statement and how a malicious actor might expect it to upset me, especially if they'd read my police statement from 2015 of course, which they could only have done if the Metropolitan police had given it to the teachers and staff at the conservatory, or my apartment was hacked all the way back then too.
+- I guess Domingo instructed her to say this to me.
+- One of Domingo's students, Adriana, she is 14 or 15, runs over to him in a subservient and affected way. I believe he has requested her to do this too. I'm sure I'm not the only one cringing.
+- Nevertheless, aside from the terrorism, playing in this concert is an immense joy for me and exuberant doesn't come close to how I feel about the experience. I tweet about this later: https://x.com/1FRGVN/status/1667242652163514406:
 
-!!! danger "Critical update of 5th December 2024"
-    - Domingo will have requested her to say this to me.
-    - This was part of my police statement to the police in 2014 and Domingo and his associates will suspect this will upset me.
-    - There are more of these events.
+![June 9th piano concert](../../content/tweets/june-9-concert-2023.png)
 
-!!! danger "Critical update of 5th December 2024"
-    - Just after posting this update. Commit no: [2370a8d](https://github.com/kailash-manasarovar/statement/commit/2370a8dc918f1d6d6a7b6ce3c9c3765965e03275) I feel like tweeting it so I do: https://x.com/1FRGVN/status/1864692459860893752
-    - Immediately: 
+- I'm so happy when all the piano students are photographed at the end of the concert; I am grinning from ear to ear. 
+- However, I notice that all the piano teachers; Paqui, Joan Carles, Domingo, etc, are looking very unhappy, angry even, no smiles at all. 
 
-    ![are you okay](../../content/images/are-u-okay.png)
+![June 9th piano concert](../../content/images/piano-concert-june-9th.png)
 
-- At the time of writing I'm starting to believe "again" refers to events planned for me that will somewhat replicate the sexual abuse I suffered as a 16 year old in North London.
-- One of Domingo's students, Adriana Mihaila Mañas, she is 14 or 15, runs over to him in an affected way. I believe he has requested her to do so.
-- Playing in this concert is an enormous joy for me and exuberant doesn't even cover how I feel about this experience.
-- I'm so happy when all the piano students are photographed at the end of the concert, I must be grinning from ear to ear. 
-- I notice that all the piano teachers, Paqui, Joan Carles, Domingo, are looking very unhappy, no smiles at all. I wonder now if it's because they're embarrassed at how happy I obviously am. I wonder if I appear drugged? There will be photos of this.
-- Underlying it all though is the stress from the constant gang stalking which I know is ramping up to something on Monday 12th June at the final chamber music class.
-- The recording of my performance that evening, and the photos, were never shared with me.
-- I was exuberant about performing that day: https://x.com/1FRGVN/status/1667242652163514406.
+- Underlying my delight is the continuing intense stress from the constant gang stalking by teachers and staff at the conservatory, which I know is ramping up to something really horrid I can expect on Monday 12th June at the final chamber music class.
+- The recording of my performance at the June 9th concert, and the photos, were never shared with me as they usually are with students.
 
 ## Work stress
 
