@@ -72,6 +72,20 @@
     - Is the original childishness an intended and sinister part of the murderous plots?
     - Will an avalanche of victims corroborate my story with their own horrible experiences at the hands of teachers and staff of the Generalitat's conservatory system?
 
+## Last harmony class
+
+- The class sits the harmony written exam together.
+- I am feeling extremely high, anxious, euphoric, and consequently quite confused.
+- There's a lot going on I'm not fully aware of; the constant online stalking, gang stalking at the conservatory, drugging at home and in class.
+- Work has become enormously stressful too and it's difficult to get anything clear in my mind.
+- The two boys in the class are teasing me. 
+- One of them, Andre, refers to me to the others, and then mentions something that's going to happen to me the following week and how excited everyone is about it.
+- He then starts to laugh uproariously with delight.
+- Andre looks like he could be related to the trumpet teacher; most certainly behaviorally they are a perfect match. 
+- He could very well be his son they're so alike. He could certainly be [Sara's](../2022/september.md#harmony) brother; remember the girl with the strange surname who didn't return to study in the 4th year?
+- I notice all these things but I'm not able to deal with them or respond to anyone.
+- I'm feeling constantly euphoric and it's difficult to speak.
+
 ## June 9th piano concert
 
 - The end of year piano concert takes place at the boat club venue in Dénia.
@@ -113,7 +127,8 @@
 - As I'm walking down to the beach that afternoon, the trumpet teacher is driving towards me in a beat up, grey, Peugeot 205.
 - He sees me and takes a sharp, wheel-squealing turn into a no entry road. It's rather amusing.
 - I reminds me of the Truman Show and I feel like Truman: https://x.com/1FRGVN/status/1667925200292159490.
-- I feel like he's coming back from scheming with Domingo and doesn't want me to see him.
+- I feel like he's coming back from a meeting where the teachers are plotting against me and carefully planning Monday evening's attack.
+- I guess he has been scheming with Domingo, Ana, and the others, and he doesn't want me to see him.
 
 !!! info
     - I'm pretty sure he wanted me to see him. I'm just not sure why.
@@ -132,11 +147,29 @@
 - At every level I'm a fighter.
 - I'm inspired to post Buckminster Fuller's quote in full about the trim tab.
 
-## Last class, my funeral, apparently
+## Monday 12th June 2023
+
+- Today is the last chamber music class of the 3rd year of professional studies at the conservatory of Dénia; and my funeral, apparently.
+- I'm prepared for what I'm quite sure is supposed to be enormously humiliating and ridiculous from any sane person's stand point.
+
+### Devastated parents at the church
+
+- I'm extraordinarily tense before class. As I walk around, I decide to take a detour.
+- I take a detour and pop into the [chapel on the Carrer Loreto](https://www.google.com/maps/place/Iglesia+Agustinas+Recoletas,+Denia/@38.8404519,0.1035054,19z/data=!4m15!1m8!3m7!1s0x129e1b22919b9785:0xcd3bcc58c432965f!2sC%2F+de+Loreto,+03700+D%C3%A9nia,+Alacant,+Spain!3b1!8m2!3d38.8404519!4d0.1044442!16s%2Fg%2F1w3swvhw!3m5!1s0x129e1b2297b6860d:0xeba2d1d681469aaa!8m2!3d38.8404811!4d0.1039396!16s%2Fg%2F12qf4wb9n?entry=ttu&g_ep=EgoyMDI1MDQzMC4xIKXMDSoASAFQAw%3D%3D) to say hi to Mary and ask for her blessings and guidance.
+- The church is empty apart from a couple in their sixties sitting at the front of the church near the altar.
+- They have a portrait with them of a young girl.
+- They are crying.
+
+![Couple at the altar](../../content/images/devastated-parents-1.png)
+
+- I hum the Salve and leave.
+
+### At the conservatory
+
+- The tension I am feeling is matched by the delighted expectation on everyone's faces.
 
 ![Carrie](../../content/images/carrie.jpg)
 
-- I'm prepared for what is supposed to be my humiliation on Monday 12th June at chamber music class.
 - I bring the trumpet teacher a present to say thanks, a little wooden frog instrument. He tries to kiss me and I flinch away. I don't want to kiss him, he's hairy and I don't get a good feeling from him.
 
 !!! tip "The lucky frog"
