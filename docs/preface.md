@@ -8,7 +8,7 @@ Providence stepped in and she escaped to Bangkok where she would write her polic
 
 People she had reached out to for help up to then couldn't help but be confused about what she was telling them as the story was so convoluted, so bizarre, and so much had happened, and she was so scared and anxious, and so many people were involved. 
 
-Her story sounded like a Hollywood spy-action blockbuster; it was difficult to accept that this tiny, not-very-good-looking, soft-spoken, middle-aged woman could be the focus of so much hatred and so many criminal resources.
+Her story sounded like a Hollywood spy-action blockbuster; it was difficult to accept that this tiny, not-very-good-looking, soft-spoken, middle-aged, rather boring little woman could be the focus of so much hatred and so many criminal resources.
 
 "It sounds like a chaos, doesn't it?", a Spanish government official had said. The same official advised her to write up a timeline of events and take it to the police.
 
@@ -16,9 +16,9 @@ The author knew she only had a short time to write down everything she knew abou
 
 In communication with the gangs online, the author found out that the evil had been in residence for decades, but it has only lately grown out of all proportion into something so hideous, so despicable, so egregious, no one is safe.
 
-You might think the police would be keen to root out sex offending networks as quick as possible, particularly when their main targets have morphed from any single vulnerable female, or male with money, who might happenstance into the town and bump into an "introduction agent", into children and younger, and not necessarily just the foreign ones anymore.
+You might think the police would be keen to root out sex offending networks as quick as possible, particularly when their main targets have morphed from any single vulnerable female, or male with money, who might happenstance into the town and bump into an "introduction agent", into children and younger, and not necessarily just the foreign ones anymore either.
 
-But my requests for help were ignored. By the Spanish police three times, and by UK police numerous times too.
+All my requests for help were ignored. By the Spanish police three times, and by UK police numerous times too.
 
 Why is anyone's guess.
 
