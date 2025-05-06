@@ -46,6 +46,7 @@ theme:
     - content.action.edit
 
 nav:
+  - Preface: preface.md
   - Home: 
     - Summary: index.md
   - Timeline:
