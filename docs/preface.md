@@ -8,7 +8,7 @@ Providence stepped in and she escaped to Bangkok where she would write her polic
 
 People she had reached out to for help up to then couldn't help but be confused about what she was telling them as the story was so convoluted, so bizarre, and so much had happened, and she was so scared and anxious, and so many people were involved. 
 
-Her story sounded like a Hollywood spy-action blockbuster; it was difficult to accept that this tiny, not-very-good-looking, soft-spoken, middle-aged, rather boring little woman could be the focus of so much hatred and so many criminal resources.
+Her story sounded like a Hollywood spy-action blockbuster; it was difficult to accept that this tiny, not-very-good-looking, soft-spoken, middle-aged, rather boring little woman could be the focus of so much hatred and take up so many criminal resources.
 
 "It sounds like a chaos, doesn't it?", a Spanish government official had said. The same official advised her to write up a timeline of events and take it to the police.
 
@@ -22,7 +22,7 @@ All my requests for help were ignored. By the Spanish police three times, and by
 
 Why is anyone's guess.
 
-If the people of Dénia have ceased to care for the safety and wellbeing of their own offspring, I, a child sexual abuse survivor myself, have not.
+Nevertheless, even if the people of Dénia have ceased to care for the safety and wellbeing of their own offspring, I, a child sexual abuse survivor myself, have not.
 
 For that reason, the statement is now a book and I'm in the process of filling out the details from the skeleton draft I managed to author in Bangkok in November 2024.
 
