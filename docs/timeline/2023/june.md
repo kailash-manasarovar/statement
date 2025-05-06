@@ -162,7 +162,7 @@
 
 ![Couple at the altar](../../content/images/devastated-parents-1.png)
 
-- I hum the Salve and leave.
+- I hum the Salve from the back.
 
 ### At the conservatory
 

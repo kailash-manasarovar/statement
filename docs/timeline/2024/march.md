@@ -330,12 +330,22 @@
 
 ### The dose ramps up
 
-- I believe today the dose of anxiety causing substances was increased at my flat because I began to be extraordinarily stressed and scared the night of the 13th, probably after drinking a large mug of tea.
 - Given that I was not fearful after the ridiculous piano concert on the 12th, and went to choir on the 13th, it seems reasonable to suppose I was relatively unaffected by this choreographed terror, perhaps I was getting used to it.
 - However, the link to Elaine Black was extremely sinister and got to me.
 - Eventually, I text and tweet to everyone that I would never commit suicide and, if I turn up dead and it looks like I did, it's suspicious: https://x.com/1FRGVN/status/1768046490272870687.
 - The following morning I am severely anxious. I'm bumping my head on things. I have to go to town. I am terrorized the whole way in and out. I feel horrendous.
-- I believe I was on serious drugs at this point that they were putting in the water.
+- I believe I was on serious drugs and poison at this point that they were putting in the water.
+
+### Devastated parents 
+
+- Nevertheless, I set off for the conservatory.
+- I pop into the church again on the Carrer Loreto.
+- A couple prays together at the front of the church, crying softly.
+- They carry a picture of a young girl; a daughter they lost maybe.
+
+![Devastated parents](../../content/images/devastated-parents-2.png)
+
+- I hum the Salve from the back.
 
 ### Practicing the piano 
 
