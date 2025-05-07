@@ -15,6 +15,11 @@
 
 - This account was deleted over the last two days. The timing on that is interesting.
 
+## Targeting kids
+
+- Online games.
+- Cartoons.
+
 ## The laundry
 
 - I go to the laundry to dry my clothes.
