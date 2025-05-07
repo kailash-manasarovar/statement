@@ -24,6 +24,10 @@
 - I wonder now what they thought they were achieving and/or if their purpose was that I would have a nervous breakdown or kill myself.
 - For sure, at a minimum, they intended I have a severe nervous breakdown.
 
+## My funny valentine
+
+<iframe width="672" height="378" src="https://www.youtube.com/embed/Are-c0BLyIg" title="Frank Sinatra - My Funny Valentine" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
 ## Highlights on Twitter
 
 - It's exhausting and I'm really upset at how I'm being treated.
