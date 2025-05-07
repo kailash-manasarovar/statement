@@ -126,16 +126,33 @@ Some of my tweets from that time.
 - The plate lady pictures stop completely and I start seeing a similar "set" of repeated pictures with a specific character.
 - This time, it's a man sitting at a bench with the Alhambra behind him in Granada. 
 - The picture is viewable for a few weeks.
-- I see this man at the beach in September.
+- I will see this man at the beach in September.
+
+![man at the alhambra](../../content/images/man-at-the-alhambra.png)
 
 ### Ana
 
-- More references to Ana, and more pictures of her modelling.
+- Interspersed with this are more references to Ana, and more pictures of her modelling.
+
+![ana](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
+
+- I saw a whole range of these pictures of Ana which are undoubtedly easily to come across if you can be bothered to look. You could ask her too, of course.
 
 ### Mortadelo y Filemón
 
 - Pictures of two cartoon men, Mortadelo y Filemón, I understood to reference the trumpet teacher and Domingo as crashing fools.
 - It turns out that around this time the cartoonist died so that was in keeping with the times and, perhaps, was not related intentionally.
+
+![mortadella and filemon](../../content/images/mortadella-and-f.jpg)
+
+### Girl with a cross on her back
+
+- I see a picture of a woman wearing a black dress with a cross strap at the back.
+- She has her back to the photographer and appears to be in a studio.
+- I will see this woman again at the checkout at the Carrefour store in Dénia in October 2024.
+- The reference is to the tattoo I have on my back, and that I am a target.
+
+![Woman with a cross on her back](../../content/images/woman-with-a-cross-on-her-back.png)
 
 ## Thailand
 
