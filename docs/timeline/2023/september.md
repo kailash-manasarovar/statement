@@ -77,6 +77,14 @@
 - I turn off the router and get immediate control of my phone again.
 - I believe now they wanted me to think that the hackers are external players when in reality access was gained directly from the router via Mac spoofing with information only known to either the telecommunications company, Telco, or the ISP itself, which at that time was Yoigo.
 
+## A man I recognize
+
+- I'm leaving my flat to go to the conservatory.
+- A man walks around the building and we walk towards each other.
+- I feel like I know him. 
+- He looks at me like he's trying to avoid eye contact and stifling a smirk.
+- He is one of the men I remember being in the bathroom with me in a dream.
+
 ## People on the beach
 
 - It's hot and I go to the beach every day in the afternoon.
