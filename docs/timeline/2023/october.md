@@ -118,6 +118,13 @@
 - The only time that could have happened was the Saturday before.
 - I'm furious.
 
+## The gypsy glaring at me
+
+- I'm walking one Saturday along the Las Rotas beaches.
+- As I approach a parked car, I notice a man in the driving seat staring at me, glaring.
+- He looks ridiculous and I smile at him. He flinches.
+- I recognize him from somewhere.
+
 ## First letter to the Generalitat
 
 - Letters to the Generalitat Valenciana have been appearing on Google search `@jctot19 x` and this puts an idea in my head.
