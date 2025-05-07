@@ -70,6 +70,7 @@
 - The trumpet teacher flirts with me outrageously in public. I flirt back. It's quite amusing.
 - I remember I have cause to say, after he asks me about my surname, and just after Ana has been in, that "Katharine is sufficient," and he giggles. He primes this, of course.
 - At one stage, our eyes lock, and there is a powerful and undeniably reciprocal sexual attraction which is rather overwhelming to both of us.
+- I will be reminded of the look I give him when I see [plate lady online in July](../../content/images/plate-lady/plate-lady-love.png).
 - The trumpet teacher heads to the back of the room, with his back to us, humming gently, for about 5 minutes, to collect himself.
 - I sit as far away from him as possible in the room. I don't look at him, and he gives me a wide birth too.
 - The sexual arousal I have for this man is overpowering.

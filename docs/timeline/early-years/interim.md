@@ -111,7 +111,7 @@
     - I wake up.
     - God gave me a joyful and hopeful vision to ease the sudden realization that I had been silenced in the most appalling manner from nearly the beginning of my life. Ironically, I thought that the trumpet teacher was my betrothed, but I expect this was part of the NLP suggestion and online manipulation. 
     - Whoever my husband to be *is* in the vision, I am in his head looking out at myself.
-    - Sometimes, prophetic dreams do come true, but in ways wondrously unimaginable by mere mortals.
+    - Sometimes prophetic dreams do come true, and sometimes even in ways wondrously unimaginable by mere mortals.
 
 - I have been attending these courses around three times a year since 2020 and I am now a qualified practitioner.
 - It is curious that I didn't see Steve in person again until just a few days after teachers and staff at the conservatory of Dénia set up my 'funeral' in the attempt to completely destroy me. 

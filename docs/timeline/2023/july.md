@@ -53,31 +53,63 @@ Some of my tweets from that time.
 
 - The following are examples of things that came up in Google search during this period.
 
-### Plate lady early in the month
+## Plate lady early in the month
 
-- I constantly see various photos of a tiny pretty lady who is a potter, or a ceramics artist.
-- She is in her studio, putting plates on the wall and other things.
-- She must be 30 years old or so.
-- She wears little navy blue shorts that look like Iyengar pants.
-- It seems the photographer is a male who is close to her, and they are in a relationship of some sort.
+- On the `@jctot19` account's Google search results, I start to see various photos of a tiny pretty lady who is a potter or a ceramics artist.
+
+![plate lady](../../content/images/plate-lady/plate-lady-happy-1.png)
+
+- I see her in her studio, putting plates on the wall.
+
+![putting up the plates](../../content/images/plate-lady/plate-lady-puts-up-plates.png)
+
+- She is short and cute. She looks Spanish and must be around 30 years old or so.
+- She wears little navy blue shorts that look like Iyengar yoga pants.
+- Whoever is taking the pictures is a male who is close to her. He's much taller than her and it's clear they are in a relationship of some sort.
+- I never see what he looks like.
+
+![relationship with the photographer](../../content/images/plate-lady/plate-lady-happy-2.png)
+
 - From the look in her eyes, one photo is clearly taken just a few moments before they will be sexually intimate with each other.
 
-### Plate lady later in the month
+![just before sex](../../content/images/plate-lady/plate-lady-love.png)
 
-- The pictures of plate lady change and now there are photos of her walking in the rice paddies of Valencia with a man.
-- The man's shape and build is that of the trumpet teacher although you cannot see his face.
-- The photographer is far back from them, following.
-- At one point, the man tells plate lady something, and her face looks horrified.
-- Plate lady's horrified expression is somehow exaggerated in the photo.
+- Her look reminds me of how myself and the trumpet teacher looked at each other at the [chamber music concert in May](may.md#chamber-music-concert).
+- I start to wonder if plate lady is aware she's being photographed. And if not, I wonder how he is doing it.
+- I wonder if plate lady is the trumpet teacher's girlfriend.
 
-### The guy at the Alhambra
+## Plate lady later in the month
 
-- The plate lady pictures stop completely and I start seeing a similar "set" of repeated pictures with a specific character.
-- This time, it's a man sitting at a bench with the Alhambra behind him in Granada. 
-- The picture is viewable for a few weeks.
-- I see this man at the beach in September.
+- A few weeks go by.
+- The pictures of plate lady change. I see her walking in the rice paddies of Valencia with a man. It's winter.
 
-### Carmen
+![winter in the rice paddies](../../content/images/plate-lady/rice-paddies.png)
+
+- The man's shape and build is exactly that of the trumpet teacher, although you cannot see his face.
+- Whoever is taking these pictures is way back from the couple; 50-100 metres, following.
+- The man is telling plate lady something important as they walk. The mood is so sombre, I wonder if he is breaking up with her.
+
+![he is telling her something](../../content/images/plate-lady/plate-lady-finds-out.PNG)
+
+- Whatever he tells her has shocked her to her core. 
+- It's obvious that the man who has the exact silhouette of the trumpet teacher has told plate lady they are being photographed at that moment. 
+- Plate lady's horrified expression is exaggerated in the photo as she looks directly at the cameraman.
+
+![shock and horror](../../content/images/plate-lady/shock.png)
+
+!!! critical
+    - At the time, I have no idea what any of this is about, what it means, or who she is.
+    - I believe the pics to be current, present day activity; perhaps she is a girlfriend he has dumped, for me maybe?
+    - Over a year later, hackers give me her name; Irene.
+    - I write about the discovery [in the August 2024 report](../2024/august.md#irene-the-plate-lady).
+    - I look her up and find her online. The very same woman. Except, she is in her 50s.
+    - The pictures are from 30 years ago.
+    - This fact provokes more questions than it answers.
+    - The trumpet teacher's gang had extraordinarily advanced surveillance technology even in the 80s and 90s. This casts a light on a million different other things we might be interested in.
+    - And who would be so keen to grass up the trumpet teacher's gang in this way? Even giving a name?
+    - Could it be the British gangs he had betrayed so boldly?
+
+## Carmen
 
 - Results of this search always included a picture of a cartoon woman, Carmen. And they still do, even today.
 - This is the `@sinremite` account I mentioned that has a lot of interaction with the `@jctot19` account.
@@ -86,6 +118,15 @@ Some of my tweets from that time.
 
 - Most of the images in the screenshot above are new, I haven't seen them previously, apart from the Carmen image which has been appearing on and off since July 2023, and the photo of Rocio Vidal which has been appearing probably since around October 2023 and we will talk about that [later](october.md#rocio-vidal) as it is significant.
 - Curiously, I thought Carmen was plate lady but that wasn't the case. Carmen, as I'm informed later, represents Carmen Cano, Domingo's sister, a major player in the deceit and harassment.
+
+## Other smaller examples
+
+### The guy at the Alhambra
+
+- The plate lady pictures stop completely and I start seeing a similar "set" of repeated pictures with a specific character.
+- This time, it's a man sitting at a bench with the Alhambra behind him in Granada. 
+- The picture is viewable for a few weeks.
+- I see this man at the beach in September.
 
 ### Ana
 
@@ -156,7 +197,7 @@ Some of my tweets from that time.
 - Unfortunately, although indeed I had been abused by him, I had no idea how at that time.
 - I wrote a longer letter explaining everything that had happened and what I understood at that time.
 
-### Second letter to Concha
+## Second letter to Concha
 
 - Spanish version of the [second letter to Concha](../../content/documents/letters/My%20experience%20-%20ES.pdf).
 - English version of the [second letter to Concha](../../content/documents/letters/My%20experience%20-%20EN.pdf).
