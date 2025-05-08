@@ -137,7 +137,7 @@ Some of my tweets from that time.
 
 ![Julia Lohmann](../../content/images/carmen/sinremite-julia-lohmann.jpg)
 
-- I'm truly amazed at the hacker's dedication and commitment. None of it made any sense.
+- I'm truly amazed at the hacker's dedication and commitment. None of it made any sense to me.
 
 ### The guy at the Alhambra
 

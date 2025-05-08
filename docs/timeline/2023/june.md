@@ -27,7 +27,7 @@
 
 - How else could I explain how I was feeling all the time? It was 24 hours a day.
 - I thought continuously about this man, and I felt extremely sexually aroused all the time.
-- I was even super-high and aroused in other classes, like choir for example.
+- I was even super-high and aroused in other classes at the conservatory amongst the children; like choir for example.
 - I can't imagine what people must have been thinking; more likely they knew exactly what was going on.
 - I was feeling something I had never felt before in my life. It was really powerful. 
 - I had no idea I was being drugged. None.
