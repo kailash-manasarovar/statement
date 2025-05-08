@@ -34,6 +34,18 @@
 - It's only a matter of time before the world finds out about the mass spy-cam porn voyeurism in Dénia that includes violent sex crimes and the preparing of its future stars and where they come from.
 - The moment a victim feels safe enough to speak, and people are listening without wanting to murder them, there will be a tsunami of speakers, males and females. It's the same everywhere in the world.
 
+## I see my naked 16-year-old body on X again
+
+- Hackers flash up another example of the porn they have with me in it from 1989 where I am sedated and gang raped by a group of predominantly black men somewhere in North London.
+- Unlike the example [the flashed up to me on my X interface](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x), where my body was in profile, this time I am looking down on myself from behind my head.
+- I see my tiny, extremely pale, dappled even, naked child's body.
+- I am on my back with my legs up again in a tiny ball, as before.
+- I now know exactly what the criminals of Dénia, including teachers and staff at the conservatory, have seen and have possession of.
+- After 35 years, I have an overwhelming sense of relief and healing that I now know exactly what happened all those years ago, and why.
+- My suspicions all this time were solid.
+- I can only guess at how much money criminals made from these films, of which there were probably a few.
+- Add to that the earnings that Dénia criminals were now making on spy-cam porn of me in my apartment, and we are talking probably in the 10s of millions, owed to me personally, by criminal gangs in the UK and Spain.
+
 ## Google search
 
 - I am seeing multiple posts about "boyfriends" on my accounts' Google search result images. 
