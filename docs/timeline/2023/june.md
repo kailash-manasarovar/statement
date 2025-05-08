@@ -150,21 +150,21 @@
 !!! info "Actually"
     - I'm pretty sure he wanted me to see him. I'm just not sure why.
     - Warning maybe? I didn't need one.
-    - The next point maybe explains it. A sighting of the honey-trap victim's focus of desire is part of the conspiracy. That coupled with mind-altering substances, and the victim is locked in.
+    - The next point maybe explains it. A sighting of the honey-trap victim's focus of desire is integral to the deception. That coupled with mind-altering substances and the victim is locked in.
 
 - At the beach my mind is racing, I feel like he's going to pop up at any moment. It's extremely stressful. I'm 100% sure I was being drugged at this point given the constant looping thoughts and images, plus sexual feelings.
 - I know everything is a set up and I'm certain that the chamber music class the following day is planned as the grand finale.
 
 ### Fighting talk
 
-- On some level, I knew what was coming, and that it is going to be extremely ugly.
-- At every level I'm a fighter.
+- On some level, I knew what was coming, and that it was going to be extremely ugly. I had no idea of exactly *how* ugly at that time and still considered teachers and staff at the conservatory to be overwhelmingly immature and ridiculous. I wasn't to know that the porn industry had successfully infiltrated the Spanish school system and I was experiencing the worst of that.
+- Nevertheless, regardless of how much I knew or didn't know, at every level I'm a fighter.
 - I'm reminded of my [tensegrity practice from years previous](https://www.castaneda.com/meet-carlos-castaneda), and I'm inspired to post Buckminster Fuller's quote in full about the trim tab: https://x.com/1FRGVN/status/1667785711263596545 and how true integrity, however small, can bring down the largest and vilest energies with very little effort.
 
 ![trim tab](../../content/tweets/trim-tab.png)
 
 - Notice the amount of views I'm getting at this time. This is before I went public in September and views increased even more, and before I signed up for premium in January and I started to get massive view counts.
-- In contrast, each of my tweets now, in May 2025, gets on average a maximum of 20 views.
+- In contrast, each of my tweets now, in May 2025, gets on average a maximum of 20 views and I do still have a subscription.
 
 ## Monday 12th June 2023
 
