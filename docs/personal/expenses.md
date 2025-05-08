@@ -61,7 +61,7 @@ So there has been no safe place to go and I have had to stay in hotels a lot ins
 
 ## Poisoned clothes, belongings, and car
 
-- I'm estimating at least 5,000 EUR of clothes, toiletries, furniture, and belongings I have had to jettison because it is perilous to touch.
+- I'm estimating at least 10,000 EUR of clothes, toiletries, furniture, and belongings I have had to jettison because it is perilous to touch.
 - This includes the car which I have had detailed once, but clearly will need further cleaning.
 
 ## Travel
@@ -111,9 +111,37 @@ My laptops and phones are really unusable as they are infested with hacker softw
 
 ## Estimated money earned by pornographers
 
+- Given the amount of people involved in the plot and how there was no way they weren't getting paid for it, there will be numerous revenue streams coming into Dénia pornographers and sex gangs.
+- The original porn from 1989 has been live for over 30 years.
+- I also believe that, given porn just gets more and more boring for consumers and they always need something more, something extra perverted, I believe consumers are now able to interact with spy cam targets via their social media and this is controlled by criminal gangs.
+- I believe many of the accounts that followed me and stalked me on X from September 2023 onwards will be men paying a subscription for interaction with a woman they have already been paying to watch in her own home, and be raped repeatedly while sedated without her knowledge.
+
 ### 1989 porn
 
-- Incalculable. Certainly the porn that Winston May and his associates made of me in 1989 will have made hundreds of thousands of pounds over the last 35 years. Furthermore, when Domingo the piano teacher, Hazel Smith, and their associates found this porn, they would likely have been reselling it, and certainly in lieu of the "reenactment" they had planned, as a taster.
+- Incalculable. Certainly the porn that Winston May and his associates made of me in 1989 will have made many millions of pounds over the last 35 years. Furthermore, when Domingo the piano teacher, Hazel Smith, and their associates found this porn, they would likely have been reselling it, and certainly in lieu of the "reenactment" they had planned, as a taster.
 - I believe I was live-streamed at my apartment masturbating, again in lieu of a "reenactment" I suspect, but also because I managed to foil their evil plot and they had to sell something.
-- I believe the money they made on my is in the hundreds of thousands.
+- I believe I was sedated in my apartment and people came into to abuse me, all filmed and live streamed to paying customers.
+- I believe the money they made on all of this is in the tens of millions.
 - In the way that these people are really keen for you to know what they're doing at your expense cos it must give them a little kick; with a little hint there, a word here, little visual or statement, etc., the cars that drove past my house, beeping and taunting me, were expensive, fast, and new. 
+
+#### Estimate
+
+- 10 million.
+
+### 2022-2024 spy-cam porn
+
+- Men really are disgusting and it would not surprise me at all if they were prepared to pay considerably for continued access to my apartment via spy cam.
+- They would have, of course, had to pay extra for the times sex abusers entered and molested me while sedated.
+
+#### Estimate
+
+- 10 million.
+
+### Subscriptions for interacting with a live spy-cam target
+
+- These probably were offered around in September 2023 and 1000s may have subscribed.
+- Many of these men interacted with me on X.
+
+#### Estimate
+
+- 10 million.
