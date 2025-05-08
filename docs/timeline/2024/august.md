@@ -3,6 +3,11 @@
 - I head off to France.
 - As soon as I'm out of Dénia, the intensity of the sexual arousal drops off and then stops.
 
+## The landlady changes the bank account that receives the rent again
+
+- Another plot failure sparks a new bank account change.
+- This time probably to Carmen Cano's account, Domingo's sister, now tasked with finishing me off for good.
+
 ## Conversation with the hacker
 
 - I travel to Lourdes and spend the whole summer in France up until 21st September when I return, via Madrid, to Dénia.

@@ -1,3 +1,11 @@
+## The landlady changes the bank account for the rent
+
+- Bea instructs me to change the bank account my rent goes to.
+- Investigators should find out who owns the multiple accounts I was paying rent to over the years that teachers and staff at the conservatory of Dénia, and their criminal friends, attempted to murder me.
+- The first account probably went directly to Domingo and/or the trumpet teacher as they were managing the plot initially.
+- When it didn't work out for them, they must have changed the account to the new responsible person who was likely to be the brave and bold Paqui Fornet, quite certain she would be able to trigger in me a mental breakdown by her actions.
+- The third account, changed in August 2024 after even brave Paqui's plot failed, was probably that of Carmen Cano and/or associates tasked with finally finishing me off by poison.
+
 ## France 
 
 - I'm spending the rest of the summer in France, right up to the end of August.

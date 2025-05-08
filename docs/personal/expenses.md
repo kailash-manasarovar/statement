@@ -15,7 +15,11 @@ The things they say to me concerning me being the victim of child sexual abuse a
 
 Living with my family is the main reason I became suicidally depressed after reporting child sexual abuse and rape to the Metropolitan police in 2016.
 
-So there has been no save place to go and I have had to stay in hotels a lot instead of my home.
+So there has been no safe place to go and I have had to stay in hotels a lot instead of my home.
+
+### Update
+
+- I moved back to London in February 2025.
 
 ### March 2024
 
@@ -51,6 +55,9 @@ So there has been no save place to go and I have had to stay in hotels a lot ins
 - I take enormous exception at having paid monthly rent to criminal gangs who were poisoning, drugging, and filming me in my apartment.
 - I'd like it all paid back. I wasn't paying rent to be murdered or driven to suicide.
 - It's around 21,000 EURs paid to three different accounts.
+- I believe the first account was probably Bea's, the apparent landlady, but given she was so angry it was more likely paid directly to the trumpet teacher and Domingo who were managing the murderous plot initially.
+- I believe the second account, [changed in August 2023](../timeline/2023/august.md#the-landlady-changes-the-bank-account-for-the-rent) after the plan didn't quite go as expected was paid to Paqui Fornet who took over the murderous plot at that time.
+- The third account, [changed in August 2024](../timeline/2024/august.md#the-landlady-changes-the-bank-account-that-receives-the-rent-again), was very likely Carmen Cano's or whoever was tasked with murdering me by poison in October 2024 when Paqui's plot failed.
 
 ## Poisoned clothes, belongings, and car
 
