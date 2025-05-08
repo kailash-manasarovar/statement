@@ -151,6 +151,10 @@
 - So I was certain then that she was involved in the current gang stalking. I wonder if she has been involved in the ongoing spiking/poisoning, or even the 2014 threat of poisoning from Domingo. It's certainly worth considering.
 - Is it possible that the most evil people in a small town could have been introduced to something so abhorrent, but yet utterly addictive, which gave them utmost power over everyone? Is that the underlying nature of this story? I hope not, but I would not be surprised if it was.
 
+## The petty tyrant
+
+- https://x.com/1FRGVN/status/1715795337489637651
+
 ## Porn intensifies
 
 - The amount and nature of the porn that I'm seeing on my timeline intensifies. 

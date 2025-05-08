@@ -140,26 +140,30 @@
 - I often go to the beach on Sundays.
 - As I'm walking down to the beach that afternoon, the trumpet teacher is driving towards me in a beat up, grey, Peugeot 205.
 - He sees me and takes a sharp, wheel-squealing turn into a no entry road. It's rather amusing.
-- I reminds me of the Truman Show and I feel like Truman: https://x.com/1FRGVN/status/1667925200292159490.
-- I feel like he's coming back from a meeting where the teachers are plotting against me and carefully planning Monday evening's attack.
-- I guess he has been scheming with Domingo, Ana, and the others, and he doesn't want me to see him.
+- It reminds me of the Truman Show and I feel like Truman: https://x.com/1FRGVN/status/1667925200292159490.
 
-!!! info
+![Truman Show](../../content/tweets/truman.png)
+
+- I feel like he's on his way back home to Valencia after a meeting with the conservatory teachers who are plotting against me and carefully planning Monday evening's attack.
+- I guess he has been scheming with Domingo, Ana, Nacho and the others; and he doesn't want me to see him.
+
+!!! info "Actually"
     - I'm pretty sure he wanted me to see him. I'm just not sure why.
     - Warning maybe? I didn't need one.
+    - The next point maybe explains it. A sighting of the honey-trap victim's focus of desire is part of the conspiracy. That coupled with mind-altering substances, and the victim is locked in.
 
 - At the beach my mind is racing, I feel like he's going to pop up at any moment. It's extremely stressful. I'm 100% sure I was being drugged at this point given the constant looping thoughts and images, plus sexual feelings.
 - I know everything is a set up and I'm certain that the chamber music class the following day is planned as the grand finale.
 
-!!! info "Related tweets"
-    - https://x.com/1FRGVN/status/1667925200292159490
-    - https://x.com/1FRGVN/status/1667785711263596545
+### Fighting talk
 
-### Fighting talk; telling them I knew and that there must be repercussions
-
-- On some level, I knew what was coming, and that it would be extremely ugly.
+- On some level, I knew what was coming, and that it is going to be extremely ugly.
 - At every level I'm a fighter.
-- I'm inspired to post Buckminster Fuller's quote in full about the trim tab.
+- I'm reminded of my [tensegrity practice from years previous](https://www.castaneda.com/meet-carlos-castaneda), and I'm inspired to post Buckminster Fuller's quote in full about the trim tab: https://x.com/1FRGVN/status/1667785711263596545 and how true integrity, however small, can bring down the largest and vilest energies with very little effort.
+
+![trim tab](../../content/tweets/trim-tab.png)
+
+- Notice the amount of views I'm getting at this time. This is before I went public, and before I signed up for premium. In contrast, each of my tweets now gets on average a maximum of 20 views.
 
 ## Monday 12th June 2023
 
