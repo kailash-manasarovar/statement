@@ -61,7 +61,7 @@
 - I do not know what any of this means. Is it more tricks to scare me? Why would they put so much effort into it. I don't understand. The whole thing makes no sense.
 - And how is anyone supposed to know what's going on if no one ever talks to you and if they can only lie anyway?
 
-## Bump into Paul again
+## Bumping into Paul again
 
 - On 6th October, on my way to the Indian restaurant, I bump into Paul who is having a beer at the Open 24 Market at Plaza Benidorm, the usual place I "bump" into him.
 - He's clearly been asked to check up on me.
@@ -89,6 +89,14 @@
 ## Rape porn gangs
 
 - I tweet about my suspicions about what is going on: https://x.com/1FRGVN/status/1845101018746343666, and include some fake accounts to describe what I'm seeing.
+
+## Bullying at work
+
+- Polygon are more obviously building up to firing me.
+- I have requested an investigation done with regards to being targeted continually for my women's rights activism.
+- The HR team has a meeting in which they mention me specifically in a underhand way. They mention the word 'Fetch' over and over for no reason. Fetch is a direct reference to when I was working at a company in Cambridge and a man flashed at me in an online meeting.
+- Gabriel Silva makes sure to mention we all go this meeting if we haven't seen it already, especially me.
+- Polygon hires the [man who isn't very competent](../2023/june.md#work-stress) and doesn't like women, but has a very loud voice, that I had worked with before.
 
 ## Fatima
 
@@ -122,6 +130,19 @@
     - Given the next week's experience with my health, and the ongoing health problems over the next months, including declining eyesight and a diagnosis of PACS, I believe it is highly likely Domingo the piano teacher's family or associates accessed my home and were able to apply poison to food and even toiletries that I have taken with me.
 
 - Here is the [WhatsApp chat with Movistar](../../content/whatsapps/WhatsApp%20Chat%20with%20Movistar.zip) where I explain I have been hacked and ask them to investigate.
+
+## Polygon fires the whole writing team
+
+- I'm fired summarily on 25th October.
+- I'm told the whole team is dismissed as they are no longer required.
+- I know it's because of my women's rights activities and the extraordinary manner in which an industrial spy Polygon had been employed and was able to cause enormous trouble with the tech systems, and consequently found out about my private political activities and managed to stick the boot in for me, just weeks after I started.
+- The dismissal letter explains the company is aware it is an unlawful dismissal, but I'm supposed to accept it.
+- I instruct a lawyer to help me who appears to be on Polygon's side.
+- I suspect they continue to hire one of my team, Hans; a man who was outrageously insubordinate towards me when I was his manager.
+- Hans appeared to be instructed to be subordinate towards me which included shouting me down in meetings, constant heckling, not doing any work at all, complaining about me to my manager, and more.
+- Whenever I asked for help from my managers with him, I was ignored.
+- Hans was good as gold with Gabriel Silva when he took over.
+- I suspect he's working there now still.
 
 ## Serious poisoning with intent to harm or kill
 

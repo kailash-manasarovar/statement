@@ -43,7 +43,7 @@
 ## Penultimate chamber music class
 
 - The second-to-last chamber music class is on 5th June.
-- Pablo does not attend; only myself and the trumpet teacher.
+- Pablo does not attend; only myself and the trumpet teacher turn up.
 - The trumpet teacher looks like he has been taking testosterone and exercising. He's much bigger than he was at the end of November and even his face looks muscular.
 
 ![Muscular trumpet teacher](../../content/images/muscles-1.png)
@@ -61,8 +61,8 @@
 - The Ana relationship is obviously a lie; the conservatory's total dedication and commitment to it was so contrived. 
 - Ana had grinned at me on the stairs like I was an idiot, and I just thought they were all so ridiculous and easily ignored.
 - None of these childish games really bothered me, and I'm certain they would have bothered me *not at all* if I wasn't being drugged.
-- However, on top of the constant childishness, everything that was happening was extremely confusing. I couldn't keep anything straight in my mind.
-- Nevertheless, I'm clear in my mind that something horrible is going to happen at the last chamber music class of the school year, on the 12th.
+- However, on top of the constant childishness, everything that was happening was extremely intense and confusing. I couldn't keep anything straight in my mind.
+- Nevertheless, I'm clear that something horrible is going to happen at the last chamber music class of the school year, on the 12th.
 - I tweet about my feelings as the day approaches: https://x.com/1FRGVN/status/1665611717223612416.
 
 ![Intolerable levels of doubt and fear](../../content/tweets/intolerable-doubt-and-fear.png)
@@ -70,7 +70,7 @@
 !!! tip "Was I being primed and groomed online for that day?"
     - A "setting up of events I should be worried about" was an ongoing theme with the cyber-stalkers from the conservatory, particularly in [August 2023](august.md#going-public-on-twitter) when I was so frightened I went public on Twitter, and then again in [March 2024](../2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) when I became afraid for my life and left my piano studies, and then again in [April 2024](../2024/april.md#lawyer) when I became certain I was going to be arrested.
     - Is the original childishness an intended and sinister part of the murderous plots?
-    - Will an avalanche of victims corroborate my story with their own horrible experiences at the hands of teachers and staff of the Generalitat's conservatory system?
+    - Will an avalanche of victims corroborate my story with their own horrible experiences at the hands of teachers and staff of the Generalitat Valenciana's conservatory system for music and dance?
 
 ## Last harmony class
 
@@ -78,8 +78,8 @@
 - I am feeling extremely high, anxious, euphoric, and consequently quite confused.
 - There's a lot going on I'm not fully aware of; the constant online stalking, gang stalking at the conservatory, drugging at home and in class.
 - Work has become enormously stressful too and it's difficult to get anything clear in my mind.
-- The two boys in the class are teasing me. 
-- One of them, Andre, refers to me to the others, and then mentions something that's going to happen to me the following week and how excited everyone is about it.
+- The two boys that attend the class are teasing me. 
+- One of them, gypsy Andre, refers to me to the others, and then mentions something that's going to happen to me the following week and how excited everyone is about it.
 - He then starts to laugh uproariously with delight.
 - Andre looks like he could be related to the trumpet teacher; most certainly behaviorally they are a perfect match. 
 - He could very well be his son they're so alike. He could certainly be [Sara's](../2022/september.md#harmony) brother; remember the girl with the strange surname who didn't return to study in the 4th year?
@@ -90,17 +90,20 @@
 
 - The end of year piano concert takes place at the boat club venue in Dénia.
 - A huge crowd of parents and children comes to listen to piano students of all levels and all ages.
-- All the teachers attend.
+- All the [piano teachers](https://portal.edu.gva.es/conservatoridenia/es/departaments-es/#dep-inst-tecla) attend.
 - I play Philip Glass etude no 2: https://www.youtube.com/watch?v=850kyfwmRcM.
 - Before the concert begins, and as we were all preparing, and just as I was a few bars into rehearsing my piece, Domingo shouts **"Again?"** in an accusatory tone, very very loudly.
 - The whole auditorium hears him.
-- I wonder what he means. Does he mean another ridiculous *apparent* romantic tryst for me at the conservatory? Or something more sinister, perhaps, like a replay of the child sexual abuse events from 1989?
-- As I am returning to my seat after rehearsing, another one of the piano teachers, a woman who looks like her other job is porn-star, asks me **"Are you alright"?**
+- I wonder what he means. Does he mean another ridiculous *apparent* romantic tryst for me at the conservatory like in [2014](../early-years/2014.md#first-piano-class-at-the-end-end-of-september)? Or something more sinister, perhaps, like a replay of the child sexual abuse events from 1989?
+- As I am returning to my seat after rehearsing, another one of the piano teachers, a woman teacher who looks like her other job is porn-star, asks me **"Are you alright"?**
 - I have no idea why she is asking me this.
-- You may remember this happened before when Ana Girbes asked me, incongruously, "Are you alright?" just before the [chamber music concert](may.md#chamber-music-concert), and more recently during online terror with regards to these words, which came directly from my [police statement of 2015](../early-years/2015.md#statement-to-the-metropolitan-police); incidents which appear to confirm the significance of such a statement and how a malicious actor might expect it to upset me, especially if they'd read my police statement from 2015 of course, which they could only have done if the Metropolitan police had given it to the teachers and staff at the conservatory, or my apartment was hacked all the way back then too.
-- I guess Domingo instructed her to say this to me.
+- You may remember this happened before when Ana Girbes asked me, incongruously, "Are you alright?" just before the [chamber music concert](may.md#chamber-music-concert), and more recently online stalkers repeated it during the relentless online terror. 
+- These words and phrases came directly from my [police statement of 2015](../early-years/2015.md#statement-to-the-metropolitan-police).
+- The only way they could only have known about these specifics was if the Metropolitan police had given my statement to the teachers and staff at the conservatory, or if my apartment was hacked in 2014-2016 and Domingo Cano had access to my activity.
+- Domingo must have instructed the woman to say this to me.
+- Interestingly, given that no-one was permitted to communicate with me at all outside of regular classes while I was being targeted, the only time anyone ever said anything to me turned out to be *significant* like this.
 - One of Domingo's students, Adriana, she is 14 or 15, runs over to him in a subservient and affected way. I believe he has requested her to do this too. I'm sure I'm not the only one cringing.
-- Nevertheless, aside from the terrorism, playing in this concert is an immense joy for me and exuberant doesn't come close to how I feel about the experience. I tweet about this later: https://x.com/1FRGVN/status/1667242652163514406:
+- Nevertheless, aside from the sexual terrorism, playing in this concert is an immense joy for me and exuberant doesn't come close to how I feel about the experience. I tweet about this later: https://x.com/1FRGVN/status/1667242652163514406:
 
 ![June 9th piano concert](../../content/tweets/june-9-concert-2023.png)
 
@@ -114,12 +117,21 @@
 
 ## Work stress
 
-- Work is becoming extremely stressful and I'm not able to handle some of the emotionally challenging things that are going on there.
-- I'm being bullied there too, I'm not sure why.
-- I'm doing my best to do a good job but feel like the men are trying to get me to leave.
-- It has all started because I corrected some instructions that were written by one of the men and he took offense at my corrections, even though we were getting complaints about them.
-- It felt like there was more to it.
-- The stress of being bullied at the conservatory, and the feelings of being high and anxious, made me unable to deal with any of this effectively.
+- Work is becoming extremely stressful and I'm not able to handle some of the emotionally challenging things that are going on.
+- I'm doing my best to do a good job but I feel like the important men are trying to make me look incompetent and get me to leave.
+- I am managing one other writer on the team whose level of English is pre-school. He doesn't know where to put full stops and capital letters.
+- He was hired by someone who didn't know the job and had been destroying the content for nearly a year.
+- I redirect him into things he can do which I don't have time for.
+- Nevertheless, it feels like the usual woman-in-tech scenario. You show competence and know-how and one of the insecure men takes great offense and starts a campaign of terror against you.
+- Quite often, women-in-tech end up pretending to be not as competent as they are to avoid this, and obviously are targeted at that time for being incompetent.
+- Tech is a game that women cannot win.
+- We work side-by-side with violent men, and the predominantly decent men we work with usually do nothing to help or support us.
+- In this specific case, I had corrected some published instructions which were incorrect and we were getting a lot of complaints about.
+- The original author, a very insecure male, took great exception to this and tried to hack into my laptop directly with my permission, which I did not give him. He was very aggressive.
+- Eventually, we worked through the examples together and he had to agree there was a problem he hadn't noticed.
+- Nevertheless, these sorts of situations are death knells to women's careers in tech and I was targeted by management from that moment onwards.
+- The stress of being bullied relentlessly at the conservatory, and the feelings of being high and anxious from drugging, made me unable to deal with any of this effectively.
+- I'm thinking about resigning; for the second time in less that 6 months.
 
 ## Sunday 11th June
 
