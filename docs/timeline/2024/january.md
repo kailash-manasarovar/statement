@@ -45,6 +45,7 @@
 - My suspicions all this time were solid.
 - I can only guess at how much money criminals made from these films, of which there were probably a few.
 - Add to that the earnings that Dénia criminals were now making on spy-cam porn of me in my apartment, and we are talking probably in the 10s of millions, owed to me personally, by criminal gangs in the UK and Spain.
+- Pervert gangs had been enriching their lives on my suffering for decades.
 
 ## Google search
 
