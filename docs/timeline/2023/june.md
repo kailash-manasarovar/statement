@@ -163,7 +163,8 @@
 
 ![trim tab](../../content/tweets/trim-tab.png)
 
-- Notice the amount of views I'm getting at this time. This is before I went public, and before I signed up for premium. In contrast, each of my tweets now gets on average a maximum of 20 views.
+- Notice the amount of views I'm getting at this time. This is before I went public in September and views increased even more, and before I signed up for premium in January and I started to get massive view counts.
+- In contrast, each of my tweets now, in May 2025, gets on average a maximum of 20 views.
 
 ## Monday 12th June 2023
 
