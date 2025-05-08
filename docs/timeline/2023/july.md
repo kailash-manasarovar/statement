@@ -128,6 +128,17 @@ Some of my tweets from that time.
 
 ## Other smaller examples
 
+### Seaweed
+
+- I see photos of hanging strips of seaweed on the `@sinremite` account.
+- They are from artist Julia Lohmann's installations.
+- I have no idea what they're from and I think nothing of them.
+- A few weeks later, I see Ana Requena Marin in a Julia Lohmann installation.
+
+![Julia Lohmann](../../content/images/carmen/sinremite-julia-lohmann.jpg)
+
+- I'm truly amazed at the hacker's dedication and commitment. None of it made any sense.
+
 ### The guy at the Alhambra
 
 - The plate lady pictures stop completely and I start seeing a similar "set" of repeated pictures with a specific character.
