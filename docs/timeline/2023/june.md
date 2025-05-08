@@ -117,21 +117,23 @@
 
 ## Work stress
 
-- Work is becoming extremely stressful and I'm not able to handle some of the emotionally challenging things that are going on.
+- Work is becoming extremely stressful and I'm not able to handle some of the emotionally challenging things that are going on there.
 - I'm doing my best to do a good job but I feel like the important men are trying to make me look incompetent and get me to leave.
 - I am managing one other writer on the team whose level of English is pre-school. He doesn't know where to put full stops and capital letters.
-- He was hired by someone who didn't know the job and had been destroying the content for nearly a year.
-- I redirect him into things he can do which I don't have time for.
-- Nevertheless, it feels like the usual woman-in-tech scenario. You show competence and know-how and one of the insecure men takes great offense and starts a campaign of terror against you.
+- He was hired by someone who didn't know the job and he had been hacking away at the content for nearly a year.
+- I redirect him into things he can do which I don't have time for, things he's really good at like web development - although sometimes, he admits, he gets someone else to help him.
+- They fire him at the beginning of the month and I'm on my own.
+- It starts to feel like the usual *woman-in-tech* scenario. You show competence and know-how and one of the insecure men takes great offense and starts a campaign of terror against you.
 - Quite often, women-in-tech end up pretending to be not as competent as they are to avoid this, and obviously are targeted at that time for being incompetent.
 - Tech is a game that women cannot win.
 - We work side-by-side with violent men, and the predominantly decent men we work with usually do nothing to help or support us.
-- In this specific case, I had corrected some published instructions which were incorrect and we were getting a lot of complaints about.
+- In this specific case, I had corrected some published instructions which we were getting a lot of complaints about.
 - The original author, a very insecure male, took great exception to this and tried to hack into my laptop directly with my permission, which I did not give him. He was very aggressive.
 - Eventually, we worked through the examples together and he had to agree there was a problem he hadn't noticed.
-- Nevertheless, these sorts of situations are death knells to women's careers in tech and I was targeted by management from that moment onwards.
-- The stress of being bullied relentlessly at the conservatory, and the feelings of being high and anxious from drugging, made me unable to deal with any of this effectively.
-- I'm thinking about resigning; for the second time in less that 6 months.
+- Nevertheless, these sorts of situations are death knells to women's careers in tech, and I was targeted by management from that moment onwards.
+- The stress of being bullied and sexually groomed relentlessly at the conservatory and online, and the feelings of being high and anxious from drugging, made me unable to deal with any of this effectively.
+- I start thinking about resigning; for the second time in less than 6 months.
+- Was getting me fired part of the conspiracy so that I would be truly isolated from any possible avenue of help?
 
 ## Sunday 11th June
 

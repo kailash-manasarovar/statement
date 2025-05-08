@@ -95,10 +95,11 @@
 ## Bullying at work
 
 - Polygon are more obviously building up to firing me.
-- I have requested an investigation done with regards to being targeted continually for my women's rights activism.
+- I have requested an investigation done with regards to being targeted continually for my [women's rights activism](june.md#uk).
 - The HR team has a meeting in which they mention me specifically in a underhand way. They mention the word 'Fetch' over and over for no reason. Fetch is a direct reference to when I was working at a company in Cambridge and a man flashed at me in an online meeting.
-- Gabriel Silva makes sure to mention we all go this meeting if we haven't seen it already, especially me.
-- Polygon hires the [man who isn't very competent](../2023/june.md#work-stress) and doesn't like women, but has a very loud voice, that I had worked with before.
+- HR professionals share stories like these so that women will eventually be driven out of tech for good. They've very nearly achieved this goal.
+- Gabriel Silva makes sure to mention we all watch this meeting if we didn't attend, especially me.
+- Polygon hires the [man who isn't very competent](../2023/june.md#work-stress) and doesn't like women who correct his mistakes, but has a very loud voice, that I had worked with before.
 
 ## Fatima
 
