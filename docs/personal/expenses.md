@@ -111,7 +111,7 @@ My laptops and phones are really unusable as they are infested with hacker softw
 
 ## Estimated money earned by pornographers
 
-- Given the amount of people involved in the plot and how there was no way they weren't getting paid for it, there will be numerous revenue streams coming into Dénia pornographers and sex gangs.
+- Given the amount of people involved in the plot and how there was no way they weren't getting paid for it, there will be numerous revenue streams coming into Dénia's pornographers and sex gang accounts.
 - The original porn from 1989 has been live for over 30 years.
 - I also believe that, given porn just gets more and more boring for consumers and they always need something more, something extra perverted, I believe consumers are now able to interact with spy cam targets via their social media and this is controlled by criminal gangs.
 - I believe many of the accounts that followed me and stalked me on X from September 2023 onwards will be men paying a subscription for interaction with a woman they have already been paying to watch in her own home, and be raped repeatedly while sedated without her knowledge.

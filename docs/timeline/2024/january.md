@@ -83,6 +83,14 @@
 
 - There are additions to this period in Ireland related to something Steve said to me, an email exchange between myself and him, and some interesting communications.
 
+### Therapy table
+
+- I buy a therapy table with the intention of starting up a trauma therapy practice.
+- Online in conversation with hackers, I mention that everyone might benefit from getting on my table.
+- A post flashes up "I'm not doing that!!", as if shouting.
+- I realize later they are referring to the [gang-rape porn on the table incident](../2023/july.md#carmen), the 'table' meme which they had been triggering me with since at least August 2023.
+- It's a curious irony that we call the trauma therapy bed a table, isn't it.
+
 ## Boots from Ireland
 
 - I buy some expensive boots in Galway. They're beautiful.

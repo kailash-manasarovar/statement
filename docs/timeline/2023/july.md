@@ -118,6 +118,13 @@ Some of my tweets from that time.
 
 - Most of the images in the screenshot above are new, I haven't seen them previously, apart from the Carmen image which has been appearing on and off since July 2023, and the photo of Rocio Vidal which has been appearing probably since around October 2023 and we will talk about that [later](october.md#rocio-vidal) as it is significant.
 - Curiously, I thought Carmen was plate lady but that wasn't the case. Carmen, as I'm informed later, represents Carmen Cano, Domingo's sister, a major player in the deceit and harassment.
+- Here's an earlier screenshot using her account as search term.
+
+![Sin remite](../../content/images/carmen/sinremite-1.jpg)
+
+- Curiously, the man in the picture above was dressed exactly the same as [the guy at the Alhambra](#the-guy-at-the-alhambra) I mention below.
+- The first post refers to a 'table'. This 'table' meme became a more frequent online reference over August and September 2023. I realized eventually this was referring to another part of my police statement in which I mention being aware of sitting on a table, possibly undressed. What I was not aware of - that the criminal gangs of Denia, and teachers and staff at the conservatory, were aware of, and informed me of with their relentless online harassment - is that this table incident I mentioned in my police statement had taken place just after being sedated, gang raped, and filmed.
+- Of course, the bottom right picture is a direct reference to me [curled up in a little ball](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) as I was when I was filmed and gang raped. Only the hackers knew about this at the time.
 
 ## Other smaller examples
 
