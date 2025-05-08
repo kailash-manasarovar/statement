@@ -95,6 +95,7 @@
 ## Bullying at work
 
 - Polygon are more obviously building up to firing me.
+- Colleagues' demeanor towards me in [Bali](may.md#bali) really solidified what had been going on since the previous November.
 - I have requested an investigation done with regards to being targeted continually for my [women's rights activism](june.md#uk).
 - The HR team has a meeting in which they mention me specifically in a underhand way. They mention the word 'Fetch' over and over for no reason. Fetch is a direct reference to when I was working at a company in Cambridge and a man flashed at me in an online meeting.
 - HR professionals share stories like these so that women will eventually be driven out of tech for good. They've very nearly achieved this goal.
@@ -137,6 +138,7 @@
 ## Polygon fires the whole writing team
 
 - I'm fired summarily on 25th October, [as expected](#bullying-at-work).
+- The constant dehumanizing up to now didn't worked so they had to think of something more formal.
 - I'm told the whole team is dismissed as they are no longer required.
 - I know it's because of my women's rights activities and the extraordinary manner in which an industrial spy was able to cause enormous trouble with the tech systems, and consequently found out about my private political activities and managed to stick the boot in for me, just weeks after I started.
 - The dismissal letter explains the company is aware it is an unlawful dismissal, but I'm supposed to accept it.
