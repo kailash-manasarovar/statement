@@ -118,7 +118,7 @@
 ## Work stress
 
 - Work is becoming extremely stressful and I'm not able to handle some of the emotionally challenging things that are going on there.
-- I'm doing my best to do a good job but I feel like the important men are trying to make me look incompetent and get me to leave.
+- I'm doing my best to do a good job but I feel like the *important men* are trying to make me look incompetent and get me to leave.
 - I am managing one other writer on the team whose level of English is pre-school. He doesn't know where to put full stops and capital letters.
 - He was hired by someone who didn't know the job and he had been hacking away at the content for nearly a year.
 - I redirect him into things he can do which I don't have time for, things he's really good at like web development - although sometimes, he admits, he gets someone else to help him.
@@ -133,7 +133,7 @@
 - Nevertheless, these sorts of situations are death knells to women's careers in tech, and I was targeted by management from that moment onwards.
 - The stress of being bullied and sexually groomed relentlessly at the conservatory and online, and the feelings of being high and anxious from drugging, made me unable to deal with any of this effectively.
 - I start thinking about resigning; for the second time in less than 6 months.
-- Was getting me fired part of the conspiracy so that I would be truly isolated from any possible avenue of help?
+- Was getting me fired, or getting me to leave my job, part of the conspiracy so that I would be fully isolated from any possible avenue of help when the conservatory classes were over for the school-year and the porn gangs could begin their campaign of terror in earnest?
 
 ## Sunday 11th June
 

@@ -140,7 +140,7 @@
 - I'm fired summarily on 25th October, [as expected](#bullying-at-work).
 - The constant dehumanizing up to now didn't work so they had to think of something more formal.
 - I'm told the whole team is dismissed as they are no longer required.
-- I know it's because of my women's rights activities and the extraordinary manner in which an industrial spy was able to cause enormous trouble with the tech systems, and consequently found out about my private political activities and managed to stick the boot in for me, just weeks after I started.
+- I know it's because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy was able to cause enormous trouble with the tech systems, and consequently find out about my private political activities and managed to stick the boot in for me, just weeks after I started.
 - The dismissal letter explains the company is aware it is an unlawful dismissal, but I'm supposed to accept it.
 - I instruct a lawyer to help me who appears to be on Polygon's side.
 - I suspect they continue to hire one of my team, Hans; a man who was outrageously insubordinate towards me when I was his manager.
