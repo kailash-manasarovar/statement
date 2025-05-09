@@ -320,13 +320,16 @@
 
 ![Pros and cons](../../content/images/pros-and-cons.jpeg)
 
-- The weird "communication" continues between myself and this account, as whoever is running it knows immediately that it is me.
-- I have a long WhatsApp chat with Sally where I complain that the man is lazy. I hear about this again and again over the next year or so online.
+- The weird "communication" continues between my new fake account and the `@jctot19` account. 
+- I have a long WhatsApp chat with Sally, my French friend who I believe now is a spy, where I complain that the man is lazy. 
+- I hear about him being lazy again and again over the next year or so online.
 
 !!! info
-    - What I did not know at this time was that they had full access to my mobile phone anyway so they knew exactly what I was doing online at any given moment, and had done for a very long time.
+    - What I did not know at this time was that the criminal gangs had full access to my mobile phone anyway so they knew exactly what I was doing online at any given moment, and had done for a very long time.
+    - Incidents way back in 2017 and even later suggest the visual access to my movements via my laptops and phones was going on even then and possibly further back.
 
 - I tell Stephen Terrell and some of the other practitioners what's been going on from my perspective at that time, i.e. I had been terrorized by teachers and staff at the conservatory.
+- I tell a practitioner there that I had defecated in my bed while asleep and it was a little round flattened bolus.
 - Everyone can see I'm in a traumatized state.
 - The sexual feelings stop completely while I am away.
 
