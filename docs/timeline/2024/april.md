@@ -7,6 +7,7 @@
 - Was she sent to urgently report back because I happen to be communicating with someone the criminal gangs are unaware of?
 - Of course, the most worrying thing for a brave criminal gang terrorizing a single woman is if she is not, after all, alone. 
 - Little did they know... although I did keep telling them.
+- The inherent cowardice in this sort of thing is off the scale.
 
 ## Response from Generalitat
 
