@@ -169,14 +169,16 @@
 ## Monday 12th June 2023
 
 - Today is the last chamber music class of the 3rd year of professional studies at the conservatory of Dénia; and my funeral, apparently.
-- I'm prepared for what I'm quite sure is supposed to be enormously humiliating and ridiculous from any sane person's stand point.
+- I'm prepared for what I'm quite sure is supposed to be enormously humiliating; except I really don't care. I'm still convinced that teachers and staff at the conservatory of Dénia are simply ignorant fools. I have no idea how dangerous they really are and how their intention is, in fact, murderous.
+- They believe they will never see me again after this evening's class. I expect that's the outcome they've been very familiar with over the years.
 
 ### Devastated parents at the church
 
-- I'm extraordinarily tense before class. As I walk around, I decide to take a detour.
-- I take a detour and pop into the [chapel on the Carrer Loreto](https://www.google.com/maps/place/Iglesia+Agustinas+Recoletas,+Denia/@38.8404519,0.1035054,19z/data=!4m15!1m8!3m7!1s0x129e1b22919b9785:0xcd3bcc58c432965f!2sC%2F+de+Loreto,+03700+D%C3%A9nia,+Alacant,+Spain!3b1!8m2!3d38.8404519!4d0.1044442!16s%2Fg%2F1w3swvhw!3m5!1s0x129e1b2297b6860d:0xeba2d1d681469aaa!8m2!3d38.8404811!4d0.1039396!16s%2Fg%2F12qf4wb9n?entry=ttu&g_ep=EgoyMDI1MDQzMC4xIKXMDSoASAFQAw%3D%3D) to say hi to Mary and ask for her blessings and guidance.
+- I'm extraordinarily tense before class. 
+- On my way into town to the conservatory, I decide to take a detour.
+- I walk towards the Carrer Loreto and pop into the [chapel there to ask Mary for guidance and blessings](https://www.google.com/maps/place/Iglesia+Agustinas+Recoletas,+Denia/@38.8404519,0.1035054,19z/data=!4m15!1m8!3m7!1s0x129e1b22919b9785:0xcd3bcc58c432965f!2sC%2F+de+Loreto,+03700+D%C3%A9nia,+Alacant,+Spain!3b1!8m2!3d38.8404519!4d0.1044442!16s%2Fg%2F1w3swvhw!3m5!1s0x129e1b2297b6860d:0xeba2d1d681469aaa!8m2!3d38.8404811!4d0.1039396!16s%2Fg%2F12qf4wb9n?entry=ttu&g_ep=EgoyMDI1MDQzMC4xIKXMDSoASAFQAw%3D%3D).
 - The church is empty apart from a couple in their sixties sitting at the front of the church near the altar.
-- They have a portrait with them of a young girl.
+- They have a portrait of a young girl with them.
 - They are crying.
 
 ![Couple at the altar](../../content/images/devastated-parents-1.png)
@@ -185,40 +187,55 @@
 
 ### At the conservatory
 
-- The tension I am feeling is matched by the delighted expectation on everyone's faces.
+- The tension I am feeling is matched only by the delighted expectation on everyone's faces.
 
 ![Carrie](../../content/images/carrie.jpg)
 
-- I bring the trumpet teacher a present to say thanks, a little wooden frog instrument. He tries to kiss me and I flinch away. I don't want to kiss him, he's hairy and I don't get a good feeling from him.
-
-!!! tip "The lucky frog"
-    ![Forg the lucky world-saving frog](../../content/images/forg/forg-in-wanderland.png)
-
-    Wee Forg, the lucky world-saving frog will become more and more important to our story as we go along.
-
+- I bring the trumpet teacher a present to say thank you for the classes; a little wooden frog instrument. 
+- He tries to kiss me and I flinch away. I don't want to kiss him, his chin is hairy and I don't get a good feeling from him.
 - I tell him that the frog is lucky and that he should look after it.
 - We play Creep and My Way.
-- Before we play My Way, he tells Pablo to make sure he's recording on his phone, and he starts recording on his phone.
-- It's ugly. Every note is a sort of attack on me personally.
-- The trumpet teacher blows his trumpet extremely loudly in my ear, so that it hurts, and he is marching up and down angrily, blowing his trumpet, and it's all with the intention of humiliating me.
+- Before we play My Way, he tells Pablo to make sure he's recording on his phone, and he sets his phone up for recording too.
+- It's ugly. Every note is an attack on me personally.
+- The trumpet teacher blows his trumpet extremely loudly in my ear, so that it hurts, and he is marching up and down angrily, blowing his trumpet right up against my ear with the intention of humiliating and dehumanizing me.
+- It takes me a while to describe this on X: https://x.com/1FRGVN/status/1670583744283983874.
+
+![Squawking chicken](../../content/images/idiot-chicken.png)
+
 - Gloria comes to the door when we're done and is practically wetting herself with laughter.
 - I'm not at all surprised at any of it but it hurts of course.
-- I'm quite sure I'm not the one in the wrong, however, and I'm slightly appalled that grown adults are behaving this way, especially given the fact they have guardianship powers over a great many people's children.
+- I'm quite sure I'm not the one in the wrong, however, and I'm appalled that grown adults are behaving this way, especially given the fact they have guardianship powers over a great many people's children.
+- Serious concerns for child-safeguarding are triggered massively.
 - As I leave class, I remind the trumpet teacher that the frog is a lucky frog and to look after it.
-- I walk out of the conservatory front door, and teachers and staff throw dirty water (I hope) onto me from an upstairs window (Ana Requena, the violin teacher's classroom actually). Their behavior reminds me of Carrie 1, the Stephen King horror novel.
-- I still have the silk t-shirt that they ruined with the stains on it.
-- As I walk home, I "bump" into Mercedes who I realize was waiting for me to walk the other way I go sometimes, the way she would have been more familiar with me going, and when she realized I'd gone a different way, she'd had to run. This poor woman in her 70s was totally out of breath and trying to style it out. It was actually rather amusing.
-- She was checking my face to see if I was crying. Perhaps she was recording it too.
-- I got home and went onto Twitter and tweeted something like "well that was a crappy ending wasn't it".
-- Suddenly, a huge number of people start to retweet my post and I discover I'm on a list of around 30 people and they're all laughing and jeering at what's happened.
-- I block the list owner and delete all my tweets from the last six months that were related to everything that had been going on at the conservatory
-- I'm shocked and alarmed. I had no idea so many people were involved in the deception, and the humiliation, at that time. 
-- I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also so high all the time (anxious, euphoric, sexually aroused, scared again, all on a loop) I could not get my head straight about anything.
+- He says he will put it in his studio.
+- I walk out of the conservatory front door.
+- Teachers and staff throw dirty water (I hope) onto me from an upstairs window (Ana Requena's classroom).
+- Their behavior reminds me of Carrie, the Stephen King horror novel.
 
 ![Carrie Stephen King](../../content/images/carrie-2.jpg)
 
-!!! info "Related tweets"
-    - https://x.com/1FRGVN/status/1670583744283983874
+- I still have the ruined silk t-shirt with the stains on it.
+- As I walk home, I "bump" into Mercedes who I realize was waiting for me to walk the other way I go sometimes, the way she would have been more familiar with me going, and when she realized I'd gone a different way, she'd had to run. This poor woman in her 70s was totally out of breath and trying to style it out. It was actually rather amusing.
+- She was checking my face to see if I was crying. Perhaps she was recording it too.
+- I got home and went onto X and tweeted something like *"well that was a crappy ending wasn't it"*.
+- Suddenly, a huge number of people start to retweet my post and I discover I'm on a list of around 30 people and they're all laughing and jeering about what's happened.
+- I block the list owner and delete all my tweets from the last six months that were related to everything that had been going on at the conservatory.
+- I'm shocked and alarmed.
+- I had no idea so many people were involved in the deception. 
+- I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also so high all the time (anxious, euphoric, sexually aroused, scared again, all on a loop) I could not get my head straight about anything.
+
+### World-saving lucky Forg
+
+- The little frog I gave the trumpet teacher as a present would reappear often as I foiled the plot and continued attending classes at the conservatory, much to everyone's surprise.
+- I was serenaded by the gypsies whenever I walked through the tunnel of Dénia about the little frog in the box.
+- Frog meme's popped up on my browser UI's repeatedly.
+- Eventually, the frog got a name, Forg, and is now appearing in his own [DeSocial page](https://desocialworld.com/u/KingForg) as King Forg and telling about his adventures.
+
+!!! tip "World-saving lucky forg"
+    ![Forg the lucky world-saving frog](../../content/images/forg/forg-in-wanderland.png)
+
+- He also has an X account, [`@KingForg1`](https://x.com/kingforg1) which was immediately suspended; probably due to British gang interactivity who were a bit annoyed about this when I tried to set it up on my very, very hacked phone.
+- I do hope the trumpet teacher looked after him.
 
 ## Tuesday 13th June
 
