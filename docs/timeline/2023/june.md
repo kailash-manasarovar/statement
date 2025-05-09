@@ -241,12 +241,24 @@
 
 ## Tuesday 13th June
 
-- Maria phones me to ask me to go into the conservatory to sign something.
-- I believe now that she is checking up on me to see how upset I am and if I'll come in to sign something or not.
-- I ask Maria if everyone hates me. She says no, no one hates me. She's lying.
+- Maria phones me first thing to ask me to go into the conservatory to sign something for her.
+- It's nonsense. 
+- They're able to hire a sex offender on a whim and give him a pension, they hardly need his student victims to sign something.
+- No. Maria is checking to find out if I will come to the conservatory again, or not. 
+- They're not sure if their plan has worked, or not.
+- I ask Maria if everyone hates me. 
+- She says no, no one hates me. 
+- She's lying.
+
+### Rainbows from Heaven
+
 - I go to my acupuncture session and I'm extremely traumatized and shocked about what bullies they all are at the conservatory.
 - While I'm on the acupuncture table, there is a violent storm outside, and lightning takes a tree down on the road outside.
-- I leave for Ireland, via Alicante airport, that evening and there are rainbows all over the region. I take it as a good sign.
+- I leave for Ireland, via Alicante airport, that evening and there are rainbows all over the region.
+- I take all this dramatic weather as a good sign.
+- A sign from God Himself.
+
+![Rainbows over Denia](../../content/images/rainbows.png)
 
 ## Teachers and staff involved in gang stalking students at Dénia Conservatory
 
