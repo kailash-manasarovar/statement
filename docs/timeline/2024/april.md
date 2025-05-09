@@ -1,6 +1,10 @@
 ## Away from Spain
 
 - I am away from Spain for the first week of April.
+- I travel to India with a friend for a short tour.
+- When I return to Spain, Christine wants to know who he is, what does he do, where does he live. She asks me these questions over and over.
+- I wonder why she is so interested when I'm telling her about the hell I'm enduring.
+- Is she hurriedly sent to report back because I happen to be communicating with someone the criminal gangs are unaware of?
 
 ## Response from Generalitat
 

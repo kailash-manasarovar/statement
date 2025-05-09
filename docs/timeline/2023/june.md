@@ -237,7 +237,7 @@
     ![Forg the lucky world-saving frog](../../content/images/forg/forg-in-wanderland.png)
 
 - He also has an X account, [`@KingForg1`](https://x.com/kingforg1) which was immediately suspended; probably due to British gang interactivity who were a bit annoyed about this when I initially set up the account on my very, *very* hacked Iphone.
-- I do hope the trumpet teacher looked after him.
+- I do hope the trumpet teacher looks after him.
 
 ## Tuesday 13th June
 
