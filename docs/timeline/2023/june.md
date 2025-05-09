@@ -245,29 +245,34 @@
 - It's nonsense. 
 - They're able to hire a sex offender on a whim and give him a pension, they hardly need his student victims to sign something.
 - No. Maria is checking to find out if I will come to the conservatory again, or not. 
-- They're not sure if their plan has worked, or not.
+- They're not sure if their plan has worked.
 - I ask Maria if everyone hates me. 
 - She says no, no one hates me. 
 - She's lying.
 
 ### Rainbows from Heaven
 
-- I go to my acupuncture session and I'm extremely traumatized and shocked about what bullies they all are at the conservatory.
-- While I'm on the acupuncture table, there is a violent storm outside, and lightning takes a tree down on the road outside.
-- I leave for Ireland, via Alicante airport, that evening and there are rainbows all over the region.
-- I take all this dramatic weather as a good sign.
+- I go to my acupuncture session that afternoon with Thao Qui.
+- I'm extremely traumatized and shocked about what happened at the conservatory.
+- While I'm on the acupuncture table, there is a violent storm outside.
+- Lightning takes a tree down on the road at the top of Sant Telm, the road the conservatory is on.
+- I leave for the first TEB session I've done in person since 2020 in Cork. It's taking place in Ireland again and I drive to Alicante airport to fly to Dublin.
+- As I'm driving through Dénia and out into the mountains, I see rainbows all over the region.
+- I take the dramatic weather as a very good sign.
 - A sign from God Himself.
 
-![Rainbows over Denia](../../content/images/rainbows.png)
+![Rainbows over Dénia](../../content/images/rainbows.png)
 
-## Teachers and staff involved in gang stalking students at Dénia Conservatory
-
-!!! warning
+!!! warning "Teachers and staff involved in gang stalking students at Dénia Conservatory"
     - You can find a list of current teachers and staff on the [conservatory website](https://portal.edu.gva.es/conservatoridenia/es/inici/).
-    - The Generalitat Valenciana systems are so vulnerable to attack that it is possible that names are incorrect or even false in the GV systems and/or websites.
-    - As a taste of things to come, hackers created numerous fake Twitter accounts and sent them to me with pictures of all the conservatory teachers and staff of interest, often in their younger years. 
-    
+    - As a taste of things to come in this story, hackers will create numerous fake X accounts using genuine pictures of teachers and staff in the profiles.
+    - These accounts interact with me endlessly from September 2023 onwards, when these people try once again to terrorize me into having a nervous breakdown, or worse, and to not return to classes.
+        
     For example:
+
+    The trumpet teacher's apparent account. One wonders if the name could be translated to something like "Jesus Christ, there's been 19 victims so far?"
+
+    ![jctot19](../../content/images/jctot-profile.png)
     
     An AI mix of the trumpet teacher and Gloria the conservatory receptionist, an account which has been following me since September 2023 when I went public on Twitter.
 
@@ -277,7 +282,7 @@
 
     ![Paqui Fornet Pastor 1](../../content/images/fake-accounts/paqui1.png){width=35%}
  
-    An AI mix containing Domingo the piano teacher posted around March 2024.
+    An AI generated old Domingo, the piano teacher, posted around March 2024.
 
     ![Domingo lookalike or AI mix](../../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
 
@@ -285,22 +290,24 @@
 
     ![Maria Hontanilla](../../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png){width=35%}
 
-    The chamber music teacher from year 4, a lovely man, posted no doubt to cause unnecessary trouble as I can't imagine he would have been involved in stalking me, at least not to the murderous extent of many of the other teachers. Posted around March 2024.
+    The chamber music teacher from year 4. Posted around March 2024.
 
     ![Chamber music teacher from year 4](../../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png){width=35%}
 
-    Ana the violin teacher in a modeling role for Finnish artist Julia Lohmann. A whole bunch of these pics were sent to me via the trumpet teacher's *apparent* account around June/July 2023 seemingly in order to convince me that Ana and the trumpet teacher were a romantic item.
+    Ana the violin teacher in a modeling role for Finnish artist Julia Lohmann. A whole bunch of these pics were sent to me via the trumpet teacher's *apparent* account around June/July 2023 seemingly in order to further convince me that Ana and the trumpet teacher were a romantic item.
 
     ![Ana](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
 
-    - [Relevant tweet thread](https://x.com/1FRGVN/status/1846120069010473024).
+    [Tweet thread](https://x.com/1FRGVN/status/1846120069010473024) containing the rogues gallery.
 
-    A more recent pic of what looks like Alfonso the harmony teacher who had been rather shocked when I informed him I was leaving because I feared for my life.
+    A more recent pic of what looks like Alfonso the harmony teacher who had been rather shocked when I informed him I was leaving classes because I feared for my life.
 
     ![Harmony teacher](../../content/images/harmony-teacher.png)
 
+    Did they threaten him too?
+
 !!! danger "Critical"
-    - It is *highly* likely all these accounts are controlled by Hazel and Sandra Smith.
+    - It is *highly* likely all these fake X accounts were controlled by Hazel and Sandra Smith and English-speaking members of their gang.
 
 ## Ireland
 
