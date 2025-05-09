@@ -2,9 +2,11 @@
 
 - I am away from Spain for the first week of April.
 - I travel to India with a friend for a short tour.
-- When I return to Spain, Christine wants to know who he is, what does he do, where does he live. She asks me these questions over and over.
-- I wonder why she is so interested when I'm telling her about the hell I'm enduring.
-- Is she hurriedly sent to report back because I happen to be communicating with someone the criminal gangs are unaware of?
+- When I return to Spain, Christine arranges a hurried lunch. She wants to know who he is, what does he do, where does he live. She asks me these questions over and over.
+- I wonder why she is so interested when the hell I'm enduring in Denia seems to be a bit more important.
+- Was she sent to urgently report back because I happen to be communicating with someone the criminal gangs are unaware of?
+- Of course, the most worrying thing for a brave criminal gang terrorizing a single woman is if she is not, after all, alone. 
+- Little did they know... although I did keep telling them.
 
 ## Response from Generalitat
 
