@@ -170,14 +170,15 @@
 
 - Today is the last chamber music class of the 3rd year of professional studies at the conservatory of Dénia; and my funeral, apparently.
 - I'm prepared for what I'm quite sure is supposed to be enormously humiliating; except I really don't care. I'm still convinced that teachers and staff at the conservatory of Dénia are simply ignorant fools. I have no idea how dangerous they really are and how their intention is, in fact, murderous.
-- They believe they will never see me again after this evening's class. I expect that's the outcome they've been very familiar with over the years.
+- They believe they will never see me again after this evening's class. I expect that's the only outcome they've known over the years.
+- They are wrong.
 
 ### Devastated parents at the church
 
 - I'm extraordinarily tense before class. 
 - On my way into town to the conservatory, I decide to take a detour.
-- I walk towards the Carrer Loreto and pop into the [chapel there to ask Mary for guidance and blessings](https://www.google.com/maps/place/Iglesia+Agustinas+Recoletas,+Denia/@38.8404519,0.1035054,19z/data=!4m15!1m8!3m7!1s0x129e1b22919b9785:0xcd3bcc58c432965f!2sC%2F+de+Loreto,+03700+D%C3%A9nia,+Alacant,+Spain!3b1!8m2!3d38.8404519!4d0.1044442!16s%2Fg%2F1w3swvhw!3m5!1s0x129e1b2297b6860d:0xeba2d1d681469aaa!8m2!3d38.8404811!4d0.1039396!16s%2Fg%2F12qf4wb9n?entry=ttu&g_ep=EgoyMDI1MDQzMC4xIKXMDSoASAFQAw%3D%3D).
-- The church is empty apart from a couple in their sixties sitting at the front of the church near the altar.
+- I walk towards the Carrer Loreto and pop into the [chapel there](https://www.google.com/maps/place/Iglesia+Agustinas+Recoletas,+Denia/@38.8404519,0.1035054,19z/data=!4m15!1m8!3m7!1s0x129e1b22919b9785:0xcd3bcc58c432965f!2sC%2F+de+Loreto,+03700+D%C3%A9nia,+Alacant,+Spain!3b1!8m2!3d38.8404519!4d0.1044442!16s%2Fg%2F1w3swvhw!3m5!1s0x129e1b2297b6860d:0xeba2d1d681469aaa!8m2!3d38.8404811!4d0.1039396!16s%2Fg%2F12qf4wb9n?entry=ttu&g_ep=EgoyMDI1MDQzMC4xIKXMDSoASAFQAw%3D%3D) to ask Mary for guidance and blessings.
+- The church is empty apart from a couple in their sixties sitting at the front near the altar.
 - They have a portrait of a young girl with them.
 - They are crying.
 
@@ -187,15 +188,15 @@
 
 ### At the conservatory
 
-- The tension I am feeling is matched only by the delighted expectation on everyone's faces.
+- The intensity of the tension I am feeling is matched only by the delighted expectation on everyone's faces.
 
 ![Carrie](../../content/images/carrie.jpg)
 
 - I bring the trumpet teacher a present to say thank you for the classes; a little wooden frog instrument. 
-- He tries to kiss me and I flinch away. I don't want to kiss him, his chin is hairy and I don't get a good feeling from him.
+- He tries to kiss me and I flinch away. I don't want to kiss him; his chin is rough and hairy. I don't get a good feeling from him.
 - I tell him that the frog is lucky and that he should look after it.
 - We play Creep and My Way.
-- Before we play My Way, he tells Pablo to make sure he's recording on his phone, and he sets his phone up for recording too.
+- Before we play My Way, he tells Pablo to make sure he's recording on his phone. He sets his phone up for recording too.
 - It's ugly. Every note is an attack on me personally.
 - The trumpet teacher blows his trumpet extremely loudly in my ear, so that it hurts, and he is marching up and down angrily, blowing his trumpet right up against my ear with the intention of humiliating and dehumanizing me.
 - It takes me a while to describe this on X: https://x.com/1FRGVN/status/1670583744283983874.
@@ -203,13 +204,14 @@
 ![Squawking chicken](../../content/images/idiot-chicken.png)
 
 - Gloria comes to the door when we're done and is practically wetting herself with laughter.
-- I'm not at all surprised at any of it but it hurts of course.
+- I'm not at all surprised at any of it, but it hurts of course.
 - I'm quite sure I'm not the one in the wrong, however, and I'm appalled that grown adults are behaving this way, especially given the fact they have guardianship powers over a great many people's children.
-- Serious concerns for child-safeguarding are triggered massively.
 - As I leave class, I remind the trumpet teacher that the frog is a lucky frog and to look after it.
 - He says he will put it in his studio.
-- I walk out of the conservatory front door.
-- Teachers and staff throw dirty water (I hope) onto me from an upstairs window (Ana Requena's classroom).
+- I remind him again of the lucky frog, and say goodbye.
+- He ignores me.
+- I leave and walk down the conservatory steps and out the front gate.
+- Teachers and staff throw dirty water (I hope) onto me from an upstairs window; Ana Requena's classroom.
 - Their behavior reminds me of Carrie, the Stephen King horror novel.
 
 ![Carrie Stephen King](../../content/images/carrie-2.jpg)
@@ -227,14 +229,14 @@
 ### World-saving lucky Forg
 
 - The little frog I gave the trumpet teacher as a present would reappear often as I foiled the plot and continued attending classes at the conservatory, much to everyone's surprise.
-- I was serenaded by the gypsies whenever I walked through the tunnel of Dénia about the little frog in the box.
+- I was serenaded by the gypsies whenever I walked through the tunnel of Dénia, and they would sing to me about the little frog in the box.
 - Frog meme's popped up on my browser UI's repeatedly.
-- Eventually, the frog got a name, Forg, and is now appearing in his own [DeSocial page](https://desocialworld.com/u/KingForg) as King Forg and telling about his adventures.
+- Eventually, the frog got a name, Forg, and is now appearing in his own [DeSocial page](https://desocialworld.com/u/KingForg) as King Forg and telling us all about his adventures.
 
 !!! tip "World-saving lucky forg"
     ![Forg the lucky world-saving frog](../../content/images/forg/forg-in-wanderland.png)
 
-- He also has an X account, [`@KingForg1`](https://x.com/kingforg1) which was immediately suspended; probably due to British gang interactivity who were a bit annoyed about this when I tried to set it up on my very, very hacked phone.
+- He also has an X account, [`@KingForg1`](https://x.com/kingforg1) which was immediately suspended; probably due to British gang interactivity who were a bit annoyed about this when I initially set up the account on my very, *very* hacked Iphone.
 - I do hope the trumpet teacher looked after him.
 
 ## Tuesday 13th June
