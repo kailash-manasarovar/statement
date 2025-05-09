@@ -300,11 +300,11 @@
 
     [Tweet thread](https://x.com/1FRGVN/status/1846120069010473024) containing the rogues gallery.
 
-    A more recent pic of what looks like Alfonso the harmony teacher who had been rather shocked when I informed him I was leaving classes because I feared for my life.
+    A more recent pic of what looks like Alfonso the harmony teacher who had been rather shocked when I informed him I was leaving classes in March 2024 because I feared for my life.
 
     ![Harmony teacher](../../content/images/harmony-teacher.png)
 
-    Did they threaten him too?
+    Did they threaten him too? Is this a picture of that happening?
 
 !!! danger "Critical"
     - It is *highly* likely all these fake X accounts were controlled by Hazel and Sandra Smith and English-speaking members of their gang.
@@ -324,9 +324,10 @@
 - I have a long WhatsApp chat with Sally where I complain that the man is lazy. I hear about this again and again over the next year or so online.
 
 !!! info
-    - What I did not know at this time was that they had full access to my mobile phone anyway so they knew exactly what I was doing online at any given moment.
+    - What I did not know at this time was that they had full access to my mobile phone anyway so they knew exactly what I was doing online at any given moment, and had done for a very long time.
 
-- I tell Stephen Terrell and some of the other practitioners what's been going on from my perspective at that time, i.e. I had been terrorized by teachers and staff at the conservatory, and they clearly see I'm in a traumatized state.
+- I tell Stephen Terrell and some of the other practitioners what's been going on from my perspective at that time, i.e. I had been terrorized by teachers and staff at the conservatory.
+- Everyone can see I'm in a traumatized state.
 - The sexual feelings stop completely while I am away.
 
 ## YouTube
