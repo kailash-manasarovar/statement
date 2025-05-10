@@ -493,17 +493,22 @@
 - As I walk to the rocks, I notice a young couple sitting on the beach. She is sitting on what looks like a white beach towel.
 - I get to the end and start walking back as I usually do, then sit for a while in the sun near some shade.
 - I'm quite close to the bar and can hear the music.
-- The bar plays Back to Black and the two people I saw before, who from a distance now could be the trumpet teacher and Ana, walk by, except I know it's not them because I saw these two previously sitting on a white scarf on my walk to the end of the beach. 
+- The bar plays Back to Black and the two people I saw before, who from a distance now could be mistaken for the trumpet teacher and Ana, walk by, except I know it's not them because I saw these two previously sitting on a white scarf on my walk to the end of the beach. 
 - The man is blatantly too young also.
 - The man opens the scarf to the air above his head, in a similar way that I did [in April](april.md#followed-on-the-beach) another time I was followed on my beach walk.
 
 ![Not a timla](../../content/images/not-a-timla.png)
 
-- It's clear it's meant for me.
+- It's clear the whole scene is meant for me.
 - This sort of thing goes on continuously, any time I leave the house.
+
+![Yawn](../../content/images/yawn-1.png)
+
 - I believe now that if I wasn't drugged it would be pretty easy to dismiss.
 - At the time I can't believe people have nothing better to do with their lives.
 - It's all set ups and contrived events designed to terrorize me.
+- I guess when the whole town knows who is being live-streamed on porn networks, dehumanizing them must be obligatory; a tried and tested method of projecting the guilt outwards, except it never works and the ego needs even more evil to feast on.
+- Where does it end, I wonder?
 - Another time, I'm coming back home from the beach and walking towards the road. The trumpet teacher and the doctor Joan are in the grey Peugeot I mention [above](#sunday-11th-june). Joan looks at me and the trumpet teacher looks like he's saying "don't look, don't look", and he looks away.
 - It is indeed very stressful and I'm still feeling enormously sexually aroused all the time and I cannot think straight.
 - I believe the signs and symbols coupled with the promise of a relationship, the overwhelming sexual feelings, and whatever narcotics I'm ingesting create a sort of mental attachment to anything that has any relation to what's been going on.
