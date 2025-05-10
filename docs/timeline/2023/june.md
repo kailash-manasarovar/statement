@@ -376,6 +376,17 @@
 - What did the trumpet teacher do that annoyed them so much?
 - Was he planning on keeping me and my considerable finances and [web3-crypto app](https://1frgvn.com/) for himself, and shutting the British gangs out?
 
+#### One other explanation perhaps
+
+- There is one other explanation to all this, perhaps.
+- A culture that is so utterly corrupt may literally be a sitting duck for global crime organizations.
+- Does the trumpet teacher, and his band, publish this material in a *message-in-a-bottle* type manner.
+- Are they saying, we have no choice but to do this, international porn gangs control us and no-one cares about our children.
+- Are the good men of Valencia crying for help having been easily tricked into pure evil by their own misogynist way of life?
+- It seems unlikely given how much fun the trumpet teacher had at the conservatory of Dénia while he was targeting me, and the things he said to everyone about me in meetings and in the staff room over coffee.
+- But could those perverted demonstrations, too, have been *sand-in-the-eyes* of his local handlers so they would not suspect him of a double-cross?
+- Whatever the story, he wasn't finished with me...
+
 ## Sunday 18th June Alicante airport
 
 - On my return from Dublin to Alicante, I'm walking towards the arrivals hall and I see the trumpet teacher standing there waiting.
