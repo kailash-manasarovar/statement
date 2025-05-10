@@ -225,6 +225,12 @@
 - I'm shocked and alarmed.
 - I had no idea so many people were involved in the deception. 
 - I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also so high all the time (anxious, euphoric, sexually aroused, scared again, all on a loop) I could not get my head straight about anything.
+- A suspicious account `@january_myth`, but one I trusted at that time to be legit posts a picture and a poem which is very unsettling considering the evening's events. 
+- This account [posts another extremely triggering pic and poem](august.md#the-hackers-reveal-themselves) after another significant online-terror event in August.
+
+![Taru Ann pic and poem](../../content/images/taru-ann-poem.png)
+
+- The two posts are related to events designed to terrorize me into never returning to my piano studies at the conservatory.
 
 ### World-saving lucky Forg
 
@@ -419,26 +425,29 @@
     - I now believe that these instances were seen as opportune moments for suggesting I was mentally unwell or imagining things if I ever went to the police about what was going on.
     - **Or**, the instances in which people got excited over my use of the word "hallucinate" were due to the fact they knew I was being given hallucinogens of some variety without my knowledge.
 
-## Back in Dénia
+## Monday 19th June
 
-- I run a block list on his followers and who he's following.
-- I'm worried they're after my Twitter account so I take steps to protect it.
+- I run a block list on `@jctot19`'s followers and everyone the account is following.
+- I'm worried they're after my X account name, so I take steps to protect it.
 
 !!! warning
-    - I've no idea they have had full access via the router probably since I moved in and got connected.
-
-## Monday 19th June
+    - I've no idea they have had full access to my online activity, and all my devices, via the router probably since I moved in and got connected, possibly from even earlier.
+    - Hackers could have taken over my account at any time. 
+    - It's not what they wanted.
 
 - I quit my job but I don't have another one to go to.
 - To everyone's shock and surprise, I go to practice the piano at the conservatory.
 - This was not what they intended, and I knew that very well.
-- But how dare they treat a student like that! I couldn't believe at that time that such behavior could be considered normal, and protected by the school board, as I understand it is now.
+- But how dare they treat a student like that! 
+- I couldn't believe at that time that such behavior could be considered normal, and protected by the school board, as I understand it is now.
 - I'm also stubborn and deeply against injustices of all kinds. 
 - Moreover, my child sexual abuse history has made me utterly intolerant of injustices to children and I knew very well that if Domingo and his associates were able to behave in such a way to an adult student, they would most definitely be doing similar to minors.
+- I remembered many extremely concerning incidents.
 - I also realized that if I backed down and ran away, the evil would just grow.
 - I had no idea that running away was not actually what they really wanted, although from the conservatory studies yes, and perhaps that's what some of the teachers assumed. 
-- It's unclear how much and who knew about the mass voyeurism, drugging, and porn connection.
-- There is also the important point that hackers will have known how much money I have for a long time, and it is not inconsiderable. I am a target on that basis alone.
+- It's unclear who knew about the mass voyeurism, drugging, and spy-cam porn connection.
+- There is also the important point that hackers will have known how much money I have for a long time, and it is not inconsiderable. I continued to be a honey-trap target on that basis alone.
+- I wasn't to know at that time how much money criminal gangs had been making from spy-cam porn of sexual abuse with me as victim.
 
 !!! tip "Laptop"
     - On one occasion I go into practice, there is a laptop sitting on the desk in the piano room.
@@ -446,8 +455,8 @@
 
 ## Last session with the acupuncturist
 
-- I have another acupuncture session with Tao Qi.
-- My system is very regulated unlike it's chaotic nearly dead state - especially with regards to my kidneys - at other sessions.
+- I have another acupuncture session with Tao Qi on Tuesday 20th June.
+- My system is very regulated unlike it's chaotic nearly dead state the week before and at all previous sessions - especially with regards to my kidneys.
 - She does a blood analysis strip and tells me it is highly likely I have diabetes.
 - I know she is lying.
 - She says I should visit my GP about this.
@@ -457,9 +466,9 @@
 
 !!! tip "My suspicions about all this"
     - I believe I would have gone alone to my GP after Tao's concerns, and he would have confirmed a diabetes diagnosis and given me medication for it.
-    - Glaucoma is then explainable.
+    - Glaucoma, and daily medication, is then justifiable.
 
-![Tao Qi](../../content/images/taru-ann-poem.png)
+![Tao Qi](../../content/images/thao-qi.png)
 
 ## Rest of June
 
@@ -469,8 +478,10 @@
 
 !!! info "In retrospect"
     - I don't realize I'm being recorded audibly (at least) via my mobile phone. 
-    - I find this out when the hackers reveal themselves to me, from August/September 2023 onwards, for example when they repeat parts of conversations I've had back to me in fake Twitter account profiles or random posts I see.
-    - I don't realize it is highly likely I'm being filmed with secret cameras in my flat too.
+    - I find this out when the hackers reveal themselves to me, from August/September 2023 onwards.
+    - For example, they repeat parts of conversations I've had back to me in fake X account profiles or random posts I see on my timeline.
+    - I don't realize it is highly likely I'm being filmed with secret cameras all over my flat too.
+    - I've no idea I'm being drugged.
 
 ## The beach
 

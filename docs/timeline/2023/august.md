@@ -133,6 +133,12 @@
 
 - The Sumithra account no longer exists.
 - If you look at the accounts that have followed the Sumithra account in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf), you will see they are all dog-related.
+- The `@january_myth` account who had posted triggering content on [12th June](june.md#monday-12th-june-2023) posts again.
+
+![Love poem](../../content/tweets/taru-ann-poem-2.png)
+
+- I miss the posts as being connected to what's going on for me at this time, and will only figure this out in March 2024.
+- The two posts are related to events designed to terrorize me into never returning to my piano studies at the conservatory.
 
 ## Going public on Twitter
 
