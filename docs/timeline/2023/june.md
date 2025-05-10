@@ -493,7 +493,7 @@
 - As I walk to the rocks, I notice a young couple sitting on the beach. She is sitting on what looks like a white beach towel.
 - I get to the end and start walking back as I usually do, then sit for a while in the sun near some shade.
 - I'm quite close to the bar and can hear the music.
-- The bar plays Back to Black and the two people I saw before, who from a distance now could be mistaken for the trumpet teacher and Ana, walk by, except I know it's not them because I saw these two previously sitting on a white scarf on my walk to the end of the beach. 
+- The bar plays Back to Black and the couple I saw before, who from a distance now could be mistaken for the trumpet teacher and Ana, walk by, except I know it’s not them because I saw these two previously sitting on a white scarf on my walk to the end of the beach.
 - The man is blatantly too young also.
 - The man opens the scarf to the air above his head, in a similar way that I did [in April](april.md#followed-on-the-beach) another time I was followed on my beach walk.
 
@@ -507,8 +507,11 @@
 - I believe now that if I wasn't drugged it would be pretty easy to dismiss.
 - At the time I can't believe people have nothing better to do with their lives.
 - It's all set ups and contrived events designed to terrorize me.
-- I guess when the whole town knows who is being live-streamed on porn networks, dehumanizing them must be obligatory; a tried and tested method of projecting the guilt outwards, except it never works and the ego needs even more evil to feast on.
-- Where does it end, I wonder?
+- I guess when the whole town knows who is being live-streamed on porn networks, and the men are getting a little free view themselves, dehumanizing the victims must be obligatory; a tried and tested method of projecting their collective guilt outwards, except it never works and they eventually need even more evil to feast on.
+- Where does it end, I wonder? 
+- Mass baby rape porn? Maybe? It has to come from somewhere and we hear about it every day in the courts.
+- Could Dénia be the pedo-porn capital of the world; as well as the spy-cam porn capital of the world? Maybe?
+- Seems reasonable since no-one can say anything or do anything about the totally normalized vilest of human behavior without the threat of their children being kidnapped, as the hackers would admit to me themselves during our lengthy communications online.
 
 ### The trumpet teacher and the doctor drive past me
 
