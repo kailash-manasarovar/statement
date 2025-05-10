@@ -509,6 +509,9 @@
 - It's all set ups and contrived events designed to terrorize me.
 - I guess when the whole town knows who is being live-streamed on porn networks, dehumanizing them must be obligatory; a tried and tested method of projecting the guilt outwards, except it never works and the ego needs even more evil to feast on.
 - Where does it end, I wonder?
+
+### The trumpet teacher and the doctor drive past me
+
 - Another time, I'm coming back home from the beach and walking towards the road. The trumpet teacher and the doctor Joan are in the grey Peugeot I mention [above](#sunday-11th-june). Joan looks at me and the trumpet teacher looks like he's saying "don't look, don't look", and he looks away.
 - It is indeed very stressful and I'm still feeling enormously sexually aroused all the time and I cannot think straight.
 - I believe the signs and symbols coupled with the promise of a relationship, the overwhelming sexual feelings, and whatever narcotics I'm ingesting create a sort of mental attachment to anything that has any relation to what's been going on.
