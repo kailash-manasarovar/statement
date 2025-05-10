@@ -509,7 +509,8 @@
 - It's all set ups and contrived events designed to terrorize me.
 - I guess when the whole town knows who is being live-streamed on porn networks, and the men are getting a little free view themselves, dehumanizing the victims must be obligatory; a tried and tested method of projecting their collective guilt outwards, except it never works and they eventually need even more evil to feast on.
 - Where does it end, I wonder? 
-- Mass baby rape porn? Maybe? It has to come from somewhere and we hear about it every day in the courts.
+- Mass baby rape porn? Maybe? 
+- This content has to come from somewhere and we are hearing about 100s of 1000s of films every day in the courts as they let another pedo off with a slapped wrist.
 - Could Dénia be the pedo-porn capital of the world; as well as the spy-cam porn capital of the world? Maybe?
 - Seems reasonable since no-one can say anything or do anything about the totally normalized vilest of human behavior without the threat of their children being kidnapped, as the hackers would admit to me themselves during our lengthy communications online.
 
