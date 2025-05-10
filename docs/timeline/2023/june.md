@@ -365,7 +365,7 @@
 
     ![YouTube results of trumpet teachers apparent name](../../content/images/vidal-s-s-h-search.png)
 
-    - Some videos have comments which suggest girls are being targeted by musician predators in these videos.
+    - Some videos have comments which suggest girls are being targeted by musician predators.
     - The names of the songs are also suggestive: My Way, Hole, .. Orgy, etc.
 
 ### Who is grassing up the trumpet teacher like this?
@@ -390,16 +390,20 @@
 ## Sunday 18th June Alicante airport
 
 - On my return from Dublin to Alicante, I'm walking towards the arrivals hall and I see the trumpet teacher standing there waiting.
-- I can't believe it could be him, I'm horrified actually.
-- I pull my hat down over my eyes and rush through.
-- I forget about this, thinking I must have made a mistake, because it's so weird. 
-- There is no way he could have known about the flight details without having access to my Google account, or a connection to someone who has access to flight databases which is what I thought at the time because I had no idea I was hacked at that time.
 
-!!! warning
+![Alicante arrivals hall](../../content/images/alicante.png)
+
+- I can't believe it could be him; I'm horrified actually.
+- I pull my hat down over my eyes and rush through.
+- I forget about this, thinking I must have made a mistake because it's so weird. 
+- In my mind at the time, there is no way he could have known about the flight details without having access to my Google account; or a connection to someone who has access to flight databases which is what I thought at the time because I had no idea I was hacked.
+
+!!! warning "What were his intentions?"
     - It seems to me that him meeting me off my flight from Dublin on this evening would have been the beginning of something physically sexual and likely porn-related and criminal.
     - I believe now that I had been sexually groomed online, and drugged, in order that I might easily welcome a sexual relationship with this man on this evening.
-    - However, I also surmise that the truth of the set up would have been to get me in a situation where they could produce some gang-rape related porn, similar to what had happened to me when I was a child, and this was going to be monetized around porn networks and paid-for chat groups.
-    - I believe they already had an audience ready and waiting for this.
+    - I was completely unaware that I had been distributed in 24-7 spy-cam porn for over a year while in my apartment, and that this was ongoing.
+    - However, I also believe that they wanted to get me into a situation where they could produce some gang-rape related porn, similar to what had happened to me when I was a child, and this was going to be monetized around porn networks and paid-for chat groups.
+    - I believe there was an audience ready and waiting for this.
 
 !!! danger "Criminal activity"
     - If I'm right in thinking airports keep CCTV for 5 years, then this will be recorded.
