@@ -326,7 +326,7 @@
 
 !!! info
     - What I did not know at this time was that the criminal gangs had full access to my mobile phone anyway so they knew exactly what I was doing online at any given moment, and had done for a very long time.
-    - Incidents way back in 2017 and even later suggest the visual access to my movements via my laptops and phones was going on even then and possibly further back.
+    - Incidents way back in 2017 and earlier suggest the visual access to my movements via my laptops and phones was going on even then.
 
 - I tell Stephen Terrell and some of the other practitioners what's been going on from my perspective at that time, i.e. I had been terrorized by teachers and staff at the conservatory.
 - I tell a practitioner there that I had defecated in my bed while asleep and it was a little round flattened bolus.
@@ -335,38 +335,46 @@
 
 ## YouTube
 
-- In Ireland, I do a search for "Vidal Sastre Sanchez Hornero" on YouTube.
+- In Ireland, I do a search for *"Vidal Sastre Sanchez Hornero"* on YouTube.
 - A number of results come up, one of which is particularly interesting.
-- He is a soloist playing at the Banda Sinfónica L'Amistat - Quart de Poblet. There is a young woman behind him who is clearly nervous. Whoever is filming zooms in on him, and her. She constantly looks up at him. I now wonder if she is medicated.
+- He is a soloist playing at the [Banda Sinfónica L'Amistat - Quart de Poblet](https://www.lamistatquart.com/sociedad/). The website makes for interesting reading. 
+- In the video, there is a young woman behind the trumpet teacher who is clearly nervous and agitated.
+- Whoever is filming zooms in on him, and her, repeatedly.
+- She constantly looks up at him and then away, troubled. 
+- I now wonder if she has been medicated.
 
 <a href="https://www.youtube.com/watch?v=Td74vBNPrW0">
 <img src="/content/images/youtube-video.png">
 <img src="/content/images/youtube-video-2.png">
 </a>
 
-- There is a moment around 1.07 where she looks at another member of the band and makes a face that suggests she finds the trumpet soloist attractive.
+- There is a moment around 1.07 where the woman looks at another member of the band and makes a face that suggests she finds the trumpet soloist sexually attractive.
 - I believe this girl was targeted, just like me, i.e. medicated with aphrodisiacs and cyber-stalked with NLP techniques which made her believe there was a kind of reciprocal relationship going on.
-- It would be good to know what happened to her.
+- It would be good to know exactly what was happening here and whether the woman ended up in porn.
 
-!!! info
-    - Offline download link: [https://www.youtube.com/watch?v=Td74vBNPrW0](https://drive.google.com/file/d/1AsGYbEVufI1pATGd1y0k4bAZ5Om_2gLg/view?usp=drive_link)
+!!! info "Offline download link"
+    - Click here if the YouTube entry isn't working for any reason: [https://www.youtube.com/watch?v=Td74vBNPrW0](https://drive.google.com/file/d/1AsGYbEVufI1pATGd1y0k4bAZ5Om_2gLg/view?usp=drive_link)
 
-- It may also be interesting to know who some of the other people in the group are, especially one particular woman in glasses on the left which could possibly be Carmen Cano, Domingo's sister, and looks very much like a woman I saw outside my apartment on Friday 1st November 2024.
+- It may also be interesting to know who some of the other people in the group are, especially one particular woman in glasses on the left which could possibly be Carmen Cano, Domingo's sister; someone who looks very much like a woman I believe to be Carmen Cano that I saw outside my apartment on Friday 1st November 2024.
 - It is also interesting to note that they have managed to make a lament sound like a funeral march which, I believe, is intentional.
-- At the time I saw this I didn't really understand what I was looking at as nothing made any sense other than Domingo was "getting me back" for not allowing him to control me in 2014.
+- At the time I saw this in June 2023 I didn't really understand what I was looking at as nothing made any sense other than Domingo was "getting me back" for not allowing him to control me in 2014.
 
 !!! info "Interestingly"
-    - There are many other YouTube videos with him in musical scenarios, some of which I felt concern a girl maybe being targeted.
+    - There are many other YouTube videos with the trumpet teacher in musical scenarios.
+    - Many of these gave me concern that a girl, or girls, maybe being targeted.
 
     ![YouTube results of trumpet teachers apparent name](../../content/images/vidal-s-s-h-search.png)
 
-### Who is posting this for me to see?
+    - Some videos have comments which suggest girls are being targeted by musician predators in these videos.
+    - The names of the songs are also suggestive: My Way, Hole, .. Orgy, etc.
 
-- It seems to me that this is rather damning content for the trumpet teacher.
-- Could he really be posting it himself?
-- I wonder who was posting content which appeared to be grassing-up the trumpet teacher?
-- And why?
-- Had the trumpet teacher been planning to keep me for himself, and betrayed the British and Spanish criminal gangs of Denia in doing so?
+### Who is grassing up the trumpet teacher like this?
+
+- It seems to me that all this content is rather damning for the trumpet teacher and his gang.
+- Could he be so sure of his untouchable state that he is sufficiently arrogant to post these examples to me, as a kind of trophy display?
+- Or had he upset his British counterparts to the point where they decided they would grass him up?
+- What did the trumpet teacher do that annoyed them so much?
+- Was he planning on keeping me and my considerable finances and [web3-crypto app](https://1frgvn.com/) for himself, and shutting the British gangs out?
 
 ## Sunday 18th June Alicante airport
 
