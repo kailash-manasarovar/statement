@@ -457,7 +457,9 @@
 
 - I have another acupuncture session with Tao Qi on Tuesday 20th June.
 - My system is very regulated unlike it's chaotic nearly dead state the week before and at all previous sessions - especially with regards to my kidneys.
-- She does a blood analysis strip and tells me it is highly likely I have diabetes.
+- I know that this is because I have been doing TEB therapy in Ireland which is incredibly healing. What I don't know is that it also due to the fact I've been out of my toxic apartment for nearly a week too.
+- I do a urine analysis strip for her at her request.
+- She tells me it is highly likely I have diabetes.
 - I know she is lying.
 - She says I should visit my GP about this.
 - I pick up my sarong to put in my bag to take home. She forcefully insists on folding my sarong for me.
