@@ -467,7 +467,7 @@
 - I cancel all sessions with her without telling her why.
 
 !!! tip "My suspicions about all this"
-    - I believe I would have gone alone to my GP after Tao's concerns, and he would have confirmed a diabetes diagnosis and given me medication for it.
+    - I believe that if I would have gone to my GP after Tao's concerns, he would have confirmed a diabetes diagnosis and given me medication for it.
     - Glaucoma, and daily medication, is then justifiable.
 
 ![Tao Qi](../../content/images/thao-qi.png)
