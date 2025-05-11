@@ -139,6 +139,9 @@
 
 - I often go to the beach on Sundays.
 - As I'm walking down to the beach that afternoon, the trumpet teacher is driving towards me in a beat up, grey, Peugeot 205.
+
+![TT on Carrer Furs](../../content/images/tt-on-carrer-furs.png)
+
 - He sees me and takes a sharp, wheel-squealing turn into a no entry road. It's rather amusing.
 - It reminds me of the Truman Show and I feel like Truman: https://x.com/1FRGVN/status/1667925200292159490.
 
