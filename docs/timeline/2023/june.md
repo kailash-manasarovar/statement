@@ -485,10 +485,10 @@
     - I find this out when the hackers reveal themselves to me during online communication with them that starts in August 2023.
     - For example, they may repeat significant parts of conversations I've had during the day back to me in fake X account profiles or random posts I see on my X timeline.
     - I realize then they may have heard me masturbating.
-    - I still don't realize it is highly likely I'm being filmed with secret cameras all over my flat. 
     - They will reveal they have access to the cameras on all my devices in August too.
+    - I still don't realize it is highly likely I'm being filmed with secret cameras all over my flat. 
     - I realize at that time they very likely have film and sound of me masturbating in [Lourdes on Good Friday 2023](april.md#good-friday).
-    - I will have no idea I'm being drugged continuously until November 2024 when I throw away all my toiletries and suddenly feel a million times better and clearer-headed.
+    - I will have no idea I'm being drugged continuously until November 2024 when I throw away all my toiletries and suddenly feel a million times better health-wise and massively clearer-headed.
 
 ## The beach
 
