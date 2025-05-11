@@ -519,12 +519,21 @@
 - Could Dénia be the pedo-porn capital of the world; as well as the spy-cam porn capital of the world? Maybe?
 - Seems reasonable since no-one can say anything or do anything about the totally normalized vilest of human behavior without the threat of their children being kidnapped, as the hackers would admit to me themselves during our lengthy communications online.
 
-### The trumpet teacher and the doctor drive past me
+### The trumpet teacher and the doctor Joan drive past me
 
-- Another time, I'm coming back home from the beach and walking towards the road. The trumpet teacher and the doctor Joan are in the grey Peugeot I mention [above](#sunday-11th-june). Joan looks at me and the trumpet teacher looks like he's saying "don't look, don't look", and he looks away.
-- It is indeed very stressful and I'm still feeling enormously sexually aroused all the time and I cannot think straight.
-- I believe the signs and symbols coupled with the promise of a relationship, the overwhelming sexual feelings, and whatever narcotics I'm ingesting create a sort of mental attachment to anything that has any relation to what's been going on.
+- Another afternoon, I'm walking towards the road back home from the beach.
+- I see the [trumpet teacher and doctor Joan](january.md#serious-poisoning-at-chamber-music-class) in the grey Peugeot I mention [above](#sunday-11th-june). 
+- Joan looks at me and the trumpet teacher looks like he's saying "don't look, don't look", and he looks away.
+- All this surveillance and stalking is very stressful; especially as I'm feeling enormously sexually aroused all the time and I cannot think straight.
+- I believe that setting up little events like these have a hypnotic 'meme' type effect which can then be reinforced online on hacker social media.
+- These signs and symbols, coupled with the continued promise of a relationship and overwhelming sexual arousal, plus and whatever narcotics I'm ingesting, create a strong mental attachment to events.
 - I now know these are well-known criminal manipulation techniques usually employed by honey-trappers and pornographers/pimps on vulnerable women.
+- This double-edged sword will turn against them very unexpectedly.
+
+!!! quote "A Course In Miracles: II. The Atonement as Defense: 7"
+    The Atonement is a total commitment. You may still think this is associated with loss, a mistake all the separated Sons of God make in one way or another. It is hard to believe a defense that cannot attack is the best defense. This is what is meant by "the meek shall inherit the earth." They will literally take it over because of their strength. A two-way defense is inherently weak precisely because it has two edges, and can be turned against you very unexpectedly. This possibility cannot be controlled except by miracles. The miracle turns the defense of Atonement to your real protection, and as you become more and more secure you assume your natural talent of protecting others, knowing yourself as both a brother and a Son.
+
+- I talk about this [a fair bit](https://x.com/search?q=two-way%20defense%20(from%3A1frgvn)&src=typed_query&f=live) online.
 
 ## Twitter
 
