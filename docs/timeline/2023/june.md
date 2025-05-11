@@ -525,8 +525,8 @@
 - I see the [trumpet teacher and doctor Joan](january.md#serious-poisoning-at-chamber-music-class) in the grey Peugeot I mention [above](#sunday-11th-june). 
 - Joan looks at me and the trumpet teacher looks like he's saying "don't look, don't look", and he looks away.
 - All this surveillance and stalking is very stressful; especially as I'm feeling enormously sexually aroused all the time and I cannot think straight.
-- I believe that setting up little events like these have a hypnotic 'meme' type effect which can then be reinforced online on hacker social media.
-- These signs and symbols, coupled with the continued promise of a relationship and overwhelming sexual arousal, plus and whatever narcotics I'm ingesting, create a strong mental attachment to events.
+- I believe that setting up little events like these have a hypnotic 'meme' type effect which can then be reinforced online on hacked social media.
+- These signs and symbols, coupled with the continued promise of a relationship and overwhelming sexual arousal, plus and whatever narcotics I'm ingesting, create a strong mental attachment to all these events.
 - I now know these are well-known criminal manipulation techniques usually employed by honey-trappers and pornographers/pimps on vulnerable women.
 - This double-edged sword will turn against them very unexpectedly.
 
