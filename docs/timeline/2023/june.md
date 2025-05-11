@@ -430,7 +430,7 @@
 - I run a block list on `@jctot19`'s followers and everyone the account is following.
 - I'm worried they're after my X account name, so I take steps to protect it.
 
-!!! warning
+!!! warning "Acting in ignorance"
     - I've no idea they have had full access to my online activity, and all my devices, via the router probably since I moved in and got connected, possibly from even earlier.
     - Hackers could have taken over my account at any time. 
     - It's not what they wanted.
@@ -466,7 +466,7 @@
 - While folding it up, she rolls up a needle into it which I find when I get home.
 - I cancel all sessions with her without telling her why.
 
-!!! tip "My suspicions about all this"
+!!! tip "My suspicions"
     - I believe that if I would have gone to my GP after Tao's concerns, he would have confirmed a diabetes diagnosis and given me medication for it.
     - Glaucoma, and daily medication, is then justifiable.
 
@@ -474,16 +474,21 @@
 
 ## Rest of June
 
-- I practice every day at the conservatory.
-- One morning I am practicing and Domingo opens the door and pokes his head through and looks at me meaningfully, as if to say "I won".
+- In direct defiance of the criminal gang that has targeted me, I go in to practice the piano every day at the conservatory.
+- I'm still under the impression that only Domingo Cano plus his willing helpers had my destruction in mind.
+- I'm hoping it's all over now and we can get on with playing music without any drama.
+- One morning while I'm practicing, Domingo opens the door and pokes his head through and looks at me meaningfully and menacingly, as if to say "I won".
 - I feel overwhelmingly sexually aroused a lot at home, and masturbate often, even on the days I don't go to the conservatory.
 
-!!! info "In retrospect"
-    - I don't realize I'm being recorded audibly (at least) via my mobile phone. 
-    - I find this out when the hackers reveal themselves to me, from August/September 2023 onwards.
-    - For example, they repeat parts of conversations I've had back to me in fake X account profiles or random posts I see on my timeline.
-    - I don't realize it is highly likely I'm being filmed with secret cameras all over my flat too.
-    - I've no idea I'm being drugged.
+!!! info "The slow and steady realization that all my activity, particularly sexual, is being monitored by many people"
+    - I don't realize I'm being recorded audibly via my mobile phone. 
+    - I find this out when the hackers reveal themselves to me during online communication with them that starts in August 2023.
+    - For example, they may repeat significant parts of conversations I've had during the day back to me in fake X account profiles or random posts I see on my X timeline.
+    - I realize then they may have heard me masturbating.
+    - I still don't realize it is highly likely I'm being filmed with secret cameras all over my flat. 
+    - They will reveal they have access to the cameras on all my devices in August too.
+    - I realize at that time they very likely have film and sound of me masturbating in [Lourdes on Good Friday 2023](april.md#good-friday).
+    - I will have no idea I'm being drugged continuously until November 2024 when I throw away all my toiletries and suddenly feel a million times better and clearer-headed.
 
 ## The beach
 
