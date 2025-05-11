@@ -477,7 +477,7 @@
 - In direct defiance of the criminal gang that has targeted me, I go in to practice the piano every day at the conservatory.
 - I'm still under the impression that only Domingo Cano plus his willing helpers had my destruction in mind.
 - I'm hoping it's all over now and we can get on with playing music without any drama.
-- One morning while I'm practicing, Domingo opens the door and pokes his head through and looks at me meaningfully and menacingly, as if to say "I won".
+- One morning while I'm practicing, Domingo opens the door and pokes his head through and looks at me meaningfully and menacingly, as if to say; "So you're still here!".
 - I feel overwhelmingly sexually aroused a lot at home, and masturbate often, even on the days I don't go to the conservatory.
 
 !!! info "The slow and steady realization that all my activity, particularly sexual, is being monitored by many people"
