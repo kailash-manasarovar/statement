@@ -523,7 +523,12 @@
 
 - Another afternoon, I'm walking towards the road back home from the beach.
 - I see the [trumpet teacher and doctor Joan](january.md#serious-poisoning-at-chamber-music-class) in the grey Peugeot I mention [above](#sunday-11th-june). 
-- Joan looks at me and the trumpet teacher looks like he's saying "don't look, don't look", and he looks away.
+
+![Joan & TT at the beach](../../content/images/at-the-beach-dr-joan.png)
+
+- Dr Joan looks at me.
+- The trumpet teacher grabs him by the arm and appears to be saying "don't look, don't look".
+- The doctor looks away.
 - All this surveillance and stalking is very stressful; especially as I'm feeling enormously sexually aroused all the time and I cannot think straight.
 - I believe that setting up little events like these have a hypnotic 'meme' type effect which can then be reinforced online on hacked social media.
 - These signs and symbols, coupled with the continued promise of a relationship and overwhelming sexual arousal, plus and whatever narcotics I'm ingesting, create a strong mental attachment to all these events.
@@ -533,16 +538,18 @@
 !!! quote "A Course In Miracles: II. The Atonement as Defense: 7"
     The Atonement is a total commitment. You may still think this is associated with loss, a mistake all the separated Sons of God make in one way or another. It is hard to believe a defense that cannot attack is the best defense. This is what is meant by "the meek shall inherit the earth." They will literally take it over because of their strength. A two-way defense is inherently weak precisely because it has two edges, and can be turned against you very unexpectedly. This possibility cannot be controlled except by miracles. The miracle turns the defense of Atonement to your real protection, and as you become more and more secure you assume your natural talent of protecting others, knowing yourself as both a brother and a Son.
 
-- I talk about this [a fair bit](https://x.com/search?q=two-way%20defense%20(from%3A1frgvn)&src=typed_query&f=live) online.
+- I talk about the double-edged sword [a fair bit](https://x.com/search?q=two-way%20defense%20(from%3A1frgvn)&src=typed_query&f=live) online.
 
 ## Twitter
 
-All the twitter activity is on my `@1frgvn` account at this stage.
+!!! tip "My X activity"
+    - All the online activity is on my `@1frgvn` account at this time.
+    - In a very short time, hackers will invade my other X account `@jackchardwood` in an extraordinary manner.
 
-- I'm still having the communication via Twitter posts with `@jctot19` who is, apparently, the trumpet teacher.
+- I'm still having the communication via tweets with `@jctot19` who I believe is the trumpet teacher.
 - This account posts communications that are very clearly intended for me.
-- There are posts about Ana, British women, other relevant things.
-- There are posts with a woman with hair flying which is a trigger picture that I will see again on the [American fake account](december.md#chat-with-the-american-matthew) from August onwards, the account I ended up having a prolonged DM with at Christmas 2023.
+- There are posts about Ana, British women, and other relevant things.
+- I see tweets with a woman with hair flying which is a trigger picture that I will see again on the [American fake account](december.md#chat-with-the-american-matthew) from August onwards, the account I ended up having a prolonged DM with at Christmas 2023.
 - There are posts with pictures of hanging seaweed, which I end up finding out, much later, is a Julia Lohmann art installation [I mentioned before](../early-years/2015.md) that will be revealed to me in July as something Ana the violin teacher was connected to.
 
 ![Ana at Lohmann's studio](../../content/images/Screenshot 2024-11-17 at 18.08.46.png)
