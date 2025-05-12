@@ -15,3 +15,5 @@
 
 ![Posts not actionable](../../content/images/fake-accounts/posts-are-not-actionable.png)
 
+!!! danger "Please note"
+    - I post about 1% of this kind of interaction I receive on a daily basis.
