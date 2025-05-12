@@ -2,8 +2,8 @@
 
 ## Response to new content
 
-- I post new content describing what appear to be bona fide stalker accounts, possibly having live porn spy-cam subscriptions, such as the Matthew account.
-- It appears a trigger with the hair flowing was set up early on for me to recognize this account as being significant.
+- As I undertake a first laborious and extremely triggering copy edit, I post new content describing what appear to be bona fide stalker accounts, possibly having live spy-cam-porn subscriptions, such as the Matthew account.
+- It appears that a trigger image - the hair flowing in the wind - was set up early on for me to recognize this account as being significant.
 
 [![Matthew trigger](../../content/images/fake-accounts/matthew-trigger.png)](https://fearandloathinginlasmarinas.com/timeline/2023/june/#matthew-trigger)
 
