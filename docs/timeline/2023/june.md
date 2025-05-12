@@ -4,7 +4,11 @@
 
 - Communication with the trumpet teacher continues.
 - The `@jctot19` account posts tweets suggesting he is coming over, that we will go out, that he will ask me out, that he really likes me; wanting to know if he will get English ham or Spanish jamon for his dinner.
-- I tweet irreverence back, and it is quite amusing at times.
+- I tweet irreverence back, and it is quite amusing at times. 
+- I know I have an audience. I mistakenly believe it is an audience of no more than two or three: https://x.com/1FRGVN/status/1664572450112258049.
+
+![How annoying I am](../../content/images/how-annoying-i-am.png)
+
 - It feels like a relationship somehow.
 - Most of the posts I saw over this time are now deleted.
 - Is this how they administered [Stockholm syndrome](https://en.wikipedia.org/wiki/Stockholm_syndrome) so that I would feel loyalty towards a man engaged in serious criminal-gang activity against me?
@@ -228,12 +232,18 @@
 - I'm shocked and alarmed.
 - I had no idea so many people were involved in the deception. 
 - I was extremely upset by everything that had happened, reeling in fact. They broke me, but I was also so high all the time (anxious, euphoric, sexually aroused, scared again, all on a loop) I could not get my head straight about anything.
-- A suspicious account `@january_myth`, but one I trusted at that time to be legit posts a picture and a poem which is very unsettling considering the evening's events. 
-- This account [posts another extremely triggering pic and poem](august.md#the-hackers-reveal-themselves) after another significant online-terror event in August.
+- A little later, an account `@january_myth` posts an extremely significant picture that I see after the shock of finding out I have been cyber-stalked so extensively and by so many. 
+- It is very unsettling.
+- At the time of writing, 20 November 2024, I'm unable to find this pic as the account owner has deleted it from their timeline. I ask the account owner for it.
+
+![Long long way to go](../../content/tweets/long-long-way-to-go.png)
+
+- There is no reply. Eventually the account re-posts the pic and the poem at my request.
 
 ![Taru Ann pic and poem](../../content/images/taru-ann-poem.png)
 
-- The two posts are related to events designed to terrorize me into never returning to my piano studies at the conservatory.
+- Incidentally, the `@january_myth` account [will post another extremely triggering pic and poem](august.md#the-hackers-reveal-themselves) after another significant online-terror event in August.
+- The two posts are directly related to events designed to terrorize me into never returning to my piano studies at the conservatory.
 
 ### World-saving lucky Forg
 
@@ -249,6 +259,10 @@
 - I do hope the trumpet teacher looks after him.
 
 ## Tuesday 13th June
+
+- I wake up in fighting mode.
+
+![No life on Mars](../../content/images/no-life-on-mars.png)
 
 - Maria phones me first thing to ask me to go into the conservatory to sign something for her.
 - It's nonsense. 
@@ -543,7 +557,7 @@
 
 - I talk about the double-edged sword [a fair bit](https://x.com/search?q=two-way%20defense%20(from%3A1frgvn)&src=typed_query&f=live) online.
 
-## Twitter
+## X.com
 
 !!! tip "My X activity"
     - All the online activity is on my `@1frgvn` account at this time.
@@ -552,57 +566,90 @@
 - I'm still having the communication via tweets with `@jctot19` who I believe is the trumpet teacher.
 - This account posts communications that are very clearly intended for me.
 - There are posts about Ana, British women, and other relevant things.
-- I see tweets with a woman with hair flying which is a trigger picture that I will see again on the [American fake account](december.md#chat-with-the-american-matthew) from August onwards, the account I ended up having a prolonged DM with at Christmas 2023.
-- There are posts with pictures of hanging seaweed, which I end up finding out, much later, is a Julia Lohmann art installation [I mentioned before](../early-years/2015.md) that will be revealed to me in July as something Ana the violin teacher was connected to.
+
+### Matthew trigger
+
+- Alongside the [woman with a cross on her back](july.md#girl-with-a-cross-on-her-back), I see tweets with a woman with hair flying which is a trigger picture that I will see again on the [American fake account](december.md#chat-with-the-american-matthew) from August onwards, the account I ended up having a prolonged DM with at Christmas 2023.
+
+![Matthew account](../../content/images/fake-accounts/matthew.png)
+
+- If this account is not fake, it may be a spy-cam porn subscription account which is allowed controlled and delegated access to live targets and will eventually communicate with me directly and in an extremely sinister manner from August 2023.
+
+### Ana Requena and Julia Lohmann
+
+- I see pictures of strips of hanging seaweed such as that which  you can see behind Julia in the photo below.
+- I have no idea what this means until I see numerous pictures of [Ana Requena](https://lamarina.eldiario.es/2015/03/02/denia-classics-a-piacere-ha-sido-un-orgullo-poder-tocar-por-fin-en-denia/) modeling for Julia Lohmann.
+- The Julia Lohmann art installation is revealed to me in [July on Google searches as something Ana Requena the violin teacher took part in](july.md#seaweed) with a kind of *mean girl* energy that's supposed to upset me and make me jealous.
 
 ![Ana at Lohmann's studio](../../content/images/Screenshot 2024-11-17 at 18.08.46.png)
 
 !!! tip "Ana"
-    - Ana the violin teacher in a modeling role for Finnish artist Julia Lohmann. 
-    - I do wonder if this is correct now as I can't find the connection between the two.
-    - There is a Finnish connection with the trumpet teacher and I wonder if there is a connection between him and Julia Lohmann. Was/is she another victim maybe?
-    - Either way, Julia Lohmann pics with seaweed were coming up at the same time as pictures of Ana, so I related the two things in the same way I thought [plate lady](july.md#plate-lady-early-in-the-month) was Carmen.
+    - Below, Ana the violin teacher is in a modeling role for Finnish artist Julia Lohmann. 
+    - There is a strong Finnish connection to the sex gangs of Dénia, as [Patricia Penny mentioned previously](../2022/october.md#patricia) and I wonder if there is a connection with Julia Lohmann. 
+    - Was/is she another victim maybe; scouted and introduced to the honey-trappers by Ana Requena?
+    - Either way, Julia Lohmann pics with seaweed were coming up at the same time as pictures of Ana, so I related the two things in the same way I thought [plate lady](july.md#plate-lady-early-in-the-month) was a current girlfriend, probably called Carmen.
     - A whole bunch of Ana pics were posted for me to see via the trumpet teacher's *apparent* account around June/July 2023 seemingly in order to convince me that Ana and the trumpet teacher were a romantic item.
-    - Over the hacking duration, and during the conversations I had with hackers, Ana was talked about a lot, often in an extremely derogatory manner and often with relation to unsavory sexual activity.
+    - Over the hacking duration, and during the conversations I had with hackers, they mentioned Ana a lot, often in an extremely derogatory manner such as comments about her bad skin, about her poor quality sexual behavior.
+    - They even posted pictures of what looked like her, sometimes AI cartoons in dreadful poses or insulting states. I was truly appalled.
 
     ![Ana](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
 
-- It's as if they are teasing, posting things that they hope will upset me.
-- Suddenly I'm seeing a lot of porn on my Twitter timeline too.
-- A porn video pops up on my timeline which looks like the trumpet teacher and Ana so I look at it. It is extremely violent and he is holding her by the neck and throwing her around the kitchen. It certainly wasn't actually Ana but the woman was of a similar build and look. It may have been the trumpet teacher however, as the man's back was to the camera and he was of the same build.
-- https://x.com/1FRGVN/status/1664572450112258049
-- On June 12th 2023, an account `@january_myth` posts an extremely significant picture that I see when I get home and after the shock of finding out I have been cyber-stalked so extensively and by so many. At the time of writing, 20 November 2024, I'm unable to find this pic and I wonder if it's deleted. I ask the account owner for it.
+### The excessive porn on X begins
 
-![Long long way to go](../../content/tweets/long-long-way-to-go.png)
-
-- There is no reply.
+- Suddenly I'm seeing a lot of porn on my X timeline and google searches.
+- It feels like Domingo and his cohort are teasing me; posting things that they hope will upset me.
+- A porn video pops up on my timeline which looks like the trumpet teacher and Ana so I look at it.
+- It is extremely violent and he is holding her by the neck and throwing her around the kitchen. It certainly wasn't Ana but the woman was of a similar build and look.
+- It may have been the trumpet teacher however, as the man's back was to the camera and he was of the same build.
 
 ### Interesting tweets from this period that suggest communication with online groups unknown
 
-After 12th June, I became more conscious I had been stalked online by a large group of people. I believed I had managed to block them but was aware a conversation was starting.
+- After 12th June, I became more conscious I had been stalked online by a large group of people.
+- I tweeted my thoughts and feelings about everything with the expectation they would be read.
 
-Something I had not yet realized at that time was that every tweet was being read by a bunch of Spanish-speaking people who were translating them. You can see this on analytics. I would only start realizing this was going on when I was in France.
+[![Teachers bullying students](../../content/images/teachers-bullying-students.png)](https://x.com/1FRGVN/status/1673232678357803010)
 
-A lot of this is very telling.
+[![How much you hate](../../content/images/how-much-you-hate.png)](https://x.com/1FRGVN/status/1672905764166402048)
 
-- https://x.com/1FRGVN/status/1674499946681102348
-- https://x.com/1FRGVN/status/1674508801444048911
-- https://x.com/1FRGVN/status/1674175133030686725
-- https://x.com/1FRGVN/status/1674020464258174977
-- https://x.com/1FRGVN/status/1673979287773298690
-- https://x.com/1FRGVN/status/1673232678357803010
-- https://x.com/1FRGVN/status/1672905764166402048
-- https://x.com/1FRGVN/status/1672536083425312774
-- https://x.com/1FRGVN/status/1672531934046552064
-- https://x.com/1FRGVN/status/1672518913081368576
-- https://x.com/1FRGVN/status/1671791604066136066
-- https://x.com/1FRGVN/status/1671431628248297472
-- https://x.com/1FRGVN/status/1671381584144891905
-- https://x.com/1FRGVN/status/1670583744283983874 -> commentary on 12th June
-- https://x.com/1FRGVN/status/1668539402967035905 -> 13th June Love will find a way
-- https://x.com/1FRGVN/status/1668534709599494144 -> 13th June Life on Mars
+- I tried to address the female teachers at the conservatory directly.
+
+[![Mine is the voice you do not have](../../content/images/to-the-women.png)](https://x.com/1FRGVN/status/1672531934046552064)
+
+- I now wonder if the reply to this tweet is a criminal retort with relation to the `@january_myth` trigger post on [12th June](#monday-12th-june-2023).
+
+[![Long way](../../content/images/long-way.png)](https://x.com/femalemagic/status/1672538934641868800)
+
+- I gave some warnings, which were ignored of course.
+
+[![Warning](../../content/images/a-warning.png)](https://x.com/1FRGVN/status/1671431628248297472)
+
+- I had tried to block all the accounts connected to `@jctot19` but was aware of a conversation beginning related to my X activity with my `@1frgvn` account.
+
+[![I see you](../../content/images/i-see-you.png)](https://x.com/1FRGVN/status/1673979287773298690)
+
+- I start to communicate back.
+
+[![Are you trying to communicate with me](../../content/images/are-you-trying-to-communicate-with-me.png)](https://x.com/1FRGVN/status/1674499946681102348)
+
+- I get a confirmation that, yes, they are trying to communicate with me (I believe it is the trumpet teacher).
+
+[![Happy to communicate](../../content/images/happy-to-communicate.png)](https://x.com/1FRGVN/status/1674508801444048911)
+
+- The 'parallel universe' thing was in relation to the horrible back-and-forth online conversation I had had with `@jctot19` from April-June 2023 which ended with [my funeral at the conservatory](#monday-12th-june-2023).
+- Something I was yet to realize was that my tweets were being translated, presumably by local Spanish speakers. You can see this on analytics. 
+
+### Say no to crucifixion
+
+![Say no to crucifixion](../../content/images/say-no-to-crucifixion.png)
+
+#### A few more interesting ones
+
+- https://x.com/1FRGVN/status/1674175133030686725 -> Comment on Spanish insincerity (understatement).
+- https://x.com/1FRGVN/status/1672536083425312774 -> Comment on Spanish misogyny.
+- https://x.com/1FRGVN/status/1671791604066136066 -> Kaicy.
+- https://x.com/1FRGVN/status/1671381584144891905 -> Comment on child molesters.
+- https://x.com/1FRGVN/status/1668539402967035905 -> 13th June Love will find a way.
 - https://x.com/1FRGVN/status/1668171820179103745 -> 12th June calm before the storm
-- https://x.com/1FRGVN/status/1667836859181932548 -> 11th June
-- https://x.com/1FRGVN/status/1666071924944846848
-- https://x.com/1FRGVN/status/1665430464847331328 -> Ho'oponopono
-- https://x.com/1FRGVN/status/1664572450112258049
+- https://x.com/1FRGVN/status/1667836859181932548 -> Trying to understand why everyone hates me so much.
+- https://x.com/1FRGVN/status/1666071924944846848 -> Kaicy.
+- https://x.com/1FRGVN/status/1665430464847331328 -> The Ho'oponopono prayer I post from time to time.
