@@ -638,6 +638,10 @@
 - The 'parallel universe' thing was in relation to the horrible back-and-forth online conversation I had had with `@jctot19` from April-June 2023 which ended with [my funeral at the conservatory](#monday-12th-june-2023).
 - Something I was yet to realize was that my tweets were being translated, presumably by local Spanish speakers. You can see this on analytics. 
 
+![Translated posts](../../content/images/translated-posts.png)
+
+- Whenever a user translates a post on X, they have to click 'Detail expands'; so all translations were recorded in this way for me to see.
+
 ### Say no to crucifixion
 
 ![Say no to crucifixion](../../content/images/say-no-to-crucifixion.png)
