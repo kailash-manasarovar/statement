@@ -81,7 +81,10 @@
 
 !!! danger "Volunteer list"
     - I believe most of my "volunteers" were connected to Hazel and Sandra Smith in Dénia in some way. Here is a list of them:
-        - Janet (calls herself So): constantly and extremely weirdly trying to distract me from campaigning. She gave me some items which may have contained poison.
+        - Janet (calls herself So): constantly and extremely weirdly trying to distract me from campaigning. She gave me some items which may have contained poison and were certainly related to my history; a vile of holy water from St Valentine, a badge my dad wore, etc.
+
+        ![Trannish inquisition](../../content/images/so-informer.png)
+
         - Steve Norman: lovely man from N2 who kept saying he had been involved in vivisection activity in the 80s which I took to mean he was probably a police informant of some sort, but now I believe he was connected to the criminal gangs of Dénia.
         - Athena Norman: Steve's "wife", a trans-sexual man. I believed this set up to be a way to discredit me in the future.
         - Wesley Aguilar: a man who was clearly embarrassed about something as he could not look me in the eye. Had he seen the child rape porn I was in?
