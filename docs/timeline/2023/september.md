@@ -114,7 +114,10 @@
 
 ## A handyman comes to fix a minor thing in the bathroom
 
-- At some point this month, the air extractor thing pops out of the ceiling in the bathroom.
+- At some point this month, the air extractor thing pops out of the ceiling in the bathroom for no apparent reason.
+
+![Air extractor pops out](../../content/images/invented-problem-in-bathroom.jpg)
+
 - I believe now they have come in and done this so I will call Beatrice for a handyman to fix it, which I do.
 - A man called Fabio comes to fix it, a handyman +34-727-70-53-89. It is an extremely minor thing that should take 5 minutes.
 - He goes into the bathroom and closes the door. He is in there for 30 minutes or so with the door closed.
