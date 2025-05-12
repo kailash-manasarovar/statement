@@ -31,6 +31,12 @@ Some of my tweets from that time.
 - https://x.com/1FRGVN/status/1671791604066136066
 - https://x.com/1FRGVN/status/1685697886325993472
 
+## `@JackChardwood`
+
+- This is another account I have which I did not use very much at all. In fact, there are zero tweets on this account from June 2023.
+- However, from about mid-July, hackers will target this account extensively for about a year, then all activity stops again.
+- We'll look at this more closely.
+
 ## Google search
 
 - Elon Musk makes it impossible to stalk accounts unless you are logged in.
