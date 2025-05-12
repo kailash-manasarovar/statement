@@ -467,8 +467,12 @@
 - I wasn't to know at that time how much money criminal gangs had been making from spy-cam porn of sexual abuse with me as victim.
 
 !!! tip "Laptop"
-    - On one occasion I go into practice, there is a laptop sitting on the desk in the piano room.
-    - I realize Domingo can set me up as looking like I stole something from the conservatory so I take a picture of it.
+    - On two occasions I go into practice, and there are someone elses belongings in the practice room.
+    - One time, there is a laptop on the desk.
+    - I realize Domingo can set me up as looking like I stole something from the conservatory so I take a picture of these items.
+
+    ![Laptop 1](../../content/images/laptop-1.jpg)
+    ![Laptop 2](../../content/images/laptop-2.jpg)
 
 ## Last session with the acupuncturist
 
