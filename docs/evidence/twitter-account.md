@@ -81,7 +81,8 @@
 | ![ fake ]( ../content/images/fake-accounts/list/56.png ){width=50%} |  Threatening profile message. |
 | ![ fake ]( ../content/images/fake-accounts/list/57.png ){width=50%} |  Threatening profile message. |
 | ![ fake ]( ../content/images/fake-accounts/list/58.png ){width=50%} |  Fake account. Rape gang implication. |
-| ![ fake ]( ../content/images/fake-accounts/list/59.png ){width=50%} |  Old fake account, constantly stalker.
+| ![ fake ]( ../content/images/fake-accounts/list/59.png ){width=50%} |  Old fake account, constant stalker. |
+| ![ fake ]( ../content/images/fake-accounts/bertha-dalziel.png ){width=50%} | "Massive in the earwig community" I wonder what that means? |
 
 ## Can't access spaces on desktop
 
