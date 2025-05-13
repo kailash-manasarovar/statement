@@ -26,19 +26,21 @@
 - I see a lot of interaction with an account `@SchrodingerGata`, but even more so with an account named `Carmen` with address `@sinremite`.
 - I will find out over a year later that the woman who owns the `@SchrodingerGata` account, Rocío Vidal, suffered a serious hacking attack.
 - I will also see Rocío Vidal in photos which remind me of [plate lady](#plate-lady-early-in-the-month) in that they imply filmed sexual activity.
+- I believe that the `Carmen` account, given it has so much interaction with the `@jctot19` account over many many years must be a girlfriend.
 
 ### `@1frgvn`
 
 - All of my tweets over this period were being read by numerous non-English speakers.
 - I knew I was being watched constantly online, so I told people what I thought of them and I gave them something of a show. 
 - Why not? It was the only way I could think of positively dealing with this horrible situation which made me feel like ants were crawling all over me and I couldn't get them off by any normal means.
-- I was away for a good chunk of July 2023 without access to X.
+- I was away in Thailand for a good chunk of July 2023 without access to X.
 - At the beginning of the month you can see I'm starting to think about the rave music scene from 1989; when I was sedated, gang-raped repeatedly, and filmed.
-- I played this music to myself, and to my audience, and I was thinking about building a DJ-app on X so I tagged all my music with my DJ name: `#MaSelecta`.
-- After two+ weeks away from Dénia, and two+ weeks off social media - apart from [Google searches on my mobile](#google-search) my interest in 1989 had disappeared completely. However, this interest started up again *hard* in August in France when I was back online, just as it had the August before.
-- I believe this interest was triggered directly by hackers who had root access to my laptop and thus social media account interfaces.
+- I played this music to myself, and to my audience, and I was thinking about building a DJ-app on X so I tagged all the music I played on X with my DJ name: `#MaSelecta`.
+- After two+ weeks away from Dénia, and two+ weeks off social media - apart from [Google searches on my mobile](#google-search) - my interest in 1989 had disappeared completely. However, this interest started up again *hard* in August in France when I was back online, just as it had the August before.
+- I believe this interest was triggered directly by hackers who had root access to my laptop and thus social media account interfaces, and they were therefore able to manipulate me into thinking about these times, about sex, about the trumpet teacher, and then eventually to frighten me and make me believe I was going to be arrested when I returned to Dénia in September.
 - Before I went to [Thailand](#thailand) this month, and after I returned, the conversation with hackers continued online in the same vein it had in June.
 - The following screenshots are a summary of the communication; all my tweets from this period are available [here](https://x.com/search?q=(from%3A1frgvn)%20until%3A2023-08-01%20since%3A2023-06-30&src=typed_query&f=live).
+- Remember, I believe I'm talking directly to Domingo Cano, the trumpet teacher, teachers and staff at the conservatory, and their families, friends, and criminal associates.
 
 ![Left-handed geminis](../../content/tweets/july-comms/left-handed-gemini.png)
 
