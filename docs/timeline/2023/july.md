@@ -1,16 +1,22 @@
 # July 2023
 
-## Nacho caresses the 8-year old
+## Nacho caresses the 8-year old girl
 
 - I continue to go into the conservatory to practice.
-- One afternoon, all the teachers are there collecting something from Gloria at reception, paperwork of some sort.
-- I'm waiting for a key to a room with a piano.
-- All the teachers there are smirking at me.
+- One morning, all the teachers are collecting something from Gloria at reception; paperwork of some sort.
+- I'm in the queue, waiting for a key to a room with a piano.
+- I'm chatting with the harmony teacher Adria Gil.
+- All the teachers are smirking at me aggressively.
 - I feel like I'm the better person so it doesn't bother me.
-- Nacho (Nacho Guerrero Nácher), the clarinet teacher, is there and he is talking to a mother who is with her daughter who must be no more than 8 years old.
-- Nacho looks at me quickly, then starts to caress the child's face, stroking it suggestively, while talking to the mother.
+- Nacho the clarinet teacher, Domingo's good friend and associate, is talking to a mother with her 8-year-old daughter.
+
+![Nacho](../../content/images/nacho.webp)
+
+- Nacho looks at me quickly, then starts to caress the child's face, stroking it suggestively, while talking to the mother and glancing back at me periodically.
 - Everyone is embarrassed. I feel sick. Gloria looks away.
 - He is doing this to show me that he, a teacher at the conservatory, can do whatever he likes to the little girls.
+- He may claim common cultural practices for this later, and in the fairly recent past that may have been true in Spain; certainly in 2005 when I first lived in Spain I would not have been concerned about this sort of thing at all.
+- However, since normal men across the world got themselves addicted to pedo-porn, creating a burgeoning market which requires the daily abuse of millions of minors; and add to that my horrific sexual grooming experiences at the conservatory and online at home in Dénia, we should be extremely concerned about what this sort of thing implies.
 
 ## Twitter
 
