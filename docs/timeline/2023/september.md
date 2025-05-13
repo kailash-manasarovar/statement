@@ -1,3 +1,5 @@
+# September 2023
+
 ## Going public on Twitter
 
 - There had been some suggestion something awful was going to happen to me on the 4th September at home in Spain, possibly that I would be arrested but I didn't know what for.
@@ -142,6 +144,12 @@
 
 - My friend the Tibetan monk visits for a few days in September.
 - He came at my request when I was being terrorized online and I was very scared and stressed.
+- While I'm waiting for him to arrive at Valencia airport, I translate one of the posts I see on the `@jctot19` Google search a lot.
+
+![Igual trasquilaron](../../content/tweets/july-comms/igual-trasquilaron.png)
+
+- It's complicated Spanish but means something like "they thought you were an idiot but you weren't and now they keep making things worse".
+- Posts like these make me think this account is the trumpet teacher communicating directly with me.
 - We had a marvelous few days together.
 - However, one afternoon we are followed along the beach by a group of men who behave extremely strangely. I would remember them again, and I saw one of them in town and I saw two of the others in the laundry one day. 
 - One man, bald, 50s, was sitting on a chair close to the water.

@@ -98,9 +98,9 @@
 
 - The amount of views on these tweets is unprecedented given I had zero activity on this account only weeks before. 
 - Currently, May 2025, I also have near zero activity on this account.
-- I will be followed by numerous porn and other fake accounts; including accounts with pictures of men I would see in Dénia streets, relentless stalker accounts that suggested the Lopez Cano family, made up crypto accounts, even new crypto coins which seemed to be made for me specifically.
-- The criminal resources put into terrorizing me were enormous but I had no idea about that until around a year later. 
-- Until then, I think I'm being terrorized by bored misogynist idiots with nothing better to do with their lives.
+- I will be followed by numerous porn and other fake accounts; including accounts with pictures of men I would see in Dénia streets, relentless stalker accounts that suggested the Lopez Cano family, made up crypto accounts, even new crypto coins which seemed to have been generated for me specifically.
+- The criminal resources put into terrorizing me were enormous but I didn't realize this until around a year later. 
+- Until then, I believe I'm being terrorized by bored misogynist idiots with nothing better to do with their lives.
 
 ## Urgent staff meetings at the conservatory
 
@@ -115,36 +115,38 @@
 - Did anyone urge an end to it all; or if they had any sense did they know to keep quiet about it?
 - Was there a monetary deal involved with the porn distributors who had expected me to be delivered up to them at the end of the school year, as usual?
 - Did the arrogance and egoism get the better of them while they started to make crashing errors of judgment (more than previous, if that were possible) and give me a wealth of content for a best-selling book and Netflix documentary series?
+- Were they so sure I'd be killed or die by suicide, they believed they would never have anything to answer to?
 
 ## Google search
 
-- Elon Musk makes it impossible to stalk accounts unless you are logged in.
-- I had been looking at the `@jctot19` account activity until that time fairly easily as, even though the account had blocked me, I didn't have to log in to see the posts.
-- Now that was impossible unless I used a fake account, which I did a couple of times, but it was cumbersome and he seemed to know about them immediately.
-- So, instead, I started to look him up on Google search with this search term:
+- At the beginning of this month, Elon Musk makes it impossible to look at other accounts' content unless you are logged in.
+- Up until then, I had been looking at the `@jctot19` account activity fairly easily as, even though the account had blocked me, I didn't have to log in to see the posts.
+- Now that was impossible unless I used a fake account, which I did a couple of times, but it was cumbersome and they seemed to know about them immediately.
+- So, instead, I start to look him up on Google search using the following search terms:
     
-    ```txt
-    "jctot19 twitter" or "jctot19 x"
-    ```
+    - `jctot19 twitter`
+    - `jctot19 x`
 
-- In the image section, I started to see strange pictures posted on these Google search results, and sometimes in the main section too.
+- I did this a lot when I was in Thailand.
+- The results I see, particularly in the image section, seem to be part of the conversation I'm having with the trumpet teacher.
 
-!!! info "These search results are extremely significant"
+!!! info "Extremely significant results"
     - This ended up being one of the more definitive ways the hackers communicated with me and shared information.
-    - The hackers were able to manipulate the results of this Google search request.
+    - The hackers were able to manipulate the results of all my Google search requests.
+    - This seemed incredible to me at first; but given their root access into my laptop, phone, and thus social media accounts, it would be a pretty rudimentary attack.
     - Significant pictures, or posts, would appear in these results and then disappear. 
-    - This is where they will eventually post the picture of me in my underwear that I will take in August 2023 in France from my mobile phone.
-    - It's not clear how they can manipulate search in this way, although more recently the suggestion is a hidden cache on my machine.
-    - I explain how this has been happening to the cyber expert the following May, who fails to produce any kind of criminal report for me.
-    - I was not taking screenshots at this time because it was unclear what was going on, and at that time I had no idea I had been hacked.
+    - This is where they will eventually post the picture of me in my underwear that I will take of myself in August 2023 with my mobile phone.
+    - I will explain how this has been happening to the police and two cyber experts the following May, who all fail to provide any assistance.
+    - In July 2023, I was not taking screenshots because it was unclear to me exactly what was going on, and I had no idea I had been hacked.
+    - Screenshots eventually looked something like this: 
 
-- The following are examples of things that came up in Google search during this period.
+    ![Google search 1](../../content/tweets/july-comms/google-search-1.jpg)
 
-![Google search 1](../../content/tweets/july-comms/google-search-1.jpg)
+- The following sections are examples of things that came up in Google search during this period.
 
 ## Plate lady early in the month
 
-- On the `@jctot19` account's Google search results, I start to see various photos of a tiny pretty lady who is a potter or a ceramics artist.
+- On the `@jctot19` account's Google search results, I start to see various photos of a tiny, pretty lady who is a Spanish potter or a ceramics artist.
 
 ![plate lady](../../content/images/plate-lady/plate-lady-happy-1.png)
 
@@ -152,7 +154,9 @@
 
 ![putting up the plates](../../content/images/plate-lady/plate-lady-puts-up-plates.png)
 
-- She is short and cute. She looks Spanish and must be around 30 years old or so.
+- She is short and cute. She looks Spanish and must be around 25-30 years old.
+- She comes up on the `@jctot19` searches, and in relation to communications the account has with the `@sinremite` account.
+- I assume she is Carmen.
 - She wears little navy blue shorts that look like Iyengar yoga pants.
 - Whoever is taking the pictures is a male who is close to her. He's much taller than her and it's clear they are in a relationship of some sort.
 - I never see what he looks like.
@@ -165,7 +169,7 @@
 
 - Her look reminds me of how myself and the trumpet teacher looked at each other at the [chamber music concert in May](may.md#chamber-music-concert).
 - I start to wonder if plate lady is aware she's being photographed. And if not, I wonder how he is doing it.
-- I wonder if plate lady is the trumpet teacher's girlfriend.
+- I wonder if plate lady, or Carmen, is the trumpet teacher's girlfriend.
 
 ## Plate lady later in the month
 
@@ -266,6 +270,10 @@
 - Early in the month I go to Thailand for a holiday.
 - I do not take my laptop so I am not connected to my Twitter account.
 - The pictures referenced above continue to appear in the search results of `@jctot19 twitter`.
+- I start to see curious messages on Google search which seem to be for me.
+
+![Google search](../../content/tweets/july-comms/igual-trasquilaron.png)
+
 - At some point, the pictures of the plate lady stop.
 - There are now references to Thailand and the far east, pictures of tall apartment buildings in Hong Kong, for example.
 - I'm certain he (I assume the trumpet teacher) is somehow manipulating Google search to show me things and I don't know how.

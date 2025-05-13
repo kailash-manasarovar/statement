@@ -33,6 +33,10 @@
 - We sit in the bubbly beds outside beside each other.
 - I tell her I'm going to tame the trumpet teacher.
 
+## Google search
+
+- My Google search activity develops as I start to look at my own results as well as the `jctot19` account.
+
 ## Fighting back
 
 - I realize that Domingo and the trumpet teacher are continuing to harass me online, so I decide to fight back.
