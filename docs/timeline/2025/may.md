@@ -17,3 +17,12 @@
 
 !!! danger "Please note"
     - I post about 1% of this kind of interaction I receive on a daily basis.
+
+## Constant threats online and in-person
+
+- I send some content to an interested party, someone who works in education for the Generalitat Valenciana.
+- I start the email with a greeting in Welsh.
+- Later that day, I take my dad out.
+- As we arrive at the library, we see an extremely weird guy sitting outside. He has an orange old bashed-up car with him.
+- The minute I open the door of my car, he jumps up and starts saying, "Oh, are you Welsh, are you Welsh".
+- I do not feel safe in North London.
