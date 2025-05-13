@@ -40,7 +40,7 @@
 - I believe this interest was triggered directly by hackers who had root access to my laptop and thus social media account interfaces, and they were therefore able to manipulate me into thinking about these times, about sex, about the trumpet teacher, and then eventually to frighten me and make me believe I was going to be arrested when I returned to Dénia in September.
 - Before I went to [Thailand](#thailand) this month, and after I returned, the conversation with hackers continued online in the same vein it had in June.
 - The following screenshots are a summary of the communication; all my tweets from this period are available [here](https://x.com/search?q=(from%3A1frgvn)%20until%3A2023-08-01%20since%3A2023-06-30&src=typed_query&f=live).
-- Remember, I believe I'm talking directly to Domingo Cano, the trumpet teacher, teachers and staff at the conservatory, and their families, friends, and criminal associates.
+- Remember, I believe I'm talking directly to Domingo Cano, the trumpet teacher, teachers and staff at the conservatory, their families, friends, and criminal associates.
 
 ![Left-handed geminis](../../content/tweets/july-comms/left-handed-gemini.png)
 
@@ -96,8 +96,11 @@
 
 ![JC3](../../content/tweets/july-comms/jc-3.png)
 
-- The amount of views on these tweets is unprecedented given I had zero activity on this account only weeks before. - Currently, May 2025, I also have near zero activity on this account.
-- I will be followed by numerous porn and other fake accounts; including accounts with pictures of men I would see in Dénia streets, relentless stalker accounts that suggested the Lopez Cano family, made up crypto accounts, even new coins which seemed to be made for me specifically.
+- The amount of views on these tweets is unprecedented given I had zero activity on this account only weeks before. 
+- Currently, May 2025, I also have near zero activity on this account.
+- I will be followed by numerous porn and other fake accounts; including accounts with pictures of men I would see in Dénia streets, relentless stalker accounts that suggested the Lopez Cano family, made up crypto accounts, even new crypto coins which seemed to be made for me specifically.
+- The criminal resources put into terrorizing me were enormous but I had no idea about that until around a year later. 
+- Until then, I think I'm being terrorized by bored misogynist idiots with nothing better to do with their lives.
 
 ## Google search
 
