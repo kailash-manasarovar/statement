@@ -26,7 +26,7 @@
 - I see a lot of interaction with an account `@SchrodingerGata`, but even more so with an account named `Carmen` with address `@sinremite`.
 - I will find out over a year later that the woman who owns the `@SchrodingerGata` account, Rocío Vidal, suffered a serious hacking attack.
 - I will also see Rocío Vidal in photos which remind me of [plate lady](#plate-lady-early-in-the-month) in that they imply filmed sexual activity.
-- I believe that the `Carmen` account, given it has so much interaction with the `@jctot19` account over many many years must be a girlfriend.
+- I believe that the `Carmen` account, given it has so much interaction with the `@jctot19` account over many many years, must be a girlfriend.
 
 ### `@1frgvn`
 
@@ -101,6 +101,18 @@
 - I will be followed by numerous porn and other fake accounts; including accounts with pictures of men I would see in Dénia streets, relentless stalker accounts that suggested the Lopez Cano family, made up crypto accounts, even new crypto coins which seemed to be made for me specifically.
 - The criminal resources put into terrorizing me were enormous but I had no idea about that until around a year later. 
 - Until then, I think I'm being terrorized by bored misogynist idiots with nothing better to do with their lives.
+
+## Back at the conservatory
+
+- I do wonder what those staff meetings must have been like after I turned up to practice on 19th June.
+
+![Teachers' meeting](../../content/images/teachers-meeting.webp)
+
+- I wonder if the actors had expected to be able to stop their constant charades; or whether they had hoped for a new and less problematic target like normal?
+- Either way, teachers and staff at the conservatory must have realized, with some displeasure, that their part in this wild conspiracy was not over as I was planning on returning for year 4 of professional piano studies in September.
+- Did Domingo at this time organize a ramp up of the online harassment and terror with the intention that I would not return to my studies?
+- Is this why the stalking got even worse for me around this time, and why they even involved the traffic department of the Guardia Civil who stopped me on the A23 and told me who had called them and informed them about me.
+- Did their arrogance get the better of them while they started to make crashing errors of judgment (more than previous if that were possible) and give me a wealth of content for a best-selling book and Netflix documentary series?
 
 ## Google search
 
