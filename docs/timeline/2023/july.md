@@ -18,30 +18,84 @@
 - He may claim common cultural practices for this later, and in the fairly recent past that may have been true in Spain; certainly in 2005 when I first lived in Spain I would not have been concerned about this sort of thing at all.
 - However, since normal men across the world got themselves addicted to pedo-porn, creating a burgeoning market which requires the daily abuse of millions of minors; add to that my horrific sexual grooming experiences at the conservatory and online at home in Dénia, we should be extremely concerned about what this sort of behavior implies.
 
-## Twitter
+## X.com
 
-- The weird communication continues on Twitter.
-- Pictures of Ana continue to come up on the trumpet teacher's timeline.
-- I start to look more closely at the `@jctot19` account and I see much interaction with `@SchrodingerGata`, but more so with an account called **Carmen** with address `@sinremite`.
+- The weird communication continues on X.
+- Pictures of Ana Requena continue to appear on the `@jctot19` timeline; the account I have been led to believe is the trumpet teacher's.
+- I start to look more closely at the `@jctot19` account.
+- I see a lot of interaction with an account `@SchrodingerGata`, but even more so with an account named `Carmen` with address `@sinremite`.
+- I will find out over a year later that the woman who owns the `@SchrodingerGata` account, Rocío Vidal, suffered a serious hacking attack.
+- I will also see Rocío Vidal in photos which remind me of [plate lady](#plate-lady-early-in-the-month) in that they imply filmed sexual activity.
 
-### Tweets
+### `@1frgvn`
 
-Some of my tweets from that time.
+- All of my tweets over this period were being read by numerous non-English speakers.
+- I knew I was being watched constantly online, so I told people what I thought of them and I gave them something of a show. 
+- Why not? It was the only way I could think of positively dealing with this horrible situation which made me feel like ants were crawling all over me and I couldn't get them off by any normal means.
+- I was away for a good chunk of July 2023 without access to X.
+- At the beginning of the month you can see I'm starting to think about the rave music scene from 1989; when I was sedated, gang-raped repeatedly, and filmed.
+- I played this music to myself, and to my audience, and I was thinking about building a DJ-app on X so I tagged all my music with my DJ name: `#MaSelecta`.
+- After two+ weeks away from Dénia, and two+ weeks off social media - apart from [Google searches on my mobile](#google-search) my interest in 1989 had disappeared completely. However, this interest started up again *hard* in August in France when I was back online, just as it had the August before.
+- I believe this interest was triggered directly by hackers who had root access to my laptop and thus social media account interfaces.
+- Before I went to [Thailand](#thailand) this month, and after I returned, the conversation with hackers continued online in the same vein it had in June.
+- The following screenshots are a summary of the communication; all my tweets from this period are available [here](https://x.com/search?q=(from%3A1frgvn)%20until%3A2023-08-01%20since%3A2023-06-30&src=typed_query&f=live).
 
-- https://x.com/1FRGVN/status/1674508801444048911
-- https://x.com/1FRGVN/status/1674499946681102348
-- https://x.com/1FRGVN/status/1674020464258174977
-- https://x.com/1FRGVN/status/1673232678357803010
-- https://x.com/1FRGVN/status/1672531934046552064
-- https://x.com/1FRGVN/status/1672536083425312774
-- https://x.com/1FRGVN/status/1671791604066136066
-- https://x.com/1FRGVN/status/1685697886325993472
+![Left-handed geminis](../../content/tweets/july-comms/left-handed-gemini.png)
 
-## `@JackChardwood`
+![Success measure](../../content/tweets/july-comms/success-measure.png)
 
-- This is another account I have which I did not use very much at all. In fact, there are zero tweets on this account from June 2023.
-- However, from about mid-July, hackers will target this account extensively for about a year, then all activity stops again.
+![Tie misogynists into knots](../../content/tweets/july-comms/tie-misogynists-into-knots.png)
+
+![Porn addictions make men irrelevant](../../content/tweets/july-comms/porn-addictions-make-men-irrelevant.png)
+
+![Black marauder](../../content/tweets/july-comms/black-marauder.png)
+
+- The black marauder is in reference to the dark images of the trumpet teacher I often saw online. For example, in the [plate lady pics](#plate-lady-later-in-the-month) and like I had imagined him in my apartment [watching me do yoga](january.md#yoga).
+- In response to a post on the `@jctot19` [Google searches](#google-search) I was doing which said something like "you will now experience the bull sector", that I felt was a direct misogynist threat to me:
+
+![Sector taurino](../../content/tweets/july-comms/sector-taurino.png)
+
+- ... I told them a little story about how me and bulls are quite good friends, especially Indian ones.
+
+![Bulls](../../content/tweets/july-comms/bull-story.png)
+
+- I also told spiritual tales, little anecdotes, and significant stories; and I gave them information on trauma healing which I am certain they still need.
+
+![Significant stories](../../content/tweets/july-comms/honey-trap.png)
+
+![Trauma tweet](../../content/tweets/july-comms/trauma-tweet.png)
+
+![A promise](../../content/tweets/july-comms/a-promise.png)
+
+- Sometimes, the communication felt like friendly, gentle banter.
+
+![Friends](../../content/tweets/july-comms/kaicy.png)
+
+![Brother](../../content/tweets/july-comms/a-promise-2.png)
+
+- Sometimes, my tweets triggered memes for the hackers they would use relentlessly in the mass of porn they sent me. This tweet mentioning *personal favorite* was oft repeated in pornographic scenarios on my X timeline that I did not subscribe to.
+
+![Personal favorite](../../content/tweets/july-comms/personal-favourite.png)
+
+- When I am finally away from Dénia and in Lourdes, the hackers start to reveal themselves again.
+
+![I see you](../../content/tweets/july-comms/i-see-you.png)
+
+### `@JackChardwood`
+
+- This is another account I have which I did not use very much at all. 
+- In fact, there are zero tweets on this account in June 2023.
+- However, from about mid-July, hackers start to target this account extensively for about a year, then all activity stops again.
 - We'll look at this more closely.
+
+![JC1](../../content/tweets/july-comms/jc-1.png)
+
+![JC2](../../content/tweets/july-comms/jc-2.png)
+
+![JC3](../../content/tweets/july-comms/jc-3.png)
+
+- The amount of views on these tweets is unprecedented given I had zero activity on this account only weeks before. - Currently, May 2025, I also have near zero activity on this account.
+- I will be followed by numerous porn and other fake accounts; including accounts with pictures of men I would see in Dénia streets, relentless stalker accounts that suggested the Lopez Cano family, made up crypto accounts, even new coins which seemed to be made for me specifically.
 
 ## Google search
 
@@ -66,6 +120,8 @@ Some of my tweets from that time.
     - I was not taking screenshots at this time because it was unclear what was going on, and at that time I had no idea I had been hacked.
 
 - The following are examples of things that came up in Google search during this period.
+
+![Google search 1](../../content/tweets/july-comms/google-search-1.jpg)
 
 ## Plate lady early in the month
 
@@ -270,6 +326,10 @@ Some of my tweets from that time.
 
 ![Trumpet teacher's mum](../../content/images/image_123650291.png)
 
+- While having lunch on the A23, I check my WhatsApp messages on my UK phone which I haven't checked in months.
+- My friend from Singapore had contacted me a couple of months previously, and I hadn't noticed.
+- I texted him back immediately.
+
 ## The traffic police stop me
 
 - Just outside Teruel, I am stopped by the Guardia Civil traffic police.
@@ -282,6 +342,10 @@ Some of my tweets from that time.
 - It was an extraordinarily weird thing to say, and I took it to mean I had been grassed up by Domingo and his associates as I was driving to France because the identification document the conservatory had was my British driving license, and because of the good relationship I was having with this man, he informed me, somehow.
 - What I didn't realize yet was that they could tell the police the exact moment I would be in a particular area of the carriageway, on the A23 outside Teruel, because they were tracking my movements and had been for some time probably. 
 - This stop, and the missed call previously, is surely evidence that my movements were being tracked.
+- In my consequent communication with my Singapore friend, I explain I was stopped by the police.
+- He tells me he wrote a song about me. I ask permission from him to tweet it.
+
+![Song about me by Yan](../../content/tweets/july-comms/song-about-me.png)
 
 ## Lourdes
 
@@ -301,7 +365,4 @@ Many of these tweets are confirmation of what has been going on.
 
 It's quite challenging to go through these at the moment, so I'll just pop the search request URL in: https://x.com/search?q=(from%3A1frgvn)%20until%3A2023-07-31%20since%3A2023-07-01&src=typed_query&f=live
 
-### @JackChardwood
 
-- https://x.com/JackChardwood/status/1685756121951154177
-- https://x.com/JackChardwood/status/1685795729246175232
