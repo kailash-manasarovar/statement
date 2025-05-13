@@ -110,10 +110,10 @@
 
 - I wonder if the actors had expected finish with their constant charades; or whether they had hoped for a new and less problematic target like normal?
 - Either way, teachers and staff at the conservatory must have realized, with some displeasure, that their part in this wild conspiracy was not over as I was obviously planning on returning for year 4 of professional piano studies in September.
-- Did Domingo at this time order a ramp up of the online harassment and terror with the intention that I would not return to my studies?
-- Is this why the stalking got even worse for me around this time, and why they even involved the traffic department of the Guardia Civil who stopped me on the A23 and told me who had called them and informed them about my out of date license, the document kept by the conservatory for my identification?
+- Did Domingo order a ramp up of the online harassment and terror with the intention that I would not return to my studies?
+- Is this why the stalking got even worse for me, and why they even involved the traffic department of the Guardia Civil who stopped me on the A23 and told me who had called them and informed them about my out of date license, the document kept by the conservatory for my identification?
 - Did anyone urge an end to it all; or if they had any sense did they know to keep quiet about it?
-- Was there a monetary deal involved with the porn distributors who had expected me to be delivered up to them at the end of the school year, like normal?
+- Was there a monetary deal involved with the porn distributors who had expected me to be delivered up to them at the end of the school year, as usual?
 - Did the arrogance and egoism get the better of them while they started to make crashing errors of judgment (more than previous, if that were possible) and give me a wealth of content for a best-selling book and Netflix documentary series?
 
 ## Google search
