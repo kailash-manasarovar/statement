@@ -102,17 +102,19 @@
 - The criminal resources put into terrorizing me were enormous but I had no idea about that until around a year later. 
 - Until then, I think I'm being terrorized by bored misogynist idiots with nothing better to do with their lives.
 
-## Back at the conservatory
+## Urgent staff meetings at the conservatory
 
 - I do wonder what those staff meetings must have been like after I turned up to practice on 19th June.
 
 ![Teachers' meeting](../../content/images/teachers-meeting.webp)
 
-- I wonder if the actors had expected to be able to stop their constant charades; or whether they had hoped for a new and less problematic target like normal?
-- Either way, teachers and staff at the conservatory must have realized, with some displeasure, that their part in this wild conspiracy was not over as I was planning on returning for year 4 of professional piano studies in September.
-- Did Domingo at this time organize a ramp up of the online harassment and terror with the intention that I would not return to my studies?
-- Is this why the stalking got even worse for me around this time, and why they even involved the traffic department of the Guardia Civil who stopped me on the A23 and told me who had called them and informed them about me.
-- Did their arrogance get the better of them while they started to make crashing errors of judgment (more than previous if that were possible) and give me a wealth of content for a best-selling book and Netflix documentary series?
+- I wonder if the actors had expected finish with their constant charades; or whether they had hoped for a new and less problematic target like normal?
+- Either way, teachers and staff at the conservatory must have realized, with some displeasure, that their part in this wild conspiracy was not over as I was obviously planning on returning for year 4 of professional piano studies in September.
+- Did Domingo at this time order a ramp up of the online harassment and terror with the intention that I would not return to my studies?
+- Is this why the stalking got even worse for me around this time, and why they even involved the traffic department of the Guardia Civil who stopped me on the A23 and told me who had called them and informed them about my out of date license, the document kept by the conservatory for my identification?
+- Did anyone urge an end to it all; or if they had any sense did they know to keep quiet about it?
+- Was there a monetary deal involved with the porn distributors who had expected me to be delivered up to them at the end of the school year, like normal?
+- Did the arrogance and egoism get the better of them while they started to make crashing errors of judgment (more than previous, if that were possible) and give me a wealth of content for a best-selling book and Netflix documentary series?
 
 ## Google search
 
