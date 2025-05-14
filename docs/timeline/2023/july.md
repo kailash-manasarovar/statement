@@ -289,8 +289,10 @@
 
 ![July spell books](../../content/tweets/july-comms/magic-spells.png)
 
-- Other images were of people on beaches, such a lovers kissing but you could never make out who they were, families at the beach, again with people you could never make out.
-- A lot of this went on continuously. I guess it's automated.
+- Other images were of people on beaches; such as lovers kissing but you could never make out who they were, families with children playing, again with people you could never make out.
+- It all seemed extremely important.
+- Perhaps it was!
+- This sort of thing went on continuously. I guess it's automated.
 
 ## Thailand
 
