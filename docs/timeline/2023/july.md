@@ -209,20 +209,28 @@
 
 ## Carmen
 
-- Results of this search always included a picture of a cartoon woman, Carmen. And they still do, even today.
-- This is the `@sinremite` account I mentioned that has a lot of interaction with the `@jctot19` account.
+- Results of the `@jctot19` Google search always included a picture of a cartoon woman, Carmen.
+- They still do, even today.
+- This is the `@sinremite` account I mentioned before that has had a great deal of interaction with the `@jctot19` account over many years.
 
 ![Carmen in today's results](../../content/images/google-searches/Screenshot%202024-11-17%20at%2007.15.36.png)
 
-- Most of the images in the screenshot above are new, I haven't seen them previously, apart from the Carmen image which has been appearing on and off since July 2023, and the photo of Rocio Vidal which has been appearing probably since around October 2023 and we will talk about that [later](october.md#rocio-vidal) as it is significant.
-- Curiously, I thought Carmen was plate lady but that wasn't the case. Carmen, as I'm informed later, represents Carmen Cano, Domingo's sister, a major player in the deceit and harassment.
-- Here's an earlier screenshot using her account as search term.
+- Most of the images in the screenshot above are new.
+- I haven't seen them previously, apart from the Carmen image which has been appearing on and off since July 2023, and the photo of Rocío Vidal which has been appearing since around October 2023 - we will talk about that [later](october.md#rocio-vidal) as it is significant.
+- Curiously, I thought Carmen was plate lady but that wasn't the case.
+- Carmen, as I'm informed later, represents Carmen Cano, Domingo's sister, a major player in the online deceit and harassment, and the woman who likely entered my home with others to douse my belongings in pesticides in October 2024, and add illicit substances to my food and bathroom products whenever I went out over the years 2022-2024.
+- I sometimes wonder if Carmen Cano was managing *all* the Spanish stalker accounts that targeted me, and other victims obviously; delegating access from time to time when it got too busy.
+- I also wonder if the `@jctot19` and the `@sinremite` accounts are both Carmen's responsibility; managed by an AI auto-post facility for phishing whenever she's not using them.
+- Here's an earlier screenshot using the `@sinremite` as search term with some interesting results we'll examine below.
 
 ![Sin remite](../../content/images/carmen/sinremite-1.jpg)
 
-- Curiously, the man in the picture above was dressed exactly the same as [the guy at the Alhambra](#the-guy-at-the-alhambra) I mention below.
-- The first post refers to a 'table'. This 'table' meme became a more frequent online reference over August and September 2023. I realized eventually this was referring to another part of my police statement in which I mention being aware of sitting on a table, possibly undressed. What I was not aware of - that the criminal gangs of Denia, and teachers and staff at the conservatory, were aware of, and informed me of with their relentless online harassment - is that this table incident I mentioned in my police statement had taken place just after being sedated, gang raped, and filmed.
-- Of course, the bottom right picture is a direct reference to me [curled up in a little ball](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) as I was when I was filmed and gang raped. Only the hackers knew about this at the time.
+- The man in the picture above is dressed exactly the same as [the guy at the Alhambra](#the-guy-at-the-alhambra), another significant set of posts that I mention below.
+- The first post refers to a 'table'. 
+- This 'table' meme became a more frequent online reference over August and September 2023. I realized eventually this was referring to another part of my police statement in which I mention being aware of sitting on a tabletop, possibly undressed, in North London in 1989 when I was 16.
+- What I was not aware of - that the criminal gangs of Dénia, and teachers and staff at the conservatory, were aware of, and informed me of during their relentless online harassment over 2023-2024 - is that this table incident I mentioned in my police statement had taken place just after being sedated, gang raped, and filmed.
+- Of course, the bottom right picture is a direct reference to me [curled up in a little ball](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) as I was when I was filmed and gang raped. 
+- Only the Dénia hackers knew about this in July 2023.
 
 ## Other smaller examples
 
