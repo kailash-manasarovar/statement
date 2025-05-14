@@ -231,6 +231,7 @@
 - What I was not aware of - that the criminal gangs of Dénia, and teachers and staff at the conservatory, were aware of, and informed me of during their relentless online harassment over 2023-2024 - is that this table incident I mentioned in my police statement had taken place just after being sedated, gang raped, and filmed.
 - Of course, the bottom right picture is a direct reference to me [curled up in a little ball](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) as I was when I was filmed and gang raped. 
 - Only the Dénia hackers knew about this in July 2023.
+- Notably, the `@sinremite` account no longer exists. This is a very recent change, maybe in the last month or so, time of writing being May 2025.
 
 ## Other smaller examples
 
