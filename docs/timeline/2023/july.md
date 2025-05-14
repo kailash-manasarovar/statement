@@ -121,19 +121,19 @@
 
 - At the beginning of this month, Elon Musk makes it impossible to look at other accounts' content unless you are logged in.
 - Up until then, I had been looking at the `@jctot19` account activity fairly easily as, even though the account had blocked me, I didn't have to log in to see the posts.
-- Now that was impossible unless I used a fake account, which I did a couple of times, but it was cumbersome and they seemed to know about them immediately.
+- Now that was impossible unless I used a fake account, which I did a couple of times, but it was cumbersome and whoever was managing this account seemed to know about these accounts immediately.
 - So, instead, I start to look him up on Google search using the following search terms:
     
     - `jctot19 twitter`
     - `jctot19 x`
 
-- I did this a lot when I was in Thailand.
+- I did this a lot when I was in Thailand on my mobile phone.
 - The results I see, particularly in the image section, seem to be part of the conversation I'm having with the trumpet teacher.
 
 !!! info "Extremely significant results"
     - This ended up being one of the more definitive ways the hackers communicated with me and shared information.
     - The hackers were able to manipulate the results of all my Google search requests.
-    - This seemed incredible to me at first; but given their root access into my laptop, phone, and thus social media accounts, it would be a pretty rudimentary attack.
+    - This seemed incredible to me at first; but given their root access into my laptop, phone, and thus social media accounts, it would be a pretty rudimentary attack and with some time and investment the hack could become complex and full of features.
     - Significant pictures, or posts, would appear in these results and then disappear. 
     - This is where they will eventually post the picture of me in my underwear that I will take of myself in August 2023 with my mobile phone.
     - I will explain how this has been happening to the police and two cyber experts the following May, who all fail to provide any assistance.
@@ -141,6 +141,8 @@
     - Screenshots eventually looked something like this: 
 
     ![Google search 1](../../content/tweets/july-comms/google-search-1.jpg)
+
+    ![Google search 2](../../content/tweets/july-comms/google-search-2.png)
 
 - The following sections are examples of things that came up in Google search during this period.
 
@@ -156,7 +158,7 @@
 
 - She is short and cute. She looks Spanish and must be around 25-30 years old.
 - She comes up on the `@jctot19` searches, and in relation to communications the account has with the `@sinremite` account.
-- I assume she is Carmen.
+- I assume she must be Carmen.
 - She wears little navy blue shorts that look like Iyengar yoga pants.
 - Whoever is taking the pictures is a male who is close to her. He's much taller than her and it's clear they are in a relationship of some sort.
 - I never see what he looks like.
@@ -169,7 +171,7 @@
 
 - Her look reminds me of how myself and the trumpet teacher looked at each other at the [chamber music concert in May](may.md#chamber-music-concert).
 - I start to wonder if plate lady is aware she's being photographed. And if not, I wonder how he is doing it.
-- I wonder if plate lady, or Carmen, is the trumpet teacher's girlfriend.
+- I wonder if plate lady, or Carmen if that's her name, is the trumpet teacher's girlfriend.
 
 ## Plate lady later in the month
 
@@ -193,12 +195,15 @@
 !!! critical
     - At the time, I have no idea what any of this is about, what it means, or who she is.
     - I believe the pics to be current, present day activity; perhaps she is a girlfriend he has dumped, for me maybe?
-    - Over a year later, hackers give me her name; Irene.
+    - Over a year later, hackers will give me her name; Irene.
     - I write about the discovery [in the August 2024 report](../2024/august.md#irene-the-plate-lady).
-    - I look her up and find her online. The very same woman. Except, she is in her 50s.
+    - I look Irene up on Google and find her. 
+    - The very same woman; except, she is in her 50s.
     - The pictures are from 30 years ago.
-    - This fact provokes more questions than it answers.
-    - The trumpet teacher's gang had extraordinarily advanced surveillance technology even in the 80s and 90s. This casts a light on a million different other things we might be interested in.
+    - I'm stunned.
+    - The revelation provokes more questions than it answers.
+    - The trumpet teacher's gang had extraordinarily advanced surveillance technology even way back in the 80s and 90s. 
+    - This casts a light on a million different other things we might be interested in.
     - And who would be so keen to grass up the trumpet teacher's gang in this way? Even giving a name?
     - Could it be the British gangs he had betrayed so boldly?
 
