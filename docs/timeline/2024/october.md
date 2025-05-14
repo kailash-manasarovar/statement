@@ -33,6 +33,15 @@
 - Another could be a woman Magpie I had been friends with years ago in 2006, someone who got extremely angry with me one afternoon after I said something rather innocuous yet truthful, something she found extremely hurtful.
 - I guess manipulating a whole town to hate someone can be really easy.
 
+## Iceland
+
+- I pop to Iceland in Benissa to get some British products.
+- I wear my mask.
+- I'm served at the till by a nice-looking blond woman who smiles at me like I'm an idiot.
+- When I get home, on X, I see a fake account with with the woman in it.
+- She is sitting on a balcony wall somewhere in the Marina Alta region with a view of the sea and mountains.
+- She is wearing a man's shirt.
+
 ## Saturday 5th October
 
 - I go for a walk along Las Rotas.
