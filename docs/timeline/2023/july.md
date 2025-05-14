@@ -282,6 +282,16 @@
 
 ![Woman with a cross on her back](../../content/images/woman-with-a-cross-on-her-back.png)
 
+### Photos that seemed to have power over my mind
+
+- I'd see photos online and become totally engrossed by them, as if there was something in the image trying to tell me something very important.
+- Here's one I've just seen posted again at the time of writing.
+
+![July spell books](../../content/tweets/july-comms/magic-spells.png)
+
+- Other images were of people on beaches, such a lovers kissing but you could never make out who they were, families at the beach, again with people you could never make out.
+- A lot of this went on continuously. I guess it's automated.
+
 ## Thailand
 
 - Early in the month I go to Thailand for a holiday.
