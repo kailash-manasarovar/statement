@@ -233,7 +233,7 @@
 - Only the Dénia hackers knew about this in July 2023.
 - Notably, the `@sinremite` account no longer exists. This is a very recent change, maybe in the last month or so, time of writing being May 2025.
 
-## Other smaller examples
+## Other smaller examples from Google searches
 
 ### Seaweed
 
@@ -244,14 +244,15 @@
 
 ![Julia Lohmann](../../content/images/carmen/sinremite-julia-lohmann.jpg)
 
-- I'm truly amazed at the hacker's dedication and commitment. None of it made any sense to me.
+- I'm truly amazed at the dedication and commitment of the teachers and staff at the conservatory.
+- None of it made any sense to me; unless they are truly evil people which I was never able to reconcile with my experience of living in Dénia, prior to being targeted by the criminal pedo-porn gangs.
 
 ### The guy at the Alhambra
 
 - The plate lady pictures stop completely and I start seeing a similar "set" of repeated pictures with a specific character.
 - This time, it's a man sitting at a bench with the Alhambra behind him in Granada. 
 - The picture is viewable for a few weeks.
-- I will see this man at the beach in September.
+- I see this man at the beach in September when he walks in front of me, making sure I see his face.
 
 ![man at the alhambra](../../content/images/man-at-the-alhambra.png)
 
@@ -261,11 +262,13 @@
 
 ![ana](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
 
-- I saw a whole range of these pictures of Ana which are undoubtedly easily to come across if you can be bothered to look. You could ask her too, of course.
+- I saw a whole range of these pictures of Ana which are undoubtedly easily to come across if you can be bothered to look. 
+- You could ask her too, of course.
 
 ### Mortadelo y Filemón
 
-- Pictures of two cartoon men, Mortadelo y Filemón, I understood to reference the trumpet teacher and Domingo as crashing fools.
+- I see pictures of two cartoon men, Mortadelo y Filemón.
+- I understood them to reference the trumpet teacher and Domingo as crashing fools.
 - It turns out that around this time the cartoonist died so that was in keeping with the times and, perhaps, was not related intentionally.
 
 ![mortadella and filemon](../../content/images/mortadella-and-f.jpg)
@@ -273,7 +276,7 @@
 ### Girl with a cross on her back
 
 - I see a picture of a woman wearing a black dress with a cross strap at the back.
-- She has her back to the photographer and appears to be in a studio.
+- She has her back to the photographer and appears to be in a professional studio.
 - I will see this woman again at the checkout at the Carrefour store in Dénia in October 2024.
 - The reference is to the tattoo I have on my back, and that I am a target.
 
