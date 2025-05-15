@@ -397,17 +397,22 @@
 
 ## Second letter to Concha
 
+- My second letter is an extremely clear report of everything that had happened to me at the conservatory.
+- I make reference to everything I have mentioned in this statement, without understand the extraordinary criminal implications underpinning my experience.
 - Spanish version of the [second letter to Concha](../../content/documents/letters/My%20experience%20-%20ES.pdf).
 - English version of the [second letter to Concha](../../content/documents/letters/My%20experience%20-%20EN.pdf).
 
 !!! danger "Disinterested Dénia police"
-    - When I go to the [police in February 2024](../2024/february.md#policia-nacional) after a threat of violence on Twitter, I take numerous documents written in Spanish for them to look at, including my complaints to the school board, to explain in Spanish what has been happening to me. 
-    - The police only read the letters I have written to Concha before telling me there's no crime and I should go away. 
-    - They tell me I should take a civil case against the conservatory.
+    - When I go to the [police in February 2024](../2024/february.md#policia-nacional) after a threat of violence on Twitter, I take numerous documents written in Spanish for them to look at, including all my written complaints to the school board. 
+    - The police decide they will only read the letters I have written to Concha, before telling me there's no crime and I should go away. 
+    - They refuse to read anything else.
+    - They tell me a man who was [trying to recruit me to his honey-trap enterprise and threatening me online](../2024/february.md#policia-nacional) probably thinks I'm ugly. (That, presumably, justifies his threat.)
+    - They tell me I need to take a civil case against the conservatory.
 
-- After receiving this document, Concha makes no response to me at all.
+- After receiving this letter, Concha makes no response to me at all.
 - Her silence speaks a thousand words.
-- I WhatsApp Concha briefly when I'm being [cyber-stacked and attacked online at the end of August in France](august.md#the-hackers-reveal-themselves), and I tell her that I found out I had been hacked, and that I'm scared. 
+- I WhatsApp Concha briefly when I'm being [cyber-stacked and attacked online at the end of August in France](august.md#the-hackers-reveal-themselves).
+- I tell her that I found out they have hacked me, and that I'm scared. 
 - I ask her if she thinks these people are dangerous?
 - She says she doesn't think so.
 - She's lying.
