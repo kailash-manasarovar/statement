@@ -412,7 +412,7 @@
 
 - After receiving this letter, Concha makes no response to me at all.
 - Her silence speaks a thousand words.
-- I WhatsApp Concha briefly when I'm being [cyber-stacked and attacked online at the end of August in France](august.md#the-hackers-reveal-themselves).
+- I WhatsApp Concha briefly when I'm being [cyber-stalked and attacked online at the end of August in France](august.md#the-hackers-reveal-themselves).
 - I tell her that I found out they have hacked me, and that I'm scared. 
 - I ask her if she thinks these people are dangerous?
 - She says she doesn't think so.
