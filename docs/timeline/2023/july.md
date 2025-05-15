@@ -388,12 +388,12 @@
 ## Concha responds
 
 - I receive an email from Concha replying to my letter.
-- She asks me if I had been abused by the trumpet teacher and, if I had, I was to report it immediately and she would help me.
+- She asks me if I had been abused by the trumpet teacher and, if I had, I should have reported it immediately and she would have been able to help me.
 
 ![Emailing with Concha](../../content/images/Email%20proofs%20of%20both%20letters%20to%20Concha.png)
 
-- Unfortunately, although indeed I had been abused by him, I had no idea how at that time.
-- I wrote a longer letter explaining everything that had happened, and what I understood.
+- Ironically, although indeed I had been seriously sexually groomed and abused, I had no idea how at that time.
+- I explain that I will write a more complete history of what happened and hopefully we can meet up in September because I will be away.
 
 ## Second letter to Concha
 
