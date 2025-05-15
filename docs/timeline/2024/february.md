@@ -57,7 +57,7 @@
 - It feels, again, set up and contrived.
 - No one speaks to me about anything.
 
-## Twitter starts to get more threatening
+## Threats on X increase
 
 - I'm followed by a weird fake account, Mark Moseley, who is just like the other fake accounts that interact with me directly, but decidedly more violent in tone. He seems unhinged.
 - He is, apparently, a homeless drug addict from Portland Oregon but he baits me with information only the people of Dénia would know.
