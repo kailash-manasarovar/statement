@@ -420,33 +420,43 @@
 
 ## Driving to Lourdes
 
-- I'm home briefly after returning from Thailand, the constant online communication (harassment) continues. I feel sexually aroused at home again.
-- I set off for Lourdes and to spend the summer in France.
-- I'm driving to Zaragoza where I will stay one night.
-- Just ouside of Oliva, a woman calls me, it's a missed call. I look her up on WhatsApp. She looks like the trumpet teacher. I'm guessing its his mum. The message on her WhatsApp profile is significant too.
+- I'm home briefly after returning from Thailand.
+- The constant online communication (harassment) continues. 
+- I feel sexually aroused again.
+- At the end of the month, I set off for Lourdes to spend the rest of the summer in France.
+- Just outside of Oliva, a woman calls me. It's a missed call. 
+- I look her up on WhatsApp. She looks like the trumpet teacher. I'm guessing its his mum. The message on her WhatsApp profile is significant too.
 
 ![Trumpet teacher's mum](../../content/images/image_123650291.png)
 
 - While having lunch on the A23, I check my WhatsApp messages on my UK phone which I haven't checked in months.
 - My friend from Singapore had contacted me a couple of months previously, and I hadn't noticed.
-- I texted him back immediately.
+- I text him back immediately.
 
-## The traffic police stop me
+## Stopped by the traffic police
 
-- Just outside Teruel, I am stopped by the Guardia Civil traffic police.
+- After lunch, just outside Teruel, I am stopped by the Guardia Civil traffic police.
+
+![A23](../../content/images/a23.png)
+
 - They inform me my driving license is invalid as it is a British one and I should have changed it.
-- I tell them I thought I had six months from March 2023 when the law changed and was going to do it in September when I returned to Spain.
-- Apparently it was three months, or I had made some mistake or other, anyway the conversation was very nice, we spoke amiably and politely, and the officer told me he was going to fine me 100 euros instead of the 500 I could have been fined.
-- I was very apologetic and assured him I would deal with it immediately I was back from France. I had been initially really scared they would stop me from driving in Spain.
+- I tell them I thought I had six months from March 2023 when the law changed and had planned to do it in September when I returned to Spain.
+- Apparently it was three months, or I had made some mistake or other; anyway the conversation was very nice, we spoke amiably and politely, and the officer told me he was going to fine me 100 euros instead of the 500 I could have been fined.
+- I was very apologetic and assured him I would deal with it immediately I was back from France. 
+- I had been initially really scared that they were going to stop me from driving in Spain.
 - We were talking about stuff, and I forgot a word I needed, the word for management service (gestor), as I was explaining I would get them to deal with it immediately, but I couldn't remember the word, and I was scratching my head ... and he says ...
 - "Ladrones de Dénia", which means bad people of Dénia.
-- It was an extraordinarily weird thing to say, and I took it to mean I had been grassed up by Domingo and his associates as I was driving to France because the identification document the conservatory had was my British driving license, and because of the good relationship I was having with this man, he informed me, somehow.
-- What I didn't realize yet was that they could tell the police the exact moment I would be in a particular area of the carriageway, on the A23 outside Teruel, because they were tracking my movements and had been for some time probably. 
-- This stop, and the missed call previously, is surely evidence that my movements were being tracked.
-- In my consequent communication with my Singapore friend, I explain I was stopped by the police.
+- It was an extraordinarily weird thing to say, and I took it to mean I had been grassed up by teachers and staff at the conservatory to the traffic police!
+- I wonder now if being informed about this was part of the conspiracy.
+- The identification document the conservatory had for me was my British driving license.
+- What I didn't realize yet was that the wrong 'uns of Las Marinas would be able to tell the police the exact moment I would be in a particular area of the carriageway, on the A23 outside Teruel, because they were tracking my movements. 
+- The [missed call](#driving-to-lourdes) was a warning, a preliminary wind-up, and I believe now I was supposed to think the trumpet teacher was behind all this, except I'm certain he wasn't.
+- In my consequent communication with my Singapore friend about an hour later, I explain I was stopped by the police.
 - He tells me he wrote a song about me. I ask permission from him to tweet it.
 
 ![Song about me by Yan](../../content/tweets/july-comms/song-about-me.png)
+
+- I'm adding this info because there was some concern about [my friend Yan](../2024/april.md#away-from-spain) and my lack of total isolation the following year.
 
 ## Lourdes
 
