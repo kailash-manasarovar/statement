@@ -297,28 +297,36 @@
 ## Thailand
 
 - Early in the month I go to Thailand for a holiday.
-- I do not take my laptop so I am not connected to my Twitter account.
+- I do not take my laptop so I am not connected to my Twitter account for the duration.
+- I use my mobile phone to run [Google searches](#google-search) on the `@jctot19` and the `@sinremite` accounts, and start running searches on my own account too.
 - The pictures referenced above continue to appear in the search results of `@jctot19 twitter`.
-- I start to see curious messages on Google search which seem to be for me.
+- I see curious messages on the [Google search](#google-search) results which seem to be for me.
 
 ![Google search](../../content/tweets/july-comms/igual-trasquilaron.png)
 
-- At some point, the pictures of the plate lady stop.
+- The pictures of [plate lady](#plate-lady-early-in-the-month) stop appearing.
 - There are now references to Thailand and the far east, pictures of tall apartment buildings in Hong Kong, for example.
-- I'm certain he (I assume the trumpet teacher) is somehow manipulating Google search to show me things and I don't know how.
-- I connect to hotel networks usually and I have a lot of issues logging into my banking apps. I lose access to my Openbank app  and can't log in until I get back home.
-- Then, I see a tweet which appears to have a message for me directly: **don't leave me murph**. It blows my mind.
-- This is actually a misquote from what was actually said in the film.
+- I'm certain he (I assume the trumpet teacher) is manipulating Google search and I don't know how.
+- I usually connect to hotel networks and I have a lot of issues logging into my banking apps. I lose access to my Openbank app. I can't log in until I get back home.
+- Then, I see a tweet which appears to have a message for me directly: **don't leave me murph**. 
+- It blows my mind.
+- (This is a misquote from what was said in the film. If you didn't know, my surname is Murphy.)
 
 ![Don't leave me murph](../../content/images/twitter-hacking/dont%20leave%20me%20murph.png)
 
-!!! info
-    - Later in this saga, I'm informed that twitter hacking can take place in a number of ways, one of which is a parasitical manner whereby hackers have delegated access to larger accounts and can therefore post on them.
-    - Also, I'm told that Mac spoofing can overwrite anything a targeted machine sees.
-    - However, this tweet is definitively public and available so I'm guessing delegated access and/or involvement of the account owner.
+!!! info "How they do it"
+    - Twitter hacking can take place in a number of ways, one of which is in a parasitical manner whereby hackers have delegated access to larger accounts and can post on them. 
+    - I'm told they refer to this is as "leaching".
+    - Mac spoofing can overwrite anything a targeted machine sees which explains the constant UI rewrite hacks but this requires root access to target machines which is probably only available with the help of internet company insiders.
+    - However, the tweet from 10th July 2023 is public and available so I'm guessing delegated access and/or involvement of the account owner.
+    - The X hacking was so expert and intense, it would not surprise me if there were some backend hack into the X network that criminals have been exploiting for years.
 
-- Curiously, and something I've only just realized, is that I had no sexual feelings at all while I was in Thailand.
-- I met a woman on holiday with her family in Thailand, Hala, and I told her everything that had happened.
+- I had no sexual feelings at all while I was in Thailand.
+- I met a woman on holiday with her family in Thailand, Hala, and I told her everything that had happened, the whole story.
+
+### My first request for help
+
+
 
 ### A nightmare, and God is there too
 
