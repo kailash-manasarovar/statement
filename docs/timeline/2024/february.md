@@ -93,7 +93,7 @@
 
 ![Account still live and posting just a few days ago](../../content/images/threats/threat-of-violence-ac-open-a-few-days-back.png)
 
-- I consider that a demonstrate how hackers are still monitoring everything I do online in more-or-less real time.
+- I consider that to demonstrate how hackers are still monitoring everything I do online in more-or-less real time.
 - Going back to the original threat, I consider the threat to be credible and to mean that someone may throw acid on my face.
 - A lot of my Twitter pals suggest reporting to the police: https://x.com/1FRGVN/status/1759685644278723021.
 - He has deleted the account now.
