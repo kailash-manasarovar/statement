@@ -387,7 +387,7 @@
 
 ## Concha responds
 
-- I receive an email from Concha replying to my letter.
+- I receive an email from Concha replying to my first letter.
 - She asks me if I had been abused by the trumpet teacher and, if I had, I should have reported it immediately and she would have been able to help me.
 
 ![Emailing with Concha](../../content/images/Email%20proofs%20of%20both%20letters%20to%20Concha.png)
@@ -398,9 +398,10 @@
 ## Second letter to Concha
 
 - My second letter is an extremely clear report of everything that had happened to me at the conservatory.
-- I make reference to everything I have mentioned in this statement, without understand the extraordinary criminal implications underpinning my experience.
-- Spanish version of the [second letter to Concha](../../content/documents/letters/My%20experience%20-%20ES.pdf).
-- English version of the [second letter to Concha](../../content/documents/letters/My%20experience%20-%20EN.pdf).
+- I make reference to everything I have mentioned in this statement, without understanding the extraordinary criminal implications underpinning my experience.
+
+    - Spanish version of the [second letter to Concha](../../content/documents/letters/My%20experience%20-%20ES.pdf).
+    - English version of the [second letter to Concha](../../content/documents/letters/My%20experience%20-%20EN.pdf).
 
 !!! danger "Disinterested Dénia police"
     - When I go to the [police in February 2024](../2024/february.md#policia-nacional) after a threat of violence on Twitter, I take numerous documents written in Spanish for them to look at, including all my written complaints to the school board. 
