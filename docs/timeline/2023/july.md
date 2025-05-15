@@ -322,40 +322,59 @@
     - The X hacking was so expert and intense, it would not surprise me if there were some backend hack into the X network that criminals have been exploiting for years.
 
 - I had no sexual feelings at all while I was in Thailand.
-- I met a woman on holiday with her family in Thailand, Hala, and I told her everything that had happened, the whole story.
 
 ### My first request for help
 
+- I meet a woman on holiday with her family in Thailand, Hala; and I told her everything that had happened, the whole story as I saw it.
+- My understanding of what was going on at this time was sketchy.
+- I believed there was a true love relationship with the trumpet teacher, that something real had happened, that he was important to me and wouldn't do anything to hurt me, and that the real problem was that I was being targeted and abused by Domingo Cano and his associates at the conservatory.
+- It's really not clear why I was so invested in this relationship with the trumpet teacher because there was so little evidence for it.
+- I can only assume - in May 2025 having survived 3 years of poisoning, threats to my life, and constant drugging with psychoactive substances while living in Dénia - that I was being manipulated online in ways I still have to figure out and my mind was not my own.
+- While I'm away, I decide to write to Concha to tell her everything, and apologize for mentioning that she was being bullied by Domingo's students on X.
+- This is the first of a series of letters asking I write to civil servants and the school board asking for help.
 
+    - [Letter to Concha in Spanish](../../content/documents/letters/Letter%20to%20Concha-ES.pdf).
+    - [Letter to Concha in English](../../content/documents/letters/Letter%20to%20Concha.pdf).
 
-### A nightmare, and God is there too
+- The letter is very vague but I do mention how stressed I was, that I had been teased and provoked, that I was being stalked on X, that the mafia had been set on me, and some other ironic things that suggest, at a subconscious level, I knew exactly what had been happening to me.
 
-- One night, during the detox, I have a terrifying dream.
+!!! quote "First letter to Concha"
+    Perhaps you already know, but the provocation had already started before the trumpet teacher arrived 
+    in December last year, and I suppose I gave them what they wanted, albeit in a rather unorthodox 
+    manner, and with some unexpected extras. It was a very, very stressful time for me, as intended. 
+
+- My hope that the nightmare is over is extraordinarily ambitious.
+- I have no idea that Domingo will have read my letter to Concha weeks before she reads it herself.
+
+### The first time I become terrified about being arrested
+
+- One night, during the detox in Thailand, I have a terrifying dream.
 - I dream that Domingo and his family will have me arrested by the police, for some lie they invent, and I end up in jail for 7 years.
-- I wake up, horrified. The wall beside my bed starts to glow. It is a window into another dimension, another world. I see trees, a forest.
+- I wake up, horrified. The wall beside my bed starts to glow. It is a window into another dimension, another world. 
+- I see trees, a forest.
 - Something's coming.
-- It's light like I've never seen before and it has nearly reached my bedroom.
+- It's Light like I've never seen before and it has nearly reached my bedroom.
 - I'm so scared I get out of bed and run to an area of the room which is out of the 'line of sight', as it were, of the Light which is pounding in to my bedroom at the wall beside my bed.
+
+![Terrifying dream](../../content/images/terrifying-dream.png)
+
 - I'm hyperventilating, crouched down, terrified.
 - The dream ends as the light gently fades.
 - I feel like a biblical character when God comes with a message; someone who lies down on the floor in fear.
 - It's all just too terrifying to comprehend.
 - The next morning, I'm still reeling from this dream. I'm certain I'm going to be arrested and end up in jail for 7 years.
-- I tell Hala and her ex-husband and the centre manager Patrick about my nightmare, but not about the light cos that's a bit embarrassing.
-- Looking back, I can see I was psychologically unbalanced somehow at this time, and I wonder now if I was still ingesting some sort of psychoactive substance via my toiletries, or perhaps through some of my health supplements like my antifungal product maybe.
-- I wonder now, in 2025, if I was being micro-dosed with mushrooms which were coupled with NLP/hypnosis techniques online for specific mind-controlling effects.
-- I wonder too if this rather backfired on the criminal gangs as it seemed to be cracking open my mind in exceptionally good ways. I can't believe this was intentional.
+- I tell Hala and her ex-husband and the centre manager Patrick about my nightmare, but not about the Light cos that's a bit embarrassing.
+- Looking back, I can see I was psychologically unbalanced, and it is perhaps more evidence to point towards constant drugging with psychoactive substance via my toiletries, or perhaps through some of my health supplements like my antifungal product maybe.
+- Even though I was not connected to my X account, online NLP/hypnosis manipulation techniques would have been continuing via my hacked mobile phone.
+- This was the first instance of me being overwhelmingly terrified about being arrested.
+- There was something triggering this fear which the gangs used successfully on a number of occasions.
+- Curiously, this terrorizing rather backfired on the criminal gangs as it seemed to be cracking open my mind in exceptionally beneficial ways. 
+- I can't believe this dream was their intention. God's maybe.
 
 ## Durian for Gloria
 
 - On my way back home to Spain, I buy a present for Concha and a present for Gloria.
 - I'm so disgusted with Gloria's behavior, I buy her some durian which is quite delicious but famously doesn't smell very nice.
-- I include a [letter to Concha in Spanish](../../content/documents/letters/Letter%20to%20Concha-ES.pdf) in Concha's present and I WhatsApp message her later to make sure she has received it.
-
-!!! info "Letter to Concha in English"
-    - My Spanish is not very good so I always have to have a starting point of English. 
-    - Here is my first [letter to Concha in English](../../content/documents/letters/Letter%20to%20Concha.pdf).
-
 - This letter was an attempt to apologize to Concha if I had upset her by mentioning Domingo's students bullying her on Twitter. I was worried about that, even though I never mentioned any names at any time.
 - It's clear from my letter that, at this stage, I have absolutely no idea what's really going on other than that I have been bullied by teachers and staff at the conservatory. I assume it was because I wrote the message expressing my feelings to the trumpet teacher in Spanish on Twitter and some angry tweets about Domingo when he didn't respond.
 - Concha was my friend so I felt I could reach out to her.
