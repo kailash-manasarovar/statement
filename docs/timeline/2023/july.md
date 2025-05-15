@@ -467,5 +467,6 @@
 - Sally looked alarmed from time to time as I never stopped talking about my overwhelming feelings.
 - I must have still been regularly ingesting whatever substances the criminal gangs were using to control me.
 - Interestingly, Sally often asked to use the toilet whenever she visited my room.
-- I believe it was around this time that Sally started to talk about poisoning in another context too.
+- I believe it was around this time that Sally started to talk about poisoning in another context too. 
+- Poisoning would be a common theme in our discussions for over a year.
 - Was she trying to warn me?
