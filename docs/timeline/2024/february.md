@@ -66,10 +66,10 @@
 - I guess now that it's another delegate, hacked, or stolen account.
 - He tells me how he prayed incessantly for something, help, and I came along. It seemed reasonable to me, still does.
 - He asks me would I die for him. I do not respond. He says he would die for me. 
-- In a DM, he tries to recruit me to his honey trap organization. This is on February 20th.
+- In a DM, he tries to recruit me to his honey trap organization. This is on February 19th.
 - I refuse in no uncertain terms.
 - I have a copy of [the whole DM here](../../content/images/threats/mark-moseley-mail-in-full.pdf).
-- Joe Biden's worst nightmare is Trump, of course. The **trump**et teacher has always used trump as a trigger or signpost for me.
+- Joe Biden's worst nightmare is Trump, of course. The *trump*et teacher has always used trump as a trigger or signpost for me.
 - At the end of this chat, when I refuse to sign up to whatever he wants me to do - he'd said using fake accounts to find lonely men looking for love, or something like this - he threatens me with violence.
 - His message says: "I hope you find an excellent plastic surgeon for your face."
 
@@ -77,7 +77,11 @@
 ![Threat of violence from Mark Mosely account](../../content/images/threats/mark-mosely-tweet.png)
 
 - He says something else threatening about me which I didn't save at the time.
-- At the time of writing, Sunday 24th November, the account has been deleted and so I am unable to see his past messages live on Twitter.
+- Here's the thread aftermath when I asked my X friends what they thought: https://x.com/1FRGVN/status/1759685644278723021.
+
+![What do you think I should do](../../content/tweets/what-do-you-think-i-should-do.png)
+
+- At the time of writing, Sunday 24th November 2024, the account has been deleted and so I am unable to see his past messages live on Twitter.
 
 ![Threat of violence from Mark Mosely account](../../content/images/threats/threat-2.png)
 
@@ -85,13 +89,13 @@
 
 ![Threat of violence from Mark Mosely account](../../content/images/threats/threats-around-threats.png)
 
-- Interestingly, it is only a few days previous, Wednesday 20th November 2024, that I checked this account and it was still live and posting.
+- Interestingly, it is only a few days previous to drafting this section up, Wednesday 20th November 2024, that I checked this account and it was still live and posting.
 
 ![Account still live and posting just a few days ago](../../content/images/threats/threat-of-violence-ac-open-a-few-days-back.png)
 
-- I consider that to demonstrate how hackers are still accessing everything I do online in more-or-less real time.
+- I consider that a demonstrate how hackers are still monitoring everything I do online in more-or-less real time.
 - Going back to the original threat, I consider the threat to be credible and to mean that someone may throw acid on my face.
-- A lot of my Twitter pals suggest reporting to the police: https://x.com/search?q=(to%3A1frgvn)%20until%3A2024-02-21%20since%3A2024-02-19&src=typed_query&f=live.
+- A lot of my Twitter pals suggest reporting to the police: https://x.com/1FRGVN/status/1759685644278723021.
 - He has deleted the account now.
 
 !!! danger "Hackers still active - November 2024"
@@ -109,7 +113,7 @@
 
 ## Guardia Civil
 
-- I try to access the Guardia Civil webpage for reporting gender violence and cyber stalking. 
+- On the same evening, I try to access the Guardia Civil webpage for reporting gender violence and cyber stalking. 
 - The page fails to load at every attempt to access it. It's not a 404, or any normal error. It's a not connected to the internet error, except I am. 
 - I literally cannot access any reporting pages on the Guardia Civil website at all.
 - I know now I was blocked from accessing the Guardia Civil's gender violence and cyber stalking reporting line by hackers.
