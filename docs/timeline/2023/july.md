@@ -401,14 +401,16 @@
 - English version of the [second letter to Concha](../../content/documents/letters/My%20experience%20-%20EN.pdf).
 
 !!! danger "Disinterested Dénia police"
-    - When I go to the [police in February 2024](../2024/february.md#policia-nacional) after a threat of violence on Twitter, I take numerous documents written in Spanish for them to look at, including my complaints to the school board, to explain what has been happening to me. 
-    - They only look at the letters I have written to Concha and tell me there's no crime and I should go away. 
+    - When I go to the [police in February 2024](../2024/february.md#policia-nacional) after a threat of violence on Twitter, I take numerous documents written in Spanish for them to look at, including my complaints to the school board, to explain in Spanish what has been happening to me. 
+    - The police only read the letters I have written to Concha before telling me there's no crime and I should go away. 
     - They tell me I should take a civil case against the conservatory.
-    - They clearly wanted nothing to do with me.
 
-- After reading this document, Concha makes no response to me at all.
+- After receiving this document, Concha makes no response to me at all.
 - Her silence speaks a thousand words.
-- I WhatsApp Concha briefly when I'm being [cyber-stacked and attacked online at the end of August in France](august.md#the-hackers-reveal-themselves), and I tell her that they have been hacking me and I'm scared. I ask her if she thinks these people are dangerous? She says she doesn't think so.
+- I WhatsApp Concha briefly when I'm being [cyber-stacked and attacked online at the end of August in France](august.md#the-hackers-reveal-themselves), and I tell her that I found out I had been hacked, and that I'm scared. 
+- I ask her if she thinks these people are dangerous?
+- She says she doesn't think so.
+- She's lying.
 
 ## Driving to Lourdes
 
