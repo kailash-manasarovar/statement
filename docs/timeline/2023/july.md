@@ -331,6 +331,7 @@
 - It's really not clear why I was so invested in this relationship with the trumpet teacher because there was so little evidence for it.
 - I can only assume - in May 2025 having survived 3 years of poisoning, threats to my life, and constant drugging with psychoactive substances while living in Dénia - that I was being manipulated online in ways I still have to figure out and my mind was not my own.
 - While I'm away, I decide to write to Concha to tell her everything, and apologize for mentioning on X that she was being bullied by Domingo's students.
+- Concha was my friend so I felt I could reach out to her.
 - This is the first of a series of letters I write to civil servants, the school board, and multiple global organizations asking for help because I'm being terrorized by teachers and staff at the conservatory of Dénia.
 
     - [Letter to Concha in Spanish](../../content/documents/letters/Letter%20to%20Concha-ES.pdf).
@@ -375,17 +376,24 @@
 
 ## Durian for Gloria
 
-- On my way back home to Spain, I buy a present for Concha and a present for Gloria.
+- On my way back home to Spain from Thailand, I buy a present for Concha and a present for Gloria.
 - I'm so disgusted with Gloria's behavior, I buy her some durian which is quite delicious but famously doesn't smell very nice.
-- This letter was an attempt to apologize to Concha if I had upset her by mentioning Domingo's students bullying her on Twitter. I was worried about that, even though I never mentioned any names at any time.
-- It's clear from my letter that, at this stage, I have absolutely no idea what's really going on other than that I have been bullied by teachers and staff at the conservatory. I assume it was because I wrote the message expressing my feelings to the trumpet teacher in Spanish on Twitter and some angry tweets about Domingo when he didn't respond.
-- Concha was my friend so I felt I could reach out to her.
-- She responded by asking me if I had been abused by the trumpet teacher and, if I had, I was to report it immediately and she would help me.
+
+![Gloria and the durian](../../content/images/gloria-and-the-durian.png)
+
+- I bring the gifts into the conservatory, and tuck the letter to Concha inside the gift box.
+- I text Concha to make sure she receives the letter.
+- Throughout the summer, hackers will refer to 'durian' amongst other significant things.
+
+## Concha responds
+
+- I receive an email from Concha replying to my letter.
+- She asks me if I had been abused by the trumpet teacher and, if I had, I was to report it immediately and she would help me.
 
 ![Emailing with Concha](../../content/images/Email%20proofs%20of%20both%20letters%20to%20Concha.png)
 
 - Unfortunately, although indeed I had been abused by him, I had no idea how at that time.
-- I wrote a longer letter explaining everything that had happened and what I understood at that time.
+- I wrote a longer letter explaining everything that had happened, and what I understood.
 
 ## Second letter to Concha
 
