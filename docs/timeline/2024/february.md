@@ -110,6 +110,7 @@
 
 - There was, of course, no reply.
 - I am starting to get seriously stressed and anxious now. And I'm scared too. 
+- I call 112. I'm told to go to report the matter in person to the police.
 
 ## Guardia Civil
 
