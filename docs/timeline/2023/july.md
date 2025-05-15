@@ -450,7 +450,7 @@
 - I wonder now if being informed about this was part of the conspiracy.
 - The identification document the conservatory had for me was my British driving license.
 - What I didn't realize yet was that the wrong 'uns of Las Marinas would be able to tell the police the exact moment I would be in a particular area of the carriageway, on the A23 outside Teruel, because they were tracking my movements. 
-- The [missed call](#driving-to-lourdes) was a warning, a preliminary wind-up, and I believe now I was supposed to think the trumpet teacher was behind all this, except I'm certain he wasn't.
+- The [missed call](#driving-to-lourdes) was a warning, a preliminary wind-up, and I believe I was supposed to think the trumpet teacher was behind all this, except now I'm certain he wasn't.
 - In my consequent communication with my Singapore friend about an hour later, I explain I was stopped by the police.
 - He tells me he wrote a song about me. I ask permission from him to tweet it.
 
@@ -461,19 +461,11 @@
 ## Lourdes
 
 - I arrive in Lourdes.
-- When I meet my friend, I'm sorry to tell her that my negative suspicions about what had been going on were correct and that I had been bullied and targeted by Domingo and his associates and that the trumpet teacher was involved also.
-- I was still in love, however. And still out of my mind.
-
-## Tweets
-
-These are a selection of tweets from this period which relate to everything that has been happening. Most of them have been translated, a lot, so I assume the Spanish are reading them.
-
-Many of these tweets are confirmation of what has been going on.
-
-### @1frgvn
-
-- https://x.com/1FRGVN/status/1685697886325993472 -> I notice the stalkers again.
-
-It's quite challenging to go through these at the moment, so I'll just pop the search request URL in: https://x.com/search?q=(from%3A1frgvn)%20until%3A2023-07-31%20since%3A2023-07-01&src=typed_query&f=live
-
-
+- When I meet my friend Sally, I'm sorry to tell her that my [negative suspicions](april.md#easter-saturday) about what had been going on were correct, and that I had been bullied and targeted by Domingo and his associates, and that the trumpet teacher was involved also.
+- I was still in love, however.
+- And still very much out of my mind.
+- Sally looked alarmed from time to time as I never stopped talking about my overwhelming feelings.
+- I must have still been regularly ingesting whatever substances the criminal gangs were using to control me.
+- Interestingly, Sally often asked to use the toilet whenever she visited my room.
+- I believe it was around this time that Sally started to talk about poisoning in another context too.
+- Was she trying to warn me?
