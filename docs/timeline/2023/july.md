@@ -315,9 +315,9 @@
 ![Don't leave me murph](../../content/images/twitter-hacking/dont%20leave%20me%20murph.png)
 
 !!! info "How they do it"
-    - Twitter hacking can take place in a number of ways, one of which is in a parasitical manner whereby hackers have delegated access to larger accounts and can post on them. 
+    - Twitter hacking can take place in a number of ways, one of which is in a parasitical manner whereby hackers have delegate access to larger accounts and can post on them. 
     - I'm told they refer to this is as "leaching".
-    - Mac spoofing can overwrite anything a targeted machine sees which explains the constant UI rewrite hacks but this requires root access to target machines which is probably only available with the help of internet company insiders.
+    - Mac spoofing can overwrite anything a targeted machine sees which explains the constant UI rewrite hacks, but this requires root access to target machines which is probably only available with the help of internet company insiders.
     - However, the tweet from 10th July 2023 is public and available so I'm guessing delegated access and/or involvement of the account owner.
     - The X hacking was so expert and intense, it would not surprise me if there were some backend hack into the X network that criminals have been exploiting for years.
 
