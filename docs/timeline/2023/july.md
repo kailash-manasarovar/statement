@@ -298,7 +298,7 @@
 
 - Early in the month I go to Thailand for a holiday.
 - I do not take my laptop so I am not connected to my Twitter account for the duration.
-- I use my mobile phone to run [Google searches](#google-search) on the `@jctot19` and the `@sinremite` accounts, and start running searches on my own account too.
+- I use my mobile phone to run [Google searches](#google-search) on the `@jctot19` and the `@sinremite` accounts, and start running searches on my own account name too `@1frgvn`.
 - The pictures referenced above continue to appear in the search results of `@jctot19 twitter`.
 - I see curious messages on the [Google search](#google-search) results which seem to be for me.
 
@@ -306,8 +306,8 @@
 
 - The pictures of [plate lady](#plate-lady-early-in-the-month) stop appearing.
 - There are now references to Thailand and the far east, pictures of tall apartment buildings in Hong Kong, for example.
-- I'm certain he (I assume the trumpet teacher) is manipulating Google search and I don't know how.
-- I usually connect to hotel networks and I have a lot of issues logging into my banking apps. I lose access to my Openbank app. I can't log in until I get back home.
+- I'm certain he (I assume the trumpet teacher) is manipulating my Google search results and I don't know how.
+- I usually connect to hotel networks and I have a lot of issues logging into my banking apps. I lose access to my Openbank app. I can't log into banking again until I get back home.
 - Then, I see a tweet which appears to have a message for me directly: **don't leave me murph**. 
 - It blows my mind.
 - (This is a misquote from what was said in the film. If you didn't know, my surname is Murphy.)
@@ -316,9 +316,9 @@
 
 !!! info "How they do it"
     - Twitter hacking can take place in a number of ways, one of which is in a parasitical manner whereby hackers have delegate access to larger accounts and can post on them. 
-    - I'm told they refer to this is as "leaching".
-    - Mac spoofing can overwrite anything a targeted machine sees which explains the constant UI rewrite hacks, but this probably requires root access to target machines which is probably only available with the help of internet company insiders.
-    - However, the tweet from 10th July 2023 is public and available so I'm guessing delegated access and/or involvement of the account owner.
+    - I'm told they refer to this as "leaching".
+    - Mac spoofing can overwrite anything a targeted machine sees which explains the constant UI rewrite hacks, but this probably requires initial root access to target machines which is probably only available with the help of internet company insiders.
+    - However, the above tweet from 10th July 2023 is public and available so I'm guessing delegated access and/or involvement of the account owner.
     - The X hacking was so expert and intense, it would not surprise me if there were some backend hack into the X network that criminals have been exploiting for years.
 
 - I had no sexual feelings at all while I was in Thailand.
@@ -327,24 +327,25 @@
 
 - I meet a woman on holiday with her family in Thailand, Hala; and I told her everything that had happened, the whole story as I saw it.
 - My understanding of what was going on at this time was sketchy.
-- I believed there was a true love relationship with the trumpet teacher, that something real had happened, that he was important to me and wouldn't do anything to hurt me, and that the real problem was that I was being targeted and abused by Domingo Cano and his associates at the conservatory.
+- I believed there was a true love relationship with the trumpet teacher, that something real had happened, that he was important to me, that he loved me back and wouldn't do anything to hurt me, and that the real problem was that I was being targeted and abused by Domingo Cano and his associates at the conservatory.
 - It's really not clear why I was so invested in this relationship with the trumpet teacher because there was so little evidence for it.
 - I can only assume - in May 2025 having survived 3 years of poisoning, threats to my life, and constant drugging with psychoactive substances while living in Dénia - that I was being manipulated online in ways I still have to figure out and my mind was not my own.
-- While I'm away, I decide to write to Concha to tell her everything, and apologize for mentioning that she was being bullied by Domingo's students on X.
-- This is the first of a series of letters asking I write to civil servants and the school board asking for help.
+- While I'm away, I decide to write to Concha to tell her everything, and apologize for mentioning on X that she was being bullied by Domingo's students.
+- This is the first of a series of letters I write to civil servants, the school board, and multiple global organizations asking for help because I'm being terrorized by teachers and staff at the conservatory of Dénia.
 
     - [Letter to Concha in Spanish](../../content/documents/letters/Letter%20to%20Concha-ES.pdf).
     - [Letter to Concha in English](../../content/documents/letters/Letter%20to%20Concha.pdf).
 
-- The letter is very vague but I do mention how stressed I was, that I had been teased and provoked, that I was being stalked on X, that the mafia had been set on me, and some other ironic things that suggest, at a subconscious level, I knew exactly what had been happening to me.
+- The letter is very vague, reflecting my incomplete understanding about what was going on and my desire to tread carefully.
+- I do mention how stressed I was, that I had been teased and provoked, that I was being stalked on X, that they (teachers and staff involved) had set the mafia on me, and some other ironic statements that suggest, at a subconscious level, I knew exactly what had been happening to me.
 
 !!! quote "First letter to Concha"
     Perhaps you already know, but the provocation had already started before the trumpet teacher arrived 
     in December last year, and I suppose I gave them what they wanted, albeit in a rather unorthodox 
     manner, and with some unexpected extras. It was a very, very stressful time for me, as intended. 
 
-- My hope that the nightmare is over is extraordinarily ambitious.
-- I have no idea that Domingo will have read my letter to Concha weeks before she reads it herself.
+- My hope that the nightmare is over is extraordinarily ambitious and reflect an utterly incomplete assessment of the situation.
+- I have no idea that Domingo and his team will have read my letter to Concha weeks before she reads it herself.
 
 ### The first time I become terrified about being arrested
 
@@ -354,7 +355,7 @@
 - I see trees, a forest.
 - Something's coming.
 - It's Light like I've never seen before and it has nearly reached my bedroom.
-- I'm so scared I get out of bed and run to an area of the room which is out of the 'line of sight', as it were, of the Light which is pounding in to my bedroom at the wall beside my bed.
+- I'm so scared I get out of bed and run to an area of the room which is out of the 'line of sight', as it were, of the Light which is pounding into my bedroom at the wall beside my bed.
 
 ![Terrifying dream](../../content/images/terrifying-dream.png)
 
@@ -363,8 +364,9 @@
 - I feel like a biblical character when God comes with a message; someone who lies down on the floor in fear.
 - It's all just too terrifying to comprehend.
 - The next morning, I'm still reeling from this dream. I'm certain I'm going to be arrested and end up in jail for 7 years.
-- I tell Hala and her ex-husband and the centre manager Patrick about my nightmare, but not about the Light cos that's a bit embarrassing.
-- Looking back, I can see I was psychologically unbalanced, and it is perhaps more evidence to point towards constant drugging with psychoactive substance via my toiletries, or perhaps through some of my health supplements like my antifungal product maybe.
+- I don't know what the police charge will be but prison is a certainty.
+- I tell Hala and her ex-husband and the centre manager Patrick about my nightmare; but not about the Light cos that's a bit embarrassing.
+- Looking back, I can see I was psychologically unbalanced, and it is perhaps more evidence to point towards constant drugging with psychoactive substances via my toiletries, or perhaps through some of my health supplements like my antifungal liquid I took every day.
 - Even though I was not connected to my X account, online NLP/hypnosis manipulation techniques would have been continuing via my hacked mobile phone.
 - This was the first instance of me being overwhelmingly terrified about being arrested.
 - There was something triggering this fear which the gangs used successfully on a number of occasions.
