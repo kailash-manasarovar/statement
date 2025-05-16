@@ -383,7 +383,7 @@
 
 - I bring the gifts into the conservatory, and tuck the letter to Concha inside the gift box.
 - I text Concha to make sure she receives the letter.
-- Throughout the summer, hackers will refer to 'durian' amongst other significant things.
+- Throughout the summer, hackers will refer to 'durian' repeatedly, amongst other significant things.
 
 ## Concha responds
 
