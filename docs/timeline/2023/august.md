@@ -5,7 +5,7 @@
 - Teachers and staff at the conservatory have decided my fate in the meantime, and it will be continued online harassment leading up to another "arrest" scare just before I leave France to come home.
 - I guess the intention is that I don't come back to my studies at the conservatory, as before, leaving me isolated and open to acute drugging and major sex crimes in my apartment.
 - I'm unaware of the specifics of the evil in the background; although I can feel it very strongly.
-- The online activity intensifies and I realize people are watching me continuously online.
+- The online activity intensifies and I realize people are monitoring my activity continuously.
 - I'm still obsessed with the trumpet teacher and think about him constantly.
 - It's as if I'm having a conversation with him online and we're in love with each other.
 - I connect with an old friend on Facebook, Matthew Copeland.
@@ -98,8 +98,14 @@
 ## In the baths at Cauterets with Sally
 
 - I take Sally to the baths at Cauterets.
+
+![Bains du Rocher](../../content/images/bains-du-rocher-1.webp)
+
 - She behaves as if she is very shy of being in her swimming suit in public.
-- We sit in the bubbly beds outside beside each other.
+- We sit in the bubbling beds outside.
+
+![Me and Sally at the Bains du Rocher](../../content/images/bains-du-rocher.png)
+
 - I tell her I'm going to tame the trumpet teacher.
 
 ## Tweet translations
