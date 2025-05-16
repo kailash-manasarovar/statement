@@ -102,7 +102,7 @@
 ![Bains du Rocher](../../content/images/bains-du-rocher-1.webp)
 
 - She behaves as if she is very shy of being in her swimming suit in public.
-- We sit in the bubbling beds outside.
+- We sit in the bubbling beds outside, the Péguère mountain watching us.
 
 ![Me and Sally at the Bains du Rocher](../../content/images/bains-du-rocher.png)
 
