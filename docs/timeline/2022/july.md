@@ -77,3 +77,15 @@
 - I promptly forgot all about it until probably around July 2023 when the gender-violence and terrorizing in Dénia and online was becoming fever-pitched; mainly because I stubbornly refused to be terrorized out of my home and out of the conservatory where I was enjoying playing the piano so much.
 - The card was a little imprecise too because there is no *rape-gang of wands* in the tarot, currently; although perhaps eight of wands suffices, and curiously that did come up the following year when I repeated the session with the same card reader in Glastonbury over the phone.
 - At that time, the card reader said the eight of wands in the environment position signified marriage.
+
+## The landlady changes the bank account for the rent
+
+- At the beginning of August, Bea instructs me to change the bank account I pay my rent into.
+- I get notification of this while I'm on the boat from Portsmouth to Bilbao.
+- This was the [second of three accounts](../2021/december.md#denia) I would pay rent to during my stay at Carrer Furs, Dénia; spy-cam and baby-porn capital of the world.
+- Some day soon, the owners of these accounts will be revealed. 
+- These are my suspicions:
+    
+    - Money into the first account was probably going directly to the landlady: December 2021-August 2022.
+    - After the meeting in Las Marinas in which [my demise was carefully planned and agreed](#crystal-dreaming), the recipient probably changed to the persons taking the most risk, i.e. the trumpet teacher and Domingo's gang, along with [local criminal organizations](../early-years/2007.md#hazel-smith) who were certain to trigger a mental breakdown, or worse, by their online actions; just as had happened to [Elaine Black](../2021/july.md#elaine-black) and others no doubt: August 2022-August 2024.
+    - The third account, changed in August 2024 after even brave Paqui (unpaid) Fornet's plot failed, was probably that of Carmen Cano and/or associates tasked with finally finishing me off by poison, likely pesticides doused all over my belongings and hazardous levels of methanol added to the mains water which made me very unwell and included extraordinary hallucinations over the last two weeks I stayed there in October 2024.

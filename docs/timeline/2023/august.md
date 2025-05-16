@@ -1,14 +1,3 @@
-## The landlady changes the bank account for the rent
-
-- Bea instructs me to change the bank account I pay my rent into.
-- This was the [second of three accounts](../2021/december.md#denia) I would pay rent to during my stay at Carrer Furs, Dénia; spy-cam and baby-porn capital of the world.
-- Some day soon, the owners of these accounts will be revealed. 
-- These are my suspicions:
-    
-    - Money into the first account probably went directly to Domingo and the trumpet teacher, as they were managing the plot initially.
-    - When it didn't work out, and after many meetings and discussions at the conservatory, they must have changed the account to the new responsible person who was likely to be the brave and bold Paqui Fornet who was quite certain that she, along with [local criminal organizations](../early-years/2007.md#hazel-smith) would be able to trigger a mental breakdown, or worse, by her actions; just as had happened to [Elaine Black](../2021/july.md#elaine-black) and others no doubt.
-    - The third account, changed in August 2024 after even brave Paqui's plot failed, was probably that of Carmen Cano and/or associates tasked with finally finishing me off by poison, likely pesticides doused all over my belongings and hazardous levels of methanol in the mains water.
-
 ## France 
 
 - I'm spending the rest of the summer in France, right up to the end of August.
