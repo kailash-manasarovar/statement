@@ -1,3 +1,5 @@
+# August 2023
+
 ## France, Lourdes & Cauterets
 
 - I spend the rest of the summer in France, right up to the end of August.
@@ -45,6 +47,44 @@
 
 ### `@1frgvn`
 
+- Who is The One?
+
+[![The One](../../content/tweets/august-comms/the-one.png)](https://x.com/1FRGVN/status/1690840976900689920)
+
+- How to communicate with constant online surveillance by people unknown? Why not clear the air for them.
+
+[![Clearing the air](../../content/tweets/august-comms/clearing-the-air.png)](https://x.com/1FRGVN/status/1690842596782833665)
+
+- Things they needed to hear.
+
+[![Offers of healing, promise of friends](../../content/tweets/august-comms/offers-of-healing-promise-of-friends-1.png)](https://x.com/1FRGVN/status/1691007234421972992)
+
+[![Offers of healing, promise of friends](../../content/tweets/august-comms/offers-of-healing-promise-of-friends-2.png)](https://x.com/1FRGVN/status/1691010959555379200)
+
+[![Offers of healing, promise of friends](../../content/tweets/august-comms/offers-of-healing-promise-of-friends-3.png)](https://x.com/1FRGVN/status/1691010959555379200)
+
+- I started referring to the 4th year of professional studies as season 3. Season 2 was the trumpet teacher debacle and season 1 was the [first attempt to control me in 2014](../early-years/2014.md#conservatory-audition).
+
+- This one was amazing and blew my mind a little. The pic on the last post of the thread came up on a random gif selection, but I don't believe it was random at all. The character here actually looks gaunt and unwell just like Domingo. 
+
+[![Domingo](../../content/tweets/august-comms/domingo.png)](https://x.com/1FRGVN/status/169101095955537920)
+
+- Things like this made me start to believe there were two camps to the stalkers, some friends, some enemies, or they just took the piss out of each other constantly. Of course, the trumpet teacher would have been on my side.
+
+[![Offers of healing, promise of friends](../../content/tweets/august-comms/offers-of-healing-promise-of-friends-4.png)](https://x.com/1FRGVN/status/1691009828603240448)
+
+- The whole story, sort of.
+
+[![The whole story](../../content/tweets/august-comms/the-whole-story-sort-of.png)](https://x.com/1FRGVN/status/1691044474225328128)
+
+- Comment on corruption (enchufe).
+
+[![Enchufe](../../content/tweets/august-comms/enchufe.png)](https://x.com/1FRGVN/status/1691069734983237632)
+
+- Comment on the lack of child safeguarding in our world and, in particular, my environment.
+
+[![Concerns about child safety](../../content/tweets/august-comms/comment-on-the-world.png)](https://x.com/1FRGVN/status/1691341944176168960)
+
 - I quite often tweeted about the benefits to me from falling in love and how it was a catharsis towards finding my latent fierceness and inner power.
 
 [![Finding my fierceness and power](../../content/tweets/august-comms/benefits-for-me-1.png)](https://x.com/1FRGVN/status/1692230260517994809)
@@ -64,6 +104,14 @@
 - I mention the women in the trumpet teacher's life: Ana, Carmen, Silvia, etc.
 
 [![The women in his life](../../content/tweets/august-comms/the-women-in-his-life.png)](https://x.com/1FRGVN/status/1692232062428725485)
+
+- I ask directly, who is Silvia?
+
+[![Who is Silvia](../../content/tweets/august-comms/who-is-silvia.png)](https://x.com/1FRGVN/status/1692035606929457563)
+
+- This tweet was when I realized there was a two way conversation going on with a bunch of people probably due to sudden interactions from random accounts that were 100% related to the tweet I had just posted. This post was related to somehow being able to figure out the hidden people's language and use it for myself.
+
+[![Amy Adams](../../content/tweets/august-comms/amy-adams.png)](https://x.com/1FRGVN/status/1691954911586517372)
 
 - Here's a tweet about concern for my safety. It seemed to me that the hackers were OK about communication which was banal or comic, but whenever safety came into it, they went quiet; except on my [`@jackchardwood` account](#jackchardwood) at the end of the month when they were very clear about who they were and how much danger I was in.
 
@@ -117,15 +165,9 @@
 
 [![Personal safety](../../content/tweets/august-comms/personal-safety.png)](https://x.com/1FRGVN/status/1696981354481639902)
 
-- https://x.com/1FRGVN/status/1692035606929457563
-- https://x.com/1FRGVN/status/1691954911586517372 -> when I realized there was a two way conversation going on for sure with a bunch of people probably. This was due to interactions from random accounts that were 100% related to the tweet I had just posted. I didn't screenshot at that time as it was so bizarre and you would have to be screen-shotting second by second, which is unreasonable to expect.
-- https://x.com/1FRGVN/status/1691341944176168960
-- https://x.com/1FRGVN/status/1691069734983237632 -> reference to enchufe and corruption.
-- https://x.com/1FRGVN/status/1691044474225328128
-- https://x.com/1FRGVN/status/1691010959555379200 -> amazing this one, the pic on the last post of the thread came up on gifs and the character here actually looks like Domingo. Things like this made me think there were two camps to the stalkers, or they just took the piss out of each other constantly.
-- https://x.com/1FRGVN/status/1691007234421972992 -> full thread.
-- https://x.com/1FRGVN/status/1690842596782833665
-- https://x.com/1FRGVN/status/1690840976900689920 -> still in love.
+
+
+
 - https://x.com/1FRGVN/status/1690828786130968577
 - https://x.com/1FRGVN/status/1690828158881116160
 - https://x.com/1FRGVN/status/1690817391247216640
