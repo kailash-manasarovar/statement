@@ -7,8 +7,9 @@
 - I'm unaware of the specifics of the evil in the background; although I can feel it very strongly.
 - The online activity intensifies and I realize people are watching me continuously online.
 - I'm still obsessed with the trumpet teacher and think about him constantly.
+- It's as if I'm having a conversation with him online and we're in love with each other.
 - I connect with an old friend on Facebook, Matthew Copeland.
-- I tell him I believe I have an audience on Twitter so I'm DJ'ing to them using the #MaSelecta hashtag.
+- I tell him I believe I have an audience on Twitter so I'm DJ'ing to them using the `#MaSelecta` hashtag.
 - I tell him it's the chirps of the century.
 
 ![maff](../../content/messages/mc-1.png)
