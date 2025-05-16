@@ -1,9 +1,14 @@
-## France 
+## France, Lourdes & Cauterets
 
-- I'm spending the rest of the summer in France, right up to the end of August.
-- I have spent one week in Lourdes already before I head up to Cauterets.
-- The online activity intensifies and I'm starting to realize people are watching me continuously online.
-- I connect with an old friend on Facebook, Matthew Copeland, and tell him I believe I have an audience on Twitter so I'm DJ'ing to them.
+- I spend the rest of the summer in France, right up to the end of August.
+- I spend one week in Lourdes before heading up to Cauterets.
+- Teachers and staff at the conservatory have decided my fate in the meantime, and it will be continued online harassment leading up to another "arrest" scare just before I leave France to come home.
+- I guess the intention is that I don't come back to my studies at the conservatory, as before, leaving me isolated and open to acute drugging and major sex crimes in my apartment.
+- I'm unaware of the specifics of the evil in the background; although I can feel it very strongly.
+- The online activity intensifies and I realize people are watching me continuously online.
+- I'm still obsessed with the trumpet teacher and think about him constantly.
+- I connect with an old friend on Facebook, Matthew Copeland.
+- I tell him I believe I have an audience on Twitter so I'm DJ'ing to them using the #MaSelecta hashtag.
 - I tell him it's the chirps of the century.
 
 ![maff](../../content/messages/mc-1.png)
@@ -12,18 +17,8 @@
 ![maff](../../content/messages/mc-4.png)
 ![maff](../../content/messages/mc-5.png)
 
-!!! tip
-    - Contact me for full access: info@forgivenet.co.uk
-
-- There are some weird things too which don't make sense, such as confusing access issues with my Skype account, strange messages on Twitter.
-- In truth the hackers are upping the game and getting ready to reveal themselves.
-
-### In the baths at Cauterets with Sally
-
-- I take Sally to the baths at Cauterets.
-- She behaves as if she is very shy of being in her swimming suit in public.
-- We sit in the bubbly beds outside beside each other.
-- I tell her I'm going to tame the trumpet teacher.
+- I experience more online weirdness, such as confusing access issues on my Skype account, strange messages on Twitter and YouTube.
+- The hackers are upping the game and getting ready to reveal themselves.
 
 ## Google search
 
@@ -98,6 +93,13 @@
 - Also, "just me" is something I have said a lot previously.
 - [This document](../../content/tweets/august-2023-twitter.pdf) is a collection of some of those accounts. You will see durian mentioned and also the accounts mentioning dogs is a close relation to Domingo's surnames: Lopez Cano, which have a distinct canine connotation.
 - Since I opened a Facebook account for the general election in the UK in June 2024, I have the same sort of spam accounts full of dogs and horses trying to connect with me.
+
+## In the baths at Cauterets with Sally
+
+- I take Sally to the baths at Cauterets.
+- She behaves as if she is very shy of being in her swimming suit in public.
+- We sit in the bubbly beds outside beside each other.
+- I tell her I'm going to tame the trumpet teacher.
 
 ## Tweet translations
 
