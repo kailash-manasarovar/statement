@@ -37,8 +37,9 @@
 - The X communication with hackers is ongoing.
 - I believe I am talking to the trumpet teacher directly in a loving manner, and then to Domingo and his family who communicate with me in a violent and threatening way, and it goes back-and-forth like this.
 - I am obsessed with music from the 1989 rave scene which I will have heard at the time I was groomed, sedated, and gang-raped repeatedly as a child, and put in porn.
-- Following is a selection of tweets from this period which relate to the sexual grooming and personal online attacks by teachers and staff at the conservatory.
-- I'm totally unaware at this stage that organized crime gangs are behind everything, including British gangs.
+- I tweet all the tunes I listen to on YouTube and add the tag `#MaSelecta`.
+- Following is a selection of tweets from this period which relate to the previous six months' sexual grooming and psychological and online attacks by teachers and staff at the conservatory.
+- I'm totally unaware at this stage that organized criminal gangs are behind everything, including British gangs.
 - There is very little communication to me in English.
 - Most of the tweets are translated, and I assume the Spanish are reading them.
 - The tweets confirm what has been going on; my concerns for my safety, constant communication with hidden groups, extremely threatening content including murder and violence, an overwhelm of porn bots and porn content, direct references from hidden groups to matters related to my experiences at the conservatory, continued suggestions that the trumpet teacher was in love with me, and on and on.
