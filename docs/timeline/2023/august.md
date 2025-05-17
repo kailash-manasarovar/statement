@@ -197,7 +197,10 @@
 
 [![Personal safety](../../content/tweets/august-comms/personal-safety.png)](https://x.com/1FRGVN/status/1696981354481639902)
 
-### @JackChardwood
+### `@JackChardwood`
+
+- My `@JackChardwood` account becomes infested with stalker activity during this period. The activity started earlier, in July, so I'll add those messages here to get the full story.
+- They targeted this account at the end of August to trigger me into believing I was going to be arrested when I returned home to Spain.
 
 - https://x.com/JackChardwood/status/1697198981678256150
 - https://x.com/JackChardwood/status/1697014897698029945 -> reiterating what I'm claiming here at the appropriate time.
