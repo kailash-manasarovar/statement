@@ -37,6 +37,7 @@
 - The X communication with hackers is ongoing. 
 - It started with me assuming they were just reading my tweets, but then the conversation became definitely two-way again like before.
 - They posted significant replies to me via *apparently* normal posts on my X feed or YouTube activity, via fake accounts that follow or like me, and even on adverts and spaces on the sidebars of my X UI.
+- I don't remember the `@jctot19` account being particularly significant at this time.
 - It was impossible to screenshot any of this as it was a fast moving conversation and, singly, each message they sent looks totally insignificant to an observer.
 - I believe I am talking to the trumpet teacher directly in a loving manner, and then to Domingo and his family who communicate with me in a violent and threatening way, and it goes back-and-forth like this.
 - I am obsessed with music from the 1989 rave scene which I will have heard at the time I was groomed, sedated, and gang-raped repeatedly as a child, and put in porn.
