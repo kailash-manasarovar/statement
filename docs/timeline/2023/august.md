@@ -34,7 +34,9 @@
 
 ## Tweets
 
-- The X communication with hackers is ongoing.
+- The X communication with hackers is ongoing. 
+- They post significant messages via *apparently* normal posts on my X feed or YouTube activity, via fake accounts that follow or like me, and even on adverts and spaces on the sidebars of my X UI.
+- It was impossible to screenshot any of this as it was a fast moving conversation and, singly, each message they sent looks totally insignificant to an observer.
 - I believe I am talking to the trumpet teacher directly in a loving manner, and then to Domingo and his family who communicate with me in a violent and threatening way, and it goes back-and-forth like this.
 - I am obsessed with music from the 1989 rave scene which I will have heard at the time I was groomed, sedated, and gang-raped repeatedly as a child, and put in porn.
 - I tweet all the tunes I listen to on YouTube and add the tag `#MaSelecta`.
@@ -47,6 +49,34 @@
 - Nevertheless, the trigger was powerful enough to get me to go public on X at the end of this month and ask the gender critical community (and feminist groups by default) for help.
 
 ### `@1frgvn`
+
+- Saying hi to all my stalkers. I expected the English-speaking stalkers to be mainly trans activists, and the Spanish ones to be musicians.
+
+[![Hi stalkers](../../content/tweets/august-comms/saying-hi.png)](https://x.com/1FRGVN/status/1686856121770799105)
+
+- Reporting kidney damage. I had no idea I was maliciously poisoned on [Monday 28th January 2023](january.md#serious-poisoning-at-chamber-music-class) by the trumpet teacher and Dr Joan from the Dénia hospital at La Xara.
+
+[![Reporting kidney damage](../../content/tweets/august-comms/reporting-kidney-damage.png)](https://x.com/1FRGVN/status/1686843970217705472)
+
+- Sometimes, the tunes I was playing with my `DJ #MaSelecta` tag had rather significant lyrics.
+
+[![Carmen and the devil](../../content/tweets/august-comms/carmen-and-the-devil.png)](https://x.com/1FRGVN/status/1687947624827990016)
+
+- I gave them all a good telling off.
+
+[![Telling off](../../content/tweets/august-comms/a-telling-off.png)](https://x.com/1FRGVN/status/1688847810840403968)
+
+- Given I'm in the right and have the moral high-ground, I imagine their behavior when they have to answer to their crimes, and I also wonder whether the trumpet teacher will remain with the Cano's or not.
+
+[![Rats fleeing](../../content/tweets/august-comms/rats-fleeing.png)](https://x.com/1FRGVN/status/1690828158881116160)
+
+- Watching misogynists tie themselves up in knots.
+
+[![Misogynists in knots](../../content/tweets/august-comms/misogynists-tying-themselves-in-knots.png)](https://x.com/1FRGVN/status/1690828786130968577)
+
+- Comment on (what I thought was) Domingo's woman-hating, but in fact was his commentary on my lack of baby-making or porn-readiness.
+
+[![Domingo's woman-hating](../../content/tweets/august-comms/comment-on-domingos-woman-hating.png)](https://x.com/1FRGVN/status/1690817391247216640)
 
 - Who is The One?
 
@@ -64,9 +94,9 @@
 
 [![Offers of healing, promise of friends](../../content/tweets/august-comms/offers-of-healing-promise-of-friends-3.png)](https://x.com/1FRGVN/status/1691010959555379200)
 
-- I started referring to the 4th year of professional studies as season 3. Season 2 was the trumpet teacher debacle and season 1 was the [first attempt to control me in 2014](../early-years/2014.md#conservatory-audition).
+- I started referring to the upcoming 4th year of professional studies as season 3. Season 2 was the trumpet teacher debacle and season 1 was the [first attempt to control me in 2014](../early-years/2014.md#conservatory-audition).
 
-- This one was amazing and blew my mind a little. The pic on the last post of the thread came up on a random gif selection, but I don't believe it was random at all. The character here actually looks gaunt and unwell just like Domingo. 
+- This post below blew my mind a little. The pic on the last post of the thread came up on a random gif selection, but I don't believe it was random at all. The character here actually looks gaunt and unwell just like Domingo. 
 
 [![Domingo](../../content/tweets/august-comms/domingo.png)](https://x.com/1FRGVN/status/169101095955537920)
 
@@ -110,7 +140,7 @@
 
 [![Who is Silvia](../../content/tweets/august-comms/who-is-silvia.png)](https://x.com/1FRGVN/status/1692035606929457563)
 
-- This tweet was when I realized there was a two way conversation going on with a bunch of people probably due to sudden interactions from random accounts that were 100% related to the tweet I had just posted. This post was related to somehow being able to figure out the hidden people's language and use it for myself.
+- I suddenly realized and was absolutely sure there was a two way conversation going on with a bunch of people due to sudden interactions from random accounts that were 100% related to the tweet I had just posted. This post was related to how I was going to somehow figure out the hidden people's language and use it for myself. These communication efforts of mine were really something marvelous to behold. It's not clear why teachers and staff at the conservatory remained steadfast on their grim trajectory.
 
 [![Amy Adams](../../content/tweets/august-comms/amy-adams.png)](https://x.com/1FRGVN/status/1691954911586517372)
 
@@ -165,19 +195,6 @@
 - I report being concerned about my personal safety.
 
 [![Personal safety](../../content/tweets/august-comms/personal-safety.png)](https://x.com/1FRGVN/status/1696981354481639902)
-
-
-
-
-- https://x.com/1FRGVN/status/1690828786130968577
-- https://x.com/1FRGVN/status/1690828158881116160
-- https://x.com/1FRGVN/status/1690817391247216640
-- https://x.com/1FRGVN/status/1690698078683009024
-- https://x.com/1FRGVN/status/1690628774721732608
-- https://x.com/1FRGVN/status/1688847810840403968
-- https://x.com/1FRGVN/status/1687947624827990016
-- https://x.com/1FRGVN/status/1686856121770799105
-- https://x.com/1FRGVN/status/1686843970217705472 -> mentioning rhabdo and kidney damage here.
 
 ### @JackChardwood
 
