@@ -27,7 +27,7 @@
 - The minute I open the door of my car, he jumps up and starts saying, "Oh, are you Welsh, are you Welsh".
 - I do not feel safe in North London.
 
-## Spy-cams in London N2
+## Spy-cams in London N2 also??
 
 - I arrive home from a trip to Israel.
 - I'm tired and I sleep well.
@@ -37,5 +37,5 @@
 ![Boyle Malditaako](../../content/images/cameras-in-n2.png)
 
 - "Bad boil a-knock-out"?
-- Does this mean my home in London N2 has somehow also been fitted with spy-cams? Is so, since when and by whom?
+- Does this mean my home in London N2 has somehow also been fitted with spy-cams? If so, since when and by whom?
 - Or have some of my belongings I brought back from Dénia been fitted with spy-cams?
