@@ -34,7 +34,7 @@ The report details the following:
 - Constant surveillance which included taking photos and videos of me of a sexual nature, and otherwise, from hacked devices and/or hidden cameras, and disseminating them throughout Dénia, and likely making money from them on paid-for WhatsApp groups and/or porn networks.
 - Mass voyeurism of myself through my hacked devices, probably also monetized.
 - Possible poisoning with strychnine, methanol, or similar; added maliciously to the water and air vents in my flat.
-- Gaining private access to extremely personal information about me - including possible access to pedophile pornography made many decades ago - with the help of British citizens living in Dénia who had targeted me previously, and sharing this information with many people in the town in order to gain the whole town's support in persecuting me, and to justify further targeting, harassment, and terrorizing me, a lone and vulnerable woman with no support.
+- Gaining private access to extremely personal information about me - including possible access to pedophile pornography made many decades ago - with the help of British citizens living in Dénia who had targeted me previously, and sharing this information with many people in the town in order to gain the whole town's support in persecuting me, and to justify further targeting, harassment, and terrorizing me, a lone, vulnerable, and wealthy woman with no support.
 
 ### Everyone knows who I am in Dénia
 

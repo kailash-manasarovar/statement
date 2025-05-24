@@ -32,7 +32,7 @@ A lioness had been waiting so long to emerge.
 
 ![A lioness inside](content/images/lioness-2.png)
 
-You might think the police would be keen to root out sex offending networks as quick as possible, particularly when their main targets have morphed from single, wealthy and foreign, vulnerable females (or males given the right circumstances) - targets who might happenstance into the town and bump into one of the numerous *"introduction agents"* - into children and younger, and not necessarily just foreign ones anymore either.
+You might think the police would be keen to root out sex offending networks as quick as possible, particularly when their main targets have morphed from single, wealthy and foreign, vulnerable females (or males given the right circumstances) - targets who might happenstance into the town and bump into one of the numerous *"introduction agents"*; yes, morphed into children and younger, and not necessarily just foreign ones anymore either.
 
 Yet all the author's requests for help were silenced and ignored; by the Spanish police three times, and by UK police numerous times too.
 
