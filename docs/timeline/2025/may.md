@@ -34,7 +34,7 @@
 - In the morning, I notice a massive boil in my groin which has a lot of puss. Obviously, when I notice it I am in a very private state of undress.
 - I open my laptop. On my Facebook account, an account with an extremely specific name has liked my post from the night before.
 
-![Boyle Malditaako](../../content/images/cameras-in-n2.png)
+![Boyle Malditaako](../../content/images/cameras-in-n2-red-border.png)
 
 - "Bad boil a-knock-out"?
 - Does this mean my home in London N2 has somehow also been fitted with spy-cams? If so, since when and by whom?
