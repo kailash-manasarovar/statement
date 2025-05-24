@@ -366,6 +366,11 @@
 - I'm so scared I text Concha to ask her if she thinks these people are dangerous.
 - I'm so scared I try to contract a private detective agency to help me gather evidence for the hacking and stalking.
 
+<audio controls>
+    <source src="../../../content/sounds/i-have-the-feeling-im-going-to-be-arrested.mp3" type="audio/mpeg">
+    Your browser does not support the audio element.
+</audio>
+
 ## Going public on Twitter
 
 - I don't know what to do, I feel like parasites are all over me and I can't get them off.

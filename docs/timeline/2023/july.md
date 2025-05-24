@@ -367,10 +367,16 @@
 - The next morning, I'm still reeling from this dream. I'm certain I'm going to be arrested and end up in jail for 7 years.
 - I don't know what the police charge will be but prison is a certainty.
 - I tell Hala and her ex-husband and the centre manager Patrick about my nightmare; but not about the Light cos that's a bit embarrassing.
-- Looking back, I can see I was psychologically unbalanced, and it is perhaps more evidence to point towards constant drugging with psychoactive substances via my toiletries, or perhaps through some of my health supplements like my antifungal liquid I took every day.
+- Looking back, I can see I was psychologically unbalanced, and it is perhaps more evidence to point towards constant drugging with psychoactive substances via my toiletries, or perhaps through some of my health supplements like my antifungal liquid I took every day, often before bed.
 - Even though I was not connected to my X account, online NLP/hypnosis manipulation techniques would have been continuing via my hacked mobile phone.
 - This was the first instance of me being overwhelmingly terrified about being arrested.
-- There was something triggering this fear which the gangs used successfully on a number of occasions.
+- There was something triggering this fear which the gangs used successfully on a number of occasions; specifically in [August 2023](august.md#the-second-time-i-am-convinced-im-going-to-be-arrested) and in [April 2024](../2024/april.md#the-third-time-im-convinced-im-going-to-be-arrested) when I become terrified about being arrested once again.
+
+<audio controls>
+    <source src="../../../content/sounds/i-have-the-feeling-im-going-to-be-arrested.mp3" type="audio/mpeg">
+    Your browser does not support the audio element.
+</audio>
+
 - Curiously, this terrorizing rather backfired on the criminal gangs as it seemed to be cracking open my mind in exceptionally beneficial ways. 
 - I can't believe this dream was their intention. God's maybe.
 

@@ -72,9 +72,15 @@
 
 - This picture continues to appear on Google search results.
 
-## Lawyer
+## The third time I'm convinced I'm going to be arrested
 
 - I believe I'm going to be arrested at any moment. 
+
+<audio controls>
+    <source src="../../../content/sounds/i-have-the-feeling-im-going-to-be-arrested.mp3" type="audio/mpeg">
+    Your browser does not support the audio element.
+</audio>
+
 - Given the outrageous behavior of teachers and staff at the conservatory, and the police's disinterest, and the seriousness of what's been happening to me, I'm quite sure that anything is possible.
 - I guess a lot of these fears are also being triggered by hackers and stalkers online.
 - I search for a lawyer and send an [email to a number of lawyers in the region asking for help](../../content/documents/emails/worried-the-conservatory-will-accuse-me-of-defamation.png).
