@@ -1,6 +1,6 @@
 ## Eagles
 
-## Microphone
+## Headphones
 
 ## Crows
 
@@ -10,3 +10,4 @@
 
 ## Repeating a target's own words back to them
 
+### Shaman midwives
