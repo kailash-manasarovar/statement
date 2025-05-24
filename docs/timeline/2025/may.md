@@ -26,3 +26,15 @@
 - As we arrive at the library, we see an extremely weird guy sitting outside. He has an orange old bashed-up car with him.
 - The minute I open the door of my car, he jumps up and starts saying, "Oh, are you Welsh, are you Welsh".
 - I do not feel safe in North London.
+
+## Spy-cams in London N2
+
+- I arrive home from a trip to Israel.
+- I'm tired and I sleep well.
+- In the morning, I notice a massive boil in my groin which is really pussy. Obviously, when I notice it I am in an extremely private state of undress.
+- I open my laptop. On my Facebook account, an account with an extremely specific name has liked my post from the night before.
+
+![Boyle Maldito](../../content/images/cameras-in-n2.png)
+
+- Does this mean my home in London N2 has somehow also been fitted with spy-cams?
+- Or have some of my belongings I brought back from Dénia been fitted with spy-cams?
