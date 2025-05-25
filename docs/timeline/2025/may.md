@@ -39,3 +39,4 @@
 - "Bad boil a-knock-out"?
 - Does this mean my home in London N2 has somehow also been fitted with spy-cams? If so, since when and by whom?
 - Or have some of my belongings I brought back from Dénia been fitted with spy-cams?
+- Or is there something even more interesting going on?
