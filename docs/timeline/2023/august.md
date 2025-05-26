@@ -36,8 +36,6 @@
 
 ![The Lovers outcome for the relationship](../../content/images/the-lovers.png)
 
-- They don't like this section.
-
 ## Google search
 
 - I continue to do Google searches on the `@jctot19`, `@sinremite`, and my own `@1frgvn` and `@jackchardwood` accounts.
@@ -46,20 +44,21 @@
 ## Tweets
 
 - The X communication with hackers is ongoing. 
-- It started with me assuming they were just reading my tweets, but then the conversation became definitely two-way again like before.
-- They posted significant replies to me via *apparently* normal posts on my X feed or YouTube activity, via fake accounts that follow or like me, and even on adverts and spaces on the sidebars of my X UI.
-- I don't remember the `@jctot19` account being particularly significant at this time.
-- It was impossible to screenshot any of this as it was a fast moving conversation and, singly, each message they sent looks totally insignificant to an observer.
+- I assumed they were just reading my tweets, but then the conversation became definitively two-way again, like before with the `@jctot19` account.
+- They post significant replies to me via *apparently* normal posts on my X feed or YouTube activity, via fake accounts that follow or like something I've posted, and even on adverts and spaces on the sidebars of my X UI.
+- I don't remember the `@jctot19` account being overly significant at this time because the communication methods had expanded. 
+- It was impossible to screenshot any of this as it was a fast moving conversation and, singly, each message they send me looks totally insignificant to an observer.
+- These online activities are psychological and emotionally manipulating crimes that are steadily setting up a major fraud almost impossible to prosecute.
 - I believe I am talking to the trumpet teacher directly in a loving manner, and then to Domingo and his family who communicate with me in a violent and threatening way, and it goes back-and-forth like this.
-- I am obsessed with music from the 1989 rave scene which I will have heard at the time I was groomed, sedated, and gang-raped repeatedly as a child, and put in porn.
-- I tweet all the tunes I listen to on YouTube and add the tag `#MaSelecta`.
+- I am obsessed with music from the 1989 rave scene which I was listening to at the time I was groomed, sedated, and gang-raped repeatedly as a child and put in porn.
+- I tweet all the tunes I listen to on YouTube and you can find them by searching X with the tag `#MaSelecta`.
 - Following is a selection of tweets from this period which relate to the previous six months' sexual grooming and psychological and online attacks by teachers and staff at the conservatory.
 - I'm totally unaware at this stage that organized criminal gangs are behind everything, including British gangs.
 - There is very little communication to me in English.
 - Most of the tweets are translated, and I assume the Spanish are reading them.
-- The tweets confirm what has been going on; my concerns for my safety, constant communication with hidden groups, extremely threatening content including murder and violence, an overwhelm of porn bots and porn content, direct references from hidden groups to matters related to my experiences at the conservatory, continued suggestions that the trumpet teacher was in love with me, and on and on.
-- Threat levels increased steadily throughout August until I was severely threatened with an online psychological trigger that I believed was real, (similar to my experience in [Thailand but far weaker](july.md#the-first-time-i-become-terrified-about-being-arrested)), that I was going to be arrested by the police when I returned to my home in Dénia.
-- Nevertheless, the trigger was powerful enough to get me to go public on X at the end of this month and ask the gender critical community (and feminist groups by default) for help.
+- The tweets confirm what is going on for me online; my concerns for my safety, constant communication with hidden groups, extremely threatening content including murder and violence, an overwhelm of porn bots and porn content, direct references from hidden groups to matters related to my experiences at the conservatory, continued suggestions that the trumpet teacher was in love with me, and on and on.
+- Threat levels increased steadily throughout August until I was severely threatened with an online psychological trigger that I believed was real, (similar to my experience in [Thailand](july.md#the-first-time-i-become-terrified-about-being-arrested)), that I was going to be arrested by the police when I returned to my home in Dénia.
+- The psychological trigger was powerful enough to get me to go public on X at the end of this month and ask the gender critical community (and feminist groups by default) for help.
 
 ### `@1frgvn`
 
@@ -137,7 +136,7 @@
 
 [![Always relating everything to the Winston May rape gang](../../content/tweets/august-comms/benefits-for-me-2.png)](https://x.com/1FRGVN/status/1692608384053195023)
 
-- I ask about [Benijembla](../2022/november.md#walking-in-benijembla-with-the-english-ladies)
+- I ask about [Benijembla](../2022/november.md#walking-in-benijembla-with-the-english-ladies).
 
 [![Benijembla question](../../content/tweets/august-comms/benijembla.png)](https://x.com/1FRGVN/status/1692054267463340344)
 
@@ -153,7 +152,7 @@
 
 [![Who is Silvia](../../content/tweets/august-comms/who-is-silvia.png)](https://x.com/1FRGVN/status/1692035606929457563)
 
-- I suddenly realized and was absolutely sure there was a two way conversation going on with a bunch of people due to sudden interactions from random accounts that were 100% related to the tweet I had just posted. This post was related to how I was going to somehow figure out the hidden people's language and use it for myself. These communication efforts of mine were really something marvelous to behold. It's not clear why teachers and staff at the conservatory remained steadfast on their grim trajectory.
+- I suddenly realized, and was absolutely sure, there was a two way conversation going on with a bunch of hidden people due to sudden interactions from random accounts that were 100% related to the tweet I had just posted. The post below was related to how I was going to somehow figure out the language of the hidden people who were communicating with me and use it for myself. These communication efforts of mine were really something marvelous to behold. It's not clear why teachers and staff at the conservatory remained steadfast on their grim trajectory given all the warnings.
 
 [![Amy Adams](../../content/tweets/august-comms/amy-adams.png)](https://x.com/1FRGVN/status/1691954911586517372)
 
@@ -177,7 +176,7 @@
 
 [![Vulnerable? Really?](../../content/tweets/august-comms/vulnerable-really.png)](https://x.com/1FRGVN/status/1692507773794144611)
 
-- Here's a tweet where I'm trying to understand what provoked such an experience at the conservatory.
+- Here's a tweet where I'm trying to understand what provoked such an experience at the conservatory. I considered the "director" to be Domingo, and the "lead" to be the trumpet teacher.
 
 [![What provoked such an attack](../../content/tweets/august-comms/trying-to-understand.png)](https://x.com/1FRGVN/status/1692445952164921529)
 
