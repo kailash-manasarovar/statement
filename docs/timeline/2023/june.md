@@ -244,6 +244,7 @@
 
 - Incidentally, the `@january_myth` account [will post another extremely triggering pic and poem](august.md#the-hackers-reveal-themselves) after another significant online-terror event in August.
 - The two posts are directly related to events designed to terrorize me into never returning to my piano studies at the conservatory.
+- I believe the "long, long way to go", post is in reference to the "romantic relationship" in which terrible things are planned for me, including being relieved entirely of my wealth, and health, has not even started yet at this time.
 
 ### World-saving lucky Forg
 
