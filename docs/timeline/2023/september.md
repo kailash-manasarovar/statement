@@ -35,6 +35,10 @@
 - You can see the full profile in the last pic in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
 - I suspect at that point someone got concerned about the ramifications of what had been happening and were concerned about whether I was going to go to the police.
 
+## X.com
+
+- https://x.com/1FRGVN/status/1698221547654140194
+
 ## Rosa in town
 
 - Whenever I walk into Dénia, I see Rosa Vidal, Director of the Conservatory of Dénia, who often nearly bumps into me but never says hello or acknowledges me.

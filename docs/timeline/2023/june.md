@@ -155,12 +155,18 @@
 - I guess he has been scheming with Domingo, Ana, Nacho and the others; and he doesn't want me to see him.
 
 !!! info "Actually"
-    - I'm pretty sure he wanted me to see him. I'm just not sure why.
-    - Warning maybe? I didn't need one.
-    - The next point maybe explains it. A sighting of the honey-trap victim's focus of desire is integral to the deception. That coupled with mind-altering substances and the victim is locked in.
+    - It really felt like he wanted me to see him. I wasn't sure why for a long time.
+    - Then it clicked.
+    - A sighting of the honey-trap victim's focus of desire is integral to the deception. That coupled with mind-altering substances and the victim is locked in.
+    - The car itself was a way of convincing me the trumpet teacher was poor and would need my help financially.
 
 - At the beach my mind is racing, I feel like he's going to pop up at any moment. It's extremely stressful. I'm 100% sure I was being drugged at this point given the constant looping thoughts and images, plus sexual feelings.
 - I know everything is a set up and I'm certain that the chamber music class the following day is planned as the grand finale.
+- In September, after the gang reveals itself to me online, I post about this event as I knew it was significant: https://x.com/1FRGVN/status/1698220957368725524.
+
+![Peugeot](../../content/images/peugeot.png)
+
+- I tweet confirmations of everything that happened in 'conversation' with the hackers. Notice how many likes the tweet has! 
 
 ### Fighting talk
 
