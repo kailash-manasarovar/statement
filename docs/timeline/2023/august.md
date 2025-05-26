@@ -55,7 +55,8 @@
 - Following is a selection of tweets from this period which relate to the previous six months' sexual grooming and psychological and online attacks by teachers and staff at the conservatory.
 - I'm totally unaware at this stage that organized criminal gangs are behind everything, including British gangs.
 - There is very little communication to me in English.
-- Most of the tweets are translated, and I assume the Spanish are reading them.
+- Most of my tweets are translated, and I assume the Spanish are reading them. 
+- Here's an example of some [tweet translation statistics from this month](../../content/tweets/people-translating-tweets.pdf) on a random and rather insignificant tweet. Everything I write was being monitored.
 - The tweets confirm what is going on for me online; my concerns for my safety, constant communication with hidden groups, extremely threatening content including murder and violence, an overwhelm of porn bots and porn content, direct references from hidden groups to matters related to my experiences at the conservatory, continued suggestions that the trumpet teacher was in love with me, and on and on.
 - Threat levels increased steadily throughout August until I was severely threatened with an online psychological trigger that I believed was real, (similar to my experience in [Thailand](july.md#the-first-time-i-become-terrified-about-being-arrested)), that I was going to be arrested by the police when I returned to my home in Dénia.
 - The psychological trigger was powerful enough to get me to go public on X at the end of this month and ask the gender critical community (and feminist groups by default) for help.
@@ -210,8 +211,8 @@
 
 ### `@JackChardwood`
 
-- My `@JackChardwood` account becomes infested with stalker activity during this period. The activity started earlier, in July, so I'll add those messages here to get the full story.
-- They targeted this account at the end of August to trigger me into believing I was going to be arrested when I returned home to Spain.
+- My `@JackChardwood` account becomes infested with stalker activity during this period. The activity started earlier, in July, so I'll add those messages from then too.
+- They also targeted this account at the end of August to terrorize me into believing I was going to be arrested when I returned home to Spain organized by the Cano family.
 
 - https://x.com/JackChardwood/status/1697198981678256150
 - https://x.com/JackChardwood/status/1697014897698029945 -> reiterating what I'm claiming here at the appropriate time.
@@ -243,12 +244,6 @@
 ![Borey Ka](../../content/images/fake-accounts/borey-ka.png)
 
 - I actually find this sort of interaction with them funny and think these people would be quite cool if they weren't so evil and self-destructive.
-
-## Tweet translations
-
-- I realize that I can tell when the Spanish are looking at my tweets because they have to expand the details of the tweets in order to translate them to English. 
-- You can get a good idea about how many times a tweet has been translated in the Post Analytics.
-- [Tweet translation statistics](../../content/tweets/people-translating-tweets.pdf).
 
 ## Fighting back
 
