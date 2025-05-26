@@ -12,7 +12,8 @@
 
 !!! danger "A really, really evil man"
     - If this is true, and myself and the trumpet teacher *were* having a sexual relationship, albeit with me completely sedated, then it could be described as somewhat consensual.
-    - Was this activity *out-of-scope* for the trumpet teacher's gang? Was this how he cheated the British gangs, and the reason why everyone got so angry with each other, and started careening around chaotically in the shared-mind arena, and start grassing each other and themselves up so marvelously?
+
+    ![Trumpet monster](../../content/images/trumpet-monster.webp)
 
 - The trick was making me believe that I was in love and that it was reciprocal.
 - It worked.

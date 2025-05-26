@@ -2,7 +2,7 @@
 
 - Here is a list of a small proportion the accounts that were, and still are in some cases, cyber stalking me.
 - Some are clear images of people I know, especially teachers and staff from the conservatory. I will note that where I can.
-- Some are obvious AI merges of people, sometime that I know sometimes not, and me.
+- Some are obvious AI merges of people, sometimes people I know, sometimes not, and me.
 
 !!! important "Disclaimer"
     - It's possible some of these accounts are legit and either I mistook something they genuinely or they were overwritten by hacking techniques.
@@ -14,7 +14,9 @@
 
 !!! danger
     - It is also possible that genuine accounts are duplicated and used to harass and intimidate.
-    - This happened a lot on my JackChardwood account.
+    - This happened a lot on my `@JackChardwood` account.
+
+- I also believe that it is possible that the dark-net porn industry, for the right price, gives trustworthy punters access to unwitting spy-cam victims and some of the accounts below connected with me for that reason.
 
 
 | Account  | Comments  |
