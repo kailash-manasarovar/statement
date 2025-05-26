@@ -343,7 +343,7 @@
 
 [![I won't go back](../../content/tweets/august-comms/jackchardwood/feeling-in-danger.png)](https://x.com/JackChardwood/status/1696990588628029460)
 
-- It's at this moment, the fake account connected to "durian" pops up with the long list of dogs. It 'pops up' by liking the last seven of my tweets in quick succession, so I examine it closely. The account no longer exists.
+- At this exact moment, the fake account connected to "durian" pops up by liking the last seven of my tweets in quick succession. I examine it closely. It has a long list of followers and they are all 'dog' related. The account no longer exists.
 
 ![dogs 1](../../content/tweets/august-comms/jackchardwood/dogs-3.png)
 ![dogs 2](../../content/tweets/august-comms/jackchardwood/dogs-2.png)
