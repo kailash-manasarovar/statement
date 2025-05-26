@@ -42,6 +42,15 @@
 
 - A direct message pops up: "Who's paying you?"
 
+## London
+
+- If you knew your spy-cam porn star was moving house, and you were 100% convinced that no-one would ever help her, and you were making untold money on spy-cam porn from her alone, how would you arrange spy-cams to be set up in her bathroom before she moved back?
+- Would you make sure you could manipulate her family's internet network?
+- Would you devise a method of stepping in when anyone in the family needed some work done?
+- Would you give yourself a name which would pretty much ensure your fake company would be tasked with the job, a family name perhaps?
+- Would you send the person with instructions to annoy the resident so much she would leave you alone for long periods in the house alone, where you could install as many spy-cams as you liked?
+- Do you think you might do that, if you were a criminal gang with no concerns about getting caught?
+
 ## Drugs test
 
 - My drugs test over the last 12 months comes back completely negative.
