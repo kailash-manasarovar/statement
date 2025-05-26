@@ -341,7 +341,7 @@
 
 - I tell them I won't go back to the conservatory if that's what they want, but I need some confirmation I'll be safe.
 
-[[![I won't go back](../../content/tweets/august-comms/jackchardwood/feeling-in-danger.png)](https://x.com/JackChardwood/status/1696990588628029460)](https://x.com/JackChardwood/status/1696990588628029460)
+[![I won't go back](../../content/tweets/august-comms/jackchardwood/feeling-in-danger.png)](https://x.com/JackChardwood/status/1696990588628029460)
 
 - It's at this moment, the fake account connected to "durian" pops up with the long list of dogs. It 'pops up' by liking the last seven of my tweets in quick succession, so I examine it closely. The account no longer exists.
 
