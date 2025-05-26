@@ -16,3 +16,11 @@
 - She is saying loudly, "There's something in the water. There's something in the water."
 - I think I recognize her.
 - Lucy.
+
+## Ireland
+
+- I set off early in the morning to make the long drive to the ferry to Ireland.
+- I'm off to do a TEB advanced training focusing on the lymphatic system.
+- I get to the top of my road and there is a huge mean looking man standing glaring at me from across the road.
+- I ignore him.
+- He thinks I don't see him.
