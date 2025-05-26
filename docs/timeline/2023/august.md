@@ -211,11 +211,21 @@
 
 ### `@JackChardwood`
 
-- My `@JackChardwood` account becomes infested with stalker activity during this period. The activity started earlier, in July, so I'll add those messages from then too.
-- They also targeted this account at the end of August to terrorize me into believing I was going to be arrested when I returned home to Spain organized by the Cano family.
+- My `@JackChardwood` account becomes infested with stalker activity during this period. The activity started earlier, when I got back from Thailand in July, so I'll add anything interesting from then too.
+- I'm followed by a lot of fake accounts on here, many of them porn and crypto bots.
+- This was the beginning of the porn infestation in which porn accounts which I can only describe as demonic followed me.
+- It was obvious to me something was going on or around the same time I did the [tarot over the phone](#tarot) in Lourdes.
 
-- https://x.com/JackChardwood/status/1697198981678256150
-- https://x.com/JackChardwood/status/1697014897698029945 -> reiterating what I'm claiming here at the appropriate time.
+![Hacker activity](../../content/tweets/august-comms/jackchardwood/lourdes-after-the-tarot.png)
+
+- My account was also heavily targeted by fake accounts related to dogs. This was at the end of August at the same time I started believing I was going to be arrested and coincided with the hackers revealing themselves by taking over my keyboard.
+- Following is an example of the sort of interaction I was having with hackers over the month up until I became really scared again.
+- Communication starts, as before, in a lighthearted manner.
+
+![Hacker activity](../../content/tweets/august-comms/jackchardwood/starting-off-as-fun.png)
+
+- https://x.com/JackChardwood/status/1697198981678256150 -> God I feel paralyzed 30/08, it's curious I'm feeling scared now, what changed, how did they change the mood so drastically, I was being followed by numerous dog-related accounts at this time, but I don't really scare that easily, how were they manipulating me
+- https://x.com/JackChardwood/status/1697014897698029945 -> direct communication
 - https://x.com/JackChardwood/status/1696996664555225110
 - https://x.com/JackChardwood/status/1696996474561736881
 - https://x.com/JackChardwood/status/1696990588628029460 -> concerned for my safety in Dénia.

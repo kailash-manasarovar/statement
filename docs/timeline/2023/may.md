@@ -94,6 +94,9 @@
 - His car is small and grey but I notice nothing more about it.
 - When I get into class, I realize he was at the meeting and probably had to leave early.
 - I get a very bad feeling from some of the teachers including [the choir master Filibert](https://filibertmira.com/) who stands and glares at me without moving while I walk past him down the stairs.
+- Maria shows me the chamber music evaluations for the year; complete with some snide remarks given everyone knew what was going on, including the Generalitat.
+
+![Evaluation](../../content/documents/evidence/sastre-evaluation.png)
 
 ## Concert de Orfeo de Dénia
 
