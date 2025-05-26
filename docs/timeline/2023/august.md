@@ -36,6 +36,8 @@
 
 ![The Lovers outcome for the relationship](../../content/images/the-lovers.png)
 
+- They don't like this section.
+
 ## Google search
 
 - I continue to do Google searches on the `@jctot19`, `@sinremite`, and my own `@1frgvn` and `@jackchardwood` accounts.
