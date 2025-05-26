@@ -5,14 +5,14 @@
 - I spend the rest of the summer in France, right up to the end of August.
 - I spend one week in Lourdes before heading up to Cauterets.
 - Teachers and staff at the conservatory have decided my fate in the meantime, and it will be continued online harassment leading up to another "arrest" scare just before I leave France to come home.
-- I guess the intention is that I don't come back to my studies at the conservatory, as before, leaving me isolated and open to acute drugging and major sex crimes in my apartment.
+- I guess the intention is that I don't return to my music studies at the conservatory, as before, leaving me isolated and open to acute fraud, drugging, and major sex crimes in my apartment.
 - I'm unaware of the specifics of the evil in the background; although I can feel it very strongly.
-- The online activity intensifies and I realize people are monitoring my activity continuously.
+- The online stalking intensifies and I realize people are monitoring my activity continuously.
 - I'm still obsessed with the trumpet teacher and think about him constantly.
 - It's as if I'm having a conversation with him online and we're in love with each other.
 - I connect with an old friend on Facebook, Matthew Copeland.
-- I tell him I believe I have an audience on Twitter so I'm DJ'ing to them using the `#MaSelecta` hashtag.
-- I tell him it's the chirps of the century.
+- I tell him I'm in love with a man and I believe I have an audience on Twitter so I'm DJ'ing to them using the `#MaSelecta` hashtag.
+- I tell him it's the chirps (chat up) of the century.
 
 ![maff](../../content/messages/mc-1.png)
 ![maff](../../content/messages/mc-2.png)
@@ -25,7 +25,16 @@
 
 ## Tarot
 
-- todo:
+- Given the precision of the [tarot card reading](../2022/july.md#tarot) I had in Glastonbury the year before, I contact Michael on Wearyall Hill to request another reading over the phone.
+- He insists I use my own deck, so I buy one from a 'spiritual' shop in Dénia a couple of days before leaving.
+- At the beginning of the month, we do the reading over the phone from my hotel room in Lourdes.
+- We do a general reading and a lot of the terror comes up; 10 of swords, etc. It's a grim outlook.
+- I ask, of course, about my relationship with the trumpet teacher.
+- We do a love reading.
+- The outcome is The Lovers card.
+- It's mind-blowing at the time and to this day remains very precise.
+
+![The Lovers outcome for the relationship](../../content/images/the-lovers.png)
 
 ## Google search
 
