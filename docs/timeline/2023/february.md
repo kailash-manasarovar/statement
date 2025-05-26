@@ -93,6 +93,15 @@
 
 ![Angry trumpet teacher](../../content/images/angry-trumpet-teacher.png)
 
+### Triggered generosity
+
+- Some of my thoughts-on-loop about the trumpet teacher were extraordinarily over-generous.
+- I wanted to help him, in any way I could.
+- I thought a lot about giving him my car, from about February. It's not clear why I would think that. I'm guessing online triggers and/or specific requests while sedated.
+- I see the [beat up 2-door Peugeot](june.md#sunday-11th-june) for the second time, the day before [my funeral](june.md#monday-12th-june-2023) in June.
+- I had seen him in the beat up Peugeot before in [May](may.md#assessment-day-at-the-conservatory) and I would see him and the doctor in the same car in [June at the beach](june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me).
+- Given how the gang switches gears from about April 2024 after I leave my studies at the conservatory due to being afraid for my life, and they start to demonstrate their fleet of fast, new, sports cars, I can only assume this beat-up old car trigger was part of the conspiracy to relieve me of my money on my own, apparent, volition.
+
 ## Ana the violin teacher
 
 ![Evil violin teacher](../../content/images/evil-violin-teacher.png)

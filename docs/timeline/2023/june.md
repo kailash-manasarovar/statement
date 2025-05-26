@@ -544,7 +544,7 @@
 ### The trumpet teacher and the doctor Joan drive past me
 
 - Another afternoon, I'm walking towards the road back home from the beach.
-- I see the [trumpet teacher and doctor Joan](january.md#serious-poisoning-at-chamber-music-class) in the grey Peugeot I mention [above](#sunday-11th-june). 
+- I see the [trumpet teacher and doctor Joan](january.md#serious-poisoning-at-chamber-music-class) in the grey Peugeot I mention [above](#sunday-11th-june). The same car I had seen in [May on my way to piano class](may.md#assessment-day-at-the-conservatory).
 
 ![Joan & TT at the beach](../../content/images/at-the-beach-dr-joan.png)
 
@@ -554,6 +554,7 @@
 - All this surveillance and stalking is very stressful; especially as I'm feeling enormously sexually aroused all the time and I cannot think straight.
 - I believe that setting up little events like these have a hypnotic 'meme' type effect which can then be reinforced online on hacked social media.
 - These signs and symbols, coupled with the continued promise of a relationship and overwhelming sexual arousal, plus and whatever narcotics I'm ingesting, create a strong mental attachment to all these events.
+- The car is significant as it reinforces my belief that the trumpet teacher is poor and needs financial help.
 - I now know these are well-known criminal manipulation techniques usually employed by honey-trappers and pornographers/pimps on vulnerable women.
 - This double-edged sword will turn against them very unexpectedly.
 

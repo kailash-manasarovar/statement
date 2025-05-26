@@ -84,6 +84,17 @@
 - It's interesting to see how much of the conspiracy I had figured out by February 2024 when I posted this, it wasn't much. I still hadn't realized I was being drugged continuously.
 - The two Ana's (violin teacher and musical language teacher) make a great fuss of pretending that Ana the violin teacher is terribly jealous and angry with me for posting this information on X in February 2024.
 
+## Assessment day at the conservatory
+
+- I'm heading in to piano class and to practice.
+- It's a Wednesday.
+- All the teachers are there as it is assessment day, or something like this.
+- On my way in, I notice the trumpet teacher driving past me just after I have walked outside of my building.
+- He looks at me and looks away.
+- His car is small and grey but I notice nothing more about it.
+- When I get into class, I realize he was at the meeting and probably had to leave early.
+- I get a very bad feeling from some of the teachers including [the choir master Filibert](https://filibertmira.com/) who stands and glares at me without moving while I walk past him down the stairs.
+
 ## Concert de Orfeo de Dénia
 
 - The choir I used to sing in, the Orfeo de Dénia, gave a [concert to celebrate 40 years of activity](https://www.denia.com/el-orfeo-de-denia-celebra-sus-40-anos-con-un-emotivo-concierto-que-unio-varias-generaciones-de-coristas/).
