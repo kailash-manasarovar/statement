@@ -10,7 +10,10 @@
     - A picture of a woman I saw on the beach but about 20 years younger.
     - A very threatening picture of a man (rather like the [picture of the gypsy I saw in France](august.md#followed-by-the-gypsy-in-france)).
     - Direct references to Domingo and Carmen Cano, poison and murder.
-    - A picture of a man I know with his family, people I've never met before. For nearly 20 years, this man has been pretending to be the boyfriend of a very wealthy woman I know, a family member. He may have taken half-a-million, more even, from her over this time; and likely been involved in drugging and psychologically terrorizing her in the same way I have experienced. Unfortunately, the woman I know was not able to stand up to them, the same gang.
+    - I see a picture of a man I know very well. He is with his family, but they're people I’ve never met before; a wife, grown up kids. For nearly 20 years, this man has been pretending to be the boyfriend (partner she said for a time) of a *once* very wealthy woman I know, a family member. I often remember him being at her home, whenever we had planned I would go over, but I never saw any of his stuff. It was always like he was visiting. Their baby was taken off them immediately. I'm glad about that. Did someone already know what was going on and that people's children were in peril? He may have taken half-a-million from her, more even, over this time; and was likely involved in drugging and psychologically terrorizing her in EXACTLY the same way I have experienced. Unfortunately, the woman I know was not able to stand up to them; the same gang.
+
+        ![Chris](../../content/images/chris.png)
+
 - Fortunately, I already posted some of them, such as the [threat to my brother's life](november.md#a-threat-to-my-brothers-life) as the hackers were getting extremely bold over November. I'll try to find some of the accounts I interacted with.
 - When I look at Twitter on my mobile after my machine being inaccessible, the first two likes are honey trap or fakes accounts that seem to be taking the piss out of the fact I cannot access my machine.
 - Taru Ann, the Finnish honey trap account, likes an old post of mine.
