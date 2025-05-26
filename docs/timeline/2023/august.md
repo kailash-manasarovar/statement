@@ -331,7 +331,7 @@
 
 [![Fear](../../content/tweets/august-comms/jackchardwood/trying-to-communicate.png)](https://x.com/JackChardwood/status/1696984188530884843)
 
-- I try to reason with them.
+- I try to reason with them. Monday 4th is the first day I will be home in Spain.
 
 [![Fear](../../content/tweets/august-comms/jackchardwood/being-reasonable.png)](https://x.com/JackChardwood/status/1696986510459879442)
 
