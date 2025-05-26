@@ -211,49 +211,165 @@
 
 ### `@JackChardwood`
 
+!!! tip "X search"
+    - I'm using the following search in this section: https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2023-09-01%20since%3A2023-07-15&src=typed_query&f=live
+
 - My `@JackChardwood` account becomes infested with stalker activity during this period. The activity started earlier, when I got back from Thailand in July, so I'll add anything interesting from then too.
-- I'm followed by a lot of fake accounts on here, many of them porn and crypto bots.
-- This was the beginning of the porn infestation in which porn accounts which I can only describe as demonic followed me.
-- It was obvious to me something was going on or around the same time I did the [tarot over the phone](#tarot) in Lourdes.
+- I'm suddenly followed by a lot of fake accounts, many of them porn and crypto bots. My account had no more than a handful of followers prior to the 23rd July when I got back from Thailand. Prior to that there was little to no activity at all on this account.
+
+![Followed by lots of accounts](../../content/tweets/august-comms/jackchardwood/few-followers.png) 
+
+- Even though I reply to crypto accounts, the views are in the single digits. This would be the normal activity level on this account, prior to cyber-stalking, and after too.
+
+![Views minimal on tweets unrelated to hacker activity](../../content/tweets/august-comms/jackchardwood/replying-to-crypto-accounts.png)
+
+- I knew that something weird was going on or around the same time I did the [tarot over the phone](#tarot) in Lourdes. The tweets intended for hackers have multiple views. I assume there is some dissemination mechanism in place, such as a WhatsApp group perhaps.
 
 ![Hacker activity](../../content/tweets/august-comms/jackchardwood/lourdes-after-the-tarot.png)
 
-- My account was also heavily targeted by fake accounts related to dogs. This was at the end of August at the same time I started believing I was going to be arrested and coincided with the hackers revealing themselves by taking over my keyboard.
+- Durian is mentioned repeatedly on fake account profiles; remember I gave [Gloria some durian](july.md#durian-for-gloria) as a gift in July.
+
+![Durian](../../content/tweets/august-comms/jackchardwood/porn-bots-durian.png)
+
+- My account was also heavily targeted by fake accounts related to dogs; of course the reference is to the surname Cano Lopez. This was at the end of August at the same time I started believing I was going to be arrested, and it coincided with the hackers revealing themselves by taking over my keyboard so I was 100% sure I was hacked.
+
+![Dogs](../../content/tweets/august-comms/jackchardwood/dogs.png)
+
+- I should have realized at this time that the cyber-attack was industrial scale. It would take me nearly a year more before that became clear and even then my mind was so controlled by these people that I could not grasp the full extent of the conspiracy.
 - Following is an example of the sort of interaction I was having with hackers over the month up until I became really scared again.
 - Communication starts, as before, in a lighthearted manner.
 
 ![Hacker activity](../../content/tweets/august-comms/jackchardwood/starting-off-as-fun.png)
 
-- https://x.com/JackChardwood/status/1697198981678256150 -> God I feel paralyzed 30/08, it's curious I'm feeling scared now, what changed, how did they change the mood so drastically, I was being followed by numerous dog-related accounts at this time, but I don't really scare that easily, how were they manipulating me
-- https://x.com/JackChardwood/status/1697014897698029945 -> direct communication
-- https://x.com/JackChardwood/status/1696996664555225110
-- https://x.com/JackChardwood/status/1696996474561736881
-- https://x.com/JackChardwood/status/1696990588628029460 -> concerned for my safety in Dénia.
-- https://x.com/JackChardwood/status/1696986746322289064
-- https://x.com/JackChardwood/status/1696986510459879442
-- https://x.com/JackChardwood/status/1696984188530884843
-- https://x.com/JackChardwood/status/1696983414220435643
-- https://x.com/JackChardwood/status/1696982282945335696
-- https://x.com/JackChardwood/status/1696840825412407430
-- https://x.com/JackChardwood/status/1696073754462265427 -> reference to hacking my Linux machine.
-- https://x.com/JackChardwood/status/1695580690140549390
-- https://x.com/JackChardwood/status/1695358438702760111 -> offering them a job.
-- https://x.com/JackChardwood/status/1694042113577550119 -> reference to me realizing they had access to my phone and, therefore, a picture of me in my pants.
-- https://x.com/JackChardwood/status/1692620444254310845
-- https://x.com/JackChardwood/status/1692578870392717471 -> another pic I believe the hackers found for me.
-- https://x.com/JackChardwood/status/1692576452347101349
-- https://x.com/JackChardwood/status/1692575000841142681 -> reference to Lopez Cano.
-- https://x.com/JackChardwood/status/1692574034251202761 -> trying to be reasonable again.
-- https://x.com/JackChardwood/status/1691331499881041920 -> appeal to Elon Musk who offered free legal expenses for what's happening to me.
-- https://x.com/JackChardwood/status/1690108934072209408
-- https://x.com/JackChardwood/status/1690106639993413632 -> fawn?
-- https://x.com/JackChardwood/status/1687383917924327424 -> in relation to the porn bot accounts that were following me constantly.
-- https://x.com/JackChardwood/status/1687115164037046273 
-- https://x.com/borey_ka -> when I don't post anything for a while an account called Borey Ka follows me.
+- I say hi to the new followers.
 
-![Borey Ka](../../content/images/fake-accounts/borey-ka.png)
+![Hacker activity](../../content/tweets/august-comms/jackchardwood/new-followers.png)
+
+- I know I have an audience, so I tweet interesting things, and get a lot of views.
+
+![Tweeting interesting things](../../content/tweets/august-comms/jackchardwood/talking-to-an-audience.png)
+
+- Tweeting about my DJ app.
+
+[![DJ app](../../content/tweets/august-comms/jackchardwood/twitter-dj-app.png)](https://x.com/JackChardwood/status/1687115164037046273)
+
+- A comedy tweet on what the bots are like.
+
+[![What bots are like](../../content/tweets/august-comms/jackchardwood/bots-be-like.png)](https://x.com/JackChardwood/status/1687383917924327424)
+
+- Telling them how much I'm enjoying their funny posts. I also wonder if this kind of content is evidence of fawn.
+
+[![Funny posts](../../content/tweets/august-comms/jackchardwood/some-amusing-post.png)](https://x.com/JackChardwood/status/1690106639993413632)
+
+- It's around now, I start to tell them they can come and work for the [forgivenet](https://1frgvn.com). My idea is that they can help me with marketing and getting people to use the platform.
+
+[![Job offers at the forgivenet](../../content/tweets/august-comms/jackchardwood/job-offers.png)](https://x.com/JackChardwood/status/1690108934072209408)
+
+- When Elon offers to pay legal fees for anyone treated unfairly by their employer after posting on X.com, I want to know if that includes government officials in Spain.
+
+[![Gang stalking by government officials](../../content/tweets/august-comms/jackchardwood/gang-stalking-by-government-officials.png)](https://x.com/JackChardwood/status/1691331499881041920)
+
+- Views of my tweets drop off after this post, dramatically, but the translation numbers remain stable. I'm still being targeted however. I complain about it and ask them to call off the dogs.
+
+[![Call off the dogs](../../content/tweets/august-comms/jackchardwood/call-off-the-dogs.png)](https://x.com/JackChardwood/status/1692574034251202761)
+
+- Did this post annoy them into terrorizing me even more? Here's a response to some porn posted on my feed.
+
+[![Incel mentions](../../content/tweets/august-comms/jackchardwood/world-of-incel.png)](https://x.com/JackChardwood/status/1692576452347101349)
+
+- Comment on closing the stable door after the horse has bolted. The man in this pic reminds me of the trumpet teacher and I wonder if the pic was chosen for me.
+
+[![Horse bolting](../../content/tweets/august-comms/jackchardwood/after-the-horse-has-bolted.png)](https://x.com/JackChardwood/status/1692578870392717471)
+
+- I offer them a truce.
+
+[![Truce](../../content/tweets/august-comms/jackchardwood/offering-a-truce.png)](https://x.com/JackChardwood/status/1692620444254310845)
+
+- A response to something, it's not clear what.
+
+![Panda response](../../content/tweets/august-comms/jackchardwood/panda-response.png)
+
+- Another job offer to help me with the forgivenet.
+
+[![Job offer](../../content/tweets/august-comms/jackchardwood/job-offers-2.png)](https://x.com/JackChardwood/status/1695358438702760111)
+
+- Offering forgivenet t-shirts.
+
+![T-shirts](../../content/tweets/august-comms/jackchardwood/t-shirts.png)
+
+- Offering a second interview to the hacker.
+
+[![Second interview for the forgivenet](../../content/tweets/august-comms/jackchardwood/second-interview.png)](https://x.com/JackChardwood/status/1695580690140549390)
+
+- Promising them the ride of their lives.
+
+![The best thing they will ever do in a million lifetimes](../../content/tweets/august-comms/jackchardwood/best-thing.png)
+
+- This tweet seems to me evidence for the 'good' trigger in action; manipulation techniques that make me feel warm and loving. This is a psychological technique often called 'coupling' in which a good feeling is associated quickly with terror and fear, locking a target into a trauma bond.
+
+![Feeling loved](../../content/tweets/august-comms/jackchardwood/coupling.png)
+
+- Right after this, they take over my keyboard. I detail this in a [following section](#the-hackers-reveal-themselves) but it's important to note that from here I have no doubt they have video and sound recordings of me [masturbating in my hotel room in Lourdes](april.md#good-friday).
+
+- The morning after the big hacking reveal, I explain what I need.
+
+[![Linux box requirements](../../content/tweets/august-comms/jackchardwood/morning-after-the-big-reveal.png)](https://x.com/JackChardwood/status/1696073754462265427)
+
+- Around this time, I was head-hunted by a company called Torus looking for a technical writer. I'm totally convinced it's part of the hack. The manager is Spanish, from Valencia, and had worked for Polygon. I detail this in a [following section](#head-hunted). The web3 comment is related to this. 
+
+[![Head hunted](../../content/tweets/august-comms/jackchardwood/head-hunted.png)](https://x.com/JackChardwood/status/1696840825412407430)
+
+- It's the end of the month and I'm starting to feel scared about something I cannot pinpoint.
+
+[![Starting to feel scared](../../content/tweets/august-comms/jackchardwood/starting-to-get-scared.png)](https://x.com/JackChardwood/status/1696980074715570543)
+
+- I believe the 'bad' trigger is starting now; another psychological coupling technique where online visuals and sounds are being used to trigger fear and anxiety about something. I try to talk to them about it.
+
+[![Growing fear](../../content/tweets/august-comms/jackchardwood/starting-to-get-scared-1.png)](https://x.com/JackChardwood/status/1696983414220435643)
+
+- I try to communicate with them about this growing fear.
+
+[![Fear](../../content/tweets/august-comms/jackchardwood/trying-to-communicate.png)](https://x.com/JackChardwood/status/1696984188530884843)
+
+- I try to reason with them.
+
+[![Fear](../../content/tweets/august-comms/jackchardwood/being-reasonable.png)](https://x.com/JackChardwood/status/1696986510459879442)
+
+- We need to talk.
+
+[![We need to talk](../../content/tweets/august-comms/jackchardwood/we-need-to-talk.png)](https://x.com/JackChardwood/status/1696986746322289064)
+
+- I tell them I won't go back to the conservatory if that's what they want, but I need some confirmation I'll be safe.
+
+[[![I won't go back](../../content/tweets/august-comms/jackchardwood/feeling-in-danger.png)](https://x.com/JackChardwood/status/1696990588628029460)](https://x.com/JackChardwood/status/1696990588628029460)
+
+- It's at this moment, the fake account connected to "durian" pops up with the long list of dogs. It 'pops up' by liking the last seven of my tweets in quick succession, so I examine it closely. The account no longer exists.
+
+![dogs 1](../../content/tweets/august-comms/jackchardwood/dogs-3.png)
+![dogs 2](../../content/tweets/august-comms/jackchardwood/dogs-2.png)
+![dogs 3](../../content/tweets/august-comms/jackchardwood/dogs.png)
+
+- It's very obvious to me at this time I'm being targeted online by Domingo Cano Lopez and his family and that is absolutely what I'm supposed to think, whether it is true or not. I'm trying to understand what's going on.
+
+[![Trying to understand](../../content/tweets/august-comms/jackchardwood/trying-to-understand.png)](https://x.com/JackChardwood/status/1696996474561736881)
+
+- Note I'm suggesting they have private film of me.
+
+[![Trying to understand](../../content/tweets/august-comms/jackchardwood/trying-to-understand-2.png)](https://x.com/JackChardwood/status/1697014897698029945)
+
+- I wake up feeling paralyzed with fear.
+
+[![I feel paralyzed](../../content/tweets/august-comms/jackchardwood/paralysed.png)](https://x.com/JackChardwood/status/1697198981678256150)
+
+- When I don't post anything for a while an account called Borey Ka follows me.
+
+[![Borey Ka](../../content/images/fake-accounts/borey-ka.png)](https://x.com/borey_ka)
 
 - I actually find this sort of interaction with them funny and think these people would be quite cool if they weren't so evil and self-destructive.
+
+## Head hunted
+
+- I'm head hunted for a company called Torus.
 
 ## Fighting back
 
