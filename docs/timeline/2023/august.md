@@ -357,7 +357,7 @@
 
 [![Trying to understand](../../content/tweets/august-comms/jackchardwood/trying-to-understand-2.png)](https://x.com/JackChardwood/status/1697014897698029945)
 
-- I wake up feeling paralyzed with fear.
+- I wake up the next morning feeling paralyzed with fear.
 
 [![I feel paralyzed](../../content/tweets/august-comms/jackchardwood/paralysed.png)](https://x.com/JackChardwood/status/1697198981678256150)
 
