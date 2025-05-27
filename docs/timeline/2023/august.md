@@ -369,7 +369,16 @@
 
 ## Euphoria
 
-- TODO:
+- Throughout the month I remain in a state of intense euphoria.
+- I had fallen in love, harder than ever before, and I felt that I was loved back.
+- It was heavenly.
+
+![Euphoria](../../content/images/euphoria.png)
+
+- For the first time in my life, I felt beautiful.
+- I know very well that all these feelings were manipulated with software downloaded onto my phone and laptops, and reinforced by cyber-stalking on social media, and further solidified by whatever illicit substances the criminals of Dénia had managed to add to my bathroom products, health supplements, and any food or water I brought with me in the car.
+- There's some suggestion that criminal gangs had managed to access my belongings in Lourdes and Cauterets too.
+- Nevertheless, it felt real, and so I gave it to God for His purposes, and since July or August 2023, I have not experienced any suicidal depression at all. It's totally cured.
 
 ## Head hunted
 
