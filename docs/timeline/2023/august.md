@@ -214,8 +214,8 @@
 !!! tip "X search"
     - I'm using the following search in this section: https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2023-09-01%20since%3A2023-07-15&src=typed_query&f=live
 
-- My `@JackChardwood` account becomes infested with stalker activity during this period. The activity started earlier, when I got back from Thailand in July, so I'll add anything interesting from then too.
-- I'm suddenly followed by a lot of fake accounts, many of them porn and crypto bots. My account had no more than a handful of followers prior to the 23rd July when I got back from Thailand. Prior to that there was little to no activity at all on this account.
+- My `@JackChardwood` account becomes infested with stalker activity during this period. It started when I got back from Thailand in July, so I'll add anything interesting from then too.
+- I'm suddenly followed by a lot of fake accounts, many of them porn and crypto bots. My account had no more than a single-figure handful of followers prior to the 23rd July when I got back from Thailand. Before that there was little to no activity at all on this account.
 
 ![Followed by lots of accounts](../../content/tweets/august-comms/jackchardwood/few-followers.png) 
 
@@ -277,7 +277,7 @@
 
 [![Incel mentions](../../content/tweets/august-comms/jackchardwood/world-of-incel.png)](https://x.com/JackChardwood/status/1692576452347101349)
 
-- Comment on closing the stable door after the horse has bolted. The man in this pic reminds me of the trumpet teacher and I wonder if the pic was chosen for me.
+- Comment on closing the stable door after the horse has bolted. The man in this pic reminds me of the trumpet teacher.
 
 [![Horse bolting](../../content/tweets/august-comms/jackchardwood/after-the-horse-has-bolted.png)](https://x.com/JackChardwood/status/1692578870392717471)
 
@@ -305,7 +305,7 @@
 
 ![The best thing they will ever do in a million lifetimes](../../content/tweets/august-comms/jackchardwood/best-thing.png)
 
-- This tweet seems to me evidence for the 'good' trigger in action; manipulation techniques that make me feel warm and loving. This is a psychological technique often called 'coupling' in which a good feeling is associated quickly with terror and fear, locking a target into a trauma bond.
+- The following tweet seems to be evidence for the 'good' trigger in action; manipulation techniques that make me feel warm and loving. This is a psychological technique often called 'coupling' in which a good feeling is associated quickly with terror and fear, locking a target into a trauma bond.
 
 ![Feeling loved](../../content/tweets/august-comms/jackchardwood/coupling.png)
 
@@ -315,7 +315,7 @@
 
 [![Linux box requirements](../../content/tweets/august-comms/jackchardwood/morning-after-the-big-reveal.png)](https://x.com/JackChardwood/status/1696073754462265427)
 
-- Around this time, I was head-hunted by a company called Torus looking for a technical writer. I'm totally convinced it's part of the hack. The manager is Spanish, from Valencia, and had worked for Polygon. I detail this in a [following section](#head-hunted). The web3 comment is related to this. 
+- Around this time, I was head-hunted by a company called Torus looking for a technical writer. I'm convinced it's part of the attack and explain this to the head-hunter. The manager is Spanish, from Valencia, and had worked for Polygon. I detail this in a [following section](#head-hunted). The web3 comment is related to this. 
 
 [![Head hunted](../../content/tweets/august-comms/jackchardwood/head-hunted.png)](https://x.com/JackChardwood/status/1696840825412407430)
 
@@ -366,6 +366,10 @@
 [![Borey Ka](../../content/images/fake-accounts/borey-ka.png)](https://x.com/borey_ka)
 
 - I actually find this sort of interaction with them funny and think these people would be quite cool if they weren't so evil and self-destructive.
+
+## Euphoria
+
+- TODO:
 
 ## Head hunted
 
