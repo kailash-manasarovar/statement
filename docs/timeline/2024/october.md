@@ -72,6 +72,10 @@
 - I do not know what any of this means. Is it more tricks to scare me? Why would they put so much effort into it. I don't understand. The whole thing makes no sense.
 - And how is anyone supposed to know what's going on if no one ever talks to you and if they can only lie anyway?
 
+## Job offer
+
+- The following day I'm contacted on LinkedIn by a yacht company based in Altea with a job offer which I refuse because I'm certain it's a scam.
+
 ## Bumping into Paul again
 
 - On 6th October, on my way to the Indian restaurant, I bump into Paul who is having a beer at the Open 24 Market at Plaza Benidorm, the usual place I "bump" into him.
