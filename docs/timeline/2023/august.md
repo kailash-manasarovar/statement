@@ -456,35 +456,35 @@
 
 ## Matthew
 
-- An account starts to interact with me, `@Matthew49200183`. Here is his first post to me; a reply to a reply.
+- An account starts to interact with me, `@Matthew49200183`. 
+- Here is his first post to me; a reply to a reply.
 
 [![First post from Matthew](../../content/tweets/august-comms/matthew/matthews-first-post.png)](https://x.com/Matthew49200183/status/1686307743815069696)
 
-- Did this person just spill all the beans?
+- Did this person just spill all the beans in one go?
+- I know the account is related to the cyber-stalking because the hair in the profile picture - at that time - is the same hair picture I saw in July when I was seeing [plate lady](july.md#plate-lady-early-in-the-month) and [Ana](july.md#ana) modelling. 
 
 [![Matthew](../../content/images/fake-accounts/Screenshot 2024-03-08 at 08.46.55.png)](https://x.com/Matthew49200183)
 
-- I see weird stuff going on with this account, such as my likes being added to his posts, without me actually adding them myself. I think it's a glitch but this happens just before hackers take over my keyboard so it makes sense now.
+- I believe the hair pic was posted alone, together with [girl with a cross on her back](july.md#girl-with-a-cross-on-her-back), and maybe with a bit of the owner's head visible too.
+- I start to see weird stuff going on with this account, such as my likes being added to his posts without me actually adding them myself. I think it's a glitch but this happens just before hackers take over my keyboard so it makes sense now.
 - His second post, a couple of days later, is equally intentional.
 
 ![Second post from Matthew](../../content/tweets/august-comms/matthew/matthews-second-post.png)
 
-- I know the account is related to the cyber-stalking because the hair in the profile picture - at that time - is the same hair picture I saw in July when I was seeing [plate lady](july.md#plate-lady-early-in-the-month) and [Ana](july.md#ana) modelling. 
-- I believe the hair pic was posted alone, together with [girl with a cross on her back](july.md#girl-with-a-cross-on-her-back), and maybe with a bit of the owner's head visible too.
 - Later in the month, he replies again after I post Buffalo Springfield, Stop Children What's That Sound.
 
 ![Buffalo Springfield 1](../../content/tweets/august-comms/matthew/buffalo-springfield-1.png)
 ![Buffalo Springfield 2](../../content/tweets/august-comms/matthew/buffalo-springfield-2.png)
 ![Buffalo Springfield 3](../../content/tweets/august-comms/matthew/buffalo-springfield-3.png)
 
-- There's no more interaction between us until 8th October when he replies to a post in a way that makes me now shudder.
+- There's no more interaction between us until 8th October when he replies to an ironic post in a way that now makes me shudder.
 
 ![Lesbianism](../../content/tweets/august-comms/matthew/signing-up-for-lesbianism.png)
 
-- This is a significant account with regards to the cyber-stalking; whether it is an actual person from Denia, or a dark-web porn subscription account that's paying for access to sedated spy-cam targets, or a delegated hacker account given instructions on what to say to a target.
+- I believe the Matthew account is a significant account with regards to the cyber-stalking; whether it is an actual person from Denia, or a dark-web porn subscription account that's paying for access to sedated spy-cam targets, or a delegated hacker account given instructions on what to say to a target by pornographers.
 - Whenever the account interacts with me, it says significant things that make me wonder, and believe a little, and then more and more, that I am interacting with the trumpet teacher.
-- I have a public tweet conversation with this person which is linked at the bottom of the page along with the other significant tweets.
-- We end up DM'ing in December significantly, and for sure there is a connection to Dénia criminals as content from the tweet is mirrored by an adult member of the choir who sits next to me at class at the conservatory.
+- We end up DM'ing in December significantly.
 - Later on, I take a look at some of the posts on this account and I note extremely enticing, honey-trap-type content coming from (apparent) women.
 - A snippet of a tweet chat with Matthew.
 
