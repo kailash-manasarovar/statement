@@ -382,7 +382,19 @@
 
 ## Head hunted
 
-- I'm head hunted for a company called Torus.
+- Throughout August I'm looking for a new role.
+- I'm head hunted for a start-up called Torus who had a one-page website promising an upcoming release. 
+- I believe the website was `torus.io` which now doesn't even redirect to anything.
+- It's possible, if legit, the business ended up here: https://www.torusassociation.org/about-us.html#mission but I do not remember any of these people being part of the interview process or the company description.
+- It could be easy to get the company confused with another crypto app `https://tor.us/` which has been going for years, but I didn't confuse them.
+- I'm convinced it's a scam and I tell the recruiter my fears.
+- I was so concerned about the person I was supposed to meet, David Ruiz from *Valencia* who was apparently a Project Manager at Polygon, I contacted Polygon to check if he existed.
+- They were not able to confirm, or deny, that this person worked for Polygon, which was even stranger.
+- I told the UK recruiter I was not interested because I believed it was a scam and I gave the background that I was being cyber-stalked at the time.
+
+![David Ruiz](../../content/images/david-ruiz.png)
+
+- The one-page release website never moved into a released stage, even when I checked months afterwards. Now the URL is dead.
 
 ## Fighting back
 
