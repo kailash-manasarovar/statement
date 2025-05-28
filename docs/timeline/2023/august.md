@@ -482,7 +482,7 @@
 ![Lesbianism](../../content/tweets/august-comms/matthew/signing-up-for-lesbianism.png)
 
 - This is a significant account with regards to the cyber-stalking; whether it is an actual person from Denia, or a dark-web porn subscription account that's paying for access to sedated spy-cam targets, or a delegated hacker account given instructions on what to say to a target.
-- Whenever the account interacts with me, it says significant things that me wonder, and believe a little, and then more and more, that I am interacting with the trumpet teacher.
+- Whenever the account interacts with me, it says significant things that make me wonder, and believe a little, and then more and more, that I am interacting with the trumpet teacher.
 - I have a public tweet conversation with this person which is linked at the bottom of the page along with the other significant tweets.
 - We end up DM'ing in December significantly, and for sure there is a connection to Dénia criminals as content from the tweet is mirrored by an adult member of the choir who sits next to me at class at the conservatory.
 - Later on, I take a look at some of the posts on this account and I note extremely enticing, honey-trap-type content coming from (apparent) women.
@@ -494,7 +494,7 @@
 
 ![Nervous sweaty elephant](../../content/tweets/august-comms/matthew/nervous-sweaty-elephant.png)
 
-- This was an out-of-the-blue meaningless reply, except *nervous sweaty elephant* was a reference to me. When I went to class about an hour later, the woman beside me stunk of peanuts and the choir master spoke endlessly about trunks.
+- This was an out-of-the-blue meaningless reply, except *nervous sweaty elephant* was a reference to me. When I went to class about an hour later, the woman beside me stunk of peanuts and the choir master (who will send me a dick pic on X in September) spoke endlessly about elephant trunks, *trompas* the word also happens to be very similar to trumpet, *trompa*.
 
 ## Fake accounts
 
