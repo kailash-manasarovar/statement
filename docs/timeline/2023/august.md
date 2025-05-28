@@ -435,7 +435,7 @@
 - I'm wearing my white knickers from M&S.
 - I keep the photo for only a few days before I delete it.
 - Around December 2023, I see this picture again, on a tweet added to my [Google search results](december.md#picture-of-me-in-my-pants-on-google-search).
-- I have not seen this tweet before, or since outside of these results.
+- I had not seen this tweet before, or since outside of these results.
 - When hackers post this for me to see in December, they want me to know how much content they have of me without my knowledge or permission, and to really let me know that I have had no privacy at all, and for a very long time too, longer that I can possibly imagine.
 
 ![Me in my underwear Google search](../../content/images/google-searches/me-in-my-pants.png)
