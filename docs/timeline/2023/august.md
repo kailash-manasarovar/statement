@@ -395,6 +395,7 @@
 ![David Ruiz](../../content/images/david-ruiz.png)
 
 - The one-page release website never moved into a released stage, even when I checked months afterwards. Now the URL is dead.
+- At the time, I didn't relate any of this to previous experiences that I had forgotten completely, such as [interviewing for a company where I'd be looking at genitals all day long](../early-years/2016.md#march), but now I do.
 
 ## Fighting back
 
