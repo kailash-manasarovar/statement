@@ -412,7 +412,7 @@
 - This is probably true to a certain extent but for sure the drugging was continuing.
 - I wonder also if there is some low level, sub-audio sexual sound files being played through my phone (which I have safely stored so that the Netflix cyber-experts can check the caches for evidence of this); perhaps porn film soundtracks, or even perhaps my own sexual sounds played back to me given I find porn quite vile.
 - This may explain unpredictable sexual feelings I was having throughout this month in various situations away from my computer, and there is a possibility that such a mechanism affected at least one other person too, details of which I will forward when necessary, although I believe this person will have told a lot of people about his weird experience with me that day.
-- I believe the hardware/software NLP/hypnotic triggering mechanisms downloaded into my mobile phone will have focused on sexual arousal mainly, and then fear and anxiety triggers whenever teachers and staff at the conservatory decided to switch from sex to terror.
+- I believe the hardware/software NLP/hypnotic triggering mechanisms downloaded onto my mobile phone will have focused on sexual arousal mainly, and then fear and anxiety triggers whenever teachers and staff at the conservatory decided to switch from sex to terror.
 - It was a push and pull, good and bad, fear and love emotional rollercoaster, on a loop.
 - Here's another marker to how difficult it was for me to figure out what was going on for so long.
 
@@ -428,22 +428,25 @@
 - I hope my story helps them and the people who love them. 
 - I pray they find their power, their voices.
 
+## I take a picture of myself in my pants
+
+- Like many woman, I want to know how big my bum is, but the mirror in my room is very small, so I stand on a chair and take a photo with my mobile phone.
+- I keep the photo for only a few days before I delete it.
+- Around December 2023, I see this picture again, in my [Google search results](december.md#picture-of-me-in-my-pants-on-google-search).
+- When hackers post this for me to see in December, they want me to know how much content they have of me without my knowledge or permission, and to really let me know that I have had no privacy at all, and for a very long time too, longer that I can possibly imagine.
+
+![Me in my underwear Google search](../../content/images/google-searches/me-in-my-pants.png)
+
+- When I see this picture of me in my underwear (the top half is not me, the bottom half is) in August 2023, it reinforces my certainty they have film of me [masturbating in Lourdes on Good Friday](april.md#good-friday).
+. Although I suspected it, and even though they had taken over my keyboard, I was only 100% sure they were interested in photos of my naked body when they posted this picture in December 2023.
+- The pic was up for about a week and then it disappeared and never reappeared.
+- I showed it on my mobile to two people who were physically present.
+
 ## YouTube
 
 - I'm stalked by accounts on YouTube which you can see in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
 - I often look at my phone during the day. 
 - As I'm looking at YouTube on the desktop one day I notice a video in the bottom section of the page which looks like me while I'm looking at my phone, singing along to the song I'm listening to. I'm startled.
-
-## I take a picture of myself in my pants
-
-- I want to check to see how big my bum is, but the mirror is very small, so I stand on a chair and take a photo with my mobile phone.
-- This picture is eventually posted on Google search, probably around December 2023, in the "Google search result manner" I explained before. At the time they posted it, they wanted me to know how much content they had taken of me without my knowledge. 
-
-![Me in my underwear Google search](../../content/images/google-searches/me-in-my-pants.png)
-
-- When I saw this picture of me in my underwear (the top half is not me, the bottom half is), I realized for sure that they had filmed me masturbating too. Although I suspected it before, it was evident to me only in suggested ways via gang stalking activity, so I was only 100% sure when they posted this picture in December 2023.
-- This pic was up for about a week and then it disappeared and never reappeared.
-- I showed it on my mobile to two people who were physically present.
 
 ## Matthew
 
