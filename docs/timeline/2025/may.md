@@ -33,7 +33,7 @@
 
 - I pull into my road in the car late one evening.
 - As I'm driving up, a man suddenly jumps into the middle of the road.
-- He is wearing black ear phones like the ones I used to have and he is dancing exactly like I did around my room sometimes when I was being drugged and hacked in Spain and France.
+- He is wearing black ear phones like the ones I used to have and he is dancing [exactly like I did around my room sometimes](../2023/august.md#fighting-back) when I was being drugged and hacked in Spain and France.
 - He grins at me wildly and doesn't move so I have to slow down.
 - He side steps away.
 

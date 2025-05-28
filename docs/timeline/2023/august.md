@@ -399,17 +399,40 @@
 
 ## Fighting back
 
-- I realize that Domingo and the trumpet teacher are continuing to harass me online, so I decide to fight back.
-- I find myself still thinking about the trumpet teacher constantly and, given it's not possible for me to be drugged, I now believe that, on top of the drugging, there was some NLP triggering mechanisms being built into my Twitter usage which could be relied upon to trigger sexual feelings in the absence of medication, and which had been set up during those medicated times.
-- Also, I wonder if there was some low level, sub-audio sexual sound files being generated through my phone (which I have safely stored so the police cyber experts can check the caches for evidence of this). 
+- I realize that Domingo, the trumpet teacher, and all their mates from Dénia are continuing to harass me online.
+- I have no choice but to fight back.
+
+![Tiger girl fights back](../../content/images/lioness-3.png)
+
+- The following point was written in November 2024, while I was still being drugged and poisoned via my bathroom products. Even then, I had yet to get the extent of the attack clear in my mind.
+
+!!! quote "Written in November 2024 during the first draft of my statement"
+    - In August 2023, I find myself thinking about the trumpet teacher constantly and, **given it's not possible for me to be drugged**, I now believe that, on top of the drugging, there was some NLP triggering mechanisms built into my Twitter usage which could be relied upon to trigger sexual feelings in the absence of medication, and which had been set up during those medicated times.
+
+- This is probably true to a certain extent but for sure the drugging was continuing.
+- I wonder also if there is some low level, sub-audio sexual sound files being played through my phone (which I have safely stored so that the Netflix cyber-experts can check the caches for evidence of this); perhaps porn film soundtracks, or even perhaps my own sexual sounds played back to me given I find porn quite vile.
+- This may explain unpredictable sexual feelings I was having throughout this month in various situations away from my computer, and there is a possibility that such a mechanism affected at least one other person too, details of which I will forward when necessary, although I believe this person will have told a lot of people about his weird experience with me that day.
+- I believe the hardware/software NLP/hypnotic triggering mechanisms downloaded into my mobile phone will have focused on sexual arousal mainly, and then fear and anxiety triggers whenever teachers and staff at the conservatory decided to switch from sex to terror.
+- It was a push and pull, good and bad, fear and love emotional rollercoaster, on a loop.
+- Here's another marker to how difficult it was for me to figure out what was going on for so long.
 
 !!! danger "In retrospect"
-    - Now, January 2025, I also realize that criminals of Dénia had been accessing my apartment and adding poisons and drugs to my bathroom products, and food and water. So, continued sexual feelings could also be explained by this.
+    - Now, January 2025, I also realize that criminals of Dénia had been accessing my apartment and adding poisons and drugs to my bathroom products, and food and water. So, continued sexual feelings whenever I was away from home could also be explained by this.
 
-- This may explain unpredictable sexual feelings I was having throughout this month in various situations away from Twitter, and there is a possibility that such a thing affected one other person too, details of which I will forward if necessary.
-- I start playing a lot of music on Twitter, I add links from YouTube while listening to it with my earphones, and I'm often dancing around my room in Cauterets.
+- I start playing a lot of music on Twitter, I add links from YouTube while listening to it with my earphones, and I'm often dancing around my room in Cauterets with my headphones on.
+- I'm thinking about 1989 constantly, and specifically the music from that time. Again, this would be easy to trigger as sub-audio files reinforced by tweet content.
+- My [tweets from that time](#1frgvn) reveal a fighter, someone who is not going to put up with being terrorized.
+- I believe now my fiery behavior was a challenge to the sex-gang cyber-stalkers of Dénia, and they decided they would put a lot more effort into finishing me off in the cowardly way that they do to women, girls, and animals of course.
+- They probably had a bet on as to how things would end for me, so certain they were they would win.
+- I'm guessing there's 1000s of women and girl victims of these people over the last decades. 
+- I hope my story helps them and the people who love them. 
+- I pray they find their power, their voices.
+
+## YouTube
+
 - I'm stalked by accounts on YouTube which you can see in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
-- I'm thinking about 1989 constantly, and specifically all the music from that time.
+- I often look at my phone during the day. 
+- As I'm looking at YouTube on the desktop one day I notice a video in the bottom section of the page which looks like me while I'm looking at my phone, singing along to the song I'm listening to. I'm startled.
 
 ## I take a picture of myself in my pants
 
@@ -437,11 +460,6 @@
 - A snippet of a tweet chat with Matthew.
 
 [![Matthew chat](../../content/tweets/august-comms/matthew-chat-1.png)](https://x.com/1FRGVN/status/1694429743624462596)
-
-## YouTube
-
-- I often look at my phone during the day. 
-- As I'm looking at YouTube on the desktop one day I notice a video in the bottom section of the page which looks like me while I'm looking at my phone, singing along to the song I'm listening to. I'm startled.
 
 ## Fake accounts
 
@@ -472,6 +490,7 @@
 
 - Also, "just me" is something I have said a lot previously.
 - [This document](../../content/tweets/august-2023-twitter.pdf) is a collection of some of those accounts. You will see durian mentioned and also the accounts mentioning dogs is a close relation to Domingo's surnames: Lopez Cano, which have a distinct canine connotation.
+- I see an account with a woman I recognize taking a tablet suggestively and I know this is related to the 1989 drug scene.
 - Since I opened a Facebook account for the general election in the UK in June 2024, I have the same sort of spam accounts full of dogs and horses trying to connect with me.
 
 ## In the baths at Cauterets with Sally
