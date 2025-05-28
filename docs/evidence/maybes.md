@@ -38,6 +38,8 @@ Could she be the grown up version of this girl?
 
 And who is this? He certainly has a big nose. Remember how they went on about big noses for months?
 
+Of course, big nose is *trompa* in Spanish.
+
 ![Big nose](../content/images/fake-accounts/bignose.png)
 
 Another one with an apparently normal account, but who knows: https://www.facebook.com/profile.php?id=100087276017749.
