@@ -130,7 +130,7 @@
 
 ### Ana Girbes transformer figure
 
-- I had started to see a transformer figure on the `@jctot19` search results since [Ana's show](../2023/december.md#ana-girbess-show).
+- I had started to see a transformer figure on the `@jctot19` search results since [Ana's show](../2023/december.md#the-adams-family).
 - The character looked like a fierce and angry Ana Girbes carrying big guns. The likeness to Ana Girbes was startling.
 
 ![Ana transformer](../../content/images/ana-transformer.png)

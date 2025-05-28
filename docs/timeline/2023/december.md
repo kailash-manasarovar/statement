@@ -36,7 +36,7 @@
 - I show my friend in Lourdes this search result directly from the Google search function on my mobile.
 - They will remove this result from Google search the day after I post a screenshot of it on Twitter: https://x.com/1FRGVN/status/1748728422262546895.
 
-## Ana Girbes's show
+## The Adam's family
 
 - Paqui Fornet insists I attend a concert taking place in the conservatory one evening.
 - I go along.

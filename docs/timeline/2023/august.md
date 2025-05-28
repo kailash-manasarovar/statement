@@ -430,17 +430,23 @@
 
 ## I take a picture of myself in my pants
 
-- Like many woman, I want to know how big my bum is, but the mirror in my room is very small, so I stand on a chair and take a photo with my mobile phone.
+- Like many women, I want to know how big my bum is.
+- The mirror in my bathroom is very small, so I stand on a chair and take a photo of my bum with my mobile phone.
+- I'm wearing my white knickers from M&S.
 - I keep the photo for only a few days before I delete it.
-- Around December 2023, I see this picture again, in my [Google search results](december.md#picture-of-me-in-my-pants-on-google-search).
+- Around December 2023, I see this picture again, on a tweet added to my [Google search results](december.md#picture-of-me-in-my-pants-on-google-search).
+- I have not seen this tweet before, or since outside of these results.
 - When hackers post this for me to see in December, they want me to know how much content they have of me without my knowledge or permission, and to really let me know that I have had no privacy at all, and for a very long time too, longer that I can possibly imagine.
 
 ![Me in my underwear Google search](../../content/images/google-searches/me-in-my-pants.png)
 
-- When I see this picture of me in my underwear (the top half is not me, the bottom half is) in August 2023, it reinforces my certainty they have film of me [masturbating in Lourdes on Good Friday](april.md#good-friday).
-. Although I suspected it, and even though they had taken over my keyboard, I was only 100% sure they were interested in photos of my naked body when they posted this picture in December 2023.
-- The pic was up for about a week and then it disappeared and never reappeared.
-- I showed it on my mobile to two people who were physically present.
+- When I see this picture of me in my underwear (the top half is not me, the bottom half is) in December 2023, it reinforces my certainty that woman-hating, criminal sex gangs from Dénia have film and sound of me [masturbating in Lourdes on Good Friday](april.md#good-friday). 
+- Although I suspected it, and even though they had already taken over my keyboard, I was only 100% sure they were interested in photos of my naked body when they posted this picture in December 2023.
+- Up until then I still felt it preposterous that I could be interesting in that way to anyone. 
+- I did not know I was already famous in teen rape-gang porn and had been for decades. 
+- Dénia cyber-stalkers were yet to inform me about that but they would soon [flash up stills for me to see](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) which apparently was supposed to *finish me off* psychologically at least.
+- The pic was up for about a week in December and then it disappeared and never reappeared.
+- I showed the search results on my mobile to two people who were physically present.
 
 ## YouTube
 
