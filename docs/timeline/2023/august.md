@@ -456,13 +456,22 @@
 
 ## Matthew
 
-- An account starts to follow me after I post the song by Buffalo Springfield, Stop Children What's That Sound: https://x.com/Matthew49200183
+- An account starts to interact with me, `@Matthew49200183`. Here is his first post to me; a reply to a reply.
 
-![Matthew](../../content/images/fake-accounts/Screenshot 2024-03-08 at 08.46.55.png)
+[![First post from Matthew](../../content/tweets/august-comms/matthew/matthews-first-post.png)](https://x.com/Matthew49200183/status/1686307743815069696)
+
+- Did this person just spill all the beans?
+
+[![Matthew](../../content/images/fake-accounts/Screenshot 2024-03-08 at 08.46.55.png)](https://x.com/Matthew49200183)
+
+- His second post, a couple of days later, is equally intentional.
+
+![Second post from Matthew](../../content/tweets/august-comms/matthew/matthews-second-post.png)
 
 - I know the account is related to what's been going on because the hair in the profile picture - at that time - is the same hair I saw in July when I was seeing a lot of pictures of the ceramics artist and Ana doing modelling. I believe it was just posted on its own like that.
+- He replies again after I post Buffalo Springfield, Stop Children What's That Sound.
 - I have a public tweet conversation with this person which is linked at the bottom of the page along with the other significant tweets.
-- I see weird stuff going on with this account, such as my likes being added to posts, without me actually adding them myself. I think it's a glitch.
+- I see weird stuff going on with this account, such as my likes being added to posts, without me actually adding them myself. I think it's a glitch but this happens just before hackers take over my keyboard so it makes sense now.
 - We end up DM'ing in December significantly, and for sure it's someone from Dénia.
 - I take a look at some of the posts on this account and I note extremely enticing, honey-trap-type content from women.
 
