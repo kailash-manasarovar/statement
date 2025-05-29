@@ -1,47 +1,5 @@
 # September 2023
 
-## Going public on Twitter - from August
-
-- I don't know what to do, I feel like parasites are all over me and I can't get them off.
-- I'm on my way back to Spain and I believe the intensifying harassment is due to them not wanting me to return to Dénia.
-- There has always been a suggestion that I was targeted for my gender critical beliefs, amongst other things.
-- The only possible thing I can do is to go public on Twitter and ask for help, which I do.
-- Going public means adding my real name to my Twitter account Dr Katharine Murphy.
-- I do that and ask for help and overnight I gain 1000s of followers from the gender critical movement. 
-- I feel much much safer.
-- At the same time, many, if not a majority of these new accounts are fake accounts managed by the stalkers.
-
-!!! danger "Throwing me to the wolves"
-    - A running theme of being thrown to the wolves, first by the English ladies, then by my teachers, and now even by the wolves themselves.
-    - At the moment I went public on Twitter, I believe many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
-    - So, although I was safer in some respects, I was also in more danger in others.
-
-## Going public on Twitter
-
-- There had been some suggestion something awful was going to happen to me on the 4th September at home in Spain, possibly that I would be arrested but I didn't know what for.
-- The way this happened was exactly the same way I knew something threatening was going to happen on the 12th June, i.e. tweet manipulation.
-- I innocently assumed it would be something to do with my angry tweets about Domingo from May that I had deleted, and related to my views on trans.
-- I realized that there had been a girl who thought she was a boy at the conservatory and her name was indeed Silvia.
-    - https://x.com/1FRGVN/status/1697905359208296533
-    - https://x.com/1FRGVN/status/1698121721457365343
-    - https://x.com/1FRGVN/status/1698016819951423781
-    - https://x.com/1FRGVN/status/1697912956871217359
-- From this moment onwards, the English language of the stalker accounts is usually native and vernacular. I'm convinced this is when Hazel and her associates stepped in. I have no idea Hazel and Sandra Smith have been involved in this story since 2006.
-- The tweet that goes viral is here:
-
-![viral tweet when asking for GC help](../../content/tweets/tweet-that-went-viral.png)
-
-- At the time, I believe the wild interest on this tweet and the sudden 1000s of followers I gained were mostly genuine. I now believe that the majority of these accounts were fake accounts controlled by criminal gangs in UK and Spain.
-
-### The cold shoulder from Spanish feminists
-
-- Well known feminists reach out to me to see if they can help.
-- I cannot be clear with them about what the Dénia hackers are going to do because it is all suggestions from ramped up threats online.
-- They decide unilaterally I'm lying and that I'm not to be trusted.
-- One, in particular, upsets me enormously by telling me, "you're not being hacked", as if it's all in my mind or I'm lying. This was extraordinarily triggering.
-- I realize that feminists are as misogynist as everyone else. I knew that anyway.
-- Nevertheless, it was extremely upsetting and eyeopening.
-
 ## Arriving home
 
 - When I get home, I see an account has followed me, **kaka**, with a profile message that said: "For an immature boy, bad companions play a much greater role than good teachers." 
@@ -50,6 +8,48 @@
 
 - You can see the full profile in the last pic in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
 - I suspect at that point someone got concerned about the ramifications of what had been happening and were concerned about whether I was going to go to the police.
+
+## Going public on Twitter
+
+- I don't know what to do, I feel like parasites are all over me and I can't get them off.
+- I'm on my way back to Spain and I believe the intensifying harassment is due to them not wanting me to return to Dénia.
+- There had been some suggestion something awful was going to happen to me on the 4th September at home in Spain, possibly that I would be arrested but I didn't know what for.
+- The way this happened was exactly the same way I felt I was [going to be arrested](july.md#the-first-time-i-become-terrified-about-being-arrested) in Thailand.
+- Also the attack on the 12th June which I innocently assumed it would be something to do with my angry tweets about Domingo from May that I had deleted, and related to my views on trans.
+- There has always been a suggestion that I was targeted for my gender critical beliefs, amongst other things.
+- I realized that there had been a girl who thought she was a boy at the conservatory and her name was indeed Silvia.
+    - https://x.com/1FRGVN/status/1697905359208296533
+    - https://x.com/1FRGVN/status/1698121721457365343
+    - https://x.com/1FRGVN/status/1698016819951423781
+    - https://x.com/1FRGVN/status/1697912956871217359
+- I put two and two together and make an assumption which is incorrect.
+- The only possible thing I can do is to go public on Twitter and ask for help, which I do.
+- Going public means adding my real name to my Twitter account Dr Katharine Murphy.
+- On my way home to Denia, in a hotel in Zaragoza, I ask X for help.
+- Overnight I gain 1000s of followers from the gender critical movement. 
+- I feel much much safer.
+- At the same time, many, if not a majority of these new accounts are fake accounts managed by the stalkers.
+- From this moment onwards, the English language of the stalker accounts is usually native and vernacular. I'm convinced this is when Hazel and her associates stepped in. I have no idea Hazel and Sandra Smith have been involved in this story since 2006.
+
+!!! danger "Throwing me to the wolves"
+    - A running theme of being thrown to the wolves, first by the English ladies, then by my teachers, and now even by the wolves themselves.
+    - At the moment I went public on Twitter, I believe many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
+    - So, although I was safer in some respects, I was also in more danger in others.
+
+- The tweet that goes viral is here:
+
+![viral tweet when asking for GC help](../../content/tweets/tweet-that-went-viral.png)
+
+- At the time, I believe the wild interest on this tweet and the sudden 1000s of followers I gained were mostly genuine. I now believe that the majority of these accounts were fake accounts controlled by criminal gangs in UK and Spain.
+
+## The cold shoulder from feminists
+
+- Well known feminists reach out to me to see if they can help.
+- I cannot be clear with them about what the Dénia hackers are going to do because it is all suggestions from ramped up threats online.
+- They decide unilaterally I'm lying and that I'm not to be trusted.
+- One, in particular, upsets me enormously by telling me, "you're not being hacked", as if it's all in my mind or I'm lying. This was extraordinarily triggering.
+- I realize that feminists are as misogynist as everyone else. I knew that anyway.
+- Nevertheless, it was extremely upsetting and eyeopening.
 
 ## X.com
 
