@@ -23,6 +23,11 @@
 - I experience more online weirdness, such as confusing access issues on my Skype account, strange messages on Twitter and YouTube.
 - The hackers are upping the game and getting ready to reveal themselves.
 
+!!! important "A bombardment"
+    - I'm cataloguing the most important information.
+    - There is a lot of information left out here because it is impossible to report on every tiny thing that happened.
+    - Suffice to say, it was a bombardment from all online angles.
+
 ## Tarot
 
 - Given the precision of the [tarot card reading](../2022/july.md#tarot) I had in Glastonbury the year before, I contact Michael on Wearyall Hill to request another reading over the phone.
