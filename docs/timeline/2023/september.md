@@ -1,5 +1,21 @@
 # September 2023
 
+## Going public on Twitter - from August
+
+- I don't know what to do, I feel like parasites are all over me and I can't get them off.
+- I'm on my way back to Spain and I believe the intensifying harassment is due to them not wanting me to return to Dénia.
+- There has always been a suggestion that I was targeted for my gender critical beliefs, amongst other things.
+- The only possible thing I can do is to go public on Twitter and ask for help, which I do.
+- Going public means adding my real name to my Twitter account Dr Katharine Murphy.
+- I do that and ask for help and overnight I gain 1000s of followers from the gender critical movement. 
+- I feel much much safer.
+- At the same time, many, if not a majority of these new accounts are fake accounts managed by the stalkers.
+
+!!! danger "Throwing me to the wolves"
+    - A running theme of being thrown to the wolves, first by the English ladies, then by my teachers, and now even by the wolves themselves.
+    - At the moment I went public on Twitter, I believe many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
+    - So, although I was safer in some respects, I was also in more danger in others.
+
 ## Going public on Twitter
 
 - There had been some suggestion something awful was going to happen to me on the 4th September at home in Spain, possibly that I would be arrested but I didn't know what for.

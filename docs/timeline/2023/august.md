@@ -643,25 +643,9 @@
     Your browser does not support the audio element.
 </audio>
 
-## Going public on Twitter
-
-- I don't know what to do, I feel like parasites are all over me and I can't get them off.
-- I'm on my way back to Spain and I believe the intensifying harassment is due to them not wanting me to return to Dénia.
-- There has always been a suggestion that I was targeted for my gender critical beliefs, amongst other things.
-- The only possible thing I can do is to go public on Twitter and ask for help, which I do.
-- Going public means adding my real name to my Twitter account Dr Katharine Murphy.
-- I do that and ask for help and overnight I gain 1000s of followers from the gender critical movement. 
-- I feel much much safer.
-- At the same time, many, if not a majority of these new accounts are fake accounts managed by the stalkers.
-
-!!! danger "Throwing me to the wolves"
-    - A running theme of being thrown to the wolves, first by the English ladies, then by my teachers, and now even by the wolves themselves.
-    - At the moment I went public on Twitter, I believe many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
-    - So, although I was safer in some respects, I was also in more danger in others.
-
 ## More evidence from this period
 
-- [Download my laptop browser history from this period](../../content/documents/evidence/history.csv).
-- [JackChardwood Twitter download](https://drive.google.com/file/d/1uP3tH3Y7BKmPrqj9fHFN8ukcD_EyYCT6/view?usp=drive_link).
-- A good sense of what was going on around the end of August and beginning of September can be seen using this [Twitter search: (from:jackchardwood) until:2023-09-10 since:2023-08-29](https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2023-09-10%20since%3A2023-08-29&src=typed_query&f=live). All of these tweets have been translated many times.
-- [This document](../../content/tweets/august-2023-twitter.pdf) is a collection of some of those accounts. You will see durian mentioned and also the accounts mentioning dogs is a close relation to Domingo's surnames: Lopez Cano, which have a distinct canine connotation.
+- Download my [laptop browser history](../../content/documents/evidence/history.csv) from this period.
+- Download the full [`@JackChardwood` X archive](https://drive.google.com/file/d/1uP3tH3Y7BKmPrqj9fHFN8ukcD_EyYCT6/view?usp=drive_link).
+- Use the [Twitter search: (from:jackchardwood) until:2023-09-10 since:2023-07-23](https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2023-09-10%20since%3A2023-08-29&src=typed_query&f=live).
+- [This document](../../content/tweets/august-2023-twitter.pdf) is a collection of some screenshots I saved. 
