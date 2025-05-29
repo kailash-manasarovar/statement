@@ -467,7 +467,7 @@
 [![Matthew](../../content/images/fake-accounts/Screenshot 2024-03-08 at 08.46.55.png)](https://x.com/Matthew49200183)
 
 - The hair I saw in July was posted alone, maybe with a bit of the owner's head visible too, and alongside pics of the [girl with a cross on her back](july.md#girl-with-a-cross-on-her-back) on the `@jctot19` and `@sinremite` accounts.
-- I remember this consciously when I see the Matthew account for the first time so I know it's connected to the cyber-stalking.
+- I remember this consciously when I see the Matthew account for the first time so I know the account is connected to the cyber-stalking.
 - I start to see weird stuff going on with this account, such as my likes being added to his posts without me actually adding them myself. I think it's a glitch but this happens just before hackers take over my keyboard so it soon makes sense.
 - His second post, a couple of days later, is equally intentional.
 
