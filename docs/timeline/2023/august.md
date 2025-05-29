@@ -24,9 +24,10 @@
 - The hackers are upping the game and getting ready to reveal themselves.
 
 !!! danger "A bombardment"
-    - I'm cataloguing the most important information.
-    - There is a lot of information left out here because it is impossible to report on every tiny thing that happened.
-    - Suffice to say, it was a bombardment from all online angles.
+    - I'm cataloguing only the most important information as I see it.
+    - I left masses of information out because it is impossible to report every tiny thing that happened.
+    - Suffice to say, I experienced a cyber-stalking bombardment, from all possible angles.
+    - Once I was back in Dénia, this would continue in the street and again at the conservatory.
 
 ## Tarot
 
