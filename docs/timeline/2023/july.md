@@ -292,6 +292,15 @@
 
 ![Woman with a cross on her back](../../content/images/woman-with-a-cross-on-her-back.png)
 
+### Girl taking a pill
+
+- I see a picture of a young woman who I recognize from Dénia.
+- She is taking a pill in an exaggerated manner.
+- I know this is related to the 1989 drug sc.ene and what I told Domingo at the [airport in 2014](../early-years/2014.md#trip-to-london).
+- I will see this woman again singing loudly at me about frogs in boxes at the end of the tunnel in Dénia with a gypsy guitarist.
+- The account had *Suarez* in the name and there were numerous pictures of her, all rather threatening.
+- I saw her again quite recently, I may have that pic somewhere.
+
 ### Photos that seemed to have power over my mind
 
 - I'd see photos online and become totally engrossed by them, as if there was something in the image trying to tell me something very important.
