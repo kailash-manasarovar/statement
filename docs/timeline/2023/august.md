@@ -364,12 +364,17 @@
 
 [![I won't go back](../../content/tweets/august-comms/jackchardwood/feeling-in-danger.png)](https://x.com/JackChardwood/status/1696990588628029460)
 
-- At this exact moment, the fake account connected to "durian" pops up by liking the last seven of my tweets in quick succession. I examine it closely. It has a long list of followers and they are all 'dog' related. The account no longer exists.
+- At this exact moment, a fake account connected to "durian" follows me and likes the last seven of my tweets in quick succession. 
+
+![Followed and liked posts](../../content/tweets/sumithra-7-likes.png)
+
+- I examine it closely. It has a long list of followers and they are all 'dog' related. The account no longer exists.
 
 ![dogs 1](../../content/tweets/august-comms/jackchardwood/dogs-3.png)
 ![dogs 2](../../content/tweets/august-comms/jackchardwood/dogs-2.png)
 ![dogs 3](../../content/tweets/august-comms/jackchardwood/dogs.png)
 
+- When I opened a Facebook account to campaign in the general election in the UK in June 2024, the same sort of spam accounts have connected with me; accounts full of dogs and horses.
 - It's very obvious to me at this time I'm being targeted online by Domingo Cano Lopez and his family and that is absolutely what I'm supposed to think, whether it is true or not. I'm trying to understand what's going on.
 
 [![Trying to understand](../../content/tweets/august-comms/jackchardwood/trying-to-understand.png)](https://x.com/JackChardwood/status/1696996474561736881)
@@ -584,13 +589,6 @@
 - This was an out-of-the-blue meaningless reply with overtones of sexual perversion, and *nervous sweaty elephant* I felt was a reference to me.
 - When I went to class about an hour later, the French-horn player who always sat beside me stunk of peanuts (she was eating a peanut bun), and the choir master (an extremely unpleasant man who will send me a dick pic on X in September) spoke endlessly about elephant trunks, *trompas* the word also happens to be very similar to trumpet, and can also mean "big nose".
 
-## Fake accounts
-
-
-
-- 
-- Since I opened a Facebook account for the general election in the UK in June 2024, I have the same sort of spam accounts full of dogs and horses trying to connect with me.
-
 ## In the baths at Cauterets with Sally
 
 - I take Sally to the baths at Cauterets.
@@ -624,7 +622,7 @@
 - An account, Sumithra, who follows an account Durian, follows me immediately (screenshots in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf)) and likes every post. I know it's Domingo and the trumpet teacher.
 - https://x.com/JackChardwood/status/1696990588628029460
 
-![My posts to Domingo and the hackers](../../content/tweets/Screenshot 2024-11-17 at 15.55.13.png)
+![My posts to Domingo and the hackers](../../content/tweets/sumithra-7-likes.png)
 
 - The Sumithra account no longer exists.
 - If you look at the accounts that have followed the Sumithra account in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf), you will see they are all dog-related.
