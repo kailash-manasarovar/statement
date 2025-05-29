@@ -24,6 +24,9 @@
 - Pictures of Ana Requena continue to appear on the `@jctot19` timeline; the account I have been led to believe is the trumpet teacher's.
 - I start to look more closely at the `@jctot19` account.
 - I see a lot of interaction with an account `@SchrodingerGata`, but even more so with an account named `Carmen` with address `@sinremite`.
+
+![Carmen @sinremite](../../content/images/sin-remite.jpg)
+
 - I will find out over a year later that the woman who owns the `@SchrodingerGata` account, Rocío Vidal, suffered a serious hacking attack.
 - I will also see Rocío Vidal in photos which remind me of [plate lady](#plate-lady-early-in-the-month) in that they imply filmed sexual activity.
 - I believe that the `Carmen` account, given it has so much interaction with the `@jctot19` account over many many years, must be a girlfriend.
@@ -218,6 +221,12 @@
 - Most of the images in the screenshot above are new.
 - I haven't seen them previously, apart from the Carmen image which has been appearing on and off since July 2023, and the photo of Rocío Vidal which has been appearing since around October 2023 - we will talk about that [later](october.md#rocio-vidal) as it is significant.
 - Curiously, I thought Carmen was plate lady but that wasn't the case.
+- The `@sinremite` and the `@jctot19` account always posted enticing statements which seemed to be for me.
+- The first statement below was posted on the `@jctot19` account search results many times and means something like, *You're the one who's going to fall for this shit ... you think you've got one over me but I'm still ahead*.
+
+![Carmen's enticing statements](../../content/images/enticing-statements.jpg)
+
+- The *Es un fuera de serie* is something like, he's one of a kind, there's no-one quite like him.
 - Carmen, as I'm informed later, represents Carmen Cano, Domingo's sister, a major player in the online deceit and harassment, and the woman who likely entered my home with others to douse my belongings in pesticides in October 2024, and add illicit substances to my food and bathroom products whenever I went out over the years 2022-2024.
 - I sometimes wonder if Carmen Cano was managing *all* the Spanish stalker accounts that targeted me, and other victims obviously; delegating access from time to time when it got too busy.
 - I also wonder if the `@jctot19` and the `@sinremite` accounts are both Carmen's responsibility; managed by an AI auto-post facility for phishing whenever she's not using them.
@@ -261,6 +270,7 @@
 - Interspersed with this are more references to Ana, and more pictures of her modelling.
 
 ![ana](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
+![ana and julia](../../content/images/ana-julia-lohman.jpg)
 
 - I saw a whole range of these pictures of Ana which are undoubtedly easily to come across if you can be bothered to look. 
 - You could ask her too, of course.
