@@ -461,40 +461,47 @@
 
 [![First post from Matthew](../../content/tweets/august-comms/matthew/matthews-first-post.png)](https://x.com/Matthew49200183/status/1686307743815069696)
 
-- Did this person just spill all the beans in one go?
-- I know the account is related to the cyber-stalking because the hair in the profile picture - at that time - is the same hair picture I saw in July when I was seeing [plate lady](july.md#plate-lady-early-in-the-month) and [Ana](july.md#ana) modelling. 
+- Did this person just spill *all* the beans in one go?
+- I know the account is related to the cyber-stalking because the hair in the profile picture - initially, see the earlier profile pic below - is exactly the same hair picture I saw in July when I was shown [plate lady](july.md#plate-lady-early-in-the-month) and [Anna Requena, the violin teacher](july.md#ana) modelling amongst other things.
 
 [![Matthew](../../content/images/fake-accounts/Screenshot 2024-03-08 at 08.46.55.png)](https://x.com/Matthew49200183)
 
-- I believe the hair pic was posted alone, together with [girl with a cross on her back](july.md#girl-with-a-cross-on-her-back), and maybe with a bit of the owner's head visible too.
-- I start to see weird stuff going on with this account, such as my likes being added to his posts without me actually adding them myself. I think it's a glitch but this happens just before hackers take over my keyboard so it makes sense now.
+- The hair I saw in July was posted alone, maybe with a bit of the owner's head visible too, and alongside pics of the [girl with a cross on her back](july.md#girl-with-a-cross-on-her-back) on the `@jctot19` and `@sinremite` accounts.
+- I remember this consciously when I see the Matthew account for the first time so I know it's connected to the cyber-stalking.
+- I start to see weird stuff going on with this account, such as my likes being added to his posts without me actually adding them myself. I think it's a glitch but this happens just before hackers take over my keyboard so it soon makes sense.
 - His second post, a couple of days later, is equally intentional.
 
 ![Second post from Matthew](../../content/tweets/august-comms/matthew/matthews-second-post.png)
 
-- Later in the month, he replies again after I post Buffalo Springfield, Stop Children What's That Sound.
+- Later in the month, he replies again after I play Buffalo Springfield, Stop Children What's That Sound on my [`DJ #MaSelecta`](https://x.com/search?q=%23MaSelecta%20(from%3A1frgvn)&f=live&src=typed_query) series.
+- Note the observation I make about the situation in the first tweet.
 
 ![Buffalo Springfield 1](../../content/tweets/august-comms/matthew/buffalo-springfield-1.png)
 ![Buffalo Springfield 2](../../content/tweets/august-comms/matthew/buffalo-springfield-2.png)
 ![Buffalo Springfield 3](../../content/tweets/august-comms/matthew/buffalo-springfield-3.png)
 
-- There's no more interaction between us until 8th October when he replies to an ironic post in a way that now makes me shudder.
+- Note, also, my caginess and the reference to a conversation without getting blocked which I believe is a reference to me [trying to communicate with the trumpet teacher in April](april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher) after getting blocked.
+- There's no further interaction between us until 7th October.
+
+![Matthew on 7th October](../../content/tweets/august-comms/matthew/matthew-october-7.png)
+
+- Is Matthew confirming what's been going on for me in this tweet?
+- On the 8th October, he replies to an ironic post in a manner that made no sense to me at the time, and now makes me shudder.
 
 ![Lesbianism](../../content/tweets/august-comms/matthew/signing-up-for-lesbianism.png)
 
-- I believe the Matthew account is a significant account with regards to the cyber-stalking; whether it is an actual person from Denia, or a dark-web porn subscription account that's paying for access to sedated spy-cam targets, or a delegated hacker account given instructions on what to say to a target by pornographers.
-- Whenever the account interacts with me, it says significant things that make me wonder, and believe a little, and then more and more, that I am interacting with the trumpet teacher.
-- We end up DM'ing in December significantly.
-- Later on, I take a look at some of the posts on this account and I note extremely enticing, honey-trap-type content coming from (apparent) women.
-- A snippet of a tweet chat with Matthew.
-
-[![Matthew chat](../../content/tweets/august-comms/matthew-chat-1.png)](https://x.com/1FRGVN/status/1694429743624462596)
-
+- I believe the Matthew account is significant with regards to the cyber-stalking; whether it is an actual person from Dénia, or a dark-web porn subscription account that pays for access to sedated and live spy-cam targets, or a delegated hacker account given instructions on what to say to a target by pornographers, or a mixture of everything I've just said.
+- Whenever the account interacts with me, it says significant things that make me wonder, and then believe a little (perhaps a flash of the trumpet teacher in close up on my UI to remind my fascia of a sexual encounter I'm not consciously aware of), and then believe more and more, that I am interacting with the trumpet teacher himself.
+- We end up [DM'ing in December](december.md#chat-with-the-american-matthew) significantly.
+- Later on, I take a closer look at some of the posts this account retweets and I note *extremely enticing*, honey-trap-type content coming from (apparent) women.
+- In retrospect, it reminds me of the [job offer doing the same](../2024/february.md#threats-on-x-increase) that I go to the police about.
 - Reviewing these interactions, particularly the one from the end of November, makes me shudder and shudder again.
 
-![Nervous sweaty elephant](../../content/tweets/august-comms/matthew/nervous-sweaty-elephant.png)
+[![Nervous sweaty elephant first pic](../../content/tweets/august-comms/matthew/nervous-sweaty-elephant-first.png)](https://x.com/Matthew49200183/status/1729879649063416246)
+[![Nervous sweaty elephant](../../content/tweets/august-comms/matthew/nervous-sweaty-elephant.png)](https://x.com/Matthew49200183/status/1729879649063416246)
 
-- This was an out-of-the-blue meaningless reply, except *nervous sweaty elephant* was a reference to me. When I went to class about an hour later, the woman beside me stunk of peanuts and the choir master (who will send me a dick pic on X in September) spoke endlessly about elephant trunks, *trompas* the word also happens to be very similar to trumpet, *trompa*.
+- This was an out-of-the-blue meaningless reply with overtones of sexual perversion, and *nervous sweaty elephant* I felt was a reference to me.
+- When I went to class about an hour later, the French-horn player who always sat beside me stunk of peanuts (she was eating a peanut bun), and the choir master (an extremely unpleasant man who will send me a dick pic on X in September) spoke endlessly about elephant trunks, *trompas* the word also happens to be very similar to trumpet, and can also mean "big nose".
 
 ## Fake accounts
 
