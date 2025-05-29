@@ -214,8 +214,9 @@
 !!! tip "X search"
     - I'm using the following search in this section: https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2023-09-01%20since%3A2023-07-15&src=typed_query&f=live
 
-- My `@JackChardwood` account becomes infested with stalker activity during this period. It started when I got back from Thailand in July, so I'll add anything interesting from then too.
-- I'm suddenly followed by a lot of fake accounts, many of them porn and crypto bots. My account had no more than a single-figure handful of followers prior to the 23rd July when I got back from Thailand. Before that there was little to no activity at all on this account.
+- My [`@JackChardwood`](https://x.com/JackChardwood) account becomes infested with stalker activity during this period. It started when I got back from Thailand in July, so I'll add anything interesting from then too.
+- I'm suddenly followed by a lot of fake accounts, many of them porn and crypto bots, many of them with names like Ana, Anna, Carmen, Silvia, etc.
+- This account had no more than a single-figure handful of followers prior to the 23rd July when I got back from Thailand. Before that there was little to no activity at all on this account.
 
 ![Followed by lots of accounts](../../content/tweets/august-comms/jackchardwood/few-followers.png) 
 
@@ -223,7 +224,27 @@
 
 ![Views minimal on tweets unrelated to hacker activity](../../content/tweets/august-comms/jackchardwood/replying-to-crypto-accounts.png)
 
-- I knew that something weird was going on or around the same time I did the [tarot over the phone](#tarot) in Lourdes. The tweets intended for hackers have multiple views. I assume there is some dissemination mechanism in place, such as a WhatsApp group perhaps.
+- The porn accounts are no longer following me at the time of writing but there were many.
+- One was particularly sinister, I'd never seen anything like it.
+- It was kind of demonic; a woman with her long thick black hair pulled all over her face so you couldn't see who she was, dressed in her underwear, and making sexual suggestions. It was extremely weird. 
+- The account now has porn warnings but it didn't at the time.
+- I noticed also that the account's profile message seemed to suggest a death threat against me.
+
+![Death threat](../../content/images/threats/anti-k-a-death.png)
+
+- "Anti K a muerte" could be read as "anti Katharine to the death".
+
+!!! info
+    - Thinking of that particular porn example now, and others like it, it was obvious that I was not actually dealing with just *foolish immature men* as I had thought; there was something much more sinister going on.
+     
+- Other accounts seemed to be threatening also:
+
+![Threatening account](../../content/images/threats/marc-panico.png)
+
+- Curiously, this account now has completely changed tone: https://x.com/marcop51.
+- I realized that something weird was going on online around the same time I did the [tarot over the phone](#tarot) in Lourdes and started conversing with them. 
+- All my tweets intended for hackers have multiple views while the others have minimal views.
+- I assume there is some dissemination mechanism in place, such as a WhatsApp group perhaps.
 
 ![Hacker activity](../../content/tweets/august-comms/jackchardwood/lourdes-after-the-tarot.png)
 
@@ -562,26 +583,7 @@
 
 ## Fake accounts
 
-- On my other Twitter account, [@JackChardwood](https://x.com/JackChardwood), I'm followed by fake accounts with names like Ana, Carmen, and some are porn accounts.
-- It's important to note that up until that moment, this account was dead, nothing happened on it at all. 
-- This was the beginning of the obvious cyber stalking and, specifically, an ongoing porn infestation of my online activity.
-- The porn accounts are no longer following me at the time of writing but there were many.
-- One was particularly sinister, named Anna in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf). 
-- It was kind of demonic, with a woman who had her long thick black hair put all over her face so you couldn't see it, and she was dressed in her underwear, and making sexual suggestions. It was extremely weird actually.
-- I noticed also that this account's profile message seemed to suggest a death threat against me.
 
-![Death threat](../../content/images/threats/anti-k-a-death.png)
-
-- "Anti K a muerte" could be read as this account is "anti Katharine to the death".
-
-!!! info
-    - Thinking of that particular porn example now, and others like it, it was obvious that I was not actually dealing with just "foolish immature men", there was something much more sinister going on.
-     
-- Other accounts seemed to be threatening also:
-
-![Threatening account](../../content/images/threats/marc-panico.png)
-
-- Curiously, this account now has completely changed tone: https://x.com/marcop51.
 - Some of the fake accounts that follow me are called **Durian**, so I know it's Domingo and his associates.
 - Another account is called JungleMary and this is significant because I have been playing a lot of jungle music online and tweeting jungle tracks. I am also devoted to Mary and often tweet about it too.
 
