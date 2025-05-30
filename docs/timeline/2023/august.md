@@ -634,16 +634,17 @@
 
 - It's near the end of the month and getting time to go back to Spain.
 - The cyber-stalking and harassment intensifies.
-- I see a lot of suggestive posts about someone going to be arrested, it's not clear why or what for, but it's clear they mean me.
-- I'm starting to see a lot more porn, but also a lot of real-life death, suicide, murder, and malicious or accidental injury videos from accounts I never followed.
-- They're right on my UI whenever I open my laptop. It doesn't make sense and makes me feel extremely uneasy.
+- I see a lot of suggestive posts about someone going to be arrested; it's not clear why or what for, but it's clear they mean me.
+- I'm starting to see more porn, and also a lot of real-life death, suicide, murder, and malicious or accidental injury videos from accounts I never followed.
+- They're right on my UI whenever I open my laptop.
+- It doesn't make sense and makes me feel extremely uneasy.
 - At one point, I'm on my laptop and I lose control of my keyboard, except someone is typing for me instead.
 - I tweet "Arrettt-a" to say STOP.
 
 ![They have total access](../../content/tweets/took-hold-of-my-keyboard.png)
 
 - I realize with horror Domingo and his friends have total access to my laptop, and probably my phone as well.
-- I assume it is because my laptop is not very well secured and they got in via the hotel network. I'm wrong about that but this is what I assume and tell people for a while.
+- I assume it is because my laptop is not very well secured and they got in via the insecure hotel network. I'm wrong about that but this is what I assume and tell people for a while.
 - Accounts full of dogs follow me on my [`@JackChardwood` account](#jackchardwood); I assume to reference Lopez Cano, a pun of dog wolf.
 - I'm horrified.
 - I send a WhatsApp message to Concha to tell her I'm hacked and ask if she thinks these people are dangerous. 
@@ -659,18 +660,18 @@
 - An account, `@Sumithra`, who follows an account `@Durian`, follows me while I'm posting these pleas to the hackers.
 - The account likes every post. 
 - I know it's Domingo and the trumpet teacher.
-- https://x.com/JackChardwood/status/1696990588628029460
 
 ![My posts to Domingo and the hackers](../../content/tweets/sumithra-7-likes.png)
 
 - The Sumithra account no longer exists.
 - If you look at the accounts that have followed the Sumithra account in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf), you will see they are all dog-related.
-- The `@january_myth` account who had posted triggering content on [12th June](june.md#monday-12th-june-2023) posts again.
+- The `@january_myth` account (who I suspect is probably [Patricia](../2022/october.md#patricia), at least some of the time) who had posted triggering content on 'my funeral' at the conservatory on [12th June 2023](june.md#monday-12th-june-2023) posts again.
 
 ![Love poem](../../content/tweets/taru-ann-poem-2.png)
 
-- I miss the posts as being connected to what's going on for me at this time, and will only figure this out in March 2024.
-- The two posts are related to events designed to terrorize me into never returning to my piano studies at the conservatory. 
+- I miss the significance of this being connected to what's going on for me, and will only figure out the connection in [March 2024](../2024/march.md#24th-march) when I'm afraid for my life in Valencia and the account retweets this.
+- The two posts are published at the same time I'm being terrorized online and are extremely significant.
+- Was the trumpet teacher continuing to harbor hopes of drawing me into an abusive relationship where he could control me and defraud me of my wealth?
 
 ## The second time I am convinced I'm going to be arrested
 
