@@ -63,7 +63,7 @@
 - There is very little communication to me in English.
 - Most of my tweets are translated, and I assume the Spanish are reading them. 
 - Here's an example of some [tweet translation statistics from this month](../../content/tweets/people-translating-tweets.pdf) on a random and rather insignificant tweet. Everything I write was being monitored.
-- The tweets confirm what is going on for me online; my concerns for my safety, constant communication with hidden groups, extremely threatening content including murder and violence, an overwhelm of porn bots and porn content, direct references from hidden groups to matters related to my experiences at the conservatory, continued suggestions that the trumpet teacher was in love with me, and on and on.
+- The tweets confirm what is going on for me online; my concerns for my safety, constant communication with hidden groups, extremely threatening content including murder, suicide, and violence, an overwhelm of porn bots and porn content, direct references from hidden groups to matters related to my experiences at the conservatory, continued suggestions that the trumpet teacher was in love with me, and on and on.
 - Threat levels increased steadily throughout August until I was severely threatened with an online psychological trigger that I believed was real, (similar to my experience in [Thailand](july.md#the-first-time-i-become-terrified-about-being-arrested)), that I was going to be arrested by the police when I returned to my home in Dénia.
 - The psychological trigger was powerful enough to get me to go public on X at the end of this month and ask the gender critical community (and feminist groups by default) for help.
 
@@ -255,7 +255,7 @@
 ![Threatening account](../../content/images/threats/marc-panico.png)
 
 - Curiously, this account now has completely changed tone: https://x.com/marcop51.
-- I realized that something weird was going on online around the same time I did the [tarot over the phone](#tarot) in Lourdes and started conversing with them. 
+- I realized that something weird was going on online around the same time I did the [tarot over the phone](#tarot) in Lourdes and started conversing with cyber-stalkers directly. 
 - All my tweets intended for hackers have multiple views while the others have minimal views.
 - I assume there is some dissemination mechanism in place, such as a WhatsApp group perhaps.
 
@@ -291,7 +291,7 @@
 
 [![What bots are like](../../content/tweets/august-comms/jackchardwood/bots-be-like.png)](https://x.com/JackChardwood/status/1687383917924327424)
 
-- Telling them how much I'm enjoying their funny posts. I also wonder if this kind of content is evidence of fawn.
+- Telling them how much I'm enjoying their funny posts. I also wonder if this kind of content is evidence of the fawn trauma-survivor response.
 
 [![Funny posts](../../content/tweets/august-comms/jackchardwood/some-amusing-post.png)](https://x.com/JackChardwood/status/1690106639993413632)
 
@@ -331,7 +331,7 @@
 
 ![T-shirts](../../content/tweets/august-comms/jackchardwood/t-shirts.png)
 
-- Offering a second interview to the hacker.
+- Offering a second interview to the hacker who posts pictures of himself as a cartoon mutant ninja turtle, or a little fat man with glasses.
 
 [![Second interview for the forgivenet](../../content/tweets/august-comms/jackchardwood/second-interview.png)](https://x.com/JackChardwood/status/1695580690140549390)
 
@@ -343,7 +343,7 @@
 
 ![Feeling loved](../../content/tweets/august-comms/jackchardwood/coupling.png)
 
-- Right after this, they take over my keyboard. I detail this in a [following section](#the-hackers-reveal-themselves) but it's important to note that from here I have no doubt they have video and sound recordings of me [masturbating in my hotel room in Lourdes](april.md#good-friday).
+- Right after this, they take over my keyboard. I detail this in a [following section](#the-hackers-reveal-themselves) but it's important to note that from this point on I have no doubt they have video and sound recordings of me [masturbating in my hotel room in Lourdes](april.md#good-friday).
 
 - The morning after the big hacking reveal, I explain what I need.
 
@@ -357,7 +357,12 @@
 
 [![Starting to feel scared](../../content/tweets/august-comms/jackchardwood/starting-to-get-scared.png)](https://x.com/JackChardwood/status/1696980074715570543)
 
-- I believe the 'bad' trigger is starting now; another psychological coupling technique where online visuals and sounds are being used to trigger fear and anxiety about something. I try to talk to them about it.
+#### Threats
+
+- The 'fear and anxiety' trigger is now being prepped by another psychological coupling technique where online visuals and sounds are used to trigger fear and anxiety about something non-specific. 
+- I am seeing a lot of real-life murder, accidental death, and malicious injury online on X in accounts I never subscribed to. I see real-life stabbings, a man being eaten by a lion with his family watching, violent porn again, and more.
+- I would turn my laptop on and these films would be the first thing I'd see.
+- I'm worried about what they're intending to do, and I try to talk to them about it.
 
 [![Growing fear](../../content/tweets/august-comms/jackchardwood/starting-to-get-scared-1.png)](https://x.com/JackChardwood/status/1696983414220435643)
 
@@ -387,8 +392,11 @@
 ![dogs 2](../../content/tweets/august-comms/jackchardwood/dogs-2.png)
 ![dogs 3](../../content/tweets/august-comms/jackchardwood/dogs.png)
 
-- When I opened a Facebook account to campaign in the general election in the UK in June 2024, the same sort of spam accounts have connected with me; accounts full of dogs and horses.
-- It's very obvious to me at this time I'm being targeted online by Domingo Cano Lopez and his family and that is absolutely what I'm supposed to think, whether it is true or not. I'm trying to understand what's going on.
+!!! tip "June 2024 general election in the UK"
+    - When I open a Facebook account to campaign in the [general election in the UK in June 2024](../2024/june.md#election-campaign) - amazingly while I was still being drugged and stalked by Dénia-based criminals - the same sort of spam accounts connect with me; accounts full of dogs and horses, mostly dogs.
+
+- It's very obvious to me I'm being targeted online by Domingo Cano Lopez and his family and that is absolutely what I'm supposed to think, whether it is true or not. 
+- I'm trying to understand what's going on.
 
 [![Trying to understand](../../content/tweets/august-comms/jackchardwood/trying-to-understand.png)](https://x.com/JackChardwood/status/1696996474561736881)
 
@@ -404,11 +412,11 @@
 
 [![Borey Ka](../../content/images/fake-accounts/borey-ka.png)](https://x.com/borey_ka)
 
-- I actually find this sort of interaction with them funny and think these people would be quite cool if they weren't so evil and self-destructive.
+- I actually find this sort of interaction with them funny and I think these people would be quite cool if they weren't so evil and self-destructive.
 
 ## Euphoria
 
-- Throughout the month I remain in a state of intense euphoria.
+- Throughout the month I remain in a state of intense euphoria, and this includes sexual arousal.
 - I had fallen in love, harder than ever before, and I felt that I was loved back.
 - It was heavenly.
 
@@ -439,7 +447,7 @@
 ## Fighting back
 
 - I realize that Domingo, the trumpet teacher, and all their mates from Dénia are continuing to harass me online.
-- I have no choice but to fight back.
+- They leave me no choice but to fight back.
 
 ![Tiger girl fights back](../../content/images/lioness-3.png)
 
@@ -450,7 +458,7 @@
 
 - This is probably true to a certain extent but for sure the drugging was continuing.
 - I wonder also if there is some low level, sub-audio sexual sound files being played through my phone (which I have safely stored so that the Netflix cyber-experts can check the caches for evidence of this); perhaps porn film soundtracks, or even perhaps my own sexual sounds played back to me given I find porn quite vile.
-- This may explain unpredictable sexual feelings I was having throughout this month in various situations away from my computer, and there is a possibility that such a mechanism affected at least one other person too, details of which I will forward when necessary, although I believe this person will have told a lot of people about his weird experience with me that day.
+- This may explain unpredictable sexual feelings I was having throughout this month in various situations away from my computer, and there is a possibility that such a mechanism affected at least one other person too, details of which I will forward when necessary, although I do believe this person will have told a lot of people about his weird experience with me that day.
 - I believe the hardware/software NLP/hypnotic triggering mechanisms downloaded onto my mobile phone will have focused on sexual arousal mainly, and then fear and anxiety triggers whenever teachers and staff at the conservatory decided to switch from sex to terror.
 - It was a push and pull, good and bad, fear and love emotional rollercoaster, on a loop.
 - Here's another marker to how difficult it was for me to figure out what was going on for so long.
@@ -485,12 +493,13 @@
 - I did not know I was already famous in teen rape-gang porn and had been for decades. 
 - Dénia cyber-stalkers were yet to inform me about that but they would soon [flash up stills for me to see](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) which apparently was supposed to *finish me off* psychologically at least.
 - The pic was up for about a week in December and then it disappeared and never reappeared.
-- I showed the search results on my mobile to two people who were physically present.
+- I showed these search results on my mobile to two people who were physically present.
 
 ## YouTube
 
 - Another avenue of cyber-violence is YouTube.
-- I use YouTube links on my [`DJ #MaSelecta`](https://x.com/search?q=%23MaSelecta%20(from%3A1frgvn)&f=live&src=typed_query) series which is when I listen to tunes that I like, or tunes that I want to share with hackers, such as Who Is Silvia, and I share them by tweeting them on X.com.
+- I use YouTube links on my [`DJ #MaSelecta`](https://x.com/search?q=%23MaSelecta%20(from%3A1frgvn)&f=live&src=typed_query) series. 
+- I listen to tunes that I like, or tunes that I want to share with hackers, such as *Who Is Silvia?*, and I share them by tweeting them on X.com which is where I think they're monitoring what I do.
 
 ![Who is Silvia](../../content/images/youtube/who-is-silvia-search.png)
 
@@ -500,8 +509,9 @@
 
 ![Jolene](../../content/images/youtube/jolene.png)
 
-- I look again and she doesn't really look like me at all. The channel name is interesting too. I suspect some kind of image manipulation at the time.
-- When I'm hacked I look for references on how to deal with hackers.
+- I look again and she doesn't really look like me at all. I suspect some kind of image manipulation at the time.
+- The channel name is interesting too and the kind of name I would expect them to make up for me to see.
+- I look for references on how to deal with hackers.
 
 ![Hacking info search](../../content/images/youtube/youtube-search-hacking-info.png)
 
@@ -536,13 +546,16 @@
 ![TT 4](../../content/images/youtube/tt-4.png)
 
 - I listened to some of these songs and politely said they were good, but they weren't, they were boring and all the same, very auto-generated. In fact, they were rubbish and I was extraordinarily disappointed in the trumpet teacher at that moment.
-- Another album, Grief, also had interesting track names. I believe this content was an attempt to make me empathize generously with his grief and loss.
+- Another album, Grief, also had interesting track names. I believe this content was an attempt to make me empathize generously with an unspecified grief and loss, typical honey-trap behavior.
 
 ![Pity 1](../../content/images/youtube/pity.png)
 
 - *Junglist* is significant as I always played jungle.
 
 ![Pity 2](../../content/images/youtube/pity-1.png)
+
+- I'm 6 years old is another repeated meme they used. The suggestion was Ana (his apparent girlfriend) would say that to him angrily: "Are you 6 years old?". Of course *playing* and *the beach* were well connected here.
+
 ![Pity 3](../../content/images/youtube/pity-2.png)
 
 - There was also a tune called *Jungle Mary* which has since disappeared and reminded me of the `@JungleMary` account which followed me; significant due to the jungle music I have been listening to and my devotion to Mother Mary, all of which I have been tweeting about.
@@ -555,7 +568,7 @@
 
 ## Matthew
 
-- An account starts to interact with me, `@Matthew49200183`. 
+- An account starts to interact with me, [`@Matthew49200183`](https://x.com/search?q=(from%3Amatthew49200183)%20(to%3A1frgvn)&src=typed_query&f=live). 
 - Here is his first post to me; a reply to a reply.
 
 [![First post from Matthew](../../content/tweets/august-comms/matthew/matthews-first-post.png)](https://x.com/Matthew49200183/status/1686307743815069696)
@@ -575,9 +588,9 @@
 - Later in the month, he replies again after I play Buffalo Springfield, Stop Children What's That Sound on my [`DJ #MaSelecta`](https://x.com/search?q=%23MaSelecta%20(from%3A1frgvn)&f=live&src=typed_query) series.
 - Note the observation I make about the situation in the first tweet.
 
-![Buffalo Springfield 1](../../content/tweets/august-comms/matthew/buffalo-springfield-1.png)
+[![Buffalo Springfield 1](../../content/tweets/august-comms/matthew/buffalo-springfield-1.png)
 ![Buffalo Springfield 2](../../content/tweets/august-comms/matthew/buffalo-springfield-2.png)
-![Buffalo Springfield 3](../../content/tweets/august-comms/matthew/buffalo-springfield-3.png)
+![Buffalo Springfield 3](../../content/tweets/august-comms/matthew/buffalo-springfield-3.png)](https://x.com/1FRGVN/status/1693018197325197534)
 
 - Note, also, my caginess and the reference to a conversation without getting blocked which I believe is a reference to me [trying to communicate with the trumpet teacher in April](april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher) after getting blocked.
 - There's no further interaction between us until 7th October.
@@ -591,7 +604,7 @@
 
 - I believe the Matthew account is significant with regards to the cyber-stalking; whether it is an actual person from Dénia, or a dark-web porn subscription account that pays for access to sedated and live spy-cam targets, or a delegated hacker account given instructions on what to say to a target by pornographers, or a mixture of everything I've just said.
 - Whenever the account interacts with me, it says significant things that make me wonder, and then believe a little (perhaps a flash of the trumpet teacher in close up on my UI to remind my fascia of a sexual encounter I'm not consciously aware of), and then believe more and more, that I am interacting with the trumpet teacher himself.
-- We end up [DM'ing in December](december.md#chat-with-the-american-matthew) significantly.
+- We end up [DM'ing in December 2023](december.md#chat-with-the-american-matthew) significantly.
 - Later on, I take a closer look at some of the posts this account retweets and I note *extremely enticing*, honey-trap-type content coming from (apparent) women.
 - In retrospect, it reminds me of the [job offer doing the same](../2024/february.md#threats-on-x-increase) that I go to the police about.
 - Reviewing these interactions, particularly the one from the end of November, makes me shudder and shudder again.
@@ -600,7 +613,7 @@
 [![Nervous sweaty elephant](../../content/tweets/august-comms/matthew/nervous-sweaty-elephant.png)](https://x.com/Matthew49200183/status/1729879649063416246)
 
 - This was an out-of-the-blue meaningless reply with overtones of sexual perversion, and *nervous sweaty elephant* I felt was a reference to me.
-- When I went to class about an hour later, the French-horn player who always sat beside me stunk of peanuts (she was eating a peanut bun), and the choir master (an extremely unpleasant man who will send me a dick pic on X in September) spoke endlessly about elephant trunks, *trompas* the word also happens to be very similar to trumpet, and can also mean "big nose".
+- When I went to class about an hour after this interaction, feeling *unusually* stressed and anxious as I always did at choir, the French-horn player who always sat beside me stunk of peanuts (she was eating a peanut bun), and the choir master (an extremely unpleasant man who will send me a dick pic on X in September) spoke endlessly about elephant trunks, *trompas* the word also happens to be very similar to trumpet, and can also mean "big nose".
 
 ## In the baths at Cauterets with Sally
 
@@ -615,24 +628,37 @@
 
 - I tell her I'm going to tame the trumpet teacher, and that he'll enjoy it.
 
+![Taming the snake](../../content/images/taming-the-snake.png)
+
 ## The hackers reveal themselves
 
-- It's getting time to go back to Spain and the cyber-stalking and harassment is intensifying.
-- There are a lot of suggestive posts about someone going to be arrested, it's not clear why or what for, but it's clear they mean me.
-- I'm starting to see a lot more porn, but also a lot of real-life death and murder videos from accounts I never followed.
+- It's near the end of the month and getting time to go back to Spain.
+- The cyber-stalking and harassment intensifies.
+- I see a lot of suggestive posts about someone going to be arrested, it's not clear why or what for, but it's clear they mean me.
+- I'm starting to see a lot more porn, but also a lot of real-life death, suicide, murder, and malicious or accidental injury videos from accounts I never followed.
+- They're right on my UI whenever I open my laptop. It doesn't make sense and makes me feel extremely uneasy.
 - At one point, I'm on my laptop and I lose control of my keyboard, except someone is typing for me instead.
 - I tweet "Arrettt-a" to say STOP.
 
 ![They have total access](../../content/tweets/took-hold-of-my-keyboard.png)
 
-- I realize with horror they have total access to my laptop, and probably my phone as well.
-- I assume it is because my laptop is not very well secured and they got in via the hotel network. I'm very wrong about that but this is what I tell people for a while.
-- Accounts full of dogs follow me on my @JackChardwood Twitter account. I assume to reference Lopez Cano, a pun of dog wolf.
-- I'm horrified. I send a WhatsApp message to Concha to ask if she thinks they're dangerous. She says no. I'm not convinced.
+- I realize with horror Domingo and his friends have total access to my laptop, and probably my phone as well.
+- I assume it is because my laptop is not very well secured and they got in via the hotel network. I'm wrong about that but this is what I assume and tell people for a while.
+- Accounts full of dogs follow me on my [`@JackChardwood` account](#jackchardwood); I assume to reference Lopez Cano, a pun of dog wolf.
+- I'm horrified.
+- I send a WhatsApp message to Concha to tell her I'm hacked and ask if she thinks these people are dangerous. 
+- She says that [my letters](july.md#second-letter-to-concha) now make more sense, but she doesn't think Domingo and his friends are dangerous. It's not convincing.
+- She tells me it's imperative I get off social media. I wonder why.
 - I understand from her silence and their audacity that police action will be difficult to obtain. 
-- I [send an email to a private detective](../../content/documents/emails/pdick.pdf) in Spain to see if they can help me link these people to crimes against me. They say they cannot help me.
-- I send a post on my @JackChardwood account saying I won't go back if I'm in danger, and other things. 
-- An account, Sumithra, who follows an account Durian, follows me immediately (screenshots in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf)) and likes every post. I know it's Domingo and the trumpet teacher.
+- I [send an email to a private detective](../../content/documents/emails/pdick.pdf) in Spain to see if they can help me link these people to crimes against me. 
+
+![Private detective](../../content/images/private-detective.png)
+
+- They say they cannot help me, that I must go to the police.
+- I post on my [`@JackChardwood`](#threats) account saying I won't go back if I'm in danger, and other things I mentioned above. 
+- An account, `@Sumithra`, who follows an account `@Durian`, follows me while I'm posting these pleas to the hackers.
+- The account likes every post. 
+- I know it's Domingo and the trumpet teacher.
 - https://x.com/JackChardwood/status/1696990588628029460
 
 ![My posts to Domingo and the hackers](../../content/tweets/sumithra-7-likes.png)
