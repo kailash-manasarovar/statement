@@ -389,7 +389,7 @@
 - Looking back, I can see I was psychologically unbalanced, and it is perhaps more evidence to point towards constant drugging with psychoactive substances via my toiletries, or perhaps through some of my health supplements like my antifungal liquid I took every day, often before bed.
 - Even though I was not connected to my X account, online NLP/hypnosis manipulation techniques would have been continuing via my hacked mobile phone.
 - This was the first instance of me being overwhelmingly terrified about being arrested.
-- There was something triggering this fear which the gangs used successfully on a number of occasions; specifically in [August 2023](august.md#the-second-time-i-am-convinced-im-going-to-be-arrested) and in [April 2024](../2024/april.md#the-third-time-im-convinced-im-going-to-be-arrested) when I become terrified about being arrested once again.
+- There was something triggering this fear which the gangs used successfully on a number of occasions; specifically in [August 2023](august.md#i-become-convinced-im-going-to-be-arrested) and in [April 2024](../2024/april.md#the-third-time-im-convinced-im-going-to-be-arrested) when I become terrified about being arrested once again.
 
 <audio controls>
     <source src="../../../content/sounds/i-have-the-feeling-im-going-to-be-arrested.mp3" type="audio/mpeg">

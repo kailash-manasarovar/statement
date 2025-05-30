@@ -675,17 +675,24 @@
 - Would these posts be retweeted back to me once I was entrapped and could not escape, and only then I would know the full extent of the conspiracy, and someone, somewhere would get an extraordinary kick of delight out of my sudden awareness.
 - Perhaps they'd take a photo of my face at that very moment and send it round their *shock and embarrassment* paid-for WhatsApp groups?
 
-## The second time I am convinced I'm going to be arrested
+## I become convinced I'm going to be arrested
 
 - This is the second time I become 100% convinced I'm going to be arrested.
+- It's terrifying.
+- Someone suggested this could be related to historic trauma whereby a pedophile rape-gang silences their child victims by telling them they'll go to prison if they tell anyone what's happened.
+- I don't remember that happening to me, and it certainly wasn't in my original police statement, but I guess it's possible.
+- For sure, my fear and anxiety levels were irrational, and something external was definitely causing this.
+- I experience the same fear again in [April 2024](../2024/april.md#the-third-time-im-convinced-im-going-to-be-arrested). 
 
 <audio controls>
     <source src="../../../content/sounds/i-have-the-feeling-im-going-to-be-arrested.mp3" type="audio/mpeg">
     Your browser does not support the audio element.
 </audio>
 
-- Just like the first time in [July in Thailand](july.md#the-first-time-i-become-terrified-about-being-arrested) a powerful supporting grace surrounds me.
-- First, when I go public a couple of days later, I get 1000s of new followers who are hearing what's been going on for me.
+- It's curious that I talk about a 'feeling' rather than anything tangible. (The full video shows exactly how scared I am.)
+- I wonder if this means that the criminal porn-gangs of Dénia had conversed with the Tottenham rape-gangs to share notes as to what kind of things might terrify me and how I could be better controlled.
+- Regardless of the evil around me, just like the first time it happened in [July in Thailand](july.md#the-first-time-i-become-terrified-about-being-arrested) and the [day after my apparent 'funeral' in June](june.md#monday-12th-june-2023) a powerful supporting grace surrounds me.
+- First, when I go public a couple of days later, I get 1000s of new followers who will now hear what's been going on for me, although concerted efforts are made to silence and discredit me at that time.
 - Second, my Tibetan monk friend will come to visit me when I tell him how upset I am.
 
 ## More evidence from this period
