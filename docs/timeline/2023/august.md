@@ -665,23 +665,27 @@
 
 - The Sumithra account no longer exists.
 - If you look at the accounts that have followed the Sumithra account in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf), you will see they are all dog-related.
-- The `@january_myth` account (who I suspect is probably [Patricia](../2022/october.md#patricia), at least some of the time) who had posted triggering content on 'my funeral' at the conservatory on [12th June 2023](june.md#monday-12th-june-2023) posts again.
+- The `@january_myth` account (who I suspect is probably [Patricia](../2022/october.md#patricia), at least some of the time) who had posted triggering content on the day of 'my funeral' at the conservatory on [12th June 2023](june.md#monday-12th-june-2023), posts again.
 
 ![Love poem](../../content/tweets/taru-ann-poem-2.png)
 
 - I miss the significance of this being connected to what's going on for me, and will only figure out the connection in [March 2024](../2024/march.md#24th-march) when I'm afraid for my life in Valencia and the account retweets this.
-- The two posts are published at the same time I'm being terrorized online and are extremely significant.
+- The two posts are trigger-posts, published at the very moment I'm being terrorized online.
 - Was the trumpet teacher continuing to harbor hopes of drawing me into an abusive relationship where he could control me and defraud me of my wealth?
+- Would these posts be retweeted back to me once I was entrapped and could not escape, and then I would know the full extent of the conspiracy and someone would get an extraordinary kick out of my sudden awareness.
 
 ## The second time I am convinced I'm going to be arrested
 
-- I'm so scared I text Concha to ask her if she thinks these people are dangerous.
-- I'm so scared I try to contract a private detective agency to help me gather evidence for the hacking and stalking.
+- This is the second time I become 100% convinced I'm going to be arrested.
 
 <audio controls>
     <source src="../../../content/sounds/i-have-the-feeling-im-going-to-be-arrested.mp3" type="audio/mpeg">
     Your browser does not support the audio element.
 </audio>
+
+- Just like the first time in [July in Thailand](july.md#the-first-time-i-become-terrified-about-being-arrested) a supporting grace surrounds me.
+- First, when I go public, I get 1000s of new followers who are hearing what's going on for me.
+- Second, my Tibetan monk friend will come to visit me when I tell him how upset I am.
 
 ## More evidence from this period
 
