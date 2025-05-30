@@ -146,14 +146,8 @@ nav:
     - Fear and loathing in Las Marinas, Dénia: the-novel/book-cover.md
     - Optional book covers: the-novel/optional-covers.md
 
+
 extra:
-  alternate:
-    - name: English
-      link: / 
-      lang: en
-    - name: Español
-      link: /es/
-      lang: es 
   social:
     - icon: fontawesome/brands/x-twitter
       name: 1FRGVN on X
