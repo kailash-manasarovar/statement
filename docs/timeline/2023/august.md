@@ -203,7 +203,10 @@
 
 [![Friendly content](../../content/tweets/august-comms/genial-chats.png)](https://x.com/1FRGVN/status/1693181928399044856)
 
-- I tweeted a lot of direct comments to the hackers. I still do that; it's now May 2025 and they're still communicating openly with me online and in person in a threatening manner. Their membership is far wider now too, and most obvious, as per design.
+- I tweeted a lot of direct comments to the hackers. 
+- I still do that; it's now May 2025 and they're still communicating openly with me online and in person in a threatening manner, although the intensity of it is infinitesimal compared to back then.
+- Their membership is far wider now too and made up of mostly international porn gangs I would say.
+- You have to wonder how international porn gangs managed to get so close to Spanish children, and no-one seems to care, rather they're all happy to muck in.
 
 [![Direct statement to hackers](../../content/tweets/august-comms/talking-to-the-hackers.png)](https://x.com/1FRGVN/status/1694345689587654949)
 
