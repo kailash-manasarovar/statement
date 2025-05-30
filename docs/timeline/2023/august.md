@@ -669,10 +669,11 @@
 
 ![Love poem](../../content/tweets/taru-ann-poem-2.png)
 
-- I miss the significance of this being connected to what's going on for me, and will only figure out the connection in [March 2024](../2024/march.md#24th-march) when I'm afraid for my life in Valencia and the account retweets this.
-- The two posts are trigger-posts, published at the very moment I'm being terrorized online.
+- I miss the significance of this and will only figure out the connection in [March 2024](../2024/march.md#24th-march) when I'm afraid for my life in Valencia and the account retweets this.
+- The two `@january_myth` posts are trigger-posts, published at the very moment I'm being terrorized online.
 - Was the trumpet teacher continuing to harbor hopes of drawing me into an abusive relationship where he could control me and defraud me of my wealth?
-- Would these posts be retweeted back to me once I was entrapped and could not escape, and then I would know the full extent of the conspiracy and someone would get an extraordinary kick out of my sudden awareness.
+- Would these posts be retweeted back to me once I was entrapped and could not escape, and only then I would know the full extent of the conspiracy, and someone, somewhere would get an extraordinary kick of delight out of my sudden awareness.
+- Perhaps they'd take a photo of my face at that very moment and send it round their *shock and embarrassment* paid-for WhatsApp groups?
 
 ## The second time I am convinced I'm going to be arrested
 
@@ -683,8 +684,8 @@
     Your browser does not support the audio element.
 </audio>
 
-- Just like the first time in [July in Thailand](july.md#the-first-time-i-become-terrified-about-being-arrested) a supporting grace surrounds me.
-- First, when I go public, I get 1000s of new followers who are hearing what's going on for me.
+- Just like the first time in [July in Thailand](july.md#the-first-time-i-become-terrified-about-being-arrested) a powerful supporting grace surrounds me.
+- First, when I go public a couple of days later, I get 1000s of new followers who are hearing what's been going on for me.
 - Second, my Tibetan monk friend will come to visit me when I tell him how upset I am.
 
 ## More evidence from this period
