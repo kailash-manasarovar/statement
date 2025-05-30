@@ -4,7 +4,7 @@
 
 - I spend the rest of the summer in France, right up to the end of August.
 - I spend one week in Lourdes before heading up to Cauterets.
-- Teachers and staff at the conservatory have decided my fate in the meantime, and it will be continued online harassment leading up to another "arrest" scare just before I leave France to come home.
+- Teachers and staff at the conservatory [have decided my fate in the meantime](july.md#urgent-staff-meetings-at-the-conservatory); continued online harassment leading up to another "arrest" scare just before I leave France to come home.
 - I guess the intention is that I don't return to my music studies at the conservatory, as before, leaving me isolated and open to acute fraud, drugging, and major sex crimes in my apartment.
 - I'm unaware of the specifics of the evil in the background; although I can feel it very strongly.
 - The online stalking intensifies and I realize people are monitoring my activity continuously.
@@ -53,11 +53,11 @@
 - I assumed they were just reading my tweets, but then the conversation became definitively two-way again, like before with the `@jctot19` account.
 - They post significant replies to me via *apparently* normal posts on my X feed or YouTube activity, via fake accounts that follow or like something I've posted, and even on adverts and spaces on the sidebars of my X UI.
 - I don't remember the `@jctot19` account being overly significant at this time because the communication methods had expanded. 
-- It was impossible to screenshot any of this as it was a fast moving conversation and, singly, each message they send me looks totally insignificant to an observer.
-- These online activities are psychological and emotionally manipulating crimes that are steadily setting up a major fraud almost impossible to prosecute.
+- It was impossible to screenshot any of this as it was a fast moving conversation and, singly, each message they send looks totally insignificant in isolation to an observer.
+- Everything I experienced was part of a calculated psychological and emotionally manipulation; crimes that are slowly and steadily setting up a major fraud almost impossible to prosecute.
 - I believe I am talking to the trumpet teacher directly in a loving manner, and then to Domingo and his family who communicate with me in a violent and threatening way, and it goes back-and-forth like this.
-- I am obsessed with music from the 1989 rave scene which I was listening to at the time I was groomed, sedated, and gang-raped repeatedly as a child and put in porn.
-- I tweet all the tunes I listen to on YouTube and you can find them by searching X with the tag `#MaSelecta`.
+- I am obsessed with music from the 1989 rave scene which I was listening to at the time I was groomed, sedated, and gang-raped repeatedly as a child and put in porn. There is no reason for this obsession outside of psychological triggers and online manipulation.
+- I tweet all the tunes I listen to on YouTube and you can find them by searching X with the tag [`DJ #MaSelecta`](https://x.com/search?q=%23MaSelecta%20(from%3A1frgvn)&f=live&src=typed_query).
 - Following is a selection of tweets from this period which relate to the previous six months' sexual grooming and psychological and online attacks by teachers and staff at the conservatory.
 - I'm totally unaware at this stage that organized criminal gangs are behind everything, including British gangs.
 - There is very little communication to me in English.
@@ -108,6 +108,10 @@
 - Things they needed to hear.
 
 [![Offers of healing, promise of friends](../../content/tweets/august-comms/offers-of-healing-promise-of-friends-1.png)](https://x.com/1FRGVN/status/1691007234421972992)
+
+- Note I mention the 'raging horn' here. This is very significant given I had no sexual partner for nearly 13 years and remained completely celibate without masturbating or feeling any sexual arousal throughout this time.
+- The overwhelming sexual arousal came completely out of the blue. It would take me a further year to understand it could only be due to the effects of drugging. 
+- Crazily, I thought it was evidence for true love!
 
 [![Offers of healing, promise of friends](../../content/tweets/august-comms/offers-of-healing-promise-of-friends-2.png)](https://x.com/1FRGVN/status/1691010959555379200)
 
