@@ -459,7 +459,7 @@
 - He went silent.
 - I took the eagles as a very good omen and tweeted about them.
 - Eagles became a meme which the hackers and stalkers used to identify themselves.
-- Sometimes even the trumpet teacher himself used this symbol to tell me very private things about himself which made me love him even more.
+- Sometimes even the trumpet teacher used this symbol to tell me very private things about himself, which made me love him even more.
 
 ## Fighting back
 
