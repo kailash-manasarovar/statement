@@ -67,13 +67,12 @@
 
 - A great many of these new follower accounts are fake accounts managed by the cyber-stalking criminals.
 - So, although I was safer in some respects, I was also in more danger in others.
-- Many of these account have profile pics of the faces of teachers and staff at the conservatory of Dénia.
+- Some new followers have [profile pics of the faces of teachers and staff](../../crimes/protagonists.md) at the conservatory of Dénia.
 - From this moment onwards, the English language of the stalker accounts becomes fluent, native, and vernacular. 
 - In retrospect, I'm convinced this is when Hazel Smith, her family, and her local English-speaking associates step in.
 - I guess many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
-- In September 2023, however, I have no idea Hazel and Sandra Smith are involved, and have been involved in the story since 2006.
-- This starts to come out in a rather curious way about a month from now.
-- At the time, I believe the wild interest on this tweet and the sudden 1000s of followers I gained were mostly genuine. 
+- In September 2023, however, I have no idea Hazel and Sandra Smith are involved, and have been involved in the story since 2006. This key to the story starts to come out in a rather curious way about a month later.
+- At the time, I believe the wild interest on my tweet-for-help and the sudden 1000s of followers I gained were mostly genuine. 
 
 ## Immature boy, bad companions, or both?
 
@@ -91,7 +90,7 @@
 - It seems like a message intended to deflect the blame off Domingo Cano Lopez and onto unknown associates.
 - The message is completely opposite to the very intentional terror I was experiencing online only days before, and over the last 8 months, which told me something very different indeed.
 
-## The cold shoulder from feminists
+## Shunned by international feminists
 
 - Well known feminists reach out to me to see if they can help.
 - I cannot be clear with them about what the Dénia hackers are going to do because it is all suggestions from ramped up threats online.
