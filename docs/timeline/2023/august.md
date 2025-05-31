@@ -111,7 +111,8 @@
 
 - Note I mention the 'raging horn' here. This is very significant given I had no sexual partner for nearly 13 years and remained completely celibate without masturbating or feeling any sexual arousal throughout this time.
 - The overwhelming sexual arousal came completely out of the blue. It would take me a further year to understand it could only be due to the effects of drugging. 
-- Crazily, I thought it was evidence for true love!
+- Crazily, I thought it was evidence for true love! 
+- Perhaps, crazily, it was.
 
 [![Offers of healing, promise of friends](../../content/tweets/august-comms/offers-of-healing-promise-of-friends-2.png)](https://x.com/1FRGVN/status/1691010959555379200)
 
