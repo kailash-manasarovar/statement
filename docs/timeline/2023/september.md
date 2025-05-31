@@ -1,5 +1,80 @@
 # September 2023
 
+## Praying at Cauterets
+
+- On Friday 1st September, I'm still convinced something bad is going to happen to me when I return to my home in Dénia.
+- I offer Domingo trauma healing sessions (which boy don't they all need) in return for safe passage in Dénia.
+
+![Safe passage](../../content/tweets/august-comms/offering-domingo-healing.png)
+
+- What an offer to ignore!!
+- I also go to the church at Cauterets, to pray with Sally.
+- We discover that Sainte Bernadette came to Cauterets to take the cure three times, and visited the church to pray.
+- There is a little altar set up for her.
+
+![L'eglise at Cauterets](../../content/images/cauterets-eglise.jpg)
+
+- I get goose bumps.
+- Before I head off to Spain, I go to the grotto at Lourdes to ask for Our Lady's protection from evil men.
+- She supplies.
+
+## Going public on Twitter
+
+- I'm on my way home. 
+- I will stop for one night in Zaragoza because it's a long drive.
+- I don't know what to do. I'm extraordinarily stressed and anxious.
+- I feel like parasites are running all over me and I can't get them off. 
+
+!!! tip "Parasite baths"
+    - I still feel like this in May 2025.
+    - I've kinda got used to it because I've had to accept that this is no ordinary situation.
+    - God's got my back though.
+    - I hear that crows use this sort of thing for positive outcomes, so so will I.
+
+    ![Ant baths](../../content/images/crow-takes-ant-bath.jpg)
+
+- I believe the intensifying harassment and terror is because Domingo and his associates do not want me to return to Dénia.
+- I feel that something awful is going to happen to me on Monday 4th September at home in Spain, possibly that I will be arrested but I don't know what for.
+- It is exactly the same way I felt when I thought was [going to be arrested and go to prison for 7 years](july.md#the-first-time-i-become-terrified-about-being-arrested) in Thailand.
+- It is also the same feeling of dread I experienced on the weeks of run-up to [chamber music class on 12th June](june.md#monday-12th-june-2023); my 'funeral' apparently.
+- There had always been an online suggestion that I was targeted for my gender critical beliefs.
+- I suddenly remembered that there *had* been a girl who thought she was a boy at the conservatory, and her name was indeed Silvia.
+
+![Silvia](../../content/tweets/september-23-comms/silvia.png)
+
+- I put two-and-two together and make an assumption that I'm going to be arrested for my *transphobic* views on Twitter which teachers and staff at the conservatory have been sharing with everyone in the town.
+- I make an initial plea for help before I leave Cauterets for Zaragoza.
+
+![Asking for help](../../content/tweets/september-23-comms/asking-for-help.png)
+
+- I really believe I am in danger.
+- When I arrive in Zaragoza and settle in my hotel room on Saturday 2nd September, I tweet about my feelings of threat and dread to, at least, have something in writing which may serve as an explanation if anything does happen to me.
+
+![Great harm is intended for me](../../content/tweets/september-23-comms/i-believe-great-harm-is-intended-for-me.png)
+
+- I remain unsettled and anxious.
+- I go to bed scared.
+- Something pulls me out of bed about an hour later.
+- I'm so concerned that something bad is going to happen to me, I go public on X which means I add my real name to my account, Dr Katharine Murphy.
+- I then ask for help again on X.
+
+![Going public](../../content/tweets/tweet-that-went-viral.png)
+
+- The tweet goes viral.
+- Overnight I gain 1000s of followers from the gender critical movement. 
+- I feel much, much safer.
+
+### New followers 
+
+- A great many of these new accounts are fake accounts managed by the cyber-stalking criminals.
+- So, although I was safer in some respects, I was also in more danger in others.
+- From this moment onwards, the English language of the stalker accounts becomes fluent, native, and vernacular. 
+- I'm convinced this is when Hazel Smith, her family, and her local English-speaking associates step in.
+- It felt like many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
+- In September 2023, however, I have no idea Hazel and Sandra Smith are involved, and have been involved in the story since 2006.
+- This starts to come out in a rather curious way about a month from now.
+- At the time, I believe the wild interest on this tweet and the sudden 1000s of followers I gained were mostly genuine. 
+
 ## Arriving home
 
 - When I get home, I see an account has followed me, **kaka**, with a profile message that said: "For an immature boy, bad companions play a much greater role than good teachers." 
@@ -8,39 +83,6 @@
 
 - You can see the full profile in the last pic in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
 - I suspect at that point someone got concerned about the ramifications of what had been happening and were concerned about whether I was going to go to the police.
-
-## Going public on Twitter
-
-- I don't know what to do, I feel like parasites are all over me and I can't get them off.
-- I'm on my way back to Spain and I believe the intensifying harassment is due to them not wanting me to return to Dénia.
-- There had been some suggestion something awful was going to happen to me on the 4th September at home in Spain, possibly that I would be arrested but I didn't know what for.
-- The way this happened was exactly the same way I felt I was [going to be arrested](july.md#the-first-time-i-become-terrified-about-being-arrested) in Thailand.
-- Also the attack on the 12th June which I innocently assumed it would be something to do with my angry tweets about Domingo from May that I had deleted, and related to my views on trans.
-- There has always been a suggestion that I was targeted for my gender critical beliefs, amongst other things.
-- I realized that there had been a girl who thought she was a boy at the conservatory and her name was indeed Silvia.
-    - https://x.com/1FRGVN/status/1697905359208296533
-    - https://x.com/1FRGVN/status/1698121721457365343
-    - https://x.com/1FRGVN/status/1698016819951423781
-    - https://x.com/1FRGVN/status/1697912956871217359
-- I put two and two together and make an assumption which is incorrect.
-- The only possible thing I can do is to go public on Twitter and ask for help, which I do.
-- Going public means adding my real name to my Twitter account Dr Katharine Murphy.
-- On my way home to Denia, in a hotel in Zaragoza, I ask X for help.
-- Overnight I gain 1000s of followers from the gender critical movement. 
-- I feel much much safer.
-- At the same time, many, if not a majority of these new accounts are fake accounts managed by the stalkers.
-- From this moment onwards, the English language of the stalker accounts is usually native and vernacular. I'm convinced this is when Hazel and her associates stepped in. I have no idea Hazel and Sandra Smith have been involved in this story since 2006.
-
-!!! danger "Throwing me to the wolves"
-    - A running theme of being thrown to the wolves, first by the English ladies, then by my teachers, and now even by the wolves themselves.
-    - At the moment I went public on Twitter, I believe many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
-    - So, although I was safer in some respects, I was also in more danger in others.
-
-- The tweet that goes viral is here:
-
-![viral tweet when asking for GC help](../../content/tweets/tweet-that-went-viral.png)
-
-- At the time, I believe the wild interest on this tweet and the sudden 1000s of followers I gained were mostly genuine. I now believe that the majority of these accounts were fake accounts controlled by criminal gangs in UK and Spain.
 
 ## The cold shoulder from feminists
 

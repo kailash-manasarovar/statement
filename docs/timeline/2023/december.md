@@ -57,7 +57,7 @@
 - When I first saw Alessandra again after nearly 15 years, one of the first things she asked me was "who's your accountant".
 - I show her the Google search results I'm seeing and how it's a conversation of some sort. I explain how it works and how it has been working since it started in June.
 - I show her the picture of me in my underwear and I explain where it's from.
-- A flash of alarm crossed her face.
+- A flash of alarm crosses her face.
 - I show her a tweet that comes up from time to time on the `@jctot19` account which is clearly a message for me. 
 
 ![message for me](../../content/tweets/igual1.png)
@@ -69,6 +69,9 @@
 - Here is an example of it coming up again in [April 2024](../2024/april.md#google-searches). Scroll to the bottom pic and you will see the `@jctot19` profile pic with this tweet underneath it.
 
 ![message for me](../../content/tweets/igual3.png)
+
+- She asks me how would I feel if he walked in the room right now.
+- I believe she was asked to ask me that by criminals to see if the honey-trap 'relationship' was still a possibility.
 
 ## I see someone in town from Twitter
 

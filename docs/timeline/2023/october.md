@@ -155,6 +155,10 @@
 
 - https://x.com/1FRGVN/status/1715795337489637651
 
+## Giving my trauma-therapy card to Domingo at the fruit and veg stall
+
+- TODO:
+
 ## Porn intensifies
 
 - The amount and nature of the porn that I'm seeing on my timeline intensifies. 
