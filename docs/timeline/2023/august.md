@@ -446,7 +446,7 @@
 
 ## Eagles
 
-- Unlike the year before, when [crows had been significant](../2022/september.md#omens-in-the-pyrenees) during my mountain hikes, one of whom was undoubtedly warning me, this year it was eagles.
+- Unlike the year before, when [crows had been significant](../2022/september.md#omens-in-the-pyrenees) during my mountain hikes, one of whom was undoubtedly warning me of things to come, this year it was eagles.
 - Every time I went into the mountains there was an eagle alongside me, calling.
 - When I went into the high mountains for a few days break, I was blessed to see five eagles swooping and playing together close to the peaks above my trail.
 
