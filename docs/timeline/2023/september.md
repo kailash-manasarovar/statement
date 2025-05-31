@@ -29,7 +29,7 @@
     - I still feel like this in May 2025.
     - I've kinda got used to it because I've had to accept that this is no ordinary situation.
     - God's got my back though.
-    - I hear that crows use this sort of thing for positive outcomes, so so will I.
+    - I hear that crows use this sort of thing for positive outcomes; so will I.
 
     ![Ant baths](../../content/images/crow-takes-ant-bath.jpg)
 
@@ -78,12 +78,14 @@
 
 ## Arriving home
 
-- When I get home, I see an account has followed me, **kaka**, with a profile message that said: "For an immature boy, bad companions play a much greater role than good teachers." 
+- When I get home, I see an account has followed me, **kaka**.
 
 ![Admission of guilt](../../content/images/admission%20of%20guilt.png)
 
-- You can see the full profile in the last pic in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
-- I suspect at that point someone got concerned about the ramifications of what had been happening and were concerned about whether I was going to go to the police.
+- I've pasted the full profile in the last pic in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
+- *kaka* or similar is a way the cyber-stalkers refer to me; even the choir master in year 4 of professional studies will do so.
+- The profile message is very interesting.
+- I suspect that someone got concerned about the ramifications of what had been happening and were worried about me going to the police.
 
 ## The cold shoulder from feminists
 
