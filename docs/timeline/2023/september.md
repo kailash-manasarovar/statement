@@ -82,14 +82,14 @@
 ![Admission of guilt](../../content/images/admission%20of%20guilt.png)
 
 - I've pasted the full profile in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
-- *kaka* or similar is a way the cyber-stalkers refer to me; even the choir master in year 4 of professional studies will do so.
+- *kaka* or similar is a way the cyber-stalkers refer to me; even the choir master in year 4 of professional studies will do so blatantly to my face.
 - The profile message is very interesting.
-- I suspect that someone got momentarily concerned about the ramifications of what had been happening to me, and were worried about officials getting involved.
+- I suspect that someone got momentarily concerned about the ramifications of what had [been happening online](#going-public-on-twitter), and were worried about officials getting involved.
 
 ![Tell her something](../../content/images/tell-her-something.png)
 
 - It seems like a message intended to deflect the blame off Domingo Cano Lopez and onto unknown associates.
-- The message is completely opposite to the very intentional terror I experienced online only days before, and over the last 8 months, which was telling me something very different indeed.
+- The message is completely opposite to the very intentional terror I was experiencing online only days before, and over the last 8 months, which told me something very different indeed.
 
 ## The cold shoulder from feminists
 
