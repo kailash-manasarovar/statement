@@ -2,14 +2,13 @@
 
 ## Praying at Cauterets
 
-- On Friday 1st September, I'm still convinced something bad is going to happen to me when I return to my home in Dénia.
-- I offer Domingo trauma healing sessions (which boy don't they all need) in return for safe passage in Dénia.
+- On Friday 1st September, I'm thoroughly convinced something bad is going to happen to me when I return to my home in Dénia.
+- I offer Domingo trauma healing sessions on X in return for safe passage in Dénia.
 
 ![Safe passage](../../content/tweets/august-comms/offering-domingo-healing.png)
 
-- What an offer to ignore!!
-- I also go to the church at Cauterets, to pray with Sally.
-- We discover that Sainte Bernadette came to Cauterets to take the cure three times, and visited the church to pray.
+- I also go to the church at Cauterets to pray with Sally.
+- We discover that Sainte Bernadette came to Cauterets to take the cure three times, and she visited the church often to pray.
 - There is a little altar set up for her.
 
 ![L'eglise at Cauterets](../../content/images/cauterets-eglise.jpg)
@@ -78,14 +77,19 @@
 
 ## Arriving home
 
-- When I get home, I see an account has followed me, **kaka**.
+- When I get home on Sunday 3rd at around 5pm, an account has followed me, **kaka**.
 
 ![Admission of guilt](../../content/images/admission%20of%20guilt.png)
 
-- I've pasted the full profile in the last pic in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
+- I've pasted the full profile in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf).
 - *kaka* or similar is a way the cyber-stalkers refer to me; even the choir master in year 4 of professional studies will do so.
 - The profile message is very interesting.
-- I suspect that someone got concerned about the ramifications of what had been happening and were worried about me going to the police.
+- I suspect that someone got momentarily concerned about the ramifications of what had been happening to me, and were worried about officials getting involved.
+
+![Tell her something](../../content/images/tell-her-something.png)
+
+- It seems like a message intended to deflect the blame off Domingo Cano Lopez and onto unknown associates.
+- The message is completely opposite to the very intentional terror I experienced online only days before, and over the last 8 months, which was telling me something very different indeed.
 
 ## The cold shoulder from feminists
 
