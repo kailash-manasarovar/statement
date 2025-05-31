@@ -38,7 +38,7 @@
 - It is exactly the same way I felt when I thought was [going to be arrested and go to prison for 7 years](july.md#the-first-time-i-become-terrified-about-being-arrested) in Thailand.
 - It is also the same feeling of dread I experienced on the weeks of run-up to [chamber music class on 12th June](june.md#monday-12th-june-2023); my 'funeral' apparently.
 - There had always been an online suggestion that I was targeted for my gender critical beliefs.
-- I suddenly remembered that there *had* been a girl who thought she was a boy at the conservatory, and her name was indeed Silvia.
+- I suddenly remember that there *had* been a girl who thought she was a boy at the conservatory, and her name was indeed Silvia.
 
 ![Silvia](../../content/tweets/september-23-comms/silvia.png)
 
