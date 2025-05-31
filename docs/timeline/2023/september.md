@@ -75,7 +75,7 @@
 - This starts to come out in a rather curious way about a month from now.
 - At the time, I believe the wild interest on this tweet and the sudden 1000s of followers I gained were mostly genuine. 
 
-## Arriving home
+## Immature boy, bad companions, or both?
 
 - When I get home on Sunday 3rd at around 5pm, an account has followed me, **kaka**.
 
