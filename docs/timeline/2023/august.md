@@ -444,6 +444,21 @@
 - The one-page release website never moved into a released stage, even when I checked months afterwards. Now the URL is dead.
 - At the time, I didn't relate any of this to previous experiences that I had forgotten completely, such as [interviewing for a company where I'd be looking at genitals all day long](../early-years/2016.md#march), but now I do.
 
+## Eagles
+
+- Unlike the year before, when [crows had been significant](../2022/september.md#omens-in-the-pyrenees) during my mountain hikes, one of whom was undoubtedly warning me, this year it was eagles.
+- Every time I went into the mountains there was an eagle alongside me, calling.
+- When I went into the high mountains for a few days break, I was blessed to see five eagles swooping and playing together close to the peaks above my trail.
+
+![Eagles](../../content/images/eagles.png)
+
+- I told someone about this, a mountain expert, and he didn't believe me. 
+- He said, no, it couldn't be, no-one ever sees more than about two eagles. It must have been vultures.
+- I said, no, it wasn't vultures because of the calls, which I imitated for him.
+- He went silent.
+- I took the eagles as a very good omen and tweeted about them.
+- Eagles became a meme which the hackers and stalkers used to identify themselves; and sometimes even the trumpet teacher himself used this symbol.
+
 ## Fighting back
 
 - I realize that Domingo, the trumpet teacher, and all their mates from Dénia are continuing to harass me online.
