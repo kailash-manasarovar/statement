@@ -457,7 +457,8 @@
 - I said, no, it wasn't vultures because of the calls, which I imitated for him.
 - He went silent.
 - I took the eagles as a very good omen and tweeted about them.
-- Eagles became a meme which the hackers and stalkers used to identify themselves; and sometimes even the trumpet teacher himself used this symbol.
+- Eagles became a meme which the hackers and stalkers used to identify themselves.
+- Sometimes even the trumpet teacher himself used this symbol to tell me very private things about himself which made me love him even more.
 
 ## Fighting back
 
