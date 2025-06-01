@@ -54,6 +54,7 @@
 
 - I'm unaware of the conspiracy at this time, and so I'm upset about my words hurting someone unintentionally but people are people, and often can't be trusted to not share hurtful information.
 - I attempt to talk to Patricia in a friendly way to make amends, and I talk about my life.
+- She talks about looking after her tiny granddaughter but something is wrong, she's not happy, she's holding something back.
 - She mentions a man, a British policeman, who lived near her who had really scary eyes.
 - It was a weird thing for her to mention, and she repeated it. 
 - It reminded me of a short story I had written for the writing club I used to go to in Dénia in 2007, which incidentally [Dandy the gay English teacher](../early-years/2013.md#the-gays-leave-suddenly) was also a member of.

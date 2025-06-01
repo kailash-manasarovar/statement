@@ -31,7 +31,8 @@
     - I still feel like this in May 2025.
     - I've kinda got used to it because I've had to accept that this is no ordinary situation.
     - God's got my back though.
-    - I hear that crows use this sort of thing for positive outcomes; so will I.
+    - I hear that crows use this sort of thing for positive outcomes.
+    - So will I.
 
     ![Ant baths](../../content/images/crow-takes-ant-bath.jpg)
 
@@ -69,10 +70,10 @@
 ### New followers 
 
 - A great many of these new follower accounts are fake accounts managed by the cyber-stalking criminals.
-- So, although I was safer in some respects, I was also in more danger in others.
+- So, although I was safer in some respects, I was in more danger in others.
 - Some new followers have [profile pics of the faces of teachers and staff](../../crimes/protagonists.md) at the conservatory of Dénia.
 - From this moment onwards, the English language of the stalker accounts becomes fluent, native, and vernacular. 
-- In retrospect, I'm convinced this is when Hazel Smith, her family, and her local English-speaking associates step in.
+- In retrospect, I'm convinced this is when Hazel Smith, her family, and her local English-speaking associates, such as [Patricia and Christine](../2022/november.md#walking-in-benijembla-with-the-english-ladies), step in.
 - I guess many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
 - In September 2023, however, I have no idea Hazel and Sandra Smith are involved, and have been involved in the story since 2006. This key to the story starts to come out in a rather curious way about a month later.
 - At the time, I believe the wild interest on my tweet-for-help and the sudden 1000s of followers I gained were mostly genuine. 
