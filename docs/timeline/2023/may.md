@@ -259,7 +259,7 @@
 - I wake the following morning and I have a small bolus of faeces in my knickers.
 - It has been flattened somehow. It is shaped like a soft round token with a beveled border. Something like this, but a different color.
 
-![flattened bolus](../../content/images/flattened-bolus.png)
+![flattened bolus](../../content/images/flattened-bolus-brown.png)
 
 - It appeared that I had poo-ed myself during the night.
 - This was very startling. I had never done this before, not even when I was a child.
