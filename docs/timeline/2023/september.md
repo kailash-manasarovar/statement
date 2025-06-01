@@ -47,7 +47,7 @@
 ![Asking for help](../../content/tweets/september-23-comms/asking-for-help.png)
 
 - I really believe I am in danger.
-- When I arrive in Zaragoza and settle in my hotel room on Saturday 2nd September, I tweet about my feelings of threat and dread to, at least, have something in writing which may serve as an explanation if anything does happen to me.
+- When I arrive in Zaragoza and settle in my hotel room on Saturday 2nd September, I tweet about my feelings of threat and dread so there will be something in writing which may serve as an explanation if anything does happen to me.
 
 ![Great harm is intended for me](../../content/tweets/september-23-comms/i-believe-great-harm-is-intended-for-me.png)
 
