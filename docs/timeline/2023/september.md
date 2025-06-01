@@ -384,6 +384,15 @@
 - Katia is, apparently, a friend of Ana and she play acts being really angry with me throughout the course.
 - I write to her eventually after she gives me her mobile phone number in December.
 
+### Nacho tries to terrorize me
+
+- In the first class, Nacho the clarinet teacher races in extremely angry and starts talking to the chamber music teacher.
+- I know he's trying to upset me.
+
+### Domingo tries to upset me
+
+- After one class, I'm walking away and Domingo is in the middle of the hall. He sees me and walks into a darkened room where one of his female students from Madrid, Lucia, is standing, in the dark.
+
 ## Harmony classes
 
 - We have a new teacher, Alfonso, for harmony.
