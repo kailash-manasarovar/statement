@@ -360,7 +360,13 @@
 
 - I tell Stephen Terrell and some of the other practitioners what's been going on from my perspective at that time, i.e. I had been terrorized by teachers and staff at the conservatory.
 - I tell a practitioner there that I had defecated in my bed while asleep and it was a little round flattened bolus.
-- Everyone can see I'm in a traumatized state.
+- Everyone on the course can see I'm in a traumatized state.
+- I meet a few of the practitioners in the hot tub at the hotel one evening. Steve is there.
+- He asks me, repeatedly, how much does land cost in Spain?
+- I tell him it depends, repeatedly, and he asks again.
+
+
+
 - The sexual feelings stop completely while I am away.
 
 ## YouTube
