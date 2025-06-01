@@ -208,6 +208,43 @@
 - As I'm walking through the town towards the mountain, a car full of young men drives past me.
 - I'm hit by stones thrown at me from the car.
 
+## My friend the fruit and vegetable seller
+
+- Turns out, I do have a good friend in Dénia; one of the very few people in the world who I love dearly, and will always love; a woman with strong integrity and a powerful spiritual practice.
+- I do not attempt to see her until this time for two reasons. First, I had been depressed and didn't see anyone as a rule. Second, my head was spinning with what was going on for me and it was difficult to know how to deal with anything outside of prayer, and fighting the cyber-stalkers online.
+- I hadn't seen my friend since 2016. We only chatted a few times online and I hadn't had any contact with her since 2020.
+- She had been selling fruit and vegetables in the market for some years with her new boyfriend who I hadn't met yet.
+- A common friend of ours is Klara Sarkadi, the Orfeo choir master who is a close associate of Domingo.
+- Klara told me repeatedly how tired my friend was from working in the fields. "She's very tired," she'd say.
+- I go to buy some vegetables.
+- As I walk towards the stall, I see [Paqui Fornet Pastor](../../crimes/protagonists.md#paqui-fornet-pastor) talking to my friend. She gives me the side-eye and walks away.
+- I meet my friend. We hug and exchange a few words.
+- She mentions how she and her boyfriend had seen me walking up the Calle La Mar towards the tunnel from the conservatory, on [Monday 12th June in the evening](june.md#monday-12th-june-2023). They had beeped at me. I file this information away.
+- I buy some vegetables and leave.
+- When I go to cook one of the vegetables, a lovely fresh looking onion on the outside, I find it is rotten to the core.
+
+![Rotten onion](../../content/images/rotten-onion.png)
+
+- I throw it away.
+- The next time I see my friend, she asks me if my vegetables were OK in an overly concerned manner.
+- I lie and say yes they were fine.
+- Did she know my onion was rotten?
+- She could only have known that if someone had been watching me in my flat, and made sure she asked me about it.
+- It's safe to assume the criminals of Dénia would be over-interested in our relationship and therefore any of our interactions.
+- At that moment, I began to become concerned my friend had been tricked too.
+- Could she have been enslaved to work in the fields?
+- Her man, who was a bit weird with me, is probably about 20 years younger than her, and has delicate hands and doesn't look overworked at all.
+- I remembered she was always going to a local psychic/match-maker in 2016 looking for a man, and knowing what I now know about this town and the monstrous but powerful minority in it, I shuddered.
+- Another time I go for vegetables, [Thao](may.md#acupuncture-with-thao-qi) is there. Is she waiting for me too? She says, hi, and asks if I went back to classes at the conservatory. I say yes I did, very strongly.
+- Another time I go for vegetables, [Domingo](../../crimes/protagonists.md#domingo-lopez-cano) is there, on his own, with the two little girls from Madrid that he teaches.
+- I give him a [therapy card](#praying-at-cauterets) in person.
+- He shouts, "ooooh, touch", elongating the word *touch* in a salacious manner, and leaves with the girls.
+- My friend says, oh you know him, and tell me that she sees him all the time with his daughters.
+- I tell her they are not his daughters.
+- She looks alarmed.
+- The last time I see her, in April 2024, she says, oh I just saw Paqui Fornet, "isn't she a nice person?".
+- I tell her I think Paqui is probably a psychopath.
+
 ## My friend visits
 
 - My friend the Tibetan monk visits for a few days in September.
