@@ -101,7 +101,8 @@
 - I explain I've been terrorized for nearly a year by teachers and staff at the conservatory, and relentlessly online too.
 - They decide unilaterally I'm lying and that I'm not to be trusted.
 - One, in particular, upsets me enormously by telling me, "you're not being hacked", as if it's all in my mind. She then tells me I'm lying and I should get help! 
-- This was extraordinarily triggering and so unbelievable I started to think that the woman I was talking to was not who she said she was.
+- This was extraordinarily triggering and so unbelievable I started to think that the woman I was talking to was not who she said she was. 
+- I still wonder I'm so flabbergasted.
 
 ![Discredited by well-known feminists](../../content/tweets/september-23-comms/discredited-by-well-known-feminists.png)
 
@@ -110,10 +111,16 @@
 
 ![Curious ironies](../../content/tweets/september-23-comms/curious-ironies.png)
 
-- I will meet some of the Spanish feminists who took pains to discredit me in [April 2024 in Madrid](../2024/may.md#madrid) when I speak at Let Women Speak.
-- I'm told at that time that people thought I was an unbalanced, domestic-violence victim and for that reason I was discredited.
-- I'm agog!
-- I'm told more recently that some of those feminists have dubious links to Spanish misogynist networks, and were probably just doing what they were told.
+- I will meet some of the Spanish feminists who were involved in discrediting me in [April 2024 in Madrid](../2024/may.md#madrid) when I tell my story at Let Women Speak.
+- I'm told that people thought I was an unbalanced, domestic-violence victim and for that reason my request for help was ignored and I was discredited.
+- I'm agog!!
+- I'm told more recently that some of those feminists have dubious links to Spanish misogynist networks that would have been extremely keen to keep what's been going on in Dénia very quiet.
+- I guess they were just doing what they were told, like good women do, and were believed by everyone else.
+
+!!! important "Full disclosure"
+    - You can read the full DM I refer to above here: todo:
+
+- I continue to send updates, but she ignores me.
 
 ## X.com
 
