@@ -8,10 +8,13 @@
 ![Safe passage](../../content/tweets/august-comms/offering-domingo-healing.png)
 
 - I also go to the church at Cauterets to pray with Sally.
+
+![L'eglise at Cauterets](../../content/images/cauterets-eglise.jpg)
+
 - We discover that Sainte Bernadette came to Cauterets to take the cure three times, and she visited the church often to pray.
 - There is a little altar set up for her.
 
-![L'eglise at Cauterets](../../content/images/cauterets-eglise.jpg)
+![Bernadette's altar](../../content/images/bernadettes-altar.jpg)
 
 - I get goose bumps.
 - Before I head off to Spain, I go to the grotto at Lourdes to ask for Our Lady's protection from evil men.
@@ -55,7 +58,7 @@
 - I go to bed scared.
 - Something pulls me out of bed about an hour later.
 - I'm so concerned that something bad is going to happen to me, I go public on X which means I add my real name to my account, Dr Katharine Murphy.
-- I then ask for help again on X.
+- I then ask for help again.
 
 ![Going public](../../content/tweets/tweet-that-went-viral.png)
 
@@ -98,10 +101,69 @@
 - One, in particular, upsets me enormously by telling me, "you're not being hacked", as if it's all in my mind or I'm lying. This was extraordinarily triggering.
 - I realize that feminists are as misogynist as everyone else. I knew that anyway.
 - Nevertheless, it was extremely upsetting and eyeopening.
+- https://x.com/1FRGVN/status/1698762074258641194
 
 ## X.com
 
+- The following section lists some of the more interesting tweets from this period.
+
+### `@1frgvn`
+
 - https://x.com/1FRGVN/status/1698221547654140194
+- https://x.com/1FRGVN/status/1698090627513143314
+- https://x.com/1FRGVN/status/1698122498506633256
+- https://x.com/1FRGVN/status/1698128441587986695
+- https://x.com/1FRGVN/status/1698130639751348474
+- https://x.com/1FRGVN/status/1698220957368725524
+- https://x.com/1FRGVN/status/1698242524786167834
+- https://x.com/1FRGVN/status/1698243011077915035
+- https://x.com/1FRGVN/status/1698586936363843958
+- https://x.com/1FRGVN/status/1698607627582746894
+- https://x.com/1FRGVN/status/1698643045506310256
+- https://x.com/1FRGVN/status/1698679791346417766
+- https://x.com/1FRGVN/status/1698894244272837094
+- https://x.com/1FRGVN/status/1699140253892632656
+- https://x.com/1FRGVN/status/1699346455109030341
+- https://x.com/1FRGVN/status/1699358345814061079
+- https://x.com/1FRGVN/status/1699700177223766346
+- https://x.com/1FRGVN/status/1699776148635516933
+- https://x.com/1FRGVN/status/1700184266452169193
+- https://x.com/1FRGVN/status/1700562410250055698
+- https://x.com/1FRGVN/status/1700565018176102801
+- https://x.com/1FRGVN/status/1700601251551912422
+- https://x.com/1FRGVN/status/1701137529263493157
+- https://x.com/1FRGVN/status/1701650825234231438
+- https://x.com/1FRGVN/status/1702646805089948059 - taoist sexual practice
+- https://x.com/1FRGVN/status/1702664165939114093
+- https://x.com/1FRGVN/status/1703041567253016887
+- https://x.com/1FRGVN/status/1703055375484760540
+- https://x.com/1FRGVN/status/1703070612367810941
+- https://x.com/1FRGVN/status/1703133615054291166
+- https://x.com/1FRGVN/status/1703159274929590346
+- https://x.com/1FRGVN/status/1703345920207716547
+- https://x.com/1FRGVN/status/1703350775798272443
+- https://x.com/1FRGVN/status/1703478090423275562
+- https://x.com/1FRGVN/status/1704267242685223174
+- https://x.com/1FRGVN/status/1706609205908476079
+- https://x.com/1FRGVN/status/1706959385883213912
+- https://x.com/1FRGVN/status/1707151247059321125
+- https://x.com/1FRGVN/status/1707672863283556809
+- https://x.com/1FRGVN/status/1707677154933129696
+- https://x.com/1FRGVN/status/1707832088605413497
+- https://x.com/1FRGVN/status/1707862141175230874 - the table
+- https://x.com/1FRGVN/status/1707868906604417428
+
+### `@jackchardwood`
+
+- https://x.com/JackChardwood/status/1697527520285855934 Good luck getting paid.
+- https://x.com/JackChardwood/status/1703690515248468410 more job offers.
+- https://x.com/JackChardwood/status/1703852065674473833 pheromone sprays (trying to understand where it came from, starting to see through the trick)
+- https://x.com/JackChardwood/status/1704386000493887568 smurf cat
+- https://x.com/JackChardwood/status/1708197553483763859 all expenses paid trip to Ireland, read by all the teachers and used against me
+
+## Google search
+
+- On the `@jctot19` results, I start to see a photos of documents coming from the Generalitat Valenciana.
 
 ## Rosa in town
 
@@ -144,6 +206,7 @@
 - I am talking with my friend on my mobile phone through WhatsApp calls, a Tibetan monk. I'm explaining to him what's going on, and he suggests he comes to visit me.
 - I say yes, please do come.
 - At that moment, I lose control of my mobile phone completely. Every key I press, does something entirely different. The whole screen is scrambled.
+- I tweet about it later: https://x.com/1FRGVN/status/1699346455109030341.
 - I turn off the router and get immediate control of my phone again.
 - I believe now they wanted me to think that the hackers are external players when in reality access was gained directly from the router via Mac spoofing with information only known to either the telecommunications company, Telco, or the ISP itself, which at that time was Yoigo.
 
@@ -247,7 +310,7 @@
 
 ## My friend visits
 
-- My friend the Tibetan monk visits for a few days in September.
+- My friend the Tibetan monk visits for a few days in September: https://x.com/1FRGVN/status/1699344886053454116.
 - He came at my request when I was being terrorized online and I was very scared and stressed.
 - While I'm waiting for him to arrive at Valencia airport, I translate one of the posts I see on the `@jctot19` Google search a lot.
 
