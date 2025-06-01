@@ -115,12 +115,12 @@
 - I'm told that people thought I was an unbalanced, domestic-violence victim and for that reason my request for help was ignored and I was discredited.
 - I'm agog!!
 - I'm told more recently that some of those feminists have dubious links to Spanish misogynist networks that would have been extremely keen to keep what's been going on in Dénia very quiet.
-- I guess they were just doing what they were told, like good women do, and were believed by everyone else.
+- I guess they were just doing what they were told, like *good* women do, and were believed by everyone else.
 
 !!! important "Full disclosure"
     - You can read the full DM I refer to above here: todo:
 
-- I continue to send updates, but she ignores me.
+- I continue to send Raquel updates, but she ignores me.
 
 ## X.com
 
