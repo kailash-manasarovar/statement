@@ -98,11 +98,22 @@
 
 - Well known feminists reach out to me to see if they can help.
 - I cannot be clear with them about what the Dénia hackers are going to do because it is all suggestions from ramped up threats online.
+- I explain I've been terrorized for nearly a year by teachers and staff at the conservatory, and relentlessly online too.
 - They decide unilaterally I'm lying and that I'm not to be trusted.
-- One, in particular, upsets me enormously by telling me, "you're not being hacked", as if it's all in my mind or I'm lying. This was extraordinarily triggering.
-- I realize that feminists are as misogynist as everyone else. I knew that anyway.
+- One, in particular, upsets me enormously by telling me, "you're not being hacked", as if it's all in my mind. She then tells me I'm lying and I should get help! 
+- This was extraordinarily triggering and so unbelievable I started to think that the woman I was talking to was not who she said she was.
+
+![Discredited by well-known feminists](../../content/tweets/september-23-comms/discredited-by-well-known-feminists.png)
+
+- I realize that feminists can be as misogynist as everyone else. I knew that anyway.
 - Nevertheless, it was extremely upsetting and eyeopening.
-- https://x.com/1FRGVN/status/1698762074258641194
+
+![Curious ironies](../../content/tweets/september-23-comms/curious-ironies.png)
+
+- I will meet some of the Spanish feminists who took pains to discredit me in [April 2024 in Madrid](../2024/may.md#madrid) when I speak at Let Women Speak.
+- I'm told at that time that people thought I was an unbalanced, domestic-violence victim and for that reason I was discredited.
+- I'm agog!
+- I'm told more recently that some of those feminists have dubious links to Spanish misogynist networks, and were probably just doing what they were told.
 
 ## X.com
 
