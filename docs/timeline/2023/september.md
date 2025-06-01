@@ -120,7 +120,7 @@
 !!! important "Full disclosure"
     - You can read the full DM I refer to above here: todo:
 
-- I continue to send Raquel updates, including police statements.
+- I continue to send Raquel updates, including copies of police statements.
 - She ignores me.
 
 ## X.com
