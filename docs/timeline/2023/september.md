@@ -100,7 +100,7 @@
 - I cannot be clear with them about what the Dénia hackers are going to do because it is all suggestions from ramped up threats online.
 - I explain I've been terrorized for nearly a year by teachers and staff at the conservatory, and relentlessly online too.
 - They decide unilaterally I'm lying and that I'm not to be trusted.
-- One, in particular, upsets me enormously by telling me, "you're not being hacked", as if it's all in my mind. She then tells me I'm lying and I should get help! 
+- One woman upsets me enormously by telling me, "you're not being hacked", as if it's all in my mind. She then tells me I'm lying and I should get help! 
 - This was extraordinarily triggering and so unbelievable I started to think that the woman I was talking to was not who she said she was. 
 - I still wonder I'm so flabbergasted.
 
