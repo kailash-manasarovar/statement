@@ -76,7 +76,7 @@
 - In retrospect, I'm convinced this is when Hazel Smith, her family, and her local English-speaking associates, such as [Patricia and Christine](../2022/november.md#walking-in-benijembla-with-the-english-ladies), step in.
 - I guess many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
 - In September 2023, however, I have no idea Hazel and Sandra Smith are involved, and have been involved in the story since 2006. This key to the story starts to come out in a rather curious way about a month later.
-- At the time, I believe the wild interest on my tweet-for-help and the sudden 1000s of followers I gained were mostly genuine. 
+- At the time, I believe the wild interest on my *tweet-for-help* and the sudden 1000s of followers I gained were mostly genuine. 
 
 ## Immature boy, bad companions, or both?
 
@@ -92,7 +92,7 @@
 ![Tell her something](../../content/images/tell-her-something.png)
 
 - It seems like a message intended to deflect the blame off Domingo Cano Lopez and onto unknown associates.
-- The message is completely opposite to the very intentional terror I was experiencing online only days before, and over the last 8 months, which told me something very different indeed.
+- The message is completely opposite to the very intentional terror I was experiencing online only days before, and over the previous 8 months, which told me something very different indeed.
 
 ## Shunned by international feminists
 
