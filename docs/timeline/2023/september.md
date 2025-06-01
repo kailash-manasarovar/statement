@@ -114,7 +114,7 @@
 - I will meet some of the Spanish feminists who were involved in discrediting me in [April 2024 in Madrid](../2024/may.md#madrid) when I tell my story at Let Women Speak.
 - I'm told that people thought I was an unbalanced, domestic-violence victim and for that reason my request for help was ignored and I was discredited.
 - I'm agog!!
-- I'm told more recently that some of those feminists have dubious links to Spanish misogynist networks that would have been extremely keen to keep what's been going on in Dénia, and no doubt elsewhere, very quiet.
+- I'm told more recently that some of those feminists have links to Spanish misogynist networks that would have been extremely keen to keep what's been going on in Dénia, and no doubt elsewhere, very quiet.
 - I guess they were just doing what they were told, like *good* women do, and were believed by everyone else.
 
 !!! important "Full disclosure"
