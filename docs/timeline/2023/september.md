@@ -241,7 +241,7 @@
 - He shouts, "ooooh, touch", elongating the word *touch* in a salacious manner, and leaves with the girls.
 - My friend says, oh you know him, and tell me that she sees him all the time with his daughters.
 - I tell her they are not his daughters.
-- She looks alarmed.
+- Alarm flashes across her face.
 - The last time I see her, in April 2024, she says, oh I just saw Paqui Fornet, "isn't she a nice person?".
 - I tell her I think Paqui is probably a psychopath.
 
