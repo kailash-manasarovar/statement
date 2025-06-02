@@ -131,6 +131,7 @@
 
 - I believe that, at this point, multiple people in Dénia are informed about me, photos of me are disseminated so I'll be recognized, and everyone is told that I am to be a target for gang-stalking abuse.
 - I expect my tweets, and other things, are shared on local WhatsApp groups amongst 100s maybe 1000s of people.
+- It's possible that [child rape porn with me in it](#table) has also been shared with the townsfolk. That could very well explain the utter contempt, fear and loathing towards me from nearly everyone I meet.
 - You can imagine the owners of these groups being the bravest men in the city! The men that everyone worship fervently.
 - I suspect even more private information and photos are shared with the predatory sex-addict inner sanctums, with some women being aware of this too.
 - Not only that, but I suspect that some of my tweets are forged that look like I've said horrible things I never said.
