@@ -127,7 +127,7 @@
 - Remember. *Everyone* knows me in Dénia. 
 - I myself know no more than a handful of people.
 
-## Dénia populace told about a new target
+## The Dénia townsfolk are told about a new target
 
 - I believe that, at this point, multiple people in Dénia are informed about me, photos of me are disseminated so I'll be recognized, and everyone is told that I am to be a target for gang-stalking abuse.
 - I expect my tweets, and other things, are shared on local WhatsApp groups amongst 100s maybe 1000s of people.
