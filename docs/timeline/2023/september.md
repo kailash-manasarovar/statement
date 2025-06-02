@@ -299,6 +299,7 @@ function googleTranslateElementInit() {
 ### Table
 
 - On search results for `@1frgvn x` I'm shown multiple pictures of tables; literally every result is a table of some sort for a few days.
+- I mention this in the [Carmen](july.md#carmen) section from July where I talk about the `@sinremite` account.
 - The same thing happens with [sinks in April 2024](../2024/april.md#let-that-sink-in), i.e. *let that sink in*, when I fear for my life and leave my studies after the most [outrageous psychological assault involving my murdered friend](../2024/march.md#tuesday-12th-march). Then again in April 2025 when I only see photos of refrigerators and show my mother.
 - I have no idea why and puzzle over it.
 - I come up with something. 

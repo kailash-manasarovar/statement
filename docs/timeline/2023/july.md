@@ -236,9 +236,12 @@
 
 - The man in the picture above is dressed exactly the same as [the guy at the Alhambra](#the-guy-at-the-alhambra), another significant set of posts that I mention below.
 - The first post refers to a 'table'. 
-- This 'table' meme became a more frequent online reference over August and September 2023. I realized eventually this was referring to another part of my police statement in which I mention being aware of sitting on a tabletop, possibly undressed, in North London in 1989 when I was 16.
+- This ['table'](september.md#table) meme became a more frequent online reference over August and September 2023. I realized eventually this was referring to another part of my police statement in which I mention being aware of sitting on a tabletop, possibly undressed, in North London in 1989 when I was 16.
 - What I was not aware of - that the criminal gangs of Dénia, and teachers and staff at the conservatory, were aware of, and informed me of during their relentless online harassment over 2023-2024 - is that this table incident I mentioned in my police statement had taken place just after being sedated, gang raped, and filmed.
 - Of course, the bottom right picture is a direct reference to me [curled up in a little ball](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) as I was when I was filmed and gang raped. 
+
+![Me curled up in a little ball](../../content/images/me-as-a-little-ball.png)
+
 - Only the Dénia hackers knew about this in July 2023.
 - Notably, the `@sinremite` account no longer exists. This is a very recent change, maybe in the last month or so, time of writing being May 2025.
 
