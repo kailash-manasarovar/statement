@@ -127,6 +127,20 @@
 - Remember. *Everyone* knows me in Dénia. 
 - I myself know no more than a handful of people.
 
+## Dénia populace told about a new target
+
+- I believe that, at this point, multiple people in Dénia are informed about me, photos of me are disseminated so I'll be recognized, and everyone is told that I am to be a target for gang-stalking abuse.
+- I expect my tweets, and other things, are shared on local WhatsApp groups amongst 100s maybe 1000s of people.
+- You can imagine the owners of these groups being the bravest men in the city! The men that everyone worship fervently.
+- I suspect even more private information and photos are shared with the predatory sex-addict inner sanctums, with some women being aware of this too.
+- Not only that, but I suspect that some of my tweets are forged that look like I've said horrible things I never said.
+- People I've had minor arguments with over the last 20 years are wheeled out to support the mass attack.
+- I often wonder if anyone was aware I was being drugged and filmed in my apartment, and that I had a very big problem with the lack of safeguarding of children at the conservatory.
+- It seems to me they all had to know and they really just don't care.
+- It seems that the people of Dénia are happy to sacrifice their children.
+- The sacrifice of women must be a traditional pastime, but children? It's hard to get your head around it.
+- Suffice to say, I began to feel like Edward Woodward in the Wicker Man.
+
 ## X.com
 
 - The following section lists some of the more interesting tweets from this period.
@@ -199,23 +213,63 @@
 
 [![Evil feminists](../../content/tweets/september-23-comms/only-the-drowned-witch-is-innocent.png)](https://x.com/1FRGVN/status/1701650825234231438)
 
+- I ask the online tarot to describe the relationship I'm having with the trumpet teacher.
 
-- https://x.com/1FRGVN/status/1702664165939114093
-- https://x.com/1FRGVN/status/1703041567253016887
-- https://x.com/1FRGVN/status/1703055375484760540
-- https://x.com/1FRGVN/status/1703070612367810941
-- https://x.com/1FRGVN/status/1703133615054291166
-- https://x.com/1FRGVN/status/1703159274929590346
-- https://x.com/1FRGVN/status/1703345920207716547
-- https://x.com/1FRGVN/status/1703350775798272443
-- https://x.com/1FRGVN/status/1703478090423275562
-- https://x.com/1FRGVN/status/1704267242685223174
-- https://x.com/1FRGVN/status/1706609205908476079
-- https://x.com/1FRGVN/status/1706959385883213912
-- https://x.com/1FRGVN/status/1707151247059321125
-- https://x.com/1FRGVN/status/1707672863283556809
-- https://x.com/1FRGVN/status/1707677154933129696
-- https://x.com/1FRGVN/status/1707832088605413497
+[![Strength](../../content/images/strength.jpg)](https://x.com/1FRGVN/status/1702664165939114093)
+
+- I comment on the nature of Spanish misogyny.
+
+[![Spanish misogyny](../../content/tweets/september-23-comms/comment-on-spanish-misogyny.png)](https://x.com/1FRGVN/status/1703041567253016887)
+
+- Here's a message for the pedo's who are benefitting from the outrageous behavior of teachers in Spain.
+
+[![Pedo's a message to them](../../content/tweets/september-23-comms/message-for-the-pedos.png)](https://x.com/1FRGVN/status/1703055375484760540)
+
+- A reminder for anyone supporting the obliteration of safeguarding for children at conservatories in Spain.
+
+[![What will you be remembered for](../../content/tweets/september-23-comms/a-reminder.png)](https://x.com/1FRGVN/status/1703070612367810941)
+
+- There's always the option for redemption.
+
+[![Redemption](../../content/tweets/september-23-comms/an-offer-of-redemption.png)](https://x.com/1FRGVN/status/1703133615054291166)
+
+- Someone evil and local conversing with me.
+
+[![Evil locals](../../content/tweets/september-23-comms/evil-locals.png)](https://x.com/1FRGVN/status/1703159274929590346)
+
+- I'm still talking about the child sexual abuse I suffered, and what it does to the mind, and how you always remember but it may take time.
+
+[![Abuse memories](../../content/tweets/september-23-comms/csa-memories.png)](https://x.com/1FRGVN/status/1703345920207716547)
+
+- I take the opportunity to remind everyone why I built my crypto app.
+
+[![My crypto app](../../content/tweets/september-23-comms/what-my-crypto-app-is-for.png)](https://x.com/1FRGVN/status/1703350775798272443)
+ 
+- Sexual abuse is a collective trauma and we're all in it together.
+
+[![Collective trauma](../../content/tweets/september-23-comms/collective-trauma.png)](https://x.com/1FRGVN/status/1703478090423275562)
+
+- Looking to the future when their own faeces will all hit them in the face spectacularly.
+
+[![Luck time](../../content/tweets/september-23-comms/needs-luck-now.png)](https://x.com/1FRGVN/status/1704267242685223174)
+
+- Reporting how many times I fell in love that year, and with whom.
+
+[![Falling in love](../../content/tweets/september-23-comms/falling-in-love.png)](https://x.com/1FRGVN/status/1706959385883213912)
+
+- There is so much 'teasing' (I'd call it terrorizing) by what seems to be hundreds of people, I'm reminded of a scene from Close Encounters.
+
+[![Who the hell are you people](../../content/tweets/september-23-comms/who-the-hell-are-you-people.png)](https://x.com/1FRGVN/status/1707672863283556809)
+
+- I always had my suspicions about the homeopath Ana. 
+
+[![Suspicions about the homeopath](../../content/tweets/september-23-comms/suspicious-about-the-homeopath.png)](https://x.com/1FRGVN/status/1707677154933129696)
+
+- I remind everyone from time-to-time that I have provided a way for them to ask forgiveness.
+
+[![Apologies](../../content/tweets/september-23-comms/apologies.png)](https://x.com/1FRGVN/status/1707832088605413497)
+
+
 - https://x.com/1FRGVN/status/1707862141175230874 - the table
 - https://x.com/1FRGVN/status/1707868906604417428
 
@@ -229,7 +283,32 @@
 
 ## Google search
 
-- On the `@jctot19` results, I start to see a photos of documents coming from the Generalitat Valenciana.
+- On the `@jctot19 x` results, I start to see photos of documents coming from the Generalitat Valenciana.
+
+### Table
+
+- On search results for `@1frgvn x` I'm shown multiple pictures of tables; literally every result is a table of some sort for a few days.
+- I have no idea why and puzzle over it.
+- I come up with something. 
+- I remember Domingo's mother's table at their flat in Pedreguer. 
+- He had taken me there under the pretense of the flat being for sale and showing it to me in case I wanted to buy it.
+- It was a huge table. 
+- Domingo had called it her *caprice* and he suggested his father had been furious about her purchase.
+- I tweet my assumption that the table refers to where the family meets to decide what they're going to do about me.
+
+![Tables](../../content/tweets/september-23-comms/table.png)
+
+- I'm very wrong about this.
+- In January 2024, when I buy a therapy table for the first time, I tweet about my new table and how everyone is invited for therapy on the table.
+- A post comes up: **"I'M NOT DOING THAT!"**.
+- It makes me wonder.
+- After the second or third time I see flashes of [porn of myself when I'm 16](../2024/january.md#i-see-my-naked-16-year-old-body-on-x-again) on my X feed, I remember I *had* told the police about a table in my police statement from 2015.
+- Perhaps I'm lying sedated on a table in the porn films, with a group of black men standing around me, raping me.
+
+![Baby seal](../../content/images/baby-seals.png)
+
+- If so, how do the people of Dénia know about this, and are they posting tables on my Google search results to let me know they have shared these films with everyone in the town?
+- Is this why Domingo took me to see his mother's table in Pedreguer all those years before; to see if it would trigger a trauma memory which he could use to try to control me again?
 
 ## The evil eye
 
@@ -482,10 +561,20 @@
 
 - In the first class, Nacho the clarinet teacher races in extremely angry and starts talking to the chamber music teacher.
 - I know he's trying to upset me.
+- I tweet about him (he kind of looks like an ugly Bryan Ferry).
+- I haven't seen him properly in years, apart from when he would 'bump' into me on the stairs after chamber music class on a Monday with the trumpet teacher.
+
+[![Bryan Ferry has aged](../../content/tweets/september-23-comms/bryan-ferry.png)](https://x.com/1FRGVN/status/1706609205908476079)
+
+- A cyber-stalker baits me about it, and I respond.
+
+[![Bryan Ferry terrorizing me](../../content/tweets/september-23-comms/bryan-ferry-2.png)](https://x.com/1FRGVN/status/1707151247059321125)
 
 ### Domingo tries to upset me
 
-- After one class, I'm walking away and Domingo is in the middle of the hall. He sees me and walks into a darkened room where one of his female students from Madrid, Lucia, is standing, in the dark.
+- The tweet above is in reference to Nacho and Domingo.
+- After the chamber music class where Nacho comes in furious (remember I'm triggered by angry men as I described in my police statement about pedophiles), I'm walking out of class and Domingo is in the middle of the hall.
+- He sees me and walks into a darkened room where one of his female students from Madrid, Lucia, is standing, in the dark.
 
 ## Harmony classes
 
