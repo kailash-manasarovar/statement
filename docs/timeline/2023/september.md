@@ -187,12 +187,19 @@
 
 [![God](../../content/tweets/september-23-comms/reminding-them-its-god.png)](https://x.com/1FRGVN/status/1700562410250055698)
 
+- I tell them about the true romance in this story, often.
 
-- https://x.com/1FRGVN/status/1700565018176102801
-- https://x.com/1FRGVN/status/1700601251551912422
-- https://x.com/1FRGVN/status/1701137529263493157
-- https://x.com/1FRGVN/status/1701650825234231438
-- https://x.com/1FRGVN/status/1702646805089948059 - taoist sexual practice
+[![Romance with God](../../content/tweets/september-23-comms/romance-with-God.png)](https://x.com/1FRGVN/status/1700565018176102801)
+
+- I tell them what I think about the brutes, as often as possible.
+
+[![Violent men](../../content/tweets/september-23-comms/what-i-think-about-the-violent-men.png)](https://x.com/1FRGVN/status/1700601251551912422)
+
+- A commentary on the worst misogynists of all: feminists.
+
+[![Evil feminists](../../content/tweets/september-23-comms/only-the-drowned-witch-is-innocent.png)](https://x.com/1FRGVN/status/1701650825234231438)
+
+
 - https://x.com/1FRGVN/status/1702664165939114093
 - https://x.com/1FRGVN/status/1703041567253016887
 - https://x.com/1FRGVN/status/1703055375484760540
@@ -255,6 +262,20 @@
 - She's doing it on purpose.
 - On one occasion she is sitting outside a shop I come out from next to a man resembling the trumpet teacher.
 - It frightens me.
+
+## Sexual arousal
+
+- I find myself overwhelmed with sexual arousal again, usually while I'm sitting in my flat using the laptop and after I've just made some tea.
+- I believe it is because I'm in love with the trumpet teacher who I believe is one man (not three - but the only one I really love).
+- I masturbate at home, sometimes in the bathroom.
+- On Google search, I see references to porn with photos that remind me of myself masturbating.
+- It's disturbing and I'm shocked.
+- I don't know people are watching my every move at home; so I wonder if they maybe heard me through my mobile.
+- I tweet about how I am doing a taoist sexual practice at home in an attempt to justify the masturbating noises, or whatever it was that made them know I was masturbating at home.
+
+[![Taoist sexual practices](../../content/tweets/september-23-comms/taoist-sexual-practices.png)](https://x.com/1FRGVN/status/1702646805089948059)
+
+- This is something I used to practice years before, in 2005 (haha you missed that!).
 
 ## Problem with the car washer
 
