@@ -73,7 +73,7 @@
 - So, although I was safer in some respects, I was in more danger in others.
 - Some new followers have [profile pics of the faces of teachers and staff](../../crimes/protagonists.md) at the conservatory of Dénia.
 - From this moment onwards, the English language of the stalker accounts becomes fluent, native, and vernacular. 
-- In retrospect, I'm convinced this is when Hazel Smith, her family, and her local English-speaking associates, such as [Patricia and Christine](../2022/november.md#walking-in-benijembla-with-the-english-ladies), step in.
+- In retrospect, I'm convinced this is when [Hazel Smith](../early-years/2007.md#hazel-smith), her family, and her local English-speaking associates, such as [Patricia and Christine](../2022/november.md#walking-in-benijembla-with-the-english-ladies), step in.
 - I guess many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
 - In September 2023, however, I have no idea Hazel and Sandra Smith are involved, and have been involved in the story since 2006. This key to the story starts to come out in a rather curious way about a month later.
 - At the time, I believe the wild interest on my *tweet-for-help* and the sudden 1000s of followers I gained were mostly genuine. 
@@ -118,7 +118,7 @@
 - I guess they were just doing what they were told, like *good* women do, and were believed by everyone else.
 
 !!! important "Full disclosure"
-    - You can read the full DM I refer to above here: todo:
+    - Contact me for full access to any emails, letters, documents, etc.
 
 - I continue to send Raquel updates, including copies of police statements.
 - She ignores me.
@@ -133,17 +133,34 @@
 
 ### `@1frgvn`
 
-- https://x.com/1FRGVN/status/1698221547654140194
-- https://x.com/1FRGVN/status/1698090627513143314
-- https://x.com/1FRGVN/status/1698122498506633256
-- https://x.com/1FRGVN/status/1698128441587986695
-- https://x.com/1FRGVN/status/1698130639751348474
-- https://x.com/1FRGVN/status/1698220957368725524
-- https://x.com/1FRGVN/status/1698242524786167834
-- https://x.com/1FRGVN/status/1698243011077915035
-- https://x.com/1FRGVN/status/1698586936363843958
-- https://x.com/1FRGVN/status/1698607627582746894
-- https://x.com/1FRGVN/status/1698643045506310256
+[![You know it's God](../../content/tweets/september-23-comms/you-know-its-god.png)](https://x.com/1FRGVN/status/1698090627513143314)
+
+- This is a report on the times I saw the trumpet teacher in the Peugeot. Once, on [June 11th](june.md#sunday-11th-june) and again later in the month with the [doctor at the beach](june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me).
+
+[![Bashed up 2-door Peugeot](../../content/tweets/september-23-comms/bashed-up-2-door.png)](https://x.com/1FRGVN/status/1698220957368725524)
+
+- Given I'm being discredited massively, I try to defend myself a little.
+
+[![Police checks](../../content/tweets/september-23-comms/police-checks.png)](https://x.com/1FRGVN/status/1698130639751348474)
+
+- I'm sure another crucifixion is coming up, just like my first on [12th June 2023](june.md#monday-12th-june-2023). My consequent resurrection is encouraging to me, I must say.
+
+[![Second crucifixion fears](../../content/tweets/september-23-comms/second-crucifixion-fears.png)](https://x.com/1FRGVN/status/1698242524786167834)
+
+- I remain astounded at the behavior of teachers and staff at the conservatory.
+
+[![Amazement at their evil](../../content/tweets/september-23-comms/amazement-at-behavior.png)](https://x.com/1FRGVN/status/1698243011077915035)
+
+- The online support I received was miraculous and my stress levels came down and my nervous system had a short time to repair.
+
+[![Online support](../../content/tweets/september-23-comms/a-short-rest.png)](https://x.com/1FRGVN/status/1698586936363843958)
+
+- I continue to try and explain what's been going on and why I'm scared. It's only over a year later I start to realize I've been subject to some kind of manipulating hypno-tech used by criminals, terrorists, pornographers, pimps, and honey-trappers which is often reinforced with drugs.
+
+[![Trying to explain myself](../../content/tweets/september-23-comms/non-specific-terror.png)](https://x.com/1FRGVN/status/1698607627582746894)
+
+ 
+
 - https://x.com/1FRGVN/status/1698679791346417766
 - https://x.com/1FRGVN/status/1698894244272837094
 - https://x.com/1FRGVN/status/1699140253892632656
@@ -188,6 +205,17 @@
 ## Google search
 
 - On the `@jctot19` results, I start to see a photos of documents coming from the Generalitat Valenciana.
+
+## The evil eye
+
+- On Monday 4th September, I go to the supermarket, Mercadona, five minutes walk from my house.
+- A car pulls up alongside me and drives slowly, the driver and the passenger, a man and a woman glaring at me angrily.
+- I tweet about it.
+
+[![The evil eye](../../content/tweets/september-23-comms/the-evil-eye.png)](https://x.com/1FRGVN/status/1698643045506310256)
+
+- This is the beginning of a *new normal* for me.
+- I experience similar activity from random people I don't know every time I leave my house from this moment until I leave the town with my toxic belongings in February 2025.
 
 ## Rosa in town
 
