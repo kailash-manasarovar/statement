@@ -167,14 +167,27 @@
 
 [![Contacting feminist organizations in Spain](../../content/tweets/september-23-comms/major-feminist-groups-in-spain.png)](https://x.com/1FRGVN/status/1698894244272837094)
 
+- I deliberate with new X contacts how the hackers got into my devices.
+
+[![Hackers got in on the hotel network](../../content/tweets/september-23-comms/deliberations.png)](https://x.com/1FRGVN/status/1699358345814061079)
+
+- I continue to wind-up my stalkers.
+
+[![Winding up the stalkers](../../content/tweets/september-23-comms/winding-them-up.png)](https://x.com/1FRGVN/status/1699700177223766346)
+
+- On 7th September I report the fight within me again (in reply to a stalker account).
+
+[![The fight is in me](../../content/tweets/september-23-comms/the-fight-is-in-me-again.png)](https://x.com/1FRGVN/status/1699776148635516933)
+
+- Wondering why these men are so unwell.
+
+[![Really very sick men](../../content/tweets/september-23-comms/mras.png)](https://x.com/1FRGVN/status/1700184266452169193)
+
+- I often take the opportunity to remind these people that God's in control of it all.
+
+[![God](../../content/tweets/september-23-comms/reminding-them-its-god.png)](https://x.com/1FRGVN/status/1700562410250055698)
 
 
-- 
-- https://x.com/1FRGVN/status/1699358345814061079
-- https://x.com/1FRGVN/status/1699700177223766346
-- https://x.com/1FRGVN/status/1699776148635516933
-- https://x.com/1FRGVN/status/1700184266452169193
-- https://x.com/1FRGVN/status/1700562410250055698
 - https://x.com/1FRGVN/status/1700565018176102801
 - https://x.com/1FRGVN/status/1700601251551912422
 - https://x.com/1FRGVN/status/1701137529263493157
