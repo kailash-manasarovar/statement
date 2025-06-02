@@ -159,12 +159,17 @@
 
 [![Trying to explain myself](../../content/tweets/september-23-comms/non-specific-terror.png)](https://x.com/1FRGVN/status/1698607627582746894)
 
- 
+- It's hard to understand why feminists would dismiss me unilaterally.
 
-- https://x.com/1FRGVN/status/1698679791346417766
-- https://x.com/1FRGVN/status/1698894244272837094
-- https://x.com/1FRGVN/status/1699140253892632656
-- https://x.com/1FRGVN/status/1699346455109030341
+[![Dismissive feminists](../../content/tweets/september-23-comms/trying-to-understand-feminists.png)](https://x.com/1FRGVN/status/1698679791346417766)
+
+- Someone wants to know why I hadn't contacted the major feminist organizations in Spain. It wouldn't have been worth the upset at the time. Eventually I did and I was unilaterally ignored by everyone, even when I was telling them I was being poisoned. No-one, including police, wanted to know.
+
+[![Contacting feminist organizations in Spain](../../content/tweets/september-23-comms/major-feminist-groups-in-spain.png)](https://x.com/1FRGVN/status/1698894244272837094)
+
+
+
+- 
 - https://x.com/1FRGVN/status/1699358345814061079
 - https://x.com/1FRGVN/status/1699700177223766346
 - https://x.com/1FRGVN/status/1699776148635516933
@@ -217,6 +222,20 @@
 - This is the beginning of a *new normal* for me.
 - I experience similar activity from random people I don't know every time I leave my house from this moment until I leave the town with my toxic belongings in February 2025.
 
+## A hacker takes control of my mobile phone
+
+- The following few days after I arrive home, I notice men outside my apartment on the street hanging around fiddling with handheld devices.
+- I believe they are accessing my network somehow.
+- On Wednesday 6th September, I am talking with my friend - a Tibetan monk - on my mobile phone through WhatsApp. 
+- I'm explaining to him what's been going on and how scared I am, and he suggests he comes to visit me.
+- I say yes, please do come.
+- At that moment, I lose control of my mobile phone completely. Every key I press, does something entirely different. The whole screen is scrambled.
+
+[![My mobile is hacked](../../content/tweets/september-23-comms/mobile-hacked.png)](https://x.com/1FRGVN/status/1699346455109030341)
+
+- I turn off the router and regain immediate control of my phone.
+- I believe the activity outside my house was to *get me to think* that hackers are external to my network, when in reality they gained access to my devices directly through the router, with Mac spoofing or similar, using information known only to either the telecommunications company, Telco, or the ISP itself, which at that time was Yoigo.
+
 ## Rosa in town
 
 - Whenever I walk into Dénia, I see Rosa Vidal, Director of the Conservatory of Dénia, who often nearly bumps into me but never says hello or acknowledges me.
@@ -250,17 +269,6 @@
 - I wonder if that's happened before. I wonder if that's why there is a specific clause about me dying in the apartment in my tenancy agreement. 
 - Could the people of Dénia be that evil?
 - I believe any of the caretakers at Carrer Furs 13-15 will be able to tell the police how criminals have been able to add poison and narcotics to the water running into my apartment.
-
-## Men outside with handheld devices
-
-- The following few days after I arrive home, I notice men outside on the street hanging around with handheld devices.
-- I believe they are accessing my network somehow, using these devices.
-- I am talking with my friend on my mobile phone through WhatsApp calls, a Tibetan monk. I'm explaining to him what's going on, and he suggests he comes to visit me.
-- I say yes, please do come.
-- At that moment, I lose control of my mobile phone completely. Every key I press, does something entirely different. The whole screen is scrambled.
-- I tweet about it later: https://x.com/1FRGVN/status/1699346455109030341.
-- I turn off the router and get immediate control of my phone again.
-- I believe now they wanted me to think that the hackers are external players when in reality access was gained directly from the router via Mac spoofing with information only known to either the telecommunications company, Telco, or the ISP itself, which at that time was Yoigo.
 
 ## A man I recognize
 
@@ -504,7 +512,6 @@ Many of these tweets are confirmation of what has been going on.
 - https://x.com/1FRGVN/status/1702316838892515440 -> popular tweet with the translators.
 - https://x.com/1FRGVN/status/1699700177223766346 -> well translated, interactions with stalker accounts.
 - https://x.com/1FRGVN/status/1699358345814061079 -> this is what I had assumed, but I was wrong.
-- https://x.com/1FRGVN/status/1699346455109030341 -> Tweet about them [taking control of my phone](#men-outside-with-handheld-devices).
 - https://x.com/1FRGVN/status/1698894244272837094
 - https://x.com/1FRGVN/status/1698755956253888965 -> many people thought I was making it all up. Spanish feminists, in particular, thought I wasn't worth supporting. The following May in Madrid, one of them will tell me that they thought I was a domestic violence sufferer and, therefore, unpredictable! I kid you not.
 - https://x.com/1FRGVN/status/1698762074258641194
