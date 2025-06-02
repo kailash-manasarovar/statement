@@ -269,9 +269,9 @@
 
 [![Apologies](../../content/tweets/september-23-comms/apologies.png)](https://x.com/1FRGVN/status/1707832088605413497)
 
+- I'm not the only woman who is discredited when she goes public.
 
-- https://x.com/1FRGVN/status/1707862141175230874 - the table
-- https://x.com/1FRGVN/status/1707868906604417428
+[![Another GC discredited](../../content/tweets/september-23-comms/woman-with-the-same-experience.png)](https://x.com/1FRGVN/status/1707868906604417428)
 
 ### `@jackchardwood`
 
@@ -296,7 +296,7 @@
 - Domingo had called it her *caprice* and he suggested his father had been furious about her purchase.
 - I tweet my assumption that the table refers to where the family meets to decide what they're going to do about me.
 
-![Tables](../../content/tweets/september-23-comms/table.png)
+[![Tables](../../content/tweets/september-23-comms/table.png)](https://x.com/1FRGVN/status/1707862141175230874)
 
 - I'm very wrong about this.
 - In January 2024, when I buy a therapy table for the first time, I tweet about my new table and how everyone is invited for therapy on the table.
