@@ -283,7 +283,7 @@
 
 ## Google search
 
-- On the `@jctot19 x` results, I start to see photos of documents coming from the Generalitat Valenciana.
+- On the `@jctot19 x` results, I see multiple photos of documents with the letterhead of the Generalitat Valenciana.
 
 ### Table
 
