@@ -339,9 +339,12 @@
 ### Devastated parents 
 
 - Nevertheless, I set off for the conservatory.
-- I pop into the church again on the Carrer Loreto.
+- I pop into the church again just off the Carrer Loreto.
+
+![Church](../../content/images/church-narcis.jpg)
+
 - A couple prays together at the front of the church, crying softly.
-- They carry a picture of a young girl; a daughter they lost maybe.
+- They carry a picture of a young girl; a daughter they lost to the sex-slave industry, maybe?
 
 ![Devastated parents](../../content/images/devastated-parents-2.png)
 
