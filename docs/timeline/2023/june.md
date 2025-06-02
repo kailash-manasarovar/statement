@@ -191,6 +191,9 @@
 - I'm extraordinarily tense before class. 
 - On my way into town to the conservatory, I decide to take a detour.
 - I walk towards the Carrer Loreto and pop into the [chapel there](https://www.google.com/maps/place/Iglesia+Agustinas+Recoletas,+Denia/@38.8404519,0.1035054,19z/data=!4m15!1m8!3m7!1s0x129e1b22919b9785:0xcd3bcc58c432965f!2sC%2F+de+Loreto,+03700+D%C3%A9nia,+Alacant,+Spain!3b1!8m2!3d38.8404519!4d0.1044442!16s%2Fg%2F1w3swvhw!3m5!1s0x129e1b2297b6860d:0xeba2d1d681469aaa!8m2!3d38.8404811!4d0.1039396!16s%2Fg%2F12qf4wb9n?entry=ttu&g_ep=EgoyMDI1MDQzMC4xIKXMDSoASAFQAw%3D%3D) to ask Mary for guidance and blessings.
+
+![Church](../../content/images/church-narcis.jpg)
+
 - The church is empty apart from a couple in their sixties sitting at the front near the altar.
 - They have a portrait of a young girl with them.
 - They are crying.
@@ -230,8 +233,9 @@
 ![Carrie Stephen King](../../content/images/carrie-2.jpg)
 
 - I still have the ruined silk t-shirt with the stains on it.
-- As I walk home, I "bump" into Mercedes who I realize was waiting for me to walk the other way I go sometimes, the way she would have been more familiar with me going, and when she realized I'd gone a different way, she'd had to run. This poor woman in her 70s was totally out of breath and trying to style it out. It was actually rather amusing.
+- I "bump" into Mercedes who I realize was waiting for me to walk the other way I go sometimes, the way she would have been more familiar with me going, and when she realized I'd gone a different way, she'd had to run. This poor woman in her 70s was totally out of breath and trying to style it out. It was actually rather amusing.
 - She was checking my face to see if I was crying. Perhaps she was recording it too.
+- Continuing up the Carrer La Mar, a car beeps at me. I hear my name called. I continue on.
 - I got home and went onto X and tweeted something like *"well that was a crappy ending wasn't it"*.
 - Suddenly, a huge number of people start to retweet my post and I discover I'm on a list of around 30 people and they're all laughing and jeering about what's happened.
 - I block the list owner and delete all my tweets from the last six months that were related to everything that had been going on at the conservatory.
