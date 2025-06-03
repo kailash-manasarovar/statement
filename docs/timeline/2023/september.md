@@ -300,7 +300,7 @@ function googleTranslateElementInit() {
 
 [![Pheromone sprays](../../content/tweets/september-23-comms/pheremone-sprays.png)](https://x.com/JackChardwood/status/1703852065674473833)
 
-- I call the hacker "donnie boy" after the Donatello character I keep seeing pop up on my X feed which is clearly meant to be him. This tweet is again a job offer and concerns [Smurf cat](#smurf-cat), an extraordinary admission I'm being watched, followed, stalked and obsessed over online by countless people in the town.
+- I call the hacker "donnie boy" after the Donatello character I keep seeing pop up on my X feed which is clearly meant to be him. This tweet is another job offer and concerns [Smurf cat](#smurf-cat), an extraordinary online admission that I'm being watched, followed, stalked and obsessed over online by countless people in the town.
 
 [![Smurf cat](../../content/tweets/september-23-comms/smurf-cat.png)](https://x.com/JackChardwood/status/1704386000493887568)
 
@@ -308,7 +308,7 @@ function googleTranslateElementInit() {
 
 [![All expenses paid trip](../../content/tweets/september-23-comms/all-expenses-paid-trip.png)](https://x.com/JackChardwood/status/1708197553483763859)
 
-- I suspect they may have taken me up on it had so much time not passed, and because it was obvious I could tell the difference between the man I loved, and [the man who intended to do me extraordinary harm](june.md#sunday-18th-june-alicante-airport), even if they had set it up for me to believe two people were the same.
+- I suspect they may have taken me up on it had so much time not passed, and because it was obvious I could tell the difference between the man I loved, and [the man who intended to do me extraordinary harm](june.md#sunday-18th-june-alicante-airport), even if they had set it up for me to believe these two people were the same.
 
 - It seems to me their main targets must usually be young and innocent, without a whole life of experience behind them, a turbo-powered empathy, and a rock-solid spiritual practice.
 
