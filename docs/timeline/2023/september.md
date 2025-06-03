@@ -288,11 +288,29 @@ function googleTranslateElementInit() {
 
 ### `@jackchardwood`
 
-- https://x.com/JackChardwood/status/1697527520285855934 Good luck getting paid.
-- https://x.com/JackChardwood/status/1703690515248468410 more job offers.
-- https://x.com/JackChardwood/status/1703852065674473833 pheromone sprays (trying to understand where it came from, starting to see through the trick)
-- https://x.com/JackChardwood/status/1704386000493887568 smurf cat
-- https://x.com/JackChardwood/status/1708197553483763859 all expenses paid trip to Ireland, read by all the teachers and used against me
+- I wish the hacker "Good luck getting paid". My experience with Domingo in 2015 was that he was extraordinarily tight-fisted. On our trip to London, he had done everything to avoid paying a 6 Euro toll on the road. I imagined anyone hired by him would struggle getting paid, and whoever it was was clearly a professional.
+
+[![Good luck getting paid](../../content/tweets/september-23-comms/good-luck-getting-paid.png)](https://x.com/JackChardwood/status/1697527520285855934)
+
+- I tweet more job offers for the [forgivenet](https://1frgvn.com/).
+
+[![More job offers](../../content/tweets/september-23-comms/more-job-offers.png)](https://x.com/JackChardwood/status/1703690515248468410)
+
+- I'm clearly starting to realize something wasn't right about the overwhelming sexual arousal I felt in chamber music class. I can't put my finger on it precisely, but I'm thinking about it and I'm starting to see through the deception.
+
+[![Pheromone sprays](../../content/tweets/september-23-comms/pheremone-sprays.png)](https://x.com/JackChardwood/status/1703852065674473833)
+
+- I call the hacker "donnie boy" after the Donatello character I keep seeing pop up on my UI which is clearly meant to be him. This tweet is again a job offer and concerns [Smurf cat](#smurf-cat), an extraordinary admission I'm being watched, followed, stalked and obsessed over online by countless people in the town.
+
+[![Smurf cat](../../content/tweets/september-23-comms/smurf-cat.png)](https://x.com/JackChardwood/status/1704386000493887568)
+
+- This tweet is offering an all expenses paid trip to the trumpet teacher. I'm reminded about this constantly at the conservatory by teachers, staff, and students, as if it is something to be embarrassed about.
+
+[![All expenses paid trip](../../content/tweets/september-23-comms/all-expenses-paid-trip.png)](https://x.com/JackChardwood/status/1708197553483763859)
+
+- I suspect they may have taken me up on it had so much time not passed, and because it was obvious I could tell the difference between the man I loved, and [the man who intended to do me extraordinary harm](june.md#sunday-18th-june-alicante-airport), even if they had set it up for me to believe two people were the same.
+
+- It seems to me their main targets must usually be young and innocent, without a whole life of experience behind them, a turbo-powered empathy, and a rock-solid spiritual practice.
 
 ## Google search
 
