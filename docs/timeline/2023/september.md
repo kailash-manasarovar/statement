@@ -144,7 +144,7 @@ function googleTranslateElementInit() {
 - It's possible that [child rape porn with me in it](#table) has also been shared with the townsfolk. This could very well explain the fear and loathing, and utter contempt offered me from nearly everyone I meet.
 - You can imagine the owners of these WhatsApp groups being the bravest men in the city! The men that everyone worships fervently.
 - I suspect that even more private information and photos of me are shared with the predatory sex-addict inner sanctums, with some local women being aware of this too.
-- Not only that, but I suspect that some of my tweets are forged that look like I've said horrible things I never said.
+- Not only that, but I suspect that some of my tweets are forged to look like I've said horrible things I never said.
 - People I've had minor arguments with over the last 20 years are wheeled out to support the mass attack.
 - I often wonder if anyone was aware I was being drugged and filmed in my apartment, and that I had a very big problem with the lack of child safeguarding at the conservatory.
 - It seems to me they all had to know and they really just don't care.
