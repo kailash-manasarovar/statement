@@ -150,7 +150,7 @@ function googleTranslateElementInit() {
 - It seems to me they all had to know and they really just don't care.
 - It seems that the people of Dénia are happy to sacrifice their children.
 - The sacrifice of women must be a traditional pastime, but children? It's hard to get your head around it.
-- Suffice to say, I began to feel like Edward Woodward in the Wicker Man.
+- Suffice to say, I begin to feel like Edward Woodward in the Wicker Man.
 
 ![Wicker Woman](../../content/images/wicker-woman.png)
 
