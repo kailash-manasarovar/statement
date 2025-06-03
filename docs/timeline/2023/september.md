@@ -194,7 +194,7 @@ function googleTranslateElementInit() {
 
 [![Contacting feminist organizations in Spain](../../content/tweets/september-23-comms/major-feminist-groups-in-spain.png)](https://x.com/1FRGVN/status/1698894244272837094)
 
-- I deliberate with new X contacts how the hackers got into my devices.
+- I deliberate with new X contacts about how the hackers got into my devices.
 
 [![Hackers got in on the hotel network](../../content/tweets/september-23-comms/deliberations.png)](https://x.com/1FRGVN/status/1699358345814061079)
 
@@ -226,7 +226,7 @@ function googleTranslateElementInit() {
 
 [![Evil feminists](../../content/tweets/september-23-comms/only-the-drowned-witch-is-innocent.png)](https://x.com/1FRGVN/status/1701650825234231438)
 
-- I ask the online tarot to describe the relationship I'm having with the trumpet teacher.
+- I ask the online tarot to describe the relationship I'm having with the trumpet teacher and tweet and post this pic regularly on my X profile.
 
 [![Strength](../../content/images/strength.jpg)](https://x.com/1FRGVN/status/1702664165939114093)
 
@@ -246,7 +246,7 @@ function googleTranslateElementInit() {
 
 [![Redemption](../../content/tweets/september-23-comms/an-offer-of-redemption.png)](https://x.com/1FRGVN/status/1703133615054291166)
 
-- Someone evil and local conversing with me.
+- Someone evil and local conversing with me; checking to see if I'm aware of how stalked I am, I guess, and whether it affects my honesty and integrity maybe.
 
 [![Evil locals](../../content/tweets/september-23-comms/evil-locals.png)](https://x.com/1FRGVN/status/1703159274929590346)
 
@@ -304,7 +304,7 @@ function googleTranslateElementInit() {
 
 - On search results for `@1frgvn x` I'm shown multiple pictures of tables; literally every result is a table of some sort for a few days.
 - I mention this in the [Carmen](july.md#carmen) section from July where I talk about the `@sinremite` account.
-- The same thing happens with [sinks in April 2024](../2024/april.md#let-that-sink-in), i.e. *let that sink in*, when I fear for my life and leave my studies after the most [outrageous psychological assault involving my murdered friend](../2024/march.md#tuesday-12th-march). Then again in April 2025 when I only see photos of refrigerators and show my mother.
+- The same thing happens with [sinks in April 2024](../2024/april.md#let-that-sink-in), i.e. *let that sink in*, when I fear for my life and leave my studies after the most [outrageous psychological assault involving someone dressing up as my murdered friend](../2024/march.md#tuesday-12th-march). Then again in April 2025 when I only see photos of refrigerators and show my mother.
 - I have no idea why and puzzle over it.
 - I come up with something. 
 - I remember Domingo's mother's table at their flat in Pedreguer. 
