@@ -288,7 +288,7 @@ function googleTranslateElementInit() {
 
 ### `@jackchardwood`
 
-- I wish the hacker "Good luck getting paid". My experience with Domingo in 2015 was that he was extraordinarily tight-fisted. On our trip to London, he had done everything to avoid paying a 6 Euro toll on the road. I imagined anyone hired by him would struggle getting paid, and whoever it was was clearly a professional.
+- I wish the hacker "Good luck getting paid". My experience with Domingo in 2015 was that he was extraordinarily tight-fisted. On our trip to London, he had done everything to avoid paying a 6 Euro toll on the road - I had paid the other one. I imagined anyone hired by him would struggle getting paid, and whoever it was was clearly a professional.
 
 [![Good luck getting paid](../../content/tweets/september-23-comms/good-luck-getting-paid.png)](https://x.com/JackChardwood/status/1697527520285855934)
 
@@ -300,7 +300,7 @@ function googleTranslateElementInit() {
 
 [![Pheromone sprays](../../content/tweets/september-23-comms/pheremone-sprays.png)](https://x.com/JackChardwood/status/1703852065674473833)
 
-- I call the hacker "donnie boy" after the Donatello character I keep seeing pop up on my UI which is clearly meant to be him. This tweet is again a job offer and concerns [Smurf cat](#smurf-cat), an extraordinary admission I'm being watched, followed, stalked and obsessed over online by countless people in the town.
+- I call the hacker "donnie boy" after the Donatello character I keep seeing pop up on my X feed which is clearly meant to be him. This tweet is again a job offer and concerns [Smurf cat](#smurf-cat), an extraordinary admission I'm being watched, followed, stalked and obsessed over online by countless people in the town.
 
 [![Smurf cat](../../content/tweets/september-23-comms/smurf-cat.png)](https://x.com/JackChardwood/status/1704386000493887568)
 
