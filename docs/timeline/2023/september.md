@@ -77,18 +77,18 @@ function googleTranslateElementInit() {
 
 ### New followers 
 
-- A great many of these new follower accounts are fake accounts managed by the cyber-stalking criminals.
+- A great many of these new follower accounts are fake accounts managed by cyber-stalking criminals.
 - So, although I was safer in some respects, I was in more danger in others.
-- Some new followers have [profile pics of the faces of teachers and staff](../../crimes/protagonists.md) at the conservatory of Dénia.
+- Some of my new followers have [profile pics of the faces of teachers and staff](../../crimes/protagonists.md) at the conservatory of Dénia.
 - From this moment onwards, the English language of the stalker accounts becomes fluent, native, and vernacular. 
-- In retrospect, I'm convinced this is when [Hazel Smith](../early-years/2007.md#hazel-smith), her family, and her local English-speaking associates, such as [Patricia and Christine](../2022/november.md#walking-in-benijembla-with-the-english-ladies), step in.
+- In retrospect, I'm convinced this is when [Hazel Smith](../early-years/2007.md#hazel-smith), her family, the wider British gang membership, and her local English-speaking associates, such as [Patricia and Christine](../2022/november.md#walking-in-benijembla-with-the-english-ladies), step in.
 - I guess many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
-- In September 2023, however, I have no idea Hazel and Sandra Smith are involved, and have been involved in the story since 2006. This key to the story starts to come out in a rather curious way about a month later.
+- In September 2023, however, I have no idea Hazel and Sandra Smith are involved, and have been involved in the story since [2006](../early-years/2006.md#september). This key to the story starts to come out in a rather curious way about a month later.
 - At the time, I believe the wild interest on my *tweet-for-help* and the sudden 1000s of followers I gained were mostly genuine. 
 
 ## Immature boy, bad companions, or both?
 
-- When I get home on Sunday 3rd at around 5pm, an account has followed me, **kaka**.
+- When I finally arrive home to Carrer Furs 15 on Sunday 3rd at around 5pm, one more fake account has followed my `@jackchardwood` X account: **kaka**.
 
 ![Admission of guilt](../../content/images/admission%20of%20guilt.png)
 
@@ -104,9 +104,9 @@ function googleTranslateElementInit() {
 
 ## Shunned by international feminists
 
-- Well known feminists reach out to me to see if they can help.
+- Well known feminists reach out to me on X to see if they can help.
 - I cannot be clear with them about what the Dénia hackers are going to do because it is all suggestions from ramped up threats online.
-- I explain I've been terrorized for nearly a year by teachers and staff at the conservatory, and relentlessly online too.
+- I explain I've been terrorized for nearly a year by teachers and staff at the conservatory, and had been relentlessly harassed and stalked online too.
 - They decide unilaterally I'm lying and that I'm not to be trusted.
 - One woman upsets me enormously by telling me, "you're not being hacked", as if it's all in my mind. She then tells me I'm lying and I should get help! 
 - This was extraordinarily triggering and so unbelievable I started to think that the woman I was talking to was not who she said she was. 
@@ -119,36 +119,40 @@ function googleTranslateElementInit() {
 
 ![Curious ironies](../../content/tweets/september-23-comms/curious-ironies.png)
 
-- I will meet some of the Spanish feminists who were involved in discrediting me in [April 2024 in Madrid](../2024/may.md#madrid) when I tell my story at Let Women Speak.
-- I'm told that people thought I was an unbalanced, domestic-violence victim and for that reason my request for help was ignored and I was discredited.
+- I will meet some of the Spanish feminists who were involved in discrediting me in [April 2024 in Madrid](../2024/may.md#madrid) when I tell my story at [Let Women Speak](https://www.youtube.com/watch?v=l9X6o11IwBc).
+- I'm told that people thought/were told I was an unbalanced, domestic-violence victim and for that reason my request for help was ignored and I was discredited.
 - I'm agog!!
-- I'm told more recently that some of those feminists have links to Spanish misogynist networks that would have been extremely keen to keep what's been going on in Dénia, and no doubt elsewhere, very quiet.
+- I find out recently that some of those feminists have links to Spanish misogynist networks that would have been extremely keen to keep what's been going on in Dénia, and no doubt elsewhere, very quiet.
 - I guess they were just doing what they were told, like *good* women do, and were believed by everyone else.
 
 !!! important "Full disclosure"
     - Contact me for full access to any emails, letters, documents, etc.
 
-- I continue to send Raquel updates, including copies of police statements.
-- She ignores me.
-- It seems to me that the possibility of a lone woman being terrorized by a whole town is common knowledge in Spain, accepted and protected, just normal daily events for a deeply misogynist culture.
-- Protecting the gangs might have worked well prior to the porn-epidemic with growing pedophilia requirements alongside the mass access to home networks of unsuspecting victims.
+- I continue to send the Raquel account updates, including copies of police statements.
+- I'm ignored.
+- It seems to me that the possibility of a lone woman being terrorized by a whole town is common knowledge in Spain, accepted and protected; just normal daily events for a deeply misogynist culture.
+- Protecting the gangs might have worked well for women prior to the porn-epidemic with growing pedophilia requirements alongside the mass access to home networks of unsuspecting victims.
 - Remember. *Everyone* knows me in Dénia. 
-- I myself know no more than a handful of people.
+- I myself know hardly anyone.
 
-## The Dénia townsfolk are told about a new target
+## Dénia townsfolk are informed of their latest female target, me
 
-- I believe that, at this point, multiple people in Dénia are informed about me, photos of me are disseminated so I'll be recognized, and everyone is told that I am to be a target for gang-stalking abuse.
-- I expect my tweets, and other things, are shared on local WhatsApp groups amongst 100s maybe 1000s of people.
-- It's possible that [child rape porn with me in it](#table) has also been shared with the townsfolk. That could very well explain the utter contempt, fear and loathing towards me from nearly everyone I meet.
-- You can imagine the owners of these groups being the bravest men in the city! The men that everyone worship fervently.
-- I suspect even more private information and photos are shared with the predatory sex-addict inner sanctums, with some women being aware of this too.
+- I believe that, at this point, and given I went to practice immediately at the conservatory after arriving home, multiple people in Dénia are informed about me, photos of me are disseminated so I'll be recognized, and everyone is told that I am their next target for relentless gang-stalking, cyber-stalking, gender-violence and abuse.
+- I can only assume that my total destruction is the town's intention.
+- My location and whereabouts, coming from my hacked mobile phone, is also shared.
+- I expect all this information, including my tweets, is posted on local WhatsApp groups amongst 100s maybe 1000s of people.
+- It's possible that [child rape porn with me in it](#table) has also been shared with the townsfolk. This could very well explain the fear and loathing, and utter contempt offered me from nearly everyone I meet.
+- You can imagine the owners of these WhatsApp groups being the bravest men in the city! The men that everyone worships fervently.
+- I suspect that even more private information and photos of me are shared with the predatory sex-addict inner sanctums, with some local women being aware of this too.
 - Not only that, but I suspect that some of my tweets are forged that look like I've said horrible things I never said.
 - People I've had minor arguments with over the last 20 years are wheeled out to support the mass attack.
-- I often wonder if anyone was aware I was being drugged and filmed in my apartment, and that I had a very big problem with the lack of safeguarding of children at the conservatory.
+- I often wonder if anyone was aware I was being drugged and filmed in my apartment, and that I had a very big problem with the lack of child safeguarding at the conservatory.
 - It seems to me they all had to know and they really just don't care.
 - It seems that the people of Dénia are happy to sacrifice their children.
 - The sacrifice of women must be a traditional pastime, but children? It's hard to get your head around it.
 - Suffice to say, I began to feel like Edward Woodward in the Wicker Man.
+
+![Wicker Woman](../../content/images/wicker-woman.png)
 
 ## X.com
 
