@@ -469,9 +469,12 @@ function googleTranslateElementInit() {
 ![Pedro paints the gate](../../content/images/pedro-paints-the-gate.png)
 
 - It's really embarrassing the way Pedro is looking at her, he's ogling her like a pervert, in a most exaggerated way.
+- I would not be at all surprised if she complained, and that had something to do with why he was fired.
 - I tweet about this at some point (I'll find the tweet soon).
 - I now wonder if this is not the only manner in which he has been ogling her.
 - Are all the rental flats in the building on the Carrer Furs wired up for spy-cam porn, I wonder?
+- Does Pedro know everything that's going on in Carrer Furs? 
+- Is that why he was so keen to get me alone with him, and tampered with my car to make me believe there was a problem?
 
 ## The water pipes
 
