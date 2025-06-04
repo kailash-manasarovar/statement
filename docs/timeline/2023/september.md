@@ -442,7 +442,7 @@ function googleTranslateElementInit() {
 - I had asked Christine because I was convinced I would not be able to take my car anywhere in Dénia safely.
 - Domingo's dad, he told me years before, is in the car business.
 - I wondered if I met his dad in 2012 when I had a flat battery at the time I lived in the Passeig Periodista Ramon Ortega.
-- If so, that would mean his dad works at Auto Recambios Dénia, Teulada 2, the place an ex-boyfriend recommended to me years before in 2009.
+- If so, that would mean his dad worked at Auto Recambios Dénia, Teulada 2, the place an ex-boyfriend recommended to me years before in 2009.
 - I see the same man I met in 2012 sitting in in a car outside my flat in an aggressive and threatening manner in [January 2024](../2024/january.md#threatening-men-outside). 
 - He has big goggle glasses, just like Domingo.
 - In Javea, I wait all day. 
