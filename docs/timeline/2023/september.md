@@ -376,12 +376,20 @@ function googleTranslateElementInit() {
 - I turn off the router and regain immediate control of my phone.
 - I believe the activity outside my house was to *get me to think* that hackers are external to my network, when in reality they gained access to my devices directly through the router, with Mac spoofing or similar, using information known only to either the telecommunications company, Telco, or the ISP itself, which at that time was Yoigo.
 
-## Rosa in town
+## Rosa Vidal follows me around
 
-- Whenever I walk into Dénia, I see Rosa Vidal, Director of the Conservatory of Dénia, who often nearly bumps into me but never says hello or acknowledges me.
+- Whenever I walk into Dénia over the next few weeks, I see Rosa Vidal, Director of the Conservatory of Dénia.
+
+![Rosa Vidal](../../content/images/rosa-vidal.jpg)
+
+- She often nearly bumps into me, or walks right in front of me, but she never says hello or acknowledges me.
 - She's doing it on purpose.
-- On one occasion she is sitting outside a shop I come out from next to a man resembling the trumpet teacher.
-- It frightens me.
+- She knows exactly where I'm going to be at any particular time.
+- On one occasion I go to the organic store on a Sunday evening and she is sitting outside the door of the shop.
+- I see her as I'm walking out and she looks at me but again does not acknowledge me.
+- Sitting next to her is a man resembling the trumpet teacher. 
+- He has his back to me.
+- I feel frightened and I hurry away as quickly as possible.
 
 ## Sexual arousal
 
