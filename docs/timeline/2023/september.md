@@ -490,7 +490,7 @@ function googleTranslateElementInit() {
 - He pointed out that every pipe was fine, except mine. He was very insistent I knew about this.
 - It's curious that at *both* places you can cut off the mains water into my apartment, it is impossible to do so.
 - Basically, you cannot close off the incoming water to my flat. 
-- The stopcock outside the door is broken, and so is the one at the bottom of the building. 
+- The stopcock outside the door is broken, and so is the one at the entrance to the building. 
 - I wonder if this is because, if you are poisoning someone, perhaps in a drip-feed type manner via the water-mains to an apartment, and the target can close off the pipes when they leave the building, then the poison, or narcotic, or whatever, could collect in large doses and kill someone instantaneously when they opened the water again. 
 - I wonder if that happened before. 
 - I wonder if that's why there is a [death clause](../2021/december.md#death-clause) in my tenancy agreement. 
