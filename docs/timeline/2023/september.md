@@ -383,12 +383,12 @@ function googleTranslateElementInit() {
 ![Rosa Vidal](../../content/images/rosa-vidal.jpg)
 
 - She often nearly bumps into me, or walks right in front of me, but she never says hello or acknowledges me.
-- She's doing it on purpose.
-- She knows exactly where I'm going to be at any particular time.
+- She seems to be doing it on purpose.
+- If so, she knows exactly where I'm going to be at any given moment.
 - On one occasion I go to the organic store on a Sunday evening and she is sitting outside the door of the shop.
-- I see her as I'm walking out and she looks at me but again does not acknowledge me.
+- I see her as I'm walking out. She looks at me but again does not acknowledge me.
 - Sitting next to her is a man resembling the trumpet teacher. 
-- He has his back to me.
+- He has [his back to me](../2022/december.md#choir-concert).
 - I feel frightened and I hurry away as quickly as possible.
 
 ## Sexual arousal
