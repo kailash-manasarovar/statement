@@ -352,6 +352,9 @@ function googleTranslateElementInit() {
 
 - On Monday 4th September, I go to the supermarket, Mercadona, five minutes walk from my house.
 - A car pulls up alongside me and drives slowly, the driver and the passenger, a man and a woman glaring at me angrily.
+
+![The evil eye](../../content/images/the-evil-eye.png)
+
 - I tweet about it.
 
 [![The evil eye](../../content/tweets/september-23-comms/the-evil-eye.png)](https://x.com/1FRGVN/status/1698643045506310256)
