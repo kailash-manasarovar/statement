@@ -485,7 +485,7 @@ function googleTranslateElementInit() {
 
 ![The broken water pipe outside my apartment](../../content/images/water-pipes.JPG)
 
-- She replied "perfecto".
+- She replied "perfecto", and ignored me again.
 - On the day Pedro was fired, and he was showing the new caretaker around the apartments, he again took pains to tell me that the water pipes were not only broken outside my door (shown in the pic above) but also at the ground floor level where the mains water is distributed to all the flats in the building.
 - He pointed out that every pipe was fine, except mine. He was very insistent I knew about this.
 - It's curious that at *both* places you can cut off the mains water into my apartment, it is impossible to do so.
