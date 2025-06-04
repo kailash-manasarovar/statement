@@ -474,7 +474,7 @@ function googleTranslateElementInit() {
 - I now wonder if this is not the only manner in which he has been ogling her.
 - Are all the rental flats in the building on the Carrer Furs wired up for spy-cam porn, I wonder?
 - Does Pedro know everything that's going on in Carrer Furs? 
-- Is that why he was so keen to get me alone with him, and tampered with my car to make me believe there was a problem?
+- Is that why he was so keen to get me alone with him, and perhaps tampered with my car to make me believe there was a problem?
 
 ## The water pipes
 
