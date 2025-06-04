@@ -408,7 +408,7 @@ function googleTranslateElementInit() {
 
 - The taoist sexual practice is something I used to do years before when I was trying to heal myself from the effects of child sexual abuse.
 - Nevertheless, I am concerned about hidden cameras and so I take steps to hide myself if I am masturbating in the bathroom.
-- In just a few days, I will need to call [a handyman to fix something](#a-handyman-comes-to-fix-a-minor-thing-in-the-bathroom) in the bathroom.
+- In just a few days, I will need to call [a handyman to fix something random](#a-handyman-comes-to-fix-a-minor-thing-in-the-bathroom) in the bathroom.
 
 ### A man I recognize
 
