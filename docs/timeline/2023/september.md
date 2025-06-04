@@ -508,7 +508,7 @@ function googleTranslateElementInit() {
 ### Dog-tags and his missus
 
 - There is a couple, a woman and man, both in their fifties.
-- I see them every day milling around. 
+- I see them every day, milling around. 
 - The man is fair, balding, normal build, and wearing dog tags. 
 - He usually has his back to me with his dog tags hanging down the back of his neck on a chain.
 - I got close to the woman a lot and I'd recognize her face again. 
@@ -529,6 +529,7 @@ function googleTranslateElementInit() {
 
 - It is at this very moment, the time of writing, 21:56pm on the 4th June 2025, and not before, that I realize why they did this.
 - The gang rape I remembered from 1989 and gave details about in my [police statement from 2015](../early-years/2015.md#statement-to-the-metropolitan-police) described a group of young men sitting on kitchen or dining room chairs in a small circle or semi-circle.
+- One of the young men I will meet again on [Halloween at the Irish bar](october.md#halloween).
 
 ### The man in the Alhambra pic
 
