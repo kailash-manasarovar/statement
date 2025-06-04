@@ -437,7 +437,7 @@ function googleTranslateElementInit() {
 - He hugs me.
 - Instead of going to his friend, I take it to a garage in Javea: https://autocentermarinaalta.com/.
 - Incidentally, I had asked Christine for a recommendation on a garage in Javea where I could take the car that might have a waiting area.
-- She said she didn't know anywhere, which I found weird when I found this obvious place which had given me a great service the year before.
+- She said she didn't know anywhere, which I found weird when I found this obvious place which gave me a great service the year before.
 - Turns out this is where she takes her car.
 - I had asked Christine because I was convinced I would not be able to take my car anywhere in Dénia safely.
 - Domingo's dad, he told me years before, is in the car business.
