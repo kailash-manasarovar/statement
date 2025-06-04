@@ -398,10 +398,10 @@ function googleTranslateElementInit() {
 - I have no idea there are at least three trumpet teachers, and only one of them I love, and it's not the one I see with [his back to me](#rosa-vidal-follows-me-around) on countless occasions.
 - The sexual arousal is so overwhelming, I masturbate at home; sometimes in the bathroom.
 - It can feel like there are people, men, in the room with me while I'm masturbating. I can't explain this.
-- On Google search with the search tem `1frgvn twitter`, I see porn links in the video section with photos that remind me of myself masturbating; women in postures I might have been in, or figures with sheets over their heads in porn references that remind me of how the position I might have been in if I was masturbating in bed under the covers
+- On Google search using the search term `1frgvn twitter`, I see porn links in the video section with photos that remind me of myself masturbating; women in postures I might have been in, or figures with sheets over their heads in porn references that remind me of the position I was in when I was masturbating in bed under the covers.
 - It's disturbing and I'm shocked.
 - I don't make the obvious connection at that time.
-- I don't know that people are watching my every move so I wonder if they maybe heard me masturbating through my mobile.
+- I don't know that people are watching my every move so I wonder if they maybe heard me masturbating through my hacked mobile phone.
 - I tweet about how I am doing a taoist sexual practice at home in an attempt to justify the masturbating noises, or whatever it was that made them know I was masturbating at home, because it makes me feel *intense embarrassment* to think that someone knows what I'm doing in private in my own home.
 
 [![Taoist sexual practices](../../content/tweets/september-23-comms/taoist-sexual-practices.png)](https://x.com/1FRGVN/status/1702646805089948059)
