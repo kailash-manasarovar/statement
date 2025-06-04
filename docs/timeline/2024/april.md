@@ -293,6 +293,6 @@
 
 - This guy showed up on `@jctot19` results for a long time. Sometimes just him and Carmen or Rocio Vidal. He is into sado-masochism.
 
-![](../../content/images/google-searches/april-24/Screenshot%202024-04-21%20at%2011.18.44.png)
+![](../../content/images/google-searches/april-24/josep-l.JPG)
 ![](../../content/images/google-searches/april-24/image_123655411%20(1).JPG)
-![](../../content/images/google-searches/april-24/image_123650291%20(2).JPG)
+![](../../content/images/google-searches/april-24/josep-l-2.png)
