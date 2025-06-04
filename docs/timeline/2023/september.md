@@ -436,7 +436,7 @@ function googleTranslateElementInit() {
 - I tell Pedro I'm being bullied by teachers and staff at the conservatory and that one of the piano teachers, Domingo, is behind everything.
 - He hugs me.
 - Instead of going to his friend, I take it to a garage in Javea: https://autocentermarinaalta.com/.
-- Incidentally, I had asked Christine for a recommendation on a garage in Javea where I could take the car and they might have a waiting area.
+- Incidentally, I had asked Christine for a recommendation on a garage in Javea where I could take the car that might have a waiting area.
 - She said she didn't know anywhere, which I found weird when I found this obvious place which had given me a great service the year before.
 - Turns out this is where she takes her car.
 - I had asked Christine because I was convinced I would not be able to take my car anywhere in Dénia safely.
@@ -455,6 +455,19 @@ function googleTranslateElementInit() {
 ![7578MDK](../../content/images/7578MDK.png)
 
 - This may add credence to my later suspicions that a mind-altering substance had been added to my car ventilation system.
+
+## Pedro ogles a tourist
+
+- The building I live in is packed full of AirB&B type properties.
+- This means that many of the people at the pool are tourists, just visiting for a weekend if they're Spanish, or a week or two if they're foreign.
+- One afternoon, I'm coming back from practicing the piano and I see Pedro is painting one of the metal gates of the swimming pool.
+- He is staring intently at a woman in the pool.
+- She is foreign, slim, and blond, and is Scandinavian of some sort.
+- She is with her small children. It looks like she has no man with her.
+- It's really embarrassing the way Pedro is looking at her, like a pervert in fact.
+- I tweet about this at some point (I'll find it soon).
+- Now, I'm wondering if this is not the only manner in which he has been ogling her.
+- Is nearly the whole of the building on the Carrer Furs wired up for spy-cam porn, I wonder?
 
 ## The water pipes
 
