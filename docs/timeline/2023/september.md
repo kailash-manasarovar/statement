@@ -459,15 +459,19 @@ function googleTranslateElementInit() {
 ## Pedro ogles a tourist
 
 - The building I live in is packed full of AirB&B type properties.
-- This means that many of the people at the pool are tourists, just visiting for a weekend if they're Spanish, or a week or two if they're foreign.
+- This means that many of the people at the pool are tourists; visiting for the weekend if they're Spanish, or a week or two if they're foreign.
+- Outside of the hot weather, the building is nearly empty.
 - One afternoon, I'm coming back from practicing the piano and I see Pedro is painting one of the metal gates of the swimming pool.
 - He is staring intently at a woman in the pool.
 - She is foreign, slim, and blond, and is Scandinavian of some sort.
 - She is with her small children. It looks like she has no man with her.
-- It's really embarrassing the way Pedro is looking at her, like a pervert in fact.
-- I tweet about this at some point (I'll find it soon).
-- Now, I'm wondering if this is not the only manner in which he has been ogling her.
-- Is nearly the whole of the building on the Carrer Furs wired up for spy-cam porn, I wonder?
+
+![Pedro paints the gate](../../content/images/pedro-paints-the-gate.png)
+
+- It's really embarrassing the way Pedro is looking at her, he's ogling her like a pervert, in a most exaggerated way.
+- I tweet about this at some point (I'll find the tweet soon).
+- I now wonder if this is not the only manner in which he has been ogling her.
+- Are all the rental flats in the building on the Carrer Furs wired up for spy-cam porn, I wonder?
 
 ## The water pipes
 
