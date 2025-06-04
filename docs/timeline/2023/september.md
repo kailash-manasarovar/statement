@@ -497,22 +497,45 @@ function googleTranslateElementInit() {
 - Could the people of Dénia be that evil?
 - I believe that any of the caretakers will be able to tell the Netflix documentary researchers a great deal about the goings on at Carrer Furs 13-15.
 
-## People on the beach
+## Stalkers on the beach
 
 - It's hot and I go to the beach every day in the afternoon.
-- I'm followed up and down the beach every day by the same group of people that I begin to recognize each day.
+- I'm followed up and down the beach by the same group of people.
+- I begin to recognize them.
 
 ![Beach stalkers](../../content/images/stalked-on-the-beach.png)
 
-- There is a couple, a woman and man, who I see every day milling around me. The man is balding and is wearing dog tags. He has his back to me usually and has his dog tags hanging down the back of his neck on a chain.
-- The woman is in her early 50s. I'd recognize her face again. One day I smiled at her and she got really scared, really quickly, and I knew.
+### Dog-tags and his missus
+
+- There is a couple, a woman and man, both in their fifties.
+- I see them every day milling around. 
+- The man is fair, balding, normal build, and wearing dog tags. 
+- He usually has his back to me with his dog tags hanging down the back of his neck on a chain.
+- I got close to the woman a lot and I'd recognize her face again. 
+- One day I smiled at her and she got really scared, really quickly, and I knew.
 - These two were at the [piano concert](../2024/march.md#tuesday-12th-march) at the Casa de Cultura on 12th March 2024.
-- One afternoon, I'm walking back along the beach and there's a group of young men sitting on chairs. The couple I've just mentioned is with them.
-- As I walk past, the young men start making sexual moaning noises and touching themselves on their chests.
+- They sat right behind me.
+- The woman dressed up as [Elaine Black](../2021/july.md#elaine-black) in the most [outrageous and vicious psychological attack](../2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) that I experienced at the hands of teachers and staff from the conservatory of Dénia.
+
+### Rape-gang reminders
+
+- One afternoon, I'm walking along the Las Marinas beach.
+- A group of young men are sitting on kitchen chairs in a semi-circle on the sand.
+- The whole scene is incongruous. 
+- The couple I've [just mentioned](#dog-tags-and-his-missus) is with them.
+- As I walk past them, the young men start making sexual moaning noises while touching themselves on their chests.
+
+![The gang](../../content/images/young-men-at-the-beach.png)
+
+- It is at this very moment, the time of writing, 21:56pm on the 4th June 2025, and not before, that I realize why they did this.
+- The gang rape I remembered from 1989 and gave details about in my [police statement from 2015](../early-years/2015.md#statement-to-the-metropolitan-police) described a group of young men sitting on kitchen or dining room chairs in a small circle or semi-circle.
 
 ### The man in the Alhambra pic
 
-- A couple of time while I'm stalked up and down the beach at Las Marinas this month I see the very same man from the [July pics](july.md#the-guy-at-the-alhambra) with a woman.
+- I'm walking up the beach.
+- A man jumps up from his towel and walks into the sea.
+- He crosses my path.
+- He is very same man I saw in the [July pics](july.md#the-guy-at-the-alhambra) of a man sitting on a bench with the Alhambra behind him, with no socks on.
 
 ## Smurf cat
 

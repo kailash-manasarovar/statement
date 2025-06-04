@@ -235,7 +235,7 @@
 ![Poisoned aunt](../../content/tweets/poisoned-aunt.png)
 
 - Before we begin, people are coming in to listen. Many of them look at me and smile.
-- I recognize a couple as [two people I saw on the beach](../2023/september.md#people-on-the-beach) following me and part of the group of people making sexual noises the September previous.
+- I recognize a couple as [two people I saw on the beach](../2023/september.md#dog-tags-and-his-missus) following me and part of the group of people making sexual noises the September previous.
 - At 7.30, the concert begins.
 - At that moment, the lights go down, and the door to the hall opens, and in walks a woman who has dressed to look exactly like Elaine Black, my friend who committed suicide.
 
