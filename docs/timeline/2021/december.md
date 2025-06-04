@@ -12,14 +12,16 @@
 - The landlady, Beatriz, was angry and disagreeable. Hackers recently mentioned her grumpy demeanor online to me over the summer in 2024.
 - I signed the [rental contract](../../content/documents/contracto/rental-contract.pdf) and moved in on December 15th.
 
-!!! danger "Death clause"
+### Death clause
 
-    - There is a clause in the rental contract about what happens if I were to die in the flat prior to termination of the lease.
-    - It appears to relieve the owner of all indemnity enforced by Spanish law.
-    - For a contract with an initial term of 1 year, this seems a little strange, sinister even.
-    - I have never seen a clause like that in a rental contract before and I have read a great many.
-    - Did someone get caught up in a legal situation previously in a case of a targeted person who did not have a clause like this in their rental contract?
-    - Click to read the [death clause](../../content/documents/contracto/death%20clause.jpeg) in my rental contract.
+- There is a clause in the rental contract about what happens if I were to die in the flat prior to termination of the lease.
+- It appears to relieve the owner of all indemnity enforced by Spanish law.
+- For a contract with an initial term of 1 year, this seems a little strange, sinister even.
+- I have never seen a clause like that in a rental contract before and I have read a great many.
+- Did someone get caught up in a legal situation previously in a case of a targeted person who did not have a clause like this in their rental contract?
+- Click to read the [death clause](../../content/documents/contracto/death%20clause.jpeg) in my rental contract.
+
+### Keys
 
 - She only gave me one key, of a set of four, and there was a bit of a drama about where the other keys were which seemed contrived.
 - I didn't trust Beatriz Garcia Morales and, from her weird behavior and manner, I felt it likely she would enter my apartment without my knowledge.
@@ -27,7 +29,9 @@
 - I got the locks changed soon after by a British locksmith Carl Barclay.
 - Even so, I believe people were entering my house whenever I was not there on a regular basis the whole time I lived there. It's not clear how they got entry after I changed the locks. I guess that would be a simple matter for a criminal gang.
 
-!!! info "Who has been receiving my rent payments?"
+### Rent
+
+!!! danger "Who has been receiving my rent payments?"
     - The landlady changed the account I pay rent to twice in three years.
     - I paid rent to three different accounts in three year's of tenancy.
     - I don't believe all these accounts are hers and I suspect that finding out who in fact owns these accounts may be very enlightening to law enforcement.

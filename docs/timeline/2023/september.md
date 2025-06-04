@@ -478,21 +478,24 @@ function googleTranslateElementInit() {
 
 ## The water pipes
 
-- Pedro had always been really keen to tell me about the water pipes coming into the flat and the fact that they were broken.
-- I had raised this with the landlady in July 2023 when I was going away for the summer but she ignored me.
-- I raised it again in 2024 on WhatsApp and sent her a picture. She said "perfecto".
+- Pedro the caretaker had always been somewhat over-keen to tell me about the water pipes coming into the flat, and how they were broken.
+- He seemed concerned that if I didn't shut them off when I was away there could be a flood.
+- I had raised this with the landlady in July 2023 when I was going away for the summer, but she ignored me.
+- I raised it again with her in 2024 on WhatsApp, and I sent her a picture too saying that even when the water pipe is shut off, it still runs into the apartment. 
 
 ![The broken water pipe outside my apartment](../../content/images/water-pipes.JPG)
 
-- On the day Pedro was fired, and he was showing the new caretaker around the apartments, he took pains to tell me that the water pipes were not only broken outside my door (see picture below) but also at the ground floor level where the mains water is distributed to all the flats in the building.
-- He pointed out that every pipe was fine, except mine. He was very insistent I knew about this. He hadn't been previously.
+- She replied "perfecto".
+- On the day Pedro was fired, and he was showing the new caretaker around the apartments, he again took pains to tell me that the water pipes were not only broken outside my door (shown in the pic above) but also at the ground floor level where the mains water is distributed to all the flats in the building.
+- He pointed out that every pipe was fine, except mine. He was very insistent I knew about this.
 - It's curious that at *both* places you can cut off the mains water into my apartment, it is impossible to do so.
-- Even though the water pipe is closed off in the picture, it continues to run into my house.
-- Basically, you cannot close off the water pipes to my flat. The water pipe outside the door is broken, and so is the one at the bottom of the building. They are broken in exactly the same way too. So there is no way to close off the water coming from the mains.
-- I wonder if this is because, if you are poisoning someone, perhaps in a drip-feed type manner, and they can close off the pipes when they leave the building, then the poison, or narcotic, or whatever, could collect in large doses and kill someone instantaneously. 
-- I wonder if that's happened before. I wonder if that's why there is a specific clause about me dying in the apartment in my tenancy agreement. 
+- Basically, you cannot close off the incoming water to my flat. 
+- The stopcock outside the door is broken, and so is the one at the bottom of the building. 
+- I wonder if this is because, if you are poisoning someone, perhaps in a drip-feed type manner via the water-mains to an apartment, and the target can close off the pipes when they leave the building, then the poison, or narcotic, or whatever, could collect in large doses and kill someone instantaneously when they opened the water again. 
+- I wonder if that happened before. 
+- I wonder if that's why there is a [death clause](../2021/december.md#death-clause) in my tenancy agreement. 
 - Could the people of Dénia be that evil?
-- I believe any of the caretakers at Carrer Furs 13-15 will be able to tell the police how criminals have been able to add poison and narcotics to the water running into my apartment.
+- I believe that any of the caretakers will be able to tell the Netflix documentary researchers a great deal about the goings on at Carrer Furs 13-15.
 
 ## People on the beach
 
