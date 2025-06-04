@@ -106,6 +106,14 @@
 
 ![Gloria](../../content/images/gloria.png)
 
+## Spanish registration for my car
+
+- I register my car in Spain.
+- I do this with a management service.
+- When my license plate arrives, it is 7578 MDK.
+- Murder Death Kill is a cult computer game, famous from 1981-1997.
+- Could the criminal gangs of old men with their numerous official contacts and powers have organized that too?
+
 ## Piano classes
 
 - I'm reminded of the song Misty, I used to play it at university.

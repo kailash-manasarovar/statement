@@ -426,14 +426,35 @@ function googleTranslateElementInit() {
 
 - I guess this was another example of the continuing threats to my safety and wellbeing that I wasn't really understanding - apart from the obvious threats - as the whole thing was just too far fetched for my rather innocent mind and naïve good feelings for everyone.
 
-## Problem with the car washer
+## Problem with my car
 
-- The caretaker at Carrer Furs, Pedro, informs me there is a leak in my car washing fluid. I see the blue fluid all over the floor in the garage where I park my car. I think it is to do with a small bump on the road in France.
+- The caretaker at Carrer Furs, Pedro, informs me there is a leak in my car washing fluid. 
+- I see the blue liquid all over the floor in the garage under my car's front-left wheel.
+- Pedro complains that he is having to clean it up every day. 
+- I think it is to do with a small bump I had on the road in France.
 - He suggests I take the car to his friend who is a mechanic. I'm reluctant.
-- I tell Pedro about being bullied by the conservatory.
-- Instead, I take it to a garage in Javea who make me wait all day and do nothing at all, and charge me for it too.
+- I tell Pedro I'm being bullied by teachers and staff at the conservatory and that one of the piano teachers, Domingo, is behind everything.
+- He hugs me.
+- Instead of going to his friend, I take it to a garage in Javea: https://autocentermarinaalta.com/.
+- Incidentally, I had asked Christine for a recommendation on a garage in Javea where I could take the car and they might have a waiting area.
+- She said she didn't know anywhere, which I found weird when I found this obvious place which had given me a great service the year before.
+- Turns out this is where she takes her car.
+- I had asked Christine because I was convinced I would not be able to take my car anywhere in Dénia safely.
+- Domingo's dad, he told me years before, is in the car business.
+- I wondered if I met his dad in 2012 when I had a flat battery at the time I lived in the Passeig Periodista Ramon Ortega.
+- If so, that would mean his dad works at Auto Recambios Dénia, Teulada 2, the place an ex-boyfriend recommended to me years before in 2009.
+- I see the same man I met in 2012 sitting in in a car outside my flat in an aggressive and threatening manner in [January 2024](../2024/january.md#threatening-men-outside). 
+- He has big goggle glasses, just like Domingo.
+- In Javea, I wait all day. 
+- They do nothing at all, they tell me there's no problem, and they charge me 50 odd euro for the inconvenience.
+- I see the blue liquid leaking out immediately.
 - I realize I cannot take my car to any garage within about 100 miles radius, or more.
-- Domingo's dad is in the car business and I wonder if I met him in 2012 when I had a flat battery when I lived in the Passeig Periodista Ramon Ortega.
+- It turns out that there was [nothing wrong with my car](../2024/april.md#leak-resumes) and no leak. 
+- I can only assume that someone was tampering with my vehicle without my knowledge.
+
+![7578MDK](../../content/images/7578MDK.png)
+
+- This may add credence to my later suspicions that a mind-altering substance had been added to my car ventilation system.
 
 ## The water pipes
 
