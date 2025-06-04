@@ -398,10 +398,10 @@ function googleTranslateElementInit() {
 - I have no idea there are at least three trumpet teachers, and only one of them I love, and it's not the one I see with [his back to me](#rosa-vidal-follows-me-around) on countless occasions.
 - The sexual arousal is so overwhelming, I masturbate at home; sometimes in the bathroom.
 - It can feel like there are people, men, in the room with me while I'm masturbating. I can't explain this.
-- On Google search using the search term `1frgvn twitter`, I see porn links in the video section with photos that remind me of myself masturbating; women in postures I might have been in, or figures with sheets over their heads in porn references that remind me of the position I was in when I was masturbating in bed under the covers.
+- On Google search using the search term `1frgvn twitter`, there are a handful of porn links in the video section with photos that remind me of myself masturbating; women in postures I might have been in, or figures with sheets over their heads in porn references that remind me of the position I was in when I was masturbating in bed under the covers.
 - It's disturbing and I'm shocked.
 - I don't make the obvious connection at that time.
-- I don't know that people are watching my every move so I wonder if they maybe heard me masturbating through my hacked mobile phone.
+- I don't realize that people are watching my every move so I wonder if they maybe heard me masturbating through my hacked mobile phone.
 - I tweet about how I am doing a taoist sexual practice at home in an attempt to justify the masturbating noises, or whatever it was that made them know I was masturbating at home, because it makes me feel *intense embarrassment* to think that someone knows what I'm doing in private in my own home.
 
 [![Taoist sexual practices](../../content/tweets/september-23-comms/taoist-sexual-practices.png)](https://x.com/1FRGVN/status/1702646805089948059)
@@ -411,9 +411,9 @@ function googleTranslateElementInit() {
 ### A man I recognize
 
 - I'm leaving my flat to go to the conservatory one afternoon after lunch.
-- As I leave the door to my building, I see a man walking towards me.
+- As I leave the door to my building, I see a man walking towards me. He's fat, not very tall, about 50, and has long black hair.
 - I feel like I know him, intimately.
-- He looks at me like he's trying to avoid eye contact, and stifling a smirk.
+- He looks at me like he's trying to avoid eye contact, and he's stifling a smirk.
 - He is one of the men [I remember being in the bathroom with me](../../crimes/poisoning.md#dreams-and-visions), it seems like in a dream.
 - He looks like someone I see often on the `@jctot19` search results.
 
@@ -424,7 +424,7 @@ function googleTranslateElementInit() {
 
 ![Josep L profile](../../content/images/google-searches/april-24/josep-l-2.png)
 
-- I guess this was another example of the continuing threats to my safety and wellbeing that I wasn't really understanding - apart from the obvious threats - as the whole thing was just too far fetched for my rather innocent mind and naive good feelings for everyone.
+- I guess this was another example of the continuing threats to my safety and wellbeing that I wasn't really understanding - apart from the obvious threats - as the whole thing was just too far fetched for my rather innocent mind and naïve good feelings for everyone.
 
 ## Problem with the car washer
 
