@@ -689,8 +689,8 @@ function googleTranslateElementInit() {
 - We are followed along the beach by a group of men who behave extremely strangely. 
 - I would remember them again. 
 - I saw one of them in town on my way to the conservatory one day, and I saw two of the others in the laundry. 
-- One man, bald, 60s, was sitting on a [kitchen chair](#rape-gang-reminders) close to the water.
-- Another man, younger, 50s, dark, fat, wearing khakis and a white vest was roaming around.
+- One man, skinny, bald, long-face, 50/60s, was sitting on [kitchen chair](#rape-gang-reminders) close to the water.
+- Another man, younger, 40/50s, dark, fat, wearing khakis and a white vest was roaming around menacingly.
 
 ![Weird scene at the beach](../../content/images/weird-scene-at-the-beach.png)
 
@@ -703,17 +703,21 @@ function googleTranslateElementInit() {
 
 ### Ana does another turn
 
-- On another occasion we became embroiled in choreographed intrigue involving teachers from the conservatory.
-- Coming back from Las Rotas, when we got off the bus, Ana the violin teacher "bumps" into us. She's extremely angry. I know it's another choreographed deceit and I know it's all intended for me to see and wonder about, and get stressed about.
+- On another occasion, we became embroiled in choreographed intrigue involving teachers from the conservatory.
+- When we got off the Las Rotas bus and started walking up the Calle La Mar, Ana the violin teacher "bumps" into us walking towards the conservatory at the crossroad.
+- She's extremely angry, raging in fact. Her face is thunder.
+- I know it's another choreographed deceit, and I know it's all intended for me to see, and wonder about, and get stressed about.
 - I will [write to her friend Katia](../2024/january.md#january-18th-correspondence-to-katia-and-the-generalitat) about this in January.
 - Katia will ignore me completely.
-- Ana has timed it to meet us at exactly the right moment, and we have been constantly moving through the town and on public transport.
-- They knew exactly where I am at any given moment.
-- This could only be the case if they had full access to my mobile phone including the location function.
+- Ana has timed it so that our paths cross at exactly the right moment.
+- They knew exactly where I was at any given moment.
 
 ### Paqui does a turn too
 
-- We see Paqui Fornet too one afternoon. I say "hi" and she totally ignores me.
+- We see Paqui Fornet too one afternoon.
+- We are coming back from the bus stop and walking through the town.
+- I say "hola Paqui", loudly. She is about 5 metres away from me.
+- She totally ignores me.
 
 ## Alex and Paul
 
