@@ -621,12 +621,14 @@ function googleTranslateElementInit() {
 - I do not attempt to see her until this time for two reasons. First, I had been depressed and didn't see anyone as a rule. Second, my head was spinning with what was going on for me and it was difficult to know how to deal with anything outside of prayer, and fighting the cyber-stalkers online.
 - I hadn't seen my friend since 2016. We only chatted a few times online and I hadn't had any contact with her since 2020.
 - She had been selling fruit and vegetables in the market for some years with her new boyfriend who I hadn't met yet.
-- A common friend of ours is Klara Sarkadi, the Orfeo choir master who is a close associate of Domingo.
-- Klara told me repeatedly how tired my friend was from working in the fields. "She's very tired," she'd say.
+- A common friend of ours is Klara Sarkadi, the Orfeo choir master who is a close associate of Domingo and possibly a porn-gang victim introduction agent and side-line supporter/shepherd (the name they use to call anyone who supports the porn-gang's destruction of a lone target).
+- Klara told me repeatedly how tired my friend was from working in the fields. 
+- "She's very tired," she'd say repeatedly.
 - I go to buy some vegetables.
 - As I walk towards the stall, I see [Paqui Fornet Pastor](../../crimes/protagonists.md#paqui-fornet-pastor) talking to my friend. She gives me the side-eye and walks away.
 - I meet my friend. We hug and exchange a few words.
-- She mentions how she and her boyfriend had seen me walking up the Calle La Mar towards the tunnel from the conservatory, on [Monday 12th June in the evening](june.md#monday-12th-june-2023). They had beeped at me. I file this information away.
+- She mentions how she and her boyfriend had seen me walking up the Calle La Mar towards the tunnel from the conservatory, on [Monday 12th June in the evening](june.md#monday-12th-june-2023). 
+- They had beeped at me apparently. It rings a bell so I file this information away.
 - I buy some vegetables and leave.
 - When I go to cook one of the vegetables, a lovely fresh looking onion on the outside, I find it is rotten to the core.
 
@@ -641,12 +643,14 @@ function googleTranslateElementInit() {
 - At that moment, I began to become concerned my friend had been tricked too.
 - Could she have been enslaved to work in the fields?
 - Her man, who was a bit weird with me, is probably about 20 years younger than her, and has delicate hands and doesn't look overworked at all.
-- I remembered she was always going to a local psychic/match-maker in 2016 looking for a man, and knowing what I now know about this town and the monstrous but powerful minority in it, I shuddered.
-- Another time I go for vegetables, [Thao](may.md#acupuncture-with-thao-qi) is there. Is she waiting for me too? She says, hi, and asks if I went back to classes at the conservatory. I say yes I did, very strongly.
+- I remembered she was always going to a local psychic/match-maker in 2016 looking for a man, and knowing what I now know about this town and the monstrous but powerful minority that controls it, I shuddered.
+- Another time I go for vegetables, [Thao](may.md#acupuncture-with-thao-qi) is there. Is she waiting for me too? 
+- She says hi, and asks if I went back to classes at the conservatory after the attack.
+- I say yes I did, very strongly.
 - Another time I go for vegetables, [Domingo](../../crimes/protagonists.md#domingo-lopez-cano) is there, on his own, with the two little girls from Madrid that he teaches.
 - I give him a [therapy card](#praying-at-cauterets) in person.
-- He shouts, "ooooh, touch", elongating the word *touch* in a salacious manner, and leaves with the girls.
-- My friend says, oh you know him, and tell me that she sees him all the time with his daughters.
+- He shouts, "ooooh, touch", elongating the word *touch* in a salacious manner, and leaves with the little girls.
+- My friend says, oh you know him, and tells me that she sees him all the time with his daughters.
 - I tell her they are not his daughters.
 - Alarm flashes across her face.
 - The last time I see her, in April 2024, she says, oh I just saw Paqui Fornet, "isn't she a nice person?".
