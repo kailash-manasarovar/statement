@@ -656,7 +656,7 @@ function googleTranslateElementInit() {
 - The last time I see her, in April 2024, she says, oh I just saw Paqui Fornet, "isn't she a nice person?".
 - I tell her I think Paqui is probably a psychopath.
 
-## The Tibetan monk's visit
+## The Tibetan monk visits
 
 - My friend the Tibetan monk visits for a few days in September.
 - I have told him what's going on, as far as I understand it at the time, and he is saying daily prayers on my behalf for strong protection.
@@ -672,6 +672,8 @@ function googleTranslateElementInit() {
 - Posts like these make me think this account is the trumpet teacher communicating directly with me in a positive way.
 - My friend and I had a marvelous few days together.
 - However, we are stalked, incessantly.
+- One morning, as we pass the Cafe Andreu on the [Calle Miraflor](https://www.google.com/maps/place/D%C3%A9nia,+Alicante,+Spain/@38.8417355,0.1021768,3a,75y,33.36h,92.63t/data=!3m7!1e1!3m5!1sl105kjv2svEvpeM8-6XClg!2e0!6shttps:%2F%2Fstreetviewpixels-pa.googleapis.com%2Fv1%2Fthumbnail%3Fcb_client%3Dmaps_sv.tactile%26w%3D900%26h%3D600%26pitch%3D-2.627702795661264%26panoid%3Dl105kjv2svEvpeM8-6XClg%26yaw%3D33.359835872520094!7i16384!8i8192!4m6!3m5!1s0x129e1b226dfbd341:0x86f3d778aff1e134!8m2!3d38.8387992!4d0.1050557!16zL20vMDFoc2Ri?entry=ttu&g_ep=EgoyMDI1MDYwMi4wIKXMDSoASAFQAw%3D%3D) on our way to the bus stop, an old woman jumps out of the quiet crowd sitting outside, and screams something I don't understand in Spanish. 
+- She sounds angry and upset with us.
 - During his visit, classes start again at the conservatory. 
 - The first class is [choir class](#choir) and he takes me to class and meets me outside when it's over.
 - He will remember how anxious I was to go back to the conservatory.
