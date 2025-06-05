@@ -727,8 +727,8 @@ function googleTranslateElementInit() {
 
 - We see Paqui Fornet too one afternoon.
 - We are coming back from the bus stop and walking through the town.
-- I say "hola Paqui", loudly. She is about 5 metres away from me.
-- She totally ignores me.
+- I say "hola Paqui", loudly. She is no more than three metres away from me.
+- She totally ignores me and I know she has seen me.
 
 ## Alex and Paul
 
