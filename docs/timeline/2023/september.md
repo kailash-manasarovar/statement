@@ -718,7 +718,9 @@ function googleTranslateElementInit() {
 - When I see her so angry, I'm concerned the trumpet teacher has hurt her.
 - I will [write to her friend Katia](../2024/january.md#january-18th-correspondence-to-katia-and-the-generalitat) about seeing her like this in January 2024 after she *meaningfully* gives me her mobile number.
 - Katia ignores me as per instructions.
-- Ana has timed it so that our paths cross at exactly the right moment because anyone tracking me knew exactly where I was and would have told her to GO!
+- Ana has timed it so that our paths cross precisely because anyone tracking me knew exactly where I was and would have told her to GO!
+- It's astonishing that teachers put so much effort and energy into terrorizing a student.
+- I'm continually concerned for all the students, and this is part of the reason I'm determined to continue my studies and find out what's going on.
 - I tell my friend the Tibetan monk about angry Ana, and how it relates to the trumpet teacher.
 
 ### Paqui does a turn too
