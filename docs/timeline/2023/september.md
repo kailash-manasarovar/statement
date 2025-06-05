@@ -408,7 +408,7 @@ function googleTranslateElementInit() {
 
 - The taoist sexual practice is something I used to do years before when I was trying to heal myself from the effects of child sexual abuse.
 - Nevertheless, I am concerned about hidden cameras and so I take steps to hide myself if I am masturbating in the bathroom.
-- In just a few days, I will need to call [a handyman to fix something random](#a-handyman-comes-to-fix-a-minor-thing-in-the-bathroom) in the bathroom.
+- In just a few days, I will need to call [a handyman to fix something random](#a-handyman-tells-me-exactly-how-much-everyone-hates-me) in the bathroom.
 
 ### A man I recognize
 
@@ -575,25 +575,31 @@ function googleTranslateElementInit() {
 
 - More of these pop up to entice me over the next year, but I can see what's happening.
 
-## A handyman comes to fix a minor thing in the bathroom
+## A handyman tells me exactly how much everyone hates me
 
-- At some point this month, the air extractor thing pops out of the ceiling in the bathroom for no apparent reason.
+- I can't conceive of my apartment being set up with spy-cams, even though I have been shown the [advanced nature of the porn gang's spy-cam technology](july.md#plate-lady-early-in-the-month) two or three decades ago.
+- I'm still overwhelmed with [sexual arousal, usually around lunchtimes when I imagine everyone has a break from work and can watch](#sexual-arousal).
+- Even though it's hard to conceive of such evil, I *am* concerned I'm being watched or listened to; so whenever I masturbate in the bathroom I try to hide myself from obvious camera points like the mirror, for example.
+- Out of the blue, one day when I return from the beach, I see the air extractor thing has popped out of the ceiling in the bathroom for no apparent reason.
 
 ![Air extractor pops out](../../content/images/invented-problem-in-bathroom.jpg)
 
-- I believe now they have come in and done this so I will call Beatrice for a handyman to fix it, which I do.
-- A man called Fabio comes to fix it, a handyman +34-727-70-53-89. It is an extremely minor thing that should take 5 minutes.
-- He goes into the bathroom and closes the door. He is in there for 30 minutes or so with the door closed.
-- I now wonder if he was sent to do something else entirely.
-- At the same time, I have to change my driving license to a Spanish one and there is a huge confusion with Northern Ireland and I'm very stressed because no-one is able to help me.
-- However, I'm excessively stressed, likely because of what is going on in Dénia, and also because of being drugged somehow, I believe.
-- I'm on the phone to someone who is behaving in a particularly unhelpful way at the moment Pablo comes out of the bathroom.
+- Did someone come in and break it so that I would have to get it fixed?
+- I call Beatrice and she sends a handyman.
+- Fabio, a handyman (details supplied on request), arrives at my house to fix this extremely minor problem that should take five minutes or less.
+- He goes into the bathroom and closes the door behind him. 
+- He is in there for 30/45 minutes or so with the door closed.
+- What the hell was he doing in there?
+- At the same time, I'm on the phone trying to change my UK driving license to a Spanish one, and there is a huge confusion with Northern Ireland and I'm very stressed because no-one is able to help me.
+- I've been on the phone for 20 minutes or more and the person on the other end of the line is behaving in a particularly unhelpful way at the moment Pablo comes out of the bathroom.
 - I'm clearly very stressed and upset.
 - He barks at me, "You're sick!".
-- It was extremely rude and a very unusual thing to say and I had no idea why he would say such a thing.
-- I now believe he knew I was being poisoned and drugged, and was telling me so.
-- It was clear he despised me for some reason.
-- I saw him around the urbanization from time to time. I now wonder if other flats are being used for similar purposes as mine is.
+- It was extremely rude and a very unusual thing to say. I had no idea why he would say such a thing.
+- I now believe he knew about everything that was happening to me, like the whole town did, and was expressing it with fear and loathing.
+- It was clear that he despised me for some reason.
+- I guess that's how you deal with being an accessory to the total destruction of another human being.
+- I saw him around the urbanization from time to time. 
+- Could this mean other [flats in the urbanización are being used for similar purposes](#pedro-ogles-a-tourist)?
 
 ## Stones thrown at me
 
