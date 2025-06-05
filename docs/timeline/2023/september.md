@@ -681,14 +681,16 @@ function googleTranslateElementInit() {
 
 - One afternoon we go to the beach.
 - We are followed along the beach by a group of men who behave extremely strangely. 
-- I would remember them again. I saw one of them in town on my way to the conservatory one day, and I saw two of the others in the laundry. 
+- I would remember them again. 
+- I saw one of them in town on my way to the conservatory one day, and I saw two of the others in the laundry. 
 - One man, bald, 60s, was sitting on a [kitchen chair](#rape-gang-reminders) close to the water.
 - Another man, younger, 50s, dark, fat, wearing khakis and a white vest was roaming around.
 
 ![Weird scene at the beach](../../content/images/weird-scene-at-the-beach.png)
 
 - He even came right up to where we were sitting and lingered around us very close.
-- The bald man started to shout at the fat man in khakis to move away. He didn't. He was furiously typing on his mobile phone.
+- The bald man started to shout at the fat man in khakis to move away from us. 
+- The man didn't. He was standing about a metre away from our towels and furiously typing on his mobile phone.
 - My friend will remember all this as it was extremely odd.
 - I stood up to protect our spot somehow.
 - While I'm standing, I see a man walking down the beach towards the town who looks like the trumpet teacher from behind, the usual trick.
