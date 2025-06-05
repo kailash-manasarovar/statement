@@ -729,6 +729,8 @@ function googleTranslateElementInit() {
 - We are coming back from the bus stop and walking through the town.
 - I say "hola Paqui", loudly. She is no more than three metres away from me.
 - She totally ignores me and I know she has seen me.
+- In a small town, you don't miss seeing a woman walking with a gowned Tibetan monk when they're right in front of you.
+- It feels like a snub.
 
 ## Alex and Paul
 
