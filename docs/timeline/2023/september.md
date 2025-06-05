@@ -656,30 +656,46 @@ function googleTranslateElementInit() {
 - The last time I see her, in April 2024, she says, oh I just saw Paqui Fornet, "isn't she a nice person?".
 - I tell her I think Paqui is probably a psychopath.
 
-## My friend visits
+## The Tibetan monk's visit
 
-- My friend the Tibetan monk visits for a few days in September: https://x.com/1FRGVN/status/1699344886053454116.
-- He came at my request when I was being terrorized online and I was very scared and stressed.
+- My friend the Tibetan monk visits for a few days in September.
+- I have told him what's going on and he is saying daily prayers on my behalf for strong protection.
+
+![Tibetan strong protection](../../content/images/tibetan-strong-protection.png)
+
 - While I'm waiting for him to arrive at Valencia airport, I translate one of the posts I see on the `@jctot19` Google search a lot.
 
 ![Igual trasquilaron](../../content/tweets/july-comms/igual-trasquilaron.png)
 
 - It's complicated Spanish but means something like "they thought you were an idiot but you weren't and now they keep making things worse".
 - Posts like these make me think this account is the trumpet teacher communicating directly with me.
-- We had a marvelous few days together.
+- My friend and I had a marvelous few days together.
+- However, we are stalked incessantly.
+- During his visit, classes start again at the conservatory. The first class is [choir class](#choir).
+- I see much content related to "pandas" on my account during his visit and this, and consequent messages, leads me to believe that this is how they refer to my Tibetan friend.
+
+### Gang stalking on the beach
+
 - However, one afternoon we are followed along the beach by a group of men who behave extremely strangely. I would remember them again, and I saw one of them in town and I saw two of the others in the laundry one day. 
 - One man, bald, 50s, was sitting on a chair close to the water.
 - Another man, younger, 40s, dark, fat, wearing khakis and a white vest was roaming around, and he even came right up to where we were sitting and lingered around us close.
 - The bald man started to shout at him to move away. He didn't. He was furiously typing on his mobile phone.
 - My friend will remember all this as it was extremely odd.
 - I stood up to protect our spot somehow and I saw a man walking down the beach towards the town who looked like the trumpet teacher (but wasn't probably, just the same build, too young again).
+
+### Ana does another turn
+
 - On another occasion we became embroiled in choreographed intrigue involving teachers from the conservatory.
 - Coming back from Las Rotas, when we got off the bus, Ana the violin teacher "bumps" into us. She's extremely angry. I know it's another choreographed deceit and I know it's all intended for me to see and wonder about, and get stressed about.
-- She's timed to meet us at exactly the right moment, and we have been constantly moving through the town and on public transport.
+- I will [write to her friend Katia](../2024/january.md#january-18th-correspondence-to-katia-and-the-generalitat) about this in January.
+- Katia will ignore me completely.
+- Ana has timed it to meet us at exactly the right moment, and we have been constantly moving through the town and on public transport.
 - They knew exactly where I am at any given moment.
 - This could only be the case if they had full access to my mobile phone including the location function.
-- We see Paqui Fornet too one afternoon. I say "hi" and she ignores me.
-- During this time, there is much content related to "pandas" on my account and this, and consequent messages, leads me to believe that this is how they are referring to my Tibetan friend.
+
+### Paqui does a turn too
+
+- We see Paqui Fornet too one afternoon. I say "hi" and she totally ignores me.
 
 ## Alex and Paul
 
