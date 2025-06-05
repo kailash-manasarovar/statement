@@ -730,7 +730,8 @@ function googleTranslateElementInit() {
 - I say "hola Paqui", loudly. She is no more than three metres away from me.
 - She totally ignores me and I know she has seen me.
 - In a small town, you don't miss seeing a woman walking with a gowned Tibetan monk when they're right in front of you.
-- It feels like a snub.
+- It feels like a snub, an insult.
+- She is supposed to be my piano teacher this year.
 
 ## Alex and Paul
 
