@@ -731,7 +731,7 @@ function googleTranslateElementInit() {
 - She totally ignores me and I know she has seen me.
 - In a small town, you don't miss seeing a woman walking with a gowned Tibetan monk when they're right in front of you.
 - It feels like a snub, an insult.
-- She is supposed to be my piano teacher this year.
+- She is supposed to be my piano teacher this year but she's obviously too good to stoop to say hello to the porn-gang's latest victim.
 
 ## Alex and Paul
 
