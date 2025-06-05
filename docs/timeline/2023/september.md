@@ -721,7 +721,7 @@ function googleTranslateElementInit() {
 - Ana has timed it so that our paths cross precisely because anyone tracking me knew exactly where I was and would have told her to GO!
 - It's astonishing that teachers put so much effort and energy into terrorizing a student.
 - I'm continually concerned for all the students, and this is part of the reason I'm determined to continue my studies and find out what's going on.
-- I tell my friend the Tibetan monk about angry Ana, and how it relates to the trumpet teacher.
+- I tell my friend the Tibetan monk about angry Ana, and how it relates to the trumpet teacher business.
 
 ### Paqui does a turn too
 
