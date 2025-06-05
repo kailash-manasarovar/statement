@@ -712,8 +712,9 @@ function googleTranslateElementInit() {
 
 - I know it's another choreographed deceit, and I know it's all intended for me to see, and wonder about, and get stressed about.
 - Online messaging regarding Ana and the trumpet teacher's relationship has never ceased; not for a second.
-- They discuss her in bed, what she wears, how boring she is, how they've moved in together, how she doesn't like to have the window blinds up, the violent sex they have, and on and on.
+- They discuss her in bed, what she wears, how boring she is, how she and the trumpet teacher have moved in together up in Las Marinas, how she likes to be in nature, how she doesn't like to have the window blinds up, how she takes care of his children, the violent sex they have, and on and on and on.
 - It's relentless.
+- When I see her so angry, I'm concerned he has hurt her.
 - I will [write to her friend Katia](../2024/january.md#january-18th-correspondence-to-katia-and-the-generalitat) about seeing her like this in January 2024 after she *meaningfully* gives me her mobile number.
 - Katia ignores me as per instructions.
 - Ana has timed it so that our paths cross at exactly the right moment because anyone tracking me knew exactly where I was at any given moment.
