@@ -717,8 +717,8 @@ function googleTranslateElementInit() {
 - When I see her so angry, I'm concerned he has hurt her.
 - I will [write to her friend Katia](../2024/january.md#january-18th-correspondence-to-katia-and-the-generalitat) about seeing her like this in January 2024 after she *meaningfully* gives me her mobile number.
 - Katia ignores me as per instructions.
-- Ana has timed it so that our paths cross at exactly the right moment because anyone tracking me knew exactly where I was at any given moment.
-- I tell my friend about angry Ana, and how it relates to the trumpet teacher.
+- Ana has timed it so that our paths cross at exactly the right moment because anyone tracking me knew exactly where I was and would have told her to GO!
+- I tell my friend the Tibetan monk about angry Ana, and how it relates to the trumpet teacher.
 
 ### Paqui does a turn too
 
