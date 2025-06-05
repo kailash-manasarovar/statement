@@ -559,6 +559,10 @@ function googleTranslateElementInit() {
 
 [![Smurf cat](../../content/tweets/september-23-comms/smurf-cat.png)](https://x.com/JackChardwood/status/1704386000493887568.)
 
+- The foreign language element translates to something like "be chosen". This was another relentless online message suggesting I would be chosen out of a number of women, including Ana, to be the trumpet teacher's woman. It was ridiculous and infuriating and I tweeted about it sometimes.
+
+![Waiting to be chosen](../../content/tweets/waiting-to-be-chosen.png)
+
 ### Baby Joe
 
 - In a similar vein, but more sinister, is [Baby Joe](october.md#baby-jo).
@@ -601,11 +605,15 @@ function googleTranslateElementInit() {
 - I saw him around the urbanization from time to time. 
 - Could this mean other [flats in the urbanización are being used for similar purposes](#pedro-ogles-a-tourist)?
 
-## Stones thrown at me
+## The stoning
 
 - One Saturday I go hiking on the mountain.
 - As I'm walking through the town towards the mountain, a car full of young men drives past me.
-- I'm hit by stones thrown at me from the car.
+
+![Stones thrown at me](../../content/images/stones-thrown-at-me.png)
+
+- I feel small stones hitting my bare legs painfully.
+- The car goes by and the young men whoop from inside.
 
 ## My friend the fruit and vegetable seller
 
