@@ -274,6 +274,10 @@ function googleTranslateElementInit() {
 
 [![Who the hell are you people](../../content/tweets/september-23-comms/who-the-hell-are-you-people.png)](https://x.com/1FRGVN/status/1707672863283556809)
 
+- I posted a video of this in the [2008](../early-years/2008.md#working-for-elaine-black) section.
+
+<center><iframe src="https://www.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2Fjack.chardwood.3%2Fvideos%2F1686361321869766%2F&show_text=false&width=560&t=0" width="560" height="314" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe></center>
+
 - I always had my suspicions about the homeopath Ana. 
 
 [![Suspicions about the homeopath](../../content/tweets/september-23-comms/suspicious-about-the-homeopath.png)](https://x.com/1FRGVN/status/1707677154933129696)
@@ -670,7 +674,7 @@ function googleTranslateElementInit() {
 
 - It's complicated Spanish but means something like "they thought you were an idiot but you weren't and now they keep making things worse".
 - Posts like these make me think this account is the trumpet teacher communicating directly with me in a positive way.
-- My friend and I had a marvelous few days together.
+- My friend and I have a marvelous few days together.
 - However, we are stalked, incessantly.
 - One morning, as we pass the Cafe Andreu on the [Calle Miraflor](https://www.google.com/maps/place/D%C3%A9nia,+Alicante,+Spain/@38.8417355,0.1021768,3a,75y,33.36h,92.63t/data=!3m7!1e1!3m5!1sl105kjv2svEvpeM8-6XClg!2e0!6shttps:%2F%2Fstreetviewpixels-pa.googleapis.com%2Fv1%2Fthumbnail%3Fcb_client%3Dmaps_sv.tactile%26w%3D900%26h%3D600%26pitch%3D-2.627702795661264%26panoid%3Dl105kjv2svEvpeM8-6XClg%26yaw%3D33.359835872520094!7i16384!8i8192!4m6!3m5!1s0x129e1b226dfbd341:0x86f3d778aff1e134!8m2!3d38.8387992!4d0.1050557!16zL20vMDFoc2Ri?entry=ttu&g_ep=EgoyMDI1MDYwMi4wIKXMDSoASAFQAw%3D%3D) on our way to the bus stop, an old woman jumps out of the quiet crowd sitting outside, and screams something I don't understand in Spanish. 
 - She sounds angry and upset with us.
