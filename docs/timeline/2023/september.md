@@ -577,7 +577,7 @@ function googleTranslateElementInit() {
 
 ## A handyman tells me exactly how much everyone hates me
 
-- I can't conceive of my apartment being set up with spy-cams, even though I have been shown the [advanced nature of the porn gang's spy-cam technology](july.md#plate-lady-early-in-the-month) two or three decades ago.
+- I can't conceive of my apartment being set up with spy-cams, even though I have been shown the [advanced nature of the porn gang's spy-cam technology](july.md#plate-lady-early-in-the-month) from even two or three decades ago.
 - I'm still overwhelmed with [sexual arousal, usually around lunchtimes when I imagine everyone has a break from work and can watch](#sexual-arousal).
 - Even though it's hard to conceive of such evil, I *am* concerned I'm being watched or listened to; so whenever I masturbate in the bathroom I try to hide myself from obvious camera points like the mirror, for example.
 - Out of the blue, one day when I return from the beach, I see the air extractor thing has popped out of the ceiling in the bathroom for no apparent reason.
