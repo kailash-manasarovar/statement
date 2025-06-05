@@ -703,9 +703,10 @@ function googleTranslateElementInit() {
 
 ### Ana does another turn
 
-- On another occasion, we became embroiled in choreographed intrigue involving teachers from the conservatory.
-- When we got off the Las Rotas bus and started walking up the Calle La Mar, Ana the violin teacher "bumps" into us walking towards the conservatory at the crossroad.
-- She's extremely angry, raging in fact. Her face is thunder.
+- On another evening, I became embroiled in yet another choreographed intrigue involving actress-teachers from the conservatory.
+- My friend and I got off the Las Rotas bus and started walking up the Calle La Mar.
+- Ana the violin teacher "bumps" into us walking towards the conservatory at the crossroad.
+- She's extremely angry; raging in fact. Her face is thunder.
 
 ![Ana is angry](../../content/images/ana-is-angry.png)
 
