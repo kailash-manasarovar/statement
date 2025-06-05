@@ -546,33 +546,34 @@ function googleTranslateElementInit() {
 
 [![Smurf Cat](../../content/images/smurf-cat.png)](https://x.com/Smurfcatbsc)
 
-- Smurf Cat is a meme coin but this was a poor copy and only appeared on September 19th.
+- Smurf Cat is a meme coin but this was a poor copy and only appeared for one day on September 19th.
 - I wasn't followed by any other Smurf Cat accounts.
 - Sometimes, people call me Smurf because of my surname. My first name is obviously close to Cat.
 - It may have been too tempting for the cyber-stalkers not to use.
-- I often go to the beach dressed at little bit like Smurf Cat. 
-- Given they're all following me and watching me continuously, it seems like someone must have said ... Oh, it's Smurf Cat! as I poddled along the sand.
-- I tease the hacker about it.
-
-[![Smurf cat](../../content/tweets/september-23-comms/smurf-cat.png)](https://x.com/JackChardwood/status/1704386000493887568.)
-
-- Smurf cat's hat is like mine that I wear to the beach.
+- I often went to the beach dressed a little bit like Smurf Cat. Smurf cat's hat is a bit like mine that I wear to the beach.
 
 ![Smurf cat's hat](../../content/images/smurf-cat-hat.png)
 
+- Given they're following me and watching me continuously, it seems like someone must have said ... Oh, it's Smurf Cat! ... as I poddled along the sand.
+- I tease the hacker about it later.
+
+[![Smurf cat](../../content/tweets/september-23-comms/smurf-cat.png)](https://x.com/JackChardwood/status/1704386000493887568.)
+
 ### Baby Joe
 
-- In a similar vein, but worse, is [Baby Joe](october.md#baby-jo).
+- In a similar vein, but more sinister, is [Baby Joe](october.md#baby-jo).
 
 ![Baby Joe](../../content/images/baby-joe.png)
 
 - This is a reference to Elaine Black's son.
-- The references to Elaine are constant, as if she is always on their minds in not a good way.
+- The references to Elaine during the cyber-attacks and gang-stalking are constant, as if she is always on their minds and not in a good way.
 
 !!! tip "Crypto is not that anonymous"
     - It is easy to uncover the owners of these meme coins.
     - Crypto companies now exist that do just that.
     - The beauty of crypto is that anything you do on the network is there forever.
+
+- More of these pop up to entice me over the next year, but I can see what's happening.
 
 ## A handyman comes to fix a minor thing in the bathroom
 
