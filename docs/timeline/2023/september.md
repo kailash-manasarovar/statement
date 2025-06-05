@@ -706,11 +706,17 @@ function googleTranslateElementInit() {
 - On another occasion, we became embroiled in choreographed intrigue involving teachers from the conservatory.
 - When we got off the Las Rotas bus and started walking up the Calle La Mar, Ana the violin teacher "bumps" into us walking towards the conservatory at the crossroad.
 - She's extremely angry, raging in fact. Her face is thunder.
+
+![Ana is angry](../../content/images/ana-is-angry.png)
+
 - I know it's another choreographed deceit, and I know it's all intended for me to see, and wonder about, and get stressed about.
-- I will [write to her friend Katia](../2024/january.md#january-18th-correspondence-to-katia-and-the-generalitat) about this in January.
-- Katia will ignore me completely.
-- Ana has timed it so that our paths cross at exactly the right moment.
-- They knew exactly where I was at any given moment.
+- Online messaging regarding Ana and the trumpet teacher's relationship has never ceased; not for a second.
+- They discuss her in bed, what she wears, how boring she is, how they've moved in together, how she doesn't like to have the window blinds up, the violent sex they have, and on and on.
+- It's relentless.
+- I will [write to her friend Katia](../2024/january.md#january-18th-correspondence-to-katia-and-the-generalitat) about seeing her like this in January 2024 after she *meaningfully* gives me her mobile number.
+- Katia ignores me as per instructions.
+- Ana has timed it so that our paths cross at exactly the right moment because anyone tracking me knew exactly where I was at any given moment.
+- I tell my friend about angry Ana, and how it relates to the trumpet teacher.
 
 ### Paqui does a turn too
 
