@@ -64,6 +64,13 @@
     - Could this have been a warning from Patricia? Or were my British friends 100% complicit.
     - It seems likely now that Hazel Smith would have gotten this information from her friendship with Dandy and passed it onto Patricia, who is a clear associate, with instructions to repeat it, [choker-seed style](march.md#planting-the-choker-seeds). 
 
+### I complain about how mean my landlady is to the English ladies
+
+- On one of the walks this month, I explain to the English ladies how my landlady is inordinately mean.
+- I explain how the boiler is on its last legs and that the kitchen furniture is ancient.
+- I tell them about how she had replaced the mattress when I moved in with a mattress that looked like it came from the pound shop and I'd had to buy my own.
+- I tell them how I believe meanness can cause extraordinary harm and not everyone is fit to be responsible for others who might rent out their properties.
+
 ## Halloween
 
 - On the run up to Halloween I notice that, outside my flat and in full view from the window, an effigy is hanging from a lamppost. 

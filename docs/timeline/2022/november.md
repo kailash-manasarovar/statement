@@ -7,6 +7,7 @@
 - I ask Bea to replace the boiler and the oven, which has never worked properly.
 - She replaces them.
 - Pedro, the caretaker, is amazed that she has spent some money on the flat.
+- Later, I remember I had [just told the English ladies about her meanness](october.md#i-complain-about-how-mean-my-landlady-is-to-the-english-ladies) not long before.
 
 ## Hanuman enters the picture
 

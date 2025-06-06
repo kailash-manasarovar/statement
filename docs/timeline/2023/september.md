@@ -787,10 +787,10 @@ function googleTranslateElementInit() {
 - I'm stunned.
 - She's really quite blasé about everything I'm telling her, everything I've told you all here.
 - She is dismissive and always has some kind of alternate viewpoint that attempts to make what I'm experiencing sound totally normal, or that I'm imagining things.
-- What this gaslighting attitude tends to do is to make me question whether things are really as bad as they seem, and not take steps to protect myself.
-- She will tell me she was always playing devil's advocate.
-- I will tell her her involvement in the conspiracy could be described as attempted murder.
+- What this gaslighting attitude tends to do is to make me question whether things are really as bad as they seem, and not take steps to protect myself from further harm.
 - This gaslighting continues to be her stance towards me as the terror progresses.
+- She will tell me she was always playing devil's advocate.
+- I will tell her her involvement in the conspiracy could be described as close to attempted murder.
 - I realize there's really very few people I can trust, if anyone.
 - Christine continues to have regular lunches with me; I guess to check up on me and report back to Patricia and her trumpet-teacher friend, TT1, et al.
 
