@@ -59,12 +59,14 @@
 
 - It is Tuesday in the wee hours, 3am, after a Monday class with the trumpet teacher.
 - I dream the trumpet teacher is sobbing uncontrollably, and I hold him in my arms.
+- I just told him everything is going to be OK.
 - We are in my bed.
 
 ![The trumpet teacher sobbing in my arms](../../content/images/sobbing-1.png)
 
 - The following morning I cannot get the man out of my head, it is excruciating.
 - I believe I am in love with this man, and that he loves me back.
+- Something is very, very wrong.
 - I wake up and sit with my hands in my head. My thoughts are like a hurricane.
 - I tweet about this in August 2023, when hackers start to reveal themselves to me and communication begins in earnest.
 
