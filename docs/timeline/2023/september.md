@@ -783,11 +783,13 @@ function googleTranslateElementInit() {
 - I tell her everything that's been going on.
 - I tell her I think the engineer who is hacking me is a white, shortish fat man with glasses called David.
 - I tell her he posts pictures of Donatello, the mutant ninja turtle, as his avatar.
-- When I tell her that teachers at the conservatory [threw a dirty liquid on me from an upstairs window](june.md#monday-12th-june-2023), she laughs.
+- When I tell her that teachers at the conservatory [threw a dirty liquid on me from an upstairs window](june.md#monday-12th-june-2023) as I left the building on 12th June, she laughs.
 - I'm stunned.
 - She's really quite blase about everything I'm telling her, everything I've told you all here.
 - She is dismissive and always has some kind of alternate viewpoint that attempts to make what I'm experiencing sound totally normal, or that I'm imagining things.
-- This gaslighting continues to be her stance as the terror progresses.
+- She will tell me she was always playing devil's advocate.
+- I will tell her her involvement in the conspiracy could be described as attempted murder.
+- This gaslighting continues to be her stance towards me as the terror progresses.
 - I realize there's really very few people I can trust, if anyone.
 - Christine continues to have regular lunches with me; I guess to check up on me and report back to Patricia et al.
 
