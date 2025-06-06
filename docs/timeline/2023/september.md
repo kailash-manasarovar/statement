@@ -758,9 +758,10 @@ function googleTranslateElementInit() {
 - I will see one of them - a very short man with black hair - with [Ana Requena on the mountain](../2024/may.md#climbing-the-montgo) in May 2024.
 - We arrange to meet for Halloween and dress up as we had done in 2008.
 - Paul tells me rather private things that I suspect he's been told to tell me.
-- I meet Alex a few times over the next months until around March 12th and then I don't really hear from anyone again, apart from Paul who I "bump" into at the Open Market where he's having a beer from time to time.
+- I meet Alex a few times over the next months until around March 12th when I begin to fear for my life.
+- After that, I don't hear from anyone at all again, apart from Paul who I "bump" into regularly at the Open Market where he's having a beer.
 - On some of those occasions he seems extraordinarily stressed, scared even.
-- These sudden meetings are obviously pre-arranged by people who know my movements in order to get information from me about whether I'm staying, what my plans are, etc.
+- These sudden meetings are obviously pre-arranged by people who know my movements in order to get information from me about whether I'm staying, what my plans are, etc. so they can decide what they're going to do about me.
 
 !!! tip "Health industry tips and background"
     - A previously fit and strong woman, around 2008 or 2009, Alex suddenly became unwell with a weird autoimmune disease the name of which I can't remember.
