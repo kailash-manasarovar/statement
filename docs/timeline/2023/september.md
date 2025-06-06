@@ -599,7 +599,7 @@ function googleTranslateElementInit() {
 - He is in there for 30/45 minutes or so with the door closed.
 - What the hell was he doing in there?
 - At the same time, I'm on the phone trying to change my UK driving license to a Spanish one, and there is a huge confusion with Northern Ireland and I'm very stressed because no-one is able to help me.
-- I've been on the phone for 20 minutes or more and the person on the other end of the line is behaving in a particularly unhelpful way at the moment Pablo comes out of the bathroom.
+- I've been on the phone for 20 minutes or more and the person on the other end of the line is behaving in a particularly unhelpful way at the moment the handyman comes out of the bathroom.
 - I'm clearly very stressed and upset.
 - He barks at me, "You're sick!".
 - It was extremely rude and a very unusual thing to say. I had no idea why he would say such a thing.
