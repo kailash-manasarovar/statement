@@ -767,6 +767,7 @@ function googleTranslateElementInit() {
     - She was apparently the first person in Spain to have undergone such surgery and the surgeon was a very important and significant man in his field.
 
 - I notice from now that whatever conversations I have during the day, and with whom, are *played back to me* on social media with fake accounts and targeted posts.
+- I could be wrong, but I have often wondered if Alex and John's landlady is Hazel Smith and the flat they live in [rather familiar to me](../early-years/2007.md#hazel-smith).
 
 ## Meeting Christine
 
