@@ -770,9 +770,9 @@ function googleTranslateElementInit() {
     - Thank G-d, she survived the surgery but her health was severely affected by it.
     - She was apparently the first person in Spain to have undergone such surgery and the surgeon was a very important and significant man in his field.
 
-- I notice from now that whatever conversations I have during the day, and with whoever, are *played back to me* on social media with fake accounts and targeted posts.
+- I notice from now on that whatever conversations I have during the day, and with whomsoever, are *played back to me* on social media with fake accounts and targeted posts.
 - It becomes so commonplace, I only mention it to anyone when it's egregious.
-- I could be wrong, but I have often wondered if Alex and John's landlady is Hazel Smith and the flat they live in [rather familiar to me](../early-years/2007.md#hazel-smith).
+- I could be wrong, but I have often wondered if Alex and John's landlady is Hazel Smith and the flat they live in now might be [rather familiar to me](../early-years/2007.md#hazel-smith).
 
 ## Meeting Christine
 
