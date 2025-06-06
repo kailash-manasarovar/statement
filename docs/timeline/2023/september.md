@@ -791,7 +791,7 @@ function googleTranslateElementInit() {
 - I will tell her her involvement in the conspiracy could be described as attempted murder.
 - This gaslighting continues to be her stance towards me as the terror progresses.
 - I realize there's really very few people I can trust, if anyone.
-- Christine continues to have regular lunches with me; I guess to check up on me and report back to Patricia et al.
+- Christine continues to have regular lunches with me; I guess to check up on me and report back to Patricia and her trumpet-teacher friend, TT1, et al.
 
 ## Gypsy serenades through the tunnel
 
