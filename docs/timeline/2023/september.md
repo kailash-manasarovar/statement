@@ -747,7 +747,7 @@ function googleTranslateElementInit() {
     - I told her I was hacked by locals.
     - I told her I was being stalked online and in-person by teachers and staff at the conservatory.
     - I told her about the trumpet teacher and how I was in love with him.
-    - I told her the trumpet teacher's forearms reminded me of Winston May's, the chief rape-gang aggressor from 1989.
+    - I told her how the trumpet teacher's forearms had reminded me of Winston May's, the chief rape-gang aggressor from 1989. This is a very curious and significant memory, I must say.
 
 - Later that evening at home, I'm surprised to see statements we have made during our chat repeated back to me online on fake account profiles and posts.
 - Myself, Paul, and Alex meet for coffee soon after.
