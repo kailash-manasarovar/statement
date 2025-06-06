@@ -735,25 +735,38 @@ function googleTranslateElementInit() {
 
 ## Alex and Paul
 
-- I knock on Paul's door to say hello. He is surprised to see me. He's an old friend from Dénia.
+- I knock on Paul's door in the old town to say hello. He's an old friend from Dénia. 
+- He is now running an estate agent business: https://www.paulmatthewhomes.co.uk/.
+- He is surprised and happy to see me. 
 - He puts me and Alex (Alessandra) in contact, another old friend from Dénia.
+- You may remember I mentioned we had all [gone out for carnival in 2008](april.md#back-to-black) and I'd played Back to Black relentlessly on my ukelele.
 - I meet Alex and tell her everything that's been happening. I must appear extremely stressed and anxious.
+
+!!! tip "Things I told Alex"
+    - She may remember, I started my story with how I had been sexually abused as a child.
+    - I told her I was hacked by locals.
+    - I told her I was being stalked online and in-person by teachers and staff at the conservatory.
+    - I told her about the trumpet teacher and how I was in love with him.
+    - I told her the trumpet teacher's forearms reminded me of Winston May's, the chief rape-gang aggressor from 1989.
+
+- Later that evening at home, I'm surprised to see statements we have made during our chat repeated back to me online on fake account profiles and posts.
 - Myself, Paul, and Alex meet for coffee soon after.
-- Paul tells me rather private things that I suspect the stalkers are hoping I'll tweet about.
-- I meet Alex a few times over the next months until around March 12th and then I don't really hear from anyone again, apart from Paul who I continue to "bump" into at the Open Market where he's having a beer from time to time.
-- These meetings are obviously pre-arranged by others in order to get information from me.
-- We arrange to meet for Halloween as we had done in 2007.
-- Every time I meet them, people turn up immediately and sit right beside us. I know they're listening to everything we say.
-- I now remember that one of these people was likely [the man with Ana on the Montgo in May](../2024/may.md#climbing-the-montgo).
-- When I get back home and check Twitter, things the three of us have said in our conversation are posted on fake account profiles.
-- This happens with anyone I talk to.
+- The moment we sit down at a table in the cafe, numerous people enter the cafe and sit at all the empty tables around us.
+- I will see one of them - a very short man - with [Ana Requena on the mountain](../2024/may.md#climbing-the-montgo) in May 2024.
+- Paul tells me rather private things that I suspect he's been told to tell me.
+- I meet Alex a few times over the next months until around March 12th and then I don't really hear from anyone again, apart from Paul who I "bump" into at the Open Market where he's having a beer from time to time.
+- On some of those occasions he seems extraordinarily stressed, scared even.
+- These sudden meetings are obviously pre-arranged by people who know my movements in order to get information from me about whether I'm staying, what my plans are, etc.
+- We arrange to meet for Halloween and dress up as we had done in 2008.
 
 !!! tip "Background"
-    - A previously fit and strong woman, around 2008 or 2009, Alex suddenly became unwell with a weird autoimmune thing I can't remember.
-    - We weren't socializing at that time but I remember bumping into her and she was extremely anxious and worried about it.
+    - A previously fit and strong woman, around 2008 or 2009, Alex suddenly became unwell with a weird autoimmune thing the name of which I can't remember.
+    - We weren't socializing at that time but I remember bumping into her and she was extremely anxious and worried about unusual health symptoms.
     - She underwent a harsh surgery where she had a full bone marrow transplant around 2009/10 or thereabouts.
     - She survived the surgery but her health was severely affected by it.
     - She was apparently the first person in Spain to have undergone such surgery and the surgeon was a very important and significant man in his field.
+
+- I notice from now that whatever conversations I have during the day, and with whom, are *played back to me* on social media with fake accounts and targeted posts.
 
 ## Meeting Christine
 
