@@ -37,13 +37,18 @@
     - *Back to Black* by Amy Winehouse.
 - I found arrangements for trumpet and piano for these songs too.
 
-!!! tip "Back to Black"
-    - Back in 2008, I dressed up for carnival weekend with friends from Dénia.
-    - I wore a cow outfit and took my ukelele with me.
-    - I serenaded anyone who might be listening with Amy Winehouse's Back to Black, continuously, so that even the Montgo might enjoy it.
-    - There are photos, somewhere.
+### Back to Black
 
-    ![Back to Black](../../content/images/back-2-black.jpg)
+- Back in 2008, I dressed up for carnival weekend with friends from Dénia: Paul, Alessandra (we call her Alex mostly), Zoe, John, and me.
+- Paul was dressed as a serial killer in an orange Guantanamo suit.
+- Alex was dressed as a pirate.
+- John dressed, most hilariously, as a nun.
+- Zoe came as Britney. 
+- I went dressed as a cow and took my ukelele.
+- I serenaded anyone who might listen with Amy Winehouse's Back to Black, continuously, so that even the Montgo might enjoy it.
+- There are photos, somewhere. Let's see if I can find them.
+
+![Back to Black](../../content/images/back-2-black.jpg)
 
 ## Easter Saturday
 
