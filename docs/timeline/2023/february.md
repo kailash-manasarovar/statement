@@ -114,6 +114,7 @@
 - As this lie progressed, Ana interrupts every chamber music class for a few minutes to bring her instrument and leave it in the room, for reasons unclear, something that never happens normally.
 - Ana and Rosa María Vidal Orengo come in together sometimes to do this.
 - It's all very contrived. 
+- Not-contrived is that whenever Rosa speaks to the trumpet teacher, it is with the utmost respect and reverence.
 - Rosa is the vice director of the conservatory.
 
 !!! tip "List of teachers and staff at the conservatory"

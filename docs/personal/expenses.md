@@ -53,11 +53,12 @@ So there has been no safe place to go and I have had to stay in hotels a lot ins
 ## Rent
 
 - I take enormous exception at having paid monthly rent to criminal gangs who were poisoning, drugging, and filming me in my apartment.
-- I'd like it all paid back. I wasn't paying rent to be murdered or driven to suicide.
+- I'd like it all paid back. I wasn't paying rent to be murdered or driven to suicide or to make pornographers rich.
 - It's around 21,000 EURs paid to three different accounts.
 - I believe the first account was probably Bea's, the apparent landlady, but given she was so angry it was more likely paid directly to the trumpet teacher and Domingo who were managing the murderous plot initially.
-- I believe the second account, [changed in August 2022](../timeline/2022/july.md#the-landlady-changes-the-bank-account-for-the-rent) after the plan didn't quite go as expected was paid to Paqui Fornet who took over the murderous plot at that time.
+- I believe the second account, [changed in August 2022](../timeline/2022/july.md#the-landlady-changes-the-bank-account-for-the-rent) was probably paid directly to Domingo and the trumpet teacher gang, with some syphoned off to Paqui most likely when she took over.
 - The third account, [changed in August 2024](../timeline/2024/august.md#the-landlady-changes-the-bank-account-that-receives-the-rent-again), was very likely Carmen Cano's or whoever was tasked with murdering me by poison in October 2024 when Paqui's plot failed.
+- It won't be hard to find out.
 
 ## Poisoned clothes, belongings, and car
 
