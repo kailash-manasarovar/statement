@@ -739,7 +739,7 @@ function googleTranslateElementInit() {
 - He is now running an estate agent business: https://www.paulmatthewhomes.co.uk/.
 - He is surprised and happy to see me. 
 - He puts me and Alex (Alessandra) in contact, another old friend from Dénia.
-- You may remember I mentioned we had all [gone out for carnival in 2008](april.md#back-to-black) and I'd played Back to Black relentlessly on my ukelele.
+- You may remember I mentioned we had all [gone out for carnival in 2008](april.md#back-to-black) and I'd played Back to Black relentlessly on my ukulele.
 - I meet Alex and tell her everything that's been happening. I must appear extremely stressed and anxious.
 
 !!! tip "Things I told Alex"
@@ -755,7 +755,7 @@ function googleTranslateElementInit() {
 
 ![Having coffee with Alex and Paul](../../content/images/having-coffee-with-alex-and-paul.png)
 
-- I will see one of them - a very short man with black hair - with [Ana Requena on the mountain](../2024/may.md#climbing-the-montgo) in May 2024.
+- I will see one of them again - a very short man with black hair - with [Ana Requena on the mountain](../2024/may.md#climbing-the-montgo) in May 2024.
 - We arrange to meet for Halloween and dress up as we had done in 2008.
 - Paul tells me rather private things that I suspect he's been told to tell me.
 - I meet Alex a few times over the next months until around March 12th when I begin to fear for my life.
