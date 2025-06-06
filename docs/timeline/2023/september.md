@@ -751,7 +751,7 @@ function googleTranslateElementInit() {
 
 - Later that evening at home, I'm surprised to see statements we have made during our chat repeated back to me online on fake account profiles and posts.
 - Myself, Paul, and Alex meet for coffee soon after.
-- The moment we sit down at a table in the cafe, numerous people enter the cafe and sit at all the empty tables around us.
+- The moment we sit down at a table in the cafe, numerous people enter and sit at all the empty tables around us.
 
 ![Having coffee with Alex and Paul](../../content/images/having-coffee-with-alex-and-paul.png)
 
