@@ -747,7 +747,7 @@ function googleTranslateElementInit() {
     - I told her I was hacked by locals.
     - I told her I was being stalked online and in-person by teachers and staff at the conservatory.
     - I told her about the trumpet teacher and how I was in love with him.
-    - I told her how the trumpet teacher's forearms had reminded me of Winston May's, the chief rape-gang aggressor from 1989. This is a very curious and significant memory, I must say.
+    - I told her how the trumpet teacher's forearms had reminded me of Winston May's, the chief rape-gang aggressor from 1989. This is a very curious and significant thing for me to have said.
 
 - Later that evening at home, I'm surprised to see statements we have made during our chat repeated back to me online on fake account profiles and posts.
 - Myself, Paul, and Alex meet for coffee soon after.
@@ -756,20 +756,21 @@ function googleTranslateElementInit() {
 ![Having coffee with Alex and Paul](../../content/images/having-coffee-with-alex-and-paul.png)
 
 - I will see one of them - a very short man with black hair - with [Ana Requena on the mountain](../2024/may.md#climbing-the-montgo) in May 2024.
+- We arrange to meet for Halloween and dress up as we had done in 2008.
 - Paul tells me rather private things that I suspect he's been told to tell me.
 - I meet Alex a few times over the next months until around March 12th and then I don't really hear from anyone again, apart from Paul who I "bump" into at the Open Market where he's having a beer from time to time.
 - On some of those occasions he seems extraordinarily stressed, scared even.
 - These sudden meetings are obviously pre-arranged by people who know my movements in order to get information from me about whether I'm staying, what my plans are, etc.
-- We arrange to meet for Halloween and dress up as we had done in 2008.
 
-!!! tip "Background"
-    - A previously fit and strong woman, around 2008 or 2009, Alex suddenly became unwell with a weird autoimmune thing the name of which I can't remember.
-    - We weren't socializing at that time but I remember bumping into her and she was extremely anxious and worried about unusual health symptoms.
+!!! tip "Health industry tips and background"
+    - A previously fit and strong woman, around 2008 or 2009, Alex suddenly became unwell with a weird autoimmune disease the name of which I can't remember.
+    - We weren't socializing at that time but I remember bumping into her and she was extremely anxious and worried about unusual health symptoms she was having.
     - She underwent a harsh surgery where she had a full bone marrow transplant around 2009/10 or thereabouts.
-    - She survived the surgery but her health was severely affected by it.
+    - Thank G-d, she survived the surgery but her health was severely affected by it.
     - She was apparently the first person in Spain to have undergone such surgery and the surgeon was a very important and significant man in his field.
 
-- I notice from now that whatever conversations I have during the day, and with whom, are *played back to me* on social media with fake accounts and targeted posts.
+- I notice from now that whatever conversations I have during the day, and with whoever, are *played back to me* on social media with fake accounts and targeted posts.
+- It becomes so commonplace, I only mention it to anyone when it's egregious.
 - I could be wrong, but I have often wondered if Alex and John's landlady is Hazel Smith and the flat they live in [rather familiar to me](../early-years/2007.md#hazel-smith).
 
 ## Meeting Christine
