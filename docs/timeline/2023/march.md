@@ -59,7 +59,7 @@
 
 - It is Tuesday in the wee hours, 3am, after a Monday class with the trumpet teacher.
 - I dream the trumpet teacher is sobbing uncontrollably, and I hold him in my arms.
-- I just told him everything is going to be OK.
+- I tell him everything is going to be OK.
 - We are in my bed.
 
 ![The trumpet teacher sobbing in my arms](../../content/images/sobbing-1.png)
