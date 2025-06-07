@@ -226,6 +226,11 @@
 - Did Adria know or suspect I was being drugged/poisoned at home, and was he remarking on it?
 - Had my tweet about Domingo being a 'trans woman' made everyone at the conservatory more open about their hatred and violent intentions towards me?
 - Was that the instruction from above? For everyone to "treat the bitch extremely badly from now on"?
+- To kill or maim her?
+- They got close. 
+- I'm still struggling with basic cognitive skills in May 2025, something that low-level doses of methanol, or whatever, can obliterate.
+- He did [threaten to poison me](../early-years/2014.md#back-in-denia) after all.
+- I guess he was just making good on his threat.
 
 ## TEB with Robin
 
