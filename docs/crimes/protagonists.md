@@ -135,10 +135,15 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ## The hacker
 
-- Clearly, I am targeted by industrial-scale criminal hacking expertise that includes men local to Dénia.
-- However, I did find a reference to someone who might be of interest linked to Valencia.
+- Clearly, I have been targeted by industrial-scale criminal hacking expertise that includes men local to Dénia.
+- Initially I thought it was just one person who was close to the trumpet teacher and speaking for him.
+- I did find a reference to someone who might be of interest linked to Valencia.
 
 ![Hacker](../content/images/hornero/victor-castro-sanchez.png)
+
+- I believe there's a team probably working on numerous porn targets at any one time. 
+- My situation just spilled out into public because I refused to give into them. 
+- It was never clear what they wanted anyway apart from, obviously, my destruction which they will never get.
 
 ## Domingo Lopez Cano
 
