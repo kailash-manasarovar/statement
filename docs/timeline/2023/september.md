@@ -798,8 +798,8 @@ function googleTranslateElementInit() {
 
 - One day, I'm walking back from practicing the piano.
 - Three gypsies are standing at the end of the tunnel.
-- As I approach, the young woman starts singing as if she is shouting at me while one of the men plays his guitar and the other claps.
-- She sings while looking at me about a [lucky frog in a box](june.md#at-the-conservatory), and other stuff related to what's been going on.
+- As I approach, the young woman among them starts singing as if she is shouting at me while one of the men plays his guitar and the other claps.
+- She sings, while glaring at me, about a [lucky frog in a box](june.md#at-the-conservatory), and other stuff related to what's been going on.
 - It makes me laugh even though it is full-on gang stalking and extremely threatening.
 
 ![Frog in a box](../../content/images/frog-in-a-box.png)
