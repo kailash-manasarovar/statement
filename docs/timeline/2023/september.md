@@ -801,6 +801,9 @@ function googleTranslateElementInit() {
 - As I approach, the young woman starts singing as if she is shouting at me while one of the men plays his guitar and the other claps.
 - She sings while looking at me about a [lucky frog in a box](june.md#at-the-conservatory), and other stuff related to what's been going on.
 - It makes me laugh even though it is full-on gang stalking and extremely threatening.
+
+![Frog in a box](../../content/images/frog-in-a-box.png)
+
 - I recognize the young woman from an account that followed me on Twitter `@JackChardwood` over the summer when the hacking and stalking was intensifying. 
 - The account had a name that included "Suarez" and was supposed to be threatening. In her profile pic she'd gone cross-eyed.
 - The same woman was in a picture that came up on the `@sinremite` and `@jctot19` searches where she is [taking a pill](july.md#girl-taking-a-pill) in an exaggerated manner.
