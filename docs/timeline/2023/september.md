@@ -823,9 +823,11 @@ function googleTranslateElementInit() {
 
 ## Year 4 professional piano begins
 
-- I signed up and paid for the course in June, much to everyone's dismay no doubt.
+- I guess the intensity of the gang-stalking was an attempt to get me to stop my studies at the conservatory so the porn gangs could get on with whatever nightmare perverted abuse they had in mind for me to make their millions on and buy their fast cars.
+- I had signed up and paid for the course in June, much to everyone's dismay no doubt.
     - [Application form](../../content/documents/papeles-conservatorio/KATHARINE%20MARGARET%20MURPHY%20-%20MATRICULA.pdf).
     - [Proof of payment](../../content/documents/papeles-conservatorio/KATHARINE%20MARGARET%20MURPHY%20-%20pago.pdf).
+- It was obvious to me that I was safer in plain sight amongst everyone, and I wanted to play the piano.
 
 ## Chamber music
 
