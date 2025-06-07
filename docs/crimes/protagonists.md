@@ -1,3 +1,13 @@
+# Protagonists
+
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 This page lists the main players in the violent three-year attack on my physical, emotional, sexual, and psychological wellbeing. 
 
 It includes teachers and staff from the conservatory of Dénia, and others.
