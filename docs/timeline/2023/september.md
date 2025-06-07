@@ -798,24 +798,25 @@ function googleTranslateElementInit() {
 
 - One day, I'm walking back from practicing the piano.
 - Three gypsies are standing at the end of the tunnel.
-- As I approach, the young woman starts singing as if she is shouting at me while one of the men plays his guitar.
-- She sings while looking at me about a lucky frog in a box, and other stuff related to what's been going on.
-- It makes me laugh even though it is full on gang stalking.
+- As I approach, the young woman starts singing as if she is shouting at me while one of the men plays his guitar and the other claps.
+- She sings while looking at me about a [lucky frog in a box](june.md#at-the-conservatory), and other stuff related to what's been going on.
+- It makes me laugh even though it is full-on gang stalking and extremely threatening.
 - I recognize the young woman from an account that followed me on Twitter `@JackChardwood` over the summer when the hacking and stalking was intensifying. 
-- The account had a name that included "Suarez" and was supposed to be threatening. In her profile pic she's gone cross-eyed.
+- The account had a name that included "Suarez" and was supposed to be threatening. In her profile pic she'd gone cross-eyed.
 - The same woman was in a picture that came up on the `@sinremite` and `@jctot19` searches where she is [taking a pill](july.md#girl-taking-a-pill) in an exaggerated manner.
 - Below is a more recent fake account with her picture that followed me sometime in 2024.
 
 ![Gypsy singer](../../content/images/fake-accounts/townsfolk_1.png)
 
-- After this, every time I walk through the tunnel, there is a gypsy busker playing music related to everything that has gone on with the trumpet teacher.
+- After this and for the next months, every time I walk through the tunnel, there is a gypsy busker playing music related to everything that has gone on with the trumpet teacher.
 - They often stare at me menacingly.
 - I smile sweetly, say hello, and give them money.
 - One of them plays a tango, over and over, and purposefully plays a wrong note at a key moment, which makes me laugh but is supposed to be unsettling.
 - When they get through playing that one over and over, for weeks, they switch.
 - The new song is the theme tune from a Russian film [The First Echelon](https://www.youtube.com/watch?v=xxjE0rX25og).
-- Those are the only tunes I hear them play on a Sunday evening when I walk through the tunnel.
-- I did not see these buskers until September 2023, ever.
+- Those are the only tunes I heard them play on a Sunday evening when I walked through the tunnel until they stopped turning up. 
+- I didn't see them from April 2024.
+- And I did not see these buskers before September 2023 either.
 
 ## Year 4 professional piano begins
 
