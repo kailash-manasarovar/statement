@@ -38,8 +38,14 @@
 ## The laundry
 
 - Another place they set stuff up for me is at the laundry.
+- On Sunday nights I might take my washing to dry at the laundry five-minutes away from my house.
+- I remembered in the months January to April this year that every time I went to the laundry I felt nervous and tense and was loop-thinking about the trumpet teacher.
+- Sunday night was when I felt particularly unwell at home. I wasn't able to do [my homework properly](may.md#did-the-harmony-teacher-know-i-was-being-poisoned-at-home) on those evenings.
+- It was those evenings I might also [walk into town](september.md#gypsy-serenades) and maybe [bump into someone](september.md#rosa-vidal-follows-me-around) or some [menacing situation](../2024/april.md#the-trumpet-teacher-in-dénia).
 - These people clearly have nothing else to do.
-- Jail might be helpful for them. They could at least work at something.
+- Unless, of course, terrorizing women and girls is their daily bread.
+- Jail might be helpful for them.
+- They could at least work at something helpful for everyone instead of creating a hell-scape of our beautiful world.
 
 ## Tonya
 
