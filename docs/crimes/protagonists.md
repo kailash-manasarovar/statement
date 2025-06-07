@@ -137,13 +137,14 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - Clearly, I have been targeted by industrial-scale criminal hacking expertise that includes men local to Dénia.
 - Initially I thought it was just one person who was close to the trumpet teacher and speaking for him.
-- I did find a reference to someone who might be of interest linked to Valencia.
+- I did find a reference to someone who might be of interest.
 
 ![Hacker](../content/images/hornero/victor-castro-sanchez.png)
 
+- His twitter is here: https://x.com/viccassan82.
+- He looks a lot like this guy too: https://x.com/csonnyb/photo an account the stalked me from October 2024.
 - I believe there's a team probably working on numerous porn targets at any one time. 
 - My situation just spilled out into public because I refused to give into them. 
-- It was never clear what they wanted anyway apart from, obviously, my destruction which they will never get.
 
 ## Domingo Lopez Cano
 
