@@ -9,24 +9,40 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ## Vidal Sastre Sanchez Hornero
 
 - This is the name given to the trumpet teacher who turned up to teach class very sporadically starting at the [end of November 2022](../timeline/2022/november.md#the-trumpet-teacher).
-- I have not found it believable that this man's name is Vidal Sastre Sanchez Hornero, unless these criminal gangs are so arrogant and protected, they don't bother hiding themselves.
-- This is the name registered in the Generalitat Valenciana systems, even today, although an official told me the person could not be found.
+- I found it hard to believe that this man's name is Vidal Sastre Sanchez Hornero, unless these criminal gangs are so arrogant and protected, they don't bother hiding themselves.
+- This is the name registered in the Generalitat Valenciana systems, even today. 
+- Curiously a government official told me no record of the person could be found at the same time I was looking at his name on official Generalitat government lists.
+
+![Generalitat list](../content/images/hornero/guv-records.png)
+
 - He is apparently the director of a [band in Valencia](https://www.lamistatquart.com/) and this fits with his original story.
-- There are a bunch of references for this name online, including references which come from the Generalitat's formal lists of teachers.
+- There are a bunch of references for the name online, including references which come from the Generalitat's formal lists of teachers.
 
 ![Horn refs](../content/images/hornero/horn-refs.jpg)
 
-- The references include a number of pictures of the man who turned up to teach classes.
+- It's hard to believe there's no reference for him. He may have been working unofficially with the conservatory of Dénia, but they gave him a pension while doing so.
+- Online references include a number of pictures of the man who turned up to teach classes.
 
 ![Hornero 1](../content/images/hornero/horn-pic-1.jpg)
 ![Hornero 2](../content/images/hornero/horn-pic-2.jpg)
 ![Hornero 3](../content/images/hornero/horn-pic-3.jpg)
+
+- It's not clear if the man below is the same man as in the previous pictures, but I recognize him too.
+
 ![Hornero 4](../content/images/hornero/horn-pic-4.jpg)
 
-- This is, indeed, the man who taught the class on Monday evenings that I attended. At least, I look at all these pictures and remember them as being the "trumpet teacher" who turned up to class sporadically on Mondays.
-- Another picture I recognized as him was from [the video of another girls "funeral"](../content/images/youtube-video.png) I had found in June 2023, in Dublin, when I was severely traumatized after the events of 12th June 2023.
-- However, looking at these pictures, I believe I remember another man who looked dissimilar again. 
-- If this is true, seemingly I became confused about these people being the same person, probably because I was [on drugs without my knowledge](../timeline/2023/january.md#serious-poisoning-at-chamber-music-class), and probably because the online NLP/hypnosis situation was set up with that intention.
+- The pictures show the man who taught the class on Monday evenings that I attended. At least, I look at all these pictures and remember them as being the "trumpet teacher" who turned up to class sporadically on Mondays.
+- But there are another bunch of pictures of this person who look like someone completely different to the men above.
+
+![TT1](../content/images/hornero/tt-1.png)
+![TT1](../content/images/hornero/tt-1-again.png)
+![TT1](../content/images/hornero/tt-1-again-2.png)
+
+- I recognize this man too as being the "trumpet teacher" that took classes on a Monday evening.
+- While I'm writing out my statement, I realize with horror there is more than one trumpet teacher.
+- Another picture I recognized as him was from [the video of another girls "funeral"](../content/images/youtube-video.png) I had found in June 2023, in Dublin, when I was severely traumatized after the events of [12th June 2023](../timeline/2023/june.md#monday-12th-june-2023).
+- However, on looking at these pictures, I believe I remember another man, who looked dissimilar again. 
+- If this is true, seemingly I became confused about these people being the same person, probably because I was [on drugs without my knowledge](../timeline/2023/january.md#serious-poisoning-at-chamber-music-class), and probably because the online NLP/hypnosis hypno-tech was set up with that intention.
 - Curiously, online face comparison tools say that none of the above pictures are of the same person.
 
 !!! tip "What?"
@@ -34,18 +50,20 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     - Imagine you have control of a person by giving them psychoactive and mood altering substances over long periods and they are unaware of it.
     - Now you can set up a situation in which you have two, or more, people swapping the same role from time to time, so as to confuse the person into relating multiple people as the same one person.
     - Add to this, root access to the target's online activity, with the ability to flash whatever images you like up for subliminal stimulation.
-    - I believe this happened to me, as the men in the pictures above are dissimilar to each other, *and* to another man I remember taking the class from time to time.
+    - I believe this happened to me, as the men in the pictures above are extremely dissimilar to each other, *and* to another man I remember taking the class from time to time.
     - And now, I'm wondering if all the pictures of Vidal Sastre Sanchez Hornero that I personally recognize are of a number of different people.
     - If a group of men wanted to groom unwitting young girls, and get away with it, how better than to never be the same person the young girls see twice.
     - Even better if there is intimate activity with the target without her knowledge. The body, and mind under sedation, always remembers something.
     - Anyone making a complaint would be easily dismissed, not least because everyone else is aware there is a target and what's happening to her, and that this is protected by the highest authority of the land.
     - And if they really wanted to make sure she was confused about what she was seeing, they might try to blind her, perhaps with low-level continuous methanol doses direct into the water supply at her apartment, or if she's really feisty why not just spray all her clothes and belongings in high dose pesticides.
 
-- One of my suspicions now is that this name probably relates to a group of criminals who control women by drugging them whilst having full root access to their social media activity.
+- Did Pablo ask the trumpet teacher when he turned up [where the other guy was](../timeline/2023/january.md#chamber-music-classes-continue)?
+- One of my suspicions now is that this name probably relates to a group of criminals who control women by drugging them whilst having full root access to their online devices and using some sort of social media hacking app which can change the timeline or the UI with ease. 
+- It's not such an advanced piece of software, actually, and would just mean having some AI tool ready to rewrite the HTML on a target's machine with specific messages or pictures.
 - In the past, sexually coercive behavior like this would usually be undertaken by pimps and perverts with the end goal of enticing and trapping women in the sex "industry" and this is certainly in keeping with the content the gangs shared with me online, such as [the pictures of the lady who went from innocent girl to hardcore porn activity](../timeline/2024/august.md#photos-of-abused-women-and-girls).
-- In the past, this bait-and-switch activity would have been undertaken directly in physical settings, clubs and societies, bars, etc., and still is.
+- In the past, this bait-and-switch activity would have been undertaken directly in physical settings, clubs and societies, bars, etc., and of course still is.
 - However, the sexual coercion techniques used in Dénia and the region has taken a new and extremely troubling turn.
-- Criminals and other bad actors are now able to access a person's private home network and devices in a remarkably easy way. From there, malicious actors can monitor all online activity, paying close attention to finances and anything incriminating.
+- Criminals and other bad actors are now able to access a person's private home network and devices in a remarkably easy way. From there, malicious actors can monitor and control all online activity, paying close attention to finances and anything incriminating.
 
 !!! danger "Would anyone want to live here if they knew how much danger the wealthy, elderly, women and children are in?"
     - Visitors to the region should be warned that it is highly likely their online activity will be monitored very closely by locals.
@@ -53,27 +71,31 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     - Even 4g/5g mobile networks, without access to wifi routers, are vulnerable.
 
 - With such access, criminals can manipulate and intimidate a woman or child via their social media and other online activity.
-- If they are being drugged as well, like perhaps the [flautist in this video](../timeline/2023/june.md#youtube), then it is highly likely the target will eventually suffer a physical sexual, or be manipulated into something apparently consensual, and then be put on porn networks without their consent.
+- Is this how children are being coerced online into sending sexually explicit pictures of themselves for a pedophile porn market?
+- If a target is physically present, and being drugged as well, like perhaps the [flautist in this video](../timeline/2023/june.md#youtube), then it is highly likely they will eventually suffer a physical sexual, or be manipulated into something apparently consensual, and then be put on porn networks without their consent.
 - Here's another reference to a "funeral" or "sale" of a groomed young woman from the band in Valencia.
 
 ![Hornero activity funeral home](../content/images/hornero/horn-funerals-1.png)
 
 - "Se la rifaron" means, they sold her off.
-- I do not believe Vidal Sastre Sanchez Hornero is any of the trumpet teacher's names under these circumstances. 
+- Notice at a certain point in the performance, the trumpet player plays in a very sexually suggestive manner, *stripper style*.
+- These people are not hiding, but I believe they are drugging and sedating women and girls, and not just here, probably all over the region wherever adult men have unrestricted access to women, teenage girls, and younger.
+- I believe that *Vidal Sastre Sanchez Hornero* is the name of one, and only one, of this gang.
 - Whoever these people are, they are proud of their behavior, and arrogant enough to showcase their "controlling young girls" activity on [YouTube](https://www.youtube.com/@saxofonator/search?query=vidal%20sanchez%20sastre%20horneros).
-- It appears that all attacks, or "funerals" of women are videoed and shared, and certainly my "funeral" on 12th June 2023, was excitedly recorded on the mobile phones of all present.
+- It appears that all attacks, or "funerals" of women are videoed and shared, and certainly my "funeral" on [12th June 2023](../timeline/2023/june.md#monday-12th-june-2023), was excitedly recorded on the mobile phones of all present, including teachers, staff, and students.
 
 !!! danger "Shocking"
-    - If I'm right about this, then the children of the conservatory would also have to be complicit in the deception and targeting of students by numerous adult males.
-    - This is a somewhat horrific thing to consider and I do hope it is not true but given statistics like all 11-year-old boys have seen pedophile gang rape porn and worse, usually in school, then nothing would surprise me anymore.
+    - If I'm right about this, then the children of the conservatory would also have to be somewhat complicit in the deception and targeting of female students by countless adult males and their female assistants.
+    - This is a somewhat horrific thing to consider and I do hope it is not true but given statistics like all 11-year-old boys have seen pedophile gang rape porn and worse, usually in school on their mates' phones, then nothing would surprise me anymore.
 
 ### A second opinion
 
-- Another version of events is that if this person, having the name Vidal SSH, *is* the man in the pictures above, he may have been set up to be the fall-guy if anything went wrong in the original plan.
-- His attendance at the conservatory could have been a cover for the other man, a known criminal from the area.
-- In this scenario, and following a recent tip from a reliable anonymous source, I was informed that the man in the pictures above was under investigation for grooming at the time he visited the conservatory in 2022/23.
-- If this is true, and the [pictures and videos](../timeline/2023/june.md#youtube) made very public do seem to suggest he was involved in some sort of grooming gang scenario, then could the criminal porn gangs have simply needed someone to play a part to hide the fact that real pimps and pornographers were entering the conservatory freely to do whatever they liked.
+- Another version of events is that if this person, having the name Vidal SSH, *is* one of the men in the pictures above, he may have been set up to be the fall-guy if anything went wrong in the original plan.
+- His attendance at the conservatory could have been a cover for the other man, a known criminal from the local area.
+- In this scenario, and following a recent tip from a reliable anonymous source, I was informed that one of the men in the pictures above was under investigation for sexual grooming at the time he visited the conservatory in 2022/23.
+- If this is true, and the [pictures and videos](../timeline/2023/june.md#youtube) made very public do seem to suggest he was involved in some sort of grooming gang scenario, then could the criminal porn gangs have needed someone to play a part to hide the fact that real pimps and pornographers were entering the conservatory freely to do whatever they liked?
 - And who better than someone already under suspicion for similar crimes?
+- What a hell these poor people are living in!
 
 ## The *other* trumpet teacher
 
@@ -100,6 +122,13 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ![Trumpet teacher and Gloria receptionist](../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
 
 - Symbols and memes related to the trumpet teacher during the cyber stalking are horses, Trump, and more. I'll add these to the [memes section](../memes-triggers/memes.md) at some point as I go through all the material.
+
+## The hacker
+
+- Clearly, I am targeted by industrial-scale criminal hacking expertise that includes men local to Dénia.
+- However, I did find a reference to someone who might be of interest linked to Valencia.
+
+![Hacker](../content/images/hornero/victor-castro-sanchez.png)
 
 ## Domingo Lopez Cano
 

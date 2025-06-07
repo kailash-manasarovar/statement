@@ -49,6 +49,7 @@
     - The trumpet teacher's attendance is extremely poor. He has missed nearly 3 months of classes before he arrives, and only turns up to maximum 50% of the classes scheduled to the end of the school year.
     - I wonder now if his sketchy attendance was more about a group of men's availability on Monday evenings, and not just his alone.
 
+- I vaguely remember on one occasion Pablo asking the trumpet teacher that turned up one evening where the other guy was.
 - The trumpet teacher flirts with me more and more, but his behavior is garish and ignorant; phoney.
 - Nevertheless, I believe he likes me because he looks at me in a certain way, he cannot hold eye contact with me, and some of the things he says and does - outside of him behaving like an immature and sexist brute - make me quite sure he is sexually attracted to me.
 - It also starts to feel electric in the classroom when I'm with him. I feel breathless and flushed, and my whole body is vibrating.
