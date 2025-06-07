@@ -35,6 +35,12 @@
 - I wonder if he is a computer technician at the conservatory.
 - I would recognize him in an instant.
 
+## The laundry
+
+- Another place they set stuff up for me is at the laundry.
+- These people clearly have nothing else to do.
+- Jail might be helpful for them. They could at least work at something.
+
 ## Tonya
 
 - Fake accounts and interactions online keep mentioning the name Tonya.
