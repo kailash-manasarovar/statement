@@ -24,6 +24,22 @@
 
 - It's almost as if the whole town is reading my tweets, and the whole town knows about the sedated sexual relationship I'm having, or had been having at that time, with the trumpet teacher.
 
+### Overwhelming romantic feelings
+
+- At the same time, I have been experiencing overwhelming romantic feelings for a few days.
+- A whole story is on loop in my mind.
+- It's like I can see a whole scene happening, over and over again.
+- The trumpet teacher and I are at the beach and we're having a wonderful time.
+- We're playing in the sea, laughing, having fun, and rolling in the sand.
+- We are in love.
+- I cannot get these images out of my head, nor do I want to really because they are pleasant.
+- Except, they're unusually intense, never letting up, firing on a loop.
+- I believe this event is going to happen.
+- I believe it so much, I buy him some swimming shorts in Zaragoza which I leave in my car.
+- I throw the swimming shorts away about a week later when I realize this was temporary insanity.
+- How did they do that? I wonder.
+- Were they flashing up photos of him in the sea and at the beach playing with the photographer, so that I thought these things were happening to me?
+
 ## Good Friday
 
 - On April 7th, Good Friday, I remain sexually aroused.
@@ -91,6 +107,9 @@
 
     ![jctot19](../../content/images/jctot19.png)
 
+- It's curious the main picture is from [a day at the sea](#overwhelming-romantic-feelings).
+- In January 2024, I will see another side of this picture where the person deep down is taking a picture of the woman swimming above him.
+- I guess that's how they entrap the men, or the lesbians.
 - The next day I told Sally what had happened. We were amazed. It was a miracle!
 - I followed the Twitter account. 
 - The account blocked me immediately.
