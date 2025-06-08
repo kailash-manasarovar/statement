@@ -24,11 +24,12 @@
 - When we are alone a little later, I mention to Patricia that the trumpet teacher is the same guy we saw in [Benijembla at the end of November](../2022/november.md#walking-in-benijembla-with-the-english-ladies).
 - Patricia gets angry and changes the subject.
 - **I'm never invited to walk again.** In fact, I'm cut off completely from the English ladies walking group. It's shocking to me actually and I can't figure it out at all. 
+- Not only that, I go for a walk on my own a week or two later and "bump" into them; Patricia, Christine, and the others. Christine tries to talk to me like I'm an idiot.
 - I'm offended and upset.
 - I still see Christine now and then for lunch, however, and she behaves as if everything's fine.
 
 !!! warning "Reporting back"
-    - Having successfully removed my only (apparent) support network, the criminals will have required someone to report back on me. 
+    - Having successfully removed my only (apparent, probably not) support network, the criminals will have required someone to report back on me. 
     - And that must have been Christine in her 'let's have lunch' capacity, even though she had completely stopped inviting me out to walk.
     - It's funny how everyone treated me as if I was an idiot.
     - I wonder what the conversations were like between Christine and whoever she was reporting back to, Patricia probably, Hazel Smith eventually.

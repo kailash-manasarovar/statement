@@ -79,9 +79,12 @@
 - This may well be in my statement to the police, but it is more likely viewable in the porn they made.
 - I immediately stop communicating with him and delete the twitter account I had created.
 
-### Novel entries
+### The photographer
 
-- There are additions to this period in Ireland related to something Steve said to me, an email exchange between myself and him, and some interesting communications.
+- I see a picture of a woman swimming from the viewpoint of someone deep down. 
+- I know it, somehow, to be the woman who took the picture of the `@jctot19` account picture.
+- This is related somehow to the overwhelming feelings of love and romance I had in [April 2023 while driving to Lourdes](../2023/april.md#overwhelming-romantic-feelings).
+- There are more additions to this period in Ireland related to something Steve said to me, an email exchange between myself and him, and some interesting communications.
 
 ### Therapy table
 

@@ -26,6 +26,13 @@
 
 - We also, curiously, see some activity on the Cloudflare infrastructure that runs this site that shows that people in Finland are requesting pages.
 
+## Patricia communicates again
+
+- Patricia continues to make contact as if I'm an idiot.
+- She sends an email around to everyone with significant dates on it.
+- 7th October, a date in the 70s related to an Irish terrorist attack, and a date related to puppy love.
+- I'll extrapolate later but I believe she is trying to remind me of the [puppy love and romance](../2023/april.md#overwhelming-romantic-feelings) from before, and keep me hooked in.
+
 ## Threats
 
 - I continue to get online threats from fake accounts.

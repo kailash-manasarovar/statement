@@ -26,14 +26,14 @@
 
 ### Overwhelming romantic feelings
 
-- At the same time, I have been experiencing overwhelming romantic feelings for a few days.
+- I had been experiencing these overwhelming romantic feelings for a few days.
 - A whole story is on loop in my mind.
-- It's like I can see a whole scene happening, over and over again.
+- It's like I can see a scene happening, over and over again.
 - The trumpet teacher and I are at the beach and we're having a wonderful time.
 - We're playing in the sea, laughing, having fun, and rolling in the sand.
 - We are in love.
 - I cannot get these images out of my head, nor do I want to really because they are pleasant.
-- Except, they're unusually intense, never letting up, firing on a loop.
+- Except, they're unusually intense, never letting up, firing on a loop, destabilizing.
 - I believe this event is going to happen.
 - I believe it so much, I buy him some swimming shorts in Zaragoza which I leave in my car.
 - I throw the swimming shorts away about a week later when I realize this was temporary insanity.
