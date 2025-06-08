@@ -800,12 +800,14 @@ function googleTranslateElementInit() {
 - Three gypsies are standing at the end of the tunnel.
 - As I approach, the young woman among them starts singing as if she is shouting at me while one of the men plays his guitar and the other claps.
 - She sings, while glaring at me, about a [lucky frog in a box](june.md#at-the-conservatory), and other stuff related to what's been going on.
+- The frog reference is obvious but I brought it to [him in a little bag](june.md#world-saving-lucky-forg).
+- It's not clear why the frog is in the box. She's belting so loudly, anyone listening on my mobile would have heard it.
 - It makes me laugh even though it is full-on gang stalking and extremely threatening.
 
 ![Frog in a box](../../content/images/frog-in-a-box.png)
 
 - I recognize the young woman from an account that followed me on Twitter `@JackChardwood` over the summer when the hacking and stalking was intensifying. 
-- The account had a name that included "Suarez" and was supposed to be threatening. In her profile pic she'd gone cross-eyed.
+- The account had a name that included "Suarez" and was supposed to be threatening. In her profile pic she'd gone cross-eyed.#for
 - The same woman was in a picture that came up on the `@sinremite` and `@jctot19` searches where she is [taking a pill](july.md#girl-taking-a-pill) in an exaggerated manner.
 - Below is a more recent fake account with her picture that followed me sometime in 2024.
 
