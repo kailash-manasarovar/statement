@@ -825,7 +825,7 @@ function googleTranslateElementInit() {
 
 ## Year 4 professional piano begins
 
-- I guess the intensity of the gang-stalking was an attempt to get me to stop my studies at the conservatory so the porn gangs could get on with whatever nightmare perverted abuse they had in mind for me to make their millions on and buy their fast cars.
+- I guess the intensity of the gang-stalking was an attempt to get me to stop my studies at the conservatory so the porn gangs could get on with whatever nightmare, perverted abuse they had in mind for me to make their millions on and buy their fast cars.
 - I had signed up and paid for the course in June, much to everyone's dismay no doubt.
     - [Application form](../../content/documents/papeles-conservatorio/KATHARINE%20MARGARET%20MURPHY%20-%20MATRICULA.pdf).
     - [Proof of payment](../../content/documents/papeles-conservatorio/KATHARINE%20MARGARET%20MURPHY%20-%20pago.pdf).
@@ -833,19 +833,34 @@ function googleTranslateElementInit() {
 
 ## Chamber music
 
-- The conservatory chamber music classes begin again and I'm to accompany two singers.
-- Katia is, apparently, a friend of Ana and she play acts being really angry with me throughout the course.
-- I write to her eventually after she gives me her mobile phone number in December.
+- There is an online meeting before school starts to decide which pianists will play with which soloists.
+- It's obviously arranged prior that I will accompany two singers on the piano; one of whom, Katia, is apparently [Ana Requena's](february.md#ana-the-violin-teacher) good friend.
+
+### Katia
+
+- In the online meeting Katia is on Teams sitting next to a man I recognize who doesn't say anything the whole meeting.
+- The man is the same [curious man I saw at the choir concert](../2022/december.md#the-curious-man) who looked so much like [a man I'd seen in Cauterets](../2022/september.md#a-curious-man), I wondered if they were the same person.
+- It's not clear why he is attending the meeting sat next to Katia. He has nothing to say or do, apart from, perhaps, let me see him?
+- Katia play-acts being angry with me throughout the course.
+- The implication is my (non-existent online) love affair with the trumpet teacher is a real thing, he is going out with Ana as per constant messaging online, and Ana has become extremely angry and jealous of me.
+- It's absurd, but I'm never sure what's true.
+- In December, she *meaningfully* gives me her mobile phone number.
+- [I write to her about everything](../2024/january.md#january-18th-correspondence-to-katia-and-the-generalitat) in January.
+- She does not reply apart from making a weird comment to me the next time I see her at class.
 
 ### Nacho tries to terrorize me
 
-- In the first class, Nacho the clarinet teacher races in extremely angry and starts talking to the chamber music teacher.
+- At the first chamber music class, Nacho the clarinet teacher races in, extremely angry, and starts shouting about something with the [chamber music teacher](../../crimes/protagonists.md#other-teachers-and-students-to-a-greater-or-lesser-degree).
 - I know he's trying to upset me.
-- I tweet about him (he kind of looks like an ugly Bryan Ferry).
-- I haven't seen him properly in years, apart from when he would 'bump' into me on the stairs after chamber music class on a Monday with the trumpet teacher.
+- He kind of looks like an ugly Bryan Ferry.
+
+![Ugly Bryan Ferry](../../content/images/bryan-ferry.png)
+
+- I haven't seen him properly in years; apart from when he would 'bump' into me on the stairs smelling of alcohol after chamber music class on a Monday with the trumpet teacher.
 
 [![Bryan Ferry has aged](../../content/tweets/september-23-comms/bryan-ferry.png)](https://x.com/1FRGVN/status/1706609205908476079)
 
+- Nacho is the guy who [Domingo tried to set me up with](../early-years/2014.md#at-the-conservatory) when I didn't want anything further to do with him.
 - A cyber-stalker baits me about it, and I respond.
 
 [![Bryan Ferry terrorizing me](../../content/tweets/september-23-comms/bryan-ferry-2.png)](https://x.com/1FRGVN/status/1707151247059321125)

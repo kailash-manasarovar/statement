@@ -14,6 +14,15 @@
 
 ![Premonitions](../../content/images/premonitions.png)
 
+### A curious man
+
+- For about a week of my stay, there was a couple I bumped into regularly on the trails and in the town.
+- They were usually running the trail around Cauterets.
+- Nothing unusual about them except in December I see a man at the choir concert who looked exactly like the man I had seen running on the trail.
+- He has a very distinctive look.
+- I saw a man who looked just like him at the [choir concert in December](december.md#the-curious-man).
+- I saw the person again on the [online meeting in September 2023](../2023/september.md#chamber-music) led by Paqui Fornet.
+
 ## Threatening tweets
 
 - An example of some threatening tweets I mentioned [in a previous chapter](march.md#planting-the-choker-seeds), now deleted by the author.

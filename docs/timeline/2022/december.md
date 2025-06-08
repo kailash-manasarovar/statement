@@ -52,6 +52,15 @@
 
 ![Snakes](../../content/images/snakes.png)
 
+### The curious man
+
+- At the concert, I saw someone else I thought I recognized.
+- A man who looked exactly like [the running man I saw in Cauterets](september.md#a-curious-man).
+- I did a double take from wondering if he was a film star he was so familiar, and then I realized where I thought I knew him from and thought nothing much of it again.
+- I guess he was in Cauterets at the same time, or someone who looked very much like him was.
+- A strange coincidence, maybe.
+- I saw the same man again at the online [chamber music meeting in September 2023](../2023/september.md#chamber-music).
+
 ## Feeling unwell at home
 
 - I felt unwell a lot at home; headaches, stressed and unsettled emotionally, and nauseated at times.
