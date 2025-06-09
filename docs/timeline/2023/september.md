@@ -920,6 +920,9 @@ function googleTranslateElementInit() {
 
 - We have a new choir teacher, Salva Tur; an unpleasant man who thought we would like to hear him talking for 1 hour and 50 minutes of each class and then perhaps do a few minutes of singing. 
 - The choir course, aside from the relentless bullying, was excruciatingly boring.
+
+![Choir with Salva](../../content/images/choir-class-with-salva.png)
+
 - When I introduce myself as he's going around the class, he grins at me in a knowing way, "oh, you're Katharine".
 - A little later he starts singing "it's too good to be true".
 - That evening on Twitter, I see a post on my `@jackchardwood` timeline from an account I never saw before named *Salva*.
