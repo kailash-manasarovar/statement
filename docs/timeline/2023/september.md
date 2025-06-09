@@ -921,7 +921,7 @@ function googleTranslateElementInit() {
 - The choir course, aside from the relentless bullying, was excruciatingly boring.
 - When I introduce myself as he's going around the class, he grins at me in a knowing way, "oh, you're Katharine".
 - A little later he starts singing "it's too good to be true".
-- That evening on Twitter, I see an account I don't follow named *Salva* has posted on my `@jackchardwood` timeline.
+- That evening on Twitter, I see a post on my `@jackchardwood` timeline from an account I never saw before named *Salva*.
 - I look at the post. 
 - A man is taking his trousers down to show his penis.
 - I mention [dick pics on Twitter in January 2024](../2024/january.md#dick-pics-from-the-choir-master), right before choir class.
