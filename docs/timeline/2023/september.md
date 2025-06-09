@@ -922,7 +922,7 @@ function googleTranslateElementInit() {
 - When I introduce myself as he's going around the class, he grins at me in a knowing way, "oh, you're Katharine".
 - A little later he starts singing "it's too good to be true".
 - That evening on Twitter, an account named Salva, posts a dick pic.
-- I mention [dick pics on Twitter in January 2024](../2024/january.md#dick-pics-from-the-choir-master), right before choir class.
+- I mention [dick pics on Twitter in January 2024](../2024/january.md#dick-pics-from-the-choir-master), right before choir class, he receives a WhatsApp message during class, reads it, and becomes apoplectic.
 
 ## Apes beating their chests
 
