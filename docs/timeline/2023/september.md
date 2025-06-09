@@ -881,15 +881,26 @@ function googleTranslateElementInit() {
 ## Harmony classes
 
 - We have a new teacher, Alfonso, for harmony.
-- One afternoon I see him following me around Dénia.
-- It's clear that everyone knows what's been going on and has been invited to join in terrorizing the female target of the moment.
+- One afternoon I see him following me around Dénia, looking in shops, glancing at me, walking away, turning up somewhere else, the usual thing.
+- It's clear to me that everyone knows what's been going on and has been invited to join in terrorizing the female target of the moment.
 - I wear a funny t-shirt to class in an attempt to make light of it all and carry on with my studies.
 
 ![Don't poke the bear](../../content/images/dont-poke-the-bear.png)
 
-- I don't realize at this time that the gang stalkers, Domingo and his accomplices, intend nothing less than my total destruction.
+- I still don't realize at this time that the gang stalkers, Domingo and his accomplices, intend nothing less than my total destruction.
 - I wonder what they've been told about me that would make them so eager to terrorize me, or whether it's just something they enjoy doing to random people (women and girls) from time to time.
-- I now wonder if they were always aware of the sexual grooming and the danger to minors.
+- I wrote the sentence previous before I even knew myself that they had all been told, and shown even, that I had been in gang-rape porn from 1989.
+- I believe there is a cultural abuse of women in Spain that everyone is familiar with and happy to take part in, and I believe that's what Alfonso thought was going on.
+- At some point, he must have realized that there was far more at stake.
+- I wonder if he became aware of the sexual grooming that I experienced with the trumpet teacher, things going on at the conservatory, and the constant danger to minors especially girls.
+- Alfonso's face came up on the `@jctot19` search results after I left my studies in fear for my life.
+
+![Alfonso](../../content/images/harmony-teacher.png)
+
+- Although he was persuaded initially to take part in the gang-stalking, he seemed reluctant as it continued on, and when I told him I was leaving because I was in fear of my life, he seemed to have some humanity towards me.
+- Hackers called him a 'brat' online. 
+- That's a very British term to use and I assume came from the Smiths.
+- I was alarmed to see his face in google searches like this. He looks scared.
 
 ## Piano classes
 
