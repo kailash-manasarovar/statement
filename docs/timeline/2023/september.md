@@ -935,7 +935,10 @@ function googleTranslateElementInit() {
 
 - I'm walking home with my Indian takeaway one evening. 
 - A group of men is walking towards me. They are making weird noises and some of them have their shirts off. They are large, well built men. 
-- They are literally swinging their arms and beating their chests.
+- They are literally growling, swinging their arms, and beating their chests as they pass me.
+
+![Chest beaters](../../content/images/chest-beaters.png)
+
 - I ignore them.
 
 ## Interesting tweets
