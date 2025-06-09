@@ -832,6 +832,7 @@ function googleTranslateElementInit() {
     - [Application form](../../content/documents/papeles-conservatorio/KATHARINE%20MARGARET%20MURPHY%20-%20MATRICULA.pdf).
     - [Proof of payment](../../content/documents/papeles-conservatorio/KATHARINE%20MARGARET%20MURPHY%20-%20pago.pdf).
 - It was obvious to me that I was safer in plain sight amongst everyone, and I wanted to play the piano.
+- Another thing I started to notice was that the teaching staff was predominantly male while the students were overwhelmingly female.
 
 ## Chamber music
 
