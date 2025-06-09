@@ -906,7 +906,7 @@ function googleTranslateElementInit() {
 ## Piano classes
 
 - Paqui Fornet Pastor is my new piano teacher and I really don't expect her to be involved in anything that has been going on.
-- I asked for a change of teacher because of the disappointing behavior of [Maria](../2022/september.md#classes-start-at-the-conservatory) during my classes with her the year before.
+- I asked for a change of teacher because of the disappointing behavior of [Maria](../2022/september.md#piano) during my classes with her the year before.
 - It turns out Paqui is a ringleader and the [boat club episode](march.md#choir-rehearsal-at-the-boat-club) must have been a show-and-tell for hubby.
 - Paqui pretends to be neutral but says some interesting things over the next months until March 2024 when she reveals her monstrous self.
 - At that time, I'm followed by fake accounts with her picture on them, and I see the same picture in Google search.
