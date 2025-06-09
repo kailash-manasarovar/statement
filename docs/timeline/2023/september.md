@@ -713,8 +713,8 @@ function googleTranslateElementInit() {
 
 - I know it's another choreographed deceit, and I know it's all intended for me to see, and wonder about, and get stressed about.
 - Online messaging regarding Ana and the trumpet teacher's relationship has never ceased; not for a second.
-- They discuss her in bed, what she wears, how boring she is, her acne, they say that she and the trumpet teacher have moved in together up in Las Marinas, how she likes to be in nature, how she doesn't like to have the window blinds up, how they're going away to France for the weekend, how she takes care of his children and how they argue about that, the violent sex they have, and on and on and on.
-- They post cartoon pictures/gifs of her on my X feed. Two I remember were her naked and shaking, titled "Nature Girl", and another of her acne, titled "Pizza Face".
+- They discuss her in bed, what she wears, how boring she is, her acne, they say that she and the trumpet teacher have moved in together up in Las Marinas, how she likes to be in nature, how she doesn't like to have the window blinds up, how they're going away to France for the weekend, how she takes care of his children and how they argue about that, the violent sex they have, how he's going to beat her if she doesn't make arches (look that up it's a porn reference), and on and on and on.
+- They post cartoon pictures/gifs of her on my X feed. Three I remember are her naked and shaking titled "Nature Girl"; another of her face full of acne titled "Pizza Face"; and one really horrible one was her from behind having sex and how he was going to beat her if she didn't make arches. I had to look that up, but it is somewhat self-explanatory.
 - It's relentless.
 - When I see her so angry, I'm concerned the trumpet teacher has hurt her.
 - I will [write to her friend Katia](../2024/january.md#january-18th-correspondence-to-katia-and-the-generalitat) about seeing her like this in January 2024 after she *meaningfully* gives me her mobile number.
