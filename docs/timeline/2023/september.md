@@ -917,12 +917,15 @@ function googleTranslateElementInit() {
 
 ## Choir
 
-- We have a new teacher for choir, Salva Tur, an unpleasant man who thought we would like to hear him talking for 1 hour and 50 minutes of each class and then do 10 minutes of singing. 
-- The choir course, aside from the bullying, was excruciatingly boring.
+- We have a new teacher for choir, Salva Tur; an unpleasant man who thought we would like to hear him talking for 1 hour and 50 minutes of each class and then perhaps do a few minutes of singing. 
+- The choir course, aside from the relentless bullying, was excruciatingly boring.
 - When I introduce myself as he's going around the class, he grins at me in a knowing way, "oh, you're Katharine".
 - A little later he starts singing "it's too good to be true".
-- That evening on Twitter, an account named Salva, posts a dick pic.
-- I mention [dick pics on Twitter in January 2024](../2024/january.md#dick-pics-from-the-choir-master), right before choir class, he receives a WhatsApp message during class, reads it, and becomes apoplectic.
+- That evening on Twitter, I see an account named *Salva* has posted on my `@jackchardwood` timeline.
+- I look at the post. 
+- A man is taking his trousers down to show his penis.
+- I mention [dick pics on Twitter in January 2024](../2024/january.md#dick-pics-from-the-choir-master), right before choir class.
+- During the class, he receives a WhatsApp message, reads it, and becomes apoplectic.
 
 ## Apes beating their chests
 
