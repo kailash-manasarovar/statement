@@ -917,7 +917,7 @@ function googleTranslateElementInit() {
 
 ## Choir
 
-- We have a new teacher for choir, Salva Tur; an unpleasant man who thought we would like to hear him talking for 1 hour and 50 minutes of each class and then perhaps do a few minutes of singing. 
+- We have a new choir teacher, Salva Tur; an unpleasant man who thought we would like to hear him talking for 1 hour and 50 minutes of each class and then perhaps do a few minutes of singing. 
 - The choir course, aside from the relentless bullying, was excruciatingly boring.
 - When I introduce myself as he's going around the class, he grins at me in a knowing way, "oh, you're Katharine".
 - A little later he starts singing "it's too good to be true".
