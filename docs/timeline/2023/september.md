@@ -955,4 +955,4 @@ function googleTranslateElementInit() {
 
 ## Stalker miscellaneous
 
-- https://x.com/K_Flynny369 -> here's a stalker account from that period that doesn't exist anymore. 
+- https://x.com/K_Flynny369 -> a stalker account from that period that doesn't exist anymore, like many of them.
