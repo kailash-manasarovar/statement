@@ -6,6 +6,18 @@
 
 ![Trapped and suffering](../../content/images/trapped-and-suffering.png)
 
+## Stalked online around the clock
+
+- It is obvious to me that stalkers are reading my tweets around the clock, and not just a few.
+- Because I could see how many people were translating my tweets, I knew what time they had to be up.
+- It was very surprising to see people reading my tweets at all hours of the night whenever I tweeted.
+- I wondered who might be up to:
+    - Admin-read an interesting tweet that needed to be shared with the community of stalkers.
+    - Share the tweet on WhatsApp or wherever.
+    - See an alert about a new tweet on the WhatsApp group or wherever they were sharing my information.
+    - Read it as a participant.
+- Were they shift workers working at night, or were they truly around the world. I suspect the latter.
+
 ## The trumpet teacher drives past me in his car
 
 - I'm walking back from the Indian restaurant with my takeaway.
@@ -35,7 +47,9 @@
     - Do they have a choice in whether they take part?
     - It's clear the good people of Dénia have a really, really nasty festering problem.
 
-## Gang stalking
+## Gang stalking by conservatory civil servants
+
+### Choir
 
 - Bullying at choir continues with Salva giving us *suggestive* scores related to the gang stalking.
 - Things I have said on Twitter have been shared with the students and the choir teacher Salva. 
@@ -47,20 +61,18 @@
 
 - This photo was sent the same time I was receiving tons of fake accounts with women who were clearly being sexual abused in some way, or that was the inference one was supposed to make, including women groomed from innocently sending nudes, or doing innocent photo shoots, to actually doing porn.
 - I was concerned enough to send this pic to the Policia Nacional trafficking email (which is supposed to be anonymous) in October 2024.
-- I got a reply from Dénia Police which, at the time of writing, I have not responded to given their [total lack of interest](../2024/february.md#policia-nacional) when I visited them and my subsequent suspicion that I cannot trust them to help me.
-- In chamber music classes, the music is extremely suggestive of what's been going on and I am bravely playing my hand.
-- Piano classes are good and Paqui does a good job of pretending she's neutral.
+- I got a reply from Dénia Police which, at the time of writing, I have not responded to given their [total lack of interest](../2024/february.md#policia-nacional) when I visited them and my subsequent certainty that I cannot trust them to help me.
 
-!!! important
-    - At this time, it was obvious to me that stalkers were reading my tweets around the clock.
-    - Because I was able to see how many people were translating my tweets, I knew what time they had to be up.
-    - It was very surprising to see people reading my tweets at all hours of the night.
-    - I wondered who would be up to,
-        - Read a tweet that needed to be shared,
-        - Share the tweet.
-        - See the alert about a tweet on the WhatsApp group or wherever they were sharing my information.
-        - Read it.
-    - Were they shift workers working at night, or were they truly around the world.
+### Chamber music
+
+- In chamber music classes, the music is extremely suggestive of what's been going on and I am bravely playing my hand.
+- Katia remains angry with me, meaningfully.
+- I get a [warning about her](#katia-in-the-act) from a fake account online.
+
+### Piano 
+
+- Piano classes are good and Paqui does a good job of pretending she's neutral.
+- I like her teaching style. It's a breath of fresh air after Maria.
 
 ### Cannabis bar right outside the conservatory
 
