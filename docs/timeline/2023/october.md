@@ -51,17 +51,28 @@
 
 ### Choir
 
-- Bullying at choir continues with Salva giving us *suggestive* scores related to the gang stalking.
+- Bullying at choir continues.
+- Salva gives us *suggestive* scores with titles and content related to the gang stalking.
+- He's unpleasant and rude. 
+- He makes fun of my name and the way I speak.
 - Things I have said on Twitter have been shared with the students and the choir teacher Salva. 
-- For example, this rather innocuous tweet: https://x.com/JackChardwood/status/1708197553483763859 is suggesting that the trumpet teacher come with me to Ireland because I need to hire a car and don't have a driving license.
-- A girl in the class comes up to me as I enter the choir classroom, and asks me, "Are you going away for the weekend?"
-- This girl (Elsa Martí García) is a piano student of Domingo. Her picture was also posted on a fake account I received during continued cyber-stalking in 2024.
+- For example, this rather innocuous tweet:
+
+[![Woman seeks drivers license](../../content/tweets/woman-seeks-drivers.png)](https://x.com/JackChardwood/status/1708197553483763859)
+
+- You'd really have to know the whole backstory to understand that this message is suggesting that the trumpet teacher come with me to Ireland because I need to hire a car and don't have a driving license.
+- I am in love with him after all, and we are having a relationship online.
+- Salva mentions "going away for the weekend with your boyfriend" nearly every class after that.
+- The class after I posted this tweet, a student comes up to me as I enter the choir classroom, and asks me grinning, "Are you going away for the weekend?"
+- The girl (Elsa Martí García) is a piano student of Domingo. 
+- Her picture was posted on a fake account I received during continued cyber-stalking in 2024.
 
 ![Choir student](../../content/images/fake-accounts/choir-student.png)
 
-- This photo was sent the same time I was receiving tons of fake accounts with women who were clearly being sexual abused in some way, or that was the inference one was supposed to make, including women groomed from innocently sending nudes, or doing innocent photo shoots, to actually doing porn.
-- I was concerned enough to send this pic to the Policia Nacional trafficking email (which is supposed to be anonymous) in October 2024.
-- I got a reply from Dénia Police which, at the time of writing, I have not responded to given their [total lack of interest](../2024/february.md#policia-nacional) when I visited them and my subsequent certainty that I cannot trust them to help me.
+- Note the dog collar.
+- This photo was sent the same time I was receiving multiple fake accounts activity with pictures of women who were clearly being sexual abused in some way, or that was the inference one was supposed to make; including women [going from doing innocent photo shoots, to doing porn](../2024/august.md#photos-of-abused-women-and-girls) and women [groomed from innocently sending nudes](../2024/september.md#another-upsetting-targeted-woman) into what looked to me like a sedated attack in a car with multiple people around.
+- I was concerned enough to send the pic of Elsa to the Policia's trafficking email (which is supposed to be anonymous) in October 2024.
+- I got a reply from Dénia Police which, at the time of writing, I have not responded to given their [total lack of interest when I visited them](../2024/february.md#policia-nacional) and my subsequent certainty that I cannot trust them to help any of us.
 
 ### Chamber music
 
