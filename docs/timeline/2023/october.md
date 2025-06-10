@@ -74,6 +74,21 @@
 - I was concerned enough to send the pic of Elsa to the Policia's trafficking email (which is supposed to be anonymous) in October 2024.
 - I got a reply from Dénia Police which, at the time of writing, I have not responded to given their [total lack of interest when I visited them](../2024/february.md#policia-nacional) and my subsequent certainty, after two more visits to the Policia in Madrid, that I cannot trust them at all.
 
+### Cannabis bar right outside the conservatory
+
+- Sometimes when we are sitting in choir class, the room fills with the strong smell of cannabis.
+- It's coming from the shop that's just opened right outside the conservatory where 100s of kids and their parents visit every day.
+- I find it strange that the town would allow this.
+- Salva often closes the windows because of the strong smell.
+
+### Harmony
+
+- Alfonso the harmony teacher seems to be only peripherally involved.
+- Domingo's students are still in the class with me and sometimes do or say curious things they've obviously been given instructions about.
+- No-one speaks to me anymore.
+- This is remarkable, especially from Samuel who never stopped talking and translating for me the year before, and walking home with me too.
+- Now he sometimes politely answers a question I might have, but usually in two words.
+
 ### Chamber music
 
 - In chamber music classes, the music is extremely suggestive of what's been going on and I am bravely playing my hand.
@@ -84,13 +99,6 @@
 
 - Piano classes are good and Paqui does a good job of pretending she's neutral.
 - I like her teaching style. It's a breath of fresh air after Maria.
-
-### Cannabis bar right outside the conservatory
-
-- Sometimes when we are sitting in choir class, the room fills with the smell of cannabis.
-- It's coming from the shop that's just opened right outside the conservatory where 100s of kids and their parents visit every day.
-- I find it strange that the town would allow this.
-- Salva often closes the windows because of the strong smell.
 
 ## October 7th 2023
 
