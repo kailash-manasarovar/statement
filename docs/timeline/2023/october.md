@@ -24,7 +24,7 @@
 - I guess the trumpet teacher was showing me the car so I'd recognize it again when I saw it.
 - Also, online hacker-chatter was suggesting that the Cano Lopez family had paid for his work torturing me with this car. 
 - It was certainly a better one than the Peugeot I'd seen him driving before on [various occasions](june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me). 
-- Although probably none of these cars are his own car; I expect it is rather fast, expensive, and new.
+- Although probably none of these cars are his own car; I rather expect that one to be fast, expensive, and new.
 
 !!! info
     - Hopefully it's now extremely clear that the evil people in Dénia know exactly where I am at any time.
