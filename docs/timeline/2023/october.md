@@ -26,7 +26,7 @@
 - It was certainly a better one than the Peugeot I'd seen him driving before on [various occasions](june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me). 
 - Although probably none of these cars are his own car; I rather expect that one to be fast, expensive, and new.
 
-!!! info
+!!! info "They are monitoring and surveilling me continuously"
     - Hopefully it's now extremely clear that the evil people in Dénia know exactly where I am at any time.
     - This could only be possible by tracking my mobile minute-by-minute.
     - Every time I leave my house, for whatever purpose, they're poised to begin some ridiculous choreographed torment.
