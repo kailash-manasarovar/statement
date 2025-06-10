@@ -1,16 +1,36 @@
+# October 2023
+
+- Gang and cyber-stalking continues apace.
+- It's relentless and I seem to be experiencing some persecutory evil every minute of the day.
+- As a fake X account said to me in September, as if the person running it knew, "It's sounds like they want you trapped and to watch you suffer."
+
+![Trapped and suffering](../../content/images/trapped-and-suffering.png)
+
 ## Trumpet teacher drives past me in his car
 
 - I'm walking back from the Indian restaurant with my takeaway.
-- A car is driving slowly along beside me as I walk, kerb crawling. It is a bright primary-blue Fiat Doblo-type vehicle, the same car that Christine BJ has.
-- As I reach the crossroads at my apartment block, the car turns into it behind me. 
-- I look and the trumpet teacher is driving the car.
+- A car is driving slowly along beside me as I walk, kerb crawling.
+- It is a bright primary-blue Fiat Doblo-type vehicle, the same car that Christine BJ has in white.
+
+![The blue car](../../content/images/the-blue-car.png)
+
+- As I turn into the road of my apartment block, the follows along beside me.
+- As I'm opening the gate, the car drives slowly past. 
+- I look and I see the trumpet teacher driving the car.
+- He looks at me.
 - I have no idea why he does this.
-- This blue car often features in the stalking from this moment. I guess he was showing me the car so I'd recognize it again when I saw it.
+- This blue Fiat Doblo often features in the stalking from now on.
+- I saw [Ana in it](november.md#ana-in-the-blue-van) a month later in a most bizarre scenario.
+- I guess the trumpet teacher was showing me the car so I'd recognize it again when I saw it.
+- Also, online chatter was suggesting that the Cano Lopez family had paid for his work torturing me with this car. It certainly was a better one than the Peugeot he'd been driving before. Although probably none of these cars are his own car.
 
 !!! info
-    - Hopefully it's now extremely clear that the people in Dénia are able to know where I am at any time.
-    - This could only be possible by tracking me via access to my mobile.
-    - It's like they're constantly poised to begin something. They must put enormous effort into this. I wonder what benefit they could be getting from their behavior.
+    - Hopefully it's now extremely clear that the evil people in Dénia know exactly where I am at any time.
+    - This could only be possible by tracking my mobile minute-by-minute.
+    - Every time I leave my house, for whatever purpose, they're poised to begin some ridiculous choreographed torment.
+    - They must put enormous effort and resources into this. 
+    - I wonder what benefit they could be getting from their behavior. 
+    - It's clear the good people of Dénia have a really, really nasty festering problem.
 
 ## Gang stalking
 
