@@ -9,7 +9,7 @@
 ## The trumpet teacher drives past me in his car
 
 - I'm walking back from the Indian restaurant with my takeaway.
-- A car is driving slowly along beside me as I walk, kerb crawling.
+- A car is driving slowly alongside me as I walk, kerb crawling.
 - It is a bright primary-blue Fiat Doblo-type vehicle, the same car that Christine BJ has in white.
 
 ![The blue car](../../content/images/the-blue-car.png)
