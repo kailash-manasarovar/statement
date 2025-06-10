@@ -6,7 +6,7 @@
 
 ![Trapped and suffering](../../content/images/trapped-and-suffering.png)
 
-## Trumpet teacher drives past me in his car
+## The trumpet teacher drives past me in his car
 
 - I'm walking back from the Indian restaurant with my takeaway.
 - A car is driving slowly along beside me as I walk, kerb crawling.
