@@ -2,7 +2,7 @@
 
 - Gang and cyber-stalking continues apace.
 - It's relentless and I seem to be experiencing some persecutory evil every minute of the day.
-- As a fake X account said to me in September, as if the person running it knew, "It's sounds like they want you trapped and to watch you suffer."
+- As a fake X account said to me in September, as if the person running it knew what was going on, "It sounds like they want you trapped and to watch you suffer."
 
 ![Trapped and suffering](../../content/images/trapped-and-suffering.png)
 
