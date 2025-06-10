@@ -64,7 +64,7 @@
 - I am in love with him after all, and we are having a relationship online.
 - Salva mentions "going away for the weekend with your boyfriend" nearly every class after that.
 - The class after I posted this tweet, a student comes up to me as I enter the choir classroom, and asks me grinning, "Are you going away for the weekend?"
-- The girl (Elsa Martí García) is a piano student of Domingo. 
+- The girl (Elsa Martí García) is a piano student of Domingo. I suspect she's following his instructions.
 - Her picture was posted on a fake account I received during continued cyber-stalking in 2024.
 
 ![Choir student](../../content/images/fake-accounts/choir-student.png)
