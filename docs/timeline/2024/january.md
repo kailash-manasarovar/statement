@@ -65,7 +65,7 @@
 
 - I'm still extraordinarily high from Christmas.
 - I head to Ireland on 10th January for my therapy course once again.
-- When I inform the choir teacher I will be away, he says, "as long as you're not going away for the weekend with your boyfriend", referring to what Domingo had got [his student Elsa](../2023/october.md#gang-stalking) to ask me. He says this every time I have to tell him I'm going to skip a class.
+- When I inform the choir teacher I will be away, he says, "as long as you're not going away for the weekend with your boyfriend", referring to what Domingo had got [his student Elsa](../2023/october.md#gang-stalking-by-conservatory-civil-servants) to ask me. He says this every time I have to tell him I'm going to skip a class.
 - I open an anonymous account on Twitter, follow `@jctot19` on it, and post solely to my timeline without interacting with his account directly at all.
 - A post from him on 9th January, which I have only just seen at the time of writing (November 2024), mentions a *chica* and it appears to be referring to me. If so, the implication is that I am chasing him again and again. However, this is undoubtedly what he, Domingo, and their co-conspirators have been setting me up to *appear* to be doing.
 - I wonder if this is how they defend themselves if anyone dares accuse them of sexual coercion/grooming and fraud-related matters. They say, oh she was obsessed with me. Well duh, yeah. You might well get obsessed with someone who drugs you and seduces you.

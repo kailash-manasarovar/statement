@@ -58,7 +58,7 @@
 ## Ana in the blue van
 
 - I'm coming back from the shops one Saturday in the car.
-- As I'm driving through Cami de la Bota towards home, the [blue car](october.md#trumpet-teacher-drives-past-me-in-his-car) is driving towards me.
+- As I'm driving through Cami de la Bota towards home, the [blue car](october.md#the-trumpet-teacher-drives-past-me-in-his-car) is driving towards me.
 - I see Ana in the passenger seat, she looks embarrassed.
 - There is NO-ONE in the driver's seat. Whoever was driving has ducked down behind the seats, and is driving extremely slowly, and I cannot see anyone in the driver's seat.
 - It certainly could not be the trumpet teacher as he is quite a large man and he would probably find it quite hard to hide his bulk.
