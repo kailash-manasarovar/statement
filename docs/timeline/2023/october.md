@@ -114,6 +114,15 @@
 - Some of the pictures are quite good, I mean well done and a tiny bit tasteful.
 - For the record, please note that I don't like porn, at all.
 - I know the porn is coming from hackers, and the frequency I see it is ramping up.
+- Except I don't really know what's going on.
+- I see multiple posts from accounts I have not followed that inform me of this.
+
+[![Cat knows nothing](../../content/images/cat-knows-nothing.png)](https://x.com/CatKnowsNth)
+
+- Indeed, the only way you could know what was going on is if you were aware of the Spanish cultural practice where a whole community targets a lone woman for some nonsense reason.
+- It reminds me of how Spaniards saw the opportunity and rushed to get their neighbors killed in the civil war over jealousies and trifles.
+- Except there's more now.
+- Porn.
 - I continue to feel overwhelmingly sexually aroused in my apartment at various times of the day, usually if not always lunchtimes. 
 - I often masturbate.
 - Am I being set up with visual triggers to match whenever I feel overwhelmingly sexually aroused?
