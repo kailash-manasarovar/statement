@@ -297,6 +297,8 @@
 
 ![Rainbows over Dénia](../../content/images/rainbows.png)
 
+- June 13th is Saint Anthony of Padua's day.
+
 !!! warning "Teachers and staff involved in gang stalking students at Dénia Conservatory"
     - You can find a list of current teachers and staff on the [conservatory website](https://portal.edu.gva.es/conservatoridenia/es/inici/).
     - As a taste of things to come in this story, hackers will create numerous fake X accounts using genuine pictures of teachers and staff in the profiles.
