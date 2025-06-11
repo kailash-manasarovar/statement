@@ -92,9 +92,26 @@
 
 ### Chamber music
 
-- In chamber music classes, the music is extremely suggestive of what's been going on and I am bravely playing my hand.
+- The music is extremely suggestive of what's been going on; i.e. operatic themes for two female voices in a love tryst with a man.
+- It's clear why I was shepherded into this group in the [online meeting](september.md#chamber-music).
+- We first studied a tune from [Norma](https://en.wikipedia.org/wiki/Norma_(opera)#Summary) where there is a dramatic love triangle between two women and a man, and the man has two daughters :facepalm:.
+- At the end, both women commit suicide.
+- For my part, I am bravely playing my hand.
+- I bring in [I know him so well](https://youtu.be/l30lsh0I3TY) from the musical Chess.
+- It's tiring to be constantly dealing with this infancy.
 - Katia remains angry with me, meaningfully.
-- I get a [warning about her](#katia-in-the-act) from a fake account online.
+
+#### Katia in the act
+
+- I guess they're not convinced she's doing a good enough job though.
+- I receive activity from the following account posted right before chamber music class. 
+
+![katia in the act](../../content/images/fake-accounts/Screenshot 2024-03-08 at 08.49.19.png)
+
+- I understood it to mean that Katia was embroiled in the fiasco.
+- To me, it seems like the Google search results, and fake accounts, and therefore hackers, are sometimes on my side.
+- Is it him? I wonder.
+- In retrospect, I suspect Hazel Smith probably thought I wasn't being tormented sufficiently. Or, they were setting up situations where I would feel like TT was on my side and helping me.
 
 ### Piano 
 
@@ -143,17 +160,6 @@
 - Check out the analytics to see how many people translated this tweet.
 
 ![Strawberry post analytics](../../content/tweets/strawberry-post-analytics.png)
-
-## Katia in the act
-
-- It seems like the Google search results, and fake accounts, are sometimes on my side.
-- I receive activity from the following account which was posted right before chamber music class. 
-
-![katia in the act](../../content/images/fake-accounts/Screenshot 2024-03-08 at 08.49.19.png)
-
-- I understood it to mean that Katia, one of the singers in chamber music, was embroiled in the fiasco somehow.
-- She was. She started to become extremely angry with me for no reason, and give me a hard time generally.
-- The other student obviously knew what was going on too.
 
 ## Rocio Vidal
 
