@@ -104,17 +104,18 @@
 
 - I start to see more and more porn online around this time.
 - It comes up in posts on my X timelines, on fake accounts who follow me or interact with me. 
-- Porn bots yes, but with significant photos and meaningful comments in the profile.
+- Some porn bots yes, but with significant photos and meaningful comments in the profile.
 - It's also on google search results.
 - I start to feel a bit bombarded with porn.
 - I see lots of cartoon images of a big muscular man having sex or lying down after sex with a small woman.
 - I see similar photo pics of big men with small women in various sexual scenarios.
 - I start to see a lot of artistic porn, a lot of fellatio.
 - Some of the pictures are quite good, I mean well done and a tiny bit tasteful.
-- Please note I don't like porn though, at all.
+- For the record, please note that I don't like porn, at all.
 - I know the porn is coming from hackers, and the frequency I see it is ramping up.
 - I continue to feel overwhelmingly sexually aroused in my apartment at various times of the day, usually if not always lunchtimes. 
 - I often masturbate.
+- Am I being set up with visual triggers to match whenever I feel overwhelmingly sexually aroused?
 
 ## October 7th 2023
 
