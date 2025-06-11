@@ -245,13 +245,6 @@
 
 - TODO:
 
-## Porn intensifies
-
-- The amount and nature of the porn that I'm seeing on my timeline intensifies. 
-- There is a lot of artistic porn which is kind of interesting and a lot of cartoon, film, photographic, fake accounts, and textual porn.
-- It's full on. A lot of it suggests violence, there's gay porn, all sorts. It's just insane.
-- I now believe that, along with water is in the water at my home, the sexual grooming by hackers is intensifying and the porn I'm seeing is part of that.
-
 ## Halloween
 
 - Alex, John, Paul, and I agree to go out for Halloween, a kind of remake of our evening all those years ago.
