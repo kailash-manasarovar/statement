@@ -100,6 +100,22 @@
 - Piano classes are good and Paqui does a good job of pretending she's neutral.
 - I like her teaching style. It's a breath of fresh air after Maria.
 
+## Porn and sexual arousal
+
+- I start to see more and more porn online around this time.
+- It comes up in posts on my X timelines, on fake accounts who follow me or interact with me. 
+- Porn bots yes, but with significant photos and meaningful comments in the profile.
+- It's also on google search results.
+- I start to feel a bit bombarded with porn.
+- I see lots of cartoon images of a big muscular man having sex or lying down after sex with a small woman.
+- I see similar photo pics of big men with small women in various sexual scenarios.
+- I start to see a lot of artistic porn, a lot of fellatio.
+- Some of the pictures are quite good, I mean well done and a tiny bit tasteful.
+- Please note I don't like porn though, at all.
+- I know the porn is coming from hackers, and the frequency I see it is ramping up.
+- I continue to feel overwhelmingly sexually aroused in my apartment at various times of the day, usually if not always lunchtimes. 
+- I often masturbate.
+
 ## October 7th 2023
 
 - I'm on Twitter all morning seeing posts from Israel.
