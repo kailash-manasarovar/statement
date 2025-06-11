@@ -84,10 +84,11 @@
 ### Harmony
 
 - Alfonso the harmony teacher seems to be only peripherally involved.
-- Domingo's students are still in the class with me and sometimes do or say curious things they've obviously been given instructions about.
+- Domingo’s students are still in the class with me and sometimes do or say curious things they’ve obviously been given instructions about.
+- They're always on WhatsApp.
 - No-one speaks to me anymore.
-- This is remarkable, especially from Samuel who never stopped talking and translating for me the year before, and walking home with me too.
-- Now he sometimes politely answers a question I might have, but usually in two words.
+- This is remarkable, especially from Samuel who never stopped his friendly chatting and translating for me the year before, and walking home with me too.
+- Now he sometimes politely answers a question I might have, but usually in no more than two words.
 
 ### Chamber music
 
