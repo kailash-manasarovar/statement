@@ -94,8 +94,9 @@
 
 - The music we play is extremely suggestive of what's been going on; i.e. operatic themes for two female voices in a love tryst with a man.
 - It's clear why I was shepherded into this group in the [online meeting](september.md#chamber-music).
-- We first studied a tune from [Norma](https://en.wikipedia.org/wiki/Norma_(opera)#Summary) where there is a dramatic love triangle between two women and a man, and the man has two daughters :facepalm:.
-- At the end, both women commit suicide.
+- We first studied a tune from [Norma](https://en.wikipedia.org/wiki/Norma_(opera)#Summary) where there is a dramatic love triangle between two women and a man, and the man has two daughters.
+- I mean. Oh brother!
+- At the end, interestingly, both women commit suicide.
 - For my part, I am bravely playing my hand.
 - I bring in [I know him so well](https://youtu.be/l30lsh0I3TY) from the musical Chess.
 - It's tiring to be constantly dealing with this infancy.
