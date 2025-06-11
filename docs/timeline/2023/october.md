@@ -108,9 +108,9 @@
 - I guess they're not convinced she's doing a good enough job though.
 - I receive activity from the following account posted right before chamber music class. 
 
-![katia in the act](../../content/images/fake-accounts/Screenshot 2024-03-08 at 08.49.19.png)
+![katia in the act](../../content/images/fake-accounts/katia-in-the-act.png)
 
-- I understood it to mean that Katia was embroiled in the fiasco, but it was kind of obvious, I just didn't care that much.
+- I understood it to mean that Katia was embroiled in the fiasco, but that was kind of obvious, I just didn't care that much.
 - However, it does seems like the Google search results, and fake accounts, and therefore hackers, are sometimes on my side.
 - Is it him? I wonder. Is he helping me?
 - In retrospect, I suspect Hazel Smith probably thought I wasn't being tormented sufficiently. Or, they were setting up situations where I would feel like TT was on my side and helping me and so continue the 'romance' lie.
