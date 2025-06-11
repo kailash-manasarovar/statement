@@ -117,8 +117,11 @@
 
 ### Piano 
 
-- Piano classes are good and Paqui does a good job of pretending she's neutral.
-- I like her teaching style. It's a breath of fresh air after Maria.
+- Piano classes are good.
+- Paqui does a good job of pretending she's neutral.
+- I like her teaching style. 
+- It's a breath of fresh air after Maria.
+- It reminds me of when I studied with Joan Carles after becoming [totally fed up with Domingo in 2015](../early-years/2015.md#first-class-of-january).
 
 ## Porn and sexual arousal
 
