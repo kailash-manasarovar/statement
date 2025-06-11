@@ -585,6 +585,12 @@ function googleTranslateElementInit() {
 ![Baby Joe](../../content/images/baby-joe.png)
 
 - This is a reference to Elaine Black's son.
+- I taught Joe the piano in my apartment on the keyboard. He loved it.
+- When I started at the conservatory I asked him why didn't he join.
+- He was so good.
+- He always said he didn't want to and I always thought it was such a shame.
+- Perhaps everyone knows what they're like.
+- On Facebook, there's a lovely picture of Joe as a baby with his dummy in: https://www.facebook.com/photo/?fbid=10200343206052070&set=ecnf.1512218809 that everyone has seen.
 - The references to Elaine during the cyber-attacks and gang-stalking are constant, as if she is always on their minds and not in a good way.
 
 !!! tip "Crypto is not that anonymous"
