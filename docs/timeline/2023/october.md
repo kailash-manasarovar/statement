@@ -99,8 +99,9 @@
 - At the end, interestingly, both women commit suicide.
 - For my part, I am bravely playing my hand.
 - I bring in [I know him so well](https://youtu.be/l30lsh0I3TY) from the musical Chess.
-- It's tiring to be constantly dealing with this infancy.
 - Katia remains angry with me, meaningfully.
+- I see her waiting outside Ana Requena's room and talking with her. They're obviously friends, maybe!
+- It's tiring to be constantly dealing with this infancy.
 
 #### Katia in the act
 
