@@ -193,12 +193,6 @@
 !!! tip "This may be nothing but..."
     - As I was searching for the address of the shop, I looked up experts, and this [name came up](https://www.einforma.com/informacion-empresa/lopez-moreno-juan-david).
 
-## Baby Jo
-
-- I'm followed by a crypto meme coin account on Twitter: https://x.com/BabyJoeERC.
-- Elaine's son is called Joe and I taught him piano when he was 12 or 13. We had a great time too.
-- I believe the account and meme coin was created to terrorize me, but they might have tried to make it into something.
-
 ## My car is damaged on the Montgo
 
 - I go walking on the Montgo, the mountain that overlooks the town, on Saturday 14th October.
