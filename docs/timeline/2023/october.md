@@ -159,7 +159,7 @@
 - I tumble into a triggered trauma reaction when I see Naama Levy with her bloodied pants and her slit ankles paraded around for all the jeering brutes to see.
 - Everything changes at that moment.
 - I realize that all the requests for money for Palestinian children I had seen on X over the last years were a scam. I'm relieved I never fell for it.
-- I see distressed families in their own houses, one of their children murdered, her siblings not really understanding, her father speechless.
+- I see a distressed family in their own living room, one of their children murdered, her siblings traumatized out of cognition; her father speechless, his hands covered in his daughter's blood.
 - I see Shiri Bibas with her babies wrapped in a blanket, Ariel and Kfir, kidnapped by demons taunting her.
 - I see the fear on her face, and I recognize it from my trauma history.
 
