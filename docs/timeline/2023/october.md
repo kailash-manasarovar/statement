@@ -151,11 +151,21 @@
 
 ## October 7th 2023
 
-- I'm on Twitter all morning seeing posts from Israel.
+- It's a Saturday.
+- I'm up early and on Twitter waiting for the usual game to begin.
+- Suddenly, I see posts coming in from Israel, many of them with live-streamed video footage.
+- I can't believe what I'm seeing.
 - It's like I'm there.
-- https://www.hamas-massacre.net/
+- I tumble into a triggered trauma reaction when I see Naama Levy with her bloodied pants and her slit ankles paraded around for all the jeering brutes to see.
 - Everything changes at that moment.
 - I realize that all the requests for money for Palestinian children I had seen on X over the last years were a scam. I'm relieved I never fell for that one.
+- On some level I'm recognizing that what I'm seeing is exactly what is happening to me in Denia.
+- In Israel, countless civilian barbarians are revealing their true nature for the world to see, while in Denia countless barbarians are getting *as close* as they can to the same activity, cowards each and every one of them.
+- I later find out that the Jewish people in Israel on Sabbath were not allowed to look at their phones, while the Arabs around them were doing so.
+- I'm posting a link to some of the footage of what happened that morning: https://www.hamas-massacre.net/.
+- If you haven't seen it, look.
+- I'm not going to watch it because unlike Greta, who already knows everything without having to look, I did look, while it was happening, and I saw enough to know.
+
 
 ## Strawberries
 
