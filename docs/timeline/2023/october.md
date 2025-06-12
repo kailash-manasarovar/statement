@@ -152,20 +152,36 @@
 ## October 7th 2023
 
 - It's a Saturday.
-- I'm up early and on Twitter waiting for the usual game to begin.
+- I'm up early and on Twitter waiting for the usual stalker-game to begin.
 - Suddenly, I see posts coming in from Israel, many of them with live-streamed video footage.
 - I can't believe what I'm seeing.
 - It's like I'm there.
 - I tumble into a triggered trauma reaction when I see Naama Levy with her bloodied pants and her slit ankles paraded around for all the jeering brutes to see.
 - Everything changes at that moment.
-- I realize that all the requests for money for Palestinian children I had seen on X over the last years were a scam. I'm relieved I never fell for that one.
-- On some level I'm recognizing that what I'm seeing is exactly what is happening to me in Denia.
-- In Israel, countless civilian barbarians are revealing their true nature for the world to see, while in Denia countless barbarians are getting *as close* as they can to the same activity, cowards each and every one of them.
-- I later find out that the Jewish people in Israel on Sabbath were not allowed to look at their phones, while the Arabs around them were doing so.
-- I'm posting a link to some of the footage of what happened that morning: https://www.hamas-massacre.net/.
-- If you haven't seen it, look.
-- I'm not going to watch it because unlike Greta, who already knows everything without having to look, I did look, while it was happening, and I saw enough to know.
+- I realize that all the requests for money for Palestinian children I had seen on X over the last years were a scam. I'm relieved I never fell for it.
+- I see distressed families in their own houses, one of their children murdered, her siblings not really understanding, her father speechless.
+- I see Shiri Bibas with her babies wrapped in a blanket, Ariel and Kfir, kidnapped by demons taunting her.
+- I see the fear on her face, and I recognize it from my trauma history.
 
+![Shiri and her babies](../../content/images/shiri-with-her-babies.png)
+
+- Palestinians, civilians I heard, will murder them shortly after.
+- Even though I don't have the full picture of what's happening to me in Dénia, at the level of my nervous system, I recognize that what I'm seeing online comes from the same source as that which is happening to me.
+- In Israel, countless civilian barbarians are revealing their true nature for the world to see, while in Dénia countless Spanish and gitano barbarians are getting *as close* as they can to the same thing, and hiding themselves at the same time.
+- Cowards! Each and every one of them.
+- I later find out that the Jewish people in Israel on Sabbath, who could not look at their phones because of Jewish law, were wondering why the Arabs were looking at their phones so excitedly.
+- Never again is now.
+- I'm including a link here to some of the footage from that morning: https://www.hamas-massacre.net/.
+- If you haven't seen it, look.
+- I'm not going to watch it because unlike Greta, who thinks she already knows everything without having to look, I did look, while it was happening, and I saw enough to know.
+
+![Naama and Greta](../../content/images/naama-and-greta.jpg)
+
+- I felt like signing up to help the IDF.
+- Hackers will have been watching along with me. 
+- I wonder how they felt. Were they jeering along with their kind? Or could a spark of humanity have flashed across their twisted psyches?
+
+![Ariel](../../content/images/ariel.jpg)
 
 ## Strawberries
 

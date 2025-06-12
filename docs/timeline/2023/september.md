@@ -580,7 +580,7 @@ function googleTranslateElementInit() {
 
 ### Baby Joe
 
-- In a similar vein, but more sinister, is [Baby Joe](october.md#baby-jo).
+- In a similar vein, but more sinister, is Baby Joe.
 
 ![Baby Joe](../../content/images/baby-joe.png)
 
