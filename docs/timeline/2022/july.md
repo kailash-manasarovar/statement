@@ -41,7 +41,7 @@
 
 ![Glastonbury Tor](../../content/images/glastonbury-tor.webp)
 
-- More curiously, perhaps, at least for me, is the fact that this was the B&B I stayed at when I studied shamanism in 2005, just after I got some money out of the blue, and my visit there may have marked one of the [first times I was very obviously monitored by British criminal gangs for the purposes of ... everything this statement is about](../early-years/2005.md#warrior-of-the-heart). 
+- More curiously, perhaps, at least for me, is the fact that this was the B&B I stayed at when I studied shamanism in 2005, just after I got some money out of the blue, and my visit there may have marked one of the [first times I was very obviously monitored by British criminal gangs for the purposes of ... everything this statement is about](../early-years/2005.md#warrior-in-the-heart). 
 - In July 2022, I visited again and stayed in another healing centre close by where they run colonic fasting retreats.
 - On the third night of my stay, the retreat leader asked me if I wanted to sleep with a powerful crystal in my room for the night.
 - I saw no reason why not to experiment, and agreed.
