@@ -217,6 +217,7 @@
 ![Strawberries translations](../../content/tweets/october-2023/strawbs-1-translations.png)
  
 - It seems like there must have been a pause in the application of aphrodisiacs at that stage and I wonder if it was during [the time my friend, the Tibetan monk, visited](september.md#the-tibetan-monk-visits).
+- Whenever there's a man around, the cowards tend to scurry away.
 - Certainly, the overwhelming sexual urges returned shortly thereafter.
 - I'm pretty sure I've blown the mind of everyone watching.
 - I start to see strawberries on the ground wherever I walk.
