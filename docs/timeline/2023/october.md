@@ -228,6 +228,8 @@
 ### Tweet about Hazel
 
 - TODO:
+- https://x.com/1FRGVN/status/1714432159425925547
+- https://x.com/1FRGVN/status/1714429310906351705 -> when I first mention Hazel, without mentioning Hazel.
 - A few days after that, I'm dragged out of bed in the same manner again to write the tweet about Hazel.
 - I'm starting to wonder if the times I'm dragged out of bed like this relate to times my flat was entered by criminals while I was sedated, and just after they left.
 
@@ -359,7 +361,6 @@ These are a selection of tweets from this period which relate to everything that
 - https://x.com/1FRGVN/status/1715585631022207058 -> certainly at the conservatory this was true.
 - https://x.com/1FRGVN/status/1714577639233515681
 - https://x.com/1FRGVN/status/1714433682046349597 -> talking about my Tweet post in Spanish from April 2023.
-- https://x.com/1FRGVN/status/1714429310906351705 -> when I first mention Hazel, without mentioning Hazel.
 - https://x.com/Lucyinbetween -> major player that followed me immediately I went public. I have interesting DMs with this account that include identification documents when it tried to prove who it said it was. Easy arrest probably.
 - https://x.com/1FRGVN/status/1713298033910202647 -> referring to old friends Alex, John, and Paul out on Halloween.
 - https://x.com/1FRGVN/status/1713292202674127032 -> mentioning I'll be taking the Uke out.
