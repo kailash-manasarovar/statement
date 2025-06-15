@@ -47,6 +47,16 @@
 - Jail might be helpful for them.
 - They could at least work at something helpful for everyone instead of creating a hell-scape of our beautiful world.
 
+## Ana Girbes' concert
+
+- I had started to see a transformer figure on the `@jctot19` search results since [Ana's show](../2023/december.md#the-adams-family).
+- The character looked like a fierce and angry Ana Girbes carrying big guns. The likeness to Ana Girbes was startling.
+
+![Ana transformer](../../content/images/ana-transformer.png)
+
+- Ana Girbes is the musical language teacher at the conservatory. 
+- This character remained in search results for a couple of months.
+
 ## Tonya
 
 - Fake accounts and interactions online keep mentioning the name Tonya.
