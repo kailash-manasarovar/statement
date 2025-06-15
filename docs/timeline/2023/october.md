@@ -235,12 +235,14 @@
 
 ## Rocio Vidal
 
-- In the Google search results of `@jctot19 x` I now see a picture of Rocio Vidal. It is still there, even today.
+- In the Google search results of `@jctot19 x` I now see a picture of Rocio Vidal. 
+- It is still there, even today.
 
 ![Rocio Vidal in Google search](../../content/images/Rocio-Vidal-on-Google-search.png)
 
 !![Rocio Vidal in Google search](../../content/images/google-searches/rocio-vidal.png)
 
+- She looks like she's been in hair-and-makeup before a shoot.
 - Rocio Vidal is a famous YouTuber in Spain.
 - I've been reliably informed that she was hacked.
 - At some point, on fake accounts, I saw pictures of her sitting on a bed, looking at someone who is filming her and she is about to take off her clothes.

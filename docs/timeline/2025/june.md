@@ -10,7 +10,7 @@
 
 - TODO:
 
-## Snout or world-saving lucky frog-missus
+## Snout or world-saving lucky-frog-missus
 
 - After a long time, I randomly do a google search on `1frgvn x` on my mobile.
 - I see the following sole X reference as a result:
