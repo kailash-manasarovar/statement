@@ -69,6 +69,9 @@
     - I wonder how much in subscription fees a repeat rape-porn clip would earn on the porn networks?
     - I wonder if it's possible to claim such moneys back in litigation? Both from the original perpetrators and then again from the Dénia porn gangs.
 
+- I'm reliably informed by rock-solid sources that the porn-gangs had started to enter my flat while I was sedated in November 2022. 
+- Let's hope all footage is released as soon as possible for the safety and well-being of Dénia's children, young people, elderly, and vulnerable women.
+
 ## A sexualized 4-year-old at the Chinese bazaar
 
 - One Saturday morning I head to the Chinese bazaar.
