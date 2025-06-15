@@ -203,7 +203,7 @@ I wake up long before dawn to write a tweet thread about strawberries: https://x
 ### Tweet about Hazel
 
 - A few days after that, I'm dragged out of bed in the same manner again to write the tweet about Hazel.
-- I'm starting to wonder if the times I'm dragged out of bed like this relate to times my flat was entered by criminals while I was sedated.
+- I'm starting to wonder if the times I'm dragged out of bed like this relate to times my flat was entered by criminals while I was sedated, and just after they left.
 
 ## Rocio Vidal
 
