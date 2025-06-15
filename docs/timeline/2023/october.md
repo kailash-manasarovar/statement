@@ -219,6 +219,9 @@
 - It seems like there must have been a pause in the application of aphrodisiacs at that stage and I wonder if it was during [the time my friend, the Tibetan monk, visited](september.md#the-tibetan-monk-visits). Whenever there's a man around, the cowards tend to scurry away. Certainly, the overwhelming sexual urges returned shortly thereafter.
 - I'm pretty sure I've blown the mind of everyone watching.
 - I start to see strawberries on the ground wherever I walk.
+
+![Strawbs in Denia](../../content/images/strawbs-in-denia.png)
+
 - On my way to conservatory one day, as I pass [this spot](https://www.google.com/maps/@38.8442052,0.1081194,3a,75y,36.63h,77.57t/data=!3m7!1e1!3m5!1sB4ssIdTdFG6H4f6v4cNyeg!2e0!6shttps:%2F%2Fstreetviewpixels-pa.googleapis.com%2Fv1%2Fthumbnail%3Fcb_client%3Dmaps_sv.tactile%26w%3D900%26h%3D600%26pitch%3D12.43052595660501%26panoid%3DB4ssIdTdFG6H4f6v4cNyeg%26yaw%3D36.626678552174724!7i16384!8i8192?entry=ttu&g_ep=EgoyMDI0MTExMy4xIKXMDSoASAFQAw%3D%3D) on the Carrer de Manuel Sanchis Guarner, there's a strawberry on the ground.
 - At the same spot, I see the fat bloke in a vest that had been behaving extremely strangely when [me and my Tibetan monk friend](../2023/september.md#the-tibetan-monk-visits) were at the beach. 
 

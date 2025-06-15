@@ -131,16 +131,6 @@
     - It was devastating to my mind and emotional stability and my body still reacts strongly to this sort of thing, even though inside I'm relatively calm.
     - I wonder did the two Ana's know about this, or were they simply taking instruction from Domingo who knew tactics like this would destabilize me because he had read the statement himself.
 
-### Ana Girbes transformer figure
-
-- I had started to see a transformer figure on the `@jctot19` search results since [Ana's show](../2023/december.md#the-adams-family).
-- The character looked like a fierce and angry Ana Girbes carrying big guns. The likeness to Ana Girbes was startling.
-
-![Ana transformer](../../content/images/ana-transformer.png)
-
-- Ana Girbes is the musical language teacher at the conservatory. 
-- This character remained in search results for a couple of months.
-
 ## Conservatory women
 
 - At some point, I told Paqui that Domingo and his associates were terrorizing me. 
