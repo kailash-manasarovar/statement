@@ -54,6 +54,11 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 - Certainly the screenshot of the concert I see in [June 2023 on Youtube](../2023/june.md#youtube) is legit and I send a copy of that in the pack.
 - At some point back in Dénia, I see a giant message come up on my screen "thank you", and then it's gone.
 
+### Rocio Vidal
+
+- My eyesight's not very good so I don't really trust it too much, but I swear to God I thought I saw Rocio Vidal in Cauterets while all this was going on.
+- Could she have been there?
+
 ## Driving back to Dénia
 
 - As I drive into Dénia I notice the huge billboard for the swinger club, Hedonia.
