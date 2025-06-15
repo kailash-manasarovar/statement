@@ -185,13 +185,25 @@
 
 ## Strawberries
 
-- Just over a week later, I wake up long before dawn to write a tweet thread about strawberries: https://x.com/1FRGVN/status/1713726935371551010.
+- I've always been extremely intuitive and empathic.
+- People who have suffered early trauma, and especially those of us who have been sexually abused repeatedly, develop a kind of sixth sense.
+- It's called hyper-vigilance in psychology parlance and it's part of the fight-flight-freeze-fawn cycle, i.e. if you know what you're attacker is going to do next, you are more likely to escape.
+- Add to that a kind of clairvoyant ability I'm sure I got from my dad who I like to think descended from the Tuatha Dé Danann of ancient Ireland, and a few Irish gypsy influences in the ancestry, and you might forgive someone like me having rather strange experiences if they were ever to take any psychoactive substance.
+- It's my belief that that's exactly what I was ingesting through the water mains and any food items that had been interfered with (perhaps the water mains thing is a devised red-herring).
+- Just over a week after October 7th, I'm sleeping. Something drags me out of bed to write a very important tweet.
+- The urgency is rather like the time I was dragged out of bed to write [a very important tweet declaring my romantic interest with TT in April 2023](april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher).
+I wake up long before dawn to write a tweet thread about strawberries: https://x.com/1FRGVN/status/1713726935371551010.
 - It blows the minds of everyone watching, everyone who knows everything about me and my life and how I have been terrorized by teachers and staff at the conservatory and how I was sexually groomed, drugged in class, and possibly assaulted at home while sedated by one (or more) of them.
 - When walking to the conservatory, as I pass [this spot](https://www.google.com/maps/@38.8442052,0.1081194,3a,75y,36.63h,77.57t/data=!3m7!1e1!3m5!1sB4ssIdTdFG6H4f6v4cNyeg!2e0!6shttps:%2F%2Fstreetviewpixels-pa.googleapis.com%2Fv1%2Fthumbnail%3Fcb_client%3Dmaps_sv.tactile%26w%3D900%26h%3D600%26pitch%3D12.43052595660501%26panoid%3DB4ssIdTdFG6H4f6v4cNyeg%26yaw%3D36.626678552174724!7i16384!8i8192?entry=ttu&g_ep=EgoyMDI0MTExMy4xIKXMDSoASAFQAw%3D%3D) on the Carrer de Manuel Sanchis Guarner, there's a strawberry on the ground.
 - Incidentally, this is where I saw the fat bloke that had been behaving extremely strangely when [me and my Tibetan monk friend](../2023/september.md#the-tibetan-monk-visits) were at the beach. 
 - Check out the analytics to see how many people translated this tweet.
 
 ![Strawberry post analytics](../../content/tweets/strawberry-post-analytics.png)
+
+### Tweet about Hazel
+
+- A few days after that, I'm dragged out of bed in the same manner again to write the tweet about Hazel.
+- I'm starting to wonder if the times I'm dragged out of bed like this relate to times my flat was entered by criminals while I was sedated.
 
 ## Rocio Vidal
 
