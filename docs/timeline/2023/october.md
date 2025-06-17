@@ -255,7 +255,9 @@
 - When I was examining the `@jctot19`, `@sinremite`, and other account activity back in July, I noticed a lot of activity and communication with Rocio Vidal's account `@SchrodingerGata`.
 - Interesting, isn't it.
 - Another thing which is quite interesting is that when I was in Cauterets in September 2024, ostensibly fighting for my life, [I thought I saw her](../2024/september.md#rocio-vidal) at the Bistro du Boulevard with a bunch of Spaniards around lunchtime one afternoon.
-- The woman I saw was standing up in the crowd; the rest of them sitting down around her.
+- This was the period I realized I could do nothing online without unseen eyes being aware of it. I was also continuously sexually aroused, all the way up in the Pyrenees, and my online activity was infested with porn.
+- I was also having a very intimate conversation online with stalkers; one of whom I considered to be the trumpet teacher who I loved.
+- The woman I saw was standing up in the crowd as if to point herself out; the others, mostly men, sitting down around her.
 
 !!! "Thoughts"
     - Is it possible that women agree to do porn, for free probably, so that their online businesses won't be shut down by hackers?
