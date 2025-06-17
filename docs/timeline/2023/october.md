@@ -270,12 +270,20 @@
 
 ## Telecommunications shop
 
-- I decide to try and get my old mobile phone fixed so I can use it instead of the one they obviously have access to.
+- I decide to try and get my old mobile phone fixed so I can use it instead of the one hackers are accessing.
 - I go to the telecommunications expert at Mobile Express C/ de Diana, 24, 03700 Alicante Spain which is run by Chinese people.
-- As I approach the shop, a guy I have seen at the conservatory a lot comes out of the shop.
-- I don't know who he is but he's always around, at the conservatory and in the street. 
-- I assume he is the one who has been hacking me and I start to wonder if he works as a technician at the conservatory.
-- Inside the shop, the Chinese guy clearly recognizes me as he can hardly stop smiling at me.
+- It used to be a Movistar shop.
+
+![Mobile shop](../../content/images/movil-shop.png)
+
+- As I approach the shop, a man I always see at the conservatory comes out of the shop.
+- He glances at me. He's grinning.
+- I don't know who he is but he's always around, at the conservatory, and in the street. I know his face extremely well.
+- I assume he is the one who has been hacking me, he knows where I'm going to be after all.
+- I start to wonder if he works as a computer technician at the conservatory.
+- Inside the shop, the Chinese man clearly recognizes me.
+- He can hardly stop smiling and grinning at me.
+- His female counterpart keeps her head down and doesn't look at me at all.
 
 !!! tip "This may be nothing but..."
     - As I was searching for the address of the shop, I looked up experts, and this [name came up](https://www.einforma.com/informacion-empresa/lopez-moreno-juan-david).
