@@ -276,7 +276,7 @@
 
 ![Mobile shop](../../content/images/movil-shop.png)
 
-- As I approach the shop, a man I always see at the conservatory comes out of the shop.
+- As I approach the shop, a man I always see at the conservatory emerges from inside.
 - He glances at me. He's grinning.
 - I don't know who he is but he's always around, at the conservatory, and in the street. I know his face extremely well.
 - I assume he is the one who has been hacking me, he knows where I'm going to be after all.
@@ -286,7 +286,8 @@
 - His female counterpart keeps her head down and doesn't look at me at all.
 
 !!! tip "This may be nothing but..."
-    - As I was searching for the address of the shop, I looked up experts, and this [name came up](https://www.einforma.com/informacion-empresa/lopez-moreno-juan-david).
+    - As I was searching for the address of the shop, I looked up experts, and this [name and link came up](https://www.einforma.com/informacion-empresa/lopez-moreno-juan-david).
+    - You can see the link is broken now, but the name was Juan David Lopez Moreno, and he was listed at this building, or the building opposite as a telecommunications expert and he looked a lot like the man I just mentioned.
 
 ## My car is damaged on the Montgo
 
