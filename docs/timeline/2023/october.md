@@ -287,7 +287,9 @@
 
 !!! tip "This may be nothing but..."
     - As I was searching for the address of the shop, I looked up experts, and this [name and link came up](https://www.einforma.com/informacion-empresa/lopez-moreno-juan-david).
-    - You can see the link is broken now, but the name was Juan David Lopez Moreno, and he was listed at this building, or the building opposite as a telecommunications expert and he looked a lot like the man I just mentioned.
+    - You can see the link is broken now, so it may be something rather than nothing.
+    - (Check git commits for exact timelines).
+    - The name was Juan David Lopez Moreno, and he was listed at this building, or the building opposite, as a telecommunications expert and he looked a lot like the man I just mentioned.
 
 ## My car is damaged on the Montgo
 
