@@ -308,12 +308,21 @@
 ## My car is damaged on the Montgo
 
 - I go walking on the Montgo, the mountain that overlooks the town, on Saturday 14th October.
-- Usually I go to the top, but something told me to come back early which I did. I'm unusually concerned about my car.
-- As I'm coming back, I bump into a good-looking man who has three large hunting dogs with him. I'm about 5 minutes away from my car at that point.
+- Usually I go to the top, but something told me to come back early which I did. 
+- I'm unusually concerned about my car which is parked next to the gun club. 
+- It's not clear why I'm concerned. I guess I'm anxious wherever I go these days.
+- As I'm walking back to the car park, I bump into a good-looking man who has three large hunting dogs with him. 
+
+![Man with dogs](../../content/images/man-with-hunting-dogs.png)
+
+- I'm about 5 minutes away from my car when I see him.
+- The dogs are jittery as I pass them.
+- I tell him how polite they are. The man laughs.
 - As I get into my car, I notice the people at the gun club looking at me in a strange way.
-- I do my shopping and go home.
-- The following Saturday I go to use my car again and I notice a scratch all along its left side, clearly done purposefully.
-- The only time that could have happened was the Saturday before.
+- I leave, and go to do my shopping, then go home.
+- The following Saturday I go to use my car again.
+- I notice a scratch all along the left side, clearly done purposefully.
+- The only time that could have happened was the Saturday before, while my car was parked beside the gun club.
 - I'm furious.
 
 ## First letter to the Generalitat
