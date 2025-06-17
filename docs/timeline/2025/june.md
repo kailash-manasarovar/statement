@@ -19,6 +19,5 @@
 
 - This was a profile message from late 2023 or early 2024.
 - There is very little else in results.
-- One wonders if the end times include a deep misunderstanding and hatred for people attempting to save children from pedophiles.
-- For some, maybe.
-- The pedos, I expect.
+- Two days later, and this result is gone.
+

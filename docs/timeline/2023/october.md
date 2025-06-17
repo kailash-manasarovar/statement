@@ -291,12 +291,18 @@
 - The only time that could have happened was the Saturday before.
 - I'm furious.
 
-## The gypsy glaring at me
+## The gypsy glares menacingly at me
 
-- I'm walking one Saturday along the Las Rotas beaches.
-- As I approach a parked car, I notice a man in the driving seat staring at me, glaring.
-- He looks ridiculous and I smile at him. He flinches.
+- I'm walking along the Las Rotas beaches one Saturday afternoon.
+- As I approach a parked car, I notice a man in the driving seat staring at me.
+- He's glaring, menacingly.
+
+![Glaring gypsy](../../content/images/menacing-gypsy.png)
+
+- He looks ridiculous and I smile at him. 
+- He flinches.
 - I recognize him from somewhere.
+- I believe he was [playing the guitar](september.md#gypsy-serenades) to accompany the woman belting about the frog in a box.
 
 ## First letter to the Generalitat
 
