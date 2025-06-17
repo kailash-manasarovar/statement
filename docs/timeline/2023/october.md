@@ -239,19 +239,23 @@
 
 ## Rocio Vidal
 
-- In the Google search results of `@jctot19 x` I now see a picture of Rocio Vidal. 
-- It is still there, even today.
+- In the Google search results of `@jctot19 x` I start seeing a photo of [Rocio Vidal](https://www.youtube.com/@LaGataDeSchr%C3%B6dinger), a famous YouTuber in Spain. 
+- It is still there, even today; (check the commits for the time of writing).
 
 ![Rocio Vidal in Google search](../../content/images/Rocio-Vidal-on-Google-search.png)
 
-!![Rocio Vidal in Google search](../../content/images/google-searches/rocio-vidal.png)
+![Rocio Vidal in Google search](../../content/images/google-searches/rocio-vidal.png)
 
-- She looks like she's been in hair-and-makeup before a shoot.
-- Rocio Vidal is a famous YouTuber in Spain.
-- I've been reliably informed that she was hacked.
-- At some point, on fake accounts, I saw pictures of her sitting on a bed, looking at someone who is filming her and she is about to take off her clothes.
-- I believe the picture posted here is when she "finds out" that she was filmed secretly, or that she agreed to be filmed, and those recordings were going to be used in some sort of blackmail. She looks upset. I could be wrong.
-- The `@jctot19` account has interacted a lot with Rocio Vidal's account `@SchrodingerGata` and I saw a lot of this interaction when I was able to see it prior to Elon locking down in July. 
+!!! tip "Hair and make-up"
+    - In the photo, breasts taking front and center stage, she looks like she's been in hair-and-makeup before a shoot.
+
+- I was reliably informed by a government official that Rocio Vidal was seriously hacked.
+- On fake account activity in the summer of 2024, I see pictures of her sitting on a bed, looking up at someone who is filming her, and it looks like she is about to take off her clothes.
+- I'm reminded of [plate lady](july.md#plate-lady-early-in-the-month) when I see this.
+- When I was examining the `@jctot19`, `@sinremite`, and other account activity back in July, I noticed a lot of activity and communication with Rocio Vidal's account `@SchrodingerGata`.
+- Interesting, isn't it.
+- Another thing which is quite interesting is that when I was in Cauterets in September 2024, ostensibly fighting for my life, [I thought I saw her](../2024/september.md#rocio-vidal) at the Bistro du Boulevard with a bunch of Spaniards around lunchtime one afternoon.
+- The woman I saw was standing up in the crowd; the rest of them sitting down around her.
 
 ## Telecommunications shop
 
