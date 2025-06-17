@@ -240,27 +240,32 @@
 ## Rocio Vidal
 
 - In the Google search results of `@jctot19 x` I start seeing a photo of [Rocio Vidal](https://www.youtube.com/@LaGataDeSchr%C3%B6dinger), a famous YouTuber in Spain. 
-- It is still there, even today; (check the commits for the time of writing).
 
 ![Rocio Vidal in Google search](../../content/images/Rocio-Vidal-on-Google-search.png)
+
+- There's a sadness in her expression.
+- The photo is still there, even today; (check the commits for the time of writing).
 
 ![Rocio Vidal in Google search](../../content/images/google-searches/rocio-vidal.png)
 
 !!! tip "Hair and make-up"
-    - In the photo, breasts taking front and center stage, she looks like she's been in hair-and-makeup before a shoot.
+    - Has she just been in hair-and-makeup, before a shoot?
 
-- I was reliably informed by a government official that Rocio Vidal was seriously hacked.
-- On fake account activity in the summer of 2024, I see pictures of her sitting on a bed, looking up at someone who is filming her, and it looks like she is about to take off her clothes.
-- I'm reminded of [plate lady](july.md#plate-lady-early-in-the-month) when I see this.
-- When I was examining the `@jctot19`, `@sinremite`, and other account activity back in July, I noticed a lot of activity and communication with Rocio Vidal's account `@SchrodingerGata`.
+- In October 2024, I was reliably informed by a government official that Rocio Vidal was seriously hacked.
+- On fake account activity in the summer of 2024, I see photos of Rocio, sitting on a bed, looking up at someone who is filming her. 
+- She has her fingers around her vest strap and it looks like she is about to take off her clothes.
+- I'm reminded of [plate lady](july.md#plate-lady-early-in-the-month) when I see this, although the difference is it looks like Rocio is doing what she's told.
+- When I was examining the `@jctot19`, `@sinremite`, and other account activity back in July, I noticed a lot of activity and communication between those accounts and Rocio Vidal's X account `@SchrodingerGata`.
 - Interesting, isn't it.
 - Another thing which is quite interesting is that when I was in Cauterets in September 2024, ostensibly fighting for my life, [I thought I saw her](../2024/september.md#rocio-vidal) at the Bistro du Boulevard with a bunch of Spaniards around lunchtime one afternoon.
-- This was the period I realized I could do nothing online without unseen eyes being aware of it. I was also continuously sexually aroused, all the way up in the Pyrenees, and my online activity was infested with porn.
-- I was also having a very intimate conversation online with stalkers; one of whom I considered to be the trumpet teacher who I loved.
+- This was the period I realized I could do nothing online without ill-meaning and unseen eyes being aware of it, and I was busy writing letters by hand to as many people as I could.
+- I was also continuously sexually aroused at that time, all the way up in the Pyrenees, and my online activity was infested with porn.
+- I was also having an extremely intimate conversation online with stalkers; one of whom I considered to be the trumpet teacher; the man I love.
 - The woman I saw was standing up in the crowd as if to point herself out; the others, mostly men, sitting down around her.
 
 !!! "Thoughts"
     - Is it possible that women agree to do porn, for free probably, so that their online businesses won't be shut down by hackers?
+    - Yet another teat for cowardly men with no lives to suck on?
 
 ## Telecommunications shop
 
