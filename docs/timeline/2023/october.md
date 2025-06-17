@@ -257,6 +257,9 @@
 - Another thing which is quite interesting is that when I was in Cauterets in September 2024, ostensibly fighting for my life, [I thought I saw her](../2024/september.md#rocio-vidal) at the Bistro du Boulevard with a bunch of Spaniards around lunchtime one afternoon.
 - The woman I saw was standing up in the crowd; the rest of them sitting down around her.
 
+!!! "Thoughts"
+    - Is it possible that women agree to do porn, for free probably, so that their online businesses won't be shut down by hackers?
+
 ## Telecommunications shop
 
 - I decide to try and get my old mobile phone fixed so I can use it instead of the one they obviously have access to.
