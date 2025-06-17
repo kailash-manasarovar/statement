@@ -258,7 +258,7 @@
 - When I was examining the `@jctot19`, `@sinremite`, and other account activity back in July 2023, I noticed a lot of activity and communication between those accounts and Rocio Vidal's X account `@SchrodingerGata`.
 - Interesting, isn't it.
 - Another thing which is quite interesting is that when I was in Cauterets in September 2024, ostensibly fighting for my life, [I thought I saw her](../2024/september.md#rocio-vidal) at the Bistro du Boulevard with a bunch of Spaniards around lunchtime one afternoon.
-- This was the period I realized I could do nothing online without ill-meaning and unseen eyes being aware of it, and I was busy writing letters by hand to as many people as I could.
+- This was the period I realized I could do nothing online without ill-meaning and unseen eyes being aware of it, and I was busy posting hand-written letters to as many people as I could.
 - I was also continuously sexually aroused at that time, all the way up in the Pyrenees, and my online activity was infested with porn.
 - I was also having an extremely intimate conversation online with stalkers; one of whom I considered to be the trumpet teacher; the man I love.
 - The woman I saw was standing up in the crowd as if to point herself out; the others, mostly men, sitting down around her.
