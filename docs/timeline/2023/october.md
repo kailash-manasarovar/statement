@@ -225,13 +225,17 @@
 - On my way to conservatory one day, as I pass [this spot](https://www.google.com/maps/@38.8442052,0.1081194,3a,75y,36.63h,77.57t/data=!3m7!1e1!3m5!1sB4ssIdTdFG6H4f6v4cNyeg!2e0!6shttps:%2F%2Fstreetviewpixels-pa.googleapis.com%2Fv1%2Fthumbnail%3Fcb_client%3Dmaps_sv.tactile%26w%3D900%26h%3D600%26pitch%3D12.43052595660501%26panoid%3DB4ssIdTdFG6H4f6v4cNyeg%26yaw%3D36.626678552174724!7i16384!8i8192?entry=ttu&g_ep=EgoyMDI0MTExMy4xIKXMDSoASAFQAw%3D%3D) on the Carrer de Manuel Sanchis Guarner, there's a strawberry on the ground.
 - At the same spot, I see the fat bloke in a vest that had been behaving extremely strangely when [me and my Tibetan monk friend](../2023/september.md#the-tibetan-monk-visits) were at the beach. 
 
-### Tweet about Hazel
+### Tweeting about being spiked in 2007
 
-- TODO:
-- https://x.com/1FRGVN/status/1714432159425925547
-- https://x.com/1FRGVN/status/1714429310906351705 -> when I first mention Hazel, without mentioning Hazel.
-- A few days after that, I'm dragged out of bed in the same manner again to write the tweet about Hazel.
-- I'm starting to wonder if the times I'm dragged out of bed like this relate to times my flat was entered by criminals while I was sedated, and just after they left.
+- The energy of the events around this time reminded me of events from the past. I also suspect the energy of the people around me was influencing me, even though I was not consciously aware of who they were outside of teachers and staff at the conservatory.
+- It must have been curious for the stalkers to see me tweet content which suggested I knew, at least a little bit, about what was going on more broadly.
+
+[![Poisoned 1](../../content/tweets/october-2023/poisoned-1.png)](https://x.com/1FRGVN/status/1714432159425925547)
+
+![Poisoned 2](../../content/tweets/october-2023/poisoned-2.png)
+
+- I say three hours here, but it was much more. I wasn't able to get into bed until the sun had come up which would have been around 8am in November.
+- Compare the above with [my experience in 2007](../early-years/2007.md#hazel-smith).
 
 ## Rocio Vidal
 
