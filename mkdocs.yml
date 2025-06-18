@@ -205,7 +205,6 @@ plugins:
   - git-revision-date-localized
   - social:
       cards_layout_options:
-        background_color: "#ff1493"
         background_image: \content\images\the-novel\cover-2.webp
         background_color: transparent
 
