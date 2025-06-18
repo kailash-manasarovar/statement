@@ -436,12 +436,18 @@
 
 ## Hazel outside the conservatory
 
-- I was talking about how it is often not a good idea to disclose child sexual abuse to people who aren't ready to hear it because they might attack you: https://x.com/1FRGVN/status/1714432159425925547.
-- You may remember the reference from [earlier in 2007](../early-years/2007.md#hazel-smith).
-- I was leaving the conservatory not long after that, and she was outside with a man.
-- It's interesting because I never once mentioned her name on Twitter or any details that anyone except her would recognize.
-- So I was certain then that she was involved in the current gang stalking. I wonder if she has been involved in the ongoing spiking/poisoning, or even the 2014 threat of poisoning from Domingo. It's certainly worth considering.
-- Is it possible that the most evil people in a small town could have been introduced to something so abhorrent, but yet utterly addictive, which gave them utmost power over everyone? Is that the underlying nature of this story? I hope not, but I would not be surprised if it was.
+- The following week, as I was leaving the conservatory after classes, I notice Hazel Smith outside the front door.
+- She is with an old white-haired man from Dénia I also know; a man I would recognize again.
+
+![Hazel and the sailor guy](../../content/images/haze-and-sailor-guy.png)
+
+- I find it interesting to see her because I didn't mention her specifically on [any of my tweets](#tweeting-about-being-spiked-in-2007).
+- And only she herself would understand the full implications of anything I had alluded to on X.
+- From that moment, I was certain she was involved in the gang stalking.
+- I wonder now if she is involved in the ongoing spiking/poisoning, or even the 2014 threat of poisoning from Domingo. 
+- I wonder now if she has entered my apartment, or is very active in the gang-stalking online communities, and many people in Dénia have seen her involvement already; something I'm completely unaware of to this day.
+- Is it possible that the most evil people in a small town could have been introduced to something so abhorrent, yet utterly addictive, that gave them utmost power over the people they hated; friends, family members, colleagues, neighbors? 
+- Is that the underlying nature of this horrible story? 
 
 ## The petty tyrant
 
