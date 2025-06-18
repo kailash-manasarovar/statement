@@ -330,20 +330,109 @@
 
 ## First letter to the Generalitat
 
-- Letters to the Generalitat Valenciana have been appearing on Google search `@jctot19 x` and this puts an idea in my head.
-- I would rather leave the police out of things unless it got extremely serious.
-- I decide to write a letter of complaint to the Generalitat.
-- I look up all the important people I can find and send it to them via email. 
+- Letters to the Generalitat Valenciana have been [appearing on Google search `@jctot19 x`](september.md#generalitat-letterheads) since September.
+- I don't know who I can trust at the conservatory. It's obvious Domingo controls everyone; teachers, staff, and children.
+- I don't want to call the police unless it gets extremely serious.
+- I decide to write a letter of complaint to the Generalitat about what's going on.
+- The Generalitat Valenciana is the government school board who manages the conservatories in the region.
+- I'm 100% sure they will help me.
+- I look up all the important people I can find and I email them. 
 
+![Complaint email recipient list](../../content/images/complaint-email-recipient-list.png)
+
+- Here's what I said, in English:
+
+!!! quote "My letter to the Generalitat in English"
+    Denia, Sunday 22 October 2023
+    
+    Dear counsellors,
+    
+    I am studying professional piano at the conservatory in Denia. I have just started year 4. I
+    completed years 1 & 2 in 2014-16 and restarted in 2022 after living outside of Spain for many
+    years.
+    
+    I have been bullied by teachers and staff at Denia conservatory more or less since I arrived
+    back last October 2022. However, the bullying has been intense since April 2023. I have
+    suffered:
+    
+    ● Gangstalking on social media
+    ● Cyberbullying
+    ● In-person bullying from teachers and staff at the conservatory
+    ● Criminal damage to my personal properly from teachers and staff at the conservatory
+    ● Bullying in the street from people in Denia I don’t know (aggressive interactions with
+    gipsies mainly)
+    
+    The reason for the bullying is because when I started year 1 of professional studies in 2014, my
+    piano teacher, Domingo Cano, assumed I would have a romantic relationship with him.
+    
+    However, I was not interested in him in this way. We were platonic friends and that’s all. In fact, I
+    felt I didn’t have a choice but to be his friend really, he was my piano teacher and kept pushing
+    for more. I found him to be selfish, sexist, insulting, and rude and he annoyed and upset me. I
+    refused him.
+
+    He was enraged. He slandered me to staff at the conservatory. He decided I would have a
+    romantic relationship with another teacher there instead (!) and started arranging this. He
+    caused me a lot of trouble. I finally had enough of his ridiculous behaviour and asked for a new
+    teacher in January 2015, 4 months after beginning my studies.
+    
+    I also did not like the way Domingo Cano and a few of the other male teachers were excessively
+    intimate with the girls at the school. I am a child sexual abuse survivor and am extremely
+    sensitive to this sort of grooming behaviour.
+    
+    So, I was not at all surprised to find myself being bullied in year 3 and it started immediately, at a
+    low level, but since April has been intense. And due to the social media element (Twitter) I have
+    become something of a local celebrity in Denia as I have stood up for myself on more than one
+    occasion and garnered some support.
+    
+    I don’t see why students should have to put up with this disgraceful behaviour from civil servants
+    at a public school. All I want is to play the piano.
+    
+    I have suffered a lot from this experience. Since January I lost 15kg in body weight, I suffered a
+    lot of PTSD symptoms while going to class at the conservatory, I was unable to work due to
+    stress and lost two jobs.
+    
+    I wrote to Concha Ballester (an old friend from Denia who I noticed he was also bullying via his
+    piano students) in June after they tried to crucify me at one of the last classes of the year. I had
+    been completely alone and unsupported until then and no-one had heard my side of the story. I
+    had also not been aware of how many people had been involved in stalking me. It was very
+    shocking.
+    
+    So much has happened. This is just a short sketch of a much longer story which I believe a daily
+    newspaper would find interesting. The local townsfolk are certainly enjoying it.
+    
+    Anyway, I have been standing up for myself, and it has been really good for my confidence and
+    wellbeing, but yesterday I noticed my car has been keyed very badly. I wrote a bunch of tweets
+    about it last night which they will have all seen, and this morning I woke up with the feeling I
+    have simply had enough of this.
+    
+    So I’m writing to you.
+    
+    You may wonder why I’m not going to the police. Well, as I mentioned, I am a child sexual
+    abuse survivor and I have been to the police in London about it a few times. It is very triggering
+    for me so I would rather leave that until it is absolutely necessary.
+    
+    Please forward this letter to the necessary people.
+    
+    With the very best and kindest regards,
+    
+    Yours faithfully,
+    Dra Katharine Murphy
+    Carrer Furs 15, Denia
+    Y2775989H
+    Irish citizen
+
+!!! info "Letters for downloading in Spanish & English"
     - [Letter in Spanish](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf).
     - [Letter in English](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20EN.pdf).
     - [Proof of sending](../../content/documents/letters/3.%20Proof%20of%20first%20emailed%20letter%20to%20Generalitat%20Octo%2023.png).
     - [List of recipients](../../content/documents/emails/list-of-recipients.png).
 
-- I receive no reply at all, ever, not even a notification that my letter was received.
-- In fact, I write again, a few times, to the GV and I never receive any reply from them.
-- Given the seriousness of what I'm saying, it's more than weird that no-one replied to me.
-- On the `jctot19 x` Google search results, a picture is displayed with a trampoline at the bottom of apartment blocks which I take to mean that Domingo is very upset.
+- The Generalitat ignores me.
+- I receive no reply at all, ever; not even a notification that my letter was received.
+- In fact, I write again a few times to the Generalitat as things get progressively worse for me.
+- I never receive any reply from them.
+- Given the seriousness of what I'm saying and the ongoing threat to minors, it's *more than weird* that no-one replied to me.
+- A few days after I write, on the `jctot19 x` Google search results, I see a picture of a trampoline at the bottom of apartment blocks which I take to mean that Domingo is very upset.
 
 ## Hazel outside the conservatory
 
