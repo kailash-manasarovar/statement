@@ -79,6 +79,9 @@
 - Samuel tells me he used to be a student of Elaine Black. I cry when he tells me this and have to leave the room. This is not like me normally.
 - Elvira is also in this class. She is a minor child and she is Domingo's student also.
 - Elvira has a sister, Lucía, in the year above who is also Domingo's student.
+- Now and then, Samuel, Domingo, Elvira and Lucía will go out in the evenings together, just those four. 
+- Samuel avoids telling me where they're going when I ask.
+- Samuel talks about Elvira as if he knows her intimately; "oh she's very erratic", he tells me.
 
 !!! warning "Elvira and Lucía"
     - Elvira and Lucía have moved to Dénia from Madrid.
