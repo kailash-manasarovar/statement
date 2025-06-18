@@ -6,6 +6,8 @@
 
 ![Trapped and suffering](../../content/images/trapped-and-suffering.png)
 
+- How would they be watching me, I wonder?
+
 ## Stalked online around the clock
 
 - It is obvious to me that stalkers are reading my tweets around the clock, and not just a few.
