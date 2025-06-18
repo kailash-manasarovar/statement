@@ -332,7 +332,7 @@
 
 - Letters to the Generalitat Valenciana have been [appearing on Google search `@jctot19 x`](september.md#generalitat-letterheads) since September.
 - I don't know who I can trust at the conservatory. It's obvious Domingo controls everyone; teachers, staff, and children.
-- I don't want to call the police unless it gets extremely serious.
+- I don't want to call the police yet.
 - I decide to write a letter of complaint to the Generalitat about what's going on.
 - The Generalitat Valenciana is the government school board who manages the conservatories in the region.
 - I'm 100% sure they will help me.
