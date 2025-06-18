@@ -1,5 +1,7 @@
 # Introduction agents
 
+- Fees.
+
 ## Ex-pats
 
 ### JCC
