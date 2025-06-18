@@ -453,10 +453,6 @@
 
 - https://x.com/1FRGVN/status/1715795337489637651
 
-## Giving my trauma-therapy card to Domingo at the fruit and veg stall
-
-- TODO:
-
 ## Halloween
 
 - Alex, John, Paul, and I agree to go out for Halloween, a kind of remake of our evening all those years ago.
