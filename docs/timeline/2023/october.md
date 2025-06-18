@@ -280,6 +280,9 @@
 - As I approach the shop, a man I always see at the conservatory emerges from inside.
 - He glances at me. He's grinning.
 - I don't know who he is but he's always around, at the conservatory, and in the street. I know his face extremely well.
+
+![Smug twat](../../content/images/smug-twat.png)
+
 - I assume he is the one who has been hacking me, he knows where I'm going to be after all.
 - I start to wonder if he works as a computer technician at the conservatory.
 - Inside the shop, the Chinese man clearly recognizes me.
