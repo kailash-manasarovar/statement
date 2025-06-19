@@ -482,6 +482,7 @@
 
 ## Halloween
 
+- https://x.com/1FRGVN/status/1713298033910202647
 - Alex, John, Paul, and I agree to go out for Halloween, a kind of remake of our evening all those years ago.
 - The whole town knows I'm coming out but I was never clear about that on Twitter.
 - I'm stopped for photos as I walk to the bar where we're going to meet.
@@ -500,6 +501,14 @@
 - Most of them have been translated, a lot, so I assume the Spanish are reading them. 
 
 ### @1frgvn
+
+- Asking stalkers what's going on and a reference, again, to the [table](september.md#table). In this case, the reference was "staining the table" which is even more applicable to the rape-gang porn I was in, perhaps.
+
+[![Table](../../content/tweets/october-2023/more-table.png)](https://x.com/1FRGVN/status/1713262652103819341)
+
+- Reminding people that everyone is waiting for the worst-of-the-worst to get taken down.
+
+[![Worst of the worst](../../content/tweets/october-2023/the-end-is-nigh.png)](https://x.com/1FRGVN/status/1712456797456359427)
 
 - A comment on my observations about the girls at the conservatory; apart from, perhaps, the girls with gangster fathers.
 
@@ -537,6 +546,16 @@
 
 [![Sedated trauma](../../content/tweets/october-2023/like-i-know.png)](https://x.com/1FRGVN/status/1711060396373647813)
 
+- My thoughts about what might help men.
+
+[![Surrender](../../content/tweets/october-2023/surrender.png)](https://x.com/1FRGVN/status/1711107889039909326)
+
+- I try to stay positive as much as possible.
+
+[![Staying positive](../../content/tweets/october-2023/staying-positive-as-much-as-poss.png)](https://x.com/1FRGVN/status/1713265909765181496)
+
+
+
 - https://x.com/1FRGVN/status/1719116928617197916
 - https://x.com/1FRGVN/status/1716087374759723455
 - https://x.com/1FRGVN/status/1716069851888820287
@@ -552,7 +571,6 @@
 - https://x.com/Lucyinbetween -> major player that followed me immediately I went public. I have interesting DMs with this account that include identification documents when it tried to prove who it said it was. Easy arrest probably.
 - https://x.com/1FRGVN/status/1713298033910202647 -> referring to old friends Alex, John, and Paul out on Halloween.
 - https://x.com/1FRGVN/status/1713292202674127032 -> mentioning I'll be taking the Uke out.
-- https://x.com/1FRGVN/status/1713262652103819341 -> reference to the table again.
 - https://x.com/1FRGVN/status/1712815203421688307
 - https://x.com/1FRGVN/status/1712456797456359427
 - https://x.com/1FRGVN/status/1710938372728885413

@@ -3,6 +3,7 @@
 - I love the smell of garbure in the morning.
 - Garbure is a local dish of the Pyrenees and you can smell it cooking in Lourdes in the morning. It's a very wonderful smell.
 - https://x.com/search?q=(from%3A1frgvn)%20garbure&src=typed_query&f=live
+- https://x.com/1FRGVN/status/1711312917998538845
 
 ## Batman and little girl
 
