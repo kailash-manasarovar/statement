@@ -456,7 +456,7 @@
 - There is a wonderful Toltec teaching in [Carlos Castaneda's](https://en.wikipedia.org/wiki/Carlos_Castaneda) books about the petty tyrant.
 - To summarize, a petty tyrant is an essential aid to a warrior's training.
 - The petty tyrant will put obstacle-after-obstacle in the path of a warrior, who then has to negotiate their way around them.
-- I tweet a link to the story to wind them up the stalkers; but there are great truths here such as how the most appalling situations, in which your life is in constant and imminent danger, can catapult you into impeccable personal states of which you could hardly conceive of previously.
+- I tweet a link to the story to wind them up the stalkers; but there are great truths in here such as how the most appalling situations, in which your life is in constant and imminent danger, can catapult you into impeccable personal states of which you could hardly conceive of previously.
 
 [![The petty tyrant](../../content/images/petty-tyrant.png)](https://x.com/1FRGVN/status/1715795337489637651)
 
