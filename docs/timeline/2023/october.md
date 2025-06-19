@@ -569,7 +569,7 @@
 
 - It wasn't the only tweet they didn't share with the town.
 
-[![Civil servants looking after children](../../content/tweets/october-2023/another-tweet-not-shared.png)](https://x.com/1FRGVN/status/1716068786313236773).
+[![Civil servants looking after children](../../content/tweets/october-2023/another-tweet-not-shared.png)](https://x.com/1FRGVN/status/1716068786313236773)
 
 #### Ruined t-shirt
 
