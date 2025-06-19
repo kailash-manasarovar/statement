@@ -455,15 +455,17 @@
 
 - There is a wonderful Toltec teaching in [Carlos Castaneda's](https://en.wikipedia.org/wiki/Carlos_Castaneda) books about the petty tyrant.
 - To summarize, a petty tyrant is an essential aid to a warrior's training.
-- The petty tyrant will put obstacle-after-obstacle in the path of a warrior, who then has to negotiate their way around them.
-- I tweet a link to the story to wind them up the stalkers; but there are great truths in here such as how the most appalling situations, in which your life is in constant and imminent danger, can catapult you into impeccable personal states of which you could hardly conceive of previously.
+- The petty tyrant puts obstacle-after-obstacle in the path of a warrior, who then has to negotiate a way around them.
+- The nastier the petty tyrant, the better, too.
+- I tweet a link about it to wind up the stalkers.
+- Even so, there are great truths in here such as how the most appalling situations - in which your life is in constant and imminent danger - can catapult you into impeccable personal states of which you could hardly conceive of previously.
 
 [![The petty tyrant](../../content/images/petty-tyrant.png)](https://x.com/1FRGVN/status/1715795337489637651)
 
 - I very much appreciated the bit about the "simple-minded Spanish".
-- And it seemed that Don Juan was describing something cultural about the Spanish and the vile traditions in which their evil nature may take them if left unchecked.
-- In terms of petty tyrant activity, it appeared I had dreamed up a whole town of them.
-- In Don Juan's terms, that was a gift from infinity which I can use to side-step death.
+- And it seemed that Don Juan described something cultural related to vile traditions which nurture evil natures.
+- In terms of petty tyrant activity, it appeared I had dreamed up a whole town of tyrants.
+- In Don Juan's terms, this is a gift from infinity which I can use to side-step death.
 
 ## Halloween
 
