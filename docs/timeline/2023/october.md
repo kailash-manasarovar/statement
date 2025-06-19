@@ -482,39 +482,47 @@
 
 ## Tweets
 
-These are a selection of tweets from this period which relate to everything that has been happening. Most of them have been translated, a lot, so I assume the Spanish are reading them. Many of these tweets are confirmation of what has been going on.
-
-!!! important
-    - I'm realizing everyone is reading my tweets. I don't know how as I don't get all that much activity on them but everyone seems to know everything I've said.
-    - A lot of my tweets have the intention of flushing the audience out, to see how far my reach goes.
-    - I find out literally everyone in the town knows everything about me, and every tiny thing I've said online, and likely a lot of lies too because they all hate me.
+- The following tweets are a selection from this period.
+- They relate entirely to the gang-stalking I'm suffering.
+- Most of them have been translated, a lot, so I assume the Spanish are reading them. 
 
 ### @1frgvn
+
+- A comment on my observations about the girls at the conservatory; apart from, perhaps, the girls with gangster fathers.
+
+[![Terrorized girls](../../content/tweets/october-2023/girls-in-state-of-terror.png)](https://x.com/1FRGVN/status/1715585631022207058)
+
+- A warning for women about what might happen if you turn your school teacher down. This was still my assumption about the reason behind the attack.
+
+[![Turning down a teacher](../../content/tweets/october-2023/turning-down-teacher.png)](https://x.com/1FRGVN/status/1715729380352184352)
+
+- I get annoyed with them.
+
+[![Annoyed](../../content/tweets/october-2023/annoyed-with-them.png)](https://x.com/1FRGVN/status/1715751496480936129)
+
+[![Don't shit on yer own doorstep](../../content/tweets/october-2023/dont-shit-on-yer-own-doorstep.png)](https://x.com/1FRGVN/status/1715769844782551448)
+
+[![There's always a limit](../../content/tweets/october-2023/limits.png)](https://x.com/1FRGVN/status/1715776355630043269)
+
+- I tweet updates to the X audience.
+
+[![Updates](../../content/tweets/october-2023/summary-updates.png)](https://x.com/1FRGVN/status/1716065908488040538)
+
 
 - https://x.com/1FRGVN/status/1719116928617197916
 - https://x.com/1FRGVN/status/1716371097128509890
 - https://x.com/1FRGVN/status/1716087374759723455
 - https://x.com/1FRGVN/status/1716069851888820287
 - https://x.com/1FRGVN/status/1716068786313236773
-- https://x.com/1FRGVN/status/1716028186289488047
 - https://x.com/1FRGVN/status/1716068390735900850
 - https://x.com/1FRGVN/status/1716066923631280635
-- https://x.com/1FRGVN/status/1716065908488040538
 - https://x.com/1FRGVN/status/1716066748456149202
-- https://x.com/1FRGVN/status/1715729380352184352
 - https://x.com/1FRGVN/status/1715795337489637651
-- https://x.com/1FRGVN/status/1715789335658651794 -> re: 12th June 2023 psychological attack at the conservatory.
 - https://x.com/1FRGVN/status/1715789145857990764
-- https://x.com/1FRGVN/status/1715776669603041593 -> re: 12th June 2023 psychological attack at the conservatory.
-- https://x.com/1FRGVN/status/1715776355630043269
-- https://x.com/1FRGVN/status/1715751496480936129
-- https://x.com/1FRGVN/status/1715741021655466380 -> my first and only reference to poisoned aunts.
 - https://x.com/1FRGVN/status/1715735176062394796
 - https://x.com/1FRGVN/status/1715734508132053031
 - https://x.com/1FRGVN/status/1715733466585669913
 - https://x.com/1FRGVN/status/1715730699653660878
-- https://x.com/1FRGVN/status/1715729380352184352
-- https://x.com/1FRGVN/status/1715585631022207058 -> certainly at the conservatory this was true.
 - https://x.com/1FRGVN/status/1714577639233515681
 - https://x.com/1FRGVN/status/1714433682046349597 -> talking about my Tweet post in Spanish from April 2023.
 - https://x.com/Lucyinbetween -> major player that followed me immediately I went public. I have interesting DMs with this account that include identification documents when it tried to prove who it said it was. Easy arrest probably.
@@ -529,6 +537,30 @@ These are a selection of tweets from this period which relate to everything that
 - https://x.com/1FRGVN/status/1710030138459484321 -> in reference to Matthew.
 - https://x.com/1FRGVN/status/1708534848803971249 -> weird convo with Matthew.
 - https://x.com/1FRGVN/status/1708504153788420212
+
+#### Hanging effigy
+
+- I mention the fact there's no effigy hanging outside my window like there was [the previous Halloween](../2022/october.md#halloween).
+
+[![Effigy](../../content/tweets/october-2023/effigy-reference.png)](https://x.com/1FRGVN/status/1716028186289488047)
+
+- This tweet was not translated much and I expect it wasn't shared for that reason.
+- Did the Dénia audience think the attack had started after the trumpet teacher turned up and I fell in love with him?
+- Would the audience be surprised to learn that the sex attacks against me had been intended since around 2006 in Dénia?
+
+#### Ruined t-shirt
+
+- I tweet about my silk t-shirt they damaged on [12th June](june.md#at-the-conservatory).
+
+[![Ruined shirt](../../content/tweets/october-2023/ruined-tshirt.png)](https://x.com/1FRGVN/status/1715776669603041593)
+
+#### Poisoned aunt
+
+- This tweet is the first, last, and only time I mention anything to do with [Domingo's threat in 2014](../early-years/2014.md#back-in-denia).
+
+[![Poisoned aunt](../../content/tweets/october-2023/poisoned-aunt.png)](https://x.com/1FRGVN/status/1715741021655466380)
+
+- Somehow, from this rather innocuous message which would hold no meaning at all for anyone who didn't know what I was talking about, `aunts` became a [bullying theme](../2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory).
 
 ### @JackChardwood
 
