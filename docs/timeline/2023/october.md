@@ -328,7 +328,9 @@
 - The following Saturday I go to use my car again.
 - I notice a scratch all along the left side, clearly done purposefully.
 - The only time that could have happened was the Saturday before, while my car was parked beside the gun club.
-- I'm furious.
+- I'm furious and tweet about it.
+
+[![Car keyed](../../content/tweets/october-2023/reporting-car-keyed.png)](https://x.com/1FRGVN/status/1716066748456149202)
 
 ## First letter to the Generalitat
 
@@ -513,10 +515,7 @@
 - https://x.com/1FRGVN/status/1716371097128509890
 - https://x.com/1FRGVN/status/1716087374759723455
 - https://x.com/1FRGVN/status/1716069851888820287
-- https://x.com/1FRGVN/status/1716068786313236773
-- https://x.com/1FRGVN/status/1716068390735900850
 - https://x.com/1FRGVN/status/1716066923631280635
-- https://x.com/1FRGVN/status/1716066748456149202
 - https://x.com/1FRGVN/status/1715795337489637651
 - https://x.com/1FRGVN/status/1715789145857990764
 - https://x.com/1FRGVN/status/1715735176062394796
@@ -548,9 +547,19 @@
 - Did the Dénia audience think the attack had started after the trumpet teacher turned up and I fell in love with him?
 - Would the audience be surprised to learn that the sex attacks against me had been intended since around 2006 in Dénia?
 
+[![Curious lack of activity](../../content/tweets/october-2023/lack-of-activity.png)](https://x.com/1FRGVN/status/1716068390735900850)
+
+- It wasn't the only tweet they didn't share with the town.
+
+[![Civil servants looking after children](../../content/tweets/october-2023/another-tweet-not-shared.png)](https://x.com/1FRGVN/status/1716068786313236773).
+
+- People I don't know start messaging me. I ignore them.
+
+[![DMs](../../content/tweets/october-2023/people-start-dming.png)](https://x.com/1FRGVN/status/1716371097128509890)
+
 #### Ruined t-shirt
 
-- I tweet about my silk t-shirt they damaged on [12th June](june.md#at-the-conservatory).
+- I tweet about my silk t-shirt teachers and staff at the conservatory damaged on [12th June](june.md#at-the-conservatory).
 
 [![Ruined shirt](../../content/tweets/october-2023/ruined-tshirt.png)](https://x.com/1FRGVN/status/1715776669603041593)
 
@@ -561,6 +570,13 @@
 [![Poisoned aunt](../../content/tweets/october-2023/poisoned-aunt.png)](https://x.com/1FRGVN/status/1715741021655466380)
 
 - Somehow, from this rather innocuous message which would hold no meaning at all for anyone who didn't know what I was talking about, `aunts` became a [bullying theme](../2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory).
+
+#### Elon's violinist
+
+- Most curiously, Elon Musk posts an animation with a beautiful violinist and the music is honky-tonk piano.
+- Of course, the references to Ana Requena and myself are not lost on anyone.
+
+[![Elon's violinist](../../content/tweets/october-2023/elons-violinist.png)](https://x.com/1FRGVN/status/1716247635181326437)
 
 ### @JackChardwood
 
