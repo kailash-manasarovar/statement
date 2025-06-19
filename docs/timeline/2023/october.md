@@ -533,6 +533,10 @@
 
 [![DMs](../../content/tweets/october-2023/people-start-dming.png)](https://x.com/1FRGVN/status/1716371097128509890)
 
+- I tweet things that seem like I know what's been going on.
+
+[![Sedated trauma](../../content/tweets/october-2023/like-i-know.png)](https://x.com/1FRGVN/status/1711060396373647813)
+
 - https://x.com/1FRGVN/status/1719116928617197916
 - https://x.com/1FRGVN/status/1716087374759723455
 - https://x.com/1FRGVN/status/1716069851888820287
@@ -551,9 +555,17 @@
 - https://x.com/1FRGVN/status/1713262652103819341 -> reference to the table again.
 - https://x.com/1FRGVN/status/1712815203421688307
 - https://x.com/1FRGVN/status/1712456797456359427
-- https://x.com/1FRGVN/status/1711299138397032596 -> taking the piss out of muscle men, aka Domingo.
 - https://x.com/1FRGVN/status/1710938372728885413
 - https://x.com/1FRGVN/status/1708504153788420212
+
+#### Muscles
+
+- With great aplomb, I take the living piss out of muscle men; specifically Domingo of course.
+
+[![Muscle men](../../content/tweets/october-2023/muscle-men.png)](https://x.com/1FRGVN/status/1711299138397032596)
+
+- There's a huge amount of interest in this tweet.
+- I'm having an ongoing conversation with a hacker at the same time on `@jackchardwood` who comments precisely on tweet messages from this thread.
 
 #### Hanging effigy
 
