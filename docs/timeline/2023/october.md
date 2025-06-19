@@ -529,6 +529,9 @@
 
 [![Stalker screenshots](../../content/tweets/october-2023/screenshots.png)](https://x.com/1FRGVN/status/1710504710866665941)
 
+- People I don't know start messaging me. I ignore them.
+
+[![DMs](../../content/tweets/october-2023/people-start-dming.png)](https://x.com/1FRGVN/status/1716371097128509890)
 
 - https://x.com/1FRGVN/status/1719116928617197916
 - https://x.com/1FRGVN/status/1716087374759723455
@@ -567,10 +570,6 @@
 - It wasn't the only tweet they didn't share with the town.
 
 [![Civil servants looking after children](../../content/tweets/october-2023/another-tweet-not-shared.png)](https://x.com/1FRGVN/status/1716068786313236773).
-
-- People I don't know start messaging me. I ignore them.
-
-[![DMs](../../content/tweets/october-2023/people-start-dming.png)](https://x.com/1FRGVN/status/1716371097128509890)
 
 #### Ruined t-shirt
 
