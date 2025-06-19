@@ -159,8 +159,16 @@
 - I can't believe what I'm seeing.
 - It's like I'm there.
 - I tumble into a triggered trauma reaction when I see Naama Levy with her bloodied pants and slit ankles paraded around for all the jeering brutes to see.
+
+[![Fists](../../content/tweets/october-2023/fists.png)](https://x.com/1FRGVN/status/1710674943665397831)
+
+- After sexual abuse in 1989, and then again when I went to the police in 2006, and then again in 2015, my hands made fists for months on end; day and night, fists!
+- Whenever I'm triggered, I make fists.
 - Everything changes at that moment.
 - I realize that all the requests for money for Palestinian children I had seen on X over the last years were a scam. I'm relieved I never fell for it.
+
+[![Hamas fundraising](../../content/tweets/october-2023/hamas-fundraising.png)](https://x.com/1FRGVN/status/1719203579032956982)
+
 - I see a distressed family in their own living room, one of their children murdered, her siblings traumatized out of cognition; her father speechless, his hands covered in his daughter's blood.
 - I see Shiri Bibas with her babies wrapped in a blanket, Ariel and Kfir, kidnapped by demons taunting her.
 - I see the fear on her face, and I recognize it from my trauma history.
@@ -173,6 +181,9 @@
 - Cowards! Each and every one of them.
 - I later find out that the Jewish people in Israel on Sabbath, who could not look at their phones because of Jewish law, were wondering why the Arabs were looking at their phones so excitedly.
 - Never again is now.
+
+[![Never again is now](../../content/tweets/october-2023/never-again-is-now.png)](https://x.com/1FRGVN/status/1714685047117132195)
+
 - I'm including a link here to some of the footage from that morning: https://www.hamas-massacre.net/.
 - If you haven't seen it, look.
 - I'm not going to watch it because unlike Greta, who thinks she already knows everything without having to look, I did look, while it was happening, and I saw enough to know.
@@ -510,9 +521,16 @@
 
 [![Updates](../../content/tweets/october-2023/summary-updates.png)](https://x.com/1FRGVN/status/1716065908488040538)
 
+- I mention that I kept a secret once. I'm referring to something Domingo asked me to keep secret, which I did until I told everyone he'd lied about being sick on December 5th 2014 to get off classes. I'm guessing now he didn't even have to lie and his trip to the doctor on that morning before we [left for the airport](../early-years/2014.md#trip-to-london) was for some other reason.
+
+[![Keeping secrets](../../content/tweets/october-2023/keeping-domingos-secret.png)](https://x.com/1FRGVN/status/1709965218531488064)
+
+- References to screenshots I kept from the `@jackchardwood` account activity over the summer.
+
+[![Stalker screenshots](../../content/tweets/october-2023/screenshots.png)](https://x.com/1FRGVN/status/1710504710866665941)
+
 
 - https://x.com/1FRGVN/status/1719116928617197916
-- https://x.com/1FRGVN/status/1716371097128509890
 - https://x.com/1FRGVN/status/1716087374759723455
 - https://x.com/1FRGVN/status/1716069851888820287
 - https://x.com/1FRGVN/status/1716066923631280635
@@ -532,9 +550,6 @@
 - https://x.com/1FRGVN/status/1712456797456359427
 - https://x.com/1FRGVN/status/1711299138397032596 -> taking the piss out of muscle men, aka Domingo.
 - https://x.com/1FRGVN/status/1710938372728885413
-- https://x.com/1FRGVN/status/1710594308020084863 -> replied to by Matthew, the account that is pretending to be the trumpet teacher.
-- https://x.com/1FRGVN/status/1710030138459484321 -> in reference to Matthew.
-- https://x.com/1FRGVN/status/1708534848803971249 -> weird convo with Matthew.
 - https://x.com/1FRGVN/status/1708504153788420212
 
 #### Hanging effigy
@@ -577,6 +592,16 @@
 - Of course, the references to Ana Requena and myself are not lost on anyone.
 
 [![Elon's violinist](../../content/tweets/october-2023/elons-violinist.png)](https://x.com/1FRGVN/status/1716247635181326437)
+
+#### Threats from hacker account
+
+- A chat with the `@matthew` account becomes a serious of bizarre emissions and something that could be considered violent and threatening.
+
+[![Matthew](../../content/tweets/october-2023/matthew-treats-bizarre-rants.png)](https://x.com/1FRGVN/status/1708534848803971249)
+
+- I will start to have a lot of communication with various accounts of exactly the same nature; random weird nonsensical chatter plus violence.
+- One of these is undoubtedly "Sandra Smith". 
+- It seems highly likely that all content like this is managed by criminal cyber-stalkers and tormentors.
 
 ### @JackChardwood
 

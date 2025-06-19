@@ -11,3 +11,4 @@
 ## Jaws
 
 - https://x.com/search?q=(shark%20OR%20jaws)%20(from%3A1frgvn)&f=live&src=typed_query
+- https://x.com/1FRGVN/status/1710011124635070560
