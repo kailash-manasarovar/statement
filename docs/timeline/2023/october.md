@@ -668,7 +668,8 @@
 
 [![Has anyone any heart](../../content/tweets/october-2023/any-regret-at-all.png)](https://x.com/JackChardwood/status/1709913077339025790)
 
-- I thought the hacker had messed with my crypto app because it had stopped working. He complained to me that he hadn't. And, indeed, it turned out he hadn't. Responses always came on fake accounts with a message in the name, or first tweet, or profile.
+- I thought the hacker had messed with my crypto app because it had stopped working. He complained to me that he hadn't. And, indeed, it turned out he hadn't. 
+- Responses always came on fake accounts with a message in the name, or first tweet, or profile.
 
 [![I blamed you](../../content/tweets/october-2023/i-blamed-you.png)](https://x.com/JackChardwood/status/1708837976413724886)
 
