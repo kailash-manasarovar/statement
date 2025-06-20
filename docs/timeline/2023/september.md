@@ -339,13 +339,19 @@ function googleTranslateElementInit() {
 
 ![Tables](../../content/images/google-search-tables.png)
 
+- There are some mentions of "staining" the kitchen table too.
 - I mention this in the [Carmen](july.md#carmen) section from July where I talk about the `@sinremite` account.
 - The same thing happens with [sinks in April 2024](../2024/april.md#let-that-sink-in), i.e. *let that sink in*, when I fear for my life and leave my studies after the most [outrageous psychological assault involving someone dressing up as my murdered friend](../2024/march.md#tuesday-12th-march). Then again in April 2025 when I only see photos of refrigerators and show my mother.
 - I have no idea why and puzzle over it.
+- I ask hacker-stalkers directly what they meant in October.
+
+![What does staining the kitchen table mean?](../../content/tweets/october-2023/more-table.png)
+
+- There's no answer.
 - I come up with something. 
 - I remember Domingo's mother's table at their flat in Pedreguer. 
 - He had taken me there under the pretense of the flat being for sale and showing it to me in case I wanted to buy it.
-- It was a huge table. 
+- It was a huge table in the dining room.
 - Domingo had called it her *caprice* and he suggested his father had been furious about her purchase.
 - I tweet my assumption that the table refers to where the family meets to decide what they're going to do about me.
 
@@ -360,8 +366,8 @@ function googleTranslateElementInit() {
 
 ![Baby seal](../../content/images/baby-seals.png)
 
-- If so, how do the people of Dénia know about this, and are they posting tables on my Google search results to let me know they have shared these films with everyone in the town?
-- Is this why Domingo took me to see his mother's table in Pedreguer all those years before; to see if it would trigger a trauma memory which he could use to try to control me again?
+- If so, how do teachers and staff at the conservatory of Dénia know about this, and are they posting tables on my Google search results to let me know they have shared these films with everyone in the town?
+- Is this why Domingo took me to see his mother's table in Pedreguer all those years before; to see if it would trigger a trauma memory which he could use to try to control me?
 
 ## The evil eye
 
