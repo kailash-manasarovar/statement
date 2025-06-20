@@ -483,6 +483,7 @@
 ## Halloween
 
 - https://x.com/1FRGVN/status/1713298033910202647
+- https://x.com/1FRGVN/status/1713292202674127032
 - Alex, John, Paul, and I agree to go out for Halloween, a kind of remake of our evening all those years ago.
 - The whole town knows I'm coming out but I was never clear about that on Twitter.
 - I'm stopped for photos as I walk to the bar where we're going to meet.
@@ -497,12 +498,12 @@
 ## Tweets
 
 - The following tweets are a selection from this period.
-- They relate entirely to the gang-stalking I'm suffering.
-- Most of them have been translated, a lot, so I assume the Spanish are reading them. 
+- They relate entirely to the gang-stalking I'm suffering at the hands of teachers and staff at the conservatory, and their criminal associates.
+- Most of the tweets are translated, a lot; so I assume they are being distributed and Spanish speakers are reading them. 
 
 ### @1frgvn
 
-- Asking stalkers what's going on and a reference, again, to the [table](september.md#table). In this case, the reference was "staining the table" which is even more applicable to the rape-gang porn I was in, perhaps.
+- Asking stalkers what's going on and a reference, again, to the [table](september.md#table). In this case, the reference was "staining the table" which is even more applicable to the rape-gang porn I was in as a child, perhaps.
 
 [![Table](../../content/tweets/october-2023/more-table.png)](https://x.com/1FRGVN/status/1713262652103819341)
 
@@ -514,7 +515,7 @@
 
 [![Terrorized girls](../../content/tweets/october-2023/girls-in-state-of-terror.png)](https://x.com/1FRGVN/status/1715585631022207058)
 
-- A warning for women about what might happen if you turn your school teacher down. This was still my assumption about the reason behind the attack.
+- A warning for women about what might happen if you turn your school teacher down. This was still my assumption about the reason behind the attack at the time.
 
 [![Turning down a teacher](../../content/tweets/october-2023/turning-down-teacher.png)](https://x.com/1FRGVN/status/1715729380352184352)
 
@@ -530,7 +531,8 @@
 
 [![Updates](../../content/tweets/october-2023/summary-updates.png)](https://x.com/1FRGVN/status/1716065908488040538)
 
-- I mention that I kept a secret once. I'm referring to something Domingo asked me to keep secret, which I did until I told everyone he'd lied about being sick on December 5th 2014 to get off classes. I'm guessing now he didn't even have to lie and his trip to the doctor on that morning before we [left for the airport](../early-years/2014.md#trip-to-london) was for some other reason.
+- I mention that I kept a secret once. I'm referring to something Domingo asked me to keep secret, which I did until I told everyone he'd lied about being sick on December 5th 2014 to get off classes. 
+- I'm guessing now he didn't even have to lie and his trip to the doctor on that morning before we [left for the airport](../early-years/2014.md#trip-to-london) was for some other reason.
 
 [![Keeping secrets](../../content/tweets/october-2023/keeping-domingos-secret.png)](https://x.com/1FRGVN/status/1709965218531488064)
 
@@ -554,27 +556,32 @@
 
 [![Staying positive](../../content/tweets/october-2023/staying-positive-as-much-as-poss.png)](https://x.com/1FRGVN/status/1713265909765181496)
 
+- Mentioning the ongoing bullying for about a year.
 
+[![Ongoing bullying](../../content/tweets/october-2023/ongoing-bullying-for-about-a-year.png)](https://x.com/1FRGVN/status/1716066923631280635)
 
-- https://x.com/1FRGVN/status/1719116928617197916
-- https://x.com/1FRGVN/status/1716087374759723455
-- https://x.com/1FRGVN/status/1716069851888820287
-- https://x.com/1FRGVN/status/1716066923631280635
-- https://x.com/1FRGVN/status/1715795337489637651
-- https://x.com/1FRGVN/status/1715789145857990764
-- https://x.com/1FRGVN/status/1715735176062394796
-- https://x.com/1FRGVN/status/1715734508132053031
-- https://x.com/1FRGVN/status/1715733466585669913
-- https://x.com/1FRGVN/status/1715730699653660878
-- https://x.com/1FRGVN/status/1714577639233515681
-- https://x.com/1FRGVN/status/1714433682046349597 -> talking about my Tweet post in Spanish from April 2023.
-- https://x.com/Lucyinbetween -> major player that followed me immediately I went public. I have interesting DMs with this account that include identification documents when it tried to prove who it said it was. Easy arrest probably.
-- https://x.com/1FRGVN/status/1713298033910202647 -> referring to old friends Alex, John, and Paul out on Halloween.
-- https://x.com/1FRGVN/status/1713292202674127032 -> mentioning I'll be taking the Uke out.
-- https://x.com/1FRGVN/status/1712815203421688307
-- https://x.com/1FRGVN/status/1712456797456359427
-- https://x.com/1FRGVN/status/1710938372728885413
-- https://x.com/1FRGVN/status/1708504153788420212
+- Is it possible that adult male teachers think the minor students they're abusing actually like them?
+
+[![Does she really like you?](../../content/tweets/october-2023/teachers-think-students-like-them.png)](https://x.com/1FRGVN/status/1715730699653660878)
+
+- I have the sensation something really big is happening and it's only very slightly to do with being manipulated into falling in love.
+
+[![Strawberries, or something else](../../content/tweets/october-2023/something-big-happening.png)](https://x.com/1FRGVN/status/1714577639233515681)
+
+- A stalker account that followed me from the moment I went public. I was convinced it was either Domingo, or Hazel and Sandra Smith, maybe all three. Or maybe an interested party called Lucy?
+
+[![Lucyinbetween](../../content/tweets/october-2023/lucy-in-between.png)](https://x.com/Lucyinbetween)
+
+- I had some interesting DMs with this account, which sent me identification documents when I expressed disbelief about who they said they were.
+- This happened also with the `@Matthew49200183` account and the `@MarkMoseley` account from February 2024.
+- Showing identification documents in DMs (that you couldn't see because they were very blurry) seemed to be a pattern with these people.
+- I tweet about how grooming feels and how to recognize it.
+
+[![Grooming](../../content/tweets/october-2023/grooming.png)](https://x.com/1FRGVN/status/1708504153788420212)
+
+- School board support of gang-stalking by teachers and staff at public learning establishments is state-sponsored terrorism.
+
+[![State-sponsored terrorism](../../content/tweets/october-2023/state-sponsored-terrorism.png)](https://x.com/1FRGVN/status/1710938372728885413)
 
 #### Muscles
 
@@ -615,21 +622,14 @@
 
 - Somehow, from this rather innocuous message which would hold no meaning at all for anyone who didn't know what I was talking about, `aunts` became a [bullying theme](../2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory).
 
-#### Elon's violinist
-
-- Most curiously, Elon Musk posts an animation with a beautiful violinist and the music is honky-tonk piano.
-- Of course, the references to Ana Requena and myself are not lost on anyone.
-
-[![Elon's violinist](../../content/tweets/october-2023/elons-violinist.png)](https://x.com/1FRGVN/status/1716247635181326437)
-
 #### Threats from hacker account
 
-- A chat with the `@matthew` account becomes a serious of bizarre emissions and something that could be considered violent and threatening.
+- A chat with the `@Matthew49200183` account becomes a serious of bizarre emissions and something that could be considered violent and threatening.
 
-[![Matthew](../../content/tweets/october-2023/matthew-treats-bizarre-rants.png)](https://x.com/1FRGVN/status/1708534848803971249)
+[![@Matthew49200183](../../content/tweets/october-2023/matthew-treats-bizarre-rants.png)](https://x.com/1FRGVN/status/1708534848803971249)
 
-- I will start to have a lot of communication with various accounts of exactly the same nature; random weird nonsensical chatter plus violence.
-- One of these is undoubtedly "Sandra Smith". 
+- I start to have communication with various fake accounts of exactly the same nature; random weird nonsensical chatter plus violent imagery.
+- I'm certain that the Smiths are managing these accounts. 
 - It seems highly likely that all content like this is managed by criminal cyber-stalkers and tormentors.
 
 ### @JackChardwood

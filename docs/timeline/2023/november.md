@@ -161,6 +161,15 @@ Many of these tweets are confirmation of what has been going on.
 
 ### @1frgvn
 
+#### Elon's violinist
+
+- Most curiously, in early November, Elon Musk posts an animation with a beautiful violinist and the music is honky-tonk piano: https://x.com/elonmusk/status/1720720258095341916?lang=en.
+- Of course, the references to Ana Requena and myself are not lost on anyone.
+
+[![Elon's violinist](../../content/tweets/october-2023/elons-violinist.png)](https://x.com/1FRGVN/status/1716247635181326437)
+
+- He must have mentioned violins before as this is pre-the-tweet.
+
 - https://x.com/1FRGVN/status/1730335228047056929 -> Domingo's dad is (apparently) a car dealer, he told me in 2014, so I'm literally unable to get my car fixed anywhere without possible ridiculousness occurring.
 - https://x.com/1FRGVN/status/1730325008625398153 -> the `@g_lamarche` account is likely Domingo and came up on the Google search for `@jctot19` at some point to inform me of it.
 - https://x.com/1FRGVN/status/1729784281482907991 -> Carrie 2 in reference to June 12 Carrie 1.

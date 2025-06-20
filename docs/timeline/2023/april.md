@@ -203,6 +203,10 @@
     - Fake accounts posted references like this to terrorize and humiliate me, but being in love could never be humiliating.
     - It felt wonderful, in fact, and became an extraordinarily powerful force for good in my life, healing me completely of depression.
 
+- In October, I will tweet about this again to the multitude who I have come to realize are watching me.
+
+[![Disclosing sexual abuse to a man I liked](../../content/tweets/disclosing.png)](https://x.com/1FRGVN/status/1714433682046349597)
+
 ### Garbure
 
 - It's clear everyone knows what's going on and no-one is going to communicate with me directly about it.
