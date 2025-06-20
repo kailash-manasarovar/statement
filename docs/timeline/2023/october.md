@@ -634,15 +634,46 @@
 
 ### @JackChardwood
 
-- https://x.com/JackChardwood/status/1712835795491459181 -> responding to the trumpet teacher who posted a picture of a famous man looking "pleased with" a woman after I posted the muscle tweet.
-- https://x.com/JackChardwood/status/1711647385347145762 -> mentioning the gypsy serenade.
-- https://x.com/JackChardwood/status/1711512447046062086 -> response to Tweets inexplicably coming up on my timeline saying, "he's just a baby" which was a common phrase in all this.
-- https://x.com/JackChardwood/status/1711409585485906091 -> explaining how I feel about it all at that moment.
-- https://x.com/JackChardwood/status/1711363060579942748 -> during the muscles tweet business, I posted this. The hacker posted immediately at tweet on my timeline which said "not a foot wrong". 
-- https://x.com/JackChardwood/status/1711149172072603930 -> comment to hacker.
-- https://x.com/JackChardwood/status/1711132004924670337 -> comment to hacker.
-- https://x.com/JackChardwood/status/1710694553353609441 -> trying to figure it out. A post goes by about Mac spoofing.
-- https://x.com/JackChardwood/status/1709967390979534933 -> regarding a response from hackers.
-- https://x.com/JackChardwood/status/1709913077339025790 -> message to any of the bullies who may have a heart.
-- https://x.com/JackChardwood/status/1708837976413724886 -> thought the hacker had messed with my crypto app, he complained, turned out he hadn't, he responded to this also. Always fake accounts with a message in the name, or first tweet, or profile.
-- https://x.com/JackChardwood/status/1708819182798643206 -> trying to turn him.
+- During the [muscle tweet activity](#muscles), Google search shows a picture of a famous Spanish actor looking pleased at a woman. I find it a bit insulting and post a pic right on back.
+
+[![Responding 1](../../content/tweets/october-2023/responding-1.png)](https://x.com/JackChardwood/status/1712835795491459181)
+
+- I discuss the trumpet teacher with the hacker who is constantly posting references to "He's just a baby", and has been doing so for over a year.
+
+[![Discussing TT](../../content/tweets/october-2023/discussing-the-tt.png)](https://x.com/JackChardwood/status/1711512447046062086)
+
+- Explaining how I feel to the hacker who asked me where I was.
+
+[![Explaining how I feel](../../content/tweets/october-2023/explaining.png)](https://x.com/JackChardwood/status/1711409585485906091)
+
+- During the [muscles](#muscles) activity, I post a question.
+
+[![How is she givig](../../content/tweets/october-2023/how-is-she-giving.png)](https://x.com/JackChardwood/status/1711363060579942748)
+
+- The hacker posts immediately on a tweet on my timeline saying, "not a foot wrong"!
+- I tell the hacker what I think about him and how disappointing he is to me when he could do so much good in the world.
+
+[![Talking to the hacker](../../content/tweets/october-2023/talking-to-the-hacker.png)](https://x.com/JackChardwood/status/1711149172072603930)
+
+- I post how I think the hacker operates on vulnerable women and children targets.
+
+[![How he operates](../../content/tweets/october-2023/analysing-what-they-do.png)](https://x.com/JackChardwood/status/1710694553353609441)
+
+- A post whizzes by about Mac spoofing at this moment.
+- Another Google search result was a bunch of pictures of men saying "yes dear", in response to some of my more withering tweets I expect.
+
+[![Yes dear](../../content/tweets/october-2023/yes-dear.png)](https://x.com/JackChardwood/status/1709967390979534933)
+
+- I continue to search for some heart in the Dénia teacher-and-conservatory-staff stalkers. I never find any.
+
+[![Has anyone any heart](../../content/tweets/october-2023/any-regret-at-all.png)](https://x.com/JackChardwood/status/1709913077339025790)
+
+- I thought the hacker had messed with my crypto app because it had stopped working. He complained to me that he hadn't. And, indeed, it turned out he hadn't. Responses always came on fake accounts with a message in the name, or first tweet, or profile.
+
+[![I blamed you](../../content/tweets/october-2023/i-blamed-you.png)](https://x.com/JackChardwood/status/1708837976413724886)
+
+- Always thinking of potential positive outcomes, I continue to try to turn the hacker.
+
+[![Turning the hacker](../../content/tweets/october-2023/trying-to-turn-him.png)](https://x.com/JackChardwood/status/1708819182798643206)
+
+- He could do a lot of good in the right hands but his heart would have to be of pure intention, which makes things tricky, dunnit.

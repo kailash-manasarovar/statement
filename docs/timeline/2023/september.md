@@ -825,6 +825,10 @@ function googleTranslateElementInit() {
 - Three gypsies are standing at the end of the tunnel.
 - As I approach, the young woman among them starts singing as if she is shouting at me while one of the men plays his guitar and the other claps.
 - She sings, while glaring at me, about a [lucky frog in a box](june.md#at-the-conservatory), and other stuff related to what's been going on.
+- I mention this in an October tweet.
+
+[![Frog in a box](../../content/tweets/october-2023/frog-in-the-box.png)](https://x.com/JackChardwood/status/1711647385347145762)
+
 - The frog reference is obvious but I brought it to [him in a little bag](june.md#world-saving-lucky-forg).
 - It's not clear why the frog is in the box. She's belting so loudly, anyone listening on my mobile would have heard it.
 - It makes me laugh even though it is full-on gang stalking and extremely threatening.
