@@ -511,6 +511,7 @@
 
 - I sense minds blown all over.
 - Alessandra tells me later, a few times, that the French man had wanted to know about us all going out all those years ago, and whether I had a ukelele and had sung Back to Black.
+- Did he know that the spirits of the land had favored me?
 - That night, I got home and even though I had only had a few drinks, I was so ill I stayed in bed for about 36 hours, vomiting continuously.
 - It felt like I had been poisoned.
 
