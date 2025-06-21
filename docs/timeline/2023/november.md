@@ -58,23 +58,23 @@
 
 ## The Adam's family
 
-- I had started to see a transformer figure on the `@jctot19` search results.
-- The character looked like a fierce and angry Ana Girbes carrying big guns. The likeness to Ana Girbes was startling.
+- I started to see a transformer figure on the `@jctot19 x` search results.
+- The character looks like a fierce and angry Ana Girbes carrying big guns.
+- The likeness to Ana Girbes, the musical language teacher at the conservatory, was startling.
 
 ![Ana transformer](../../content/images/ana-transformer.png)
 
-- Ana Girbes is the musical language teacher at the conservatory. 
-- This character remained in search results for a couple of months.
-- Paqui Fornet insists I attend a concert taking place in the conservatory one evening.
+- This character remained in search results for a few months.
+- Paqui Fornet insists I attend one of Ana's concerts which is taking place in the conservatory room 5 one evening.
 - I go along.
-- Ana Girbes has her beginner's class playing *The Adam's Family* on various percussion instruments.
+- Ana Girbes has her elementary class playing *The Adam's Family* on various percussion instruments.
+
+![The Adam's Family](../../content/images/the-adams-family.png)
+
 - There are about 10 players made up of very young prepubescent children.
-- It should be fun but she looks furious.
-- At home that night, I first see Ana represented as an angry fierce transformer on the trumpet teacher's Google search results.
-
-![Ana represented as a transformer](../../content/images/ana-transformer.png)
-
+- It should be a fun occasion but Ana looks furious.
 - I'm honestly quite amazed but I have no idea what any of this means, at the time.
+- Was Ana Girbes trying to tell me something?
 
 ## Tonya
 
