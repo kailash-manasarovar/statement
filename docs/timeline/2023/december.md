@@ -36,19 +36,6 @@
 - I show my friend in Lourdes this search result directly from the Google search function on my mobile.
 - They will remove this result from Google search the day after I post a screenshot of it on Twitter: https://x.com/1FRGVN/status/1748728422262546895.
 
-## The Adam's family
-
-- Paqui Fornet insists I attend a concert taking place in the conservatory one evening.
-- I go along.
-- Ana Girbes has her beginner's class playing *The Adam's Family* on various percussion instruments.
-- There are about 10 players made up of very young prepubescent children.
-- It should be fun but she looks furious.
-- At home that night, I first see Ana represented as an angry fierce transformer on the trumpet teacher's Google search results.
-
-![Ana represented as a transformer](../../content/images/ana-transformer.png)
-
-- I'm honestly quite amazed but I have no idea what any of this means, at the time.
-
 ## Meeting Alessandra
 
 - I'm meeting Alessandra now and then for coffee to chat. 

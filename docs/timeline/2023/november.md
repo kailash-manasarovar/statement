@@ -1,10 +1,14 @@
 ## Conservatory
 
-- Classes continue.
+### Choir
+
 - Choir class is full of threats towards me via suggestive scores, Nacho popping his nose in all the time and looking at me, discussions about trumpets, mentions of Vidal and how I'm thinking about him, Domingo's students asking me ridiculous things, the choir teacher being offensive towards me in Valenciano which I don't understand, comments from the children which seem weird, for example about my name, and other stuff.
 - The choir teacher makes fun of my name somehow, I don't understand the joke. This goes on continually and even concerns some of the kids.
-- The French horn player, an adult woman who sits beside me, is involved. She waits at the stairs to see my reaction to Nacho as he passes by me one evening after class. When I grimace, she is satisfied and leaves.
+- The French horn player, an adult woman who sits beside me, probably called Vicen, is involved. She waits at the stairs to see my reaction to Nacho as he passes by me one evening after class. When I grimace, she is satisfied and leaves.
 - I'm anxious, a lot, in choir class.
+
+### Piano 
+
 - Piano is good. I enjoy playing. Paqui seems fierce but fair. I have no idea how much she hates me and/or what she is planning with all the teachers.
 
 !!! note
@@ -13,14 +17,19 @@
     - The fact that teachers and staff had to continue with their ridiculous charade must have been very annoying and upsetting for them.
     - So, instead of doing the right thing, and letting it all go, and leaving me in peace to play the piano, they decided their best move was to make things worse for me so that I would definitely leave.
 
+### Harmony
+
 - Harmony class is OK. I struggle to understand the content, however, and I no longer sit next to Samuel who helped me in the previous year. I sit on my own and no-one speaks to me.
+
+### Chamber music 
+
 - Chamber music is stressful. The women are play acting they hate me and it's all a bit of a farce.
 - Katia brings in a duet from the opera Norma about two women in love with the same man, one has two children with him. The trumpet teacher, allegedly, has two daughters and the reference is that Norma and Adalgisa are Ana and I and we are both in love with the same man.
 - I have brought in something equally suggestive. 
 - Random students make comments related to my Twitter activity in the halls.
 - It's all very stressful.
 - I am literally on my own against the whole conservatory, and there is no reason for them to hate me at all. In fact, everything I am doing is because I'm concerned for the safety of the children there, my classmates.
-- I am waiting for the Generalitat to come in and sort it out like the adults I assume they are.
+- I am waiting for the [Generalitat to come in and sort it out](october.md#first-letter-to-the-generalitat) like the adults I assume they are.
 
 !!! important
     - It's key to note that no-one spoke to me at all about anything that was going on, right from the moment I came back.
@@ -47,15 +56,25 @@
 - Jail might be helpful for them.
 - They could at least work at something helpful for everyone instead of creating a hell-scape of our beautiful world.
 
-## Ana Girbes' concert
+## The Adam's family
 
-- I had started to see a transformer figure on the `@jctot19` search results since [Ana's show](../2023/december.md#the-adams-family).
+- I had started to see a transformer figure on the `@jctot19` search results.
 - The character looked like a fierce and angry Ana Girbes carrying big guns. The likeness to Ana Girbes was startling.
 
 ![Ana transformer](../../content/images/ana-transformer.png)
 
 - Ana Girbes is the musical language teacher at the conservatory. 
 - This character remained in search results for a couple of months.
+- Paqui Fornet insists I attend a concert taking place in the conservatory one evening.
+- I go along.
+- Ana Girbes has her beginner's class playing *The Adam's Family* on various percussion instruments.
+- There are about 10 players made up of very young prepubescent children.
+- It should be fun but she looks furious.
+- At home that night, I first see Ana represented as an angry fierce transformer on the trumpet teacher's Google search results.
+
+![Ana represented as a transformer](../../content/images/ana-transformer.png)
+
+- I'm honestly quite amazed but I have no idea what any of this means, at the time.
 
 ## Tonya
 
@@ -116,6 +135,7 @@
 - I sit down at my usual seat. The woman who plays the French horn sits down next to me stinking of peanuts. She is eating a peanut-butter sandwich of some sort.
 - The choir teacher mentions elephants and trumpets and trunks continually throughout the class.
 - I wonder who this Matthew actually is. The English is very good.
+- I'm pretty sure now that Sandra and Hazel Smith had been running this account since inception.
 
 ## Polygon
 
