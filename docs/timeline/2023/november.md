@@ -113,6 +113,10 @@
 - I still find it really hard to accept that a whole town would feel justified in destroying a person because of something like this happening to them when they were a child.
 - Is there anyone decent left in Dénia?
 
+## Meeting Alex
+
+- She asks, "how would you feel if he walked right in now"?
+
 ## Matthew
 
 - The account `@Matthew49200183` has been following me since August 2023. I'm supposed to think it is the trumpet teacher.
