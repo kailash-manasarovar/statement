@@ -56,20 +56,20 @@
 - Jail might be helpful for them.
 - They could at least work at something helpful for everyone instead of creating a hell-scape of our beautiful world.
 
-## The Adam's family
+## The Adams family
 
 - I started to see a transformer figure on the `@jctot19 x` search results.
 - The character looks like a fierce and angry Ana Girbes carrying big guns.
-- The likeness to Ana Girbes, the musical language teacher at the conservatory, was startling.
+- The likeness to Ana Girbes, the musical language teacher at the conservatory, is startling.
 
 ![Ana transformer](../../content/images/ana-transformer.png)
 
 - This character remained in search results for a few months.
 - Paqui Fornet insists I attend one of Ana's concerts which is taking place in the conservatory room 5 one evening.
 - I go along.
-- Ana Girbes has her elementary class playing *The Adam's Family* on various percussion instruments.
+- Ana Girbes has her elementary class playing *The Adams Family* on various percussion instruments.
 
-![The Adam's Family](../../content/images/the-adams-family.png)
+![The Adams Family](../../content/images/the-adams-family.png)
 
 - There are about 10 players made up of very young prepubescent children.
 - It should be a fun occasion but Ana looks furious.
