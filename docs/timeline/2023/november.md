@@ -58,7 +58,7 @@
 
 ## The Adams family
 
-- I started to see a transformer figure on the `@jctot19 x` search results.
+- I start to see a transformer figure on the `@jctot19 x` search results.
 - The character looks like a fierce and angry Ana Girbes carrying big guns.
 - The likeness to Ana Girbes, the musical language teacher at the conservatory, is startling.
 
