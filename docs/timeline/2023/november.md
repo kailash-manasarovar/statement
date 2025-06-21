@@ -67,7 +67,7 @@
 - This character remains in search results for a few months.
 - Paqui Fornet insists I attend one of Ana's concerts which is taking place in the conservatory room 5 one evening.
 - I go along.
-- Ana Girbes has her elementary class playing *The Adams Family* on various percussion instruments.
+- Ana Girbes has her elementary class playing *The Adams Family* theme tune on various percussion instruments.
 
 ![The Adams Family](../../content/images/the-adams-family.png)
 
