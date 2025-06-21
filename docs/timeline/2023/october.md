@@ -489,27 +489,28 @@
 
 [![Back to Black](../../content/tweets/november-2023/back-to-black.png)](https://x.com/1FRGVN/status/1713292202674127032)
 
-- However, it seems the whole town knows I'm coming out for Halloween, even though I was never clear about it on X.
-- On my way to meet my friends, I'm stopped for photos.
-- Paul and Alex mention an `Ana` quite regularly.
-- John seems nervous. As we're walking towards the Irish bar, he says he wants to go and do something else; find the tail I had lost from my cow costume. 
-- He says, "why don't you come with me Katie". 
+- Nevertheless, it seems the whole town knows I'm coming out for Halloween, even though I was never clear about it on X.
+- On my way to meet my friends, I'm stopped for photos. Of me.
+- After meeting my friends, Paul and Alex mention an `Ana`, regularly. I file it away.
+- John seems nervous. 
+- As we're walking towards the Irish bar, he says he wants to go and do something else; find the tail I had lost from my cow costume. 
+- He says, "why don't you come with me Katie?". 
 - What was he afraid of?
 - The others lead the way and we end up in the back room of the Irish bar on the Calle La Mar.
-- Once inside, we "bump into" this very dodgy French bloke who says he studies guitar at the conservatory. 
+- It's empty apart from an extremely dodgy (apparently) French bloke who says he studies guitar at the conservatory. 
 - He wants to know things about me. 
 - I know he's part of it all. So does everyone else.
 - He has a little helper with him who's dressed as the joker and keeps glaring at me menacingly.
-- Once we've sat down at a table, all of a sudden the empty room fills up, quickly.
+- Once we've sat down at a table, all of a sudden, the empty room fills up, quickly.
 - Everyone is listening to our conversation.
 - I turn to Alex and say; "Sometimes, it takes an outsider".
 - I sing a song loudly that everyone can hear.
-- It's a cockney song, `You Made Me Love You`.
+- It's a cockney song, [`You Made Me Love You`](https://youtu.be/bMaCoxOGXPM), with apt lyrics for a manipulated and honey-trapped woman.
 
 ![You made me love you](../../content/images/irish-pub-halloween.png)
 
 - I sense minds blown all over.
-- Alessandra tells me later, a few times, that the French man had wanted to know about Halloween in 2007 and whether I had a ukelele and had sung Back to Black.
+- Alessandra tells me later, a few times, that the French man had wanted to know about us all going out all those years ago, and whether I had a ukelele and had sung Back to Black.
 - That night, I got home and even though I had only had a few drinks, I was so ill I stayed in bed for about 36 hours, vomiting continuously.
 - It felt like I had been poisoned.
 
