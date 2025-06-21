@@ -1,5 +1,13 @@
 # October 2021
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Going no-contact
 
 - Something loving suggested I go no-contact with my family in October 2021 and I did so. 
