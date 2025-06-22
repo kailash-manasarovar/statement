@@ -20,8 +20,9 @@
 - The French horn player, an adult woman who sits beside me, probably called Vicen, is involved.
 - She waits at the stairs to see my reaction to Nacho as he passes by me one evening after class. 
 - When I grimace, she is satisfied and leaves.
+- Whenever I leave class, I say goodbye to Salva. He ignores me deliberately.
 - I'm anxious, a lot, in choir class. 
-- It's a really horrible experience but I continue to attend to defend my human right to a music education, and to watch and take notes on the outrageous behavior by teachers and staff towards students.
+- It's a really horrible experience but I continue to attend to defend my human right to a music education, and to watch and take notes on the outrageous behavior by teachers and staff with dwindling hope that the minor children are safe with these people.
 
 ### Piano 
 
