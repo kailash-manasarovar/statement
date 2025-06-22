@@ -1,40 +1,64 @@
 ## Conservatory
 
+![Sedating teachers and staff at the conservatory](../../content/images/sedating/sedating-3.png)
+
 ### Choir
 
-- Choir class is full of threats towards me via suggestive scores, Nacho popping his nose in all the time and looking at me, discussions about trumpets, mentions of Vidal and how I'm thinking about him, Domingo's students asking me ridiculous things, the choir teacher being offensive towards me in Valenciano which I don't understand, comments from the children which seem weird, for example about my name, and other stuff.
-- The choir teacher makes fun of my name somehow, I don't understand the joke. This goes on continually and even concerns some of the kids.
-- The French horn player, an adult woman who sits beside me, probably called Vicen, is involved. She waits at the stairs to see my reaction to Nacho as he passes by me one evening after class. When I grimace, she is satisfied and leaves.
-- I'm anxious, a lot, in choir class.
+- Choir class continues to be threatening.
+- The choir master Salva has created a list of suggestive scores.
+- [Nacho](september.md#nacho-tries-to-terrorize-me) pops his nose in all the time and looks at me in a threatening manner. 
+- Salva's continuous rant to the class includes comments on trumpets, elephants, trunks, mentions of Vidal (the trumpet teacher's apparent name) and how I'm thinking about him all the time, offensive comments towards me in Valenciano which I don't understand, constant mentions of [going away for the weekend with your boyfriend](october.md#choir).
+- Add to that the comments from the Domingo's students which seem contrived and weird.
+- The choir teacher makes fun of my name somehow; I don't understand the joke. This goes on continually and even concerns some of the children, particular the Romanian girl who is Domingo's student.
+
+!!! danger "Child safety warning"
+    - The Romanian girl's name, Adriana, came up a lot on X.
+    - I considered the references to be a warning that she had been targeted by the gangs.
+
+- The French horn player, an adult woman who sits beside me, probably called Vicen, is involved.
+- She waits at the stairs to see my reaction to Nacho as he passes by me one evening after class. 
+- When I grimace, she is satisfied and leaves.
+- I'm anxious, a lot, in choir class. 
+- It's a really horrible experience but I continue to attend to defend my human right to a music education, and to watch and take notes on the outrageous behavior by teachers and staff towards students.
 
 ### Piano 
 
-- Piano is good. I enjoy playing. Paqui seems fierce but fair. I have no idea how much she hates me and/or what she is planning with all the teachers.
+- Piano is good. I enjoy playing. Paqui seems fierce but fair.
+- I have no idea how much she hates me and/or what she is planning with all the teachers.
 
-!!! note
-    - On balance, hate is probably not the main motivator for the relentless gang stalking and bullying by teachers at the conservatory at this stage.
-    - In fact, my studies at the conservatory were supposed to end definitively on June 12th, but didn't.
+!!! note "In retrospect"
+    - On balance, hate is probably not the main motivator for the relentless gang stalking and bullying by teachers at the conservatory at this stage of the game.
+    - In fact, my studies at the conservatory were supposed to end definitively on June 12th, but that didn't happen.
     - The fact that teachers and staff had to continue with their ridiculous charade must have been very annoying and upsetting for them.
-    - So, instead of doing the right thing, and letting it all go, and leaving me in peace to play the piano, they decided their best move was to make things worse for me so that I would definitely leave.
+    - So, instead of doing the right thing, and letting it all go, and leaving me in peace to play the piano, they decided their best move was to make things decidedly worse for me so that I would definitely leave.
+    - Were they getting paid to deliver me, utterly isolated at home, to the honey-trapping gitano sex gangs?
 
 ### Harmony
 
-- Harmony class is OK. I struggle to understand the content, however, and I no longer sit next to Samuel who helped me in the previous year. I sit on my own and no-one speaks to me.
+- Harmony class is OK.
+- I struggle to understand the content, however.
+- My cognitive skills are not what they used to be. Thinking takes a concerted effort.
+- I no longer sit next to Samuel who helped me in the previous year. 
+- I sit on my own and no-one speaks to me.
 
 ### Chamber music 
 
-- Chamber music is stressful. The women are play acting they hate me and it's all a bit of a farce.
+- Chamber music is stressful. 
+- The women are play acting they hate me and it's all a bit of a farce.
 - Katia brings in a duet from the opera Norma about two women in love with the same man, one has two children with him. The trumpet teacher, allegedly, has two daughters and the reference is that Norma and Adalgisa are Ana and I and we are both in love with the same man.
 - I have brought in something equally suggestive. 
+- The whole business is ridiculous in the extreme.
 - Random students make comments related to my Twitter activity in the halls.
-- It's all very stressful.
-- I am literally on my own against the whole conservatory, and there is no reason for them to hate me at all. In fact, everything I am doing is because I'm concerned for the safety of the children there, my classmates.
+- It's very stressful.
+- I am literally on my own against the whole conservatory, and there is no reason for them to hate me at all. 
+- In fact, everything I am doing is because I'm concerned for the safety of the children there, my classmates.
 - I am waiting for the [Generalitat to come in and sort it out](october.md#first-letter-to-the-generalitat) like the adults I assume they are.
 
 !!! important
-    - It's key to note that no-one spoke to me at all about anything that was going on, right from the moment I came back.
+    - It's key to note that no-one spoke to me at all about anything that was going on, right from the moment I came back in September 2022.
     - There was a wall of silence around me.
-    - The only person who ever said anything to me about anything that was going on was Paqui. One of which was in class sometime in February 2024, when she casually remarked after I told her how stressed I was feeling because of being terrorized that, "oh it's what the men do here".
+    - The only person who ever said anything to me about anything that was going on was Paqui. 
+    - She remarked casually, sometime in February 2024, after I told her how stressed I was feeling because of being terrorized that, "oh it's what the men do here".
 
 ## Weird guy at conservatory
 
