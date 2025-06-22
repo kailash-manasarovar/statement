@@ -11,7 +11,7 @@
 - [Nacho](september.md#nacho-tries-to-terrorize-me) pops his nose in all the time and looks at me in a threatening manner. 
 - Salva's continuous rant to the class includes comments on trumpets, elephants, trunks, mentions of Vidal (the trumpet teacher's apparent name) and how I'm thinking about him all the time, offensive comments towards me in Valenciano which I don't understand, constant mentions of [going away for the weekend with your boyfriend](october.md#choir).
 - Add to that the comments from the Domingo's students which seem contrived and weird.
-- The choir teacher makes fun of my name somehow; I don't understand the joke. This goes on continually and even concerns some of the children, particularly the Romanian girl who is Domingo's student.
+- The choir teacher makes fun of my name somehow; I don't understand the joke. This goes on continually and even concerns some of the children, particularly the Romanian girl who is Domingo's student; you may remember her from [the concert on the 9th June](june.md#june-9th-piano-concert).
 
 !!! danger "Child safety warning"
     - The Romanian girl's name, Adriana, came up a lot on X.
