@@ -66,7 +66,7 @@
 
 ## Weird guy at the conservatory
 
-- I'm stalked continuously online and in the town and at the conservatory.
+- I'm stalked continuously online, and in the town, and at the conservatory.
 - I often see the weird smug guy milling around that I noticed at the [mobile phone shop](october.md#telecommunications-shop).
 
 ![Weird guy](../../content/images/smug-twat.png)
