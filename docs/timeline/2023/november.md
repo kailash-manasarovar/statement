@@ -64,10 +64,10 @@
     - The only person who ever said anything to me about anything that was going on was Paqui. 
     - She remarked casually, sometime in February 2024, after I told her how stressed I was feeling because of being terrorized that, "oh it's what the men do here".
 
-## Weird guy at conservatory
+## Weird guy at the conservatory
 
 - I'm stalked continuously online and in the town and at the conservatory.
-- I often see the weird guy milling around that I noticed at the [mobile phone shop](october.md#telecommunications-shop).
+- I often see the weird smug guy milling around that I noticed at the [mobile phone shop](october.md#telecommunications-shop).
 
 ![Weird guy](../../content/images/smug-twat.png)
 
