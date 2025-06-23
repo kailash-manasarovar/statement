@@ -1,3 +1,8 @@
+## Collecting my things
+
+- There's no massive hole in the wall; its rather tiny in fact.
+- I must have been hallucinating.
+
 ## Moving back to UK
 
 - I spend most of February moving my stuff back to my house in London.

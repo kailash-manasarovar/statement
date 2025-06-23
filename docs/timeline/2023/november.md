@@ -78,15 +78,31 @@
 
 ## The laundry
 
-- Another place they set stuff up for me is at the laundry.
-- On Sunday nights I might take my washing to dry at the laundry five-minutes away from my house.
-- I remembered in the months January to April this year that every time I went to the laundry I felt nervous and tense and was loop-thinking about the trumpet teacher.
-- Sunday night was when I felt particularly unwell at home. I wasn't able to do [my homework properly](may.md#did-the-harmony-teacher-know-i-was-being-poisoned-at-home) on those evenings.
-- It was those evenings I might also [walk into town](september.md#gypsy-serenades) and maybe [bump into someone](september.md#rosa-vidal-follows-me-around) or some [menacing situation](../2024/april.md#the-trumpet-teacher-in-denia).
-- These people clearly have nothing else to do.
-- Unless, of course, terrorizing women and girls is their daily bread.
-- Jail might be helpful for them.
-- They could at least work at something helpful for everyone instead of creating a hell-scape of our beautiful world.
+- Another place something was *always* happening to me is at the La Colada laundry.
+
+![La Colada](../../content/images/la-colada.png)
+
+- I took my laundry there, 2 minutes walk from my house, once-a-week to dry it.
+- Sometimes there would be strange people in the laundry while I was there; gangs of young men speaking multiple languages, couples having arguments, men being threatening, a woman devastated about something terrible that's happened to her. 
+- I didn't really think anything of it at the time.
+- Nevertheless, whoever is watching me 24-7 knows where I am at any moment. 
+- They also probably know when I'm planning to go to the laundry as I have my bag of damp clothes ready at my front door.
+- During the months of January to April 2023, I remember that every time I went to the laundry I felt nervous and tense. 
+- I was loop-thinking about the trumpet teacher and stressing about the chamber music class coming up the next day.
+- Sunday night was always when I felt particularly unwell at home.
+- I wasn't able to do [my homework properly](may.md#did-the-harmony-teacher-know-i-was-being-poisoned-at-home) on those evenings and I always felt unstable and tired. I often napped on those evenings.
+- It was on Sunday evenings also that I might [walk into town](september.md#gypsy-serenades) and maybe [bump into someone](september.md#rosa-vidal-follows-me-around) or experience some other [menacing situation](../2024/april.md#the-trumpet-teacher-in-denia).
+- I often chatted with the lovely man who worked at the laundry, but sometimes even he said things to me which suggested he knew exactly who I was and what I was experiencing.
+- One particular time was in [October 2024](../2024/october.md#sunday-6th-october) when I saw the possum-man at the beach and was [offered a job working for this `Caesar`](../2024/october.md#job-offer), as they called him.
+- Remember I had been seeing [possums online for over a year](may.md#possums) by that time.
+- The evening after I had seen this guy at the beach, and gone to the laundry as normal; the owner of the laundry had said to me "todo claro?", meaning is everything clear now?
+- I'm not sure what exactly was supposed to be clear.
+- At that time, I was being [seriously poisoned at home](../2024/october.md#serious-poisoning-with-intent-to-harm-or-kill) and felt extremely unwell, especially around my kidney areas and nerves.
+- I saw a woman who looked like Carmen Cano and another woman I'd recognize coming out of my building and smiling at me.
+- I realized [some months later](../2025/february.md#collecting-my-things) that I had been hallucinating quite badly in my apartment in October 2024 prior to leaving Denia, specifically a large hole in the bathroom wall behind the mirror where I believed a camera had been. 
+- The hole was tiny when I saw it again, sober.
+- I believe that the Cano's had intended to finish me off in October 2024. I'd already made a film about being poisoned and my apartment set up with spy-cams at that time and it must have annoyed them.
+- Was I also being warned by numerous good folk in Denia in the only way they could without being plain and putting their own lives in danger?
 
 ## The Adams family
 
