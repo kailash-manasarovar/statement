@@ -130,7 +130,7 @@
 ## Tonya
 
 - Fake accounts and interactions online keep mentioning the name Tonya.
-- Often, when I walk back home from the conservatory through the tunnel, I see a woman being led along by a small slim-built man.
+- Often, when I walk back home from the conservatory through the tunnel, I see a woman being led along by a short wiry man.
 
 ![Tonia](../../content/images/tonia.png)
 
