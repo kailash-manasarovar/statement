@@ -22,7 +22,7 @@
 - When I grimace, she is satisfied and leaves.
 - Whenever I leave class, I say goodbye to Salva. He ignores me deliberately.
 - I'm anxious, a lot, in choir class. 
-- It's a really horrible experience but I continue to attend to defend my human right to a music education, something I'm paying taxes for in the Valencian Community; and to watch and take notes on the outrageous behavior by teachers and staff with dwindling hope that the minor children are safe with these people.
+- It's a really horrible experience but I continue to attend to defend my human right to a music education, something I'm paying taxes for in the Valencian Community; and to watch and take notes on the outrageous behavior by teachers and staff with dwindling hope that the children are safe with these people.
 
 ### Piano 
 
@@ -30,17 +30,18 @@
 - I have no idea how much she hates me and/or what she is planning with all the teachers.
 
 !!! note "In retrospect"
-    - On balance, hate is probably not the main motivator for the relentless gang stalking and bullying by teachers at the conservatory at this stage of the game.
-    - In fact, my studies at the conservatory were supposed to end definitively on June 12th, but that didn't happen.
+    - On balance, hate is probably not the main motivator for the relentless gang stalking and bullying by teachers at the conservatory at this stage of the game, although it probably helps them find a justification for their outrageous behavior.
+    - In fact, my studies at the conservatory were supposed to end definitively on [June 12th](june.md#monday-12th-june-2023), but that didn't happen.
     - The fact that teachers and staff had to continue with their ridiculous charade must have been very annoying and upsetting for them.
-    - So, instead of doing the right thing, and letting it all go, and leaving me in peace to play the piano, they decided their best move was to make things decidedly worse for me so that I would definitely leave.
+    - So, instead of doing the right thing, and letting it all go, and leaving me in peace to play the piano, they decided their best move was to make things decidedly worse for me so that I would definitely leave, have a nervous breakdown, or even kill myself like so many others they knew.
     - Were they getting paid to deliver me, utterly isolated at home, to the honey-trapping gitano sex gangs?
 
 ### Harmony
 
 - Harmony class is OK.
 - I struggle to understand the content, however.
-- My cognitive skills are not what they used to be. Thinking takes a concerted effort.
+- My cognitive skills are not what they used to be. 
+- Thinking about musical theory - something that came easy not so long before - now takes a concerted effort.
 - I no longer sit next to Samuel who helped me in the previous year. 
 - I sit on my own and no-one speaks to me.
 
@@ -67,8 +68,12 @@
 
 - I'm stalked continuously online and in the town and at the conservatory.
 - I often see the weird guy milling around that I noticed at the [mobile phone shop](october.md#telecommunications-shop).
-- I'm quite sure he's either the engineer that has been interacting with me online - who possibly calls himself David - or I'm supposed to think he is.
-- I wonder if he is a computer technician at the conservatory.
+
+![Weird guy](../../content/images/smug-twat.png)
+
+- I never saw this man during the 2022-2023 year of studies, but suddenly I'm seeing him everywhere.
+- I don't know who he is but I suspect he's either the engineer that has been interacting with me online someone who possibly calls himself David - or I've been triggered online to think that he is.
+- I sometimes wonder if he is a computer technician at the conservatory.
 - I would recognize him in an instant.
 
 ## The laundry
