@@ -97,12 +97,12 @@
 - Remember I had inexplicably been seeing [possums online for over a year](may.md#possums) by that time.
 - The evening after I had seen this guy at the beach, and gone to the laundry as normal; the owner of the laundry had asked me "¿Todo claro?"; meaning is everything clear now?
 - I'm not sure what exactly was supposed to be clear.
-- At that time, I was being [seriously poisoned at home](../2024/october.md#serious-poisoning-with-intent-to-harm-or-kill) and felt extremely unwell, especially around my kidneys, and facial, neck, and spinal nerves. I was also having raging migraines.
+- At that time, I was being [seriously poisoned at home](../2024/october.md#serious-poisoning-with-intent-to-harm-or-kill) and felt extremely unwell, especially around my kidneys, and facial, neck, and spinal nerves. I was also having raging migraines and problems with my eyes.
 - I saw a woman who looked like Carmen Cano with another woman I'd recognize coming out of my building and smiling at me.
 - I realized [some months later](../2025/february.md#collecting-my-things) that I had been hallucinating quite badly in my apartment in October 2024 prior to leaving Dénia; specifically regarding a large hole I had seen in the bathroom wall behind the mirror where I believed a camera had been fitted and removed. 
 - The hole was tiny when I saw it again the following February; my mind detoxed, sober, and unpoisoned.
 - I believe that the Cano's had intended to finish me off in October 2024. 
-- I'd already made a film that was published online about being poisoned and my apartment set up with spy-cams.
+- I'd already been in a film that was published online where I talked about being poisoned and my apartment set up with spy-cams.
 - It must have annoyed them. 
 - My landlady's reaction to the film was priceless; a slow clap.
 - Was I also being warned by the numerous good folk in Dénia that the Canos intended to murder me in the only way they could do so without being plain and putting their own lives in danger?
