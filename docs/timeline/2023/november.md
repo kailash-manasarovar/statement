@@ -131,6 +131,9 @@
 
 - Fake accounts and interactions online keep mentioning the name Tonya.
 - Often, when I walk back home from the conservatory through the tunnel, I see a woman being led along by a small slim-built man.
+
+![Tonia](../../content/images/tonia.png)
+
 - She is always grinning rather inanely but behind the grin I see fear.
 - She is frogmarched into bumping into me at times, and always is led about in such a way so that I notice her.
 - I wonder if she's Tonya. She seems high on something.
