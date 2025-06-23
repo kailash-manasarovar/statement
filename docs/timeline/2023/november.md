@@ -83,9 +83,9 @@
 ![La Colada](../../content/images/la-colada.png)
 
 - I took my laundry there, 2 minutes walk from my house, once-a-week to dry it.
-- Sometimes there would be strange people in the laundry while I was there; gangs of young men speaking multiple languages, couples having arguments, men being threatening, a woman devastated about something terrible that's happened to her. 
-- I didn't really think anything of it at the time.
-- Nevertheless, whoever is watching me 24-7 knows where I am at any moment. 
+- Sometimes there would be strange people in the laundry while I was there; gangs of young men speaking multiple languages, couples having arguments, men being threatening, a woman devastated about something terrible that's happened to her, a man coming in and laughing in an embarrassed manner when he sees me.
+- I didn't really think anything of it until around November 2023.
+- I do know that whoever is watching me 24-7 knows where I am at any given moment. 
 - They also probably know when I'm planning to go to the laundry as I have my bag of damp clothes ready at my front door.
 - During the months of January to April 2023, I remember that every time I went to the laundry I felt nervous and tense. 
 - I was loop-thinking about the trumpet teacher and stressing about the chamber music class coming up the next day.
