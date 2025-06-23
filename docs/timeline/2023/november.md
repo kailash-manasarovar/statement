@@ -99,7 +99,7 @@
 - I'm not sure what exactly was supposed to be clear.
 - At that time, I was being [seriously poisoned at home](../2024/october.md#serious-poisoning-with-intent-to-harm-or-kill) and felt extremely unwell, especially around my kidneys, and facial, neck, and spinal nerves. I was also having raging migraines.
 - I saw a woman who looked like Carmen Cano with another woman I'd recognize coming out of my building and smiling at me.
-- I realized [some months later](../2025/february.md#collecting-my-things) that I had been hallucinating quite badly in my apartment in October 2024 prior to leaving Dénia; specifically regarding a large hole I had seen in the bathroom wall behind the mirror where I believed a camera had been. 
+- I realized [some months later](../2025/february.md#collecting-my-things) that I had been hallucinating quite badly in my apartment in October 2024 prior to leaving Dénia; specifically regarding a large hole I had seen in the bathroom wall behind the mirror where I believed a camera had been fitted and removed. 
 - The hole was tiny when I saw it again the following February; my mind detoxed, sober, and unpoisoned.
 - I believe that the Cano's had intended to finish me off in October 2024. 
 - I'd already made a film that was published online about being poisoned and my apartment set up with spy-cams.
