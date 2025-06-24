@@ -163,7 +163,7 @@
 - Whoever it is, is small enough to duck down and not be seen.
 - It turns out that behind the wheel is Ana's boyfriend, the short man I [saw at the cafe with Paul and Alex](september.md#alex-and-paul), and the same man I see with Ana on [the Montgo the next May](../2024/may.md#climbing-the-montgo).
 - It is such a weird event, I tell many, many people about it.
-- Nevertheless, the blue car meme remains part of the choreographed terror going forward and I'm still supposed to think it is the trumpet teacher's new car.
+- The blue car meme remains part of the choreographed terror going forward, and even after this ridiculous behavior I'm still expected to think the car belongs to the trumpet teacher.
 
 ## Dreaming of Jesus Christ
 
