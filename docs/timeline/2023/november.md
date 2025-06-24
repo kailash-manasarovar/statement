@@ -103,6 +103,7 @@
 - The hole was tiny when I saw it again the following February; my mind detoxed, sober, and unpoisoned.
 - I believe that the Cano's had intended to finish me off in October 2024. 
 - I'd already been in a film that was published online where I talked about being poisoned and my apartment set up with spy-cams.
+- I had started to speak a lot about how teachers and staff at the conservatory were involved in serious crimes against students.
 - It must have annoyed them. 
 - My landlady's reaction to the film was priceless; a slow clap.
 - Was I also being warned by the numerous good folk in Dénia that the Canos intended to murder me in the only way they could do so without being plain and putting their own lives in danger?
