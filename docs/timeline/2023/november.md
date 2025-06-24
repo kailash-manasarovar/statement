@@ -161,7 +161,7 @@
 - Whoever is driving has ducked down behind the seats, and is driving extremely slowly.
 - It certainly could not be the trumpet teacher as he is quite a large man and he would find it impossible to hide his bulk.
 - Whoever it is, is small enough to duck down and not be seen.
-- It turns out that behind the wheel is Ana's boyfriend, the short man I [saw at the cafe with Paul and Alex](september.md#alex-and-paul), and the same man I see with Ana on [the Mongto the next May](../2024/may.md#climbing-the-montgo).
+- It turns out that behind the wheel is Ana's boyfriend, the short man I [saw at the cafe with Paul and Alex](september.md#alex-and-paul), and the same man I see with Ana on [the Montgo the next May](../2024/may.md#climbing-the-montgo).
 - It is such a weird event, I tell many, many people about it.
 - Nevertheless, the blue car meme remains part of the choreographed terror going forward and I'm still supposed to think it is the trumpet teacher's new car.
 
