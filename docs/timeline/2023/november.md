@@ -143,7 +143,7 @@
 - She seems like she could be high on something.
 - The following summer, another candidate for [who Tonya could be](../2024/august.md#photos-of-abused-women-and-girls) pops up every day on numerous fake accounts.
 
-![Who is Tonya](../../content/images/targeted-women/1.png)
+![Who is Tonya](../../content/images/targeted-women/innocent-lady/1.png)
 
 - One wonders if this is another attempt from the Spanish and British porn gangs of Denia to deflect any blame coming their way onto the trumpet teacher's pimping gang from Valencia?
 
