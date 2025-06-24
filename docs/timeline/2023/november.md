@@ -145,7 +145,7 @@
 
 ![Who is Tonya](../../content/images/targeted-women/innocent-lady/1.png)
 
-- One wonders if this is another attempt from the Spanish and British porn gangs of Denia to deflect any blame coming their way onto the trumpet teacher's pimping gang from Valencia?
+- One wonders if this is another attempt from the Spanish and British porn gangs operating in Dénia to deflect any blame coming their way onto the trumpet teacher's pimping gang from Valencia?
 
 ## Ana in the blue van
 
