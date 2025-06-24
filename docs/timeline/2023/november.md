@@ -131,14 +131,21 @@
 
 ## Tonya
 
-- Fake accounts and interactions online keep mentioning the name Tonya.
-- Often, when I walk back home from the conservatory through the tunnel, I see a woman being led along by a short wiry man.
+- Fake accounts and constant online communications with nefarious players keep mentioning the name *Tonya*.
+- I don't know why.
+- Often on a Monday evening, when I walk back home from the conservatory through the tunnel, I see a woman being led along by a short wiry man.
 
 ![Tonia](../../content/images/tonia.png)
 
-- She is always grinning rather inanely but behind the grin I see fear.
-- She is frogmarched into bumping into me at times, and always is led about in such a way so that I notice her.
-- I wonder if she's Tonya. She seems high on something.
+- She is always grinning rather inanely, but behind the grin I see fear.
+- She is frogmarched into bumping into me at times, and always is led about in such a way so that I notice her and her lack of autonomy.
+- I wonder if she's Tonya. 
+- She seems like she could be high on something.
+- The following summer, another candidate for [who Tonya could be](../2024/august.md#photos-of-abused-women-and-girls) pops up every day on numerous fake accounts.
+
+![Who is Tonya](../../content/images/targeted-women/1.png)
+
+- One wonders if this is another attempt from the Spanish and British porn gangs of Denia to deflect any blame coming their way onto the trumpet teacher's pimping gang from Valencia?
 
 ## Ana in the blue van
 
