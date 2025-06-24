@@ -149,11 +149,21 @@
 
 ## Ana in the blue van
 
-- I'm coming back from the shops one Saturday in the car.
-- As I'm driving through Cami de la Bota towards home, the [blue car](october.md#the-trumpet-teacher-drives-past-me-in-his-car) is driving towards me.
-- I see Ana in the passenger seat, she looks embarrassed.
-- There is NO-ONE in the driver's seat. Whoever was driving has ducked down behind the seats, and is driving extremely slowly, and I cannot see anyone in the driver's seat.
-- It certainly could not be the trumpet teacher as he is quite a large man and he would probably find it quite hard to hide his bulk.
+- I'm driving back from the shops one Saturday afternoon around 4pm.
+- As I'm driving through the [Cami de la Bota](https://www.google.com/maps/place/D%C3%A9nia,+Alicante,+Spain/@38.8407484,0.0914185,3a,90y,10.27h,79.58t/data=!3m7!1e1!3m5!1sOC2bNIiq-bCjgi3TQT8KPQ!2e0!6shttps:%2F%2Fstreetviewpixels-pa.googleapis.com%2Fv1%2Fthumbnail%3Fcb_client%3Dmaps_sv.tactile%26w%3D900%26h%3D600%26pitch%3D10.419428736231623%26panoid%3DOC2bNIiq-bCjgi3TQT8KPQ%26yaw%3D10.274182411708704!7i16384!8i8192!4m6!3m5!1s0x129e1b226dfbd341:0x86f3d778aff1e134!8m2!3d38.8387992!4d0.1050557!16zL20vMDFoc2Ri?entry=ttu&g_ep=EgoyMDI1MDYxNy4wIKXMDSoASAFQAw%3D%3D) towards home, I see the [blue Fiat Doblo](october.md#the-trumpet-teacher-drives-past-me-in-his-car) driving towards me.
+- This is the trumpet teacher's car, I've been led to believe.
+- I see Ana in the passenger seat.
+- She looks embarrassed.
+- There is NO-ONE at all in the driver's seat.
+
+![Ana in the car with no driver](../../content/images/ana-in-the-car-no-driver.png)
+
+- Whoever is driving has ducked down behind the seats, and is driving extremely slowly.
+- It certainly could not be the trumpet teacher as he is quite a large man and he would probably find it impossible to hide his bulk.
+- Whoever it is, is small enough to duck down and not be seen.
+- It turns out that behind the wheel is Ana's boyfriend, the short man I [saw at the cafe with Paul and Alex](september.md#alex-and-paul), and the same man I see with Ana on [the Mongto the next May](../2024/may.md#climbing-the-montgo).
+- It is such a weird event, I tell many, many people about it.
+- Nevertheless, the blue car meme remains part of the choreographed terror going forward and I'm still supposed to think it is the trumpet teacher's new car.
 
 ## Dreaming of Jesus Christ
 
