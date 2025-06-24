@@ -127,6 +127,7 @@
 - It should be a fun occasion but Ana looks furious.
 - I'm honestly quite amazed but I have no idea what any of this means, at the time.
 - Was Ana Girbes trying to tell me something?
+- Or had the Spanish gangs started trying to deflect any blame to come onto the British gangs?
 
 ## Tonya
 
