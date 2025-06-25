@@ -205,9 +205,23 @@
 - I still find it really hard to accept that a whole town would feel justified in destroying a person because of something like this happening to them when they were a child.
 - Is there anyone decent left in Dénia?
 
-## Meeting Alex
+## Meeting Alex for coffee
 
-- She asks, "how would you feel if he walked right in now"?
+- I meet Alex fairly regularly for coffee and a chat at the street food market.
+
+![Street food market](../../content/images/street-food-market.png)
+
+- It's nice to have someone to talk to.
+- She's the only person I am talking to at the time.
+- I'm pretty sure now she was communicating with Hazel Smith, who may well be her landlady.
+- I tell her how I'm feeling, how I'm in love with this man the trumpet teacher.
+- She asks, "how would you feel if he walked right in now?"
+- I look behind as if he is going to walk in.
+- I'm scared and anxious.
+- I wonder now if she's asking me to see if I would accept a meeting, knowing that I [ran from it previously](june.md#sunday-18th-june-alicante-airport).
+- I tell her that the body always knows the truth.
+- I imagine that very few "targets" have this sort of conscious awareness so I am being monitored closely.
+- I'm guessing they haven't yet given up on relieving me of my wealth in some way.
 
 ## Matthew
 
