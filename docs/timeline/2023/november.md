@@ -221,7 +221,7 @@
 - I wonder now if she's asking me to see if I would accept a meeting, knowing that I [ran from it previously](june.md#sunday-18th-june-alicante-airport).
 - I tell her that the body always knows the truth.
 - I imagine that very few "targets" have this sort of conscious awareness so I am being monitored closely.
-- I'm guessing they haven't yet given up on relieving me of my wealth in some way.
+- I'm guessing the criminal gangs haven't yet given up on relieving me of my wealth in some way.
 
 ## Matthew
 
