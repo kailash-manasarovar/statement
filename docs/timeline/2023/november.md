@@ -248,7 +248,12 @@
 - I'm feeling extremely nervous and anxious at home.
 - I leave for choir.
 - I sit down at my usual seat. 
-- Vicen, the woman who plays the French horn, sits down beside me as usual. She's grimacing.
+- I've started to notice that the choir master has a red birthmark on his face which is kind of an outline of another face, just inside his own face. It's a bit weird and not at all like AI drew it.
+
+![Two-faced choir master](../../content/images/choir-master.png)
+
+- Vicen, the woman who plays the French horn, sits down beside me as usual.
+- She's grimacing.
 - She stinks of peanuts. 
 - She is eating a peanut-butter sandwich of some sort.
 
