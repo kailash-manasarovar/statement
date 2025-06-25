@@ -225,31 +225,39 @@
 
 ## Matthew
 
-- The account `@Matthew49200183` has been following me since August 2023. 
+- The account [`@Matthew49200183`](https://x.com/Matthew49200183) has been following me since August 2023. 
 - I'm supposed to think it is the trumpet teacher.
-- I'm guessing it is managed by the Lopez-Cano's (Domingo & Carmen, probably their mother and aunts too), the Smiths, and maybe sometimes the local trumpet teacher I see around from time to time, a man I recognize somehow but who was definitely not the man who came to class at the conservatory on Monday evenings.
+- I'm guessing it is instead managed by the Lopez-Cano's (Domingo & Carmen, probably their mother and aunts too), the Smiths, and maybe sometimes the local trumpet teacher [I see around from time-to-time](october.md#the-trumpet-teacher-drives-past-me-in-his-car), the man [Patricia pointed me out to in November 2022](../2022/november.md#walking-in-benijembla-with-the-english-ladies), the man I recognize somehow but who was definitely not the man who came to class at the conservatory on Monday evenings until [June 12th 2023](june.md#monday-12th-june-2023).
 - Here are all our interactions: https://x.com/search?f=live&q=(from%3AMatthew49200183)%20(to%3A1frgvn)&src=typed_query
-- Notice the veiled violence in the content. This matches Sandra Smith's social media content MO precisely.
-- The very first time the account connects with me, he talks about women being gang stalked: 
+- Notice the not-so-veiled violence in the content. This matches the Smiths' threatening social media content MO nearly precisely.
+- The very first time the account connects with me, it mentions women being gang stalked: 
 
 [![Matthew's first tweet about gang stalking](../../content/tweets/matthew-women-gang-stalking.png)](https://x.com/Matthew49200183/status/1686307743815069696)
 
-- As I mentioned, the hair in the profile pic was a memory trigger from a post related to Carmen and the plate lady from July that I was seeing on both the `@jctot19` account, and the `@sinremite` accounts.
-- The picture has changed now to a flag with the same hair.
-- On 29th November, just before choir class, there is an interaction with Matthew on Twitter:
+- As [I mentioned before](august.md#matthew), the hair in the profile pic was a memory trigger from a post related to Carmen and the [plate lady from July](july.md#plate-lady-later-in-the-month) that I was seeing on both the `@jctot19` account, and the `@sinremite` accounts.
+- The picture has changed now to a flag image with the same hair.
+- On 29th November, just before I leave for choir at the conservatory, I have an unusual interaction with Matthew on X:
 
 ![Interaction with Matthew before choir class](../../content/tweets/interaction-with-matthew-right-before-choir.png)
 
-- "But what if a nervous sweaty elephant tells it to me", is in relation to my PTSD reaction towards the trumpet teacher when I tried to talk to him in class, something I tweeted about and so is well-known by stalkers.
-- It is also a derogatory reference to my weight too. 
+- "But what if a nervous sweaty elephant tells it to me", is in relation to my PTSD reaction towards the trumpet teacher when I tried to talk to him in class, something I wrote about and so well-known to stalkers.
+- It is also a derogatory reference to my weight. 
 - There's no reason for me to think the English is coming from a Spanish speaker so I believe they make up false mistakes like "tells it to me".
-- My reaction to "give him a peanut" is ironic, I know I'm being wound up by stalkers.
-- The reply is in reference to pedophiles and voyeurs, the main theme of the gang-stalking.
-- I'm feeling extremely nervous and anxious. I go to choir.
-- I sit down at my usual seat. The woman who plays the French horn sits down next to me stinking of peanuts. She is eating a peanut-butter sandwich of some sort.
+- My reaction to "give him a peanut" is ironic; I know I'm being wound up by stalkers.
+- The reply is in reference to pedophiles and voyeurs; the main theme of the gang-stalking.
+- I'm feeling extremely nervous and anxious at home.
+- I leave for choir.
+- I sit down at my usual seat. 
+- Vicen, the woman who plays the French horn, sits down beside me as usual. She's grimacing.
+- She stinks of peanuts. 
+- She is eating a peanut-butter sandwich of some sort.
+
+![Choir again](../../content/images/choir-again.png)
+
 - The choir teacher mentions elephants and trumpets and trunks continually throughout the class.
-- I wonder who this Matthew actually is. The English is very good.
+- I wonder who this Matthew is. The English is very good.
 - I'm pretty sure now, in June 2025, that Sandra and Hazel Smith had been running this account since inception.
+- Could this be a bona fide connection between British criminal gangs and the Spanish conservatory system?
 - At the time, I'm not sure who it is, so I leave all options, and avenues for communication, open.
 
 ## Polygon
