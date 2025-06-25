@@ -170,7 +170,7 @@
 - I dream of dirty brown apartments and years of devastating criminal activity.
 - The dream turns into a nightmare.
 - I call out the name of Jesus Christ to help me.
-- JC comes and states, very loudly, **Vidal Sastre Sanchez Hornero control your sex**.
+- JC comes and states, very loudly, [**Vidal Sastre Sanchez Hornero control your sex**](../../conclusion/theories.md#vidal-sastre-sanchez-hornero-control-women-and-girls).
 
 ![JC holds the door open](../../content/images/jc-holds-the-door-open.png)
  
@@ -226,6 +226,7 @@
 ## Matthew
 
 - The account `@Matthew49200183` has been following me since August 2023. I'm supposed to think it is the trumpet teacher.
+- I'm guessing it is managed by the Lopez-Cano's, the Smiths, and maybe sometimes the local trumpet teacher I see around from time to time, a man I recognize somehow but who was not the man who came to class at the conservatory on Monday evenings.
 - Here are all our interactions: https://x.com/search?f=live&q=(from%3AMatthew49200183)%20(to%3A1frgvn)&src=typed_query
 - The very first time he connects with me, he talks about women being gang stalked: 
 
