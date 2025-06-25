@@ -167,15 +167,17 @@
 
 ## Dreaming of Jesus Christ
 
-- I dream of dirty brown apartments and years of criminal activity.
-- The dream turns into a nightmare and I call out the name of Jesus Christ to help me.
-- JC comes and states, very loudly, "Vidal Sastre Sanchez Hornero control your sex".
+- I dream of dirty brown apartments and years of devastating criminal activity.
+- The dream turns into a nightmare.
+- I call out the name of Jesus Christ to help me.
+- JC comes and states, very loudly, **Vidal Sastre Sanchez Hornero control your sex**.
 
 ![JC holds the door open](../../content/images/jc-holds-the-door-open.png)
-
+ 
 - I wake up and tweet about it.
-- I'm not sure what his statement means until 2025, but I often pondered the use of the third-person verb form for "control" which was unequivocal.
-- Perhaps it was obvious but there was clearly a time when I was supposed to know what was meant, and I had to go through some stuff to find out.
+- I wonder if this was after another sedating event as I seem to be unusually inspired to tweet my dreams on certain nights, and I have to wonder about it now as this only ever happened when I was living in my apartment in Carrer Furs.
+- I'm not sure what  JC's statement means until 2025, but I often pondered the use of the third-person verb form for "control" which was unequivocal in the dream.
+- Perhaps it was obvious but there was clearly a time when I was supposed to know what was meant, and I had to go through some stuff, for his purposes, before I knew.
 - I now know that JC was telling me exactly what was happening to me and many other women and girls.
 - The VSSH gang, whoever they are - trumpet teachers from bands in Valencia, teachers and staff in the conservatory system of Spain, the Cano-Lopez's specifically, the Smiths of Dénia and their British gang-handlers - seem to all be part of a criminal sex-gang enterprise which prepares, grooms, and sedates women and children for the pleasure of paying porn addicts, often on spy-cam, and they've probably made millions on me *specifically* over the last 35 years.
 - I suspect much of the many hundreds of thousands of baby-rape films we hear about in the British courts every week is produced by gangs just like these where mothers have been forced into porn and prostitution, controlled via drugs and fear, and then maybe even forced or manipulated into having children with their "handlers" or [introduction agents](../../crimes/introduction-agents.md).
