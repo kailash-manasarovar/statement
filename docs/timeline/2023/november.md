@@ -225,28 +225,32 @@
 
 ## Matthew
 
-- The account `@Matthew49200183` has been following me since August 2023. I'm supposed to think it is the trumpet teacher.
-- I'm guessing it is managed by the Lopez-Cano's, the Smiths, and maybe sometimes the local trumpet teacher I see around from time to time, a man I recognize somehow but who was not the man who came to class at the conservatory on Monday evenings.
+- The account `@Matthew49200183` has been following me since August 2023. 
+- I'm supposed to think it is the trumpet teacher.
+- I'm guessing it is managed by the Lopez-Cano's (Domingo & Carmen, probably their mother and aunts too), the Smiths, and maybe sometimes the local trumpet teacher I see around from time to time, a man I recognize somehow but who was definitely not the man who came to class at the conservatory on Monday evenings.
 - Here are all our interactions: https://x.com/search?f=live&q=(from%3AMatthew49200183)%20(to%3A1frgvn)&src=typed_query
-- The very first time he connects with me, he talks about women being gang stalked: 
+- Notice the veiled violence in the content. This matches Sandra Smith's social media content MO precisely.
+- The very first time the account connects with me, he talks about women being gang stalked: 
 
-![Matthew's first tweet about gang stalking](../../content/tweets/matthew-women-gang-stalking.png)
+[![Matthew's first tweet about gang stalking](../../content/tweets/matthew-women-gang-stalking.png)](https://x.com/Matthew49200183/status/1686307743815069696)
 
-- Full tweet is here: https://x.com/Matthew49200183/status/1686307743815069696
-- As I mentioned, the hair in his profile pic was a memory trigger from a post related to Carmen and the plate lady from July that I was seeing on both the `@jctot19` account, and the `@sinremite` account.
+- As I mentioned, the hair in the profile pic was a memory trigger from a post related to Carmen and the plate lady from July that I was seeing on both the `@jctot19` account, and the `@sinremite` accounts.
 - The picture has changed now to a flag with the same hair.
 - On 29th November, just before choir class, there is an interaction with Matthew on Twitter:
 
 ![Interaction with Matthew before choir class](../../content/tweets/interaction-with-matthew-right-before-choir.png)
 
-- "But what if a nervous sweaty elephant tells it to me", is in relation to my PTSD reaction towards the trumpet teacher when I tried to talk to him and is a derogatory reference to my weight too. 
-- My reaction to "give him a peanut" is ironic, I know I'm being wound up.
-- The reply is in reference to pedophiles and voyeurs.
+- "But what if a nervous sweaty elephant tells it to me", is in relation to my PTSD reaction towards the trumpet teacher when I tried to talk to him in class, something I tweeted about and so is well-known by stalkers.
+- It is also a derogatory reference to my weight too. 
+- There's no reason for me to think the English is coming from a Spanish speaker so I believe they make up false mistakes like "tells it to me".
+- My reaction to "give him a peanut" is ironic, I know I'm being wound up by stalkers.
+- The reply is in reference to pedophiles and voyeurs, the main theme of the gang-stalking.
 - I'm feeling extremely nervous and anxious. I go to choir.
 - I sit down at my usual seat. The woman who plays the French horn sits down next to me stinking of peanuts. She is eating a peanut-butter sandwich of some sort.
 - The choir teacher mentions elephants and trumpets and trunks continually throughout the class.
 - I wonder who this Matthew actually is. The English is very good.
-- I'm pretty sure now that Sandra and Hazel Smith had been running this account since inception.
+- I'm pretty sure now, in June 2025, that Sandra and Hazel Smith had been running this account since inception.
+- At the time, I'm not sure who it is, so I leave all options, and avenues for communication, open.
 
 ## Polygon
 
