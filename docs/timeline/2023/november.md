@@ -186,7 +186,7 @@
 - What could the intention have been to manipulate my mind in this way, a 51 year old woman?
 - Were they showing me how they are forced to procure more "product" for use if they get women pregnant and then control their offspring too?
 - Are some of the gangs now remorseful after years of a downward spiralling trajectory into producing baby-rape material, the porn that makes them the most money, but remain unable to stop this vile and poisonous activity even if they wanted to?
-- Was the whole thing a cry for help?
+- Was the whole thing a cry for help, as JC insists it is in A Course In Miracles?
 - Curiously, I remain delighted with the idea of getting pregnant, and may well look into it as a reality as it is not out of the question, even at my age.
 - Thanks again, criminal fools of Dénia for, yet again, helping me to heal my injured soul!
 - Maybe I can help you in return?
