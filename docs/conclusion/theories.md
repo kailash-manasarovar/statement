@@ -2,6 +2,7 @@
 
 ## Vidal Sastre Sanchez Hornero control women and girls
 
+- This statement came from a [dream I had in November 2023](../timeline/2023/november.md#dreaming-of-jesus-christ).
 - Vidal Sastre Sanchez Hornero is a criminal sex gang that controls women and girls.
 - They have been operational for decades, targeting women with money, such as the ceramics artist I mention in a previous section.
 - Their modus operandi is to target a woman or girl, gain access to their electronic devices, and drug them in a clandestine manner.
