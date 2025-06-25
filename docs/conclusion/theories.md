@@ -4,7 +4,7 @@
 
 - This statement came from a [dream I had in November 2023](../timeline/2023/november.md#dreaming-of-jesus-christ).
 - Vidal Sastre Sanchez Hornero is a criminal sex gang that controls women and girls.
-- They have been operational for decades, targeting women with money, such as the ceramics artist I mention in a previous section.
+- They have been operational for decades, targeting women with money, such as [the ceramics artist](../timeline/2023/july.md#plate-lady-early-in-the-month) I mention in a previous section.
 - Their modus operandi is to target a woman or girl, gain access to their electronic devices, and drug them in a clandestine manner.
 - From here they can manipulate the mind of the target usually starting with an apparently real romantic relationship which is then reinforced by NLP/hypnosis techniques online.
 - Targets are tricked into trusting the romantic partner.
@@ -13,6 +13,8 @@
 - The target will be wholly unaware of the fact that all these photos and videos are being monetized on porn networks.
 - The gang has operated in freedom for decades and is protected by the highest orders of the land.
 - This means that they are completely free to infiltrate schools and learning establishments and target minors.
+- As time has passed, the nature of the porn that makes the most money for the gangs has evolved from brutalizing adult women into rape of children and babies.
+- If gang members wanted to escape this life of crime, they would find it nearly impossible and require a miracle.
 
 ### Support from the community
 
