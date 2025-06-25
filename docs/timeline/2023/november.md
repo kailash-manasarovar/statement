@@ -214,7 +214,7 @@
 - It's nice to have someone to talk to.
 - She's the only person I am talking to at the time.
 - I'm pretty sure now she was communicating with Hazel Smith, who may well be her landlady.
-- I tell her how I'm feeling, how I'm in love with this man the trumpet teacher.
+- I tell her how I'm feeling, how I'm in love with this man the trumpet teacher, how he continues to communicate with me online.
 - She asks, "how would you feel if he walked right in now?"
 - I look behind as if he is going to walk in.
 - I'm scared and anxious.
