@@ -177,7 +177,7 @@
 - I wake up and tweet about it.
 - I wonder if this was after another sedating event as I seem to be unusually inspired to tweet my dreams on certain nights, and I have to wonder about it now as this only ever happened when I was living in my apartment in Carrer Furs.
 - I'm not sure what  JC's statement means until 2025, but I often pondered the use of the third-person verb form for "control" which was unequivocal in the dream.
-- Perhaps it was obvious but there was clearly a time when I was supposed to know what was meant, and I had to go through some stuff, for his purposes, before I knew.
+- Perhaps it was obvious but there was clearly a time when I was supposed to know what was meant; and it appears I had to go through some stuff, for his purposes, before I knew.
 - I now know that JC was telling me exactly what was happening to me and many other women and girls.
 - The VSSH gang, whoever they are - trumpet teachers from bands in Valencia, teachers and staff in the conservatory system of Spain, the Cano-Lopez's specifically, the Smiths of Dénia and their British gang-handlers - seem to all be part of a criminal sex-gang enterprise which prepares, grooms, and sedates women and children for the pleasure of paying porn addicts, often on spy-cam, and they've probably made millions on me *specifically* over the last 35 years.
 - I suspect much of the many hundreds of thousands of baby-rape films we hear about in the British courts every week is produced by gangs just like these where mothers have been forced into porn and prostitution, controlled via drugs and fear, and then maybe even forced or manipulated into having children with their "handlers" or [introduction agents](../../crimes/introduction-agents.md).
@@ -185,9 +185,9 @@
 - Was this a demonstration to me of what they do to women? 
 - What could the intention have been to manipulate my mind in this way, a 51 year old woman?
 - Were they showing me how they are forced to procure more "product" for use if they get women pregnant and then control their offspring too?
-- Are some of the gangs now remorseful after years of spiralling downwards, but remain unable to stop this vile poisonous activity even if they wanted to?
+- Are some of the gangs now remorseful after years of a downward spiralling trajectory, but remain unable to stop this vile and poisonous activity even if they wanted to?
 - Was the whole thing a cry for help?
-- Curiously, I remain delighted with the idea of getting pregnant, and may well look into it as a reality.
+- Curiously, I remain delighted with the idea of getting pregnant, and may well look into it as a reality as it is not out of the question, even at my age.
 - Thanks again, criminal fools of Dénia for, yet again, helping me to heal my injured soul!
 - Maybe I can help you in return?
 
