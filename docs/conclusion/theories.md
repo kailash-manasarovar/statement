@@ -16,6 +16,8 @@
 - As time has passed, the nature of the porn that makes the most money for the gangs has evolved from brutalizing adult women into rape of children and babies.
 - If gang members wanted to escape this life of crime, they would find it nearly impossible and require a miracle.
 
+![Evil gang redemption](../content/images/evil-gang-redemption.png)
+
 ### Support from the community
 
 - It is still too difficult for me to imagine that Spanish communities would support the targeting of their own children in learning establishments.
