@@ -299,7 +299,7 @@
 - In any case, from the moment I gave Nadim my Twitter account details, everything changed for me at Polygon. My boss Grace starts to treat me badly. I am no longer given work by Gabriel Silva who I am supposed to be working with closely. 
 - Gabriel starts complaining about my work to me, and others; he doesn't like my writing style, he continually puts me down in meetings, he calls me a single point of failure with other team members.
 - It doesn't matter so much because in early 2024, while the zk system is continually failing, 20% of the workforce is made redundant.
-- I move up to team lead so I am really busy and Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not gone up, he would have effectively made me a candidate for redundancy very quickly, which I believe was his intention.
+- I move up to team lead so I am really busy and Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not gone up, he would have effectively made me a candidate for redundancy very quickly.
 - Instead, my team (who are not really tech writers and don't know the job) starts to mutiny, one of them in particular, Hans Bodani, starts to shout at me in team meetings, get angry with me, complain about things I did not say to my boss, who supports him, and then refuses to communicate with me at all.
 - I ask for help from my managers. 
 - I am ignored.
