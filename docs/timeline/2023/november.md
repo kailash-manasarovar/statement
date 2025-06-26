@@ -267,39 +267,57 @@
 
 ## Polygon
 
-!!! danger "I start to get targeted at work too"
-    - I start a new job at [Polygon](https://polygon.technology/), web3 crypto giant, on 1st November as a Senior Technical Writer.
-    - It's a great job and I'm very excited about my new role.
-    - I was interviewed by [Nadim Kobesi](https://nadim.computer/), apparently an engineer and cryptographer. Every time he speaks, he prefaces his words with "as an engineer", or "as a security expert".
-    - Nadim is a weird guy but we have a good relationship.
-    - I find out that Nadim was originally hired to work in the zero-knowledge engineering department - the engine room so to speak - and had lasted one week before he was kicked out and into the technical writing team, where he couldn't do much damage I assumed.
-    - Nadim is a difficult person; he is rude, weird and inappropriate. He is very loud and doesn't let others speak. Nevertheless we have a good relationship.
-    - Everything he says is prefaced with "as a security expert", or similar.
-    - I ask him for advice about how to protect my network and devices, and explain a little bit about what's been happening to me, and how it centers around Twitter.
-    - He gives me zero advice I didn't know that I couldn't have got from basic information, and I start to wonder about how much of a security expert he really is.
-    - He does say he will check out my Twitter account and I give him my account details.
-    - From that moment, his demeanor towards me changes and he starts to bully me outrageously. It is so bad, he is fired about 2 weeks later, but not before he has spread the word amongst the business that I am a "transphobe".
-    - When I spoke to engineers on the team about him later on, they couldn't believe the guy had got the job. They said he was totally ineffective and impossible to work with and any work he had done they couldn't believe it was so poor.
-    - I look him up on Google and find out he is a trained actor with a bachelor's degree from the [National Institute of Dramatic Art](https://www.nida.edu.au/) in Sydney, graduated in 2010, and has been in a number of films. I figure he must be a spy.
-    - I wonder how much damage he was able to do in the engineering department in such a short space of time. The tech failed and faltered again and again in early 2024.
-    - He certainly added a lot of malicious code to our backend set up which broke our SEO for months before we could figure it out.
-    - In any case, from the moment I gave Nadim my Twitter account details, everything changed for me at Polygon. My boss Grace starts to treat me badly. I am no longer given work by Gabriel Silva who I am supposed to be working with closely. Gabriel starts complains about my work, my writing style, and continually puts me down, calls me a single point of failure with team members.
-    - It doesn't matter really because in early 2024, 20% of the workforce is made redundant and I move up to team lead so I am really busy and Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not gone up, he would have effectively made me a candidate for redundancy very quickly, which I believe was his intention.
-    - Instead, my team (who are not really tech writers and don't know the job) starts to mutiny, one of them in particular, Hans Bodani, starts to shout at me in team meetings, get angry with me, complain about things I did not say to my boss, who supports him, and then refuses to communicate with me at all.
-    - I ask for help from my managers. I am ignored.
-    - The other team member, Anthony Matlala, sides with Hans once he sees I'm getting no support from my managers.
-    - On an offsite in Bali in May, I am threatened with sexual violence from a Rust engineer who has started that week. He has clearly been told to target me. Anthony is at the dinner table when this happens. I tweet about it and tell Spanish HR the following morning.
-    - At the Bali offsite and in Belgium at EthCC in July, Polygon employees come up to me continually to say, oh I'm sorry you're leaving, which I'm not.
-    - My team refuses to communicate with me at all. Meetings are sabotaged by Hans' angry outbursts. I am unable to do my job.
-    - An email comes from from Kellie-J Keen as leader of the [Party Of women](https://www.partyofwomen.org/) in UK in June asking if we could like to stand as a candidate for general election.
-    - I take 2 weeks off and run a political campaign in North London and come second-to-last in Finchley & Golders Green.
-    - I step down as technical writing team lead and Gabriel Silva steps in and gives all work to Anthony and Hans, with me left with nothing to do. Anything I do write he asks Hans to do over. He picks on me in meetings and gives me impossible tasks which I actually complete.
-    - By September/October, I'm getting really upset about it and contact HR to start harassment procedures because it's clear to me I'm being shoved out due to my political views.
-    - A couple of weeks later they fire me, and the whole team, saying we're redundant, which is not true.
-    - They accept in the letter that the dismissal is unlawful.
-    - I get a Spanish lawyer who appears to be colluding with the Spanish company so I have to fire them in December 2024.
-    - There's a lot more to this story; this is just a quick sketch.
-    - Being targeted at my job for being "transphobic", which I'm not, on top of being targeted by criminal gangs of Dénia is really too much for one person to cope with without any support at all.
+- I start a new job at [Polygon](https://polygon.technology/), web3 crypto giant, on 1st November as a Senior Technical Writer.
+- It's a great job and I'm very excited about my new role.
+
+!!! tip
+    - I do wonder if there were any corrupt machinations behind my employment as the company is very Spanish and I was earning heaps of money!
+    - A honey-trappers wet-dream indeed.
+
+- I was interviewed by [Nadim Kobesi](https://nadim.computer/), *apparently* an engineer and cryptographer. 
+- Every time he speaks, he prefaces his words with "as an engineer", or "as a security expert" in case we forget I suppose.
+- Nadim is a weird guy but we have a good relationship initially.
+- I find out that Nadim was originally hired to work in the zero-knowledge engineering department - the engine-room so to speak - and he had lasted one week before he was kicked out and into the technical writing team, where he couldn't do as much damage I assumed.
+- The engineers had been agog at his output, and they spoke as if he had appeared to know nothing at all about what he was doing.
+- But he could talk; oh he could talk. 
+- His patter was exceptional.
+- Nadim was a difficult person; rude, weird, and inappropriate. He was very loud and didn't let anyone else speak. Team members were exhausted by him.
+- Everything he says is prefaced with "as a security expert", or similar.
+- I ask him for advice about how to protect my network and devices, and explain a little bit about what's been happening to me, and how it centers around Twitter.
+- He gives me zero advice that I didn't know already, and that anyone could have gotten from basic information.
+- I start to wonder about how much of an engineer and security expert he really is.
+- He tells me he will check out my Twitter account, and I give him my account details.
+- From that moment, his demeanor towards me changes.
+- He starts to bully me outrageously.
+- It is so bad, he is fired about two weeks later, but not before he has spread the word around the business, including to my boss and managers I have to work with very closely, that I am a *transphobe*.
+- When I spoke to engineers on the team about him later on, they couldn't believe the guy had got the job. They said he was totally ineffective and impossible to work with and any work he had done they couldn't believe he had done it it was so poor quality, as if he had no idea what he was doing.
+- He did, however, have root level access to all systems for a short time he was on the engineering team.
+- I look him up on Google and find out he is a trained actor with a bachelor's degree from the [National Institute of Dramatic Art](https://www.nida.edu.au/) in Sydney, graduated in 2010, and has been in a number of films. 
+- It seems he could be a spy.
+- I wonder how much damage he was able to do in the engineering department in such a short space of time. The tech failed and faltered again and again in early 2024.
+- He certainly added a lot of malicious code to our backend set up which broke our SEO for months before we could figure it out.
+- In any case, from the moment I gave Nadim my Twitter account details, everything changed for me at Polygon. My boss Grace starts to treat me badly. I am no longer given work by Gabriel Silva who I am supposed to be working with closely. Gabriel starts complains about my work, my writing style, and continually puts me down, calls me a single point of failure with team members.
+- It doesn't matter really because in early 2024, 20% of the workforce is made redundant and I move up to team lead so I am really busy and Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not gone up, he would have effectively made me a candidate for redundancy very quickly, which I believe was his intention.
+- Instead, my team (who are not really tech writers and don't know the job) starts to mutiny, one of them in particular, Hans Bodani, starts to shout at me in team meetings, get angry with me, complain about things I did not say to my boss, who supports him, and then refuses to communicate with me at all.
+- I ask for help from my managers. 
+- I am ignored.
+- The other team member, Anthony Matlala, sides with Hans once he sees I'm getting no support from my managers.
+- At an offsite in Bali in May, I am threatened with sexual violence from a Rust engineer who has started that week. He has clearly been told to target me. Anthony is at the dinner table when this happens. I tweet about it and tell Spanish HR the following morning.
+
+![Pakistani threats at dinner](../../content/images/pakistani-man-threatens-woman.png)
+
+- At the Bali offsite and in Belgium at EthCC in July, Polygon employees come up to me continually to say, oh I'm sorry you're leaving, which I'm not.
+- My team refuses to communicate with me at all. Meetings are sabotaged by Hans' angry outbursts. I am unable to do my job.
+- An email comes from from Kellie-J Keen as leader of the [Party Of women](https://www.partyofwomen.org/) in UK in June asking if we could like to stand as a candidate for general election.
+- I take 2 weeks off and run a political campaign in North London and come second-to-last in Finchley & Golders Green.
+- I step down as technical writing team lead and Gabriel Silva steps in and gives all work to Anthony and Hans, with me left with nothing to do. Anything I do, he asks Hans to do over. He picks on me in meetings and gives me impossible tasks which I actually complete.
+- By September/October, I'm getting really upset about it and contact HR to start harassment procedures because it's clear to me I'm being shoved out due to my political views.
+- A couple of weeks later they fire me, and the whole team, saying we're redundant, which is not true.
+- They accept in the letter that the dismissal is unlawful.
+- I get a Spanish lawyer who appears to be colluding with the Spanish company so I have to fire them in December 2024.
+- There's a lot more to this story; this is just a quick sketch.
+- Being targeted at my job for being "transphobic", which I'm not, on top of being targeted by criminal gangs of Dénia is really too much for one person to cope with without any support at all.
+- And yet, I'm still here.
 
 ## Tweets
 
