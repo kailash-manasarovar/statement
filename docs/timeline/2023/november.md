@@ -323,10 +323,11 @@
 - He picks on me in meetings and gives me impossible backend tasks which I complete successfully.
 - By September/October, I'm getting really upset about it and contact HR to start harassment procedures because it's clear to me I'm being shoved out due to my political views.
 - A couple of weeks later they fire me, and the whole team, saying we're redundant, which is not true.
-- They formally accept that my dismissal is unlawful.
-- I get a Spanish lawyer who appears to be colluding with the Spanish company so I have to fire them in December 2024.
+- They formally accept that my dismissal is unlawful under Spanish employment law.
+- I get a Spanish lawyer to help me.
+- They lawyer appears to be colluding with the Spanish company, so I have no option but to fire them in December 2024.
 - There's a lot more to this story; this is just a quick sketch.
-- Being targeted at my job for being "transphobic", which I'm not, on top of being targeted by criminal gangs of Dénia is really too much for one person to cope with without any support at all.
+- Being targeted at my job for being "transphobic" on top of being targeted by criminal gangs of Dénia is really too much for one person to cope with without any support at all.
 - And yet, I'm still here.
 
 ## Tweets
