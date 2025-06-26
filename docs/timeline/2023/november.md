@@ -270,7 +270,7 @@
 - I start a new job at [Polygon](https://polygon.technology/), web3 crypto giant, on 1st November as a Senior Technical Writer.
 - It's a great job and I'm very excited about my new role.
 
-!!! tip
+!!! tip "Corruption in Spain again?"
     - I do wonder if there were any corrupt machinations behind my employment as the company is very Spanish and I was earning heaps of money!
     - A honey-trappers wet-dream indeed.
 
