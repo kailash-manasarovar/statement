@@ -316,7 +316,11 @@
 - I believe the team has been told to behave this way by managers.
 - An email comes from from Kellie-J Keen as leader of the [Party Of Women](https://www.partyofwomen.org/) in the UK in June asking if anyone would like to stand as a political candidate for general election.
 - I take two weeks off and run a political campaign in North London and come second-to-last in Finchley & Golders Green.
-- I step down as technical writing team lead and Gabriel Silva steps in and gives all work to Anthony and Hans, with me left with nothing to do. Anything I do, he asks Hans to do over. He picks on me in meetings and gives me impossible tasks which I actually complete.
+- I step down as technical writing team lead and Gabriel Silva steps in and immediately gives all the work to Anthony and Hans.
+- He leaves me with nothing to do, certainly no writing, but as he said before he doesn't like how I write so I'm unsurprised.
+- Gabriel doesn't know what he's talking about when it comes to technical writing. He is bullying me and trying to push me out.
+- So I'm left with nothing to do. Anything I do write, he asks Hans to do over. 
+- He picks on me in meetings and gives me impossible backend tasks which I complete successfully.
 - By September/October, I'm getting really upset about it and contact HR to start harassment procedures because it's clear to me I'm being shoved out due to my political views.
 - A couple of weeks later they fire me, and the whole team, saying we're redundant, which is not true.
 - They accept in the letter that the dismissal is unlawful.
