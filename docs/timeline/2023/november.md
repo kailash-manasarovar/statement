@@ -304,9 +304,13 @@
 - I ask for help from my managers. 
 - I am ignored.
 - The other team member, Anthony Matlala, sides with Hans once he sees I'm getting no support from my managers.
-- At an offsite in Bali in May, I am threatened with sexual violence from a Rust engineer who has started that week. He has clearly been told to target me. Anthony is at the dinner table when this happens. I tweet about it and tell Spanish HR the following morning.
+- At an offsite in Bali in May, I am threatened with sexual violence from a Rust engineer who has started that week. He has clearly been told to target me. Anthony is at the dinner table when this happens.
 
 ![Pakistani threats at dinner](../../content/images/pakistani-man-threatens-woman.png)
+
+- I tweet about it and tell Spanish HR the following morning.
+
+[![Sexual violence at dinner](../../content/images/sexual-violence-at-dinner.png)](https://x.com/1FRGVN/status/1790392972057747804)
 
 - At the Bali offsite and in Belgium at EthCC in July, Polygon employees come up to me continually to say, oh I'm sorry you're leaving.
 - My team refuses to communicate with me at all. Meetings are sabotaged by Hans' angry outbursts. I am unable to do my job.
