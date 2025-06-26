@@ -274,7 +274,7 @@
     - I do wonder if there were any corrupt machinations behind my employment as the company is very Spanish and I was earning heaps of money!
     - A honey-trappers wet-dream indeed.
 
-- I was interviewed by [Nadim Kobesi](https://nadim.computer/), *apparently* an engineer and cryptographer. 
+- I was interviewed by [Nadim Kobesi](https://nadim.computer/); *apparently* an engineer and cryptographer. 
 - Every time he speaks, he prefaces his words with "as an engineer", or "as a security expert" in case we forget I suppose.
 - Nadim is a weird guy but we have a good relationship initially.
 - I find out that Nadim was originally hired to work in the zero-knowledge engineering department - the engine-room so to speak - and he had lasted one week before he was kicked out and into the technical writing team, where he couldn't do as much damage I assumed.
