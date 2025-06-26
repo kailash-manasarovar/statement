@@ -314,8 +314,8 @@
 - I believe the intention is that I leave due to the stress and unpleasantness.
 - I don't leave but I cannot do my job and no-one is helping me fix the outrageous situation of an insubordinate team.
 - I believe the team has been told to behave this way by managers.
-- An email comes from from Kellie-J Keen as leader of the [Party Of women](https://www.partyofwomen.org/) in UK in June asking if we could like to stand as a candidate for general election.
-- I take 2 weeks off and run a political campaign in North London and come second-to-last in Finchley & Golders Green.
+- An email comes from from Kellie-J Keen as leader of the [Party Of Women](https://www.partyofwomen.org/) in the UK in June asking if anyone would like to stand as a political candidate for general election.
+- I take two weeks off and run a political campaign in North London and come second-to-last in Finchley & Golders Green.
 - I step down as technical writing team lead and Gabriel Silva steps in and gives all work to Anthony and Hans, with me left with nothing to do. Anything I do, he asks Hans to do over. He picks on me in meetings and gives me impossible tasks which I actually complete.
 - By September/October, I'm getting really upset about it and contact HR to start harassment procedures because it's clear to me I'm being shoved out due to my political views.
 - A couple of weeks later they fire me, and the whole team, saying we're redundant, which is not true.
