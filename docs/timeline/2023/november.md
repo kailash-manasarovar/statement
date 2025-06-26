@@ -282,7 +282,6 @@
 - But he could talk; oh he could talk. 
 - His patter was exceptional.
 - Nadim was a difficult person; rude, weird, and inappropriate. He was very loud and didn't let anyone else speak. Team members were exhausted by him.
-- Everything he says is prefaced with "as a security expert", or similar.
 - I ask him for advice about how to protect my network and devices, and explain a little bit about what's been happening to me, and how it centers around Twitter.
 - He gives me zero advice that I didn't know already, and that anyone could have gotten from basic information.
 - I start to wonder about how much of an engineer and security expert he really is.
