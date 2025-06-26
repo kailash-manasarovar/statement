@@ -309,7 +309,7 @@
 
 ![Pakistani threats at dinner](../../content/images/pakistani-man-threatens-woman.png)
 
-- At the Bali offsite and in Belgium at EthCC in July, Polygon employees come up to me continually to say, oh I'm sorry you're leaving, which I'm not.
+- At the Bali offsite and in Belgium at EthCC in July, Polygon employees come up to me continually to say, oh I'm sorry you're leaving.
 - My team refuses to communicate with me at all. Meetings are sabotaged by Hans' angry outbursts. I am unable to do my job.
 - An email comes from from Kellie-J Keen as leader of the [Party Of women](https://www.partyofwomen.org/) in UK in June asking if we could like to stand as a candidate for general election.
 - I take 2 weeks off and run a political campaign in North London and come second-to-last in Finchley & Golders Green.
