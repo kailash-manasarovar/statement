@@ -311,6 +311,9 @@
 
 - At the Bali offsite and in Belgium at EthCC in July, Polygon employees come up to me continually to say, oh I'm sorry you're leaving.
 - My team refuses to communicate with me at all. Meetings are sabotaged by Hans' angry outbursts. I am unable to do my job.
+- I believe the intention is that I leave due to the stress and unpleasantness.
+- I don't leave but I cannot do my job and no-one is helping me fix the outrageous situation of an insubordinate team.
+- I believe the team has been told to behave this way by managers.
 - An email comes from from Kellie-J Keen as leader of the [Party Of women](https://www.partyofwomen.org/) in UK in June asking if we could like to stand as a candidate for general election.
 - I take 2 weeks off and run a political campaign in North London and come second-to-last in Finchley & Golders Green.
 - I step down as technical writing team lead and Gabriel Silva steps in and gives all work to Anthony and Hans, with me left with nothing to do. Anything I do, he asks Hans to do over. He picks on me in meetings and gives me impossible tasks which I actually complete.
