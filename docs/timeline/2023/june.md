@@ -461,6 +461,14 @@
     - I now believe that these instances were seen as opportune moments for suggesting I was mentally unwell or imagining things if I ever went to the police about what was going on.
     - **Or**, the instances in which people got excited over my use of the word "hallucinate" were due to the fact they knew I was being given hallucinogens of some variety without my knowledge.
 
+- I tweet about this in November as it is so incongruent and I never forgot it. I wonder what sparked the memory. Was I still seeing this man somehow?
+
+[![Remembering Alicante](../../content/tweets/november-2023/remembering-alicante-arrivals.png)](https://x.com/1FRGVN/status/1727429653911281730)
+
+- The rather innocuous tweet was translated a fair bit too.
+
+![Translated Alicante airport tweet](../../content/tweets/november-2023/a-good-few-translations.png)
+
 ## Monday 19th June
 
 - I run a block list on `@jctot19`'s followers and everyone the account is following.

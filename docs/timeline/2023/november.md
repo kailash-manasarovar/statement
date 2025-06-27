@@ -174,7 +174,10 @@
 
 ![JC holds the door open](../../content/images/jc-holds-the-door-open.png)
  
-- I wake up and tweet about it.
+- I wake up and tweet about it, but I do not detail the message because I do not fully understand it.
+
+[![VSSH control your sex dream](../../content/tweets/november-2023/VSSH-control-your-sex.png)](https://x.com/1FRGVN/status/1728389872367570950)
+
 - I wonder if this was after another sedating event as I seem to be unusually inspired to tweet my dreams on certain nights, and I have to wonder about it now as this only ever happened when I was living in my apartment in Carrer Furs.
 - I'm not sure what  JC's statement means until 2025, but I often pondered the use of the third-person verb form for "control" which was unequivocal in the dream.
 - Perhaps it was obvious but there was clearly a time when I was supposed to know what was meant; and it appears I had to go through some stuff, for his purposes, before I knew.
@@ -264,6 +267,14 @@
 - I'm pretty sure now, in June 2025, that Sandra and Hazel Smith had been running this account since inception.
 - Could this be a bona fide connection between British criminal gangs and the Spanish conservatory system?
 - At the time, I'm not sure who it is, so I leave all options, and avenues for communication, open.
+- I come home and realize I've been sweating a lot and smell quite badly, obviously due to the stress I'm feeling.
+- I apologize to the stalkers attending class with me (Vicen, Salva, Samuel, all the adults and possibly some of the older girls).
+
+[![Apologizing for BO](../../content/tweets/november-2023/apologizing-for-bo.png)](https://x.com/1FRGVN/status/1729983339916857416)
+
+- The next day I tweet about the "regular nervous system workout" they give me in class and signpost yet again my damaged kidneys (I didn't know I was being drugged continually at that time, I just assumed it was due to stress and the after-effects of [rhabdo in January after class](january.md#serious-poisoning-at-chamber-music-class)).
+
+[![Nervous system workout](../../content/tweets/november-2023/regular-nervous-system-workout.png)](https://x.com/1FRGVN/status/1729961588432556523)
 
 ## Polygon
 
@@ -328,36 +339,72 @@
 - A couple of weeks later they fire me, and the whole team, saying we're redundant, which is not true.
 - They formally accept that my dismissal is unlawful under Spanish employment law.
 - I get a Spanish lawyer to help me.
-- They lawyer appears to be colluding with the Spanish company, so I have no option but to fire them in December 2024.
+- The lawyer appears to be colluding with the Spanish company, so I have no option but to fire them in December 2024.
 - There's a lot more to this story; this is just a quick sketch.
 - Being targeted at my job for being "transphobic" on top of being targeted by criminal gangs of Dénia is really too much for one person to cope with without any support at all.
 - And yet, I'm still here.
 
 ## Tweets
 
-These are a selection of tweets from this period which relate to everything that has been happening. Most of them have been translated, a lot, so I assume the Spanish are reading them.
-
-Many of these tweets are confirmation of what has been going on.
+- Here is a selection of tweets from this period which relate to everything that has been happening. 
+- Most of them have been translated, a lot, so I assume the Spanish are reading them.
+- Many of these tweets are confirmations of what has been going on.
 
 ### @1frgvn
 
-#### Elon's violinist
+- Domingo's dad is (apparently) a car dealer, he told me in 2014, so I'm literally unable to get my car fixed anywhere without possible ridiculousness occurring. Certainly in [September at the garage in Javea](september.md#problem-with-my-car) I wait all day long, and they do nothing at all and charge me a bunch for it. I'm starting to feel the same way about everything else I need done too.
 
-- Most curiously, in early November, Elon Musk posts an animation with a beautiful violinist and the music is honky-tonk piano: https://x.com/elonmusk/status/1720720258095341916?lang=en.
-- Of course, the references to Ana Requena and myself are not lost on anyone.
+[![Haberdashery](../../content/tweets/november-2023/haberdashery.png)](https://x.com/1FRGVN/status/1730335228047056929)
 
-[![Elon's violinist](../../content/tweets/october-2023/elons-violinist.png)](https://x.com/1FRGVN/status/1716247635181326437)
+- I've started thinking about building a Hanuman temple in Dénia.
 
-- He must have mentioned violins before as this is pre-the-tweet.
+[![Hanuman temple](../../content/tweets/november-2023/hanuman-temple.png)](https://x.com/1FRGVN/status/1730355508186386608)
 
-- https://x.com/1FRGVN/status/1730335228047056929 -> Domingo's dad is (apparently) a car dealer, he told me in 2014, so I'm literally unable to get my car fixed anywhere without possible ridiculousness occurring.
-- https://x.com/1FRGVN/status/1730325008625398153 -> the `@g_lamarche` account is likely Domingo and came up on the Google search for `@jctot19` at some point to inform me of it.
-- https://x.com/1FRGVN/status/1729784281482907991 -> Carrie 2 in reference to June 12 Carrie 1.
-- https://x.com/1FRGVN/status/1729385938495602851 -> concern about what they're planning for me.
-- https://x.com/1FRGVN/status/1728892631047168442
-- https://x.com/1FRGVN/status/1728615340392042916 -> I posted a number of chapters from my books this month. Google search for `@jctot19` showed pictures of words, something regarding lots of words.
-- https://x.com/1FRGVN/status/1728612065043189962
-- https://x.com/1FRGVN/status/1727429653911281730 -> remembering the trumpet teacher waiting for me at arrivals on June 18th.
+- I realize my cousin Leah is also stalking me. Leah has been honey-trapped by British criminal gangs since around 2004. She is extremely vulnerable. I wonder why she is stalking me, and who told her about me. Remember, at this time I'm still no contact with my family, so incredibly vulnerable to criminals who like to target wealthy and isolated women.
+
+[![Leah](../../content/tweets/november-2023/leah.png)](https://x.com/1FRGVN/status/1726718042657501286)
+
+- I talk a lot about forgiveness on X. I believe that the `@g_lamarche` account is likely to be Domingo, or close to him, as it was coming up on Google search for `@jctot19`.
+
+[![Forgiveness](../../content/tweets/november-2023/forgiveness.png)](https://x.com/1FRGVN/status/1726728150854341050)
+
+- Note the `g_lamarche` account has "manada" as location. *Manada* is famously what the Spanish called the gang-rape team that attacked the lone woman at the Pamplona fiestas. I used the word in my [speech in Madrid](../2024/may.md#my-speech).
+
+[![Manada](../../content/tweets/november-2023/manada.png)](https://x.com/g_lamarche)
+
+- I'm so nervous at the conservatory, I'm convinced they're planning another attack. I tweet about my concerns. Carrie 2 is obviously a reference to [Carrie 1 on 12th June](june.md#monday-12th-june-2023).
+
+[![Carrie 2 in rehearsal](../../content/tweets/november-2023/concerned-carrie-2-is-in-rehearsal.png)](https://x.com/1FRGVN/status/1729784281482907991)
+
+- I tweet my concerns about having a heart attack very early in the morning. This is evidence I'm up and worried, but I also wonder if tweets like these signpost the times criminals entered my flat while I was sedated.
+
+[![Heart attack](../../content/tweets/november-2023/heart-attack.png)](https://x.com/1FRGVN/status/1729385938495602851)
+
+- The tweet just before the one about the heart attack is also curious. This is something that never happened to me outside of my apartment in Carrer Furs.
+
+[![Waking up with music in my head](../../content/tweets/november-2023/tweet-before-heart-attack.png)](https://x.com/1FRGVN/status/1729391103089012935)
+
+- I was thinking a lot about "meeting people in dreams" at that time.
+
+[![Meeting in dreams](../../content/tweets/november-2023/meeting-in-dreams.png)](https://x.com/1FRGVN/status/1728904088170234195)
+
+- I tweet about the "list owner"; i.e. the person that sends my tweets out to the town for everyone to read.
+
+[![List owner](../../content/tweets/november-2023/list-owner.png)](https://x.com/1FRGVN/status/1728892631047168442)
+
+- I posted a number of chapters from my books this month. In response, Google search for `@jctot19` showed multiple pictures of writing, and written words, sheets of typed pages, things like that.
+
+[![Book excerpts](../../content/tweets/november-2023/book-excerpts.png)](https://x.com/1FRGVN/status/1728615340392042916)
+
+- I often refer to being naughty in tweets. I'm not actually sure what I even meant. Could it have been something subconscious?
+
+[![Naughty](../../content/tweets/november-2023/naughtiness.png)](https://x.com/1FRGVN/status/1728483939768258926)
+
+- Elon always seem to tweet some relevance at the right time.
+
+[![Tangled webs](../../content/tweets/november-2023/elon-truths.png)](https://x.com/1FRGVN/status/1727254711852548294)
+
+
 - https://x.com/1FRGVN/status/1726731425561313692 -> I now think that my kidneys started to complain at this time because I had already been being spiked with drugs prior to Christmas and I was probably allergic in some way to whatever it was they were using to make me feel high and aroused.
 - https://x.com/1FRGVN/status/1726666952939291025
 - https://x.com/1FRGVN/status/1726698213108052185 -> expressing concern for my kidneys.
@@ -373,6 +420,14 @@ Many of these tweets are confirmation of what has been going on.
 - https://x.com/1FRGVN/status/1720383165729051042 -> story of how I got to Dénia. I had no suspicion the whole thing was a set up at that stage, none at all.
 - https://x.com/1FRGVN/status/1719532076725072313 -> coming home from being out at Halloween and posting the song I sang.
 
+#### Elon's violinist
+
+- Most curiously, in early November, Elon Musk posts an animation with a beautiful violinist playing in space, and the music is honky-tonk piano: https://x.com/elonmusk/status/1720720258095341916?lang=en.
+- Of course, the references to Ana Requena and myself are not lost on anyone.
+
+[![Elon's violinist](../../content/tweets/october-2023/elons-violinist.png)](https://x.com/1FRGVN/status/1716247635181326437)
+
+- He must have mentioned violins before as this is pre-the-tweet.
 
 ### @JackChardwood
 

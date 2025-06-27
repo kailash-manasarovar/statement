@@ -74,7 +74,7 @@
 - Online and in-person bullying by criminal gangs, and teachers and staff at the conservatory of Dénia included using my own words and experiences that I had described in detail in my [2015 police statement I sent via email to the Metropolitan Police](../early-years/2015.md#statement-to-the-metropolitan-police), and repeating and replaying them back to me in order to cause me enormous distress and psychological injury.
 - I did not know this was happening at this time. Indeed, it has only become clear to me in early 2025 after leaving Dénia, replacing all my bathroom products, and washing or throwing away most of my belongings which the criminals had doused in pesticides while I was away from my apartment, probably in mid-October 2024.
 - In any case, constant triggering and reminders of my experience of being sexually abused by a North London rape-gang when I was a child was the backdrop to my psychological and emotional state while I was on holiday in Thailand over Christmas 2022.
-- It is highly likely my bathroom products I brought from Spain contained some psychoactive substance, maybe low level doses of methanol.
+- It is highly likely the bathroom products I brought from Spain contained some psychoactive substance, maybe even low level doses of methanol.
 - I couldn't stop thinking about the trumpet teacher.
 - Ironically, this environment was the backdrop for the most profound healing experience I have probably experienced in 25 years of attempting to heal my body, mind, and soul from the effects of being sedated and gang-raped repeatedly without my knowledge when I was 16.
 - It was the 21st December, winter solstice.
@@ -89,14 +89,14 @@
 - The whole center was alarmed.
 - I thought I was having a heart attack and went directly to A&E in Samui.
 - They checked everything over and I was completely fine.
-- They told me I had an anxiety attack but they didn't know I had spent 35 years in a state of panic and never had an anxiety attack quite like this one.
+- They told me I had had an anxiety attack but they didn't know I had spent 35 years in a state of panic and never had an anxiety attack quite like this one.
 
 ![A & E Samui](../../content/images/a-and-e.png)
 
 - The next morning, I woke up, and everything was different.
 - It took me a few weeks to realize what was different, but when I did, I was awestruck.
 - I realized that every step I had taken in my life since I was attacked in 1989 was in fear. Every single thing I did, every person I spoke to, every situation in my life was soaked in fear and dread.
-- It was as if, at any moment, at any second, wherever I was and whatever I was doing, I was in extreme danger and I had to be continually aware of it.
+- It was as if, at any moment, at any second, wherever I was and whatever I was doing, I was in extreme danger and I had to be continually aware of it in order to survive.
 - I realized my whole physical system had been working overtime to support this for 35 years; flooding my organs with hormones, second-by-second, just so I could be ready to run or fight.
 - And it was all over.
 - Completely.
@@ -106,3 +106,11 @@
 - It's highly likely that had I not had this healing experience, I would be very dead and gone now, to the delight of the people that terrorized me in Dénia.
 
 ![No more fear](../../content/images/no-more-fear.png)
+
+- I tweet about this in November 2023 when I'm being stalked and terrorized by the whole town of Dénia; ostensibly because they weren't able to honey-trap me into a false relationship or into a one-way ticket into the sex "industry", although I was being live-streamed on porn networks masturbating without my knowledge, at a minimum.
+
+[![Tweeting about the seizure](../../content/tweets/november-2023/tweeting-about-the-seizure.png)](https://x.com/1FRGVN/status/1726729138738774378)
+
+- It is highly likely many people knew *exactly* what was going on, and did attempt to warn me in December 2022.
+- Unfortunately, or fortunately, my mind was not able to comprehend in any way the evil I was about to experience in Dénia so the warnings went by unheeded.
+- Still, others *were* looking too, and enjoying the view. For later. And that is somewhat comforting to me now in June 2025.
