@@ -360,7 +360,7 @@
 
 [![Hanuman temple](../../content/tweets/november-2023/hanuman-temple.png)](https://x.com/1FRGVN/status/1730355508186386608)
 
-- I realize my cousin Leah is also stalking me. Leah has been honey-trapped by British criminal gangs since around 2004. She is extremely vulnerable. I wonder why she is stalking me, and who told her about me. Remember, at this time I'm still no contact with my family, so incredibly vulnerable to criminals who like to target wealthy and isolated women.
+- I realize my cousin Leah is also stalking me. Leah has been honey-trapped by British criminal gangs since around 2004. She is extremely vulnerable. I wonder why she is stalking me, and who told her about me. Remember, at this time I'm still no contact with my family, so I'm believed to be incredibly vulnerable to criminals who like to target wealthy and isolated women.
 
 [![Leah](../../content/tweets/november-2023/leah.png)](https://x.com/1FRGVN/status/1726718042657501286)
 
@@ -404,21 +404,73 @@
 
 [![Tangled webs](../../content/tweets/november-2023/elon-truths.png)](https://x.com/1FRGVN/status/1727254711852548294)
 
+- I wonder who gozer is still.
 
-- https://x.com/1FRGVN/status/1726731425561313692 -> I now think that my kidneys started to complain at this time because I had already been being spiked with drugs prior to Christmas and I was probably allergic in some way to whatever it was they were using to make me feel high and aroused.
-- https://x.com/1FRGVN/status/1726666952939291025
-- https://x.com/1FRGVN/status/1726698213108052185 -> expressing concern for my kidneys.
-- https://x.com/1FRGVN/status/1726176407171330212
-- https://x.com/1FRGVN/status/1726196382644707724 -> further verification regarding how I felt out of my mind and what happened in April at Lourdes and on the way to Lourdes.
-- https://x.com/1FRGVN/status/1724176144633610597 -> response to a lot of hacker activity.
-- https://x.com/1FRGVN/status/1723295242957328485 -> commentary on the stalking. Season 1 is 2014. Season 2 is up to June 12 2023. Season 3 is ongoing. These sorts of posts probably really wound them up.
-- https://x.com/1FRGVN/status/1722879891593375965 -> another annoying one.
-- https://x.com/1FRGVN/status/1721197950951477588 -> reference to Mercedes.
-- https://x.com/1FRGVN/status/1721133303716057526
-- https://x.com/1FRGVN/status/1721087990095630838
-- https://x.com/1FRGVN/status/1720741073004245379 -> curiously, Elon posts a violin player (Ana) playing over piano music (me).
-- https://x.com/1FRGVN/status/1720383165729051042 -> story of how I got to Dénia. I had no suspicion the whole thing was a set up at that stage, none at all.
-- https://x.com/1FRGVN/status/1719532076725072313 -> coming home from being out at Halloween and posting the song I sang.
+[![Who's gozer](../../content/tweets/november-2023/whos-gozer.png)](https://x.com/1FRGVN/status/1726301201929822521)
+
+- Addressing the female stalkers who support the insane men.
+
+[![Women stalkers](../../content/tweets/november-2023/speaking-to-wives-of-stalkers.png)](https://x.com/1FRGVN/status/1726235186684481887)
+
+- Interest in Season 3.
+
+[![Season 3](../../content/tweets/november-2023/season-3.png)](https://x.com/1FRGVN/status/1726228087719735739)
+
+- I get tired of the cyber-stalking from time-to-time and try and make light of it.
+
+[![Ain't you got homes to go to](../../content/tweets/november-2023/making-light-of-it.png)](https://x.com/1FRGVN/status/1724176144633610597)
+
+- Elon again, right on time, says something most appropriate. I have been discussing empathy and the special abilities of empathic people who learned their trade, as it were, from being in constant fight-flight-and-freeze.
+
+[![Elon again](../../content/tweets/november-2023/elon-again.png)](https://x.com/1FRGVN/status/1723765109191839794)
+
+- I continue to think about a Hanuman temple in Dénia. It needs one for sure.
+
+[![Hanuman temple thoughts and promises](../../content/tweets/november-2023/hanuman-temple-again.png)](https://x.com/1FRGVN/status/1723731249376719155)
+
+- As well as trauma healing, and empathic abilities, I often tweet about the outrageous things people say to child sexual abuse victims.
+
+[![Things people say to CSA victims](../../content/tweets/november-2023/the-things-people-say-to-csa-victims.png)](https://x.com/1FRGVN/status/1726586259529949493)
+
+- I describe the stalking Seasons and ask for a suggestion for a film version of Season 1 from 2014.
+
+[![Seasons](../../content/tweets/november-2023/describing-the-seasons.png)](https://x.com/1FRGVN/status/1723295242957328485)
+
+- I talk directly to the stalkers about their behavior.
+
+[![Talking directly to stalkers](../../content/tweets/november-2023/talking-to-stalkers.png)](https://x.com/1FRGVN/status/1722879891593375965)
+
+- This tweet is a direct reference to [the behavior of Mercedes](../early-years/2013.md#meeting-mercedes).
+
+[![The behavior of Mercedes](../../content/tweets/november-2023/reference-to-mercedes.png)](https://x.com/1FRGVN/status/1721197950951477588)
+
+- I tell them about the bedbugs in Lourdes, and how that pushed me into visiting Dénia and renting a flat on 8th December. I had no suspicion the whole thing was a set up while writing this, none at all. It all seemed to me rather serendipitous, miraculous even. Perhaps it still is, regardless of the manipulations.
+
+[![Bedbugs](../../content/tweets/november-2023/bedbugs.png)](https://x.com/1FRGVN/status/1720383165729051042)
+
+- I'm still watching the Hanuman show and tweeting about it. I'm obsessed with Hanuman, actually, and I now believe he came to help me and protect me while my life, health and wellbeing were in serious jeopardy.
+
+[![Hanuman](../../content/tweets/november-2023/hanuman-show.png)](https://x.com/1FRGVN/status/1723107682830155797)
+
+- I'm still reeling from 7th October.
+
+[![7th October](../../content/tweets/november-2023/reeling-from-7-october.png)](https://x.com/1FRGVN/status/1722976568878792831)
+
+- I believe I'm being protected by something divine, and that it is not just for me.
+
+[![Divine protection](../../content/tweets/november-2023/protection.png)](https://x.com/1FRGVN/status/1722882445416992969)
+
+- My faith in God is unassailable and, in fact, grows exponentially during these horrible times.
+
+[![My faith](../../content/tweets/november-2023/my-faith.png)](https://x.com/1FRGVN/status/1722724423805829534)
+
+- Jai Shri RAM.
+
+[![Jai Shri Ram](../../content/tweets/november-2023/jai-shri-ram.png)](https://x.com/1FRGVN/status/1721278999874224343)
+
+- Making light of it again.
+
+[![Making light of it again](../../content/tweets/november-2023/making-light-of-it-again.png)](https://x.com/1FRGVN/status/1721138965674090920)
 
 #### Elon's violinist
 
@@ -429,9 +481,13 @@
 
 - He must have mentioned violins before as this is pre-the-tweet.
 
+[![Spooky Elon](../../content/tweets/november-2023/spooky-elon.png)](https://x.com/1FRGVN/status/1720741073004245379)
+
 ### @JackChardwood
 
-- https://x.com/JackChardwood/status/1727795442602201265 -> not sure what was said, interesting account name.
+- I post about Elon here too.
+- https://x.com/JackChardwood/status/1727795442602201265 -> not sure what was said, interesting account name which we was changed and I can't remember what it was but it was very relevant.
+- A lot of the accounts I'm replying to have disappeared on here.
 - https://x.com/JackChardwood/status/1723360465667989603
 - https://x.com/JackChardwood/status/1721312021520511096 -> an appeal to the engineer.
 - https://x.com/JackChardwood/status/1720741418098889039

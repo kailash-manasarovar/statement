@@ -111,6 +111,10 @@
 
 [![Tweeting about the seizure](../../content/tweets/november-2023/tweeting-about-the-seizure.png)](https://x.com/1FRGVN/status/1726729138738774378)
 
+- I tweet about it a few times. Sometimes I mention how I believe these experiences have been detrimental to my kidneys due mostly to the timing of symptoms.
+
+[![Tweeting again about it](../../content/tweets/november-2023/further-info-on-seizure.png)](https://x.com/1FRGVN/status/1726666952939291025)
+
 - It is highly likely many people knew *exactly* what was going on, and did attempt to warn me in December 2022.
 - Unfortunately, or fortunately, my mind was not able to comprehend in any way the evil I was about to experience in Dénia so the warnings went by unheeded.
 - Still, others *were* looking too, and enjoying the view. For later. And that is somewhat comforting to me now in June 2025.

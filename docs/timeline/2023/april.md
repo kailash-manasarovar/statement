@@ -124,6 +124,10 @@
     - It was instead a bona fide honey-trap account run by numerous criminal gang members which may have on occasion been the trumpet teacher himself, but on other occasions was most likely Carmen Cano, Domingo Cano's sister, and other Spanish gang members from Dénia.
     - It was unlikely to have been controlled by anyone else at the conservatory.
 
+- I tweet about the whole thing in November 2023.
+
+[![Hanuman Jayanti](../../content/tweets/november-2023/hanuman-jayanti.png)](https://x.com/1FRGVN/status/1726196382644707724)
+
 ## Expecting to see him in Lourdes
 
 - While I'm in Lourdes, I expect to see the trumpet teacher at any moment.

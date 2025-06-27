@@ -515,6 +515,9 @@
 - Was he worried that the spirits of the land had favored me?
 - That night, I got home and even though I had only had a few drinks, I was so ill I stayed in bed for about 36 hours, vomiting continuously.
 - It felt like I had been poisoned.
+- I tweet the song when I get home.
+
+[![You made me love you](../../content/tweets/november-2023/you-made-me-love-you.png)](https://x.com/1FRGVN/status/1719532076725072313)
 
 ## Tweets
 
