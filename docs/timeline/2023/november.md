@@ -368,7 +368,8 @@
 
 [![Forgiveness](../../content/tweets/november-2023/forgiveness.png)](https://x.com/1FRGVN/status/1726728150854341050)
 
-- Note the `g_lamarche` account has "manada" as location. *Manada* is famously what the Spanish called the gang-rape team that attacked the lone woman at the Pamplona fiestas. I used the word in my [speech in Madrid](../2024/may.md#my-speech).
+- Note the `@g_lamarche` account has "manada" as location. *Manada* is famously what the Spanish called the gang-rape team that attacked the lone woman at the Pamplona fiestas.
+- I use the word in my [speech in Madrid](../2024/may.md#my-speech).
 
 [![Manada](../../content/tweets/november-2023/manada.png)](https://x.com/g_lamarche)
 
@@ -380,7 +381,8 @@
 
 [![Heart attack](../../content/tweets/november-2023/heart-attack.png)](https://x.com/1FRGVN/status/1729385938495602851)
 
-- The tweet just before the one about the heart attack is also curious. This is something that never happened to me outside of my apartment in Carrer Furs.
+- The tweet just before the one about the heart attack is also curiously early.
+- Waking up with music in my head is something that never happens to me outside of when I lived at my apartment in Carrer Furs. 
 
 [![Waking up with music in my head](../../content/tweets/november-2023/tweet-before-heart-attack.png)](https://x.com/1FRGVN/status/1729391103089012935)
 
@@ -400,11 +402,11 @@
 
 [![Naughty](../../content/tweets/november-2023/naughtiness.png)](https://x.com/1FRGVN/status/1728483939768258926)
 
-- Elon always seem to tweet some relevance at the right time.
+- Elon always seems to tweet some relevance at the right time.
 
 [![Tangled webs](../../content/tweets/november-2023/elon-truths.png)](https://x.com/1FRGVN/status/1727254711852548294)
 
-- I wonder who gozer is still.
+- I still wonder who *gozer* is; someone's nickname maybe?
 
 [![Who's gozer](../../content/tweets/november-2023/whos-gozer.png)](https://x.com/1FRGVN/status/1726301201929822521)
 
@@ -420,7 +422,8 @@
 
 [![Ain't you got homes to go to](../../content/tweets/november-2023/making-light-of-it.png)](https://x.com/1FRGVN/status/1724176144633610597)
 
-- Elon again, right on time, says something most appropriate. I have been discussing empathy and the special abilities of empathic people who learned their trade, as it were, from being in constant fight-flight-and-freeze.
+- Elon again, right on time, says something most appropriate.
+- I have been discussing empathy and the special abilities of empathic people who learned their trade, as it were, from being in constant fight-flight-and-freeze.
 
 [![Elon again](../../content/tweets/november-2023/elon-again.png)](https://x.com/1FRGVN/status/1723765109191839794)
 
@@ -444,15 +447,18 @@
 
 [![The behavior of Mercedes](../../content/tweets/november-2023/reference-to-mercedes.png)](https://x.com/1FRGVN/status/1721197950951477588)
 
-- I tell them about the bedbugs in Lourdes, and how that pushed me into visiting Dénia and renting a flat on 8th December. I had no suspicion the whole thing was a set up while writing this, none at all. It all seemed to me rather serendipitous, miraculous even. Perhaps it still is, regardless of the manipulations.
+- I tell them about the bedbugs in Lourdes, and how that pushed me into visiting Dénia and renting a flat on 8th December 2021.
+- I had no suspicion the whole thing was a set up while writing this, none at all. 
+- It all seemed to me rather serendipitous, miraculous even. Perhaps it still is, regardless of the manipulations.
 
 [![Bedbugs](../../content/tweets/november-2023/bedbugs.png)](https://x.com/1FRGVN/status/1720383165729051042)
 
-- I'm still watching the Hanuman show and tweeting about it. I'm obsessed with Hanuman, actually, and I now believe he came to help me and protect me while my life, health and wellbeing were in serious jeopardy.
+- I'm still watching the Hanuman show and tweeting about it.
+- I'm obsessed with Hanuman, actually, and I now believe he came to help me and protect me while my life, health and wellbeing were in serious jeopardy.
 
 [![Hanuman](../../content/tweets/november-2023/hanuman-show.png)](https://x.com/1FRGVN/status/1723107682830155797)
 
-- I'm still reeling from 7th October.
+- I'm still reeling from 7th October 2023.
 
 [![7th October](../../content/tweets/november-2023/reeling-from-7-october.png)](https://x.com/1FRGVN/status/1722976568878792831)
 
@@ -465,10 +471,11 @@
 [![My faith](../../content/tweets/november-2023/my-faith.png)](https://x.com/1FRGVN/status/1722724423805829534)
 
 - Jai Shri RAM.
+- I remember feeling *extremely euphoric* around this time and wonder about whether the feeling was from being spiked in my house with mood-altering substances of some variety.
 
 [![Jai Shri Ram](../../content/tweets/november-2023/jai-shri-ram.png)](https://x.com/1FRGVN/status/1721278999874224343)
 
-- Making light of it again.
+- Making light of it all again.
 
 [![Making light of it again](../../content/tweets/november-2023/making-light-of-it-again.png)](https://x.com/1FRGVN/status/1721138965674090920)
 
