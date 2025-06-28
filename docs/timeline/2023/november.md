@@ -344,6 +344,14 @@
 - Being targeted at my job for being "transphobic" on top of being targeted by criminal gangs of Dénia is really too much for one person to cope with without any support at all.
 - And yet, I'm still here.
 
+## Health
+
+- I continue to have aches in my back around my kidney area, particularly during the day.
+- Another curious symptom I have is that whenever I'm doing yoga, which I have been doing for 25 years, certain areas of my body feel extremely weak, for example the tops of my feet and ankles in particular poses.
+- Sometimes, it feels like the pressure on my bones is intense in those areas, and I back off the pose due to the feeling.
+- In 2024 and 2025, I will have three minor fractures of a rib which had fractured previously in 2003.
+- This happens while doing yoga twice, and while coughing once.
+
 ## Tweets
 
 - Here is a selection of tweets from this period which relate to everything that has been happening. 
