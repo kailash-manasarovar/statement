@@ -351,6 +351,10 @@
 - Sometimes, it feels like the pressure on my bones is intense in those areas, and I back off the pose due to the feeling.
 - In 2024 and 2025, I will have three minor fractures of a rib which had fractured previously in 2003.
 - This happens while doing yoga twice, and while coughing once.
+- I constantly look up some very personal symptoms I'm having that I believe are connected to kidney problems.
+- I do not mention these symptoms to anyone else.
+- Teachers and staff at the conservatory will refer to these symptoms in horrible ways.
+- They could only know about these symptoms if everything I do online, in private, is being monitored.
 
 ## Tweets
 
