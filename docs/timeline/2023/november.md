@@ -360,7 +360,9 @@
 
 ### @1frgvn
 
-- Domingo's dad is (apparently) a car dealer, he told me in 2014, so I'm literally unable to get my car fixed anywhere without possible ridiculousness occurring. Certainly in [September at the garage in Javea](september.md#problem-with-my-car) I wait all day long, and they do nothing at all and charge me a bunch for it. I'm starting to feel the same way about everything else I need done too.
+- Domingo's dad is (apparently) a car dealer, he told me in 2014, so I'm literally unable to get my car fixed anywhere without possible ridiculousness occurring. 
+- Certainly in [September at the garage in Javea](september.md#problem-with-my-car) I wait all day long, and they do nothing at all and charge me a bunch for it. 
+- I'm starting to feel the same way about everything else I need done too.
 
 [![Haberdashery](../../content/tweets/november-2023/haberdashery.png)](https://x.com/1FRGVN/status/1730335228047056929)
 
@@ -368,28 +370,37 @@
 
 [![Hanuman temple](../../content/tweets/november-2023/hanuman-temple.png)](https://x.com/1FRGVN/status/1730355508186386608)
 
-- I realize my cousin Leah is also stalking me. Leah has been honey-trapped by British criminal gangs since around 2004. She is extremely vulnerable. I wonder why she is stalking me, and who told her about me. Remember, at this time I'm still no contact with my family, so I'm believed to be incredibly vulnerable to criminals who like to target wealthy and isolated women.
+- I realize my cousin Leah is also stalking me. 
+- Leah has been honey-trapped by British criminal gangs since around 2004.
+- She is extremely vulnerable.
+- I wonder why she is stalking me, and who told her about me. 
+- Remember, at this time I still have no contact with my family, so I'm believed to be incredibly vulnerable to criminals who like to target wealthy and isolated women.
 
 [![Leah](../../content/tweets/november-2023/leah.png)](https://x.com/1FRGVN/status/1726718042657501286)
 
-- I talk a lot about forgiveness on X. I believe that the `@g_lamarche` account is likely to be Domingo, or close to him, as it was coming up on Google search for `@jctot19`.
+- I talk a lot about forgiveness on X. 
+- I believe that the `@g_lamarche` account is likely to be Domingo, or close to him, as it was coming up on Google search for `@jctot19` and I believe this account warns and advises me about things going on at the conservatory and elsewhere.
 
 [![Forgiveness](../../content/tweets/november-2023/forgiveness.png)](https://x.com/1FRGVN/status/1726728150854341050)
 
-- Note the `@g_lamarche` account has "manada" as location. *Manada* is famously what the Spanish called the gang-rape team that attacked the lone woman at the Pamplona fiestas.
+- Note the `@g_lamarche` account has "manada" as location. 
+- *Manada* is famously what the Spanish called the gang-rape team that attacked the lone woman at the Pamplona fiestas.
 - I use the word in my [speech in Madrid](../2024/may.md#my-speech).
 
 [![Manada](../../content/tweets/november-2023/manada.png)](https://x.com/g_lamarche)
 
-- I'm so nervous at the conservatory, I'm convinced they're planning another attack. I tweet about my concerns. Carrie 2 is obviously a reference to [Carrie 1 on 12th June](june.md#monday-12th-june-2023).
+- I'm so nervous at the conservatory, I'm convinced they're planning another attack. 
+- I tweet about my concerns. 
+- Carrie 2 is obviously a reference to [Carrie 1 on 12th June](june.md#monday-12th-june-2023).
 
 [![Carrie 2 in rehearsal](../../content/tweets/november-2023/concerned-carrie-2-is-in-rehearsal.png)](https://x.com/1FRGVN/status/1729784281482907991)
 
-- I tweet my concerns about having a heart attack very early in the morning. This is evidence I'm up and worried, but I also wonder if tweets like these signpost the times criminals entered my flat while I was sedated.
+- I tweet my concerns about having a heart attack very early in the morning. 
+- This is evidence I'm up and worried, but I also wonder if tweets like these signpost the times that criminals entered my flat while I was sedated.
 
 [![Heart attack](../../content/tweets/november-2023/heart-attack.png)](https://x.com/1FRGVN/status/1729385938495602851)
 
-- The tweet just before the one about the heart attack is also curiously early.
+- Many of these tweets are also curiously early.
 - Waking up with music in my head is something that never happens to me outside of when I lived at my apartment in Carrer Furs. 
 
 [![Waking up with music in my head](../../content/tweets/november-2023/tweet-before-heart-attack.png)](https://x.com/1FRGVN/status/1729391103089012935)
@@ -402,11 +413,13 @@
 
 [![List owner](../../content/tweets/november-2023/list-owner.png)](https://x.com/1FRGVN/status/1728892631047168442)
 
-- I posted a number of chapters from my books this month. In response, Google search for `@jctot19` showed multiple pictures of writing, and written words, sheets of typed pages, things like that.
+- I post a number of chapters from my books this month. 
+- In response, Google search for `@jctot19` showed multiple pictures of writing, and written words, sheets of typed pages, things like that.
 
 [![Book excerpts](../../content/tweets/november-2023/book-excerpts.png)](https://x.com/1FRGVN/status/1728615340392042916)
 
-- I often refer to being naughty in tweets. I'm not actually sure what I even meant. Could it have been something subconscious?
+- I often refer to being naughty in tweets. I'm not actually sure what I even meant.
+- Could it have been something subconscious?
 
 [![Naughty](../../content/tweets/november-2023/naughtiness.png)](https://x.com/1FRGVN/status/1728483939768258926)
 
@@ -498,11 +511,31 @@
 
 [![Spooky Elon](../../content/tweets/november-2023/spooky-elon.png)](https://x.com/1FRGVN/status/1720741073004245379)
 
-### @JackChardwood
+### @JackChardwood 
 
-- I post about Elon here too.
-- https://x.com/JackChardwood/status/1727795442602201265 -> not sure what was said, interesting account name which we was changed and I can't remember what it was but it was very relevant.
-- A lot of the accounts I'm replying to have disappeared on here.
-- https://x.com/JackChardwood/status/1723360465667989603
-- https://x.com/JackChardwood/status/1721312021520511096 -> an appeal to the engineer.
-- https://x.com/JackChardwood/status/1720741418098889039
+- I post about Elon's staggering synchronicity here too.
+
+[![Elon's violinist](../../content/tweets/november-2023/elon-violins.png)](https://x.com/JackChardwood/status/1720722237404164326)
+
+- This reply was in reference to "ghost dev", the name I used for to address the professional hacker directly.
+- It's not clear what was said.
+- The account name was relevant previously, but looks like it has changed now to something non-relevant to our story.
+
+[![Ghost dev](../../content/tweets/november-2023/reference-to-ghost-dev.png)](https://x.com/JackChardwood/status/1727795442602201265)
+
+- I get really tired of being followed by porn bots.
+
+[![Porn bots](../../content/tweets/november-2023/porn-bots.png)](https://x.com/JackChardwood/status/1723360465667989603)
+
+- A request to the engineer after my crypto app died again on me and I thought it was them.
+- The same thing happened in [August](august.md#the-dev-they-hired-hacks-my-app).
+
+[![Raising a ticket](../../content/tweets/november-2023/raising-a-ticket.png)](https://x.com/JackChardwood/status/1721312021520511096)
+
+- I continue to tweet about the forgivenet and how I believe these hackers could give up their evil schemes and start working for me instead.
+
+[![forgivenet gets an AI remorse-inciting team](../../content/tweets/november-2023/convinced-of-the-forgivenets-success.png)](https://x.com/JackChardwood/status/1720741418098889039)
+
+- Perhaps March 2024 was a bit early, or maybe just blocked by the handmaiden-leader, Paqui Fornet's idiocy.
+- Maybe June 2026 for the wedding, like I mentioned before?
+- The stars may well be aligned at that time.

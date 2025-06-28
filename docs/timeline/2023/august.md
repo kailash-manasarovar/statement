@@ -712,6 +712,17 @@
 - First, when I go public a couple of days later, I get 1000s of new followers who will now hear what's been going on for me, although concerted efforts are made to silence and discredit me at that time.
 - Second, my Tibetan monk friend will come to visit me when I tell him how upset I am.
 
+## The dev they hired hacks my app
+
+- My crypto app fails early in the month.
+- I'm convinced the hacker is involved and say so online somehow - maybe in a short written note that I delete later.
+
+[![the forgivenet breaks](../../content/tweets/august-comms/dev-broke-the-forgivenet.png)](https://x.com/JackChardwood/status/1688474869732651008)
+
+- When I fix it myself (it's a small UI issue), I'm embarrassed and say sorry.
+- The hacker responds satirically in a fake account profile message. I don't remember what he said.
+- When I remember things like this in June 2025, I realized how much I knew and for how long, but how it was all so unbelievable to me even while it was happening!
+
 ## More evidence from this period
 
 - Download my [laptop browser history](../../content/documents/evidence/history.csv) from this period.
