@@ -382,17 +382,6 @@
 
 [![Leah](../../content/tweets/november-2023/leah.png)](https://x.com/1FRGVN/status/1726718042657501286)
 
-- I talk a lot about forgiveness on X. 
-- I believe that the `@g_lamarche` account is likely to be Domingo, or close to him, as it was coming up on Google search for `@jctot19` and I believe this account warns and advises me about things going on at the conservatory and elsewhere.
-
-[![Forgiveness](../../content/tweets/november-2023/forgiveness.png)](https://x.com/1FRGVN/status/1726728150854341050)
-
-- Note the `@g_lamarche` account has "manada" as location. 
-- *Manada* is famously what the Spanish called the gang-rape team that attacked the lone woman at the Pamplona fiestas.
-- I use the word in my [speech in Madrid](../2024/may.md#my-speech).
-
-[![Manada](../../content/tweets/november-2023/manada.png)](https://x.com/g_lamarche)
-
 - I'm so nervous at the conservatory, I'm convinced they're planning another attack. 
 - I tweet about my concerns. 
 - Carrie 2 is obviously a reference to [Carrie 1 on 12th June](june.md#monday-12th-june-2023).
@@ -514,6 +503,21 @@
 - He must have mentioned violins before as this is pre-the-tweet.
 
 [![Spooky Elon](../../content/tweets/november-2023/spooky-elon.png)](https://x.com/1FRGVN/status/1720741073004245379)
+
+#### Mary G Lamarche account
+
+- I talk a lot about forgiveness on X. 
+- I believe that the `@g_lamarche` account is likely to be Domingo, or close to him, as it was coming up on Google search for `@jctot19`.
+- Lamarche is Spanish pun reference to raving.
+- I believe this account sometimes warns and advises me about things going on at the conservatory and elsewhere.
+
+[![Forgiveness](../../content/tweets/november-2023/forgiveness.png)](https://x.com/1FRGVN/status/1726728150854341050)
+
+- Note the `@g_lamarche` account has "manada" as location. 
+- *Manada* is famously what the Spanish called the gang-rape team that attacked the lone woman at the Pamplona fiestas.
+- I use the word in my [speech in Madrid](../2024/may.md#my-speech).
+
+[![Manada](../../content/tweets/november-2023/manada.png)](https://x.com/g_lamarche)
 
 ### @JackChardwood 
 

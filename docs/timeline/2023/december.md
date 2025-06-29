@@ -13,7 +13,7 @@
 !!! danger "UPDATE: These two men, in fact, look completely different!"
     - This is very difficult to figure out; I believe due to being continually drugged and sedated in my home without my knowledge.
     - It's curious that I thought the man I saw outside the tunnel was the trumpet teacher's twin brother.
-    - I believed this for over a year, and it was constantly repeated and reaffirmed online.
+    - I believed this for over a year, and it was constantly repeated and reaffirmed to me online by cyber-stalkers.
     - When I got my mind back, from around March 2025, and after I looked over some of the photos online that I posted in [protagonists](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero), I recognize *at least* two men of interest, but there may be more.
     - I talk about the "other trumpet teacher" in [the protagonists section](../../crimes/protagonists.md#the-other-trumpet-teacher).
     - I would recognize these men as "the trumpet teacher" who came to teach classes on a Monday night at Dénia conservatory between 28th November 2022 and 12th June 2023.
@@ -24,17 +24,17 @@
     ![tt4](../../content/images/hornero/hh4.png)
 
     - Looking at these again, it's possible the first two are the same person.
-    - Yet none of these pics are of the man I would see [driving past me](june.md#sunday-11th-june), or lurking around Dénia in [his or Ana's blue car](october.md#the-trumpet-teacher-drives-past-me-in-his-car).
+    - Yet none of these pics are of the man I would see [driving past me](june.md#sunday-11th-june), or lurking around Dénia in [his or Ana Requena's blue car](october.md#the-trumpet-teacher-drives-past-me-in-his-car).
 
 - I run up behind the man and cross the road about a metre before I reach him. 
 - He flinches.
-- His body size and shape is *not* that of the bigger guy I'm more familiar with who I see around Dénia, [the thick set man I saw in my bed earlier in the year](april.md#dreaming-of-the-trumpet-teacher) who may have also been with [Patricia at Christmas in 2021](../2021/december.md#christmas).
+- His body size and shape is *not* that of the bigger guy I'm more familiar with who I see around Dénia; [the thick set man I saw in my bed earlier in the year](april.md#dreaming-of-the-trumpet-teacher) who may have also been with [Patricia at Christmas in 2021](../2021/december.md#christmas).
 - He's slighter in size and shape, and his hands and fingers are delicate, artistic.
 - Later that evening on Twitter, a random stalker replies to one of my posts about something completely unrelated.
 
 [![Rotten brother](../../content/tweets/rotten-brother.png)](https://x.com/1FRGVN/status/1730310006132650141)
 
-- The [Mary G Lamarche](november.md#1frgvn) account had been following me since [I went public](september.md#going-public-on-twitter).
+- The [Mary G Lamarche](november.md#mary-g-lamarche-account) account had been following me since [I went public](september.md#going-public-on-twitter).
 - The profile pic had very surprisingly come up on the `@jctot19` Google search results also.
 - At the time, I believe it is a hacker (honey trap, gang-stalker) account, and possibly Domingo or his sister are behind it.
 - Now I believe it is more likely Hazel Smith's team as, again, the English is too good for Spanish-speakers, and the account mentions things like Avon, which surely only Brits or Americans would know about.
