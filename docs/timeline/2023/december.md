@@ -15,8 +15,8 @@
     - It's curious that I thought the man I saw outside the tunnel was the trumpet teacher's twin brother.
     - I believed this for over a year, and it was constantly repeated and reaffirmed online.
     - When I got my mind back, from around March 2025, and after I looked over some of the photos online that I posted in [protagonists](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero), I recognize *at least* two men of interest, but there may be more.
-    - I talk about this in [the protagonists section](../../crimes/protagonists.md#the-other-trumpet-teacher).
-    - TI would recognize these men as "the trumpet teacher" who came to teach classes on a Monday night at Dénia conservatory between 28th November 2022 and 12th June 2023.
+    - I talk about the "other trumpet teacher" in [the protagonists section](../../crimes/protagonists.md#the-other-trumpet-teacher).
+    - I would recognize these men as "the trumpet teacher" who came to teach classes on a Monday night at Dénia conservatory between 28th November 2022 and 12th June 2023.
     
     ![tt1](../../content/images/hornero/hh1.png)
     ![tt2](../../content/images/hornero/hh2.png)
@@ -37,12 +37,12 @@
 - The [Mary G Lamarche](november.md#1frgvn) account had been following me since [I went public](september.md#going-public-on-twitter).
 - The profile pic had very surprisingly come up on the `@jctot19` Google search results also.
 - At the time, I believe it is a hacker (honey trap, gang-stalker) account, and possibly Domingo or his sister are behind it.
-- Now I believe it is more likely Hazel Smith's team as, again, the English is too good for Spanish-speakers, and the account mentions things like Avon, which surely only Brits or Americans would know about?
+- Now I believe it is more likely Hazel Smith's team as, again, the English is too good for Spanish-speakers, and the account mentions things like Avon, which surely only Brits or Americans would know about.
 - I wonder if they wheeled the Valencia-based trumpet teacher out because I found the Dénia version so utterly abhorrent, and [I had *fallen in love* with the Valencia-based version](april.md#dreaming-of-the-trumpet-teacher), and so they needed to remind me of those feelings to keep me hooked in?
 - Could teachers and staff at the conservatory of Dénia be this sick in the head?
 - Have they been doing the same to countless minors for decades?
 - Was the Dénia version of the trumpet teacher [Paco Sendra](../early-years/2007.md#hazel-smith), Hazel Smith's right-hand-man?
-- Let's hope Paco doesn't not play the trumpet, and Antonio is an Aries.
+- Let's hope Paco does not play the trumpet, and Antonio is an Aries.
 
 ## Muscle men outside the tunnel
 
