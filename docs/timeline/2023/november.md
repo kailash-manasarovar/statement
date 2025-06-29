@@ -507,8 +507,8 @@
 #### Mary G Lamarche account
 
 - I talk a lot about forgiveness on X. 
-- I believe that the `@g_lamarche` account is likely to be Domingo, or close to him, as it was coming up on Google search for `@jctot19`.
-- Lamarche is Spanish pun reference to raving.
+- I believe that the `@g_lamarche` account is likely to be Domingo, or close to him, as it was coming up on Google search for `@jctot19`; I believed as a warning.
+- Lamarche is a Spanish pun with a reference to raving.
 - I believe this account sometimes warns and advises me about things going on at the conservatory and elsewhere.
 
 [![Forgiveness](../../content/tweets/november-2023/forgiveness.png)](https://x.com/1FRGVN/status/1726728150854341050)
