@@ -35,10 +35,10 @@
 [![Rotten brother](../../content/tweets/rotten-brother.png)](https://x.com/1FRGVN/status/1730310006132650141)
 
 - The [Mary G Lamarche](november.md#mary-g-lamarche-account) account had been following me since [I went public](september.md#going-public-on-twitter).
-- The profile pic had very surprisingly come up on the `@jctot19` Google search results also.
+- The profile pic had very surprisingly come up on `@jctot19` Google search results also.
 - At the time, I believe it is a hacker (honey trap, gang-stalker) account, and possibly Domingo or his sister are behind it.
 - Now I believe it is more likely Hazel Smith's team as, again, the English is too good for Spanish-speakers, and the account mentions things like Avon, which surely only Brits or Americans would know about.
-- I wonder if they wheeled the Valencia-based trumpet teacher out because I found the Dénia version so utterly abhorrent, and [I had *fallen in love* with the Valencia-based version](april.md#dreaming-of-the-trumpet-teacher), and so they needed to remind me of those feelings to keep me hooked in?
+- I wonder if they wheeled the Valencia-based trumpet teacher out because I found the Dénia version so utterly abhorrent, and [I had *fallen in love* with the Valencia-based version](march.md#dreaming-of-the-trumpet-teacher), and so they needed to remind me of those feelings to retrigger the emotions and keep me hooked in?
 - Could teachers and staff at the conservatory of Dénia be this sick in the head?
 - Have they been doing the same to countless minors for decades?
 - Was the Dénia version of the trumpet teacher [Paco Sendra](../early-years/2007.md#hazel-smith), Hazel Smith's right-hand-man?
