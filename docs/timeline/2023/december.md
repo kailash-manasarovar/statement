@@ -1,14 +1,44 @@
+# December 2023
+
 ## The trumpet teacher has a brother
 
-- I'm walking through the tunnel back home after class one evening as usual. As I'm emerging from the tunnel, I see a man who looks *exactly* like the trumpet teacher walking along the road. He has timed it so I will see him.
-- This man is clearly the trumpet teacher's brother. The likeness is so strong, they could be twins.
-- I run up behind him and cross the road about a metre before I reach him. He flinches.
-- Later that evening on Twitter, I see stalker posts talking about how "my brother always steals everything from me", and I reply "rotten bugger": https://x.com/1FRGVN/status/1730310006132650141
+- I'm walking through the tunnel back home after class one evening as usual. 
+- As I emerge from the tunnel, I see a man who looks *exactly* like the trumpet teacher walking along the road.
+- They have timed it precisely so that I will see him.
+- This man is clearly the trumpet teacher's brother.
+- The likeness is so strong, they could be twins.
 
-![Rotten brother](../../content/tweets/rotten-brother.png)
+!!! danger "UPDATE: These two men, in fact, look completely different!"
+    - This is very difficult to figure out.
+    - It's curious that I thought the man I saw outside the tunnel was the trumpet teacher's twin brother.
+    - I believed this for over a year.
+    - When I got my mind back, from around March 2025, and after I looked over some of the photos online that I posted in [protagonists](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero), I recognize *at least* two men of interest, but there may be more.
+    - I talk about this in [the protagonists section](../../crimes/protagonists.md#the-other-trumpet-teacher).
+    - I realize now there are at least three men I would recognize as "the trumpet teacher" who came to teach classes on a Monday night at Dénia conservatory between 28th November 2022 and 12th June 2023.
+    
+    ![tt1](../../content/images/hornero/hh1.png)
+    ![tt2](../../content/images/hornero/hh2.png)
+    ![tt3](../../content/images/hornero/hh3.png)
+    ![tt4](../../content/images/hornero/hh4.png)
 
-- The Mary G Lamarche account had been signalled on Google search results previously. I believe it is a hacker (honey trap, gang-stalker) account and possibly Domingo or his sister are behind it.
-- I guess I'm supposed to believe it is the trumpet teacher.
+    - Looking at these again, it's possible the first two are the same person.
+    - Yet none of these pics are of the man I would see [driving past me](june.md#sunday-11th-june), or lurking around Dénia in [his or Ana's blue car](october.md#the-trumpet-teacher-drives-past-me-in-his-car).
+
+- I run up behind the man and cross the road about a metre before I reach him. 
+- He flinches.
+- His body size and shape is *not* that of the bigger guy I'm more familiar with who I see around Dénia. He's slighter.
+- Later that evening on Twitter, I see a stalker post about how "my brother always steals everything from me", and I reply "rotten bugger".
+
+[![Rotten brother](../../content/tweets/rotten-brother.png)](https://x.com/1FRGVN/status/1730310006132650141)
+
+- The [Mary G Lamarche](november.md#1frgvn) account had been following me since [I went public](september.md#going-public-on-twitter).
+- The profile pic had very surprisingly come up on the `@jctot19` Google search results also.
+- At the time, I believe it is a hacker (honey trap, gang-stalker) account, and possibly Domingo or his sister are behind it.
+- Now I believe it is more likely Hazel Smith's team as, again, the English is too good for Spanish-speakers, and the account mentions things like Avon, which surely only Brits or Americans would know about?
+- I wonder if they wheeled the Valencia-based trumpet teacher out because I found the Dénia version so utterly abhorrent, and [I had *fallen in love* with the Valencia-based version](april.md#dreaming-of-the-trumpet-teacher), and so they needed to remind me of those feelings to keep me hooked in?
+- Could teachers and staff at the conservatory of Dénia be this sick in the head?
+- Have they been doing the same to countless minors for decades?
+- Was the Dénia version of the trumpet teacher [Paco Sendra](../early-years/2007.md#hazel-smith), Hazel Smith's right-hand-man?
 
 ## Muscle men outside the tunnel
 
