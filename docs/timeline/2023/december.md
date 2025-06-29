@@ -10,7 +10,7 @@
 
 ![TT in the tunnel](../../content/images/tt-in-the-tunnel.png)
 
-!!! danger "UPDATE: These two men, in fact, look completely different!"
+!!! danger "UPDATE: The two men, in fact, look completely different!"
     - This is very difficult to figure out; I believe due to being continually drugged and sedated in my home without my knowledge.
     - It's curious that I thought the man I saw outside the tunnel was the trumpet teacher's twin brother.
     - I believed this for over a year, and it was constantly repeated and reaffirmed to me online by cyber-stalkers, although I'm certain they expected me to think it was the *one and only* trumpet teacher.
