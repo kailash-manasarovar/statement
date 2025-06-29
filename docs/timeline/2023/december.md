@@ -2,14 +2,16 @@
 
 ## The trumpet teacher has a brother
 
-- I'm walking through the tunnel back home after class one evening as usual. 
+- I'm walking through the tunnel back home after class at the conservatory one evening as usual. 
 - As I emerge from the tunnel, I see a man who looks *exactly* like the trumpet teacher walking along the road.
 - They have timed it precisely so that I will see him.
 - This man is clearly the trumpet teacher's brother.
 - The likeness is so strong, they could be twins.
 
+![TT in the tunnel](../../content/images/tt-in-the-tunnel.png)
+
 !!! danger "UPDATE: These two men, in fact, look completely different!"
-    - This is very difficult to figure out.
+    - This is very difficult to figure out; I believe due to being continually drugged and sedated in my home without my knowledge.
     - It's curious that I thought the man I saw outside the tunnel was the trumpet teacher's twin brother.
     - I believed this for over a year.
     - When I got my mind back, from around March 2025, and after I looked over some of the photos online that I posted in [protagonists](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero), I recognize *at least* two men of interest, but there may be more.
@@ -39,6 +41,7 @@
 - Could teachers and staff at the conservatory of Dénia be this sick in the head?
 - Have they been doing the same to countless minors for decades?
 - Was the Dénia version of the trumpet teacher [Paco Sendra](../early-years/2007.md#hazel-smith), Hazel Smith's right-hand-man?
+- Let's hope Paco doesn't not play the trumpet, and Antonio is an Aries.
 
 ## Muscle men outside the tunnel
 
