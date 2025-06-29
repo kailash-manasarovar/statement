@@ -13,10 +13,10 @@
 !!! danger "UPDATE: These two men, in fact, look completely different!"
     - This is very difficult to figure out; I believe due to being continually drugged and sedated in my home without my knowledge.
     - It's curious that I thought the man I saw outside the tunnel was the trumpet teacher's twin brother.
-    - I believed this for over a year.
+    - I believed this for over a year, and it was constantly repeated and reaffirmed online.
     - When I got my mind back, from around March 2025, and after I looked over some of the photos online that I posted in [protagonists](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero), I recognize *at least* two men of interest, but there may be more.
     - I talk about this in [the protagonists section](../../crimes/protagonists.md#the-other-trumpet-teacher).
-    - I realize now there are at least three men I would recognize as "the trumpet teacher" who came to teach classes on a Monday night at Dénia conservatory between 28th November 2022 and 12th June 2023.
+    - TI would recognize these men as "the trumpet teacher" who came to teach classes on a Monday night at Dénia conservatory between 28th November 2022 and 12th June 2023.
     
     ![tt1](../../content/images/hornero/hh1.png)
     ![tt2](../../content/images/hornero/hh2.png)
@@ -30,7 +30,7 @@
 - He flinches.
 - His body size and shape is *not* that of the bigger guy I'm more familiar with who I see around Dénia.
 - He's slighter in size and shape, and his hands and fingers are delicate, artistic.
-- Later that evening on Twitter, I see a stalker post about how "my brother always steals everything from me", and I reply "rotten bugger".
+- Later that evening on Twitter, a random stalker replies to one of my posts about something completely unrelated.
 
 [![Rotten brother](../../content/tweets/rotten-brother.png)](https://x.com/1FRGVN/status/1730310006132650141)
 
