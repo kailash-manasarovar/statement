@@ -28,7 +28,8 @@
 
 - I run up behind the man and cross the road about a metre before I reach him. 
 - He flinches.
-- His body size and shape is *not* that of the bigger guy I'm more familiar with who I see around Dénia. He's slighter.
+- His body size and shape is *not* that of the bigger guy I'm more familiar with who I see around Dénia.
+- He's slighter in size and shape, and his hands and fingers are delicate, artistic.
 - Later that evening on Twitter, I see a stalker post about how "my brother always steals everything from me", and I reply "rotten bugger".
 
 [![Rotten brother](../../content/tweets/rotten-brother.png)](https://x.com/1FRGVN/status/1730310006132650141)
