@@ -1,5 +1,13 @@
 # June 2022
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Walking and health
 
 - I go walking every weekend; with the English ladies on Saturdays and then on Sundays I might go for a walk on my own.

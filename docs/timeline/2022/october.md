@@ -1,5 +1,13 @@
 # October 2022
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Sam shares some files with me
 
 - [Samuel](september.md#harmony), in a friendly and helpful manner, shares some files with me regarding the harmony class homework via email.
