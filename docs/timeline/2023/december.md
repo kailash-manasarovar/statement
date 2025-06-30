@@ -45,9 +45,9 @@
 - Was the Dénia version of the trumpet teacher [Paco Sendra](../early-years/2007.md#hazel-smith), Hazel Smith's right-hand-man?
 - Let's hope Paco does not play the trumpet, and that Antonio is an Aries.
 
-## Muscle men outside the tunnel
+## Muscle-men outside the tunnel
 
-- Another evening I'm walking home from the conservatory.
+- On another evening, I'm walking home from the conservatory.
 - As I approach the tunnel at Plaza de la Constitución, a couple of muscle men approach me.
 
 ![Muscle fools](../../content/images/muscle-dickheads.png)
@@ -56,23 +56,51 @@
 - They come up to me, flexing their muscles, grinning inanely.
 - It's beyond weird.
 
-## Heading to Lourdes
+## Lourdes
 
 - I spend the December Spanish bank holiday period in Lourdes, France (6-8th December).
-- I leave on the 5th December.
-- A blue car like the trumpet teacher's (apparent) car drives beside me a short while on the A23 with a man built like the trumpet teacher driving and a woman built like Ana in the passenger seat.
 
-## Picture of me in my pants on Google search
+### Driving to Zaragoza
+
+- I leave on the evening of the 5th December to stay overnight in Zaragoza and continue the drive the following morning.
+- A blue car like the trumpet teacher's (apparent) car drives beside me a short while on the A23.
+- A man who looks like the trumpet teacher is driving and a woman who looks like Ana is in the passenger seat, with her head down.
+- This was maybe the first instance I noticed the conspiracy going beyond the borders of the Marina Alta.
+- I would quickly learn that the reach of the stalkers really has no international boundary as I was even terrorized when I escaped to Bangkok in November 2025.
+
+### Sally
+
+- Sally is in Lourdes for these few days also.
+- Is she checking up on me? I suspect so.
+- Together we meet a strange man and his landlady at the Carrefour restaurant on Friday 8th December, for lunch.
+
+![Carrefour cafe](../../content/images/carrefour-cafe.png)
+
+- I know it must have been the 8th because this will have been the only day the Carrefour is open and busy.
+- We stay a long time and drink wine.
+- We also take a drink from the strange man who says he works in security for the sanctuary.
+- I tell everyone about [Ana in the car with no driver](november.md#ana-in-the-blue-van).
+- I ask everyone if it means the trumpet teacher is in love with me?
+- They all say, yes, it could be.
+- Sally tells me she thinks she is being poisoned by someone she knows.
+- I don't really know what to tell her about this.
+- This is the first time she tells me there are a lot of devil worshippers at the sanctuary.
+- I'm not clear about why she would say something like this. 
+- I tell her about the men dressed as women I have encountered over the years at the baths and serving for the Hospitalité de Lourdes, the organization of which we are both members.
+- She does not respond.
+
+### Picture of me in my pants on Google search
 
 - While I'm in Lourdes, I do the usual Google searches of `@1frgvn` and `@jctot19`.
-- On my results, there is a picture of a woman in her underwear.
+- On my results, out of the blue, there is a picture of a woman in her underwear.
 
 ![Me in my underwear](../../content/images/me-in-my-pants.JPG)
 
 - I'm shocked as this was the picture I took in August when I was trying to see [how big my bum was](august.md#i-take-a-picture-of-myself-in-my-pants).
 - It looks doctored a little, the top half is not me, but the bottom half does look like me.
-- I know immediately that, without any doubt, they have sound and video clips of me masturbating.
-- I show my friend in Lourdes this search result directly from the Google search function on my mobile.
+- It's a tweet from a woman I follow, but I never saw the picture before this moment.
+- I know immediately that, without any doubt, hackers have sound and video clips of me masturbating.
+- I show my friend Sally in Lourdes this search result directly from the Google search function on my mobile.
 - They will remove this result from Google search the day after I post a screenshot of it on Twitter: https://x.com/1FRGVN/status/1748728422262546895.
 
 ## Meeting Alessandra
