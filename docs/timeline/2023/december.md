@@ -58,7 +58,11 @@
 
 ## Lourdes
 
-- I spend the December Spanish bank holiday period in Lourdes, France (6-8th December).
+- I spend the December Spanish bank holiday period (6-8th December) in Lourdes, France.
+- The 8th December is a special day for Marians.
+- Remember I first saw the [apartment in Carrer Furs advertised on the 8th December 2021](../2021/december.md#too-good-to-be-on-the-8th-december).
+- Not just too good to be true, but also, for me, divine providence.
+- The horrible truth was years away at that time; except, perhaps it always was divine providence.
 
 ### Driving to Zaragoza
 
