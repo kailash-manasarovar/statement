@@ -219,8 +219,9 @@
 ## Twitter
 
 - It was around now that the hackers started to suggest they had access to the rape porn filmed of me in 1989.
-- They may have been suggesting it before (pictures of tables on Google search) but it had not yet registered.
-- They posted pictures of a young girl's body that looked like me.
+- They had already [flashed some of it up once before](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x), but it took a while to register.
+- I saw, again, pictures of a young girl's naked body that looked like me. This time from behind me looking down.
+- I will see this again more clearly in [January 2024](../2024/january.md#i-see-my-naked-16-year-old-body-on-x-again).
 - They also posted silhouettes of the same thing, with brutal porn suggestions.
 
 These are a selection of tweets from this period which relate to everything that has been happening. Most of them have been translated, a lot, so I assume the Spanish are reading them.
