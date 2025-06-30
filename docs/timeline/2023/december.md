@@ -47,10 +47,14 @@
 
 ## Muscle men outside the tunnel
 
-- Another time I'm walking home from the conservatory, a couple of muscle men approach me from out of the tunnel.
+- Another evening I'm walking home from the conservatory.
+- As I approach the tunnel at Plaza de la Constitución, a couple of muscle men approach me.
+
+![Muscle fools](../../content/images/muscle-dickheads.png)
+
 - It's cold but they are wearing tight t-shirts.
-- They come up to me, flexing their muscles, and they are grinning at me.
-- It's weird.
+- They come up to me, flexing their muscles, grinning inanely.
+- It's beyond weird.
 
 ## Heading to Lourdes
 
