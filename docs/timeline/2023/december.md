@@ -64,13 +64,18 @@
 - Not just too good to be true, but also, for me, divine providence.
 - The horrible truth was years away at that time; except, perhaps it always was divine providence.
 
-### Driving to Zaragoza
+### The blue car on the road to Zaragoza
 
 - I leave on the evening of the 5th December to stay overnight in Zaragoza and continue the drive the following morning.
-- A blue car like the trumpet teacher's (apparent) car drives beside me a short while on the A23.
-- A man who looks like the trumpet teacher is driving and a woman who looks like Ana is in the passenger seat, with her head down.
-- This was maybe the first instance I noticed the conspiracy going beyond the borders of the Marina Alta.
-- I would quickly learn that the reach of the stalkers really has no international boundary as I was even terrorized when I escaped to Bangkok in November 2025.
+- On the Tuesday night I'm driving along the A23, a blue car like the trumpet teacher's (apparent) car drives beside me for a short while on the A23 just outside Castellon.
+- A man who looks like the trumpet teacher is driving, and a woman who looks like Ana Requena is in the passenger seat with her head down.
+
+![Blue car again](../../content/images/the-blue-car.png)
+
+- This was possibly the first time I noticed the conspiracy going beyond the borders of the Marina Alta.
+- I would quickly learn that the reach of the porn-gang stalkers has no international boundary, as I will be terrorized in Madrid over Christmas 2023, and I was even terrorized on the street when I escaped to Bangkok in November 2024.
+- International porn-gangs are really out of control now.
+- Does anyone care about the safety of children anymore, or is everyone in the world fair game nowadays?
 
 ### Sally
 
