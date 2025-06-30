@@ -74,8 +74,10 @@
 
 - This was possibly the first time I noticed the conspiracy going beyond the borders of the Marina Alta.
 - I would quickly learn that the reach of the porn-gang stalkers has no international boundary, as I will be terrorized in Madrid over Christmas 2023, and I was even terrorized on the street when I escaped to Bangkok in November 2024.
-- International porn-gangs are really out of control now.
+- International porn-gangs are really out of control. 
+- Clearly, an inevitable situation given no-one cares to look at men's sexual brutality.
 - Does anyone care about the safety of children anymore, or is everyone in the world fair game nowadays?
+- A grown-up child rape-gang star must make them really crazy; ready to give away their own souls.
 
 ### Sally
 
