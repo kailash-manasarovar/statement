@@ -70,7 +70,7 @@
 - On the Tuesday night I'm driving along the A23, a blue car like the trumpet teacher's (apparent) car drives beside me for a short while on the A23 just outside Castellon.
 - A man who looks like the trumpet teacher is driving, and a woman who looks like Ana Requena is in the passenger seat with her head down.
 
-![Blue car again](../../content/images/the-blue-car.png)
+![Blue car again](../../content/images/the-blue-car-again.png)
 
 - This was possibly the first time I noticed the conspiracy going beyond the borders of the Marina Alta.
 - I would quickly learn that the reach of the porn-gang stalkers has no international boundary, as I will be terrorized in Madrid over Christmas 2023, and I was even terrorized on the street when I escaped to Bangkok in November 2024.
