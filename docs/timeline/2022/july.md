@@ -89,7 +89,7 @@ function googleTranslateElementInit() {
 
 - At the beginning of August, Bea instructs me to change the bank account I pay my rent into.
 - I get notification of this while I'm on the boat from Portsmouth to Bilbao.
-- This was the [second of three accounts](../2021/december.md#too-good-to-be-on-the-8th-december) I would pay rent to during my stay at Carrer Furs, Dénia; spy-cam and baby-porn capital of the world.
+- This was the [second of three accounts](../2021/december.md#too-good-to-be-true-on-the-8th-december) I would pay rent to during my stay at Carrer Furs, Dénia; spy-cam and baby-porn capital of the world.
 - Some day soon, the owners of these accounts will be revealed. 
 - These are my suspicions:
     
