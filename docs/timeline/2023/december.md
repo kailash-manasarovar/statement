@@ -77,9 +77,10 @@
 - I quickly learn that the reach of the porn-gang stalkers has no international boundary, as I will be terrorized in Madrid over Christmas 2023, and I was even terrorized on the street when I escaped to Bangkok in November 2024.
 - International porn-gangs are really out of control. 
 - Clearly, an inevitable situation given no-one cares to look at men's sexual brutality.
-- Humans are hypnotized from birth to think it normal.
+- Humans are hypnotized from birth to think male sexual violence is normal.
 - But now it is so out-of-control, pedophiles being set free every week in the UK, does anyone care about the safety of children anymore, or is everyone vulnerable in the world fair game nowadays?
-- A grown-up child rape-gang star must make them really crazy; ready to give away their own souls.
+- A grown-up child rape-gang star must make them really crazy; ready to trash their own souls for millennia.
+- We are seeing evidence of this everywhere we look; men destroying the world for their boners.
 
 ### Sally
 
