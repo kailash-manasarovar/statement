@@ -8,7 +8,7 @@ function googleTranslateElementInit() {
 }
 </script>
 
-## Too good to be on the 8th December
+## Too-good-to-be-true on the 8th December
 
 - I had planned a trip to Egypt in December for Christmas but my flat in Lourdes got serious bedbugs about three weeks before I was due to leave.
 - I changed all my plans and spent most of December in Dénia instead.
