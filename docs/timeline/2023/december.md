@@ -64,7 +64,7 @@
 - Not just too good to be true, but also, for me, divine providence.
 - The horrible truth was years away at that time; except, perhaps it always was divine providence.
 
-### The blue car on the road to Zaragoza
+### Ana's blue car on the road to Zaragoza
 
 - I leave on the evening of the 5th December to stay overnight in Zaragoza and continue the drive the following morning.
 - On the Tuesday night I'm driving along the A23.
