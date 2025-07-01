@@ -116,12 +116,13 @@
 
 ![Me in my underwear](../../content/images/me-in-my-pants.JPG)
 
-- I'm shocked as this was the picture I took in August when I was trying to see [how big my bum was](august.md#i-take-a-picture-of-myself-in-my-pants).
-- It looks doctored a little, the top half is not me, but the bottom half does look like me.
-- It's a tweet from a woman I follow, but I never saw the picture before this moment.
-- I know immediately that, without any doubt, hackers have sound and video clips of me masturbating.
-- I show my friend Sally in Lourdes this search result directly from the Google search function on my mobile.
-- They will remove this result from Google search the day after I post a screenshot of it on Twitter: https://x.com/1FRGVN/status/1748728422262546895.
+- I'm shocked.
+- This was the picture I took in August when I was trying to see [how big my bum was](august.md#i-take-a-picture-of-myself-in-my-pants).
+- It looks doctored a little; the top half is not me, but the bottom half does indeed look like me.
+- It's a tweet from a woman I follow, but I never saw the picture before.
+- I know immediately that, without any doubt, hackers have sound and video clips of me [masturbating in Lourdes on Good Friday](april.md#good-friday).
+- I show my friend Sally in Lourdes this search result in person; using the Google search function on my mobile as she watches.
+- Hackers remove this result from Google search the day after I post a screenshot of it on Twitter: https://x.com/1FRGVN/status/1748728422262546895.
 
 ## Meeting Alessandra
 
