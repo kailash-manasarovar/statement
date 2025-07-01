@@ -341,7 +341,7 @@ Many of these tweets are confirmation of what has been going on.
 - Another stalker account, [BA Feldman `@AIinAmerica`](https://x.com/AIinAmerica), is worth a closer look.
 - The woman in the profile pic is new. 
 
-[![BA Feldman](../../content/images/line-up/bafeldman.png)](https://x.com/AIinAmerica)
+[![BA Feldman](../../content/images/line-up/x-profile-bafeldman.png)](https://x.com/AIinAmerica)
 
 - The account was significantly male when I was interacting with it from September 2023 through March 2024.
 - The account had been following me since [I went public in September](september.md#going-public-on-twitter).
