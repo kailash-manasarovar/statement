@@ -111,7 +111,7 @@
 
 ### Picture of me in my pants on Google search
 
-- While I'm in Lourdes, I do the usual Google searches of `@1frgvn` and `@jctot19`.
+- While I'm in Lourdes, I do the usual Google searches on `@1frgvn` and `@jctot19`.
 - On the image results, out of the blue, I see a picture of a woman in her underwear.
 
 ![Me in my underwear](../../content/images/me-in-my-pants.JPG)
@@ -125,6 +125,8 @@
 - Hackers remove this result from Google search the day after I post a screenshot of it on Twitter in January 2024.
 
 [![Screenshot of the stalker result](../../content/tweets/december-2023/manipulating-google-search.png)](https://x.com/1FRGVN/status/1748485970272419873)
+
+- I never see it in search again.
 
 ## Meeting Alessandra
 
