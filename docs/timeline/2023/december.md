@@ -112,7 +112,7 @@
 ### Picture of me in my pants on Google search
 
 - While I'm in Lourdes, I do the usual Google searches of `@1frgvn` and `@jctot19`.
-- On my results, out of the blue, there is a picture of a woman in her underwear.
+- On the image results, out of the blue, I see a picture of a woman in her underwear.
 
 ![Me in my underwear](../../content/images/me-in-my-pants.JPG)
 
