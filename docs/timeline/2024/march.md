@@ -308,7 +308,7 @@
 - They both look at me angrily: https://x.com/1FRGVN/status/1773436669007380597.
 - The choir repertoire includes a song about domestic violence which is very aggressive and unpleasant, a horrible irony.
 - That night I become extremely anxious and scared.
-- On my way home, through the tunnel, a man walks towards me grinning and blows in my face.
+- On my way home, through the tunnel, a longer-haired blond and stocky man of about 45 walks towards me grinning and blows in my face.
 
 ### Stalker activity
 
