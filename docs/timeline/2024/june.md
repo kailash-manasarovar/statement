@@ -5,6 +5,13 @@
 - An email comes round from the [Party of women](https://www.partyofwomen.org/) asking members to run for election.
 - Something tells me I should run for election in the UK and I go for it.
 
+### Transvestite nun
+
+- The night before I leave for the UK, I go for a short drink on my way back to my hotel after prayers at the grotto.
+- After a few minutes, three people walk in; two women, and a man, except the man is dressed as a nun.
+- He has five-o'clock shadow and he is talking in a squeaky high voice.
+- I'm horrified and [write to the Pope](../../content/documents/letters/Pope.pdf) about it.
+
 ## UK
 
 - I spend the rest of June in the UK running my election campaign in Finchley and Golders Green.
