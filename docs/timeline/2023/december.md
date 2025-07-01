@@ -122,7 +122,7 @@
 - It's a tweet from a woman I follow, but I never saw the picture before.
 - I know immediately that, without any doubt, hackers have sound and video clips of me [masturbating in Lourdes on Good Friday](april.md#good-friday).
 - I show my friend Sally in Lourdes this search result in person; using the Google search function on my mobile as she watches.
-- Hackers remove this result from Google search the day after I post a screenshot of it on Twitter in January.
+- Hackers remove this result from Google search the day after I post a screenshot of it on Twitter in January 2024.
 
 [![Screenshot of the stalker result](../../content/tweets/december-2023/manipulating-google-search.png)](https://x.com/1FRGVN/status/1748485970272419873)
 
