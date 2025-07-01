@@ -338,20 +338,20 @@ Many of these tweets are confirmation of what has been going on.
 
 #### BA Feldman
 
-- Another stalker account, [BA Feldman @AIinAmerica](https://x.com/AIinAmerica), is worth a closer look.
-- The woman's profile pic is new. 
+- Another stalker account, [BA Feldman `@AIinAmerica`](https://x.com/AIinAmerica), is worth a closer look.
+- The woman in the profile pic is new. 
 
 [![BA Feldman](../../content/tweets/december-2023/bafeldman.png)](https://x.com/AIinAmerica)
 
 - The account was significantly male when I was interacting with it from September 2023 through March 2024.
-- The account had been following me since [I go public in September](september.md#going-public-on-twitter).
+- The account had been following me since [I went public in September](september.md#going-public-on-twitter).
 - I flirted, a lot, with this account as I believed, a little, that the account holder was the trumpet teacher and I was happy to play along.
 - All evidence towards those sort of flirting-type interactions seems to have been deleted from the BA Feldman side.
 
 ![Flirting](../../content/tweets/december-2023/flirting-with-ba.png)
 
-- Read what's left of our interactions on search from [me to him](https://x.com/search?q=(from%3A1FRGVN)%20(to%3AAIinAmerica)%20&src=typed_query&f=live), and from [him to me](https://x.com/search?q=(to%3A1FRGVN)%20(from%3AAIinAmerica)%20&src=typed_query&f=live).
-- The interactions I had with this account were *extremely* curious, and only seem to have happened when I was feeling overwhelmed with the online stalking on certain evenings.
+- Read what's left of our interactions on the X search function from [me to him](https://x.com/search?q=(from%3A1FRGVN)%20(to%3AAIinAmerica)%20&src=typed_query&f=live), and from [him to me](https://x.com/search?q=(to%3A1FRGVN)%20(from%3AAIinAmerica)%20&src=typed_query&f=live).
+- The communication I had with this account was *extremely* curious, and only seems to have happened when I was feeling overwhelmed with the online stalking, and perhaps also after unknowing ingestion of psycho-active substances, on certain evenings.
 - For example, the account posts a message to me, then deletes it immediately.
 - I'm certain it is stalkers related to the trumpet teacher business, if not TT himself.
 - On one occasion, we are posting pictures of ourselves when we were small.
@@ -363,34 +363,35 @@ Many of these tweets are confirmation of what has been going on.
 - I have no idea why I think this because, in general, I'm not convinced about anything going on online, but the belief on this is very strong.
 - Another account called *Andrew* tag-teams with the *BA Feldman* account.
 
-![Andrew](../../content/images/line-up/andrew.png)
+[![Andrew Astral matrix](../../content/images/line-up/andrew-astral-matrix.png)](https://x.com/astralmatrix/)
 
 - They post weird replies to me that get deleted immediately, and he also posts a picture of himself when he was young.
 
 ![The young man's brother](../../content/images/line-up/andrew.png)
 
 - I'm firmly convinced these two are the trumpet teacher and his brother.
-- I remain semi-convinced, then fully convinced, and back and forward like that, for over a year. 
-- I even tell my mother about these two, and I show her the pictures in August 2024.
+- I remain semi-convinced about this, then fully convinced, and back and forward like that, for over a year. 
 - It's not at all clear why I would think this so strongly. 
-- They don't look anything like the *men* I remember coming to teach chamber music classes at the conservatory.
+- I even tell my mother about these two, and I show her the pictures in August 2024 (yes, things get so bad for me in Dénia that I believe I may be murdered and so I resume contact with my family).
+- The pics don't look anything like the *men* I remember coming to teach chamber music classes at the conservatory.
 - The two pics come up on Google search repeatedly.
 - They are still coming up on Google search today.
-- On 1st July 2025, the time of writing, the pic of the young man above *still* comes up as the **first option** in a Google search on *@1frgvn x*.
+- On 1st July 2025, the time of writing, the pic of the young man above *still* comes up as the **first option** in a Google search on *@1frgvn X*.
 
 ![BA Feldman google search](../../content/images/line-up/feldman-1-july-2025.png)
 
 - It's extraordinary.
-- I looked at the pic one time, probably on a single night between January and March 2024, and maybe replied briefly but the interaction has been deleted.
-- There is no reason at all for this entry to be the first pic in image search.
+- I looked at the pic one time, probably on a single night between January and March 2024, and maybe replied briefly but never looked at it again, and whatever interaction I had has been deleted.
+- There is no reason at all for this entry to *always* be the first result in image search.
 - Why does this pic *still* come up as the first result on search today?
-- Is this one of the main porn-gang abusers?
-- Did I see this guy as an old man for real on the [Las Marinas beach in October 2024](../2024/october.md#sunday-6th-october) when clearly teachers and staff at the conservatory of Dénia, and all their supporters, meant to do me some very serious harm, if not murder me by poison administered through the water going into my own apartment and other means police were utterly disinterested in investigating.
-- Scroll down through results on Google search images, and you soon come across the Andrew young boy pic too.
+- Is this man one of the main Dénia porn-gang abusers?
+- Did I see this guy as an old man for real on the [Las Marinas beach in October 2024](../2024/october.md#sunday-6th-october) when teachers and staff at the conservatory of Dénia, and all their supporters, meant to do me some very serious harm, if not murder me by poison administered through the water going into my own apartment and/or by other means that police were utterly disinterested in investigating?
+- Scroll down through results on Google search images for *@1frgvn X*, and you soon come across the Andrew pic too.
 
 ![Andrew Google search](../../content/images/line-up/andrew-1-july-2025.png)
 
-- Did I see this person as an adult coming out of the tunnel, grinning, to blow something in my face on [Wednesday 13th March 2024](../2024/march.md#choir-class) after choir class.
+- Did I see this person as an adult coming out of the tunnel, grinning, to blow something in my face on [Wednesday 13th March 2024](../2024/march.md#choir-class) after choir class?
+- Or are these fake accounts on my side somehow; drip-feeding me the information that I need to bring down the porn gangs?
 
 ### @JackChardwood
 
