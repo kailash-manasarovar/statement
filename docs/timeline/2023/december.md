@@ -106,7 +106,7 @@
 - I don't know how to respond.
 - This is the first time she tells me there are a lot of devil worshippers at the sanctuary.
 - I'm not clear about why she would say something like this either.
-- I tell her about the men dressed as women I have encountered over the years at the baths and serving for the Hospitalité de Lourdes, the organization of which we are both members.
+- I tell her about the [men dressed as women I have encountered over the years at the baths](../2024/june.md#lourdes) and serving for the Hospitalité de Lourdes, the organization of which we are both members.
 - She does not respond.
 
 ### Picture of me in my pants on Google search
