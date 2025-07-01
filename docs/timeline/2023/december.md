@@ -85,11 +85,17 @@
 ### Sally
 
 - Sally is also in Lourdes for these few days.
-- I wonder if she's checking up on me.
+- In retrospect I wonder if she's checking up on me.
+- My suspicions about Sally's intentions revolve around bizarre things she has said to me over the years which seemed to be in order to gage my reaction to them.
+- One of these instances was in 2016 when we met for dinner in Paris one afternoon, and out of the blue, this shy ditzy apparently innocent and childish woman shows me a picture of a loaf of French bread moulded into the shape of a massive phallus and testicles.
+- She tells me a black priest sent it to her and wants to know what I think.
+- It's an extraordinary thing to communicate.
+- Things like this made the feeling something was not right about her much stronger.
 - Together we meet a strange man and his landlady at the Carrefour restaurant on Friday 8th December, for lunch.
 
 ![Carrefour cafe](../../content/images/carrefour-cafe.png)
 
+- I may be wrong, but he has [that grin](../2022/november.md#walking-in-benijembla-with-the-english-ladies).
 - I know it must have been the 8th because this will have been the only day the Carrefour is open and busy.
 - We stay a long time and drink wine.
 - We also take a drink from the strange man who says he works in security for the sanctuary.
