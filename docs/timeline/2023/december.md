@@ -172,7 +172,7 @@
 - I drive up to Madrid and stay one night before heading to Avila the next morning.
 - The Matthew account DMs me before I set off.
 
-## Chat with the American Matthew
+### Chat with the American Matthew
 
 - The American account Matthew https://x.com/Matthew49200183 has been following me since August.
 - I detail some of his [interesting tweets](november.md#matthew) in November 2023 information.
@@ -185,12 +185,12 @@
 - The interaction goes on till the end of December.
 - The communication make it much clearer to me about who he is, or who this person wants me to think he is, and I start to believe I have a boyfriend.
 
-## Avila
+### Avila
 
 - Matthew suggests I contact my parents. I buy angels for them and send them via DHL.
 - In Avila I'm extremely sexually aroused. I don't really understand why. It's overwhelming.
 
-## Meditation
+### Meditation
 
 - I'm extraordinarily high at meditation volunteering too.
 - Looking back, my behavior is erratic and bizarre and not like me at all.
@@ -199,7 +199,7 @@
 - You could ask them.
 - Honestly, looking back, I must have been on something.
 
-## The Finnish lady and her boyfriend
+### The Finnish lady and her boyfriend
 
 - On Christmas Day, a woman comes up to me after morning meditation and say "Thank you for relaxing my nervous system": https://x.com/1FRGVN/status/1740889587545751848
 - We had spoken previously in the kitchen and she told me she had been feeling miserable and I cheered her up.
@@ -234,7 +234,7 @@
     - So weird, in fact, I mentioned it to the French woman in disgust.
     - The man was Greek and may have been one of the [muscle men](#muscle-men-outside-the-tunnel) I just mentioned.
 
-## Madrid
+### Madrid
 
 - Back in Madrid after meditation, Matthew and I DM again.
 - We talk about things from the chamber music class with the trumpet teacher, and other stuff. It's personal matters only people related to the gang stalking would know.
@@ -252,7 +252,7 @@
 - My friend was not affected by anything, and we ate exactly the same things.
 - As I trawl through the tweetage around this time, I notice I am very vocal about everything that is happening, and I have to wonder if they wanted to shut me up and somehow poisoned me for that reason.
 
-## Hotel room selfie pic
+### Hotel room selfie pic
 
 - An account: https://x.com/ItsMe50474936 interacts with me. Note the "It's me" name.
 - They post an extremely interesting picture to me.
