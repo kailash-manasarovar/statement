@@ -90,7 +90,7 @@
 - One of these instances was in 2016 when we met for dinner in Paris one afternoon, and out of the blue, this shy ditzy apparently innocent and childish woman shows me a picture of a loaf of French bread moulded into the shape of a massive phallus and testicles.
 - She tells me a black priest sent it to her and wants to know what I think.
 - It's an extraordinary thing to communicate.
-- Things like this made the feeling something was not right about her much stronger.
+- Things like this made my feelings that something was not right about her much stronger.
 - Together we meet a strange man and his landlady at the Carrefour restaurant on Friday 8th December, for lunch.
 
 ![Carrefour cafe](../../content/images/carrefour-cafe.png)
