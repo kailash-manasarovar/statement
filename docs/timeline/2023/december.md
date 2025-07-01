@@ -84,8 +84,8 @@
 
 ### Sally
 
-- Sally is in Lourdes for these few days also.
-- Is she checking up on me? I suspect so.
+- Sally is also in Lourdes for these few days.
+- I wonder if she's checking up on me.
 - Together we meet a strange man and his landlady at the Carrefour restaurant on Friday 8th December, for lunch.
 
 ![Carrefour cafe](../../content/images/carrefour-cafe.png)
@@ -97,9 +97,9 @@
 - I ask everyone if it means the trumpet teacher is in love with me?
 - They all say, yes, it could be.
 - Sally tells me she thinks she is being poisoned by someone she knows.
-- I don't really know what to tell her about this.
+- I don't know how to respond.
 - This is the first time she tells me there are a lot of devil worshippers at the sanctuary.
-- I'm not clear about why she would say something like this. 
+- I'm not clear about why she would say something like this either.
 - I tell her about the men dressed as women I have encountered over the years at the baths and serving for the Hospitalité de Lourdes, the organization of which we are both members.
 - She does not respond.
 
