@@ -165,13 +165,16 @@
 
 - I'm walking back from the Chinese restaurant one evening up the Calle Diana towards the tunnel.
 - When I get to the Marques de Campo, I "bump" into a man, or rather he nearly bumps into me.
+
+![Noah bumps into me](../../content/images/noah-bumps-into-me.png)
+
 - It's a man I've seen posting content on the fake Noah account: https://x.com/Noahhweb3 quite frequently.
-- The account followed me on `@JackChardwood` in August.
-- I saw pictures of a this same man getting in his large car, coming out of his house, standing in his drive, and other scenes.
-- His car was big, something like a jeep maybe.
-- The content he was producing was something like crypto-influencer, quite tame, nothing weird about it.
+- The account followed me on `@JackChardwood` in August while I was in France.
+- I saw pictures of this same man getting into his large car, coming out of his house, standing in his drive, and other reasonably normal scenes.
+- His car was big, black I think; something like a jeep maybe.
+- The content he was producing was something like crypto-influencer; quite tame, nothing weird about it.
 - I assumed he was American, but was not surprised to see him in Dénia.
-- His car was always in a sunny street which, thinking back, was probably up in Las Marinas somewhere.
+- His photographic content was always coming from somewhere full of light and sun which, thinking back, was probably up in Las Marinas somewhere.
 - I would recognize this man again in an instant.
 
 ## Piano concert
