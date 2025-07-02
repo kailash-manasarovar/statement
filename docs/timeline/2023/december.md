@@ -31,6 +31,7 @@
 - He flinches.
 - His body size and shape is *not* that of the bigger guy I'm more familiar with who I see around Dénia; [the thick set man I saw in my bed earlier in the year](april.md#dreaming-of-the-trumpet-teacher) who may have also been with [Patricia at Christmas in 2021](../2021/december.md#christmas).
 - He's slighter in size and shape, and his hands and fingers are delicate, artistic.
+- I have the sensation he is not enjoying his role.
 - Later that evening on Twitter, a random stalker replies to one of my posts about something completely unrelated.
 
 [![Rotten brother](../../content/tweets/rotten-brother.png)](https://x.com/1FRGVN/status/1730310006132650141)
