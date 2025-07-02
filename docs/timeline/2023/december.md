@@ -160,11 +160,18 @@
 - Were they checking to see if the in-person and online hypnotic suggestions had been successful? It does seem likely that, although they got close from time to time, they were never truly successful.
 - Is that also the case with the young and inexperienced girls they target, and the minor children, or is that hope too optimistic?
 
-## I see someone in town from Twitter
+## I see a man in town I see on Twitter
 
-- I'm walking back from the Chinese restaurant and I "bump" into someone on the Calle Diana, or he nearly bumps into me.
-- It's a person I've seen posted on this account https://x.com/Noahhweb3 quite frequently.
-- I understand now that with Mac spoofing, hackers can literally edit everything you see online so that was probably happening with this person, or the account is hacked. There is nothing like that on this account at the time of writing.
+- I'm walking back from the Chinese restaurant one evening up the Calle Diane towards the tunnel.
+- When I get to the Marques de Campo, I "bump" into a man, or rather he nearly bumps into me.
+- It's a man I've seen posting content on the fake Noah account: https://x.com/Noahhweb3 quite frequently.
+- The account followed me on `@jackchardwood` in August.
+- I saw pictures of a this same man getting in his large car, coming out of his house, standing in his drive, and other scenes.
+- His car was big, something like a jeep maybe.
+- The content he was producing was something like crypto-influencer, quite tame, nothing weird about it.
+- I assumed he was American, but was not surprised to see him in Dénia.
+- His car was always in a sunny street which, thinking back, was probably up in Las Marinas somewhere.
+- I would recognize this man again in an instant.
 
 ## Piano concert
 
