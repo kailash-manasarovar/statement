@@ -171,7 +171,7 @@
 - It's a man I've seen posting content on the fake Noah account: https://x.com/Noahhweb3 quite frequently.
 - The account followed me on `@JackChardwood` in August while I was in France.
 - I saw pictures of this same man getting into his large car, coming out of his house, standing in his drive, and other reasonably normal scenes.
-- His car was big, black I think; something like a jeep maybe.
+- His car was big, black I think; something like a jeep maybe. I wasn't paying too much attention.
 - The content he was producing was something like crypto-influencer; quite tame, nothing weird about it.
 - I assumed he was American, but was not surprised to see him in Dénia.
 - His photographic content was always coming from somewhere full of light and sun which, thinking back, was probably up in Las Marinas somewhere.
