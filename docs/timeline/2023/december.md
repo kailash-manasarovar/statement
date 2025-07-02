@@ -149,7 +149,7 @@
 - I first saw this tweet in July, and I remember being so curious about what it meant as it was language I was unfamiliar with.
 - I translated it on my mobile at Valencia airport on my way back from Thailand.
 - Of course, every time it came up in search, which was continuously, it made me think that the trumpet teacher still liked me.
-- Here is an example of it coming up again in [April 2024](../2024/april.md#google-searches) on the `@cjtot19` profile rendered on Google search.
+- Here is an example of it coming up again in [April 2024](../2024/april.md#google-searches) on the `@jctot19` profile rendered on Google search.
 
 ![message for me](../../content/tweets/igual3.png)
 
@@ -157,8 +157,7 @@
 - Probably a flash of fear crossed my face.
 - Was she asking me that on request to see if the honey-trap 'relationship' was a possibility again, or if I would still [run away from the bigger trumpet teacher guy that scared me](june.md#sunday-18th-june-alicante-airport) like I did at the airport in June?
 - Was this question asked after they had [wheeled out the original and the best trumpet teacher](#the-trumpet-teacher-has-a-brother)?
-- Were they checking to see if the in-person and online hypnotic suggestions had been successful?
-- It does seem likely that, although they got close from time to time, they were never truly successful.
+- Were they checking to see if the in-person and online hypnotic suggestions had been successful? It does seem likely that, although they got close from time to time, they were never truly successful.
 - Is that also the case with the young and inexperienced girls they target, and the minor children, or is that hope too optimistic?
 
 ## I see someone in town from Twitter
