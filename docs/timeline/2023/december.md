@@ -137,7 +137,7 @@
 - All and any communication was helpful to me in my attempts to find out what was going on and a way out.
 - When I first saw Alessandra again after nearly 15 years, one of the first things she asked me was "who's your accountant".
 - I show her the Google search results I'm seeing and I tell her it's a two-way conversation. 
-- I explain how the conversation works and how it has been working since it started in June, or earlier.
+- I explain how the conversation with hackers works and how it has been working since it started in June, or earlier.
 - I show her the picture of me in my underwear and I explain where it came from.
 - A flash of alarm crosses her face.
 - I show her a tweet that comes up from time to time on the `@jctot19` account which is clearly a message for me. 
@@ -149,7 +149,7 @@
 - I first saw this tweet in July, and I remember being so curious about what it meant as it was language I was unfamiliar with.
 - I translated it on my mobile at Valencia airport on my way back from Thailand.
 - Of course, every time it came up in search, which was continuously, it made me think that the trumpet teacher still liked me.
-- Here is an example of it coming up again in [April 2024](../2024/april.md#google-searches) on the `@cjtot19` profile. 
+- Here is an example of it coming up again in [April 2024](../2024/april.md#google-searches) on the `@cjtot19` profile rendered on Google search.
 
 ![message for me](../../content/tweets/igual3.png)
 
