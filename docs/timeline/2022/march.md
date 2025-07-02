@@ -23,6 +23,9 @@ function googleTranslateElementInit() {
     - I don't expect people to try to murder me (or anyone else) just because they don't like me, however. Especially when they are civil servants working in a government-funded school setting, and taking care of hundreds of children. 
     - That would be insane, wouldn't it?
 
+- I meet a lovely Romanian couple with their young son who is auditioning for year 1 of piano studies.
+- He's a energetic and optimistic youngster, and an excellent player.
+
 ## Upstairs neighbor at Carrer Furs
 
 - I occasionally bump into a man in the lift in my building who grins at me, slightly lasciviously, whenever he sees me, as if he knows something about me.
