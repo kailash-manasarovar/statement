@@ -205,10 +205,10 @@
     [![Playing the fugue](../../content/images/playing-bach-1.png)](https://drive.google.com/file/d/1iGCjrTOu-spsz4GcQ4mndQ9bJLR3mIYE/view?usp=drive_link)
 
 - Patricia and Christine BJ come to the concert.
-- I meet Christine from time to time for lunch so I guess I informed her about it then as I was still uninvited, cancelled if you will, for hiking in the mountains with the ladies!
+- I meet Christine from time to time for lunch so I guess I informed her about it then as I was still uninvited, cancelled if you will, from the hiking group for no apparent reason (apart from, obviously, I would be telling everyone about what's happening to me, and perhaps some of them might recognize some things and start to worry themselves?).
 - After the concert, Christine, Patricia, and I go for a drink in a bar nearby.
 - We sit down and Christine says: "Why does someone always have to die?".
-- I start talking about the drama still going on.
+- I start talking about the ongoing drama.
 - I probably say something like "I'm still in love". 
 - Patricia looks upset. She leaves soon after.
 - Christine and I stay a bit longer for a talk.
