@@ -195,10 +195,17 @@
 ## Piano concert
 
 - There is an end of term piano concert at the Casa de Cultura.
+
+![Playing the piano](../../content/images/playing-bach-1.png)
+
 - I play some Bach: 
     - [Prelude](https://drive.google.com/file/d/1uciK2nH0yhWDLTMLR7zdDAJDivkmFHkY/view?usp=drive_link)
     - [Fugue](https://drive.google.com/file/d/1iGCjrTOu-spsz4GcQ4mndQ9bJLR3mIYE/view?usp=drive_link)
-- Patricia and Christine BJ come to the concert: I meet Christine from time to time for lunch so I guess I informed her about it then as I was still uninvited to hiking with the ladies!
+
+    ![Playing the fugue](../../content/images/playing-bach-2.png)
+
+- Patricia and Christine BJ come to the concert.
+- I meet Christine from time to time for lunch so I guess I informed her about it then as I was still uninvited to hiking with the ladies!
 - After the concert, Christine, Patricia, and I go for a drink in a bar nearby.
 - We sit down and Christine says: "Why does someone always have to die?".
 - I start talking about the drama still going on. I probably say something like "I'm still in love". Patricia looks upset. She leaves soon after.
