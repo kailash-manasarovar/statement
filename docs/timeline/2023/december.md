@@ -159,7 +159,7 @@
 - Was this question asked after they had [wheeled out the original and the best trumpet teacher](#the-trumpet-teacher-has-a-brother)?
 - Were they checking to see if the in-person and online hypnotic suggestions had been successful?
 - It does seem likely that, although they got close from time to time, they were never truly successful.
-- Is that also the case with the young and inexperienced girls they target, and the minor children?
+- Is that also the case with the young and inexperienced girls they target, and the minor children, or is that hope too optimistic?
 
 ## I see someone in town from Twitter
 
