@@ -180,7 +180,7 @@
 ## Google search videos
 
 - As well as looking at the main results and images on Google search for `@1frgvn X`, `@jctot19 X`, `@sinremite X` and others, I start to examine the video results too.
-- I'm seeing a couple of pages of snapshots of porn videos in these results.
+- I see a couple of pages of snapshots of porn videos in these results.
 - All of them are disconcerting, but particularly the ones which appear to be coming from a woman's bedroom while she sleeps.
 - The camera is placed up in the corner of the room at ceiling level and we are looking down.
 - A small woman sleeps and we can see her feet at the bottom of the bed and she is wearing fluffy bed socks, rather like the ones I wear.
