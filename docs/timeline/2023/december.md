@@ -161,7 +161,7 @@
 - Were they checking to see if the in-person and online hypnotic suggestions had been successful? It does seem likely that, although they got close from time to time, they were never truly successful.
 - Is that also the case with the young and inexperienced girls they target, and the minor children, or is that hope too optimistic?
 
-## I see a man in town I see on Twitter
+## I see a man in town I have seen on Twitter
 
 - I'm walking back from the Chinese restaurant one evening up the Calle Diana towards the tunnel.
 - When I get to the Marques de Campo, I "bump" into a man, or rather he nearly bumps into me.
