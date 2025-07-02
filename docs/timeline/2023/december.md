@@ -134,8 +134,9 @@
 - It's nice to have someone to talk to as I have no one else apart from my friend in Lourdes.
 - I now believe she is reporting back to the stalkers, including Hazel.
 - When I first saw Alessandra again after nearly 15 years, one of the first things she asked me was "who's your accountant".
-- I show her the Google search results I'm seeing and how it's a conversation of some sort. I explain how it works and how it has been working since it started in June.
-- I show her the picture of me in my underwear and I explain where it's from.
+- I show her the Google search results I'm seeing and I tell her it's a two-way conversation. 
+- I explain how the conversation works and how it has been working since it started in June, or earlier.
+- I show her the picture of me in my underwear and I explain where it came from.
 - A flash of alarm crosses her face.
 - I show her a tweet that comes up from time to time on the `@jctot19` account which is clearly a message for me. 
 
@@ -143,14 +144,19 @@
 ![message for me](../../content/tweets/igual2.png)
 
 - It's quite complicated Spanish but says something like: "they thought you were an idiot, but they were wrong".
-- I first saw this tweet in July, and I remember being so curious about what it meant as it was language I was unfamiliar with, I translated it on my mobile at Valencia airport on my way back from Thailand.
+- I first saw this tweet in July, and I remember being so curious about what it meant as it was language I was unfamiliar with.
+- I translated it on my mobile at Valencia airport on my way back from Thailand.
 - Of course, every time it came up in search, which was continuously, it made me think that the trumpet teacher still liked me.
-- Here is an example of it coming up again in [April 2024](../2024/april.md#google-searches). Scroll to the bottom pic and you will see the `@jctot19` profile pic with this tweet underneath it.
+- Here is an example of it coming up again in [April 2024](../2024/april.md#google-searches) on the `@cjtot19` profile. 
 
 ![message for me](../../content/tweets/igual3.png)
 
-- She asks me how would I feel if he walked in the room right now.
-- I believe she was asked to ask me that by criminals to see if the honey-trap 'relationship' was still a possibility.
+- She asks me how would I feel if he walked into the cafe right now.
+- Was she asking me that on request to see if the honey-trap 'relationship' was a possibility again, or if I would still [run away from the bigger trumpet teacher guy that scared me](june.md#sunday-18th-june-alicante-airport) like I did at the airport in June?
+- Was this question asked after they had [wheeled out the original and the best trumpet teacher](#the-trumpet-teacher-has-a-brother)?
+- Were they checking to see if the in person and online hypnotic suggestions had been successful?
+- It does seem likely that, although they got close from time to time, they were never truly successful.
+- Is that also the case with the young and inexperienced girls they target, and the minor children?
 
 ## I see someone in town from Twitter
 
