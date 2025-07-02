@@ -134,8 +134,8 @@
 - It's nice to have someone to talk to as I have no one else apart from my friend in Lourdes.
 - I now believe she is reporting back to the stalkers, probably directly to Hazel.
 - I did consider that a possibility at the time, but I was in this horrific situation and fighting for my life essentially. 
-- All and any communication was helpful to me in my attempts to find out what was going on and a way out.
-- When I first saw Alessandra again after nearly 15 years, one of the first things she asked me was "who's your accountant".
+- When I first saw Alessandra again after nearly 15 years, one of the first things she asked me was "Who's your accountant?".
+- Still, all and any communication was helpful to me in my attempts to find out what was going on and a way out.
 - I show her the Google search results I'm seeing and I tell her it's a two-way conversation. 
 - I explain how the conversation with hackers works and how it has been working since it started in June, or earlier.
 - I show her the picture of me in my underwear and I explain where it came from.
@@ -153,10 +153,11 @@
 
 ![message for me](../../content/tweets/igual3.png)
 
-- She asks me how would I feel if he walked into the cafe right now.
+- She asks me how I would feel if the trumpet teacher walked into the cafe at that moment.
+- Probably a flash of fear crossed my face.
 - Was she asking me that on request to see if the honey-trap 'relationship' was a possibility again, or if I would still [run away from the bigger trumpet teacher guy that scared me](june.md#sunday-18th-june-alicante-airport) like I did at the airport in June?
 - Was this question asked after they had [wheeled out the original and the best trumpet teacher](#the-trumpet-teacher-has-a-brother)?
-- Were they checking to see if the in person and online hypnotic suggestions had been successful?
+- Were they checking to see if the in-person and online hypnotic suggestions had been successful?
 - It does seem likely that, although they got close from time to time, they were never truly successful.
 - Is that also the case with the young and inexperienced girls they target, and the minor children?
 
