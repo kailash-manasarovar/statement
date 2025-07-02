@@ -163,10 +163,10 @@
 
 ## I see a man in town I see on Twitter
 
-- I'm walking back from the Chinese restaurant one evening up the Calle Diane towards the tunnel.
+- I'm walking back from the Chinese restaurant one evening up the Calle Diana towards the tunnel.
 - When I get to the Marques de Campo, I "bump" into a man, or rather he nearly bumps into me.
 - It's a man I've seen posting content on the fake Noah account: https://x.com/Noahhweb3 quite frequently.
-- The account followed me on `@jackchardwood` in August.
+- The account followed me on `@JackChardwood` in August.
 - I saw pictures of a this same man getting in his large car, coming out of his house, standing in his drive, and other scenes.
 - His car was big, something like a jeep maybe.
 - The content he was producing was something like crypto-influencer, quite tame, nothing weird about it.
