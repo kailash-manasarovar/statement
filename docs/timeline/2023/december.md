@@ -132,7 +132,9 @@
 
 - I'm meeting Alessandra now and then for coffee to chat. 
 - It's nice to have someone to talk to as I have no one else apart from my friend in Lourdes.
-- I now believe she is reporting back to the stalkers, including Hazel.
+- I now believe she is reporting back to the stalkers, probably directly to Hazel.
+- I did consider that a possibility at the time, but I was in this horrific situation and fighting for my life essentially. 
+- All and any communication was helpful to me in my attempts to find out what was going on and a way out.
 - When I first saw Alessandra again after nearly 15 years, one of the first things she asked me was "who's your accountant".
 - I show her the Google search results I'm seeing and I tell her it's a two-way conversation. 
 - I explain how the conversation works and how it has been working since it started in June, or earlier.
