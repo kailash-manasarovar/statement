@@ -184,7 +184,7 @@
 - All of them are disconcerting, but particularly the ones which appear to be coming from a woman's bedroom while she sleeps.
 - The camera is placed up in the corner of the room at ceiling level and we are looking down.
 - A small woman sleeps and we can see her feet at the bottom of the bed and she is wearing fluffy bed socks, rather like the ones I wear.
-- A large muscular naked man hovers over her, covering her completely.
+- A large, muscular, naked man hovers over her, covering her completely.
 - He is propped up on his hands like he is doing a push up.
 - Captions say things like ... "she keeps her socks on".
 
