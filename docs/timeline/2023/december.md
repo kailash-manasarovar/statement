@@ -217,7 +217,7 @@
 - Actually, that's not quite true.
 - I didn't expect her to be involved in a conspiracy to murder, not for one minute, but all her actions, including her statement in the bar, rather suggests full involvement.
 - Or, perhaps, an unwillingness to put herself in danger by doing the right thing.
-- I guess this sort of mindset is the one that can go quite mad, very quickly, and go on to justify extraordinary evil.
+- I guess this sort of mindset is the one that can go quite mad, very quickly, and go on to justify extraordinary evil while spouting faux-morality.
 
 ## Christmas
 
