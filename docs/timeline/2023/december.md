@@ -120,7 +120,7 @@
 - I'm shocked.
 - This was the picture I took in August when I was trying to see [how big my bum was](august.md#i-take-a-picture-of-myself-in-my-pants).
 - It looks doctored a little; the top half is not me, but the bottom half does indeed look like me.
-- It's a tweet from a woman I follow, but I never saw the picture before.
+- It's on a tweet from a woman I follow, but I never saw the picture before.
 - I know immediately that, without any doubt, hackers have sound and video clips of me [masturbating in Lourdes on Good Friday](april.md#good-friday).
 - I show my friend Sally in Lourdes this search result in person; using the Google search function on my mobile as she watches.
 - Hackers remove this result from Google search the day after I post a screenshot of it on Twitter in January 2024.
@@ -155,11 +155,12 @@
 ![message for me](../../content/tweets/igual3.png)
 
 - She asks me how I would feel if the trumpet teacher walked into the cafe at that moment.
-- Probably a flash of fear crossed my face.
+- Probably a flash of fear crosses my face.
 - Was she asking me that on request to see if the honey-trap 'relationship' was a possibility again, or if I would still [run away from the bigger trumpet teacher guy that scared me](june.md#sunday-18th-june-alicante-airport) like I did at the airport in June?
-- Was this question asked after they had [wheeled out the original and the best trumpet teacher](#the-trumpet-teacher-has-a-brother)?
-- Were they checking to see if the in-person and online hypnotic suggestions had been successful? It does seem likely that, although they got close from time to time, they were never truly successful.
-- Is that also the case with the young and inexperienced girls they target, and the minor children, or is that hope too optimistic?
+- Did she ask me this question on request just after they had [wheeled out the original trumpet teacher whose welfare I truly cared about](#the-trumpet-teacher-has-a-brother) to see if I had confused the two men again in my mind like before?
+- Were they checking to see if their relentless in-person and online hypnotic suggestions had been successful?
+- It does seem likely that, although they got close from time to time, the hypno-honey-trappers were never truly successful.
+- Is that also the case with the young and inexperienced girls they target, and the minor children, or is it more likely it works every time on the young and inexperienced, and I surprised them again and again, and again?
 
 ## I see a man in town I have seen on Twitter
 
