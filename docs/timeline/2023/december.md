@@ -301,16 +301,16 @@
 - I was actually separated from the others because I was so exuberant; singing, talking, joking.
 - I made a lot of jokes of a sexual nature.
 - Honestly, it was like I'd been hit on the head. 
-- I'm not usually like this at all and Vipasana meditation is extremely serious and disciplined.
+- I'm not usually like this at all. Vipasana meditation is extremely serious and disciplined.
 - It's like I forgot where I was and all the rules.
 - You could ask them about it. I might.
 - I must have been on something.
 
 ### The Finnish lady and her boyfriend
 
-- Of course, hackers will have known exactly where I going to be since I applied online.
-- They had ample time to organize more outlandish stalking activity; although I was not able to conceive of an country-wide, or even international conspiracy at that stage.
-- A British woman living in Bilbao called Jess attended volunteering. She had a very pronounced twitch in her eye that reminded me of my PTSD symptoms.
+- Of course, hackers will have known exactly where I was going from the moment I applied online.
+- They had ample time to organize more outlandish stalking activity; although I was not able to conceive of a country-wide, never mind international conspiracy at that stage.
+- A British woman living in Bilbao attended volunteering, Jess. She had a very pronounced twitch in her eye that reminded me of my PTSD symptoms.
 - On Christmas Day, a woman comes up to me after morning meditation and say "Thank you for relaxing my nervous system": https://x.com/1FRGVN/status/1740889587545751848
 - We had spoken previously in the kitchen and she told me she had been feeling miserable and I cheered her up.
 - I gave her and her boyfriend a lift back to Madrid in my car.
@@ -322,7 +322,7 @@
 - She was Finnish, he was German. She was much older than him.
 - Whenever I'm feeling a little bit paranoid, I wonder if she knew what was going on. There is a strong Finnish connection with the trumpet teacher, [something that Patricia said](../2022/march.md#conservatory-open-day) that first time we went walking and she was there. 
 - She had a ukelele and sang Back to Black like I did in 2007 on Halloween.
-- She blinks weirdly at me while she's singing the song.
+- She blinks weirdly at me while she's singing the song as if she has a very pronounced twitch.
 
 !!! info
     - When I was sexually abused as a child, I endured extreme brutality and suffered an enormous PTSD afterwards which was debilitating.
