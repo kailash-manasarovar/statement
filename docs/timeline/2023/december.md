@@ -261,8 +261,20 @@
 
 ### Avila
 
-- Matthew suggests I contact my parents. I buy angels for them and send them via DHL.
-- In Avila I'm extremely sexually aroused. I don't really understand why. It's overwhelming.
+- Matthew suggests I contact my parents.
+- I have not told him I am no contact with them but he seems to know a lot about me that I didn't tell him.
+- I buy angels for my mother, father, and brother, and I send them to London via DHL.
+- In Avila, I visit the cathedral.
+
+![St Teresa's prayer](../../content/images/st-teresa-of-avila.jpg)
+
+- I'm communicating with Sally a lot too via WhatsApp.
+- Sally has about four different French numbers and I never know which one to use.
+- Eventually she replies to me on one of them.
+- I tell her I'm in love and that I'm going to have a boyfriend soon.
+- I'm extremely sexually aroused. 
+- I don't really understand why. 
+- It's overwhelming.
 
 ### Meditation
 
