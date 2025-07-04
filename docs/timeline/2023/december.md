@@ -290,13 +290,19 @@
 - When I arrive, I'm extraordinarily high; out of my mind. This state-of-mind persists the whole time I am at the center.
 - My behavior is erratic and bizarre; not like me at all.
 - I believe it is because I am in love but now I'm not so sure.
+- I also have an extraordinary amount of energy and strength. I throw enormous rocks off the back of a truck onto the ground.
+
+![Throwing rocks](../../content/images/throwing-stones.png)
+
 - It's possible, probable even, that I was somehow being spiked with substances that might invoke a euphoric state; possibly through my car as the "problem" with the [washing fluid was still happening](september.md#problem-with-my-car). 
 - However, once I'd parked the car, I didn't go back to it for a few days so perhaps my toiletries or supplements had been spiked by people entering my Dénia apartment when I was out.
-- Also, I was not online although I did check my phone a few times.
+- Also, I was not online for NLP and hypno-triggering, although I did check my phone a few times.
 - The Vipasana center may well remember my behavior being a bit strange.
 - I was actually separated from the others because I was so exuberant; singing, talking, joking.
 - I made a lot of jokes of a sexual nature.
-- Honestly, it was like I'd been hit on the head. I'm not usually like this at all.
+- Honestly, it was like I'd been hit on the head. 
+- I'm not usually like this at all and Vipasana meditation is extremely serious and disciplined.
+- It's like I forgot where I was and all the rules.
 - You could ask them about it. I might.
 - I must have been on something.
 
