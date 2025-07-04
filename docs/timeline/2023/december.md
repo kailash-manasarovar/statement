@@ -261,9 +261,11 @@
 
 ### Avila
 
-- Matthew suggests I contact my parents.
-- I have not told him I am no contact with them but he seems to know a lot about me that I didn't tell him.
+- [Matthew](#chat-with-the-american-matthew) suggests I contact my parents.
+- I have not told him I am no contact with my parents but he knows a lot about me.
+- Things like this convince me more that Matthew is the trumpet teacher, and that he cares about me.
 - I buy angels for my mother, father, and brother, and I send them to London via DHL.
+- I have not spoken to them since October 2021.
 - In Avila, I visit the cathedral.
 
 ![St Teresa's prayer](../../content/images/st-teresa-of-avila.jpg)
