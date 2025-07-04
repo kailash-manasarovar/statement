@@ -230,7 +230,7 @@
 
 - The account [`@Matthew49200183`](https://x.com/Matthew49200183) has been following me since [August 2023](august.md#matthew). 
 - I'm supposed to think it is the trumpet teacher.
-- I'm guessing it is instead managed by the Lopez-Cano's (Domingo & Carmen, probably their mother and aunts too), the Smiths, and maybe sometimes the local trumpet teacher [I see around from time-to-time](october.md#the-trumpet-teacher-drives-past-me-in-his-car), the big man [Patricia pointed me out to in November 2022](../2022/november.md#walking-in-benijembla-with-the-english-ladies), the man I recognize somehow but who was definitely not the man who sometimes came to class at the conservatory on Monday evenings until [June 12th 2023](june.md#monday-12th-june-2023).
+- I'm guessing it is instead managed by the Lopez-Cano's (Domingo & Carmen, probably their mother and aunts too), the Smiths, and maybe sometimes the local trumpet teacher [I see around from time-to-time](october.md#the-trumpet-teacher-drives-past-me-in-his-car), the big man [Patricia pointed me out to in November 2022](../2022/november.md#walking-in-benijembla-with-the-english-ladies), the man I recognize somehow but who was definitely not the other slighter man who sometimes came to class at the conservatory on Monday evenings until [June 12th 2023](june.md#monday-12th-june-2023).
 - Here are all our interactions: https://x.com/search?f=live&q=(from%3AMatthew49200183)%20(to%3A1frgvn)&src=typed_query
 - Notice the not-so-veiled violence in the content. This matches the Smiths' threatening social media content MO nearly precisely.
 - There are a few references to punctured intestines (the sickest type of porn genre?).
