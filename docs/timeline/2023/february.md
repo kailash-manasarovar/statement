@@ -60,6 +60,7 @@
 - The trumpet teacher seems poor and he is badly dressed.
 - He seems like a desperate man somehow. I wonder if he takes drugs. He doesn't smell of smoke.
 - Of the few classes he does turn up to, in some of the earlier classes he appears to be wearing a prison-issue shirt.
+- He has the flu around three times between January and June 2023. Whenever I see him after one of these bouts of illness, I always put my fingers in a cross as a joke to ward him off. He never laughs at that, and, instead, sort of flinches.
 - I bring in a lot of the music we study, and he goes to photocopy it. Gloria will be helping him no doubt. Sometimes he takes a long time doing the photocopying.
 - When he returns, I notice that he holds the pages he gives me in the top corner only. 
 
@@ -78,7 +79,9 @@
     - I now wonder if also perhaps he had some substance on the phone screen that he wanted me to touch and absorb through my skin.
     - Was he ingesting whatever it was he was spiking me with too, but of his own accord?
 
-- His hands are small and his fingers thin and delicate.
+- When I see him wearing the prison shirt I notice he is a slight man, slim, and his hands are small and his fingers thin and delicate.
+- Curiously, sometimes he is a large man with enormous legs.
+- I wonder if he only comes every few weeks for class so as to ensure my future confusion about who he actually is.
 
 ### Plot awareness
 
