@@ -197,7 +197,7 @@
 
 - There is an end of term piano concert at the Casa de Cultura.
 
-[![Playing the piano](../../content/images/playing-bach-2.png)]((https://drive.google.com/file/d/1uciK2nH0yhWDLTMLR7zdDAJDivkmFHkY/view?usp=drive_link))
+[![Playing the piano](../../content/images/playing-bach-2.png)](https://drive.google.com/file/d/1uciK2nH0yhWDLTMLR7zdDAJDivkmFHkY/view?usp=drive_link)
 
 - I play some Bach: 
     - [Prelude](https://drive.google.com/file/d/1uciK2nH0yhWDLTMLR7zdDAJDivkmFHkY/view?usp=drive_link)
