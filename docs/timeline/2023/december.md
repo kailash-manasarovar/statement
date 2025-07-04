@@ -279,8 +279,8 @@
 - It's overwhelming.
 
 !!! tip "Why would Matthew care so much"
-    - Could Matthew be one of the Lopez family?
-    - If so, why would he be so interested in me communicating with my family?
+    - Could Matthew be one of the Lopez, Smiths, or Adams families?
+    - If so, why would he be so interested in me communicating with my family after so long out of contact?
     - Could it be to continue to the crimes with my beneficiaries once I was dispatched, as it were?
 
 ### Meditation
