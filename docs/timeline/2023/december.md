@@ -230,7 +230,7 @@
 ### Chat with the American Matthew
 
 - The (apparently) American account [`@Matthew49200183`](https://x.com/Matthew49200183) has been following me [since August](august.md#matthew).
-- I detail some of his more [interesting tweets](november.md#matthew) in November 2023 information, particularly with regards to associated conspiratorial activity from teachers, staff, and adult students at the conservatory.
+- I detail some of his more [interesting tweets](november.md#matthew) in the November 2023 chapter, particularly with regards to associated conspiratorial activity from teachers, staff, and adult students at the conservatory of Dénia.
 - We DM when I'm in my hotel in Madrid after he posts triggering romance language and references to Batman (one of the hypno-memes commonly used).
 
 [![Batman](../../content/tweets/december-2023/batman-kneads.png)](https://x.com/Matthew49200183/status/1736259282029473849)
@@ -238,9 +238,11 @@
 - Note the reference to *selective permeable membrane*.
 - I'm triggered by these references, and [the interactions we've had related to my conservatory attendance](november.md#matthew).
 - I'm also extremely euphoric and high over these December days. I just think I'm overly happy at the time. Looking back, I was definitely under the influence of something.
-- I'm sure this Matthew is the trumpet teacher, or someone very close to him who speaks English.
-- I now believe many of these fake accounts are auto-posting, delegate accounts run by global conspirators and a criminal can gain access to them at any moment.
-- When you scroll through them you see multiple retweets usually over the last few hours and days, which I believe is auto-generated.
+- A very curious thing is, I could feel that this communication between us was going to happen, like my mind was set up to expect it.
+- I'm sure I'm communicating with the trumpet teacher, or someone very close to him who speaks English.
+- I now believe that fake accounts like these are auto-posting, delegate accounts run by global conspirators, and a criminal can gain control of them at any moment.
+- When you scroll through them you see multiple retweets usually over the last few hours and days.
+- When I scrolled through the Matthew account, I often saw extraordinarily sexually enticing content for heterosexual men, that quite often blew my mind it was so powerful.
 - You rarely see self-authored tweets on these accounts unless, perhaps, they are duplicate fake accounts whereby the software is set up to post the same content as the original and it, therefore, looks more legit.
 - When I ask for verification of who this Matthew is, he posts an identification document for the actual person, Matthew. 
 - This happens with other fake stalker accounts I interact with too.
@@ -251,9 +253,11 @@
 [![Daughters](../../content/tweets/december-2023/daughters.png)](https://x.com/Matthew49200183/status/1721129961904377859)
 
 - The interaction between us goes on till the end of December.
-- The communication makes it much clearer to me about who he is, or who the person running the account wants me to think he is.
-- I'm so high and euphoric over this period, I start to believe I have a boyfriend. There is absolutely zero reason for me to think that.
-- I now believe Hazel Smith was managing this account, and at the same time coordinating stalking activities between conservatory staff and students, probably with the help of Domingo Cano Lopez and others, Paqui Fornet most likely is involved.
+- All our communication makes it clearer to me about who this person is, or who the person running the account wants me to think it is rather.
+- I'm so high and euphoric over this period, I start to believe I have a boyfriend and that my boyfriend is the trumpet teacher. 
+- There is absolutely zero reason for me to think that.
+- I now believe Hazel Smith was managing this account, and at the same time coordinating stalking activities between conservatory staff and students, probably with the help of Domingo Cano Lopez and others.
+- Paqui Fornet most likely is heavily involved too.
 
 ### Avila
 
