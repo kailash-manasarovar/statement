@@ -308,8 +308,9 @@
 
 ### The Finnish lady and her boyfriend
 
-- Of course, hackers will know exactly where I am and what I'm doing since I applied online.
+- Of course, hackers will have known exactly where I going to be since I applied online.
 - They had ample time to organize more outlandish stalking activity; although I was not able to conceive of an country-wide, or even international conspiracy at that stage.
+- A British woman living in Bilbao called Jess attended volunteering. She had a very pronounced twitch in her eye that reminded me of my PTSD symptoms.
 - On Christmas Day, a woman comes up to me after morning meditation and say "Thank you for relaxing my nervous system": https://x.com/1FRGVN/status/1740889587545751848
 - We had spoken previously in the kitchen and she told me she had been feeling miserable and I cheered her up.
 - I gave her and her boyfriend a lift back to Madrid in my car.
