@@ -286,7 +286,7 @@
 ### Vipasana meditation
 
 - I have been doing Vipasana meditation with [Goenka ji's organization](https://www.dhamma.org/) since the 2004 tsunami.
-- I haven't been since 2016, when a wasp stroked my face lovingly, and I only sign up for a few days volunteering over Christmas.
+- I haven't been since 2016, when a wasp stroked my face lovingly, and I only sign up for a few days volunteering over Christmas at the [center near Avila in Spain](https://www.dhamma.org/en/schedules/schsacca).
 - When I arrive, I'm extraordinarily high; out of my mind. This state-of-mind persists the whole time I am at the center.
 - My behavior is erratic and bizarre; not like me at all.
 - I believe it is because I am in love but now I'm not so sure.
@@ -302,6 +302,8 @@
 
 ### The Finnish lady and her boyfriend
 
+- Of course, hackers will know exactly where I am and what I'm doing since I applied online.
+- They had ample time to organize more outlandish stalking activity; although I was not able to conceive of an country-wide, or even international conspiracy at that stage.
 - On Christmas Day, a woman comes up to me after morning meditation and say "Thank you for relaxing my nervous system": https://x.com/1FRGVN/status/1740889587545751848
 - We had spoken previously in the kitchen and she told me she had been feeling miserable and I cheered her up.
 - I gave her and her boyfriend a lift back to Madrid in my car.
