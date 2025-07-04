@@ -241,8 +241,8 @@
 - A very curious thing is, I could feel that this communication between us was going to happen, like my mind was set up to expect it.
 - I'm sure I'm communicating with the trumpet teacher, or someone very close to him who speaks English.
 - I now believe that fake accounts like these are auto-posting, delegate accounts run by global conspirators, and a criminal can gain control of them at any moment.
-- When you scroll through them you see multiple retweets usually over the last few hours and days.
-- When I scrolled through the Matthew account, I often saw extraordinarily sexually enticing content for heterosexual men, that quite often blew my mind it was so powerful.
+- When you scroll through them you see multiple retweets, usually over the last few hours and days.
+- When I scrolled through the Matthew account, I often saw extraordinarily sexually enticing content for heterosexual men that quite often blew my mind it was so powerful.
 - You rarely see self-authored tweets on these accounts unless, perhaps, they are duplicate fake accounts whereby the software is set up to post the same content as the original and it, therefore, looks more legit.
 - When I ask for verification of who this Matthew is, he posts an identification document for the actual person, Matthew. 
 - This happens with other fake stalker accounts I interact with too.
