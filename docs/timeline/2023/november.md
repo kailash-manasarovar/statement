@@ -233,6 +233,11 @@
 - I'm guessing it is instead managed by the Lopez-Cano's (Domingo & Carmen, probably their mother and aunts too), the Smiths, and maybe sometimes the local trumpet teacher [I see around from time-to-time](october.md#the-trumpet-teacher-drives-past-me-in-his-car), the big man [Patricia pointed me out to in November 2022](../2022/november.md#walking-in-benijembla-with-the-english-ladies), the man I recognize somehow but who was definitely not the man who sometimes came to class at the conservatory on Monday evenings until [June 12th 2023](june.md#monday-12th-june-2023).
 - Here are all our interactions: https://x.com/search?f=live&q=(from%3AMatthew49200183)%20(to%3A1frgvn)&src=typed_query
 - Notice the not-so-veiled violence in the content. This matches the Smiths' threatening social media content MO nearly precisely.
+- There are a few references to punctured intestines (the sickest type of porn genre?).
+
+![Violence-1](../../content/tweets/december-2023/violence-1.png)
+![Violence-2](../../content/tweets/december-2023/violence-2.png)
+
 - The very first time the account connects with me, it mentions women being gang stalked: 
 
 [![Matthew's first tweet about gang stalking](../../content/tweets/matthew-women-gang-stalking.png)](https://x.com/Matthew49200183/status/1686307743815069696)

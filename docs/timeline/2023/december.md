@@ -231,8 +231,11 @@
 
 - The (apparently) American account [`@Matthew49200183`](https://x.com/Matthew49200183) has been following me [since August](august.md#matthew).
 - I detail some of his more [interesting tweets](november.md#matthew) in November 2023 information particularly with regards to connected activity from teachers, staff, and adult students at the conservatory.
-- We DM when I'm in my hotel in Madrid. 
-- Due to the obvious references to what has been going on, I'm sure it's the trumpet teacher, or someone very close to him who speaks English.
+- We DM when I'm in my hotel in Madrid after he posts a triggered tweet romance language references and references to Batman (one of the hypno-memes used commonly).
+
+[![Batman](../../content/tweets/december-2023/batman-kneads.png)](https://x.com/Matthew49200183/status/1736259282029473849)
+
+- Due to these references, and [the interactions we've had related to my conservatory attendance](november.md#matthew), I'm sure it's the trumpet teacher, or someone very close to him who speaks English.
 - I now believe many of these fake accounts are auto-posting, delegate accounts run by global conspirators and a criminal can gain access to them at any moment.
 - When you scroll through them you see multiple retweets usually over the last few hours and days, which I believe is auto-generated.
 - You rarely see self-authored tweets on these accounts unless, perhaps, they are duplicate fake accounts whereby the software is set up to post the same content as the original and it, therefore, looks more legit.
@@ -241,6 +244,9 @@
 - He tells me he's nervous because he usually sees me on the WhatsApp group and chatting with me directly is different.
 - I ask about the WhatsApp group. He doesn't reply.
 - He tells me about his children. He says he has three daughters and a son from two different marriages. He talks about how he is unhappy his daughters have no political inclinations. He has posted tweets to this effect also.
+
+[![Daughters](../../content/tweets/december-2023/daughters.png)](https://x.com/Matthew49200183/status/1721129961904377859)
+
 - The interaction between us goes on till the end of December.
 - The communication makes it much clearer to me about who he is, or who the person running the account wants me to think he is.
 - I'm so high and euphoric over this period, I start to believe I have a boyfriend. There is absolutely zero reason for me to think that.
