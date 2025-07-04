@@ -208,7 +208,7 @@
 - Patricia and Christine BJ come to the concert.
 - I meet Christine from time to time for lunch so I guess I informed her about it then as I was still uninvited, cancelled if you will, from the hiking group for no apparent reason (apart from, obviously, I would be telling everyone about what's happening to me, and perhaps some of them might recognize some things and start to worry themselves?).
 - After the concert, Christine, Patricia, and I go for a drink in a bar nearby.
-- We sit down and Christine says: "Why does someone always have to die?".
+- We sit down and Christine says: *"Why does someone always have to die?"*.
 - I start talking about the ongoing drama.
 - I probably say something like "I'm still in love". 
 - Patricia looks upset. She leaves soon after.
@@ -222,23 +222,29 @@
 
 ## Christmas
 
-- I'm going to volunteer at the [Vipasana meditation center near Madrid](https://www.dhamma.org/en/schedules/schsacca) over Christmas for about 5 days.
-- I'm exuberant and high.
-- I drive up to Madrid and stay one night before heading to Avila the next morning.
+- I'm volunteering at the [Vipasana meditation center near Madrid](https://www.dhamma.org/en/schedules/schsacca) over Christmas for about 5 days.
+- I'm exuberant and high; a bit too exuberant and high.
+- I drive to Madrid and stay one night before heading to Avila the next morning.
 - The Matthew account DMs me before I set off.
 
 ### Chat with the American Matthew
 
-- The American account Matthew https://x.com/Matthew49200183 has been following me since August.
-- I detail some of his [interesting tweets](november.md#matthew) in November 2023 information.
+- The (apparently) American account [`@Matthew49200183`](https://x.com/Matthew49200183) has been following me [since August](august.md#matthew).
+- I detail some of his more [interesting tweets](november.md#matthew) in November 2023 information particularly with regards to connected activity from teachers, staff, and adult students at the conservatory.
 - We DM when I'm in my hotel in Madrid. 
-- Due to the obvious references, I'm sure it's the trumpet teacher, or someone very close to him who can speak/write English.
-- I now believe many of these accounts are probably delegate accounts whereby someone can take over them at any moment, although this one looks stolen to me.
-- When I ask for verification of who he is, he posts in the DM an identification document for this actual person, Matthew. This happens with other accounts I interact with too.
+- Due to the obvious references to what has been going on, I'm sure it's the trumpet teacher, or someone very close to him who speaks English.
+- I now believe many of these fake accounts are auto-posting, delegate accounts run by global conspirators and a criminal can gain access to them at any moment.
+- When you scroll through them you see multiple retweets usually over the last few hours and days, which I believe is auto-generated.
+- You rarely see self-authored tweets on these accounts unless, perhaps, they are duplicate fake accounts whereby the software is set up to post the same content as the original and it, therefore, looks more legit.
+- When I ask for verification of who this Matthew is, he posts an identification document for the actual person, Matthew. 
+- This happens with other fake stalker accounts I interact with too.
 - He tells me he's nervous because he usually sees me on the WhatsApp group and chatting with me directly is different.
-- He tells me about his children. He says he has three daughters and a son from two different marriages. He talks about how he is unhappy his daughters have no political inclinations.
-- The interaction goes on till the end of December.
-- The communication make it much clearer to me about who he is, or who this person wants me to think he is, and I start to believe I have a boyfriend.
+- I ask about the WhatsApp group. He doesn't reply.
+- He tells me about his children. He says he has three daughters and a son from two different marriages. He talks about how he is unhappy his daughters have no political inclinations. He has posted tweets to this effect also.
+- The interaction between us goes on till the end of December.
+- The communication makes it much clearer to me about who he is, or who the person running the account wants me to think he is.
+- I'm so high and euphoric over this period, I start to believe I have a boyfriend. There is absolutely zero reason for me to think that.
+- I now believe Hazel Smith was managing this account, and at the same time coordinating stalking activities between conservatory staff and students, probably with the help of Domingo Cano Lopez and others, Paqui Fornet most likely is involved.
 
 ### Avila
 
