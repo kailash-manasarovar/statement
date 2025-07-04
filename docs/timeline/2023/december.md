@@ -278,6 +278,11 @@
 - I don’t really understand why. I think it's because I'm in love.
 - It's overwhelming.
 
+!!! tip "Why would Matthew care so much"
+    - Could Matthew be one of the Lopez family?
+    - If so, why would he be so interested in me communicating with my family?
+    - Could it be to continue to the crimes with my beneficiaries once I was dispatched, as it were?
+
 ### Meditation
 
 - I'm extraordinarily high at meditation volunteering too.
