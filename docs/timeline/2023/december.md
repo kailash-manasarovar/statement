@@ -283,14 +283,22 @@
     - If so, why would they be so interested in me communicating with my family after so long out of contact?
     - Could it be to continue to the crimes with my beneficiaries once I was dispatched, as it were?
 
-### Meditation
+### Vipasana meditation
 
-- I'm extraordinarily high at meditation volunteering too.
-- Looking back, my behavior is erratic and bizarre and not like me at all.
-- I believe it is because I am in love but now I'm not so sure and I believe it's possible I was somehow being spiked, possibly through my car as the "problem" with the washing fluid was still happening. Could someone have been tampering with the air-conditioning/heating system in my car?
-- The center may well remember my behavior being a bit strange. I was actually separated from the others because I was so exuberant, singing, talking, joking, making jokes of a sexual nature too. Honestly, it was like I'd been hit on the head. I'm not usually like this at all.
-- You could ask them.
-- Honestly, looking back, I must have been on something.
+- I have been doing Vipasana meditation with [Goenka ji's organization](https://www.dhamma.org/) since the 2004 tsunami.
+- I haven't been since 2016, when a wasp stroked my face lovingly, and I only sign up for a few days volunteering over Christmas.
+- I'm extraordinarily high; out of my mind.
+- My behavior is erratic and bizarre; not like me at all.
+- I believe it is because I am in love but now I'm not so sure.
+- It's possible, probable even, that I was somehow being spiked with substances that might invoke a euphoric state; possibly through my car as the "problem" with the [washing fluid was still happening](september.md#problem-with-my-car). 
+- However, once I'd parked the car, I didn't go back to it for a few days so perhaps my toiletries or supplements had been spiked by people entering my apartment when I was out.
+- Also, I was not online although I did check my phone a few times.
+- The Vipasana center may well remember my behavior being a bit strange.
+- I was actually separated from the others because I was so exuberant; singing, talking, joking.
+- I made a lot of jokes of a sexual nature.
+- Honestly, it was like I'd been hit on the head. I'm not usually like this at all.
+- You could ask them about this.
+- I must have been on something.
 
 ### The Finnish lady and her boyfriend
 
