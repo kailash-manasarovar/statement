@@ -270,12 +270,12 @@
 
 ![St Teresa's prayer](../../content/images/st-teresa-of-avila.jpg)
 
-- I'm communicating with Sally a lot too via WhatsApp.
+- I'm communicating with [Sally](../early-years/2014.md#sally) a lot via WhatsApp.
 - Sally has about four different French numbers and I never know which one to use.
 - Eventually she replies to me on one of them.
 - I tell her I'm in love and that I'm going to have a boyfriend soon.
 - I'm extremely sexually aroused. 
-- I don't really understand why. 
+- I don’t really understand why. I think it's because I'm in love.
 - It's overwhelming.
 
 ### Meditation
