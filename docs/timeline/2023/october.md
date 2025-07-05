@@ -1,5 +1,13 @@
 # October 2023
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 - Gang and cyber-stalking continues apace.
 - It's relentless and I seem to be experiencing some persecutory evil every minute of the day.
 - As a fake X account said to me in September, as if the person running it knew what was going on, "It sounds like they want you trapped and to watch you suffer."

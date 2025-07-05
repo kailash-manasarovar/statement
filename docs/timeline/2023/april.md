@@ -1,5 +1,13 @@
 # April 2023
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Hanuman Jayanti
 
 - On April 6th, 2023, I set off for Lourdes for Easter week.

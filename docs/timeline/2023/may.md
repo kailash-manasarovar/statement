@@ -1,5 +1,13 @@
 # May 2023
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Acupuncture with Thao Qi
 
 - The [acupuncturist](https://www.thaoqi.com/) I spoke to in [February](february.md#mental-state-and-health-concerns), when I became extremely concerned about my health, is back in Dénia.

@@ -1,5 +1,13 @@
 # February 2023
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Mental state and health concerns
 
 - I can't stop thinking about this man, the trumpet teacher. My mind is racing with thoughts about him.
