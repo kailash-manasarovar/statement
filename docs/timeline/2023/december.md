@@ -333,13 +333,13 @@
 - She told me she was Finnish and had been at the center for months.
 - She said she had been feeling extremely miserable, that the other women were horrible, and that I had cheered her up.
 - The other women there, apart from Jess, did seem to be a bit miserable. It's not clear why.
-- We talked a few times after that, and on one occasion she appeared to be repeating what had been cyber-stalker themes such as how older women feel less beautiful, things like this.
-- Actually, the words were so precisely like the constant insults I read online, I was taken aback a little.
+- We spoke a few times after that, and on one occasion she appeared to be repeating common cyber-stalker themes I was very familiar with, such as how older women feel less beautiful, things like this.
+- Actually, her words were so precisely like the constant misogynist insults I was reading online, I was taken aback a little.
 - She asked me if I didn't mind giving her and her much younger boyfriend a lift back to Madrid. 
 - They were musicians. 
 - He had his cello with him and she had her ukelele.
 - He seemed a little high maybe; grinning and pleasant.
-- Apparently she was flying back to Finland in the next few days, but he was from Germany and I wasn't sure where he was going. 
+- Apparently she was flying back to Finland in the next few days, but he was from Germany and I wasn't sure where he was going. He may have been studying music in Spain.
 - Nothing much of what she told me made sense.
 - When we arrived at their hostel, she told me she wanted to sing me a song.
 - She got her ukelele out and started to play.
@@ -359,24 +359,24 @@
 - Whenever I'm feeling a little bit paranoid, I wonder if she knew what was going on. There is a strong Finnish connection to the conspiracy.
 - I never forgot [something weird that Patricia said](../2022/march.md#conservatory-open-day) that first time we went walking and she was there. 
 - I mention the blinking on X at a later date. 
-- It's as if, while the woman is singing Back to Black to me, she's also suddenly pretending to have a very pronounced twitch.
+- It's as if, while the woman is singing Back to Black to me, she's also suddenly pretending to have a very pronounced twitch in both eyes.
 
 !!! info "PTSD symptoms"
-    - When I was sexually abused as a child, I endured extreme brutality and suffered an enormous PTSD afterwards which was debilitating.
+    - When I was sexually abused as a child, I endured extreme brutality and suffered an enormous and debilitating PTSD afterwards.
     - I believe I brought some of the facial expressions that arose during those attacks into my daily life.
     - One of the things I do from time to time, I'm told, is blink in a weird manner.
     - I believe the blinking comes from when I was being repeatedly raped, and the assault on the body that took place at those times.
     - Blinking may have been my only way to register sexual assault as it was happening and while I was sedated.
-    - If I'm right about the Finnish woman, in deeply paranoid moments, it certainly appears much more is going on than at first meets the eye.
-    - I wonder if *all* the teachers and staff, especially the women, and the townsfolk of Dénia are aware of the depths of evil this story potentially contains.
-    - It's perhaps important to note that abuse sufferers, like myself, are going to be broadly more open to subtle seduction manipulation techniques due to the tearing down of psychological boundaries during such attacks.
+    - If I'm right about the Finnish woman, in less-and-less paranoid moments, it certainly appears much more is going on than at first meets the eye.
+    - I wonder if *all* the teachers and staff, especially the women, and the townsfolk of Dénia are aware of the depths of evil this story contains.
+    - It's perhaps important to note that abuse sufferers, like myself, are going to be more open to subtle seduction manipulation techniques due to the tearing down of psychological boundaries during such attacks.
     - Ironically, we will also notice them more clearly due to our heightened awareness capabilities.
 
-- I wonder now if this woman was somehow involved did she manage to drug me further because, when I got back to Madrid, I was still out of my mind.
-- Curiously, she spoke to me about similar things I had noticed on Twitter content which seemed to be trying to make me insecure about how I looked and whether I was attractive enough for men. I thought that was weird, not as weird at the blinking though.
+- I was continuing to ingest something that was making me extremely euphoric because, when I got back to Madrid, I was still *utterly* out of my mind.
 
-!!! info
-    - This has reminded me of a man I knew in Dénia in 2014 or 15 who I had been introduced to by a French woman there who worked in an estate agency.
+!!! info "Memories triggered by theatrical and malicious eye twitches"
+    - I'm reminded me of a man I knew in Dénia in 2015 who I had been introduced to by a French woman, Sylvie, who worked in an estate agency.
+    - I have now reported this in the [2015 statement chapter](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie).
     - We had been out one night and he walked a little way towards my home with me, and the whole time he kept blinking and winking at me, while grinning, in an extraordinarily weird manner.
     - So weird, in fact, I mentioned it to the French woman in disgust.
     - The man was Greek and may have been one of the [muscle men](#muscle-men-outside-the-tunnel) I just mentioned.
