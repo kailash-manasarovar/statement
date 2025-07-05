@@ -359,7 +359,7 @@
 - She ignored me.
 - I looked her up and saw her singing and playing Back to Black with a band (apparently) in Finland. I still have her number and details somewhere.
 - I wondered if she knew what was going on. There is a strong Finnish connection to the conspiracy.
-- I never forgot [something weird that Patricia said](../2022/march.md#conservatory-open-day) the first time I saw her walking.
+- I never forgot [something weird that Patricia said](../2022/october.md#patricia) the first time I saw her walking.
 - I mention the blinking on X at a later date. 
 - It's as if, while the woman is singing Back to Black to me, she's also suddenly pretending to have a very pronounced twitch in both eyes.
 - She's also annoyed she's not upsetting me, it seems.
