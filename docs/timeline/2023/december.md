@@ -337,13 +337,13 @@
 - Actually, her words were so precisely like the constant misogynist insults I was reading online, I was taken aback a little.
 - She asked me if I didn't mind giving her and her much younger boyfriend a lift back to Madrid. 
 - They were musicians. 
-- He had his cello with him and she had her ukelele.
+- He had his cello with him and she had her ukulele.
 - He seemed a little high maybe; grinning and pleasant.
 - Apparently she was flying back to Finland in the next few days, but he was from Germany and I wasn't sure where he was going. 
 - He may have been studying music in Spain. You don't usually bring an enormous cello on meditation trips in other countries, do you?
 - Nothing much of what she told me made sense.
 - When we arrived at their hostel, she told me she wanted to sing me a song.
-- She got her ukelele out and started to play.
+- She got her ukulele out and started to play.
 
 ![Finnish woman singing](../../content/images/finnish-spy.png)
 
