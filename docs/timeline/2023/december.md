@@ -318,7 +318,7 @@
 
 - A British woman living in Bilbao attended volunteering.
 - Her name was Jess and she was an English teacher, she said.
-- We had worked together and she witnessed first hand my exuberance which included singing and saying "said the actress to the bishop" at every available opportunity.
+- We had worked together and she witnessed first-hand my exuberance which included singing and saying "said the actress to the bishop" at every available opportunity.
 - Jess had a very pronounced twitch in her eyes.
 - It reminded me of my child sexual abuse PTSD symptoms.
 
@@ -339,7 +339,8 @@
 - They were musicians. 
 - He had his cello with him and she had her ukelele.
 - He seemed a little high maybe; grinning and pleasant.
-- Apparently she was flying back to Finland in the next few days, but he was from Germany and I wasn't sure where he was going. He may have been studying music in Spain.
+- Apparently she was flying back to Finland in the next few days, but he was from Germany and I wasn't sure where he was going. 
+- He may have been studying music in Spain. You don't usually bring an enormous cello on meditation trips in other countries, do you?
 - Nothing much of what she told me made sense.
 - When we arrived at their hostel, she told me she wanted to sing me a song.
 - She got her ukelele out and started to play.
