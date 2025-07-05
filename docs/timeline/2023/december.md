@@ -378,7 +378,7 @@
 - I was continuing to ingest something that was making me extremely euphoric because, when I got back to Madrid, I was still *utterly* out of my mind.
 
 !!! info "Memories triggered by theatrical and malicious eye twitches"
-    - I'm reminded me of a man I knew in Dénia in 2015 who I had been introduced to by a French woman, Sylvie, who worked in an estate agency.
+    - I'm reminded of a man I knew in Dénia in 2015 who I had been introduced to by a French woman, Sylvie, who worked in an estate agency.
     - I have now reported this in the [2015 statement chapter](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie).
     - We had been out one night and he walked a little way towards my home with me, and the whole time he kept blinking and winking at me, while grinning, in an extraordinarily weird manner.
     - So weird, in fact, I mentioned it to the French woman in disgust.
