@@ -308,23 +308,60 @@
 
 ### The Finnish lady and her boyfriend
 
-- Of course, hackers will have known exactly where I was going from the moment I applied online.
-- They had ample time to organize more outlandish stalking activity; although I was not able to conceive of a country-wide, never mind international conspiracy at that stage.
-- A British woman living in Bilbao attended volunteering, Jess. She had a very pronounced twitch in her eye that reminded me of my PTSD symptoms.
-- On Christmas Day, a woman comes up to me after morning meditation and say "Thank you for relaxing my nervous system": https://x.com/1FRGVN/status/1740889587545751848
-- We had spoken previously in the kitchen and she told me she had been feeling miserable and I cheered her up.
-- I gave her and her boyfriend a lift back to Madrid in my car.
-- They were musicians, she had her ukelele with her.
-- She sang Back to Black to me outside the car and blinked weirdly at me while she was doing it.
-- I add this because I texted her later that day to see how they were, and she ignored me.
-- I wonder now if they got high with whatever was in my car too.
-- It might be useful to track them down.
-- She was Finnish, he was German. She was much older than him.
-- Whenever I'm feeling a little bit paranoid, I wonder if she knew what was going on. There is a strong Finnish connection with the trumpet teacher, [something that Patricia said](../2022/march.md#conservatory-open-day) that first time we went walking and she was there. 
-- She had a ukelele and sang Back to Black like I did in 2007 on Halloween.
-- She blinks weirdly at me while she's singing the song as if she has a very pronounced twitch.
+- Of course, hackers will have known that I was going on a short meditation retreat at Christmas from the moment I applied online when bookings opened.
+- They had ample time to organize even more outlandish stalking activity; although at that stage I was not able to conceive of a country-wide, never mind international conspiracy.
+- Looking back, it feels like I was the subject of a *mass* stalking conspiracy, tracked via my hacked mobile, followed in person and likely photographed and filmed.
+- Could I have been being drugged by stalkers at the retreat?
+- Our bedrooms and belongings were completely free to infiltrate at any time.
 
-!!! info
+#### Jess
+
+- A British woman living in Bilbao attended volunteering.
+- Her name was Jess and she was an English teacher, she said.
+- We had worked together and she witnessed first hand my exuberance which included singing and saying "said the actress to the bishop" at every available opportunity.
+- Jess had a very pronounced twitch in her eyes.
+- It reminded me of my child sexual abuse PTSD symptoms.
+
+#### The Finnish lady
+
+- On Christmas Day, a woman comes up to me after morning meditation and says "Thank you for relaxing my nervous system".
+
+[![Relaxing her nervous system](../../content/tweets/december-2023/relaxing-nervous-system.png)](https://x.com/1FRGVN/status/1740889587545751848)
+
+- This is [Transformational Touch](https://www.austinattach.com/), and trauma-therapy terminology in general.
+- We had spoken previously in the kitchen.
+- She told me she was Finnish and had been at the center for months.
+- She said she had been feeling extremely miserable, that the other women were horrible, and that I had cheered her up.
+- The other women there, apart from Jess, did seem to be a bit miserable. It's not clear why.
+- We talked a few times after that, and on one occasion she appeared to be repeating what had been cyber-stalker themes such as how older women feel less beautiful, things like this.
+- Actually, the words were so precisely like the constant insults I read online, I was taken aback a little.
+- She asked me if I didn't mind giving her and her much younger boyfriend a lift back to Madrid. 
+- They were musicians. 
+- He had his cello with him and she had her ukelele.
+- He seemed a little high maybe; grinning and pleasant.
+- Apparently she was flying back to Finland in the next few days, but he was from Germany and I wasn't sure where he was going. 
+- Nothing much of what she told me made sense.
+- When we arrived at their hostel, she told me she wanted to sing me a song.
+- She got her ukelele out and started to play.
+
+![Finnish woman singing](../../content/images/finnish-spy.png)
+
+- She sang [Back to Black](april.md#back-to-black), which was curious again.
+
+[![Back to black](../../content/tweets/december-2023/back-to-black.png)](https://x.com/1FRGVN/status/1740889809684713806)
+
+- While she was singing, she seemed to have gotten a huge twitch in her eye.
+- She blinked weirdly at me throughout the whole song.
+- I sang along with her, happily, and this seemed to annoy her.
+- It was very weird.
+- I texted her later that day to see how they were.
+- She ignored me.
+- Whenever I'm feeling a little bit paranoid, I wonder if she knew what was going on. There is a strong Finnish connection to the conspiracy.
+- I never forgot [something weird that Patricia said](../2022/march.md#conservatory-open-day) that first time we went walking and she was there. 
+- I mention the blinking on X at a later date. 
+- It's as if, while the woman is singing Back to Black to me, she's also suddenly pretending to have a very pronounced twitch.
+
+!!! info "PTSD symptoms"
     - When I was sexually abused as a child, I endured extreme brutality and suffered an enormous PTSD afterwards which was debilitating.
     - I believe I brought some of the facial expressions that arose during those attacks into my daily life.
     - One of the things I do from time to time, I'm told, is blink in a weird manner.
