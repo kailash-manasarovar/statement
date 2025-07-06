@@ -432,11 +432,12 @@ function googleTranslateElementInit() {
 
 ![Woman taking a selfie in the hotel room](../../content/tweets/hotel-room-selfie-pic.png)
 
-- I jump a step and understand immediately that this is a reference to me being hacked and [filmed in my hotel room in France on Good Friday](april.md#good-friday).
+- I jump a step and understand immediately that this is a reference to me being hacked and [filmed masturbating in my hotel room in France on Good Friday](april.md#good-friday).
 - The tweet conversation follows that thinking although, in fact, the hotel room in the photo looks exactly like the hotel room I am in at that moment and I believe that was the true intention behind the question.
 - I wonder who is managing this account. 
 - Could it be the trumpet teacher again?
-- Whoever it is seems to know exactly what's been going on, right back to before [I went public on Twitter](september.md#going-public-on-twitter), when, I had assumed, the gang stalking was entirely Dénia-contained.
+- Are people watching me in my hotel room?
+- Whoever it is seems to know exactly what's been going on, right back to before [I went public on Twitter](september.md#going-public-on-twitter), when, I had assumed, the gang stalking was entirely Dénia-conservatory-contained.
 - Is this woman from Dénia?
 - If not, how is she connected?
 
