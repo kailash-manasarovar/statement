@@ -302,17 +302,31 @@ function googleTranslateElementInit() {
 
 ![Throwing rocks](../../content/images/throwing-stones.png)
 
-- It's possible, probable even, that I was somehow being spiked with substances that might invoke a euphoric state; possibly through my car as the "problem" with the [washing fluid was still happening](september.md#problem-with-my-car). 
+- It's possible, probable even, that I was somehow being spiked with substances that might invoke a euphoric, highly sexually aroused state; possibly through my car as the "problem" with the [washing fluid was still happening](september.md#problem-with-my-car). 
 - However, once I'd parked the car, I didn't go back to it for a few days so perhaps my toiletries or supplements had been spiked by people entering my Dénia apartment when I was out.
 - Also, I was not online for NLP and hypno-triggering, although I did check my phone a few times.
 - The Vipasana center may well remember my behavior being a bit strange.
 - I was actually separated from the others because I was so exuberant; singing, talking, joking.
 - I made a lot of jokes of a sexual nature.
+- I tweet about it, referring to it as [strawberries](october.md#strawberries) as it was exactly the same out-of-the-blue euphoria and sexual arousal as I had uncannily experienced before without explanation.
+
+[![Strawberries again](../../content/tweets/december-2023/strawberries-again.png)](https://x.com/1FRGVN/status/1741141991042306188)
+
 - Honestly, it was like I'd been hit on the head. 
 - I'm not usually like this at all. Vipasana meditation is extremely serious and disciplined.
 - It's like I forgot where I was and all the rules.
-- You could ask them about it. I might.
+- You could ask the center about it. I might.
 - I must have been on something.
+- I ask stalkers when I'm back in Madrid what they think it is.
+
+[![What do stalkers think it is](../../content/tweets/december-2023/asking-stalkers-what-they-think-is-going-on.png)](https://x.com/1FRGVN/status/1741043648815653352)
+
+- It's interesting to note that at that time I have no inkling I'm being spiked somehow with mood-altering aphrodisiac-type substances. 
+- Those things only happen in Hollywood thrillers, don't they?
+
+[![I don't understand it at all](../../content/tweets/december-2023/i-dont-understand-it-at-all.png)](https://x.com/1FRGVN/status/1741012146736291935)
+
+- A great many people viewed and translated the poll.
 
 ### The Finnish lady and her boyfriend
 
@@ -409,15 +423,26 @@ function googleTranslateElementInit() {
 - I tell her I'm communicating with the trumpet teacher via X DMs, and that I have a boyfriend or soon will have one.
 - I ask her about Spanish men, what they're like, what a Spanish music teacher might be like, that sort of thing.
 - Looking back, I see that everything I'm thinking about this man has zero basis in reality.
-- We have lunch and go to the cinema.
+- We have lunch and go to the cinema and watch a great film, although the ashtrays everywhere start to make my stomach turn.
+
+[![We see Golda](../../content/tweets/december-2023/we-went-to-golda.png)](https://x.com/1FRGVN/status/1740338531237872061)
+
 - On the way back to my hotel I start to feel extremely unwell.
 - I projectile vomit into a wastepaper bin on the Cuzco Metro platform next to my hotel.
 
 ![Vomiting at Cuzco](../../content/images/vomiting-at-cuzco.png)
 
-- I have really bad food poisoning for about two days and do not go online or leave my hotel room.
+- I have really bad food poisoning for about two days and do not go online or leave my hotel room apart from a short trip to get ice lollies.
+- I tweet about it and a good few people translate it.
+
+![Food poisoning](../../content/tweets/december-2023/food-poisoning.png)
+![Food poisoning translations](../../content/tweets/december-2023/food-poisoning-translations.png)
+
 - My friend was not affected by anything and we ate and drank exactly the same things.
 - As I trawl through the tweets I posted around this time, I notice I am posting information about everything that is happening to me.
+
+[![Metro cleaning team](../../content/tweets/december-2023/metro-cleaning-team.png)](https://x.com/1FRGVN/status/1740728445917663701)
+
 - I have to wonder if someone wanted to shut things down because it was getting so crazy.
 - I wonder how many hundreds or thousands of people were watching everything I was doing at that time.
 - Did someone take the decision to shut it all down and somehow poison me for that reason?
@@ -443,17 +468,99 @@ function googleTranslateElementInit() {
 
 ## Twitter
 
-- It was around now that the hackers started to suggest they had access to the rape porn filmed of me in 1989.
-- They had already [flashed some of it up once before](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x), but it took a while to register.
-- I saw, again, pictures of a young girl's naked body that looked like me. This time from behind me looking down.
-- I will see this again more clearly in [January 2024](../2024/january.md#i-see-my-naked-16-year-old-body-on-x-again).
-- They also posted silhouettes of the same thing, with brutal porn suggestions.
+- Following is a selection of tweets from this period.
 
-These are a selection of tweets from this period which relate to everything that has been happening. Most of them have been translated, a lot, so I assume the Spanish are reading them.
+### Child rape-gang porn from 1989 again
 
-Many of these tweets are confirmation of what has been going on.
+- I eventually realize Dénia cyber-stalkers and hackers are suggesting I had been in rape-gang-porn as a child, and they had seen it.
+- They had already [flashed some of it up once before](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x), alluded to it in their [beach chair displays](september.md#gang-stalking-on-the-beach), and made continued references to it taken directly from my [police statement](../early-years/2015.md#statement-to-the-metropolitan-police) such as [tables](september.md#table) or [spoken statements](may.md#chamber-music-concert) or shouting [*AGAIN?*](june.md#june-9th-piano-concert), for example, but it took a while for me to figure it out.
+- I had only ever had a suspicion of being filmed, no actual evidence, but everything that the people of Dénia were doing pointed to real pedophile-rape-gang-porn films that they had seen, and thoroughly enjoyed it appeared.
+- This month I see, again flashed up on my X feed, pictures of a young girl's naked body. The girl is me again; so pale her skin appears nearly blue and dappled. 
+- This time I see myself from behind my head, looking down on me.
+- I am again in a little ball shape.
+- I see this view again even more clearly in [January 2024](../2024/january.md#i-see-my-naked-16-year-old-body-on-x-again).
+- Hackers post frequent AI-rendered silhouettes of these events too, with brutal porn suggestions.
 
-### @1frgvn
+### `@1frgvn`
+
+- In my X review of the year, I make reference to when [I disclosed I had been sexually abused as a child to the trumpet teacher in April](april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher), and the triggered online euphoria I had felt from interactions with the `@jctot19` account just after, which I had believed to be honest and loving. I find it curious I call it *catnip*, as if the evil was always obvious to me at some level.
+
+[![How I felt after disclosing](../../content/tweets/december-2023/how-i-felt-after-disclosing.png)](https://x.com/1FRGVN/status/1741150130235937110)
+
+- I'm always trying to understand why I have been targeted so horribly.
+
+[![Cloak and dagger](../../content/tweets/december-2023/trying-to-understand.png)](https://x.com/1FRGVN/status/1740795247444025495)
+
+- I appeal to the stalkers to communicate with me directly. They will, eventually, but not while I'm still studying at the conservatory.
+
+[![Appealing to the stalkers](../../content/tweets/december-2023/getting-annoyed.png)](https://x.com/1FRGVN/status/1740714546761814047)
+
+- I worry about my heart health under the stress of being constantly stalked online.
+
+[![Concerns for heart health](../../content/tweets/december-2023/concerns-for-heart-health.png)](https://x.com/1FRGVN/status/1740837494638415890)
+
+- I'm always trying to communicate somehow. This tweet is liked by a hidden account I cannot see; a common situation.
+
+[![Trying to communicate](../../content/tweets/december-2023/trying-to-communicate.png)](https://x.com/1FRGVN/status/1740799870586482896)
+
+- I tweet a poll regarding recommendations after a year of bullying.
+
+[![Results of being bullied](../../content/tweets/december-2023/what-to-do-if-being-bullied.png)](https://x.com/1FRGVN/status/1740314691388203079)
+
+- A poll about what's left for Season 2, because they clearly have not stopped terrorizing me, in fact, it does appear to be getting worse. *Tralaland* is a direct reference to conservatory music-teaching staff.
+
+[![What's left in Season 2](../../content/tweets/december-2023/a-poll-about-season-2.png)](https://x.com/1FRGVN/status/1740313599300735105)
+
+- I'm always trying to find positive takes on the relentless online and in-person bullying.
+
+[![Positive takes](../../content/tweets/december-2023/positive-effects-on-stalkers.png)](https://x.com/1FRGVN/status/1740270286170444097)
+
+- I tweet about feeling like I'm trapped in a horrendous situation and I can't escape.
+
+[![Horrible situation I can't escape](../../content/tweets/december-2023/a-situation-i-cant-escape.png)](https://x.com/1FRGVN/status/1740295440405262779)
+
+- I mention how [my experiences over Easter](april.md#easter-saturday) made it impossible to escape. I wonder, then, for who is it impossible to escape!
+
+[![Easter no escape](../../content/tweets/december-2023/impossible-to-escape.png)](https://x.com/1FRGVN/status/1740113821979521350)
+
+- I mention the one [other time I cried for love](march.md#chamber-music-classes-continue) without details. Eventually I realize I must have been ingesting some mind-altering substance to cry like this at nothing.
+
+[![Crying for love](../../content/tweets/december-2023/the-other-time-i-cried-for-love.png)](https://x.com/1FRGVN/status/1740290316970738083)
+
+- Here's the context around that.
+
+[![Beginning of the thread](../../content/tweets/december-2023/crying-for-love.png)](https://x.com/1FRGVN/status/1740273934833201503)
+
+- I still think the reason behind everything is [Domingo's vengeance for 2014](../early-years/2015.md#first-class-of-january).
+
+[![Vengeance still](../../content/tweets/december-2023/still-think-its-vengeance-for-2014.png)](https://x.com/1FRGVN/status/1740127866447094097)
+
+- I'm so painfully ignorant about what is going on which I now see as cold and calculating murder. How many others one must ask teachers and staff at the conservatory and elsewhere.
+
+[![Not knowing what's going on](../../content/tweets/december-2023/painfully-ignorant.png)](https://x.com/1FRGVN/status/1740106166833647787)
+
+#### Unusual physical strength
+
+- As well as the [stone throwing](#vipasana-meditation), I report unusual physical prowess in yoga.
+
+[![Elbow balance for the first time in ages](../../content/tweets/december-2023/yoga-breakthrough.png)](https://x.com/1FRGVN/status/1740114128612536765)
+
+- These achievements did not continue.
+
+#### Romina
+
+- The Romina account had been following me since 2022.
+
+[![Romina account](../../content/tweets/december-2023/romina-account.png)](https://x.com/whoawmina)
+
+- She had often interjected while I was baring my soul about child sexual abuse with an account on X set up for just that: https://x.com/survivortough1.
+- She presented as a trans-activist account for a while too.
+- I was not surprised she answered the poll.
+- It felt like this account had been messing with me for years already.
+- I wonder who is behind it. 
+- I sense Carmen Cano energy around it.
+
+[![Romina](../../content/tweets/december-2023/romina.png)](https://x.com/1FRGVN/status/1740837642630013181)
 
 - https://x.com/1FRGVN/status/1741449673678729502 -> tweet remembering the storm on 13th June.
 - https://x.com/1FRGVN/status/1741218414276858196 -> I think this gif was generated just for me.

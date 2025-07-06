@@ -4,6 +4,9 @@
 - Garbure is a local dish of the Pyrenees and you can smell it cooking in Lourdes in the morning. It's a very wonderful smell.
 - https://x.com/search?q=(from%3A1frgvn)%20garbure&src=typed_query&f=live
 - https://x.com/1FRGVN/status/1711312917998538845
+- Here's a poll about garbure from December 2023.
+
+[![A garbure poll from December 2023](../content/tweets/memes/garbure-in-the-morning.png)](https://x.com/1FRGVN/status/1740831827743670449)
 
 ## Batman and little girl
 
