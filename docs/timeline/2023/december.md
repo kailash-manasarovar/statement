@@ -432,7 +432,7 @@ function googleTranslateElementInit() {
 
 ![Woman taking a selfie in the hotel room](../../content/tweets/hotel-room-selfie-pic.png)
 
-- I jump a step and understand immediately that this is a reference to me being hacked and filmed in my hotel room in France.
+- I jump a step and understand immediately that this is a reference to me being hacked and [filmed in my hotel room in France on Good Friday](april.md#good-friday).
 - The tweet conversation follows that thinking although, in fact, the hotel room in the photo looks exactly like the hotel room I was in at that moment and I believe that understanding was the true intention behind the question.
 - I wonder who is managing this account. 
 - Could it be the trumpet teacher again?
