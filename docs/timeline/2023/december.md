@@ -394,21 +394,35 @@ function googleTranslateElementInit() {
 
 ### Madrid
 
-- Back in Madrid after meditation, Matthew and I DM again.
-- We talk about things from the chamber music class with the trumpet teacher, and other stuff. It's personal matters only people related to the gang stalking would know.
-- In one of these chats, I ask him to come to Madrid. He says it's not happening.
-- I'm not sure it's actually the trumpet teacher at all but I'm extremely high and sexually aroused at this time and it's difficult to keep clear about what's going on.
-- I masturbate and I'm 100% sure now (at the time of writing) the sound of this happening is shared in real time with people in Dénia and beyond maybe, as the phone is on the bedside table.
-- I visit a friend and tell her everything that's been going on.
-- I tell her I'm communicating with the trumpet teacher with Twitter DMs, and I'm convinced I have a boyfriend, or soon will have one.
-- I ask her about Spanish men, what they're like, etc.
-- It's all totally insane.
+- Back in Madrid after meditation, there is a huge amount of activity on my X account.
+- At the time of writing, I receive nearly zero views on my X posts *and* I have a subscription. I didn't then.
+- Matthew and I DM once more.
+- We talk about matters that only people from Dénia who are close to teachers and staff at the conservatory could know. 
+- I become temporarily convinced I'm speaking with the trumpet teacher.
+- In one of these chats, I ask him to come to see me in Madrid. 
+- He says it's not happening.
+- I'm then start to wonder if it's actually the trumpet teacher at all, but I'm extremely high and sexually aroused and it's nearly impossible to stay clear about what's going on.
+- I masturbate and I'm sure the sound is shared in real time with people in Dénia and beyond, as the phone is on the bedside table.
+- Is it possible [I'm being filmed also](#hotel-room-selfie-pic)?
+- I believe now, at the time of writing, that I am communicating directly with Hazel Smith via the [Matthew account](#chat-with-the-american-matthew).
+- I visit a friend in Madrid and tell her everything that's been going on.
+- I tell her I'm communicating with the trumpet teacher via X DMs, that I'm convinced I have a boyfriend, or soon will have one.
+- I ask her about Spanish men, what they're like, what a Spanish music teacher might be like, etc.
+- Looking back, I see that everything I'm thinking about this man has zero basis in reality.
 - We have lunch and go to the cinema.
 - On the way back to my hotel I start to feel extremely unwell.
-- I projectile vomit into a wastepaper bin on a Metro platform.
-- I have really bad food poisoning for about 2 days.
-- My friend was not affected by anything, and we ate exactly the same things.
-- As I trawl through the tweetage around this time, I notice I am very vocal about everything that is happening, and I have to wonder if they wanted to shut me up and somehow poisoned me for that reason.
+- I projectile vomit into a wastepaper bin on the Cuzco Metro platform next to my hotel.
+
+![Vomiting at Cuzco](../../content/images/vomiting-at-cuzco.png)
+
+- I have really bad food poisoning for about two days and do not leave my hotel room.
+- My friend was not affected by anything and we ate and drank exactly the same things.
+- As I trawl through the tweets I posted around this time, I notice I am posting information about everything that is happening to me.
+- I have to wonder if someone wanted to shut me up because it was getting so crazy.
+- I wonder how many hundreds or thousands of people were watching everything I was doing at that time.
+- Did someone take the decision to shut it all down and somehow poison me for that reason?
+- I'm pretty sure that the wide extent of the stalking and the amount of people involved means that I should have vast numbers of corroborators perhaps sick to death of their lives being controlled by corrupt officials and criminal gangs.
+- Cynically, however, I wonder who they're targeting now, and whether this adult or child will be driven to a nervous breakdown, or persuaded to commit suicide, or end up as the living-dead in porn, just like so many others.
 
 ### Hotel room selfie pic
 

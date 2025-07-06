@@ -162,6 +162,13 @@
 - Hans was good as gold with Gabriel Silva when he took over.
 - I suspect he's working there now still.
 
+## Couple in hotel room
+
+- Fake accounts post profile pics of couples in hotels rooms.
+- I see a young Spanish couple lying down together.
+- I know it is a hotel room as the furniture is sparse and the hotel style is very familiar to me.
+- I'll see if I can dig this up.
+
 ## Serious poisoning with intent to harm or kill
 
 !!! danger
