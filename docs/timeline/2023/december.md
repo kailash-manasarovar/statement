@@ -401,7 +401,7 @@ function googleTranslateElementInit() {
 - I become temporarily convinced I'm speaking with the trumpet teacher.
 - In one of these chats, I ask him to come to see me in Madrid. 
 - He says it's not happening.
-- I'm then start to wonder if it's actually the trumpet teacher at all, but I'm extremely high and sexually aroused and it's nearly impossible to stay clear about what's going on.
+- I then start to wonder if it's actually the trumpet teacher at all, but I'm extremely high and sexually aroused and it's nearly impossible to stay clear about what's going on.
 - I masturbate and I'm sure the sound is shared in real time with people in Dénia and beyond, as the phone is on the bedside table.
 - Is it possible [I'm being filmed also](#hotel-room-selfie-pic)?
 - I believe now, at the time of writing, that I am communicating directly with Hazel Smith via the [Matthew account](#chat-with-the-american-matthew).
