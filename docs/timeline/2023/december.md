@@ -405,8 +405,8 @@ function googleTranslateElementInit() {
 - I masturbate and I'm sure the sound is shared in real time with people in Dénia and beyond, as the phone is on the bedside table.
 - Is it possible [I'm being filmed also](#hotel-room-selfie-pic)?
 - I believe now, at the time of writing, that I am communicating directly with Hazel Smith via the [Matthew account](#chat-with-the-american-matthew).
-- I visit a friend in Madrid and tell her everything that's been going on.
-- I tell her I'm communicating with the trumpet teacher via X DMs, that I have a boyfriend or soon will have one.
+- I visit a dear friend in Madrid and tell her everything that’s been going on to the extent that I understand it at the time.
+- I tell her I'm communicating with the trumpet teacher via X DMs, and that I have a boyfriend or soon will have one.
 - I ask her about Spanish men, what they're like, what a Spanish music teacher might be like, that sort of thing.
 - Looking back, I see that everything I'm thinking about this man has zero basis in reality.
 - We have lunch and go to the cinema.
