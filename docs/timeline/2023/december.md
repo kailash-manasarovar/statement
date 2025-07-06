@@ -424,17 +424,21 @@ function googleTranslateElementInit() {
 - I'm pretty sure that the wide extent of the stalking and the amount of people involved means that I should have vast numbers of corroborators perhaps sick to death of their lives being controlled by corrupt officials and criminal gangs.
 - Cynically, however, I wonder who they're targeting now, and whether this adult or child will be driven to a nervous breakdown, or persuaded to commit suicide, or end up as the living-dead in porn like so many others.
 
-### Hotel room selfie pic
+### Hotel room cyber stalker
 
-- An account: https://x.com/ItsMe50474936 interacts with me. Note the "It's me" name.
-- They post an extremely interesting picture to me.
+- An account: https://x.com/ItsMe50474936 interacts with me. 
+- They post an extremely interesting picture.
+- "Look at her, remind you of anything?", the account asks.
 
 ![Woman taking a selfie in the hotel room](../../content/tweets/hotel-room-selfie-pic.png)
 
-- "Look at her, remind you of anything?", the account asks.
-- I understand immediate that the reference is to me being hacked and filmed in my hotel room in France.
-- I wonder who is managing this account but it is certainly someone who knows what's been going on, right back to before I went public on Twitter, when, I assume, the gang stalking was Dénia-contained.
-- The hotel room in the photo also looks exactly like the hotel room I'm in at that moment.
+- I jump a step and understand immediately that this is a reference to me being hacked and filmed in my hotel room in France.
+- The tweet conversation follows that thinking although, in fact, the hotel room in the photo looks exactly like the hotel room I was in at that moment and I believe that understanding was the true intention behind the question.
+- I wonder who is managing this account. 
+- Could it be the trumpet teacher again?
+- Whoever it is seems to know exactly what's been going on, right back to before [I went public on Twitter](september.md#going-public-on-twitter), when, I had assumed, the gang stalking was entirely Dénia-contained.
+- Is this woman from Dénia?
+- If not, how is she connected?
 
 ## Twitter
 
