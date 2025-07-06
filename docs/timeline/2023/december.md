@@ -302,6 +302,10 @@ function googleTranslateElementInit() {
 
 ![Throwing rocks](../../content/images/throwing-stones.png)
 
+- I tweet about it when I'm in Madrid.
+
+[![Throwing stones](../../content/tweets/december-2023/shifting-large-stones.png)](https://x.com/1FRGVN/status/1739739485598888427)
+
 - It's possible, probable even, that I was somehow being spiked with substances that might invoke a euphoric, highly sexually aroused state; possibly through my car as the "problem" with the [washing fluid was still happening](september.md#problem-with-my-car). 
 - However, once I'd parked the car, I didn't go back to it for a few days so perhaps my toiletries or supplements had been spiked by people entering my Dénia apartment when I was out.
 - Also, I was not online for NLP and hypno-triggering, although I did check my phone a few times.
@@ -405,6 +409,13 @@ function googleTranslateElementInit() {
     - We had been out one night and he walked a little way towards my home with me, and the whole time he kept blinking and winking at me, while grinning, in an extraordinarily weird manner.
     - So weird, in fact, I mentioned it to the French woman in disgust.
     - The man was Greek and may have been one of the [muscle men](#muscle-men-outside-the-tunnel) I just mentioned.
+
+#### DAO
+
+- While meditating I start to have an idea about a DAO version of the forgivenet network.
+- I tweet about it when I get back to Madrid.
+
+[![DAO idea](../../content/tweets/december-2023/the-dao-idea.png)](https://x.com/1FRGVN/status/1739751872397791322)
 
 ### Madrid
 
@@ -539,6 +550,22 @@ function googleTranslateElementInit() {
 
 [![Not knowing what's going on](../../content/tweets/december-2023/painfully-ignorant.png)](https://x.com/1FRGVN/status/1740106166833647787)
 
+- Again, I express my belief that the stalker's conspiracy is non-murderous. If only my benevolent feelings for people had been correct.
+
+[![Non-murderous conspiracy belief](../../content/tweets/december-2023/feelings-about-being-bullied.png)](https://x.com/1FRGVN/status/1740101710142652791)
+
+- I pay for a blue tick from 31st December and start to get more views.
+
+![Blue tick](../../content/tweets/december-2023/paying-for-bluetick.png)
+
+- I respond to things I have read or seen.
+
+[![Responding to something](../../content/tweets/december-2023/responding-to-something-ive-seen.png)](https://x.com/1FRGVN/status/1741192410393120808)
+
+- I respond to flirtatious posts which seem to be from men, but are probably Hazel or Sandra Smith.
+
+[![Responses to flirtatious posts](../../content/tweets/december-2023/conversing-with-men-or-pretend-men.png)](https://x.com/1FRGVN/status/1741477973864136862)
+
 #### Unusual physical strength
 
 - As well as the [stone throwing](#vipasana-meditation), I report unusual physical prowess in yoga.
@@ -562,7 +589,12 @@ function googleTranslateElementInit() {
 
 [![Romina](../../content/tweets/december-2023/romina.png)](https://x.com/1FRGVN/status/1740837642630013181)
 
-- https://x.com/1FRGVN/status/1741449673678729502 -> tweet remembering the storm on 13th June.
+#### SM Jenkins
+
+- https://x.com/Sajenks42
+
+
+
 - https://x.com/1FRGVN/status/1741218414276858196 -> I think this gif was generated just for me.
 - https://x.com/1FRGVN/status/1741192065680122260 -> response to stalker accounts, no idea what they'd said.
 - https://x.com/1FRGVN/status/1741191051669287342

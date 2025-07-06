@@ -306,6 +306,9 @@ function googleTranslateElementInit() {
 ![Rainbows over Dénia](../../content/images/rainbows.png)
 
 - June 13th is Saint Anthony of Padua's day.
+- I tweet about this in December 2023.
+
+[![Tweeting about the storm and rainbow in December 2023](../../content/tweets/december-2023/remembering-the-13th-june.png)](https://x.com/1FRGVN/status/1741449673678729502)
 
 !!! warning "Teachers and staff involved in gang stalking students at Dénia Conservatory"
     - You can find a list of current teachers and staff on the [conservatory website](https://portal.edu.gva.es/conservatoridenia/es/inici/).
