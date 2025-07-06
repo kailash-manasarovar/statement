@@ -403,7 +403,7 @@ function googleTranslateElementInit() {
 - He says it's not happening.
 - I then start to wonder if it's actually the trumpet teacher at all, but I'm extremely high and sexually aroused and it's nearly impossible to stay clear about what's going on.
 - I masturbate and I'm sure the sound is shared in real time with people in Dénia and beyond, as the phone is on the bedside table.
-- Is it possible [I'm being filmed also](#hotel-room-selfie-pic)?
+- Is it possible [I'm being filmed also](#hotel-room-cyber-stalker)?
 - I believe now, at the time of writing, that I am communicating directly with Hazel Smith via the [Matthew account](#chat-with-the-american-matthew).
 - I visit a dear friend in Madrid and tell her everything that’s been going on to the extent that I understand it at the time.
 - I tell her I'm communicating with the trumpet teacher via X DMs, and that I have a boyfriend or soon will have one.
@@ -433,7 +433,7 @@ function googleTranslateElementInit() {
 ![Woman taking a selfie in the hotel room](../../content/tweets/hotel-room-selfie-pic.png)
 
 - I jump a step and understand immediately that this is a reference to me being hacked and [filmed in my hotel room in France on Good Friday](april.md#good-friday).
-- The tweet conversation follows that thinking although, in fact, the hotel room in the photo looks exactly like the hotel room I was in at that moment and I believe that understanding was the true intention behind the question.
+- The tweet conversation follows that thinking although, in fact, the hotel room in the photo looks exactly like the hotel room I am in at that moment and I believe that was the true intention behind the question.
 - I wonder who is managing this account. 
 - Could it be the trumpet teacher again?
 - Whoever it is seems to know exactly what's been going on, right back to before [I went public on Twitter](september.md#going-public-on-twitter), when, I had assumed, the gang stalking was entirely Dénia-contained.

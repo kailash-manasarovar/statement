@@ -13,7 +13,7 @@
     - I believe many of these accounts are used by the trumpet teacher and others who have delegate access.
     - This means they can take over the account and post on its behalf at any time.
 
-- It's the same account that posted the [hotel room selfie photo](../2023/december.md#hotel-room-selfie-pic) a few days before.
+- It's the same account that posted the [hotel room selfie photo](../2023/december.md#hotel-room-cyber-stalker) a few days before.
 - https://x.com/ItsMe50474936: "It's me" is the name I use on any fake accounts I have created.
 - This account also states that they're nervous they're "actually" talking to me instead of seeing me in the group.
 - We chat. I'm sure it is the trumpet teacher. He tells me he likes to paint but he hasn't painted for many years. I ask him why not. It sounds like he had some sort of breakdown but I wonder if it's jail.
