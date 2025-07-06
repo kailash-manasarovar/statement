@@ -406,8 +406,8 @@ function googleTranslateElementInit() {
 - Is it possible [I'm being filmed also](#hotel-room-selfie-pic)?
 - I believe now, at the time of writing, that I am communicating directly with Hazel Smith via the [Matthew account](#chat-with-the-american-matthew).
 - I visit a friend in Madrid and tell her everything that's been going on.
-- I tell her I'm communicating with the trumpet teacher via X DMs, that I'm convinced I have a boyfriend, or soon will have one.
-- I ask her about Spanish men, what they're like, what a Spanish music teacher might be like, etc.
+- I tell her I'm communicating with the trumpet teacher via X DMs, that I have a boyfriend or soon will have one.
+- I ask her about Spanish men, what they're like, what a Spanish music teacher might be like, that sort of thing.
 - Looking back, I see that everything I'm thinking about this man has zero basis in reality.
 - We have lunch and go to the cinema.
 - On the way back to my hotel I start to feel extremely unwell.
@@ -415,14 +415,14 @@ function googleTranslateElementInit() {
 
 ![Vomiting at Cuzco](../../content/images/vomiting-at-cuzco.png)
 
-- I have really bad food poisoning for about two days and do not leave my hotel room.
+- I have really bad food poisoning for about two days and do not go online or leave my hotel room.
 - My friend was not affected by anything and we ate and drank exactly the same things.
 - As I trawl through the tweets I posted around this time, I notice I am posting information about everything that is happening to me.
-- I have to wonder if someone wanted to shut me up because it was getting so crazy.
+- I have to wonder if someone wanted to shut things down because it was getting so crazy.
 - I wonder how many hundreds or thousands of people were watching everything I was doing at that time.
 - Did someone take the decision to shut it all down and somehow poison me for that reason?
 - I'm pretty sure that the wide extent of the stalking and the amount of people involved means that I should have vast numbers of corroborators perhaps sick to death of their lives being controlled by corrupt officials and criminal gangs.
-- Cynically, however, I wonder who they're targeting now, and whether this adult or child will be driven to a nervous breakdown, or persuaded to commit suicide, or end up as the living-dead in porn, just like so many others.
+- Cynically, however, I wonder who they're targeting now, and whether this adult or child will be driven to a nervous breakdown, or persuaded to commit suicide, or end up as the living-dead in porn like so many others.
 
 ### Hotel room selfie pic
 
