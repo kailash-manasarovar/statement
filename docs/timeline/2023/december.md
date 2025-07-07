@@ -183,15 +183,15 @@ function googleTranslateElementInit() {
 ![Boring Ana](../../content/images/boring-ana.png)
 
 - The next chamber music class I attend, Ana's friend Katia is exponentially more angry with me.
-- I also see Ana in the corridor and she glares at me as if I am extraordinarily disgusting to her.
+- I also see Ana in the corridor and she glares at me as if I am extraordinarily disgusting and despicable.
 - It was startling, actually, and more proof I was being watched and listened to, whatever I did and wherever I went.
 - I tweet about it before the next class, and ask the women to be a bit nicer.
 
 [![Please be a bit nicer ladies](../../content/tweets/december-2023/chamber-music-class-anger.png)](https://x.com/1FRGVN/status/1736751514587165134)
 
-- Did everyone know I had said she was so BORING!
+- Did everyone know I had said she was so BORING!?
 - If so, who told them and how did that person know what I'd said?
-- The truth is, I don't find Ana boring at all and I never did.
+- The truth is, I don't find Ana boring at all, and I never did.
 - I have no feelings for Ana whatsoever, other than the normal friendly feelings I had for her before I realized how evil she is.
 
 ## I see a man in town I have seen on Twitter
