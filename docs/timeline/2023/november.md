@@ -175,8 +175,13 @@ function googleTranslateElementInit() {
 
 ## Dreaming of Jesus Christ
 
-- I dream of dirty brown apartments and years of devastating criminal activity.
-- The dream turns into a nightmare.
+- I dream of dirty brown apartments and years of devastating criminal activity. 
+- I dream again like this in December.
+
+[![Dreaming of dirty brown apartments](../../content/tweets/december-2023/reporting-the-JC-dream-again.png)](https://x.com/1FRGVN/status/1735791374862082307)
+
+- A lot of my dreams had significant "brothers" symbolism.
+- The November dream turns into a nightmare.
 - I call out the name of Jesus Christ to help me.
 - JC comes and states, very loudly, [**Vidal Sastre Sanchez Hornero control your sex**](../../conclusion/theories.md#vidal-sastre-sanchez-hornero-control-women-and-girls).
 

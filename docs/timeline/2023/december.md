@@ -332,7 +332,11 @@ function googleTranslateElementInit() {
 
 - It's possible, probable even, that I was somehow being spiked with substances that might invoke a euphoric, highly sexually aroused state; possibly through my car as the "problem" with the [washing fluid was still happening](september.md#problem-with-my-car). 
 - However, once I'd parked the car, I didn't go back to it for a few days so perhaps my toiletries or supplements had been spiked by people entering my Dénia apartment when I was out.
-- Also, I was not online for NLP and hypno-triggering, although I did check my phone a few times.
+- Curiously, just before leaving for Madrid I did report the car magically fixing itself.
+
+[![Car troubles](../../content/tweets/december-2023/car-troubles.png)](https://x.com/1FRGVN/status/1736377650216571250)
+
+- Also, while meditating I was not online for NLP and hypno-triggering, although I did check my phone a few times.
 - The Vipasana center may well remember my behavior being a bit strange.
 - I was actually separated from the others because I was so exuberant; singing, talking, joking.
 - I made a lot of jokes of a sexual nature.
@@ -621,6 +625,38 @@ function googleTranslateElementInit() {
 
 [![Weird tackiness](../../content/tweets/december-2023/weird-tackiness.png)](https://x.com/1FRGVN/status/1736430347221414053)
 
+- I report the state of my life at that time, again.
+
+[![Lies and silence](../../content/tweets/december-2023/lies-and-silence.png)](https://x.com/1FRGVN/status/1735986921720164437)
+
+- Being stalked online and in-person is like living someone else's tumultuous rollercoaster existence.
+
+[![Rollercoasters](../../content/tweets/december-2023/rollercoasters.png)](https://x.com/1FRGVN/status/1735973677823328645)
+
+- I report the intensity of my feelings dropping off. Did teachers and staff at the conservatory give me a short break before doubling down at Christmas?
+
+[![Intensity drops off](../../content/tweets/december-2023/intensity-dropped-off.png)](https://x.com/1FRGVN/status/1735803253278019868)
+
+- Mentioning the *chirps of the century* that I had mentioned to [Matthew Copeland](). I saw a positive vote on this poll at some point.
+
+[![Chirps of the century](../../content/tweets/december-2023/chirps-of-the-century.png)](https://x.com/1FRGVN/status/1735669815954587663)
+
+- Reporting significant dreams.
+
+[![Clapping my hands](../../content/tweets/december-2023/dreams.png)](https://x.com/1FRGVN/status/1735595300247490608)
+
+- A poll regarding community involvement. Truth is, the community had involved me first in their murderousness, it was always their gig. And now?
+
+[![Community involvement](../../content/tweets/december-2023/involving-the-community.png)](https://x.com/1FRGVN/status/1735586729996771515)
+
+- Dreaming about the Cock and Raven. It'd be amazing to find any sedated porn from my apartment which matched these frequent turgid nights on time and date, and content.
+
+[![Cock and Raven](../../content/tweets/december-2023/cock-and-raven.png)](https://x.com/1FRGVN/status/1735572254388330653)
+
+- A small cessation in activity makes me think they're going to leave me alone. Not a chance, obviously.
+
+[![Are they going to leave me alone now?](../../content/tweets/december-2023/wishful-thinking.png)](https://x.com/1FRGVN/status/1735041924908659152)
+
 #### Porn bots or targets
 
 - I continue to see a lot of fake account that appear to be porn bots.
@@ -665,15 +701,6 @@ function googleTranslateElementInit() {
 
 
 
-- https://x.com/1FRGVN/status/1736377650216571250 -> mentioning the car issue and how it was intermittent. Did someone do something to my car at that point? 
-- https://x.com/1FRGVN/status/1735986921720164437
-- https://x.com/1FRGVN/status/1735973677823328645
-- https://x.com/1FRGVN/status/1735803253278019868 -> I think this is in reference to a change in medication through the water, from anxiety causing to benevolent feelings causing. There was a shift.
-- https://x.com/1FRGVN/status/1735791374862082307 -> A lot of dreams, note the "brothers" reference. I think whatever they're giving me is making me a little bit psychic.
-- https://x.com/1FRGVN/status/1735669815954587663 -> This had come up with a positive vote previously, I believe via Mac spoofing.
-- https://x.com/1FRGVN/status/1735595300247490608
-- https://x.com/1FRGVN/status/1735586729996771515
-- https://x.com/1FRGVN/status/1735572254388330653
 - https://x.com/1FRGVN/status/1735041924908659152
 - https://x.com/1FRGVN/status/1734118219152023628
 - https://x.com/1FRGVN/status/1733764096124706962
