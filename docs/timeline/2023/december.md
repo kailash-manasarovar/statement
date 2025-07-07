@@ -678,19 +678,21 @@ function googleTranslateElementInit() {
 
 #### Hanuman
 
-- I'm always making connections between what's happening to me online and at the conservatory, and more and more everywhere I go in the world, and my study of the Ramayana and devotion to Hanuman.
-- It's part of my attempts to understand what's going on.
-- This is *the best* version of the events.
+- I'm always making connections between what's happening to me online and at the conservatory, and my study of the Ramayana and devotion to Hanuman.
+- This is part of my constant attempts at understanding what's going on.
+- This is *the very best* version of the events I could come up with.
 
 [![Devotion to Hanuman](../../content/tweets/december-2023/connections-to-the-ramayana.png)](https://x.com/1FRGVN/status/1731089945702371827)
 
-- I dream of a Hanuman temple and design it on the land opposite my apartment. I tweet it too.
+- I dream of a Hanuman temple and design it on the land opposite my apartment. 
 
 [![Hanuman temple](../../content/images/hanuman-temple.jpg)](https://x.com/1FRGVN/status/1730640137279639877)
 
 - I wonder who I have to talk to about buying the land for the temple.
 
 [![Buying the land for the temple](../../content/tweets/december-2023/asking-about-the-temple.png)](https://x.com/1FRGVN/status/1731058092475916788)
+
+- I ask [Alessandra](#meeting-alessandra) for advice on who will sell me the land.
 
 #### Porn bots or targets
 
