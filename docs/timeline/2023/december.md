@@ -668,7 +668,7 @@ function googleTranslateElementInit() {
 
 [![Response to a stalker](../../content/tweets/december-2023/responding-to-someone.png)](https://x.com/1FRGVN/status/1731716586631803194)
 
-- I reflect sadly on the youngster [Pablo witnessing such violence towards women at the conservatory on 12th June](june.md#monday-12th-june-2023).
+- I reflect sadly on the youngster [Pablo witnessing such violence towards women at the conservatory on 12th June](june.md#monday-12th-june-2023). Note the Matthew account has something to say about this.
 
 [![Upset about Pablo](../../content/tweets/december-2023/upset-that-pablo-had-to-witness-such-evil.png)](https://x.com/1FRGVN/status/1730680949266841930)
 
