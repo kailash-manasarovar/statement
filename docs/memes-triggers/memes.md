@@ -8,6 +8,10 @@
 
 [![A garbure poll from December 2023](../content/tweets/memes/garbure-in-the-morning.png)](https://x.com/1FRGVN/status/1740831827743670449)
 
+- Here's a tweet about my biography.
+
+[![Biography title](../content/tweets/memes/garbure-again.png)](https://x.com/1FRGVN/status/1733764096124706962)
+
 ## Batman and little girl
 
 - I heard this said a lot around the conservatory, and it also came up on meme's on Twitter.

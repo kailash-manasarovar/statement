@@ -525,7 +525,7 @@ function googleTranslateElementInit() {
 #### Mary G Lamarche account
 
 - I talk a lot about forgiveness on X. 
-- I believe that the `@g_lamarche` account is likely to be Domingo, or close to him, as it was coming up on Google search for `@jctot19`; I believed as a warning.
+- I believe that the [`@g_lamarche`](https://x.com/g_lamarche) account is likely to be Domingo, or close to him, as it was coming up on Google search for `@jctot19`; I believed as a warning.
 - Lamarche is a Spanish pun with a reference to raving.
 - I believe this account sometimes warns and advises me about things going on at the conservatory and elsewhere.
 

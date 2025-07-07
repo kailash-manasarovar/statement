@@ -145,6 +145,9 @@ function googleTranslateElementInit() {
 - I did consider that a possibility at the time, but I was in this horrific situation and fighting for my life essentially. 
 - When I first saw Alessandra again after nearly 15 years, one of the first things she asked me was "Who's your accountant?".
 - Still, all and any communication was helpful to me in my attempts to find out what was going on and a way out.
+- I show her my [Hanuman temple design](#hanuman) and where I want to build it.
+- I tell her I can buy the land straight away and I ask her if she can help me find the owner.
+- She doesn't respond to this at all.
 - I show her the Google search results I'm seeing and I tell her it's a two-way conversation. 
 - I explain how the conversation with hackers works and how it has been working since it started in June, or earlier.
 - I show her the picture of me in my underwear and I explain where it came from.
@@ -657,6 +660,38 @@ function googleTranslateElementInit() {
 
 [![Are they going to leave me alone now?](../../content/tweets/december-2023/wishful-thinking.png)](https://x.com/1FRGVN/status/1735041924908659152)
 
+- I describe the different types of stalkers; innocent versus pure evil.
+
+[![Stalker types](../../content/tweets/december-2023/stalker-types.png)](https://x.com/1FRGVN/status/1734118219152023628)
+
+- A response to [Mary G Lamarche, prime stalker](november.md#mary-g-lamarche-account). I believe I'm talking about rape of children and child sexual abuse generally which I believe should have a classification of attempted murder because experiencing it literally takes your life away from you, and that is exactly what the perpetrators intend.
+
+[![Response to a stalker](../../content/tweets/december-2023/responding-to-someone.png)](https://x.com/1FRGVN/status/1731716586631803194)
+
+- I reflect sadly on the youngster [Pablo witnessing such violence towards women at the conservatory on 12th June](june.md#monday-12th-june-2023).
+
+[![Upset about Pablo](../../content/tweets/december-2023/upset-that-pablo-had-to-witness-such-evil.png)](https://x.com/1FRGVN/status/1730680949266841930)
+
+- Reflecting on how sexual violence makes female targets pariahs in the minds of unevolved communities. This was true for me in 1989 also.
+
+[![Unevolved communities and sexual abuse survivors](../../content/tweets/december-2023/sexual-violence-makes-a-woman-a-pariah.png)](https://x.com/1FRGVN/status/1730977373212889274)
+
+#### Hanuman
+
+- I'm always making connections between what's happening to me online and at the conservatory, and more and more everywhere I go in the world, and my study of the Ramayana and devotion to Hanuman.
+- It's part of my attempts to understand what's going on.
+- This is *the best* version of the events.
+
+[![Devotion to Hanuman](../../content/tweets/december-2023/connections-to-the-ramayana.png)](https://x.com/1FRGVN/status/1731089945702371827)
+
+- I dream of a Hanuman temple and design it on the land opposite my apartment. I tweet it too.
+
+[![Hanuman temple](../../content/images/hanuman-temple.jpg)](https://x.com/1FRGVN/status/1730640137279639877)
+
+- I wonder who I have to talk to about buying the land for the temple.
+
+[![Buying the land for the temple](../../content/tweets/december-2023/asking-about-the-temple.png)](https://x.com/1FRGVN/status/1731058092475916788)
+
 #### Porn bots or targets
 
 - I continue to see a lot of fake account that appear to be porn bots.
@@ -701,15 +736,8 @@ function googleTranslateElementInit() {
 
 
 
-- https://x.com/1FRGVN/status/1735041924908659152
-- https://x.com/1FRGVN/status/1734118219152023628
-- https://x.com/1FRGVN/status/1733764096124706962
-- https://x.com/1FRGVN/status/1731716586631803194 -> interaction with stalker account, they deleted the post. Mary G Lamarche.
-- https://x.com/1FRGVN/status/1731089945702371827 -> trying to make sense of why all this is happening. This is the best reason I have.
-- https://x.com/1FRGVN/status/1731058092475916788
-- https://x.com/1FRGVN/status/1730977373212889274
 - https://x.com/1FRGVN/status/1730680949266841930 -> quote regarding Pablo and the fact he had to witness the psychological attack against a "vulnerable" female by males he probably respected, and he was a great kid. Note Matthew has something to say about this.
-- https://x.com/1FRGVN/status/1730640137279639877 -> the Hanuman temple I want to build in Dénia.
+
 - https://x.com/1FRGVN/status/1730355508186386608
 - https://x.com/1FRGVN/status/1730335228047056929 -> practical issues around being the town pariah.
 
