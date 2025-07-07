@@ -679,12 +679,17 @@ function googleTranslateElementInit() {
 #### Hanuman
 
 - I'm always making connections between what's happening to me online and at the conservatory, and my study of the Ramayana and devotion to Hanuman.
-- This is part of my constant attempts at understanding what's going on.
-- This is *the very best* version of the events I could come up with.
+- I start to dream about a Hanuman temple outside my apartment on the vacant lot there.
+
+[![Dreaming a Hanuman temple into being](../../content/tweets/december-2023/dreaming-the-hanuman-temple-into-being.png)](https://x.com/1FRGVN/status/1730355508186386608)
+
+- His [entry into this story early on](../2022/november.md#hanuman-enters-the-picture) was remarkable, and he has never left me for a second.
+
+- I see parallels with the Ramayana and this is *the very best* meaning behind the events I could come up with.
 
 [![Devotion to Hanuman](../../content/tweets/december-2023/connections-to-the-ramayana.png)](https://x.com/1FRGVN/status/1731089945702371827)
 
-- I dream of a Hanuman temple and design it on the land opposite my apartment. 
+- I design and create a picture of the Hanuman temple on the land opposite my apartment. 
 
 [![Hanuman temple](../../content/images/hanuman-temple.jpg)](https://x.com/1FRGVN/status/1730640137279639877)
 
@@ -732,16 +737,8 @@ function googleTranslateElementInit() {
 
 #### SM Jenkins
 
+- I suspect this gang-stalker account is run by Sandra Smith.
 - https://x.com/Sajenks42
-
-
-
-
-
-- https://x.com/1FRGVN/status/1730680949266841930 -> quote regarding Pablo and the fact he had to witness the psychological attack against a "vulnerable" female by males he probably respected, and he was a great kid. Note Matthew has something to say about this.
-
-- https://x.com/1FRGVN/status/1730355508186386608
-- https://x.com/1FRGVN/status/1730335228047056929 -> practical issues around being the town pariah.
 
 #### BA Feldman
 
