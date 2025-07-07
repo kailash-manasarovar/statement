@@ -170,6 +170,30 @@ function googleTranslateElementInit() {
 - It does seem likely that, although they got close from time to time, the hypno-honey-trappers were never truly successful.
 - Is that also the case with the young and inexperienced girls they target, and the minor children, or is it more likely it works every time on the young and inexperienced, and I surprised them again and again, and again?
 
+## Boring Ana
+
+- As I'm driving into Lourdes on the evening of the 6th December, I'm prompted to say something curious out loud, over and over.
+- I always have my mobile on in the car with Google maps running.
+- The phone is placed in the middle of the dash.
+- If the camera was on, and someone had hacked it, they would likely see me at the wheel.
+- I start to say: "Ana, oh Ana, you are sooo BORING!"
+- I repeat it: "SOOOOOO BORING, BORING, BORING ANA!"
+- I continue like this probably for about twenty minutes.
+
+![Boring Ana](../../content/images/boring-ana.png)
+
+- The next chamber music class I attend, Ana's friend Katia is exponentially more angry with me.
+- I also see Ana in the corridor and she glares at me as if I am extraordinarily disgusting to her.
+- It was startling, actually, and more proof I was being watched and listened to, whatever I did and wherever I went.
+- I tweet about it before the next class, and ask the women to be a bit nicer.
+
+[![Please be a bit nicer ladies](../../content/tweets/december-2023/chamber-music-class-anger.png)](https://x.com/1FRGVN/status/1736751514587165134)
+
+- Did everyone know I had said she was so BORING!
+- If so, who told them and how did that person know what I'd said?
+- The truth is, I don't find Ana boring at all and I never did.
+- I have no feelings for Ana whatsoever, other than the normal friendly feelings I had for her before I realized how evil she is.
+
 ## I see a man in town I have seen on Twitter
 
 - I'm walking back from the Chinese restaurant one evening up the Calle Diana towards the tunnel.
@@ -332,7 +356,7 @@ function googleTranslateElementInit() {
 
 - A great many people viewed and translated the poll.
 
-### The Finnish lady and her boyfriend
+#### Spies everywhere
 
 - Of course, hackers will have known that I was going on a short meditation retreat at Christmas from the moment I applied online when bookings opened.
 - They had ample time to organize even more outlandish stalking activity; although at that stage I was not able to conceive of a country-wide, never mind international conspiracy.
@@ -446,7 +470,8 @@ function googleTranslateElementInit() {
 - I have really bad food poisoning for about two days and do not go online or leave my hotel room apart from a short trip to get ice lollies.
 - I tweet about it and a good few people translate it.
 
-![Food poisoning](../../content/tweets/december-2023/food-poisoning.png)
+[![Food poisoning](../../content/tweets/december-2023/food-poisoning.png)](https://x.com/1FRGVN/status/1740715260791697873)
+
 ![Food poisoning translations](../../content/tweets/december-2023/food-poisoning-translations.png)
 
 - My friend was not affected by anything and we ate and drank exactly the same things.
@@ -566,13 +591,56 @@ function googleTranslateElementInit() {
 
 [![Responses to flirtatious posts](../../content/tweets/december-2023/conversing-with-men-or-pretend-men.png)](https://x.com/1FRGVN/status/1741477973864136862)
 
+- A viral post about you *sex face* goes around. This is the image I saw and re-posted. I wondered if it was generated for me.
+
+[![Sex face](../../content/tweets/december-2023/sex-face-gif.png)](https://x.com/1FRGVN/status/1741218414276858196)
+
+- I'm tired of the lies and suffering, and disagree with it continuing, vehemently.
+
+[![Lies and suffering](../../content/tweets/december-2023/lies-and-suffering.png)](https://x.com/1FRGVN/status/1741191051669287342)
+
+- Who plays your part in the movie. I feel like an old lady detective, stumbling around in the dark trying to find out what's going on.
+
+[![Margaret Rutherford](../../content/tweets/december-2023/margaret-rutherford.png)](https://x.com/1FRGVN/status/1738665712795652332)
+
+- Curiously, I suddenly start to see accounts posting the jyotirlinga in India, something I'm very interested in. It's rather comforting, and curious too.
+
+[![Jyotirlinga](../../content/tweets/december-2023/jyotirlingums.png)](https://x.com/1FRGVN/status/1737952355692253473)
+
+[![Shiva lingums](../../content/tweets/december-2023/shivalingums-returning.png)](https://x.com/1FRGVN/status/1736923933897535687)
+
+- I offer the stalkers forgivenet t-shirts.
+
+[![forgivenet t-shirts](../../content/tweets/december-2023/offering-tshirts.png)](https://x.com/1FRGVN/status/1737553762045301184)
+
+- Always trying to see a positive view on it all.
+
+[![Positive views](../../content/tweets/december-2023/seeing-the-best-again.png)](https://x.com/1FRGVN/status/1736515286654652817)
+
+- Something online tells me, yet again, that the trumpet teacher is on my side. I post about his "slightly offensive weird tackiness" and how it makes sense to me. I believe I thought he was informing me that he trying to warn me instead of playing his part properly for Domingo and Hazel.
+
+[![Weird tackiness](../../content/tweets/december-2023/weird-tackiness.png)](https://x.com/1FRGVN/status/1736430347221414053)
+
+#### Porn bots or targets
+
+- I continue to see a lot of fake account that appear to be porn bots.
+- I notice that many of the women in the pictures are probably not porn stars, and are more likely in what they consider to be a *normal* relationship.
+- Some of the women I see in various states of undress are really very young, teenagers.
+- I post my views on what I'm seeing.
+
+[![Porn bots or nudes](../../content/tweets/december-2023/porn-bots-just-nudes.png)](https://x.com/1FRGVN/status/1738476409599779094)
+
+- On another occasion I see a collection of porn bots with massive boobs. I remark on it and get a response online.
+
+![Busty day](../../content/tweets/december-2023/busty-day.png)
+
 #### Unusual physical strength
 
 - As well as the [stone throwing](#vipasana-meditation), I report unusual physical prowess in yoga.
 
 [![Elbow balance for the first time in ages](../../content/tweets/december-2023/yoga-breakthrough.png)](https://x.com/1FRGVN/status/1740114128612536765)
 
-- These achievements did not continue.
+- These achievements did not persist.
 
 #### Romina
 
@@ -595,48 +663,8 @@ function googleTranslateElementInit() {
 
 
 
-- https://x.com/1FRGVN/status/1741218414276858196 -> I think this gif was generated just for me.
-- https://x.com/1FRGVN/status/1741192065680122260 -> response to stalker accounts, no idea what they'd said.
-- https://x.com/1FRGVN/status/1741191051669287342
-- https://x.com/1FRGVN/status/1741189826852884550
-- https://x.com/1FRGVN/status/1741150130235937110 -> reference to me posting I liked the trumpet teacher in Spanish.
-- https://x.com/1FRGVN/status/1741141991042306188 -> tweet explaining how exuberant I had been feeling over Christmas and what happened at meditation.
-- https://x.com/1FRGVN/status/1741043648815653352 -> always questioning them.
-- https://x.com/1FRGVN/status/1741012146736291935 -> I don't understand the strawberries (the overwhelming sexual feelings). I never once consider I'm being drugged. It's just too evil to enter my mind.
-- https://x.com/1FRGVN/status/1740889587545751848 -> tweet about the Finnish lady who played Back 2 Black.
-- https://x.com/1FRGVN/status/1740812188800188865 -> the Romina account had been messing with me since April 2022. I had no idea it was connected to Domingo and the gang stalking but clearly it was, and I was starting to realize how long I had been stalked for. https://x.com/whoawmina
-- https://x.com/1FRGVN/status/1740837494638415890 -> responding to stalkers.
-- https://x.com/1FRGVN/status/1740831827743670449
-- https://x.com/1FRGVN/status/1740715260791697873 -> food poisoning.
-- https://x.com/1FRGVN/status/1740799870586482896 -> hidden like.
-- https://x.com/1FRGVN/status/1740786165593038998 -> trying to find out info and make sense of what's going on.
-- https://x.com/1FRGVN/status/1740735296067563890
-- https://x.com/1FRGVN/status/1740714546761814047
-- https://x.com/1FRGVN/status/1740102880126996657 -> messing with them really.
-- https://x.com/1FRGVN/status/1740331983136551267
-- https://x.com/1FRGVN/status/1740314691388203079 -> unwitting infamy.
-- https://x.com/1FRGVN/status/1740290316970738083 -> the cry I reference I mention [here](march.md#chamber-music-classes-continue)
-- https://x.com/1FRGVN/status/1740273934833201503 -> only cried for love twice in my life.
-- https://x.com/1FRGVN/status/1740268855480795581 -> talking about everything that's going on.
-- https://x.com/1FRGVN/status/1740127866447094097
-- https://x.com/1FRGVN/status/1740101710142652791
-- https://x.com/1FRGVN/status/1740103211045048766
-- https://x.com/1FRGVN/status/1739751872397791322 -> I mention my crypto business that I was asking the engineer for help with on the Jack Chardwood account.
-- https://x.com/1FRGVN/status/1738665712795652332
-- https://x.com/1FRGVN/status/1738476409599779094 -> sniffing something's up.
-- https://x.com/1FRGVN/status/1737952355692253473 -> suddenly jyotirlingum account posts appear out of nowhere. I didn't follow them.
-- https://x.com/1FRGVN/status/1737951785279500578 -> offering the stalkers t-shirts of the forgivenet, my crypto app.
-- https://x.com/1FRGVN/status/1737553762045301184 -> offering t-shirts.
-- https://x.com/1FRGVN/status/1737545423374463251
-- https://x.com/1FRGVN/status/1737536074354753735
-- https://x.com/1FRGVN/status/1737526642908491783
-- https://x.com/1FRGVN/status/1737517825906913436
-- https://x.com/1FRGVN/status/1737214390099730900 -> remarking on all the porn bots, hidden like and retweet.
-- https://x.com/1FRGVN/status/1736923933897535687 -> erratic content behavior.
-- https://x.com/1FRGVN/status/1736786105909784644 -> mentioned by choir student on my way to chamber music class.
-- https://x.com/1FRGVN/status/1736751514587165134 -> worried about the women being angry with me again at chamber music.
-- https://x.com/1FRGVN/status/1736515286654652817
-- https://x.com/1FRGVN/status/1736430347221414053 -> I can't remember what this refers exactly to but it's to do with me feeling like there's a reciprocal relationship and I'm winning against the stalker. It's bollocks obviously but I'm not thinking straight.
+
+
 - https://x.com/1FRGVN/status/1736377650216571250 -> mentioning the car issue and how it was intermittent. Did someone do something to my car at that point? 
 - https://x.com/1FRGVN/status/1735986921720164437
 - https://x.com/1FRGVN/status/1735973677823328645

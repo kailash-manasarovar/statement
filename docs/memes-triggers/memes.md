@@ -16,3 +16,8 @@
 
 - https://x.com/search?q=(shark%20OR%20jaws)%20(from%3A1frgvn)&f=live&src=typed_query
 - https://x.com/1FRGVN/status/1710011124635070560
+
+- I post about how we delivered the bomb just before I go to class. 
+- The single male adult member of my choir class "bumps" into me in the hall. He is looking at me and shaking his head laughing.
+
+[![Delivering the bomb](../content/tweets/memes/we-delivered-the-bomb.png)](https://x.com/1FRGVN/status/1736786105909784644)
