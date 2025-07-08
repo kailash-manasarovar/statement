@@ -160,7 +160,7 @@ function googleTranslateElementInit() {
 
 - It's quite complicated Spanish but says something like: "they thought you were an idiot, but they were wrong".
 - I first saw this tweet in July, and I remember being so curious about what it meant as it was language I was unfamiliar with.
-- I translated it on my mobile at Valencia airport on my way back from Thailand.
+- I translated it on my mobile at Valencia airport while [waiting for my friend to arrive](september.md#the-tibetan-monk-visits).
 - Of course, every time it came up in search, which was continuously, it made me think that the trumpet teacher still liked me.
 - Here is an example of it coming up again in [April 2024](../2024/april.md#google-searches) on the `@jctot19` profile rendered on Google search.
 
