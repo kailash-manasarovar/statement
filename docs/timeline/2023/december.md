@@ -807,6 +807,7 @@ function googleTranslateElementInit() {
 - Did I see this person as an adult coming out of the tunnel, grinning, to blow something in my face on [Wednesday 13th March 2024](../2024/march.md#choir-class) after choir class?
 - Or are these fake accounts on my side somehow; drip-feeding me the information that I need to bring down the porn gangs?
 
-### @JackChardwood
+### `@JackChardwood`
 
-- Nothing of note. Perhaps conversations are in here but it's too difficult to tell.
+- There's very little activity on here for this month.
+- I believe I was receiving messages/replies to posts on `@1frgvn` via posts here on my feed and fake accounts.
