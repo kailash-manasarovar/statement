@@ -237,7 +237,7 @@ function googleTranslateElementInit() {
 - To kill or maim her?
 - They got close. 
 - I'm still struggling with basic cognitive skills in May 2025, something that low-level doses of methanol, or whatever, can obliterate.
-- He did [threaten to poison me](../early-years/2014.md#back-in-denia) after all.
+- He did [threaten to poison me](../early-years/2014.md#poisoned-aunts) after all.
 - I guess he was just making good on his threat.
 
 ## TEB with Robin

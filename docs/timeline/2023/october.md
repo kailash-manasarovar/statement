@@ -648,7 +648,7 @@ function googleTranslateElementInit() {
 
 #### Poisoned aunt
 
-- This tweet is the first, last, and only time I mention anything to do with [Domingo's threat in 2014](../early-years/2014.md#back-in-denia).
+- This tweet is the first, last, and only time I mention anything to do with [Domingo's threat in 2014](../early-years/2014.md#poisoned-aunts).
 
 [![Poisoned aunt](../../content/tweets/october-2023/poisoned-aunt.png)](https://x.com/1FRGVN/status/1715741021655466380)
 
