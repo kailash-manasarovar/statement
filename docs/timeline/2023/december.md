@@ -675,11 +675,13 @@ function googleTranslateElementInit() {
 
 [![Response to a stalker](../../content/tweets/december-2023/responding-to-someone.png)](https://x.com/1FRGVN/status/1731716586631803194)
 
-- I reflect sadly on the youngster [Pablo witnessing such violence towards women at the conservatory on 12th June](june.md#monday-12th-june-2023). Note the Matthew account has something to say about this.
+- I reflect sadly on the youngster [Pablo witnessing such violence towards women at the conservatory on 12th June](june.md#monday-12th-june-2023).
+- Note the Matthew account has something to say about this.
 
 [![Upset about Pablo](../../content/tweets/december-2023/upset-that-pablo-had-to-witness-such-evil.png)](https://x.com/1FRGVN/status/1730680949266841930)
 
-- Reflecting on how sexual violence makes female targets pariahs in the minds of unevolved communities. This was true for me in 1989 also.
+- Reflecting on how sexual violence makes female targets pariahs in the minds of un-evolved communities.
+- This was true for me in 1989 also.
 
 [![Unevolved communities and sexual abuse survivors](../../content/tweets/december-2023/sexual-violence-makes-a-woman-a-pariah.png)](https://x.com/1FRGVN/status/1730977373212889274)
 
