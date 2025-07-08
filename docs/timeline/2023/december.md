@@ -617,15 +617,17 @@ function googleTranslateElementInit() {
 
 [![Shiva lingums](../../content/tweets/december-2023/shivalingums-returning.png)](https://x.com/1FRGVN/status/1736923933897535687)
 
-- I offer the stalkers forgivenet t-shirts.
+- I offer the stalkers [forgivenet](https://1frgvn.com/) t-shirts.
 
 [![forgivenet t-shirts](../../content/tweets/december-2023/offering-tshirts.png)](https://x.com/1FRGVN/status/1737553762045301184)
 
-- Always trying to see a positive view on it all.
+- Always trying to have a positive view on it all.
 
 [![Positive views](../../content/tweets/december-2023/seeing-the-best-again.png)](https://x.com/1FRGVN/status/1736515286654652817)
 
-- Something online tells me, yet again, that the trumpet teacher is on my side. I post about his "slightly offensive weird tackiness" and how it makes sense to me. I believe I thought he was informing me that he trying to warn me instead of playing his part properly for Domingo and Hazel.
+- Something online tells me, yet again, that the trumpet teacher is on my side. 
+- I post about his [*slightly offensive weird tackiness*](january.md#chamber-music-classes-continue) and how it makes sense to me.
+- I believe I thought he was informing me that he trying to warn me instead of playing his part properly for Domingo and Hazel.
 
 [![Weird tackiness](../../content/tweets/december-2023/weird-tackiness.png)](https://x.com/1FRGVN/status/1736430347221414053)
 
