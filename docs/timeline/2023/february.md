@@ -58,8 +58,10 @@ function googleTranslateElementInit() {
 - At one chamber music class, I don't remember which one, the trumpet teacher suggests he is free in the afternoons and the implication is that we could maybe get together.
 - For me, this is a bit much. I haven't had sexual relations for nearly 13 years, and I haven't had a proper boyfriend for over 20 years. I don't reply.
 
-!!! danger
+!!! danger "Sedating women is serious crime"
     - Was this an attempt to commence a regular sexual relationship with me at my apartment which could then be live-streamed on porn networks?
+    - Was a regular sexual relationship *already* being live-streamed from my apartment, except without my knowledge?
+    - Would the man have preferred a conscious and consenting target perhaps?
 
 ![Sedating me and coming into my room](../../content/images/sedating/sedating-2.png)
 
@@ -72,9 +74,8 @@ function googleTranslateElementInit() {
 
 - One might say I had already stepped into the Fiery Furnace, without realizing it.
 - Every day in Dénia, for me, was another day living peacefully and without harm right in the middle of the Fiery Furnace.
-- He looked at me in a funny way. I didn't know why at the time.
-
-<iframe width="462" height="378" src="https://www.youtube.com/embed/6r1baNdgImo" title="Louis Armstrong - Shadrach, Meshach, and Abednego" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+- He looked at me in a strangely negative manner, with a little bit of worry and anxiety added.
+- I did not know why at the time.
 
 ## Observations on the trumpet teacher
 
