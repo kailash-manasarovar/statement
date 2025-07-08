@@ -765,7 +765,7 @@ function googleTranslateElementInit() {
 ![Flirting](../../content/tweets/december-2023/flirting-with-ba.png)
 
 - Read what's left of our interactions on the X search function from [me to him](https://x.com/search?q=(from%3A1FRGVN)%20(to%3AAIinAmerica)%20&src=typed_query&f=live), and from [him to me](https://x.com/search?q=(to%3A1FRGVN)%20(from%3AAIinAmerica)%20&src=typed_query&f=live).
-- The communication I had with this account was *extremely* curious, and only seems to have happened when I was feeling overwhelmed with the online stalking, and perhaps also after unknowing ingestion of psycho-active substances, on certain evenings.
+- The communication I had with this account was *extremely* curious, and only seems to have happened when I was feeling overwhelmed with the online stalking, and perhaps also after unknowing ingestion of psycho-active substances on certain evenings at home.
 - For example, the account posts a message to me, then deletes it immediately.
 - I'm certain it is stalkers related to the trumpet teacher business, if not TT himself.
 - On one occasion, we are posting pictures of ourselves when we were small.
