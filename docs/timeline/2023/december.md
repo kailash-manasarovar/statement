@@ -611,7 +611,7 @@ function googleTranslateElementInit() {
 
 [![Margaret Rutherford](../../content/tweets/december-2023/margaret-rutherford.png)](https://x.com/1FRGVN/status/1738665712795652332)
 
-- Curiously, I suddenly start to see accounts posting the jyotirlinga in India, something I'm very interested in. It's rather comforting, and curious too.
+- Curiously, I suddenly start to see accounts posting the jyotirlinga in India, something I'm very interested in. It's rather comforting.
 
 [![Jyotirlinga](../../content/tweets/december-2023/jyotirlingums.png)](https://x.com/1FRGVN/status/1737952355692253473)
 
