@@ -398,7 +398,7 @@ function googleTranslateElementInit() {
 - He had his cello with him and she had her ukulele.
 - He seemed a little high maybe; grinning and pleasant.
 - Apparently she was flying back to Finland in the next few days, but he was from Germany and I wasn't sure where he was going. 
-- He may have been studying music in Spain. You don't usually bring an enormous cello on meditation trips in other countries, do you?
+- He may have been studying music in Spain. You don't usually bring an enormous cello on meditation trips to other countries, do you?
 - Nothing much of what she told me made sense.
 - When we arrived at their hostel, she told me she wanted to sing me a song.
 - She got her ukulele out and started to play.
