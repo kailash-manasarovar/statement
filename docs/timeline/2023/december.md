@@ -639,7 +639,8 @@ function googleTranslateElementInit() {
 
 [![Rollercoasters](../../content/tweets/december-2023/rollercoasters.png)](https://x.com/1FRGVN/status/1735973677823328645)
 
-- I report the intensity of my feelings dropping off. Did teachers and staff at the conservatory give me a short break before doubling down at Christmas?
+- I report the intensity of my feelings dropping off. 
+- Did teachers and staff at the conservatory give me a short break before doubling down at Christmas?
 
 [![Intensity drops off](../../content/tweets/december-2023/intensity-dropped-off.png)](https://x.com/1FRGVN/status/1735803253278019868)
 
