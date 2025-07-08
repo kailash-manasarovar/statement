@@ -644,7 +644,8 @@ function googleTranslateElementInit() {
 
 [![Intensity drops off](../../content/tweets/december-2023/intensity-dropped-off.png)](https://x.com/1FRGVN/status/1735803253278019868)
 
-- Mentioning the *chirps of the century* that I had mentioned to [Matthew Copeland](). I saw a positive vote on this poll at some point.
+- Mentioning the *chirps of the century* that I had mentioned to [Matthew Copeland](august.md#france-lourdes--cauterets). 
+- I saw one positive vote on this poll at some point which has since disappeared.
 
 [![Chirps of the century](../../content/tweets/december-2023/chirps-of-the-century.png)](https://x.com/1FRGVN/status/1735669815954587663)
 
