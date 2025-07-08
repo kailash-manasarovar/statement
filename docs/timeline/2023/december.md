@@ -769,7 +769,7 @@ function googleTranslateElementInit() {
 - For example, the account posts a message to me, then deletes it immediately.
 - I'm certain it is stalkers related to the trumpet teacher business, if not TT himself.
 - On one occasion, we are posting pictures of ourselves when we were small.
-- The BA Feldman account posts a picture of a young man.
+- The BA Feldman account posts a picture of a young man, but I suppose it could be a woman too.
 
 ![The young man](../../content/images/line-up/bafeldman.jpg)
 
