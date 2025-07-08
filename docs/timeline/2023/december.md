@@ -599,7 +599,7 @@ function googleTranslateElementInit() {
 
 [![Responses to flirtatious posts](../../content/tweets/december-2023/conversing-with-men-or-pretend-men.png)](https://x.com/1FRGVN/status/1741477973864136862)
 
-- A viral post about you *sex face* goes around. This is the image I saw and re-posted. I wondered if it was generated for me.
+- A viral post about your *sex face* goes around. This is the image I saw and re-posted. I wondered if it was generated for me.
 
 [![Sex face](../../content/tweets/december-2023/sex-face-gif.png)](https://x.com/1FRGVN/status/1741218414276858196)
 
