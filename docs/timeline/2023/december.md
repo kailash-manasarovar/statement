@@ -657,7 +657,8 @@ function googleTranslateElementInit() {
 
 [![Community involvement](../../content/tweets/december-2023/involving-the-community.png)](https://x.com/1FRGVN/status/1735586729996771515)
 
-- Dreaming about the Cock and Raven. It'd be amazing to find any sedated porn from my apartment which matched these frequent turgid nights on time and date, and content.
+- Dreaming about the Cock and Raven. 
+- It'd be amazing to find any sedated porn from my apartment which matched these frequent turgid nights on time and date, and content.
 
 [![Cock and Raven](../../content/tweets/december-2023/cock-and-raven.png)](https://x.com/1FRGVN/status/1735572254388330653)
 
