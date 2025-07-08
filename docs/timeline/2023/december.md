@@ -670,7 +670,8 @@ function googleTranslateElementInit() {
 
 [![Stalker types](../../content/tweets/december-2023/stalker-types.png)](https://x.com/1FRGVN/status/1734118219152023628)
 
-- A response to [Mary G Lamarche, prime stalker](november.md#mary-g-lamarche-account). I believe I'm talking about rape of children and child sexual abuse generally which I believe should have a classification of attempted murder because experiencing it literally takes your life away from you, and that is exactly what the perpetrators intend.
+- A response to [Mary G Lamarche, prime stalker](november.md#mary-g-lamarche-account). 
+- I believe I'm talking about rape of children and child sexual abuse generally which I believe should have a classification of attempted murder because experiencing it literally takes your life away from you, and that is exactly what the perpetrators intend.
 
 [![Response to a stalker](../../content/tweets/december-2023/responding-to-someone.png)](https://x.com/1FRGVN/status/1731716586631803194)
 
