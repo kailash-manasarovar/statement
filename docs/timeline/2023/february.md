@@ -63,6 +63,19 @@ function googleTranslateElementInit() {
 
 ![Sedating me and coming into my room](../../content/images/sedating/sedating-2.png)
 
+### Shadrach Meshach and Abednego
+
+- Nevertheless, I have such a good feeling for this man, and I really want to communicate with him, after class I show him excitedly what I have been watching on YouTube.
+- It's Louis Armstrong singing Shadrach Meshach and Abednego.
+
+<iframe width="462" height="378" src="https://www.youtube.com/embed/6r1baNdgImo" title="Louis Armstrong - Shadrach, Meshach, and Abednego" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+- One might say I had already stepped into the Fiery Furnace, without realizing it.
+- Every day in Dénia, for me, was another day living peacefully and without harm right in the middle of the Fiery Furnace.
+- He looked at me in a funny way. I didn't know why at the time.
+
+<iframe width="462" height="378" src="https://www.youtube.com/embed/6r1baNdgImo" title="Louis Armstrong - Shadrach, Meshach, and Abednego" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
 ## Observations on the trumpet teacher
 
 - The trumpet teacher seems poor and he is badly dressed.
