@@ -106,6 +106,7 @@ function googleTranslateElementInit() {
 
 - I may be wrong, but he has [that grin](../2022/november.md#walking-in-benijembla-with-the-english-ladies).
 - I know it must have been the 8th because this will have been the only day the Carrefour is open and busy.
+- Another table starts to talk to us a little. Sally says something incredibly bizarre and incongruent about how much she loves animals. This makes them all roll their eyes at her and not speak to us again.
 - We stay a long time and drink wine.
 - We also take a drink from the strange man who says he works in security for the sanctuary.
 - I tell everyone about [Ana in the car with no driver](november.md#ana-in-the-blue-van).
