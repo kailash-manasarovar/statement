@@ -72,7 +72,7 @@ function googleTranslateElementInit() {
 
 <iframe width="857" height="228" src="https://www.youtube.com/embed/ihOHhViUrdQ" title="Louis Armstrong   Shadrach, Meshach, and Abednego" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-- One might say I had already stepped into the Fiery Furnace, without realizing it.
+- One might say I had already stepped into the Fiery Furnace, without realizing it, refusing to bow down.
 - Every day in Dénia, for me, was another day living peacefully and without harm right in the middle of the Fiery Furnace.
 - He looked at me in a strangely negative manner, with a little bit of worry and anxiety added.
 - I did not know why at the time.
