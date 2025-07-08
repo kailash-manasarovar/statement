@@ -740,13 +740,14 @@ function googleTranslateElementInit() {
 - I was not surprised she answered the poll.
 - It felt like this account had been messing with me for years already.
 - I wonder who is behind it. 
-- I sense Carmen Cano energy around it.
+- I sense Carmen Cano energy.
 
 [![Romina](../../content/tweets/december-2023/romina.png)](https://x.com/1FRGVN/status/1740837642630013181)
 
 #### SM Jenkins
 
 - I suspect this gang-stalker account is run by Sandra Smith.
+- The trigger here is the [microphone](august.md#youtube) which reminds me of the trumpet teacher's YouTube channel pics.
 - https://x.com/Sajenks42
 
 #### BA Feldman
