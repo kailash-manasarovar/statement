@@ -735,7 +735,7 @@ function googleTranslateElementInit() {
 
 [![Romina account](../../content/tweets/december-2023/romina-account.png)](https://x.com/whoawmina)
 
-- She had often interjected while I was baring my soul about child sexual abuse with an account on X set up for just that: https://x.com/survivortough1.
+- She had often interjected while I was baring my soul in 2021-2022, *anonymously* I thought, about child sexual abuse with an account on X set up for just that: https://x.com/survivortough1.
 - She presented as a trans-activist account for a while too.
 - I was not surprised she answered the poll.
 - It felt like this account had been messing with me for years already.
