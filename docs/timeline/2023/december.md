@@ -444,7 +444,7 @@ function googleTranslateElementInit() {
 
 #### DAO
 
-- While meditating I start to have an idea about a DAO version of the forgivenet network.
+- While meditating I start to have an idea about a DAO version of the [forgivenet network](https://1frgvn.com/).
 - I tweet about it when I get back to Madrid.
 
 [![DAO idea](../../content/tweets/december-2023/the-dao-idea.png)](https://x.com/1FRGVN/status/1739751872397791322)
@@ -514,10 +514,10 @@ function googleTranslateElementInit() {
 
 - Following is a selection of tweets from this period.
 
-### Child rape-gang porn from 1989 again
+### Seeing child rape-gang porn from 1989 again
 
 - I eventually realize Dénia cyber-stalkers and hackers are suggesting I had been in rape-gang-porn as a child, and they had seen it.
-- They had already [flashed some of it up once before](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x), alluded to it in their [beach chair displays](september.md#gang-stalking-on-the-beach), and made continued references to it taken directly from my [police statement](../early-years/2015.md#statement-to-the-metropolitan-police) such as [tables](september.md#table) or [spoken statements](may.md#chamber-music-concert) or shouting [*AGAIN?*](june.md#june-9th-piano-concert), for example, but it took a while for me to figure it out.
+- They had already [flashed some of it up once before](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x), alluded to it in their [beach chair displays](september.md#gang-stalking-on-the-beach), and made continued references to it taken directly from my [police statement](../early-years/2015.md#statement-to-the-metropolitan-police) such as [tables](september.md#table) or [spoken statements by conservatory teachers](may.md#chamber-music-concert) or shouting [*AGAIN?*](june.md#june-9th-piano-concert), for example, but it took a while for me to figure it out.
 - I had only ever had a suspicion of being filmed, no actual evidence, but everything that the people of Dénia were doing pointed to real pedophile-rape-gang-porn films that they had seen, and thoroughly enjoyed it appeared.
 - This month I see, again flashed up on my X feed, pictures of a young girl's naked body. The girl is me again; so pale her skin appears nearly blue and dappled. 
 - This time I see myself from behind my head, looking down on me.
