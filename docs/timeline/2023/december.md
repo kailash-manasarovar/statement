@@ -607,7 +607,7 @@ function googleTranslateElementInit() {
 
 [![Lies and suffering](../../content/tweets/december-2023/lies-and-suffering.png)](https://x.com/1FRGVN/status/1741191051669287342)
 
-- Who plays your part in the movie. I feel like an old lady detective, stumbling around in the dark trying to find out what's going on.
+- I feel like an old lady detective, stumbling around in the dark trying to find out what's going on.
 
 [![Margaret Rutherford](../../content/tweets/december-2023/margaret-rutherford.png)](https://x.com/1FRGVN/status/1738665712795652332)
 
