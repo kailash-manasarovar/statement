@@ -195,7 +195,7 @@ function googleTranslateElementInit() {
 - Could everyone have known I said Ana was BORING!?
 - If so, who told them and how did that person know what I'd said?
 - The truth is, I don't find Ana boring at all, and I never did.
-- I have no feelings for Ana whatsoever, other than the normal friendly feelings I had for her before I realized how evil she is.
+- I have no feelings for Ana whatsoever, other than the normal friendly feelings I had for her before I realized how much she is prepared to support a perilous (and evil) learning environment for vulnerable children and adults.
 
 ## I see a man in town I have seen on Twitter
 
