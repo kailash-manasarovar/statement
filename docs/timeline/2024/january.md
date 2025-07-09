@@ -24,7 +24,7 @@
 - I continue chatting with the [fake account that posted a picture of my hotel room](../2023/december.md#hotel-room-cyber-stalker).
 - The content goes from Dénia specifics, and I've no doubt a man is speaking to me, to someone who is unusually delighted and claims to be a retired British lady in France showing me pictures of goats in her garden, and back and forth like this.
 - I'm sure the account is either the trumpet teacher or someone close to him as they have information they could only know if they were involved in the crimes against me.
-- Later, I wonder if the criminals have delegate access to accounts like these, which they can slip in and out of easily with the owners full knowledge.
+- Later, I wonder if the criminals have delegate access to accounts like these, which they can slip in and out of easily, with the owners full knowledge.
 - The account states, again, that they're nervous they're *actually* talking to me instead of seeing me in the WhatsApp group.
 - We chat.
 - I'm sure it is the trumpet teacher. 
@@ -37,9 +37,9 @@
 - I believed he loved me and wanted to communicate with me, a little.
 - Don't we all want to be loved?
 - Who wouldn't be influenced by feelings of love and a potential relationship with someone you believe you really like, even if it is manufactured and fake?
-- Or did they set me up with someone they knew was going to be a match?
-- How could they know that? Weird occultism maybe?
-- Did Christ the alchemist himself take over, on request from two or more?
+- Or did they set me up with someone they knew would be a perfect match?
+- If true, how could they know that? Weird occultism or astrology, maybe?
+- Did Christ the alchemist himself take over, on request from us both, and more?
 
 ### Google search results for boyfriends
 
