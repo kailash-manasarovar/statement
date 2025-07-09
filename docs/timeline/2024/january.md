@@ -12,7 +12,7 @@
     - I don't really think I have a boyfriend, it's too absurd.
     - I know I'm being tricked online, but I can't seem to unhook myself from the relentless triggering.
     - It is post-after-post of meaningful words, phrases, and images related to the last year's activity.
-    - Posts come from multiple accounts I have never followed, and will never see again.
+    - Posts come from [multiple accounts I have never followed](#jackchardwood-account-content-completely-changed), and often never see again.
     - On its own, I don't believe the online activity would be sufficient to maintain my interest, so I must have been ingesting mood-altering substances without my knowledge.
     - These two manipulation techniques meant that I could not think rationally about anything at all.
     - Whatever is triggering these beliefs is very powerful, and is connected to a daily overwhelming sexual arousal, something I did not experience before April 2023, and have not experienced since I left my apartment in October 2024.
