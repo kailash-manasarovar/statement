@@ -96,6 +96,13 @@
 - Add to that the earnings that Dénia criminals were now making on spy-cam porn of me in my apartment, and we are talking probably in the 10s of millions, owed to me personally, by criminal gangs in the UK and Spain.
 - Pervert gangs had been enriching their lives on my suffering for decades.
 
+### Menstruation
+
+- I have a heavy period.
+- I believe it is my last as I do not have one again.
+- 18 months later, when I'm safer and not being terrorized 24-hours a day, menstruation resumes.
+- I believe it stopped due to the stress I was under.
+
 ## Galway
 
 - I'm still extraordinarily high from Christmas.
