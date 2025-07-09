@@ -32,7 +32,7 @@
 - I ask him why not. 
 - He doesn't say but it sounds like he had some sort of breakdown.
 - I wonder if it is jail.
-- I end up blocking the account because it's all just so weird; but I think if you believe the lie, even a tiny bit, they have a hold over you. 
+- I end up blocking the account because it's all just so weird; but I think if you believe the lie, even a tiny bit, they think they have a hold over you. 
 - It's like if you talk to the Indian phone-scammer, even just a few words, they never leave you alone.
 - I believed he loved me and wanted to communicate with me, a little.
 - Don't we all want to be loved?
