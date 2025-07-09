@@ -57,9 +57,9 @@
 
 [![Prefer the insipid Indians](../../content/tweets/january-2024/preferring-the-insipid-indians.png)](https://x.com/JackChardwood/status/1789065155193577680)
 
-- I believe the hackers and honey-trappers start doubling down in January 2024, knowing that the conservatory have devised the [most outrageous psychological attack on me](march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) which they must believe will certainly make me leave my studies, after which they can hand me over to the sex-gangs as was originally planned for [June 2023](../2023/june.md#monday-12th-june-2023), but failed.
+- I believe the hackers and honey-trappers start doubling down in January 2024, knowing that the conservatory have devised the [most outrageous psychological attack on me planned for March 12th](march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) which they must believe will certainly make me leave my studies, after which they can hand me over to the sex-gangs as was originally planned for [June 12th 2023](../2023/june.md#monday-12th-june-2023), but failed.
 - Tired by their idiocy, the [staged event starring a woman dressed as Elaine Black](march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) just made me more disgusted with them, so they had to do even worse until I did leave Dénia for Madrid a couple of days later, terrified and terrorized.
-- Once I had left the conservatory, teacher and staff at the conservatory must have felt I had been finally handed over successfully to the porn gangs.
+- Once I had left the conservatory, teachers and staff must have felt relief that I had been finally handed over successfully to the porn gangs.
 - I wonder how many other girls have experienced the same at their hands.
 - The new content continues until I start writing my police statement in November 2024.
 - At that time, 70% of the fake accounts following me disappear on one afternoon, and all activity drops off completely, never to start up again at the time of writing.
