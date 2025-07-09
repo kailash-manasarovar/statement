@@ -14,28 +14,32 @@
     - It is post-after-post of meaningful words, phrases, and images related to the last year's activity.
     - Posts come from multiple accounts I have never followed, and will never see again.
     - On its own, I don't believe the online activity would be sufficient to maintain my interest, so I must have been ingesting mood-altering substances without my knowledge.
-    - These two manipulating techniques mean that I could not think rationally about anything at all.
+    - These two manipulating techniques meant that I could not think rationally about anything at all.
     - Whatever is triggering these beliefs is very powerful, and is connected to a daily overwhelming sexual arousal, something I did not experience before April 2023, and have not experienced since I left my apartment in October 2024.
     - I believe I was being drugged daily via the water coming into my apartment, tampered food and bathroom products, plus manipulation with online seduction techniques.
-    - I still have multiple samples ready for inspection if anyone ever gets round to caring about the safety of children, women and young girls living in the Spanish Valencian Community.
-    - I can't imagine how an inexperienced young girl or child could possibly survive a similarly vicious attack on her emotional and mental state.
+    - I still have multiple samples ready for inspection if anyone ever gets round to caring about the safety and wellbeing of children, women, and young girls living in the Spanish Valencian Community.
+    - I can't imagine how an inexperienced young girl or child could possibly survive a similarly vicious attack on the emotional and mental state.
+    - I am convinced that such techniques have been used on children across the world by pornographers.
      
 - I continue chatting with the [fake account that posted a picture of my hotel room](../2023/december.md#hotel-room-cyber-stalker).
-- The content goes from Dénia specifics, man to women, to pretending to be a retired British lady in France, and back and forth.
-- I'm sure the account is either the trumpet teacher or someone close to him as they have information they could only know if they were fully involved in the crimes against me.
+- The content goes from Dénia specifics, and I've no doubt a man is speaking to me, to an overly delighted retired British lady in France showing me pictures of goats in her garden, and back and forth like this.
+- I'm sure the account is either the trumpet teacher or someone close to him as they have information they could only know if they were involved in the crimes against me.
 - Later, I wonder if the criminals have delegate access to accounts like these, which they can slip in and out of easily with the owners full knowledge.
-- The account states that they're nervous they're *actually* talking to me instead of seeing me in the WhatsApp group.
+- The account states, again, that they're nervous they're *actually* talking to me instead of seeing me in the WhatsApp group.
 - We chat.
 - I'm sure it is the trumpet teacher. 
 - He tells me he likes to paint but he hasn't painted for many years. 
 - I ask him why not. 
 - He doesn't say but it sounds like he had some sort of breakdown.
 - I wonder if it is jail.
-
-
-- I end up blocking this person because it's just so weird but I think if you believe the lie, even a tiny bit, 10%, they have a hold over you. I believed it a little.
-- The account went from talking about specifics related to the stalking to back to pretending she was a woman in France, then back and forth.
-- And, of course, who wouldn't be influenced by love and a potential relationship, being with someone you believe you really like, even if it is manufactured and fake?
+- I end up blocking the account because it's all just so weird; but I think if you believe the lie, even a tiny bit, they have a hold over you. 
+- It's like if you talk to the phone-scammer, even just a few words, they never leave you alone.
+- I believed he loved me and wanted to communicate with me, a little.
+- Don't we all want to be loved?
+- Who wouldn't be influenced by feelings of love and a potential relationship with someone you believe you really like, even if it is manufactured and fake?
+- Or did they set me up with someone they knew was going to be a match?
+- How could they know that? Weird occultism maybe?
+- Did Christ the alchemist himself take over, on request from two or more?
 
 ### Google search results for boyfriends
 
