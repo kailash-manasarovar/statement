@@ -1,11 +1,24 @@
-## Back in Dénia
+# January 2024
 
-- I am still high after Christmas and New Year. All the chats and interactions make me think I have a boyfriend; see the [Google search](#google-search) section for some elaboration on that.
+## Back home in Dénia
 
-!!! info "Disclaimer"
-    - I don't really think this, not really, it's too absurd, but I can't seem to unhook myself from the game, which is relentless.
-    - Whatever is triggering these beliefs is very powerful and I cannot think straight about it at all.
-    - I believe this is proof I'm being drugged, as well as being manipulated by online seduction techniques.
+- I arrive home still high and euphoric after Christmas and New Year. 
+- All the online interactions have made me think I have a boyfriend.
+- Whenever I [Google search](#google-search-results-for-boyfriends) my own account or the `@jctot19` account, I see multiple references to boyfriends. 
+
+![Boyfriends](../../content/images/boyfriends.png)
+
+!!! info "Disclaimer: and thoughts on what's really going on"
+    - I don't really think I have a boyfriend, it's too absurd.
+    - I know I'm being tricked online, but I can't seem to unhook myself from the relentless triggering.
+    - It is post-after-post of meaningful words, phrases, and images related to the last year's activity.
+    - Posts come from multiple accounts I have never followed, and will never see again.
+    - On its own, I don't believe the online activity would be sufficient to maintain my interest, so I must have been ingesting mood-altering substances without my knowledge.
+    - These two manipulating techniques mean that I could not think rationally about anything at all.
+    - Whatever is triggering these beliefs is very powerful, and is connected to a daily overwhelming sexual arousal, something I did not experience before April 2023, and have not experienced since I left my apartment in October 2024.
+    - I believe I was being drugged daily via the water coming into my apartment, tampered food and bathroom products, plus manipulation with online seduction techniques.
+    - I still have multiple samples ready for inspection if anyone ever gets round to caring about the safety of children, women and young girls living in the Spanish Valencian Community.
+    - I can't imagine how an inexperienced young girl or child could possibly survive a similarly vicious attack on her emotional and mental state.
      
 - I chat with a fake account: https://x.com/ItsMe50474936 that I'm sure is either the trumpet teacher or someone close to him as they have information they could only know if they were involved in everything that has been happening.
 
@@ -22,7 +35,23 @@
     - I wonder if Patricia and whoever the trumpet teacher is, someone she assuredly knows, share an interest in art.
 
 - I end up blocking this person because it's just so weird but I think if you believe the lie, even a tiny bit, 10%, they have a hold over you. I believed it a little.
+- The account went from talking about specifics related to the stalking to back to pretending she was a woman in France, then back and forth.
 - And, of course, who wouldn't be influenced by love and a potential relationship, being with someone you believe you really like, even if it is manufactured and fake?
+
+### Google search results for boyfriends
+
+- I am seeing multiple posts about "boyfriends" on my accounts' Google search result images. 
+- Like [tables](../2023/september.md#table) the year before, or [fridges](../2025/april.md#fridges), all I can see is a long list of various posts about boyfriends.
+- I believe that's what this tweet is referring to: https://x.com/JackChardwood/status/1742110623490506940.
+- I mention this on Twitter: https://x.com/1FRGVN/status/1748488576860389657.
+- How do they do it? I ask: https://x.com/1FRGVN/status/1748485970272419873. 
+- I thought it might be cookies but I used someone else's device once to check and the results were the same. Unless they had hacked that person's phone too.
+
+### `@JackChardwood` account content completely changed
+
+- Up until early January, on my `@JackChardwood` account, I see mostly rather dull content about tech and self-help, motivational stuff. It's really very boring.
+- Suddenly, the timeline has completely changed and it is now posting spiritual content, love and romance content, nothing like I was seeing before.
+- It's weird. I note it: https://x.com/JackChardwood/status/1750917604393308599
 
 ## Lucia in the dark room with Domingo
 
@@ -46,20 +75,6 @@
 - I can only guess at how much money criminals made from these films, of which there were probably a few.
 - Add to that the earnings that Dénia criminals were now making on spy-cam porn of me in my apartment, and we are talking probably in the 10s of millions, owed to me personally, by criminal gangs in the UK and Spain.
 - Pervert gangs had been enriching their lives on my suffering for decades.
-
-## Google search
-
-- I am seeing multiple posts about "boyfriends" on my accounts' Google search result images. 
-- I believe that's what this tweet is referring to: https://x.com/JackChardwood/status/1742110623490506940.
-- I mention this on Twitter: https://x.com/1FRGVN/status/1748488576860389657.
-- How do they do it? I ask: https://x.com/1FRGVN/status/1748485970272419873. 
-- I thought it might be cookies but I used someone else's device once to check and the results were the same. Unless they had hacked that person's phone too.
-
-## `@JackChardwood` account content completely changed
-
-- Up until early January, on my `@JackChardwood` account, I see mostly rather dull content about tech and self-help, motivational stuff. It's really very boring.
-- Suddenly, the timeline has completely changed and it is now posting spiritual content, love and romance content, nothing like I was seeing before.
-- It's weird. I note it: https://x.com/JackChardwood/status/1750917604393308599
 
 ## Galway
 

@@ -6,6 +6,12 @@
 - I suspect it's Carmen Cano, as they like you to know who they are, and this name and her picture keeps coming up in the way they used to.
 - Sources tell me this woman has been waiting for me to die for some time. She'll need eternity for that I expect.
 
+## Fridges
+
+- At one point, there is communication online with regards to how I've had enough and I'm not playing anymore.
+- The following day, I do a Google search on my X name and all I see is fridges.
+- I'm reminded of Domingo Cano telling everyone at the conservatory I was [frigid](../early-years/2014.md#poisoned-aunts) and wonder if that's something his other targets are very familiar with on their social media?
+
 ## There's something in the water
 
 - I take my father to play a jazz gig. He has been unwell so we have a blue badge and I can park right outside the pub.
