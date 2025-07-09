@@ -12,7 +12,7 @@
     - I don't really think I have a boyfriend, it's too absurd.
     - I know I'm being tricked online, but I can't seem to unhook myself from the relentless triggering.
     - It is post-after-post of meaningful words, phrases, and images related to the last year's activity.
-    - Posts come from [multiple accounts I have never followed](#jackchardwood-account-content-completely-changed), and often never see again.
+    - Posts come from [multiple accounts I have never followed](#jackchardwood-account-content-completely-changes), and often never see again.
     - On its own, I don't believe the online activity would be sufficient to maintain my interest, so I must have been ingesting mood-altering substances without my knowledge.
     - These two manipulation techniques meant that I could not think rationally about anything at all.
     - Whatever is triggering these beliefs is very powerful, and is connected to a daily overwhelming sexual arousal, something I did not experience before April 2023, and have not experienced since I left my apartment in October 2024.
@@ -41,6 +41,25 @@
 - If true, how could they know that? Weird occultism or astrology, maybe?
 - Did Christ the alchemist himself take over, on request from us both, and more?
 
+### `@JackChardwood` account content completely changes
+
+- On my [`@JackChardwood`](https://x.com/JackChardwood) account, I have been seeing mostly rather dull content about crypto, tech, a bit of porn, and heaps of insipid Indian self-help accounts, motivational stuff. 
+- It's really very boring.
+- Suddenly, in early January 2024, my timeline changes completely.
+- It's like I have a completely new account.
+- I see masses of spiritual content, love and romance, boy meets girl, sexual innuendo, way more porn, nothing like I was seeing before.
+- The fake accounts following me on this account reflect this too.
+- It's so unusual I tweet about it.
+
+[![What happened to my timeline](../../content/tweets/january-2024/new-content-completely.png)](https://x.com/JackChardwood/status/1750917604393308599)
+
+- I mention it again in May 2024 suggesting what I'm seeing is all rather too much, which it is.
+
+[![Prefer the insipid Indians](../../content/tweets/january-2024/preferring-the-insipid-indians.png)](https://x.com/JackChardwood/status/1789065155193577680)
+
+- I believe the hackers and honey-trappers start doubling down in January 2024, knowing that the conservatory have devised the [most outrageous psychological attack on me](march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) which they believe will certainly make me leave my studies so they can hand me over to the sex-gangs as planned for June 2023 (it didn't, so they got even worse until I did leave a couple of days later terrified and terrorized).
+- Content like this on this account continues until I start writing my police statement in November 2024 when 70% of the fake accounts following me disappear on one day, and all activity drops off completely never to start up again.
+
 ### Google search results for boyfriends
 
 - I am seeing multiple posts about "boyfriends" on my accounts' Google search result images. 
@@ -49,12 +68,6 @@
 - I mention this on Twitter: https://x.com/1FRGVN/status/1748488576860389657.
 - How do they do it? I ask: https://x.com/1FRGVN/status/1748485970272419873. 
 - I thought it might be cookies but I used someone else's device once to check and the results were the same. Unless they had hacked that person's phone too.
-
-### `@JackChardwood` account content completely changed
-
-- Up until early January, on my `@JackChardwood` account, I see mostly rather dull content about tech and self-help, motivational stuff. It's really very boring.
-- Suddenly, the timeline has completely changed and it is now posting spiritual content, love and romance content, nothing like I was seeing before.
-- It's weird. I note it: https://x.com/JackChardwood/status/1750917604393308599
 
 ## Lucia in the dark room with Domingo
 
