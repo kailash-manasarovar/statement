@@ -33,7 +33,7 @@
 - He doesn't say but it sounds like he had some sort of breakdown.
 - I wonder if it is jail.
 - I end up blocking the account because it's all just so weird; but I think if you believe the lie, even a tiny bit, they have a hold over you. 
-- It's like if you talk to the phone-scammer, even just a few words, they never leave you alone.
+- It's like if you talk to the Indian phone-scammer, even just a few words, they never leave you alone.
 - I believed he loved me and wanted to communicate with me, a little.
 - Don't we all want to be loved?
 - Who wouldn't be influenced by feelings of love and a potential relationship with someone you believe you really like, even if it is manufactured and fake?
