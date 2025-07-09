@@ -1,5 +1,11 @@
 # June 2025
 
+## Murdered by the gypsies in Madrid
+
+- I meet a man whose mother was likely murdered by gypsies in Madrid for her jewels.
+- They set it up like she had commit suicide and there was no investigation.
+- I tell him I'm doing it all for her too.
+
 ## St Michael's church Minehead
 
 - The organist.
