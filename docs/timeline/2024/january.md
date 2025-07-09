@@ -103,6 +103,8 @@
 - I believe it is my last as I do not have one again.
 - 18 months later, when I'm safer and not being terrorized 24-hours a day, menstruation resumes.
 - I believe it stopped due to the stress I was under.
+- I believe the stress I was under - particularly the relentless triggering regarding my experience of child sexual abuse - was intended to give me a nervous breakdown or lead me to suicide.
+- I believe others have been led to their deaths similarly.
 
 ## Galway
 
