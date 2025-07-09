@@ -17,12 +17,12 @@
     - These two manipulating techniques meant that I could not think rationally about anything at all.
     - Whatever is triggering these beliefs is very powerful, and is connected to a daily overwhelming sexual arousal, something I did not experience before April 2023, and have not experienced since I left my apartment in October 2024.
     - I believe I was being drugged daily via the water coming into my apartment, tampered food and bathroom products, plus manipulation with online seduction techniques.
-    - I still have multiple samples ready for inspection if anyone ever gets round to caring about the safety and wellbeing of children, women, and young girls living in the Spanish Valencian Community.
+    - I still have multiple samples ready for inspection if anyone ever gets round to caring about the safety and wellbeing of children, women, and young girls living in the Spanish Valencian community.
     - I can't imagine how an inexperienced young girl or child could possibly survive a similarly vicious attack on the emotional and mental state.
     - I am convinced that such techniques have been used on children across the world by pornographers.
      
 - I continue chatting with the [fake account that posted a picture of my hotel room](../2023/december.md#hotel-room-cyber-stalker).
-- The content goes from Dénia specifics, and I've no doubt a man is speaking to me, to an overly delighted retired British lady in France showing me pictures of goats in her garden, and back and forth like this.
+- The content goes from Dénia specifics, and I've no doubt a man is speaking to me, to someone who is unusually delighted and claims to be a retired British lady in France showing me pictures of goats in her garden, and back and forth like this.
 - I'm sure the account is either the trumpet teacher or someone close to him as they have information they could only know if they were involved in the crimes against me.
 - Later, I wonder if the criminals have delegate access to accounts like these, which they can slip in and out of easily with the owners full knowledge.
 - The account states, again, that they're nervous they're *actually* talking to me instead of seeing me in the WhatsApp group.
