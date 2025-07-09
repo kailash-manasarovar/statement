@@ -14,7 +14,7 @@
     - It is post-after-post of meaningful words, phrases, and images related to the last year's activity.
     - Posts come from multiple accounts I have never followed, and will never see again.
     - On its own, I don't believe the online activity would be sufficient to maintain my interest, so I must have been ingesting mood-altering substances without my knowledge.
-    - These two manipulating techniques meant that I could not think rationally about anything at all.
+    - These two manipulation techniques meant that I could not think rationally about anything at all.
     - Whatever is triggering these beliefs is very powerful, and is connected to a daily overwhelming sexual arousal, something I did not experience before April 2023, and have not experienced since I left my apartment in October 2024.
     - I believe I was being drugged daily via the water coming into my apartment, tampered food and bathroom products, plus manipulation with online seduction techniques.
     - I still have multiple samples ready for inspection if anyone ever gets round to caring about the safety and wellbeing of children, women, and young girls living in the Spanish Valencian community.
