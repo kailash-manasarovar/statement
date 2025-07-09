@@ -75,7 +75,8 @@
 
 ## Lucia in the dark room with Domingo
 
-- Every time I go to the conservatory some psycho-emotional torture awaits me. Domingo is always behind everything, orchestrating, directing everyone.
+- Every time I go to the conservatory some psycho-emotional torture awaits me. 
+- Domingo is always behind everything, orchestrating, directing everyone.
 - One Monday evening as I'm leaving class, I notice Domingo standing in the doorway of one of the teaching rooms beside where my class took place.
 - He looks at me meaningfully and menacingly and, as I walk past the open classroom door, I notice, in the darkened room with no lights on, Lucia, the minor, Domingo's student, looking out at me.
 - It's all set up to make me think something is going on.
