@@ -83,7 +83,7 @@ function googleTranslateElementInit() {
 ### Patricia the artist
 
 - Patricia likes art.
-- In October 2022, I visited an exhibition of work done by the British ex-pat community in Rafol at the town hall in which she had some of her work displayed.
+- In October 2022, I visited an exhibition of work done by the British ex-pat community in [Rafol at the town hall](https://www.google.com/maps/place/Ajuntament+del+R%C3%A0fol+d'Alm%C3%BAnia/@38.8200919,-0.0520956,18z/data=!4m15!1m8!3m7!1s0xd61e2ab47bb7d15:0x499dd1fc9b8e3f35!2s03778+Beniarbeig,+Alicante,+Spain!3b1!8m2!3d38.8218528!4d-0.0034972!16s%2Fm%2F02qm1tx!3m5!1s0xd61fccb4aa646d1:0x63c42ca79fc9d172!8m2!3d38.8204348!4d-0.0524316!16s%2Fg%2F1z44bdrnn?entry=ttu&g_ep=EgoyMDI1MDcwNi4wIKXMDSoASAFQAw%3D%3D) in which she had some of her work displayed.
 - The parents of her daughter's husband were there and she introduced me to them. 
 - Later, she will tell me that they are named Vidal.
 - I remember how she curiously mentioned, again and again, that she had spent time in the UK doing the foundation art course; in 2012 or around then.
