@@ -20,19 +20,18 @@
     - I still have multiple samples ready for inspection if anyone ever gets round to caring about the safety of children, women and young girls living in the Spanish Valencian Community.
     - I can't imagine how an inexperienced young girl or child could possibly survive a similarly vicious attack on her emotional and mental state.
      
-- I chat with a fake account: https://x.com/ItsMe50474936 that I'm sure is either the trumpet teacher or someone close to him as they have information they could only know if they were involved in everything that has been happening.
+- I continue chatting with the [fake account that posted a picture of my hotel room](../2023/december.md#hotel-room-cyber-stalker).
+- The content goes from Dénia specifics, man to women, to pretending to be a retired British lady in France, and back and forth.
+- I'm sure the account is either the trumpet teacher or someone close to him as they have information they could only know if they were fully involved in the crimes against me.
+- Later, I wonder if the criminals have delegate access to accounts like these, which they can slip in and out of easily with the owners full knowledge.
+- The account states that they're nervous they're *actually* talking to me instead of seeing me in the WhatsApp group.
+- We chat.
+- I'm sure it is the trumpet teacher. 
+- He tells me he likes to paint but he hasn't painted for many years. 
+- I ask him why not. 
+- He doesn't say but it sounds like he had some sort of breakdown.
+- I wonder if it is jail.
 
-!!! tip "Delegate accounts"
-    - I believe many of these accounts are used by the trumpet teacher and others who have delegate access.
-    - This means they can take over the account and post on its behalf at any time.
-
-- It's the same account that posted the [hotel room selfie photo](../2023/december.md#hotel-room-cyber-stalker) a few days before.
-- https://x.com/ItsMe50474936: "It's me" is the name I use on any fake accounts I have created.
-- This account also states that they're nervous they're "actually" talking to me instead of seeing me in the group.
-- We chat. I'm sure it is the trumpet teacher. He tells me he likes to paint but he hasn't painted for many years. I ask him why not. It sounds like he had some sort of breakdown but I wonder if it's jail.
-
-!!! tip "Patricia is an artist"
-    - I wonder if Patricia and whoever the trumpet teacher is, someone she assuredly knows, share an interest in art.
 
 - I end up blocking this person because it's just so weird but I think if you believe the lie, even a tiny bit, 10%, they have a hold over you. I believed it a little.
 - The account went from talking about specifics related to the stalking to back to pretending she was a woman in France, then back and forth.

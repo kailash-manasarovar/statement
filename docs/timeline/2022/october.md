@@ -66,7 +66,8 @@ function googleTranslateElementInit() {
 - She mentions a man, a British policeman, who lived near her who had really scary eyes.
 - It was a weird thing for her to mention, and she repeated it. 
 - It reminded me of a short story I had written for the writing club I used to go to in Dénia in 2007, which incidentally [Dandy the gay English teacher](../early-years/2013.md#the-gays-leave-suddenly) was also a member of.
-- This was a piece I wrote at the time I started to write about child sexual abuse and grooming gangs in short-story form. I had described one of the pedophiles, Winston M, with the exact words she used in our conversation.
+- This was a piece I wrote at the time I started to write about child sexual abuse and North London grooming rape-gangs in short-story form.
+- I had described one of the pedophiles, Winston May, with the exact words she used in our conversation.
 
 !!! note
     - Could this have been a warning from Patricia? Or were my British friends 100% complicit.
@@ -78,6 +79,19 @@ function googleTranslateElementInit() {
 - I explain how the boiler is on its last legs and that the kitchen furniture is ancient.
 - I tell them about how she had replaced the mattress when I moved in with a mattress that looked like it came from the pound shop and I'd had to buy my own.
 - I tell them how I believe meanness can cause extraordinary harm and not everyone is fit to be responsible for others who might rent out their properties.
+
+### Patricia the artist
+
+- Patricia likes art.
+- In October 2022, I visited an exhibition of work done by the British ex-pat community in Rafol at the town hall in which she had some of her work displayed.
+- The parents of her daughter's husband were there and she introduced me to them. 
+- Later, she will tell me that they are named Vidal.
+- I remember how she curiously mentioned, again and again, that she had spent time in the UK doing the foundation art course; in 2012 or around then.
+- She mentioned this whenever I saw her and mentioned my conservatory studies. 
+- I really liked her work and told her I would buy some when I had my own place to hang some in.
+- I remember how her WhatsApp pic had been a picture of her and her husband, [the guy she had been with a Christmas](../2021/december.md#chinese) but their facial features had been distended and contorted, and there had been little images added to their noses and mouths, clown noses and small butterflies and similar, rather like what I will see on some of the numerous fake porn accounts sent to me over 2024.
+- I tell her that her profile image is a bit psychedelic and really rather sinister.
+- She removes it at some point and there is no replacement.
 
 ## Halloween
 
