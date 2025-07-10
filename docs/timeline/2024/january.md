@@ -175,6 +175,7 @@
 - I posted one tweet with a sexual connotation; *will you look me dead in the eyes*.
 - The account immediately reaches out to a random woman he hasn't seen in years with an anodyne tweet, now deleted.
 - All communication ceased immediately from that moment.
+- Did I surprise them?
 - My tweet was a direct reference to Winston May; the rape-gang ring-leader from North London.
 - Winston May (who I detested, by the way, but had totally controlled me) always looked me dead in the eyes while raping me.
 - Given I was being triggered to remember events and instances from 1989, and [the trumpet teacher himself had reminded me of Winston May](../2023/september.md#alex-and-paul), it is unsurprising that odd memories like this *popped up* from time to time.
