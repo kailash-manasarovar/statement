@@ -109,7 +109,7 @@
 - I know exactly what the criminals of Dénia, including teachers and staff at the conservatory, have seen.
 - The sickest thing is that they all know way more about what happened to me than I do!
 - Yet after 35 years, I have an overwhelming sense of relief that I now know exactly what happened all those years ago, and why.
-- My suspicions all this time were solid.
+- My suspicions had been solid, all this time.
 - I can only guess at how much money criminals made from these films, of which there were probably a few.
 - Add to that the earnings that Dénia criminals were likely making on spy-cam porn of me in my apartment, and we are talking probably in the 10s of millions, owed to me personally, by criminal gangs in the UK and Spain.
 - Pervert gangs had been enriching their lives on my suffering for decades.
