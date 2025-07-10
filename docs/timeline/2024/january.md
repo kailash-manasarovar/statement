@@ -117,8 +117,8 @@
 
 ![Surrender](../../content/images/surrender.png)
 
-- Just like in London in 1989, after enduring alone a series of violent and sedated sexual assaults, those interested in protecting the rape gangs managed to persuade friends and family and community that I was the problem, that I was crazy and unhinged, and that I deserved it somehow.
-- It will be very interesting to find out exactly what has been said about me over the years, in the UK and Spain, and for what purpose.
+- Just like in London in 1989, after enduring a series of violent and sedated sexual assaults, those interested in protecting the rape gangs managed to persuade friends and family and community that I was the problem, that I was crazy and unhinged, and that I had deserved it somehow and certainly deserved to be treated like dirt from then on.
+- It will be very interesting to find out exactly what has been said about me over the years, in the UK and Spain, and to figure out for what purpose.
 - Undermining victims is an essential defense for criminal gangs if they ever see the inside of a police interrogation room, never mind courtroom.
 - Typically everyone believes rapists over victims, although this is changing in some more evolved communities such as the UK hopefully.
 
