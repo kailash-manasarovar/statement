@@ -184,7 +184,7 @@
 - I stopped communicating and deleted the twitter account.
 - Did my statement surprise whoever was running the account at that time?
 - The energy of the account owner was masculine and feminine over those days.
-- If I had to guess, I would say that Carmen Cano and her uncle were managing the content at that time.
+- If I had to guess, I would say that a very evil woman and a very sexually cruel man were managing the content at that time.
 
 ### The photographer
 
