@@ -172,12 +172,12 @@
 - I posted about the transformational touch therapy protocol, and looked on his timeline for responses, as before.
 - There was a to-and-fro, as before, all positive.
 - After a day of this, however, the content starts to be interspersed with references to porn, specifically violent and humiliating porn and much of it containing unpleasant references to Ana in the bedroom.
-- I posted one tweet with a sexual connotation; *will you look me dead in the eyes*.
+- I posted one tweet with a sexual connotation; *will you look me dead in the eyes?*.
 - The account immediately reaches out to a random woman he hasn't seen in years with an anodyne tweet, now deleted.
 - All communication ceased immediately from that moment.
 - Did I surprise them?
-- My tweet was a direct reference to Winston May; the rape-gang ring-leader from North London.
-- Winston May (who I detested, by the way, but had totally controlled me) always looked me dead in the eyes while raping me.
+- My tweet was a direct reference to Winston May; the rape-gang ring-leader from North London who I will see for the first time in over thirty years in [June 2024 while campaigning for the general election in the UK](june.md#winston-may).
+- Winston May (who I detested when I was a child, by the way, but had totally controlled me) always looked me dead in the eyes while raping me.
 - Given I was being triggered to remember events and instances from 1989, and [the trumpet teacher himself had reminded me of Winston May](../2023/september.md#alex-and-paul), it is unsurprising that odd memories like this *popped up* from time to time.
 - This may well be in my statement to the police, but it is more likely viewable in the porn they made.
 - It was as if I had turned the lights out with my statement. 
