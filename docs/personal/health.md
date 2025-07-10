@@ -81,6 +81,7 @@
 - I thought my last period had been in January 2024, and then I assumed I had entered menopause.
 - It was not so, as I had another period in July 2025, after five months away from Dénia and having undertaken some detoxing and health changes.
 - I believe I skipped 18-months of periods due to overwhelming levels of fear stress affecting my physical body.
+- See [January 2024 statement](../timeline/2024/january.md#menstruation) for more information.
 
 ## Psycho-emotional effects
 
