@@ -171,7 +171,7 @@
 - This, and a preponderance of the tweets I saw posted on this account throughout 2023 and 2024, have been deleted now.
 - I posted about the transformational touch therapy protocol, and looked on his timeline for responses, as before.
 - There was a to-and-fro, as before, all positive.
-- After a day of this, however, the content starts to be interspersed with references to porn, specifically violent and humiliating porn.
+- After a day of this, however, the content starts to be interspersed with references to porn, specifically violent and humiliating porn and with more unpleasant references to Ana in the bedroom.
 - I posted one tweet with a sexual connotation; *will you look me dead in the eyes*.
 - The account immediately reaches out to a random woman he hasn't seen in years with an anodyne tweet, now deleted.
 - All communication ceased immediately from that moment.
