@@ -895,8 +895,10 @@ function googleTranslateElementInit() {
 
 [![Bryan Ferry terrorizing me](../../content/tweets/september-23-comms/bryan-ferry-2.png)](https://x.com/1FRGVN/status/1707151247059321125)
 
-### Domingo tries to upset me
+### Domingo in the dark room with Lucia
 
+- Every time I go to the conservatory some psycho-emotional torture awaits me.
+- I feel Domingo behind everything; orchestrating, directing everyone, telling everyone what to say and do.
 - The tweet above is in reference to Nacho and Domingo.
 - I'm referring to Domingo as the inverted magician from the tarot; someone really manipulative and evil.
 - After the chamber music class where Nacho comes in furious (remember I'm triggered by angry men as I described in my police statement about pedophiles), I'm walking out of class and Domingo is in the middle of the hall.

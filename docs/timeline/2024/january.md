@@ -96,17 +96,6 @@
 - The results were the same as on my devices. 
 - Of course, they may have hacked that young woman's phone too, anyone close to me probably which at that time was no-one uninvolved in the conspiracy.
 
-## Lucia in the dark room with Domingo
-
-- Every time I go to the conservatory some psycho-emotional torture awaits me. 
-- Domingo is always behind everything, orchestrating, directing everyone.
-- One Monday evening as I'm leaving class, I notice Domingo standing in the doorway of one of the teaching rooms beside where my class took place.
-- He looks at me meaningfully and menacingly and, as I walk past the open classroom door, I notice, in the darkened room with no lights on, Lucia, the minor, Domingo's student, looking out at me.
-- It's all set up to make me think something is going on.
-- And yet, the thing I'm supposed to think, which Domingo can ensure no-one tells anyone about - because look what happens to people who are concerned about the safety of minors in the conservatory system - *is* actually happening.
-- It's only a matter of time before the world finds out about the mass spy-cam porn voyeurism in Dénia that includes violent sex crimes and the preparing of its future stars and where they come from.
-- The moment a victim feels safe enough to speak, and people are listening without wanting to murder them, there will be a tsunami of speakers, males and females. It's the same everywhere in the world.
-
 ## I see my naked 16-year-old body on X again
 
 - Hackers flash up another example of the porn they have with me in it from 1989 where I am sedated and gang raped by a group of predominantly black men somewhere in North London.
