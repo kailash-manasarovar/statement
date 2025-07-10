@@ -91,9 +91,10 @@
 - I didn't realize until May 2024 that the cyber-stalkers had access to multiple fake usually porn accounts; thousands of accounts that they could spin up in seconds.
 - This is a seriously expensive and vast software platform.
 - Vulnerable targets whose phones have been accessed by criminals don't really stand a chance, do they? 
-- I thought they might do it with cookies in the browser, but I checked with different browsers, different devices, and even someone else's device. 
+- Significantly and ridiculously, the school board announced a *ban on all mobile phones* inside the conservatory building just after I had been terrorized into leaving due to being afraid for my life!
+- I thought the Google search results might be done with cookies in the browser, but I checked with different browsers, different devices, and even someone else's device. 
 - The results were the same as on my devices. 
-- Of course, they may have hacked that young woman's phone too, anyone close to me probably, with or without their knowledge.
+- Of course, they may have hacked that young woman's phone too, anyone close to me probably which at that time was no-one uninvolved in the conspiracy.
 
 ## Lucia in the dark room with Domingo
 
