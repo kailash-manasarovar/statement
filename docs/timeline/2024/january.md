@@ -93,7 +93,7 @@
 - Vulnerable targets whose phones have been accessed by criminals don't really stand a chance, do they? 
 - I thought they might do it with cookies in the browser, but I checked with different browsers, different devices, and even someone else's device. 
 - The results were the same as on my devices. 
-- Of course, they may have hacked that young woman's phone too, anyone close to me probably.
+- Of course, they may have hacked that young woman's phone too, anyone close to me probably, with or without their knowledge.
 
 ## Lucia in the dark room with Domingo
 
