@@ -4,7 +4,7 @@
 
 - I arrive home still high and euphoric after Christmas and New Year. 
 - All the online interactions have made me think I have a boyfriend.
-- Whenever I [Google search](#google-search-results-for-boyfriends) my own account or the `@jctot19` account, I see multiple references to boyfriends. 
+- Whenever I [Google search](#google-search-results-reinforce-the-idea-of-boyfriends) my own account or the `@jctot19` account, I see multiple references to boyfriends. 
 
 ![Boyfriends](../../content/images/boyfriends.png)
 
@@ -39,7 +39,7 @@
 - Who wouldn't be influenced by feelings of love and a potential relationship with someone you believe you really like, even if it is manufactured and fake?
 - Or did they set me up with someone they knew would be a perfect match?
 - If true, how could they know that? Weird occultism or astrology, maybe?
-- Did Christ the alchemist himself take over, on request from us both, and more?
+- Did Christ the alchemist himself take over, [on request from us both, and more](https://www.biblegateway.com/passage/?search=matthew%2018:19-20&version=NIV#:~:text=19%20%E2%80%9CAgain%2C%20truly%20I%20tell%20you%20that%20if,in%20my%20name%2C%20there%20am%20I%20with%20them.%E2%80%9D)?
 
 ### The `@JackChardwood` X feed changes completely
 
@@ -62,16 +62,37 @@
 - Once I had left the conservatory, teachers and staff must have felt relief that I had been finally handed over successfully to the porn gangs.
 - I wonder how many other students have had similar experiences.
 - The new content continues until I start writing my police statement in November 2024.
-- At that time, 70% of the fake accounts following me disappear on one afternoon, and all activity drops off completely, never to start up again at the time of writing.
+- At that time, 70% of the fake accounts following me on `@JackChardwood` disappear on one afternoon, and all activity drops off completely, never to start up again at the time of writing.
 
-### Google search results for boyfriends
+### Google search results reinforce the idea of boyfriends
 
-- I am seeing multiple posts about "boyfriends" on my accounts' Google search result images. 
-- Like [tables](../2023/september.md#table) the year before, or [fridges](../2025/april.md#fridges), all I can see is a long list of various posts about boyfriends.
-- I believe that's what this tweet is referring to: https://x.com/JackChardwood/status/1742110623490506940.
-- I mention this on Twitter: https://x.com/1FRGVN/status/1748488576860389657.
-- How do they do it? I ask: https://x.com/1FRGVN/status/1748485970272419873. 
-- I thought it might be cookies but I used someone else's device once to check and the results were the same. Unless they had hacked that person's phone too.
+- For a few weeks, every time I look, I see multiple posts about *boyfriends* on Google search results. 
+
+![Boyfriends](../../content/images/boyfriends.png)
+
+- Like [tables](../2023/september.md#table) the year before, or [fridges](../2025/april.md#fridges) more recently, and the other continuously tailored Google search results, all I can see is a long list of various posts about boyfriends.
+- I refer to this early in the month on X. Although I had been seeing content about *boyfriends* for some time already, this was exceptional.
+
+[![Wind-up merchants](../../content/tweets/january-2024/wind-up-merchants.png)](https://x.com/JackChardwood/status/1742110623490506940)
+
+- Many of the boyfriend-posts have the caption *I love my girlfriend*. This is so interesting I document it.
+
+[![I love my girlfriend](../../content/tweets/january-2024/i-love-my-girlfriend.png)](https://x.com/1FRGVN/status/1748488576860389657)
+
+- How do they do it? I ask X.
+
+[![How do they do it](../../content/tweets/january-2024/asking-how-they-do-it.png)](https://x.com/1FRGVN/status/1748485970272419873)
+
+- I mention how long I have seen manipulated Google search results.
+
+[![Google search for about a year](../../content/tweets/january-2024/search-results-about-a-year.png)](https://x.com/1FRGVN/status/1748486972664946749)
+
+- This post was quickly liked by a porn bot, another common trait of the cyber-stalkers. It's like I get a quick agreement from them.
+- I didn't realize until May 2024 that the cyber-stalkers had access to multiple fake porn accounts that they could spin up for use in seconds.
+- Vulnerable targets whose phones have been accessed by criminals don't really stand a chance, do they? 
+- I thought they might do it with cookies in the browser, but I used different browsers, different devices, and even someone else's device to check. 
+- The results were the same as on my devices. 
+- Of course, they may have hacked that young woman's phone too.
 
 ## Lucia in the dark room with Domingo
 
