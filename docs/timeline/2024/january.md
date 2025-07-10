@@ -90,7 +90,7 @@
 - This post was quickly liked by a porn bot, another common trait of the cyber-stalkers. It's like I get an immediate agreement on any posts related to the stalking and abuse I was suffering.
 - I didn't realize until [July 2024](july.md#evidence-of-mass-cyber-stalking-technology) that the cyber-stalkers had access to multiple fake, often but not always porn accounts; thousands of accounts that they could spin up in seconds.
 - This is evidence of a seriously expensive and vast criminal software platform.
-- Vulnerable targets whose phones have been accessed by criminals don't really stand a chance, do they? 
+- Vulnerable targets whose phones have been accessed by criminals don't stand a chance, do they? 
 - Significantly and ridiculously, the school board announced a *ban on all mobile phones* inside the conservatory building just after I had been terrorized into leaving due to being afraid for my life!
 - I thought the Google search results might be done with cookies in the browser, but I checked with different browsers, different devices, and even someone else's device. 
 - The results were the same as on my devices. 
