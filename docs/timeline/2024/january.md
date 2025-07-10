@@ -88,7 +88,7 @@
 [![Google search for about a year](../../content/tweets/january-2024/search-results-about-a-year.png)](https://x.com/1FRGVN/status/1748486972664946749)
 
 - This post was quickly liked by a porn bot, another common trait of the cyber-stalkers. It's like I get an immediate agreement on any posts related to the stalking and abuse I was suffering.
-- I didn't realize until May 2024 that the cyber-stalkers had access to multiple fake porn accounts; thousands of fake accounts that they could spin up in seconds.
+- I didn't realize until May 2024 that the cyber-stalkers had access to multiple fake usually porn accounts; thousands of accounts that they could spin up in seconds.
 - This is a seriously expensive and vast software platform.
 - Vulnerable targets whose phones have been accessed by criminals don't really stand a chance, do they? 
 - I thought they might do it with cookies in the browser, but I checked with different browsers, different devices, and even someone else's device. 
