@@ -111,8 +111,8 @@
 - Yet after 35 years, I have an overwhelming sense of relief that I now know exactly what happened all those years ago, and why.
 - My suspicions had been solid, all this time.
 - I can only guess at how much money criminals made from these films, of which there were probably a few.
-- Add to that the earnings that Dénia criminals were likely making on spy-cam porn of me in my apartment, and we are talking probably in the 10s of millions, owed to me personally, by criminal gangs in the UK and Spain.
-- Pervert gangs had been enriching their lives on mine and other children's suffering for decades; paying for their fast cars and high lives.
+- Add to that the earnings that Dénia criminals were likely making on spy-cam porn of me in my apartment, and we are talking probably in the 10s of millions, owed to me personally, by criminal gangs in the UK and Spain, and the people and organizations that failed to stop it before it got incomprehensibly worse.
+- Pervert gangs had been enriching their lives on mine and other children's suffering for decades; paying for their fast cars and flashy violent lives.
 - Men and women continued to enjoy seeing me terrorized and abused, creating more suffering for me wherever they could, reminding me of what happened to me (things that I was unaware of) with words and symbols.
 
 ![Surrender](../../content/images/surrender.png)
