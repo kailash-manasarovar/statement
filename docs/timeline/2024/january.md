@@ -162,9 +162,12 @@
     - Although, if the porn gangs set up a dummy love-interest, then maybe such a suggestion could be reasonable under those circumstances, albeit very unlikely and leaving too many more unanswered questions.
 
 - The first post I saw on his timeline, on 10th January, was an image of an angel climbing a ladder to heaven.
-- It appeared to be a message to me, so I continued posting.
-- This, and a preponderance of the tweets I saw, have been deleted now.
-- I posted about my therapy, and looked on his timeline for responses, as before.
+
+![Angel climbing to heaven](../../content/images/angel-climbing-to-heaven.jpg)
+
+- It appeared to be a message to me, and gave me a loving feeling, so I continued posting.
+- This, and a preponderance of the tweets I saw posted on this account throughout 2023 and 2024, have been deleted now.
+- I posted about the transformational touch therapy protocol, and looked on his timeline for responses, as before.
 - There was a to-and-fro, as before, all positive.
 - After a day of this, however, the content starts to be interspersed with references to porn, specifically violent and humiliating porn.
 - I posted one tweet with a sexual connotation, and he immediately reaches out to a random woman he hasn't seen in years.
