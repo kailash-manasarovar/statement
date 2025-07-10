@@ -172,17 +172,19 @@
 - I posted about the transformational touch therapy protocol, and looked on his timeline for responses, as before.
 - There was a to-and-fro, as before, all positive.
 - After a day of this, however, the content starts to be interspersed with references to porn, specifically violent and humiliating porn.
-- I posted one tweet with a sexual connotation, and he immediately reaches out to a random woman he hasn't seen in years.
-- The tweet I posted was *will you look me dead in the eyes*.
-- This is a direct reference to Winston May, the rape-gang ring-leader from North London.
-- Winston May (who I detested, by the way, but totally controlled me) always looked me dead in the eyes while raping me.
+- I posted one tweet with a sexual connotation; *will you look me dead in the eyes*.
+- The account immediately reaches out to a random woman he hasn't seen in years with an anodyne tweet, now deleted.
+- All communication ceased immediately from that moment.
+- My tweet was a direct reference to Winston May; the rape-gang ring-leader from North London.
+- Winston May (who I detested, by the way, but had totally controlled me) always looked me dead in the eyes while raping me.
 - Given I was being triggered to remember events and instances from 1989, and [the trumpet teacher himself had reminded me of Winston May](../2023/september.md#alex-and-paul), it is unsurprising that odd memories like this *popped up* from time to time.
 - This may well be in my statement to the police, but it is more likely viewable in the porn they made.
-- All communication ceased immediately at that moment.
-- It was as if I had turned the lights out with my statement.
+- It was as if I had turned the lights out with my statement. 
+- There was no further interaction.
 - I stopped communicating and deleted the twitter account.
 - Did my statement surprise whoever was running the account at that time?
-- The energy of the account owner was masculine and feminine. If I had to guess, I would take a guess that Carmen Cano and her uncle were managing the content at that time.
+- The energy of the account owner was masculine and feminine over those days.
+- If I had to guess, I would say that Carmen Cano and her uncle were managing the content at that time.
 
 ### The photographer
 
