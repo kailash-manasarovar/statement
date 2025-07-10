@@ -122,7 +122,7 @@
 - Undermining victims is an essential defense for criminal gangs if they ever see the inside of a police interrogation room, never mind courtroom.
 - Typically everyone believes rapists over victims, although this is changing in some more evolved communities such as the UK hopefully.
 
-### Menstruation
+## Menstruation
 
 - I have a heavy period.
 - I believe it is my last as I do not have one again.

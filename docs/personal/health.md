@@ -76,6 +76,12 @@
 - Ocular pressure was not so high but I have been diagnosed, nonetheless, with Primary Angle Closure Suspect.
     - [Medical certificate for PACS](../content/documents/health/medical-certificate-PACS.JPG).
 
+## Menstruation
+
+- I thought my last period had been in January 2024, and then I assumed I had entered menopause.
+- It was not so, as I had another period in July 2025, after five months away from Dénia and having undertaken some detoxing and health changes.
+- I believe I skipped 18-months of periods due to overwhelming levels of fear stress affecting my physical body.
+
 ## Psycho-emotional effects
 
 - My mind has been battered with online NLP/MRA seduction techniques and porn symbolism since, at least, December 2022.
