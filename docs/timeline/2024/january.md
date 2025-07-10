@@ -138,7 +138,7 @@
 - I travel to Ireland on 10th January for my Transformational Touch therapy course.
 - When I inform the choir teacher Salva I will be away, he says, "as long as you're not going away for the weekend with your boyfriend", referring to what Domingo had got [his student Elsa](../2023/october.md#gang-stalking-by-conservatory-civil-servants) to ask me previously concerning one of my tweets. 
 - Salva says this every time I tell him I'm going to skip a class, and whenever else he gets the chance.
-- After recent events, I'm convinced the trumpet teacher must want to communicate with me.
+- After recent events in Avila and Madrid, I'm convinced the trumpet teacher must want to communicate with me.
 - When I'm in Ireland, I open an anonymous account on X on my mobile.
 - I follow `@jctot19` on it, and post solely to my timeline without interacting with his account directly at all.
 
@@ -156,10 +156,12 @@
     - Given we don't even know who the trumpet teacher is, never mind who runs the `@jctot19` honey-trap account, that's quite a charge.
     - I wonder if this is how they defend themselves if a girl dares accuse them of sexual coercion/grooming and cyber-stalking, or anything at all.
     - Do these men say, *oh she was obsessed with me*.
-    - Did that happen previously?
+    - Has that happened previously?
     - Well duh, yeah. You might well get obsessed with someone who drugs you and seduces you for sinister purposes. 
     - Isn't that the point?
     - Although, if the porn gangs set up a dummy love-interest, then maybe such a suggestion could be reasonable under those circumstances, albeit very unlikely and leaving too many more unanswered questions.
+    - In a situation like my experiences at the conservatory, there's no way a dummy love-interest could not know what was going on. 
+    - It appears the whole of the Marina Alta region of Spain knew what was going on!
 
 - The first post I saw on his timeline, on 10th January, was an image of an angel climbing a ladder to heaven.
 
