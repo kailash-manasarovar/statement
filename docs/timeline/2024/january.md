@@ -98,23 +98,29 @@
 
 ## I see my naked 16-year-old body on X again
 
-- Hackers flash up another example of the porn they have with me in it from 1989 where I am sedated and gang raped by a group of predominantly black men somewhere in North London.
+- Hackers flash up another example of the porn they have with me in it made in 1989 where I am sedated and gang raped by a group of predominantly black men somewhere near Tottenham, North London.
 - Here's me happy-go-lucky, just a month or so before my life is destroyed completely and intentionally by Tottenham rape gangs.
+
+![Me at school in June 1989](../../content/images/wee-katie.jpeg)
+
 - Unlike the previous example I had seen [flashed up to me on my X interface](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x), where my body was in profile, this time I am looking down on myself from behind my head.
 - I see my tiny, extremely pale, dappled even, naked child's body.
-- I am on my back with my legs up again in a tiny ball, as before.
-- I now know exactly what the criminals of Dénia, including teachers and staff at the conservatory, have seen and have possession of.
-- After 35 years, I have an overwhelming sense of relief and healing that I now know exactly what happened all those years ago, and why.
+- I am on my back with my knees bent and up, in a tiny ball, as before.
+- I know exactly what the criminals of Dénia, including teachers and staff at the conservatory, have seen.
+- The sickest thing is that they all know way more about what happened to me than I do!
+- Yet after 35 years, I have an overwhelming sense of relief that I now know exactly what happened all those years ago, and why.
 - My suspicions all this time were solid.
 - I can only guess at how much money criminals made from these films, of which there were probably a few.
-- Add to that the earnings that Dénia criminals were now making on spy-cam porn of me in my apartment, and we are talking probably in the 10s of millions, owed to me personally, by criminal gangs in the UK and Spain.
+- Add to that the earnings that Dénia criminals were likely making on spy-cam porn of me in my apartment, and we are talking probably in the 10s of millions, owed to me personally, by criminal gangs in the UK and Spain.
 - Pervert gangs had been enriching their lives on my suffering for decades.
-- Men and women continued to enjoy my suffering, creating more for me where they could, reminding me of what happened to me (things that I was unaware of) with words and symbols.
+- Men and women continued to enjoy seeing me terrorized and abused, creating more suffering for me wherever they could, reminding me of what happened to me (things that I was unaware of) with words and symbols.
 
 ![Surrender](../../content/images/surrender.png)
 
-- Just like in London in 1989 after suffering such a severe series of sedated assaults, gangs and parties focused on protecting the rapist gangs, managed to persuade friends and family that I was the problem, that I was crazy and unhinged.
-- This is an essential defense if criminal gangs ever see the inside of a police interrogation room never mind courtroom, and typically everyone believes rapists over victims as a rule, although this is changing in some more evolved communities such as the UK hopefully.
+- Just like in London in 1989, after enduring alone a series of violent and sedated sexual assaults, those interested in protecting the rape gangs managed to persuade friends and family and community that I was the problem, that I was crazy and unhinged, and that I deserved it somehow.
+- It will be very interesting to find out exactly what has been said about me over the years, in the UK and Spain, and for what purpose.
+- Undermining victims is an essential defense for criminal gangs if they ever see the inside of a police interrogation room, never mind courtroom.
+- Typically everyone believes rapists over victims, although this is changing in some more evolved communities such as the UK hopefully.
 
 ### Menstruation
 
