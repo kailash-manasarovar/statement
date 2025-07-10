@@ -99,7 +99,8 @@
 ## I see my naked 16-year-old body on X again
 
 - Hackers flash up another example of the porn they have with me in it from 1989 where I am sedated and gang raped by a group of predominantly black men somewhere in North London.
-- Unlike the example [the flashed up to me on my X interface](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x), where my body was in profile, this time I am looking down on myself from behind my head.
+- Here's me happy-go-lucky, just a month or so before my life is destroyed completely and intentionally by Tottenham rape gangs.
+- Unlike the previous example I had seen [flashed up to me on my X interface](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x), where my body was in profile, this time I am looking down on myself from behind my head.
 - I see my tiny, extremely pale, dappled even, naked child's body.
 - I am on my back with my legs up again in a tiny ball, as before.
 - I now know exactly what the criminals of Dénia, including teachers and staff at the conservatory, have seen and have possession of.
