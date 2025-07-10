@@ -105,7 +105,7 @@
 
 - Unlike the previous example I had seen [flashed up to me on my X interface](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x), where my body was in profile, this time I am looking down on myself from behind my head.
 - I see my tiny, extremely pale, dappled even, naked child's body.
-- I am on my back with my knees bent and up, in a tiny ball, as before.
+- I am on my back with my knees bent into a tiny ball, as before.
 - I know exactly what the criminals of Dénia, including teachers and staff at the conservatory, have seen.
 - The sickest thing is that they all know way more about what happened to me than I do!
 - Yet after 35 years, I have an overwhelming sense of relief that I now know exactly what happened all those years ago, and why.
