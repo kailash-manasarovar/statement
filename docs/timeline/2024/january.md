@@ -179,13 +179,14 @@
 - My tweet was a direct reference to Winston May; the rape-gang ring-leader from North London who I will see for the first time in over thirty years in [June 2024 while campaigning for the general election in the UK](june.md#winston-may).
 - Winston May (who I detested when I was a child, by the way, but had totally controlled me) always looked me dead in the eyes while raping me.
 - Given I was being triggered to remember events and instances from 1989, and [the trumpet teacher himself had reminded me of Winston May](../2023/september.md#alex-and-paul), it is unsurprising that odd memories like this *popped up* from time to time.
-- This may well be in my statement to the police, but it is more likely viewable in the porn they made.
+- This may well be in my statement to the police, but it is also possibly viewable in the porn.
+- The other option is that the Spanish gangs spoke to Winston May about his sexual MO with underage girls.
 - It was as if I had turned the lights out with my statement. 
 - There was no further interaction.
 - I stopped communicating and deleted the twitter account.
-- Did my statement surprise whoever was running the account at that time?
+- Did my words surprise whoever was running the account?
 - The energy of the account owner was masculine and feminine over those days.
-- If I had to guess, I would say that a very evil woman and a very sexually cruel man were managing the content at that time.
+- If I had to guess, I would say that a very evil woman and a very sexually cruel man were managing the content together at that time.
 
 ### The photographer
 
