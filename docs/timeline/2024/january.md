@@ -153,7 +153,7 @@
     - When I read this in November 2024, still under the influence of something, I was upset.
     - The tone was outrageous actually. 
     - Draw a target in, again and again, drug and manipulate them online, then say they're harassing you!
-    - Given we don't even know who the trumpet teacher is, never mind who runs the `@jctot19` honey-trap account, that's quite a charge.
+    - Given we don't even know [who the trumpet teacher is](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero), never mind who runs the `@jctot19` honey-trap account, that's quite a charge.
     - I wonder if this is how they defend themselves if a girl dares accuse them of sexual coercion/grooming and cyber-stalking, or anything at all.
     - Do these men say, *oh she was obsessed with me*.
     - Has that happened previously?
