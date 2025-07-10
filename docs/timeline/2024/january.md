@@ -180,7 +180,7 @@
 - Winston May (who I detested when I was a child, by the way, but had totally controlled me) always looked me dead in the eyes while raping me.
 - Given I was being triggered to remember events and instances from 1989, and [the trumpet teacher himself had reminded me of Winston May](../2023/september.md#alex-and-paul), it is unsurprising that odd memories like this *popped up* from time to time.
 - This may well be in my statement to the police, but it is also possibly viewable in the porn.
-- The other option is that the Spanish gangs spoke to Winston May about his sexual MO with underage girls.
+- The other option is that the Spanish gangs spoke to Winston May about his sexual MO with underage girls in order to use the information to terrorize me.
 - It was as if I had turned the lights out with my statement. 
 - There was no further interaction.
 - I stopped communicating and deleted the twitter account.
