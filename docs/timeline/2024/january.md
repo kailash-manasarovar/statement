@@ -98,7 +98,7 @@
 
 ## I see my naked 16-year-old body on X again
 
-- Hackers flash up another example of the porn they have with me in it, made in 1989, where I am sedated and gang raped by a group of predominantly black men somewhere near Tottenham, North London.
+- Hackers flash up another example of the porn they have with me in it, made in 1989, where I am sedated and gang-raped by a group of predominantly black men somewhere near Tottenham, North London.
 - Here's me happy-go-lucky, just a month or so before my life is destroyed completely and intentionally by Tottenham rape gangs.
 
 ![Me at school in June 1989](../../content/images/wee-katie.jpeg)
