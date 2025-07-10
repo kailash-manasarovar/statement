@@ -138,7 +138,7 @@
 - I travel to Ireland on 10th January for my Transformational Touch therapy course.
 - When I inform the choir teacher Salva I will be away, he says, "as long as you're not going away for the weekend with your boyfriend", referring to what Domingo had got [his student Elsa](../2023/october.md#gang-stalking-by-conservatory-civil-servants) to ask me previously concerning one of my tweets. 
 - Salva says this every time I tell him I'm going to skip a class, and whenever else he gets the chance.
-- After recent events in Avila and Madrid, I'm convinced the trumpet teacher must want to communicate with me.
+- After recent events in [Avila and Madrid](../2023/december.md#christmas), I'm convinced the trumpet teacher must want to communicate with me.
 - When I'm in Ireland, I open an anonymous account on X on my mobile.
 - I follow `@jctot19` on it, and post solely to my timeline without interacting with his account directly at all.
 
