@@ -131,23 +131,53 @@
 - I believe the stress - in particular that caused by the relentless triggering around my experience of child sexual abuse - was intended to give me a nervous breakdown or lead me to suicide.
 - I believe others, some of whom I know, have been led to extreme psycho-emotional unwellness or their deaths similarly.
 
-## Galway
+## Galway, Ireland, TT
 
 - I'm still extraordinarily high from Christmas.
-- I head to Ireland on 10th January for my therapy course once again.
-- When I inform the choir teacher I will be away, he says, "as long as you're not going away for the weekend with your boyfriend", referring to what Domingo had got [his student Elsa](../2023/october.md#gang-stalking-by-conservatory-civil-servants) to ask me. He says this every time I have to tell him I'm going to skip a class.
-- I open an anonymous account on Twitter, follow `@jctot19` on it, and post solely to my timeline without interacting with his account directly at all.
-- A post from him on 9th January, which I have only just seen at the time of writing (November 2024), mentions a *chica* and it appears to be referring to me. If so, the implication is that I am chasing him again and again. However, this is undoubtedly what he, Domingo, and their co-conspirators have been setting me up to *appear* to be doing.
-- I wonder if this is how they defend themselves if anyone dares accuse them of sexual coercion/grooming and fraud-related matters. They say, oh she was obsessed with me. Well duh, yeah. You might well get obsessed with someone who drugs you and seduces you.
-- The first post I saw on his timeline, on 10th January, was an angel climbing a ladder to heaven, so I continued.
+- The euphoria and sexual arousal continues.
+- I travel to Ireland on 10th January for my Transformational Touch therapy course.
+- When I inform the choir teacher Salva I will be away, he says, "as long as you're not going away for the weekend with your boyfriend", referring to what Domingo had got [his student Elsa](../2023/october.md#gang-stalking-by-conservatory-civil-servants) to ask me previously concerning one of my tweets. 
+- Salva says this every time I tell him I'm going to skip a class, and whenever else he gets the chance.
+- After recent events, I'm convinced the trumpet teacher must want to communicate with me.
+- When I'm in Ireland, I open an anonymous account on X on my mobile.
+- I follow `@jctot19` on it, and post solely to my timeline without interacting with his account directly at all.
+
+!!! tip "While drafting this section in November 2024..."
+    - I see a post from 9th January which I wonder about.
+    - When I read it, it seems like the `@jctot19` account might be finding ways to *get out of* what's been happening by pretending someone has been harassing him, i.e. me.
+
+    [![Chica](../../content/tweets/january-2024/chica.png)](https://x.com/JCToT19/status/1744714412081008924)
+
+    - I only saw this post in November 2024 in Bangkok.
+    - It is very curious that I did not see this post before, and that I did see the full thread originally including the replies from the other user `@LadyKilauea`.
+    - When I read this in November 2024, still under the influence of something, I was upset.
+    - The tone was outrageous actually. 
+    - Draw a target in, again and again, drug and manipulate them online, then say they're harassing you!
+    - Given we don't even know who the trumpet teacher is, never mind who runs the `@jctot19` honey-trap account, that's quite a charge.
+    - I wonder if this is how they defend themselves if a girl dares accuse them of sexual coercion/grooming and cyber-stalking, or anything at all.
+    - Do these men say, *oh she was obsessed with me*.
+    - Did that happen previously?
+    - Well duh, yeah. You might well get obsessed with someone who drugs you and seduces you for sinister purposes. 
+    - Isn't that the point?
+    - Although, if the porn gangs set up a dummy love-interest, then maybe such a suggestion could be reasonable under those circumstances, albeit very unlikely and leaving too many more unanswered questions.
+
+- The first post I saw on his timeline, on 10th January, was an image of an angel climbing a ladder to heaven.
+- It appeared to be a message to me, so I continued posting.
+- This, and a preponderance of the tweets I saw, have been deleted now.
 - I posted about my therapy, and looked on his timeline for responses, as before.
 - There was a to-and-fro, as before, all positive.
 - After a day of this, however, the content starts to be interspersed with references to porn, specifically violent and humiliating porn.
 - I posted one tweet with a sexual connotation, and he immediately reaches out to a random woman he hasn't seen in years.
-- The tweet I posted was "will you look me dead in the eyes".
-- This is a direct reference to Winston May as Winston May (who I detested, by the way, but totally controlled me) always looked me dead in the eyes during sex.
+- The tweet I posted was *will you look me dead in the eyes*.
+- This is a direct reference to Winston May, the rape-gang ring-leader from North London.
+- Winston May (who I detested, by the way, but totally controlled me) always looked me dead in the eyes while raping me.
+- Given I was being triggered to remember events and instances from 1989, and [the trumpet teacher himself had reminded me of Winston May](../2023/september.md#alex-and-paul), it is unsurprising that odd memories like this *popped up* from time to time.
 - This may well be in my statement to the police, but it is more likely viewable in the porn they made.
-- I immediately stop communicating with him and delete the twitter account I had created.
+- All communication ceased immediately at that moment.
+- It was as if I had turned the lights out with my statement.
+- I stopped communicating and deleted the twitter account.
+- Did my statement surprise whoever was running the account at that time?
+- The energy of the account owner was masculine and feminine. If I had to guess, I would take a guess that Carmen Cano and her uncle were managing the content at that time.
 
 ### The photographer
 

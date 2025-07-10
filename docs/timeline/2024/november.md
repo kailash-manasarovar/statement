@@ -116,7 +116,7 @@
 ## Honey trap
 
 - I believe that the `@jctot19` account is fundamentally a honey-trap account.
-- Is it possible I blew his cover and that is why the original tweets stopped on 15th January? I think it's highly likely given they shut everything down when I said [something that directly related to Winston May](january.md#galway).
+- Is it possible I blew his cover and that is why the original tweets stopped on 15th January? I think it's highly likely given they shut everything down when I said [something that directly related to Winston May](january.md#galway-ireland-tt).
 - Nevertheless, bizarrely, Google search results related to this account are still active. I notice the newer entries are coming from retweeted posts. I suspect the retweets are automated.
 - Carmen and Rocio Vidal still feature. Carmen is obviously Carmen Cano, Domingo's sister.
 - I post about [seduction techniques](../../evidence/manipulation.md) on Twitter: https://x.com/1FRGVN/status/1860132157890679006. Immediately, an account interacts with me that has a warning, and suggests the trumpet teacher has an alibi, and not to forget to cross examine Domingo (Camo).
