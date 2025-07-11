@@ -188,12 +188,35 @@
 - The energy of the account owner was masculine and feminine over those days.
 - If I had to guess, I would say that a very evil woman and a very sexually cruel man were managing the content together at that time.
 
+### Flying back to Spain from Ireland
+
+#### San Antonio and the cat
+
+- During one of our sessions in Galway, Steve remarks that he had been thinking of me in December in San Antonio, Texas.
+
+#### Madrid airport
+
+- There are more additions to this period in Ireland related to something Steve said to me, an email exchange between myself and him, and some interesting communications.
+
 ### The photographer
 
-- I see a picture of a woman swimming from the viewpoint of someone deep down. 
-- I know it, somehow, to be the woman who took the picture of the `@jctot19` account picture.
-- This is related somehow to the overwhelming feelings of love and romance I had in [April 2023 while driving to Lourdes](../2023/april.md#overwhelming-romantic-feelings).
-- There are more additions to this period in Ireland related to something Steve said to me, an email exchange between myself and him, and some interesting communications.
+- When I get home, on my `@JackChardwood` feed, I see a photo of a woman swimming.
+- The person taking the photo is about twenty-feet down and looking up towards the surface where she is swimming.
+- She has a camera in her hand.
+- Her longish light-brown hair swirls outwards in the water.
+- The sun shines through the top layer of the water but all around is darkness.
+- I know that the woman is the same person who took the picture of the man swimming in the `@jctot19` profile.
+
+![ToT profile pic](../../content/images/tot-profile.png)
+
+- I have no idea why I know this.
+- The feeling I have when I see the photo reminds me of the overwhelming feelings of love and romance I had in [April 2023 while driving to Lourdes](../2023/april.md#overwhelming-romantic-feelings).
+- I also have a strong sensation that I own this woman. 
+- I feel like she is mine to do whatever I want with.
+- There is also a delighted sensation, like a tingling, that I am going to treat her badly and she won't be able to do anything about it.
+- She reminds me a little bit of [Sylvie](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie) but I don't see her face.
+- I scroll away and when I go back to look at the photo again it is gone. 
+- I never see it again.
 
 ### Therapy table
 
