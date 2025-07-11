@@ -205,7 +205,7 @@
 
 ![Swimmer](../../content/images/swimmer.png)
 
-- The person taking the photo is about twenty-feet down and looking up towards the surface where she is swimming.
+- The person taking the photo is about twenty-feet down and looking up towards the surface where the woman is swimming.
 - She has a camera in her hand.
 - Her longish light-brown hair swirls outwards in the water.
 - The sun shines through the top layer of the water but all around is darkness.
