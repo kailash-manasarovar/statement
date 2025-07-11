@@ -201,7 +201,7 @@
 ### The photographer
 
 - When I get home, on my `@JackChardwood` feed, I see a photo of a woman swimming.
-- - The picture AI drew for me is not quite right, but perhaps helpful.
+- The picture AI drew for me below is not quite right, but perhaps helpful.
 
 ![Swimmer](../../content/images/swimmer.png)
 
