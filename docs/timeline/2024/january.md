@@ -249,7 +249,7 @@
 - A few days later I notice they are quite severely scuffed. 
 - I never noticed this in the shop; in fact they were pristine when I put them on.
 - I hadn't even worn them once, so I contact the seller to complain.
-- I assumed they'd given me an old pair from the back and I hadn't noticed because they were in the box.
+- I assumed they'd given me an old pair from the back and I hadn't noticed because they were in the box already.
 - I send pictures.
 - I see that the boots are even more badly scuffed a year later when I pack them to leave in February 2024.
 - I only wore them once for a couple of hours.
