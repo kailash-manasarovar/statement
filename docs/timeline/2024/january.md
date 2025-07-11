@@ -243,7 +243,7 @@
 - I buy some expensive boots at [Brown Thomas](https://www.brownthomas.com/) in Galway.
 - They're beautiful.
 
-![Boots](../../content/images/carmen/boots.avif)
+![Boots](../../content/images/boots.jpg)
 
 - I bring them home and put them on my shoe rack.
 - A few days later I notice they are quite severely scuffed. 
