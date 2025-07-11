@@ -205,8 +205,8 @@
 
 ![Swimmer](../../content/images/swimmer.png)
 
-- The person taking the photo is about twenty-feet down and looking up towards the surface where the woman is swimming.
 - She has a camera in her hand.
+- The person taking the photo is about twenty-feet down and looking up towards the surface where the woman is swimming.
 - Her longish light-brown hair swirls outwards in the water.
 - The sun shines through the top layer of the water but all around is darkness.
 - I know that the woman is the same person who took the picture of the man swimming in the `@jctot19` profile.
@@ -222,14 +222,18 @@
 - I scroll away and when I go back to look at the photo again it is gone. 
 - I never see it again.
 
-
 ### Therapy table
 
-- I buy a therapy table with the intention of starting up a trauma therapy practice.
+- I buy a therapy table with the intention of starting up a Transformational Touch (TT) trauma therapy practice in Dénia.
+
+![Therapy table](../../content/images/therapy-table.jpg)
+
 - Online in conversation with hackers, I mention that everyone might benefit from getting on my table.
-- A post flashes up "I'm not doing that!!", as if shouting.
-- I realize later they are referring to the [gang-rape porn on the table incident](../2023/july.md#carmen), the 'table' meme which they had been triggering me with since at least August 2023.
-- It's a curious irony that we call the trauma therapy bed a table, isn't it.
+- A post flashes up ***I'M NOT DOING THAT!!***, as if shouting.
+- I realize later they are referring to the gang-rape on the table incident I had mentioned in [my police statement from 2015](../early-years/2015.md#statement-to-the-metropolitan-police) that Dénia terrorists had been trying to [remind me of at the beach](../2023/september.md#rape-gang-reminders), and on [Google search results](../2023/september.md#table) that showed only tables, and the [Carmen account mentioning tables](../2023/july.md#carmen) again and again.
+- They had been triggering me online with the 'table' meme since at least August 2023, possibly before.
+- I really had no idea what they were going on about, until [I saw myself in a still from child gang-rape porn](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) in November 2023, but even then I was not wholly certain about the table references.
+- It's a curious irony that practitioners call the TT trauma therapy bed a table.
 
 ## Boots from Ireland
 
