@@ -201,6 +201,10 @@
 ### The photographer
 
 - When I get home, on my `@JackChardwood` feed, I see a photo of a woman swimming.
+- - The picture AI drew for me is not quite right, but perhaps helpful.
+
+![Swimmer](../../content/images/swimmer.png)
+
 - The person taking the photo is about twenty-feet down and looking up towards the surface where she is swimming.
 - She has a camera in her hand.
 - Her longish light-brown hair swirls outwards in the water.
@@ -217,6 +221,7 @@
 - She reminds me a little bit of [Sylvie](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie) but I don't see her face.
 - I scroll away and when I go back to look at the photo again it is gone. 
 - I never see it again.
+
 
 ### Therapy table
 
