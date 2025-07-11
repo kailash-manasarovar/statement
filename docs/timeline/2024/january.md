@@ -240,14 +240,27 @@
 
 ## Boots from Ireland
 
-- I buy some expensive boots in Galway. They're beautiful.
+- I buy some expensive boots at [Brown Thomas](https://www.brownthomas.com/) in Galway.
+- They're beautiful.
+
+![Boots](../../content/images/carmen/boots.avif)
+
 - I bring them home and put them on my shoe rack.
-- A few days later I notice they are quite severely scuffed. I never noticed this in the shop but I haven't worn them so I contact the seller to complain.
+- A few days later I notice they are quite severely scuffed. 
+- I never noticed this in the shop; in fact they were pristine when I put them on.
+- I hadn't even worn them once, so I contact the seller to complain.
+- I assumed they'd given me an old pair from the back and I hadn't noticed because they were in the box.
+- I send pictures.
 
-!!! danger "Evidence of people coming into my apartment"
+!!! danger "Evidence of people coming into my apartment?"
     - Looking back, this sort of thing strikes me as being to do with people entering my apartment without my knowledge whenever they got the chance to cause mischief, and add poison/drugs to my food and toiletries.
+    - It'd be interesting to know if anyone wore them out while I was away maybe.
+    - I certainly saw Carmen Cano outside the internal main door to my apartment block on 1 November 2024.
+    - Could she and others have been coming in regularly; knowing, as they did, my location at any time?
 
-- They are even more badly scuffed a year later when I pack them to leave in February 2024. I only wore them once for a couple of hours since complaining about the big scuff which looks to me malicious now.
+- I see that the boots are even more badly scuffed a year later when I pack them to leave in February 2024.
+- I only wore them once for a couple of hours.
+- They look like they've been worn a lot; it's very strange.
 
 ## I buy an iPhone
 
