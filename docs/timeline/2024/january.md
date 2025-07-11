@@ -214,7 +214,7 @@
 ![ToT profile pic](../../content/images/tot-profile.png)
 
 - I have no idea why I know this.
-- The feeling I have when I see the photo reminds me of the overwhelming feelings of love and romance I had in [April 2023 while driving to Lourdes](../2023/april.md#overwhelming-romantic-feelings).
+- The feeling I have when I see the photo reminds me of the overwhelming feelings of love and romance that started up in [April 2023 or earlier](../2023/april.md#overwhelming-romantic-feelings).
 - I also have a strong sensation that I own this woman. 
 - I feel like she is mine to do whatever I want with.
 - There is also a delighted sensation, like a tingling, that I am going to treat her badly and she won't be able to do anything about it.
