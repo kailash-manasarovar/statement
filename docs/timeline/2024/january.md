@@ -264,8 +264,10 @@
 
 ## I buy an iPhone
 
-- I take a colleague's advice and buy and iPhone in the hope it will impede hackers.
-- Copy of the [confirmation from Apple](../../content/documents/evidence/iphone-bill.png).
+- I take [my ex-colleague's advice](../2023/november.md#polygon) and buy an iPhone 14 in the hope it will impede hackers.
+- Here's a copy of the [confirmation from Apple](../../content/documents/evidence/iphone-bill.png).
+- Hackers enter my phone nearly immediately; I assume via the home network.
+- I know this from fake account profile messages which match conversations I have had during the day, from clear evidence stalkers know exactly where I'm going to be at any given moment, and from the my feelings that the threat level is increasing, online and in-person.
 
 ## Ana and Ana
 
