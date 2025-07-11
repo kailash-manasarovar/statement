@@ -251,16 +251,16 @@
 - I hadn't even worn them once, so I contact the seller to complain.
 - I assumed they'd given me an old pair from the back and I hadn't noticed because they were in the box.
 - I send pictures.
-
-!!! danger "Evidence of people coming into my apartment?"
-    - Looking back, this sort of thing strikes me as being to do with people entering my apartment without my knowledge whenever they got the chance to cause mischief, and add poison/drugs to my food and toiletries.
-    - It'd be interesting to know if anyone wore them out while I was away maybe.
-    - I certainly saw Carmen Cano outside the internal main door to my apartment block on 1 November 2024.
-    - Could she and others have been coming in regularly; knowing, as they did, my location at any time?
-
 - I see that the boots are even more badly scuffed a year later when I pack them to leave in February 2024.
 - I only wore them once for a couple of hours.
 - They look like they've been worn a lot; it's very strange.
+
+!!! danger "Evidence of people coming into my apartment?"
+    - Looking back, I wonder if this sort of thing is to do with people entering my apartment without my knowledge whenever they got the chance to cause mischief, and add poison/drugs to my food and toiletries.
+    - A similar thing happened with a pair of expensive jeans from El Corte Ingles in Zaragoza the year before.
+    - It'd be interesting to know if anyone wore the boots out while I was away.
+    - I certainly saw Carmen Cano outside the internal main door to my apartment block on 1 November 2024.
+    - Could she and others have been coming in regularly; knowing, as they did, my location at any time?
 
 ## I buy an iPhone
 
