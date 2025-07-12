@@ -247,7 +247,7 @@
 
 - I bring them home and put them on my shoe rack.
 - A few days later I notice they are quite severely scuffed. 
-- I never noticed this in the shop; in fact they were pristine when I put them on.
+- I never noticed this in the shop; in fact they were pristine when I tried them on.
 - I hadn't even worn them once, so I contact the seller to complain.
 - I assumed they'd given me an old pair from the back and I hadn't noticed because they were in the box already.
 - I send pictures.
@@ -271,24 +271,51 @@
 
 ## Ana and Ana
 
-- Ana Girbes starts taking a role in the bullying at the conservatory. She makes herself visible and she is always glaring at me furiously whenever I see her. I have no idea why.
-- One evening, she barks something at me as she walks past me, and then she says something derogatory to me about a private health matter I have only ever told Google search.
+- Ana Girbes starts taking a more central role in the bullying at the conservatory. 
+- She makes herself visible to me whenever I come into class. 
+- She seems to be waiting for me; at her door, or by reception, or even outside the toilet when I come out so she can "bump" into me and say something unpleasant.
+- She glares at me furiously whenever I see her.
+- I have no idea why. 
+- As with everything else, there's no reasonable explanation for her bizarre and unpleasant behavior.
+- I'm also still seeing the Ana Girbes transformer figure online on the `@jctot19 x` search.
+
+![Ana transformer figure](../../content/images/ana-transformer.png)
+
+- I wonder who else saw the pic. It was an exceptional likeness.
+- One evening, Ana Girbes is waiting for me as I come out of the toilets.
+- She barks something as she walks past me.
+- It is a derogatory statement about a private urinary health matter I have *only ever told Google search*.
+
+!!! tip "Private health concerns"
+    - There is no way *anyone* could have known about the very private health issue I was suffering unless they had seen my online Google search activity.
+    - I only ever told Google search, no-one else.
+    - I never wrote about it, publicly or privately.
+    - Ana Girbes either had access to my online activity herself, or someone was telling her what to say to me with the intention of terrorizing me by making me realize I had no privacy at all, even when it came to extremely personal health matters.
+    - Interestingly, I only suffered this particular symptom while I was being poisoned and drugged; so all throughout my time at Carrer Furs, even when I was traveling during that time and was still ingesting something that had been added to bathroom products or health supplements.
+    - It's possible I was being drugged by third-parties, Sally maybe at Lourdes and Cauterets, maybe people I don't know too.
+    - At the time of writing, and since a recent colonic fast and detox undertaken in early June 2025, this symptom that suggests weak or damaged kidneys and thus urinary problems has disappeared completely!
+
 - Ana Girbes and Ana Requena create highly suggestive choreographed routines designed to make me anxious and stressed, and this goes on way into March.
-- They are always furious at me but they never say a word to me.
-- The implication is that Ana is furious at me for "being in love" with the trumpet teacher who is her boyfriend.
-- At some point during the month, they both change their demeanor completely, and smile sweetly at me when I'm going to class or leaving the conservatory.
+- They are always glaring at me furiously, but they never say a word.
+- The implication is that Ana is furious at me for *being in love* with the trumpet teacher who is her boyfriend. 
+- This story is reinforced heavily online via my X feed and Google searches, and they even start suggesting she is pregnant by him.
+- On one occasion during the month of January, they both change their demeanor completely.
+- They smile sweetly at me instead, and never say anything.
+- This changes back to feigned and intense fury the next time I go in.
 
-!!! danger "Remember"
-    - I'd just like to take a moment to remind everyone at this point that these women are teachers in a public school with responsibility over many, many children.
+!!! danger "More reenactments coming directly from information in my statement to the Metropolitan police"
+    - Curiously, this was also part of my [child sexual abuse statement to the police](../early-years/2015.md#statement-to-the-metropolitan-police).
+    - I described in details what the pedophile had done to terrorize me and make me too afraid to say no to him.
+    - One of those things was that he would be furiously angry with me, and then be kind, and then be angry again, and repeat, sometimes these changes were within seconds.
+    - The angry times included violent threats to my life.
+    - This destabilizing technique was devastating to my mind and emotional stability, and my body still can react to this sort of thing, even though inside I'm relatively calm.
+    - My arms started to feel weak around Ana and Ana, it's like I could not use them effectively, they hung off me, heavy and sore.
 
-- It then switches again and they are angry with me. 
-- Paqui would sometimes reinforce this with an off the cuff remark at my piano class.
-
-!!! info
-    - Curiously, this was also part of my child sexual abuse statement to the police when I described what the pedophile had done to terrorize me and make me too afraid to say no.
-    - He would be furiously angry with me, and then be kind, and then be angry again, and repeat, sometimes this was within seconds.
-    - It was devastating to my mind and emotional stability and my body still reacts strongly to this sort of thing, even though inside I'm relatively calm.
-    - I wonder did the two Ana's know about this, or were they simply taking instruction from Domingo who knew tactics like this would destabilize me because he had read the statement himself.
+- I'd just like to take a moment to remind everyone at this point that these women are teachers in a public school with temporary-guardianship responsibility over many hundreds of children.
+- Paqui Fornet would then reinforce their behavior towards me, as if it was justified, with an off the cuff remark at my piano class such as:
+    - "Oh you never stop chasing another women's man do you", referring to me taking Ana's boyfriend! 
+    - "You're a grass total", referring to me cataloguing any events at the conservatory on my X feed, sometimes that involved things she had said or done. 
+    - "It's what the men do", referring to the overwhelming stress I am under, and other similarly triggering statements.
 
 ## Conservatory women
 

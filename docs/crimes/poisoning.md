@@ -40,15 +40,24 @@ This is a non-exhaustive list of all the dreams or visions I remembered from aro
 
 ### Mandrake
 
-- This is an interesting herb that has been used for poisoning over millenia and grows native in the region.
+- This is an interesting herb that has been used for poisoning over millennia and grows native in the region.
 - It is a psychoactive plant and can induce visions.
-- As part of this, it will dilate pupils.
-- If taking it long-term, even in small doses, a person may become at risk for glaucoma due to the continuous dilation with can narrow the angles.
+- It also makes eyesight blurry and this may explain why I easily thought two different people were the same person.
+- It dilates the pupils.
+- If taking it long-term, even in small doses, a person may become at risk for glaucoma due to the continuous pupil dilation which can narrow the angles.
+- It is extremely easy to get the dose wrong with Mandrake, and over-dosing can cause kidney damage amongst other things.
 
 ## Drugged at the conservatory in class
 
 - Powder in my ear.
 - Powder on my neck.
+- Patches applied without my knowledge.
 - Oil-based drugs on the music paper.
 - Oil-based drugs on the mobile phone screen.
 - Oil-based drugs on the piano keys.
+
+### Upping the dose before class at home
+
+- Water from my flat.
+- Food and beverages poisoned in my flat without my knowledge.
+- Toiletries.
