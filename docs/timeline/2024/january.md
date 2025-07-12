@@ -336,7 +336,7 @@
 - I do go to the piano concert at the social centre, I believe the next day.
 - I wait in line for the tickets. 
 - I see the two Anas, Paqui, and a number of people I know from the conservatory.
-- They whisper to each other, look at me and even point sometimes.
+- They whisper to each other, look at me, and even point sometimes.
 - People I don't know laugh jeeringly behind me.
 - No-one talks to me, or even acknowledges me.
 - Even the students have stopped talking to me.
