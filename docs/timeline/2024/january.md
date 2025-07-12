@@ -318,16 +318,25 @@
     - "It's what the men do", referring to the overwhelming stress I am under, and other similarly triggering statements.
 - I'd just like to take a moment to remind everyone at this point that these women are teachers in a public school with temporary-guardianship responsibility over many hundreds of children.
 
-## Conservatory women
+## I tell Paqui I'm being terrorized by teachers and staff at the conservatory
 
-- At some point, I told Paqui that Domingo and his associates were terrorizing me. 
-- It was just before a piano concert at the social centre in Dénia in January 2024 which the students of the conservatory are usually invited to. She asked me was I going to go, and I asked her if it was safe for me to go.
-- She seemed alarmed at my question which is when I told her I was being terrorized by men, Domingo and others.
-- I believe I can trust her at that point, at least a little bit.
-- I had no idea she was 100% involved.
-- Furthermore, as well as the two Ana's, Katia the singer is also angry with me in my chamber music class. I feel it is all very unfair. 
-- Katia gives me her mobile number at some point.
-- I can't believe the women could all be involved and I try to reach out to them.
+- At one of my piano classes, I told Paqui Fornet my piano teacher that Domingo and his associates were terrorizing me. 
+- It was just before a piano concert at the social centre in Dénia in January 2024.
+- The students of the conservatory are usually invited to such concerts. 
+- Paqui had asked me if I was going to attend.
+- I asked her if it was safe for me to go.
+- She seemed alarmed at my question, which is when I told her I was being terrorized by the conservatory men, Domingo and others.
+- I believed I could trust her at that point, at least a little bit.
+- She didn't reply apart from saying that it would be safe for me to go to the concert.
+- I had no idea she was 100% involved; a ringleader in fact.
+
+### The concert
+
+- I do go to the piano concert at the social centre.
+- No-one talks to me, or even acknowledges me.
+- I sit on my own upstairs, far away from everyone.
+- Teachers and staff stare at me horribly; they do not return my smiles and waves, Paqui included.
+- It's all very threatening.
 
 ## Conservatory men
 
@@ -393,6 +402,10 @@
 ## January 18th correspondence to Katia and the Generalitat
 
 - I've convinced myself the women can't be involved, they must be being lied to by the men.
+- Yet, as well as the two Ana's, Katia the singer is also ridiculously angry with me in my chamber music class.
+- I'm worn down, and I feel it is all very unfair. 
+- Katia gives me her mobile number at some point.
+- I can't believe the women could all be involved and I try to reach out to them.
 - I [text Katia](../../content/whatsapps/text-to-katia.pdf). 
 - Katia does not reply or even mention the text when I see her next at class. 
 - Instead, she looks at me and says something like, "oh you are the best", in a weird way, and that's that.
