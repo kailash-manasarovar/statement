@@ -193,7 +193,7 @@
 #### San Antonio and the cat
 
 - After one of our transforming touch (TT) module sessions in Galway, Steve and I have a short chat.
-- He remarks that he had been thinking of me a month before, in December 2023.
+- He remarks that he had been thinking of me a month before, on Saturday 14th December 2023.
 - He had been in San Antonio, Texas, at his son's graduation ceremony.
 - During or afterwards, they had gone to visit the shrine of Our Lady of Guadalupe; or they had been in the cathedral in San Antonio, I can't quite remember the details of where they went.
 - Anyway, they were walking around and they saw a picture of Our Lady of Guadalupe.
