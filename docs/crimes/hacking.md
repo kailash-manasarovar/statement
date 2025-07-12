@@ -2,7 +2,7 @@
 
 - Imagine realizing that every single thing you do online is watched intently by criminal gangs; from every payment you make online, to every email you write, to every post you like on X.
 - Now imagine that you realize, also, that the same criminal gangs are tracking your every move on location software; either the software you use yourself, or the software that they have downloaded onto your devices for their own purposes.
-- Not only that, but when they decided they really want to upset you, they can turn off your location software, or scramble it, sometimes while you're in the busiest motorway in a capital city you are not familiar with.
+- Not only that, but when they decided they really want to upset you, they can turn off your location software, or scramble it, sometimes while you're on the busiest motorway in a capital city you are not familiar with.
 - They have shown you that they have functioning key-loggers on your devices, so that anything you write is recorded.
 - They have shown you that they have unlimited access to your social media UIs, meaning they can tailor content specifically for you, to upset or manipulate, to send messages, or worse.
 - They have shown you that they have access to your mobile and laptop cameras, and they suggest, also, that they have cameras in your apartment set up to film anything going on in the bed, the sofa, the bathroom, everywhere.
