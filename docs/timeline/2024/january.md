@@ -218,11 +218,11 @@
 #### Madrid airport
 
 - While I'm emailing Steve on my mobile phone with the results of my investigation, I experience extreme activity online.
-- Steve and I have a very loving yet professional relationship.
-- Nevertheless, whenever I finished an email to Steve with love, I feel an intense jealousy not from myself.
+- Steve and I have a very loving, yet professional relationship.
+- Nevertheless, whenever I finished an email to Steve with love while waiting for my flight to Valencia, I feel an intense jealousy, not from myself.
 - When I get on the plane, I bang my head quite hard accidentally, except it doesn't seem accidental, and it didn't hurt at all.
-- it felt intentional.
-- I do not understand these thoughts and feelings.
+- It felt intentional.
+- I do not understand these thoughts and feelings, but I'm conscious that it is important to report them.
 
 ### The photographer
 
