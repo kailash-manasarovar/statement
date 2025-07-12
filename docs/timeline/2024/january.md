@@ -334,14 +334,19 @@
 ### The concert
 
 - I do go to the piano concert at the social centre, I believe the next day.
+- I wait in line for the tickets. 
+- I see Ana R & G, Paqui, a number of people I know.
+- They whisper to each other, look at me and even point sometimes.
+- People I don't know laugh jeeringly behind me.
 - No-one talks to me, or even acknowledges me.
+- Even the students have stopped talking to me.
 - I sit on my own upstairs, far away from everyone.
 
 ![Target of conservatory bullies](../../content/images/target-of-conservatory-bullies.png)
 
 - Teachers and staff stare at me horribly; they do not return my smiles and waves, Paqui included.
-- Even the students have stopped talking to me.
-- It's all very threatening and the constant stress and tension of being bullied and terrorized around the clock has started to take its toll on my health and wellbeing.
+- It's all very threatening.
+- The constant stress and tension of being bullied and terrorized around the clock has started to take its toll on my health and wellbeing.
 
 ## Conservatory men
 
