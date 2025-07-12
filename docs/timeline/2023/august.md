@@ -37,6 +37,19 @@ function googleTranslateElementInit() {
     - Suffice to say, I experienced a cyber-stalking bombardment, from all possible angles.
     - Once I was back in Dénia, this would continue in the street and again at the conservatory.
 
+### Larry
+
+- I mention an old friend Larry from time to time.
+
+![Larry](../../content/images/larry.png)
+
+- They don't know who he is. 
+- I know this because a day later, I see a post on my X feed.
+
+![Who's Larry](../../content/images/who-is-larry.png)
+
+- At the time, I can imagine hacker have full root access to my browser and are running some kind of user interface editing software which means they can replace anything on my UI with their own content.
+
 ## Tarot
 
 - Given the precision of the [tarot card reading](../2022/july.md#tarot) I had in Glastonbury the year before, I contact Michael on Wearyall Hill to request another reading over the phone.
