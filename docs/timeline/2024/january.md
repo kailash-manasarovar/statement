@@ -292,7 +292,6 @@
     - I never wrote about it, publicly or privately.
     - Ana Girbes either had access to my online activity herself, or someone was telling her what to say to me with the intention of terrorizing me by making me realize I had no privacy at all, even when it came to extremely personal health matters.
     - Interestingly, I only suffered this particular health symptom while I was being poisoned and drugged; so all throughout my time at Carrer Furs and when I was traveling during that time and was still ingesting something that had been added to bathroom products or health supplements.
-    - It's possible I was being drugged by third-parties, Sally maybe at Lourdes and Cauterets, maybe other people I don't know too.
     - At the time of writing, and since a recent colonic fast and detox undertaken in early June 2025, this symptom that suggests weak or damaged kidneys and urinary issues has disappeared completely!
 
 - Ana Girbes and Ana Requena create highly suggestive choreographed routines designed to make me anxious and stressed, and this goes on way into March.
