@@ -297,7 +297,7 @@
 
 - Ana Girbes and Ana Requena create highly suggestive choreographed routines designed to make me anxious and stressed, and this goes on way into March.
 - They are always glaring at me furiously, but they never say a word.
-- The implication is that Ana is furious at me for *being in love* with the trumpet teacher who is her boyfriend. 
+- The implication is that Ana Requena is furious at me for *being in love* with the trumpet teacher who is her boyfriend. 
 - This story is reinforced heavily online via my X feed and Google searches, and they even start suggesting she is pregnant by him.
 - On one occasion during the month of January, they both change their demeanor completely.
 - They smile sweetly at me instead, and never say anything.
