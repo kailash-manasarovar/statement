@@ -6,6 +6,7 @@
 - They have shown you that they have functioning key-loggers on your devices, so that anything you write is recorded.
 - They have shown you that they have unlimited access to your social media UIs, meaning they can tailor content specifically for you, to upset or manipulate, to send messages, or worse.
 - They have shown you that they have access to your mobile and laptop cameras, and they suggest, also, that they have cameras in your apartment set up to film anything going on in the bed, the sofa, the bathroom, everywhere.
+- People you know, some of them schoolteachers, say and do things that they could ONLY know if they had constant access to online activity and were watching you in your apartment.
 - Now imagine you go to the Spanish police about this, with names and details, and they tell you that you have to prove it before they'll investigate.
 - You tell them it is related to public school attendance, that teachers and staff who look after children are involved, and that multiple vulnerable children may be in danger.
 - They tell you you're ugly, and that's why you've been targeted online.
