@@ -7,6 +7,9 @@
 - They have shown you that they have unlimited access to your social media UIs, meaning they can tailor content specifically for you, to upset or manipulate, to send messages, or worse.
 - They have shown you that they have access to your mobile and laptop cameras, and they suggest, also, that they have cameras in your apartment set up to film anything going on in the bed, the sofa, the bathroom, everywhere.
 - Now imagine you go to the police about this, with names, and they tell you that you have to prove it before they'll investigate.
+- You tell them it is related to public school attendance and you believe one of the teachers is involved and that children may be in danger.
+- They tell you you're ugly, and that's why you've been targeted online.
+- True story.
 
 ## Common hacking activities
 
