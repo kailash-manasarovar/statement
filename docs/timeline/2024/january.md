@@ -308,7 +308,7 @@
     - I described in detail what the pedophile had done to terrorize me and make me too afraid to say no to him.
     - One of those things was that he would be furiously angry with me, and then be kind, and then be angry again, and repeat this process; sometimes these changes happened in seconds.
     - The angry times included violent threats to my life.
-    - This destabilizing technique was devastating to my mind and emotional stability, and my body still can react to this sort of thing, even though inside I'm relatively calm.
+    - This psychological destabilizing technique was devastating to my child's mind and emotional stability, and my body still can react to this sort of thing, even though inside I'm relatively calm.
     - My arms started to feel weak around Ana and Ana, it's like I could not use them effectively, they hung off me, heavy and sore.
 
 - I'd just like to take a moment to remind everyone at this point that these women are teachers in a public school with temporary-guardianship responsibility over many hundreds of children.
