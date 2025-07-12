@@ -320,7 +320,7 @@
 
 ## I tell Paqui I'm being terrorized by teachers and staff at the conservatory
 
-- At one of my piano classes, I told Paqui Fornet my piano teacher that Domingo and his associates were terrorizing me and had been terrorizing me since [June 12th 2023](../2023/june.md#monday-12th-june-2023).
+- At one of my piano classes, I tell Paqui Fornet, my piano teacher, that Domingo Cano and his associates are terrorizing me and have been terrorizing me since [June 12th 2023](../2023/june.md#monday-12th-june-2023).
 - It was just before a piano concert at the social centre in Dénia in January 2024.
 - The students of the conservatory are usually invited to such concerts. 
 - Paqui had asked me if I was going to attend.
