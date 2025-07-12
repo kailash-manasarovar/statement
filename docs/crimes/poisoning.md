@@ -38,6 +38,13 @@ This is a non-exhaustive list of all the dreams or visions I remembered from aro
 - I thought this RA was yet another autoimmune but when I traveled away from all my belongings for a short time, it cleared up. On returning home, it started up again.
 - I'm now throwing everything away or repeat washing it (10 times I'm told is how many times you have to wash such items to get rid of poisons).
 
+### Mandrake
+
+- This is an interesting herb that has been used for poisoning over millenia and grows native in the region.
+- It is a psychoactive plant and can induce visions.
+- As part of this, it will dilate pupils.
+- If taking it long-term, even in small doses, a person may become at risk for glaucoma due to the continuous dilation with can narrow the angles.
+
 ## Drugged at the conservatory in class
 
 - Powder in my ear.
