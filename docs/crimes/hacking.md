@@ -12,6 +12,7 @@
 - They tell you you're ugly, and that's why you've been targeted online.
 - You tell the British police because well-known British criminals are involved, and multiple children are in danger.
 - They come round and tell you you're an idiot for twenty minutes, then leave.
+- Everyone you speak to talks about it like it is not worth worrying about!
 - True story.
 
 ## Common hacking activities
