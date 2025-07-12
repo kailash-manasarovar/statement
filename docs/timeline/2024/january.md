@@ -336,7 +336,11 @@
 - I do go to the piano concert at the social centre, I believe the next day.
 - No-one talks to me, or even acknowledges me.
 - I sit on my own upstairs, far away from everyone.
+
+![Target of conservatory bullies](../../content/images/target-of-conservatory-bullies.png)
+
 - Teachers and staff stare at me horribly; they do not return my smiles and waves, Paqui included.
+- Even the students have stopped talking to me.
 - It's all very threatening and the constant stress and tension of being bullied and terrorized around the clock has started to take its toll on my health and wellbeing.
 
 ## Conservatory men
