@@ -205,11 +205,11 @@
 ![Our Lady of Guadalupe](../../content/images/Nossa_Senhora_de_Guadalupe.jpeg)
 
 - He thought the angel holding the cloth beneath Our Lady was a cat.
-- It was such a bizarre exchange, I ended up having to look it all up online later.
-- I emailed Steve with the details.
+- It was such a bizarre exchange, I end up having to look it all up online later.
+- I email Steve with the details.
 - It turns out, it is not a cat at all, it's a man.
 - It's Juan Diego.
-- I sent Steve the results of my investigation.
+- I send Steve the results of my investigation.
 
 ![Juan Diego](../../content/images/juan-diego.jpg)
 
