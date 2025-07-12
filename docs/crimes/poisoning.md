@@ -46,6 +46,7 @@ This is a non-exhaustive list of all the dreams or visions I remembered from aro
 - It dilates the pupils.
 - If taking it long-term, even in small doses, a person may become at risk for glaucoma due to the continuous pupil dilation which can narrow the angles.
 - It is extremely easy to get the dose wrong with Mandrake, and over-dosing can cause kidney damage amongst other things.
+- I expect that I was being dosed with whatever it was way back in December 2022 in Thailand, while I was fasting and detoxing, and this also could have been a lethal overdose and probably explains the seizure I had.
 
 ## Drugged at the conservatory in class
 
