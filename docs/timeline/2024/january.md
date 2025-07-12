@@ -309,13 +309,15 @@
     - One of those things was that he would be furiously angry with me, and then be kind, and then be angry again, and repeat this process; sometimes these changes happened in seconds.
     - The angry times included violent threats to my life.
     - This psychological destabilizing technique was devastating to my child's mind and emotional stability, and my body still can react to this sort of thing, even though inside I'm relatively calm.
-    - My arms started to feel weak around Ana and Ana, it's like I could not use them effectively, they hung off me, heavy and sore.
+    - Ironically, after suffering like this at the hands of teachers and staff at the conservatory, a lot of my PTSD reactions have disappeared.
+    - At the time, however, my arms started to feel weak whenever I was around Ana and Ana, it's like I could not use them effectively, they hung off me, heavy, sore and achy.
+    - This was a PTSD reaction coming from being held down sedated and got decidedly worse over the next months.
 
-- I'd just like to take a moment to remind everyone at this point that these women are teachers in a public school with temporary-guardianship responsibility over many hundreds of children.
 - Paqui Fornet would then reinforce their behavior towards me, as if it was justified, with an off the cuff remark at my piano class such as:
     - "Oh you never stop chasing another women's man do you", referring to me taking Ana's boyfriend! 
-    - "You're a grass total", referring to me cataloguing any events at the conservatory on my X feed, sometimes that involved things she had said or done. 
+    - "You're a grass total", referring to me cataloguing any events at the conservatory on my X feed, perhaps sometimes that involving things she had said or done. 
     - "It's what the men do", referring to the overwhelming stress I am under, and other similarly triggering statements.
+- I'd just like to take a moment to remind everyone at this point that these women are teachers in a public school with temporary-guardianship responsibility over many hundreds of children.
 
 ## Conservatory women
 
