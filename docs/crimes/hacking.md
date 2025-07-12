@@ -1,3 +1,13 @@
+# Hacking
+
+- Imagine realizing that every single thing you do online is watched intently by criminal gangs; from every payment you make online, to every email you write, to every post you like on X.
+- Now imagine that you realize, also, that the same criminal gangs are tracking your every move on location software; either the software you use yourself, or the software that they have downloaded onto your devices for their own purposes.
+- Not only that, but when they decided they really want to upset you, they can turn off your location software, or scramble it, while you're in the busiest motorway in a capital city you are not familiar with.
+- They have shown you that they have functioning key-loggers on your devices, so that anything you write is recorded.
+- They have shown you that they have unlimited access to your social media UIs, meaning they can tailor content specifically for you, to upset or manipulate, or worse.
+- They have shown you that they have access to your mobile and laptop cameras, and they suggest, also, that they have cameras in your apartment set up to look at the bed, the sofa, the bath, everywhere.
+- Now imagine you go to the police about this and they tell you that you have to prove it before they'll investigate.
+
 ## Common hacking activities
 
 - A silly example, but as I was trying to download a file (my X archive) for Chris BJ one Sunday afternoon that I was going to bring to her, and I told her at that time, April 2024 or so, that if anything happened to me, here's my X archive, so she knew I was afraid for my life, and then repeatedly downplayed everything afterwards as if it was nothing, and then said "why don't you leave?" as if it wasn't just nothing.

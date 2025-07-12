@@ -42,6 +42,7 @@
 - I also remember him from meeting [Paul and Alessandra back in September 2023](../2023/september.md#alex-and-paul) in a cafe as one of the people who suddenly sat down beside us.
 - She says hello in an angry way. 
 - I find it utterly ironic and wonder if all Spanish people are psychopaths.
+- Or was Ana now concerned she might be implicated in an actual murder and she was trying to cover her tracks in a confused way?
 
 ## Beams
 

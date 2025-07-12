@@ -205,10 +205,10 @@ plugins:
   - search
   - open-in-new-tab
   - git-revision-date-localized
-  - social:
-      cards_layout_options:
-        background_image: \content\images\the-novel\cover-2.webp
-        background_color: transparent
+  #- social:
+  #    cards_layout_options:
+  #      background_image: \content\images\the-novel\cover-2.webp
+  #      background_color: transparent
 
 validation:
   absolute_links: warn
