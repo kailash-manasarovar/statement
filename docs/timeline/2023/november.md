@@ -362,6 +362,23 @@ function googleTranslateElementInit() {
 - Being targeted at my job for being "transphobic" on top of being targeted by criminal gangs of Dénia is really too much for one person to cope with without any support at all.
 - And yet, I'm still here.
 
+### Interview with Polygon
+
+- I attend a series of interviews for the job over September and October.
+- The technical interview stage is managed by Nadim.
+- I'm asked to research and write about the zero-knowledge engine, and ask questions where necessary.
+- I do a good job. 
+- I have an online chat about what I have prepared with Nadim.
+- As I'm interviewing, words fly by on my UI, "wow, you're an engineer".
+- I take it to mean the hacker is watching my every move, including my job interviews.
+
+### X with Polygon
+
+- When I receive my Polygon laptop, I set up an X account.
+- Immediately I have numerous followers, all with significantly meaningful profiles.
+- I suspect that my work laptop has also been breached, via my home router.
+- I'm so busy with my knew role, my conservatory studies, and the stress of what's going on, I don't have time to think about it much more until [March 2024](../2024/march.md#report-hacking-to-work).
+
 ## Health
 
 - I continue to have aches in my back around my kidney area, particularly during the day.
