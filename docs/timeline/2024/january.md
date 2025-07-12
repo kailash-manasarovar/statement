@@ -335,7 +335,7 @@
 
 - I do go to the piano concert at the social centre, I believe the next day.
 - I wait in line for the tickets. 
-- I see Ana R & G, Paqui, a number of people I know.
+- I see the two Anas, Paqui, and a number of people I know.
 - They whisper to each other, look at me and even point sometimes.
 - People I don't know laugh jeeringly behind me.
 - No-one talks to me, or even acknowledges me.
