@@ -277,7 +277,7 @@
 - She glares at me furiously whenever I see her.
 - I have no idea why. 
 - As with everything else, there's no reasonable explanation for her bizarre and unpleasant behavior.
-- I'm also still seeing the Ana Girbes transformer figure online on the `@jctot19 x` search.
+- I'm also still seeing the Ana Girbes transformer figure online on the `@jctot19 x` Google search.
 
 ![Ana transformer figure](../../content/images/ana-transformer.png)
 
