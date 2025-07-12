@@ -217,7 +217,12 @@
 
 #### Madrid airport
 
-- There are more additions to this period in Ireland related to something Steve said to me, an email exchange between myself and him, and some interesting communications.
+- While I'm emailing Steve with the details, I experience extreme activity online.
+- Steve and I have a very loving yet professional relationship.
+- Nevertheless, whenever I finished an email to Steve with love, I feel an intense jealousy not from myself.
+- When I get on the plane, I bang my head quite hard accidentally, except it doesn't seem accidental, and it didn't hurt at all.
+- it felt intentional.
+- I do not understand these thoughts and feelings.
 
 ### The photographer
 
