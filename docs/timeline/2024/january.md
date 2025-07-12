@@ -192,7 +192,28 @@
 
 #### San Antonio and the cat
 
-- During one of our sessions in Galway, Steve remarks that he had been thinking of me in December in San Antonio, Texas.
+- After one of our transforming touch (TT) module sessions in Galway, Steve and I have a short chat.
+- He remarks that he had been thinking of me a month before, in December 2023.
+- He had been in San Antonio, Texas, at his son's graduation ceremony.
+- During or afterwards, they had gone to visit the shrine of Our Lady of Guadalupe; or they had been in the cathedral in San Antonio, I can't quite remember the details of where they went.
+- Anyway, they were walking around and they saw a picture of Our Lady of Guadalupe.
+- When Steve looked at it, he thought of me. 
+- "Oh I'm thinking of Katharine," he said to his friend, something like this, again I can't quite remember.
+- And then he looked and said, "what's that, is it a cat?"
+- Here's the pic.
+
+![Our Lady of Guadalupe](../../content/images/Nossa_Senhora_de_Guadalupe.jpeg)
+
+- He thought the angel holding the cloth beneath Our Lady was a cat.
+- It was such a bizarre exchange, I ended up having to look it all up online later.
+- I emailed Steve with the details.
+- It turns out, it is not a cat at all, it's a man.
+- It's Juan Diego.
+- I sent Steve the results of my investigation.
+
+![Juan Diego](../../content/images/juan-diego.jpg)
+
+- At this point, it is right and proper to say... Praise God in His Infinite Wisdom and Worldly Scheming that only the Fully Trusting could ever possibly understand.
 
 #### Madrid airport
 
