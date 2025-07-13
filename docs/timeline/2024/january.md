@@ -213,6 +213,8 @@
 
 ![Juan Diego](../../content/images/juan-diego.jpg)
 
+- He replies he always knew it was Juan Diego.
+
 #### Madrid airport
 
 - While I'm emailing Steve on my mobile phone with the results of my investigation, I experience extreme activity online.
