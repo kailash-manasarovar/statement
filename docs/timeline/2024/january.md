@@ -129,7 +129,7 @@
 - Eighteen-months later, when I'm safer and not being terrorized 24-hours a day, menstruation resumes.
 - I believe it ceased due to the stress I was under.
 - I believe the stress - in particular that caused by the relentless triggering around my experience of child sexual abuse - was intended to give me a nervous breakdown or lead me to suicide.
-- I believe others, some of whom I know, have been led to extreme psycho-emotional unwellness or their deaths similarly.
+- I believe others, some of whom I know, have been led to extreme psycho-emotional unwellness, or their deaths, in a similar fashion.
 
 ## Galway, Ireland, TT
 
