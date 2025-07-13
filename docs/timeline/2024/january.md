@@ -381,10 +381,21 @@
 - It's all very threatening.
 - The constant stress and tension of being bullied and terrorized around the clock has started to take its toll on my health and wellbeing.
 
-## Conservatory men
+## The smug man I always see
 
-- The weird guy who may be an engineer is always at the conservatory, quite often waiting at the door as I arrive with someone else.
-- One evening, I pass him on the stairs. As I do, I smile at him. His face flashes fear. I tweet about it: https://x.com/1FRGVN/status/1747791280803815621.
+- Every time I go to the conservatory, to practice or for classes, the smug guy is there waiting for me to see him.
+- He is standing outside reception, waiting on the stairs, or standing outside a class talking to the other teachers.
+
+![Smug guy](../../content/images/smug-twat.png)
+
+- He's quite often standing with one of the Anas, Jaume the director, or Domingo.
+- I don't know who he is but he [significantly came out of the phone shop just as I was about to enter it](../2023/october.md#telecommunications-shop) so I guess I'm supposed to think he is something to do with the hacking.
+- One evening, he is coming down the stairs as I am going up.
+- As we pass, I smile genuinely at him.
+- A flash of pure fear flies across his face.
+- I tweet about it.
+
+[![Wiping the smug off](../../content/tweets/january-2024/wiping-the-smug-off.png)](https://x.com/1FRGVN/status/1747791280803815621)
 
 ## Fake accounts reference payments
 
