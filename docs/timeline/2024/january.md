@@ -266,7 +266,8 @@
 - They had been triggering me online with the 'table' meme since at least August 2023, possibly even as far back as 2014.
 - I really had no idea what they were going on about, until [I saw myself in a still from child gang-rape porn](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) in November 2023, but even then I was not wholly certain about the table references.
 - It's a curious irony that practitioners call the TT trauma therapy bed a table.
-- It's an even more curious irony that someone, somewhere, attended TT therapy training with me. Every. Single. Session.
+- It's an even more curious irony that someone, somewhere, attended TT therapy online training with me from June 2020 to sometime in 2022 maybe June.
+- Every. Single. Session.
 
 ![TT therapy with the author](../../content/images/attending-therapy.PNG)
 
