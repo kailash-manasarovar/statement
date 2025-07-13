@@ -213,8 +213,6 @@
 
 ![Juan Diego](../../content/images/juan-diego.jpg)
 
-- At this point, it is right and proper to say... Praise God in His Infinite Wisdom and Worldly Scheming that only the Fully Trusting could ever possibly understand.
-
 #### Madrid airport
 
 - While I'm emailing Steve on my mobile phone with the results of my investigation, I experience extreme activity online.
@@ -247,6 +245,12 @@
 - She reminds me a little bit of [Sylvie](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie) but I don't see her face.
 - I scroll away and when I go back to look at the photo again it is gone. 
 - I never see it again.
+- Like the jealousy I felt at [Madrid airport](#madrid-airport), it was as if, not just that I was in someone else's head, but that I was that person.
+- I felt it must be the trumpet teacher, the man I loved, and that the connection was real.
+- I was sad to have had those heavy violent thoughts about others.
+- Nevertheless, the feelings I had for this man were so intense, I was certain of a true partnership.
+- And yet, the conflict with the horrible reality in Dénia made no sense at all.
+- It was excruciating, but I had to go on. 
 
 ### Therapy table
 
