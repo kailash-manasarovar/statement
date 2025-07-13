@@ -91,7 +91,7 @@
 - I didn't realize until [July 2024](july.md#evidence-of-mass-cyber-stalking-technology) that the cyber-stalkers had access to multiple fake, often but not always porn accounts; thousands of accounts that they could spin up in seconds.
 - This is evidence of a seriously expensive and vast criminal software platform.
 - Vulnerable targets whose phones have been accessed by criminals don't stand a chance, do they? 
-- Significantly and ridiculously, the school board announced a *ban on all mobile phones* inside the conservatory building just after I had been terrorized into leaving due to being afraid for my life!
+- Significantly and ridiculously, the school board announced a [*ban on all mobile phones*](may.md#madrid) inside the conservatory building just after I had been terrorized into leaving due to being afraid for my life!
 - I thought the Google search results might be done with cookies in the browser, but I checked with different browsers, different devices, and even someone else's device. 
 - The results were the same as on my devices. 
 - Of course, they may have hacked that young woman's phone too, anyone close to me probably which at that time was no-one uninvolved in the conspiracy.
@@ -245,7 +245,7 @@
 - She reminds me a little bit of [Sylvie](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie) but I don't see her face.
 - I scroll away and when I go back to look at the photo again it is gone. 
 - I never see it again.
-- Like the jealousy I felt at [Madrid airport](#madrid-airport), it was as if, not just that I was in someone else's head, but that I was that person.
+- Like the jealousy I felt at [Madrid airport](#madrid-airport), it was as if, not just that I was in someone else's head but that I was that person.
 - I felt it must be the trumpet teacher, the man I loved, and that the connection was real.
 - I was sad to have had those heavy violent thoughts about others.
 - Nevertheless, the feelings I had for this man were so intense, I was certain of a true partnership.
