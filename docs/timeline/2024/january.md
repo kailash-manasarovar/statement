@@ -186,7 +186,7 @@
 - I stopped communicating and deleted the twitter account.
 - Did my words surprise whoever was running the account?
 - The energy of the account owner was masculine and feminine over those days.
-- If I had to guess, I would say that a very evil woman and a very sexually cruel man were managing the content together at that time.
+- If I had to guess, I would say that a very evil woman and a very sexually cruel man were managing the content together at that time, and had possibly taken over from an original more benevolent user when they saw what was happening.
 
 ### Flying back to Spain from Ireland
 
