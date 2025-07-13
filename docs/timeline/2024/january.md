@@ -263,7 +263,7 @@
 - Online in conversation with hackers, I mention that everyone might benefit from getting on my table.
 - A post flashes up ***I'M NOT DOING THAT!!***, as if shouting.
 - I realize later they are referring to the gang-rape on the table incident I had mentioned in [my police statement from 2015](../early-years/2015.md#statement-to-the-metropolitan-police) that Dénia terrorists had been trying to [remind me of at the beach](../2023/september.md#rape-gang-reminders), and on [Google search results](../2023/september.md#table) that showed only tables, and the [Carmen account mentioning tables](../2023/july.md#carmen) again and again.
-- They had been triggering me online with the 'table' meme since at least August 2023, possibly before.
+- They had been triggering me online with the 'table' meme since at least August 2023, possibly even as far back as 2014.
 - I really had no idea what they were going on about, until [I saw myself in a still from child gang-rape porn](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) in November 2023, but even then I was not wholly certain about the table references.
 - It's a curious irony that practitioners call the TT trauma therapy bed a table.
 - It's an even more curious irony that someone, somewhere, attended TT therapy training with me. Every. Single. Session.
