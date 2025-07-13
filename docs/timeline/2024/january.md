@@ -397,7 +397,7 @@
 
 [![Wiping the smug off](../../content/tweets/january-2024/wiping-the-smug-off.png)](https://x.com/1FRGVN/status/1747791280803815621)
 
-- I can practically hear a strident male pointy voice saying, "And *you'll* be the engineer," while pointing at him, and him having no choice but to accept.
+- I can practically hear a strident male, pointy voice saying, "And *you'll* be the engineer", and him having no choice but to accept.
 - It was always nice for me to see the true and reasonable human emotion of fear in a situation like this; hidden not so far underneath the jeering sneering evil.
 - It won't take much to see it everywhere, I expect. 
 - Perhaps we're seeing a bit already now?
