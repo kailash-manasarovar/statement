@@ -13,6 +13,7 @@
 - How are your children? What's your wife doing now? Are you still studying? Each question like the firing of a bullet.
 - The men are below him in rank, somehow, and they all answer him respectfully, reverently even.
 - Before a man has finished answering a question, the main dude barks another one out, as if he's not really listening, or doesn't care.
+- The bar staff address the man by name.
 - The main dude reminds me of someone, but I don't place it for a few weeks.
 - It's Domingo.
 - The whole scene reminded me of the time we went out for dinner at the Japanese restaurant in Dénia and he kind of *performed* for the people sitting around the table, as if he knew them and they had to respect him, even though his behavior was rather ignorant, in my view.

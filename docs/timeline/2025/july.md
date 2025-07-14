@@ -13,4 +13,4 @@
 - She is over-talkative but not-friendly.
 - She reminds me a little of the [white man interrogating the Asians](march.md#a-man-who-reminds-me-of-domingo) from before.
 - As we leave, she makes an unnecessary hand-gesture to me which is just one of a million things I did that the teachers and staff at the conservatory jeered at.
-- Interesting.
+- The bar staff address the woman by name.
