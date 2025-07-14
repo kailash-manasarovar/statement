@@ -454,7 +454,7 @@
 
 - On 16th January, I'm walking back home after practicing the piano at the conservatory.
 - I take an unusual route to enter my building from the back.
-- As I'm walking up the Calle Alcanali, I see at the top, parked on the opposite side of the Calle Xativa, a grey saloon Mercedes or similar, possibly two-door, a very expensive and fast car.
+- As I'm walking up the Calle Alcanali, I see at the top, parked on the opposite side of the Calle Xativa, a grey saloon Mercedes or similar, possibly two-door; a very expensive and fast car.
 
 ![Grey saloon car](../../content/images/threatening-men.png)
 
