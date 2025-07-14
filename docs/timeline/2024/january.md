@@ -406,6 +406,20 @@
 - It won't take much to see it everywhere, I expect. 
 - Perhaps we're seeing a bit already now?
 
+## Panda
+
+- While editing this chapter, on 14th July 2025, I see that I have got some timings a little bit wrong.
+- I had a chunk in here about a reference to *panda*, my Tibetan monk friend.
+- I had sent him a monetary gift at Christmas, and this was mentioned online by hackers.
+- Although it had been mentioned a few times already, the [significant mention came in March](march.md#fake-accounts-reference-payments-i-have-made-online).
+- I removed the section from January 2024, and made some other changes to the next section.
+- When I check my X feed, I have some notifications. 
+- One is *panda*.
+
+![Panda](../../content/tweets/january-2024/panda-confirmation.png)
+
+- All editorial activity is saved in git for investigation and confirmation.
+
 ## Nacho says sorry
 
 - The French horn player (an adult student) from choir class follows me out one evening to assess my reaction to Nacho when I see him.
