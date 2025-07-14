@@ -704,7 +704,8 @@ function googleTranslateElementInit() {
 - During his visit, classes start again at the conservatory. 
 - The first class is [choir class](#choir) and he takes me to class and meets me outside when it's over.
 - He will remember how anxious I was to go back to the conservatory.
-- I see much online content related to "pandas" during his visit and these references, and consequent messages, lead me to believe that this is how they refer to my Tibetan friend.
+- I see much online content related to "pandas" during his visit.
+- *Panda* is typically how online stalkers referenced my Tibetan monk friend; while he was visiting and ongoing, including making [references to the exact amount of a monetary gift I send to him online at Christmas](../2024/march.md#fake-accounts-reference-payments-i-have-made-online).
 
 ### Gang stalking on the beach
 
