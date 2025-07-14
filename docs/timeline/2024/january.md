@@ -435,7 +435,7 @@
 - He is asking them if they'll *go for a coffee*.
 - I ask Samuel what's going on, why are they saying *coffee* loudly.
 - Samuel says, oh it's just a game.
-- Coffee is one of the terror terms Domingo, TT, and their co-conspirators had [used relentlessly since 2014](../early-years/2015.md#joan-carles), and at the [commencement of the bullying when I started my studies in 2022](../2022/october.md#bullying-starts-quietly), and by [TT himself in the sporadic classes he attended](../2022/november.md#flirting).
+- *Coffee* is one of the terror-terms Domingo, TT, and their co-conspirators had [used relentlessly since 2014](../early-years/2015.md#joan-carles), and at the [commencement of the bullying when I started my studies in 2022](../2022/october.md#bullying-starts-quietly), and by [TT himself in the sporadic classes he attended](../2022/november.md#flirting).
 
 ### Nacho follows me around town
 
