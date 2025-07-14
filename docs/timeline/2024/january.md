@@ -244,6 +244,7 @@
 - I also have a strong sensation that I own this woman. 
 - I feel like she is mine to do whatever I want with.
 - There is also a delighted sensation, like a tingling, that I am going to treat her badly and she won't be able to do anything about it.
+- This is the tingling of all my tormentors, quickly turning to extreme fear when challenged by Love.
 - She reminds me a little bit of [Sylvie](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie) but I don't see her face.
 - I scroll away and when I go back to look at the photo again it is gone. 
 - I never see it again.
