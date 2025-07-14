@@ -161,6 +161,9 @@ function googleTranslateElementInit() {
 
 ![Forglov's dogs](../../content/images/forg/forglovs-dogs.png)
 
+- But even to this day, I can't believe I had such genuinely loving feelings for a monster.
+- Is it possible there were two trumpet teachers, and only one of them was monstrous?
+
 ## Death of a teacher
 
 - There was an untimely death of a young male teacher around this time at the conservatory. 

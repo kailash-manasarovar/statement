@@ -427,13 +427,15 @@
 - The woman smiles and looks satisfied, and off she goes.
 - A few mornings later, while I'm practicing, Nacho pops his head into the practice room, says sorry and then disappears again.
 - I find it *meaningful* and tweet about it. 
-- Something banal like, "hmm interesting", but they will know what I was referring to. I'll find it shortly.
-- The next choir class, Nacho continues to be part of the bullying and threats. 
+- Something banal like, "hmm interesting", and just after the event.
+- Perhaps not obvious to someone uninvolved in terrorizing me, but they will have known exactly what I was referring to. I'll find it shortly.
+- At the next choir class, Nacho is back on bullying form and continues to be threatening towards me. 
 - I see him interacting with all the young girls (Domingo's students) after class.
-- They're all saying *coffee* really loudly as he asks them if they'll *go for a coffee*.
+- They're all saying *coffee* really loudly.
+- He is asking them if they'll *go for a coffee*.
 - I ask Samuel what's going on, why are they saying *coffee* loudly.
 - Samuel says, oh it's just a game.
-- Coffee is one of the terror terms Domingo, TT, and their co-conspirators had [used relentlessly since 2014](../early-years/2015.md#joan-carles), at the [commencement of the bullying when I started my studies in 2022](../2022/october.md#bullying-starts-quietly), and by [TT himself in the sporadic classes he attended](../2022/november.md#flirting).
+- Coffee is one of the terror terms Domingo, TT, and their co-conspirators had [used relentlessly since 2014](../early-years/2015.md#joan-carles), and at the [commencement of the bullying when I started my studies in 2022](../2022/october.md#bullying-starts-quietly), and by [TT himself in the sporadic classes he attended](../2022/november.md#flirting).
 
 ### Nacho follows me around town
 
