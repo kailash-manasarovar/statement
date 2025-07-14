@@ -469,7 +469,7 @@
 - He was wearing big goggle glasses and had longish dark-grey hair.
 - He looked pretty much exactly the same as when he had help me replace a flat battery at that time.
 - I see the same car again after [I leave my studies at the conservatory in fear for my life](march.md#email-to-paqui), and the porn-gangs move in to finish me off. 
-- At this time, from April or May 2025, fast cars will growl outside my apartment and often I hear them beeping their horns loudly as they pass.
+- At that time, from April or May 2025, fast cars will growl outside my apartment and often I hear them beeping their horns loudly as they pass.
 - Carrer Furs is an extremely quite road.
 - One time, I ran to see what the car beeping looked like. It was [the same grey saloon I had seen in January](may.md#cars-beeping-outside).
 
