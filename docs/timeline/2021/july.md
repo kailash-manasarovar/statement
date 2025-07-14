@@ -38,6 +38,8 @@ function googleTranslateElementInit() {
 - During my trip, I meet Christine for lunch a couple of times. She tells me her views on trans ideology and I quietly agree. 
 - I share with her that I am a child sexual abuse survivor of a grooming gang. I also tell her that I probably would be trans and removing my breasts, womb, and ovaries had I been born 30 years later.
 - I tell Christine I have been suffering from a debilitating depression after reporting child sexual abuse to the Met Police in 2016.
+- I also tell Christine that Elaine Black just committed suicide. 
+- She pretends not to know.
 
 ### Elaine Black 
 
