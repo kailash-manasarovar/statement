@@ -443,8 +443,12 @@
 - Nacho is always there, wherever I am, walking by me in view.
 - He's following me, trying to upset me.
 - I smile and laugh at him. 
-- He looks embarrassed.
-- I'm stressed and anxious about this.
+- He looks embarrassed and nearly trips up.
+
+![Nacho follows me around town](../../content/images/nacho-follows-me-around.png)
+
+- Even though I do my best to hide it, the constant persecution causes me a lot of stress and anxiety.
+- When I have time to think about what's going on, I have a dull and uncomfortable pain in my arms and shoulders.
 
 ## Threatening men outside
 
