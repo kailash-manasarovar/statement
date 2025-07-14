@@ -423,7 +423,7 @@
 ## Nacho says sorry
 
 - The French horn player, [an adult woman who sits beside me in choir class](../2023/november.md#choir), follows me out one evening to assess my reaction to Nacho when I see him.
-- She sees me grimace when I see him, the only reasonable reaction to such a person.
+- She sees me grimace when I see him, [the only reasonable reaction to such a person](../2023/july.md#nacho-caresses-the-8-year-old-girl).
 - The woman smiles and looks satisfied, and off she goes.
 - A few mornings later, while I'm practicing, Nacho pops his head into the practice room, says sorry and then disappears again.
 - I find it *meaningful* and tweet about it. 
