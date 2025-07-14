@@ -43,7 +43,7 @@ function googleTranslateElementInit() {
 
 - [Elaine Black](../early-years/2008.md#working-for-elaine-black) killed herself the week I visited and her funeral was on or around the day I arrived. 
 - A few days after that, I was coming back from the Las Marinas beach towards the Daniya hotel where I was staying.
-- As I crossed the road in front of the Indian restaurant, I saw an old friend, Caroline, sitting at a table for two on her own right in front of the entrance.
+- As I crossed the road in front of the Indian restaurant, I saw an old friend, Caroline, sitting at a table-for-two on her own, right in front of the entrance.
 - She looked devastated.
 - I wonder who Caroline was with, and where that person was at the moment I saw her.
 - Or was she eating alone?
