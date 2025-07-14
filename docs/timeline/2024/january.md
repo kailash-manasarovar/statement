@@ -466,7 +466,7 @@
 [![Threatening men outside](../../content/tweets/january-2024/threatening-men-outside.png)](https://x.com/1FRGVN/status/1747283258092425350)
 
 - I recognize one of them as a man who had fixed my car back in 2013; a man who worked at the garage near my old flat.
-- He was wearing big google glasses and had longish dark grey hair.
+- He was wearing big goggle glasses and had longish dark grey hair.
 - He looked pretty much exactly the same as when he had help me replace a flat battery at that time.
 - I see the same car again after [I leave my studies at the conservatory in fear for my life](march.md#email-to-paqui), and the porn-gangs move in to finish me off. 
 - At this time, from April or May 2025, fast cars will growl outside my apartment and often I hear them beeping their horns loudly as they pass.
