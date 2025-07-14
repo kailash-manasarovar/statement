@@ -458,7 +458,8 @@
 
 ![Grey saloon car](../../content/images/threatening-men.png)
 
-- There are two men in the car glaring at me angrily.
+- There are two men sitting in the front.
+- They glare at me angrily.
 - As I approach them, crossing the street, they make the engine scream and howl before speeding off, the tyres screeching.
 - I become frightened at home and tweet about it.
 
