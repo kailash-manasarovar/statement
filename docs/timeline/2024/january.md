@@ -452,10 +452,25 @@
 
 ## Threatening men outside
 
-- On January 16th I'm coming back from practicing the piano.
-- There is a car outside my building where I'm walking and there are two men in the car glaring at me angrily: https://x.com/1FRGVN/status/1747283258092425350.
-- As I walk past them, they make the engine scream and howl, before speeding off, the tyres screechings.
-- I recognize one as a man who had fixed my car back in 2013 who worked at the garage near my old flat. He had help me replace a flat battery.
+- On 16th January, I'm walking back home after practicing the piano at the conservatory.
+- I take an unusual route to enter my building from the back.
+- As I'm walking up the Calle Alcanali, I see at the top, parked on the opposite side of the Calle Xativa, a grey saloon Mercedes or similar, possibly two-door, a very expensive and fast car.
+
+![Grey saloon car](../../content/images/threatening-men.png)
+
+- There are two men in the car glaring at me angrily.
+- As I approach them, crossing the street, they make the engine scream and howl before speeding off, the tyres screeching.
+- I become frightened at home and tweet about it.
+
+[![Threatening men outside](../../content/tweets/january-2024/threatening-men-outside.png)](https://x.com/1FRGVN/status/1747283258092425350)
+
+- I recognize one of them as a man who had fixed my car back in 2013; a man who worked at the garage near my old flat.
+- He was wearing big google glasses and had longish dark grey hair.
+- He looked pretty much exactly the same as when he had help me replace a flat battery at that time.
+- I see the same car again after [I leave my studies at the conservatory in fear for my life](march.md#email-to-paqui), and the porn-gangs move in to finish me off. 
+- At this time, from April or May 2025, fast cars will growl outside my apartment and often I hear them beeping their horns loudly as they pass.
+- Carrer Furs is an extremely quite road.
+- One time, I ran to see what the car beeping looked like. It was [the same grey saloon I had seen in January](may.md#cars-beeping-outside).
 
 ## Constant threat
 
