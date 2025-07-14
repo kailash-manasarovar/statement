@@ -482,7 +482,7 @@
 - It's getting difficult to perform simple tasks normally. I need extra effort for things I usually don't think about.
 - My hands and arms feel weak all the time.
 - My mind is constantly filled with concerns about what's going on.
-- I now wonder if I was being spiked by something anxiety-forming at this time but perhaps the behavior of teachers, staff, and students at the conservatory during this period is enough to explain the anxiety I'm feeling.
+- I now wonder if I was being spiked by something anxiety-forming at this time, but perhaps the behavior of teachers, staff, and students at the conservatory during this period is enough to explain the anxiety I'm feeling.
 - This anxiety grows until, probably, June when I'm in Lourdes and then head back to the UK for a few weeks. From February to May it is overwhelming. 
 - It is still not nearly as bad as the anxiety I experienced after reporting child sexual abuse to the police, however.
 - And quite possibly the PTSD from sexual abuse in 1989, coincidentally plus bullying, was the worst of all.
