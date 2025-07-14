@@ -61,6 +61,8 @@ function googleTranslateElementInit() {
     - Did criminal sex gangs simply walk in and take over a small town already gone very wrong?
     - Did the criminally insane realize they could do whatever the hell they liked to the good people of Dénia, and get away with it?
 
+- Like all the choreographed moments-in-time to come, was this one also prearranged? 
+- If so, by whom?
 - Elaine was a British woman I used to work for in Dénia. She ran the English Studio academy there. 
 - I mention her in a [previous chapter](../early-years/2008.md#working-for-elaine-black).
 - Due to depression, I had disconnected from everyone I knew. It didn't seem fair to keep people close. I was also finding it extremely difficult to relate to people because of my experiences and the anxiety I was suffering from.
