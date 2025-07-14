@@ -56,8 +56,8 @@ function googleTranslateElementInit() {
     - I now believe Elaine was targeted online like I was, using NLP and sentiment manipulation and possibly drugs and poisons.
     - I believe she was driven to suicide.
     - Is something extremely sinister going on in Dénia?
-    - Are criminal gangs simply taking advantage of a small-town gone very wrong?
-    - Are we seeing yet another vile effect of rampant porn addictions in men and boys?
+    - Did criminal sex gangs simply walk in and take over a small town gone very wrong?
+    - Did the criminally insane realize they could do whatever the hell they liked to the good people of Dénia, and get away with it?
 
 - Elaine was a British woman I used to work for in Dénia. She ran the English Studio academy there. 
 - I mention her in a [previous chapter](../early-years/2008.md#working-for-elaine-black).
