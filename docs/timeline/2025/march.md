@@ -18,6 +18,7 @@
 - The whole scene reminded me of the time we went out for dinner at the Japanese restaurant in Dénia and he kind of *performed* for the people sitting around the table, as if he knew them and they had to respect him, even though his behavior was rather ignorant, in my view.
 - The way he spoke, as if everyone had no choice but to listen to him and smile and agree was exactly what I saw at the Red Lion.
 - Who was this overbearing, slightly camp 50-year-old white man with a moustache presiding over a table of Asian men who may well have been second-generation Pakistanis?
+- And why did they sit right beside us instead of in one of the more private areas elsewhere?
 
 ## Conservatory news
 
