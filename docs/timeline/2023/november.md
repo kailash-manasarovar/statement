@@ -25,9 +25,10 @@ function googleTranslateElementInit() {
     - The Romanian girl's name, Adriana, came up a lot on X.
     - I considered the references to be a warning that she had been targeted by the gangs.
 
-- The French horn player, an adult woman who sits beside me, probably called Vicen, is involved.
-- She waits at the stairs to see my reaction to Nacho as he passes by me one evening after class. 
-- When I grimace, she is satisfied and leaves.
+- The French horn player, an adult woman probably called Vicen is involved.
+- She sits next to me in choir.
+- I suspect she is not using her real name as she and Salva discuss her name significantly every class.
+- Of course, I will remember her to see.
 - Whenever I leave class, I say goodbye to Salva. He ignores me deliberately.
 - I'm anxious, a lot, in choir class. 
 - It's a really horrible experience but I continue to attend to defend my human right to a music education, something I'm paying taxes for in the Valencian Community; and to watch and take notes on the outrageous behavior by teachers and staff with dwindling hope that the children are safe with these people.
