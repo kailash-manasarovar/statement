@@ -471,7 +471,8 @@
 - I see the same car again after [I leave my studies at the conservatory in fear for my life](march.md#email-to-paqui), and the porn-gangs move in to finish me off. 
 - At that time, from April or May 2025, fast cars will growl outside my apartment and often I hear them beeping their horns loudly as they pass.
 - Carrer Furs is an extremely quite road.
-- One time, I ran to see what the car beeping looked like. It was [the same grey saloon I had seen in January](may.md#cars-beeping-outside).
+- One time, I ran to see what the car beeping looked like.
+- It was [the same grey saloon I had seen in January](may.md#cars-beeping-outside).
 
 ## Constant threat
 
