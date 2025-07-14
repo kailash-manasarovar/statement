@@ -480,6 +480,7 @@
 - No one speaks to me, at all, but they are all extremely busy choreographing ridiculous "moments" which will "make me think" something about something.
 - I'm becoming extremely anxious.
 - It's getting difficult to perform simple tasks normally. I need extra effort for things I usually don't think about.
+- My hands and arms feel weak all the time.
 - My mind is constantly filled with concerns about what's going on.
 - I now wonder if I was being spiked by something anxiety-forming at this time but perhaps the behavior of teachers, staff, and students at the conservatory during this period is enough to explain the anxiety I'm feeling.
 - This anxiety grows until, probably, June when I'm in Lourdes and then head back to the UK for a few weeks. From February to May it is overwhelming. 
