@@ -422,21 +422,27 @@
 
 ## Nacho says sorry
 
-- The French horn player (an adult student) from choir class follows me out one evening to assess my reaction to Nacho when I see him.
-- She sees me grimace when I see him, she looks satisfied, and walks off.
-- A few mornings later, when I'm practicing, Nacho pops his head into my room and says sorry and then disappears again.
-- I find it very weird and tweet about it. Something banal like, "hmm interesting", but they will know what I was referring to.
+- The French horn player, [an adult woman who sits beside me in choir class](../2023/november.md#choir), follows me out one evening to assess my reaction to Nacho when I see him.
+- She sees me grimace when I see him, the only reasonable reaction to such a person.
+- The woman smiles and looks satisfied, and off she goes.
+- A few mornings later, while I'm practicing, Nacho pops his head into the practice room, says sorry and then disappears again.
+- I find it *meaningful* and tweet about it. 
+- Something banal like, "hmm interesting", but they will know what I was referring to. I'll find it shortly.
 - The next choir class, Nacho continues to be part of the bullying and threats. 
-- I see him interacting with all the young girls (Domingo's students) after class, and they're all saying "coffee" really loudly as he asks them if they'll "go for a coffee".
-- I ask Samuel what's going on, why are they saying "coffee" loudly, and he says, oh it's just a game.
+- I see him interacting with all the young girls (Domingo's students) after class.
+- They're all saying *coffee* really loudly as he asks them if they'll *go for a coffee*.
+- I ask Samuel what's going on, why are they saying *coffee* loudly.
+- Samuel says, oh it's just a game.
+- Coffee is one of the terror terms Domingo, TT, and their co-conspirators had [used relentlessly since 2014](../early-years/2015.md#joan-carles), at the [commencement of the bullying when I started my studies in 2022](../2022/october.md#bullying-starts-quietly), and by [TT himself in the sporadic classes he attended](../2022/november.md#flirting).
 
-## Nacho follows me around town
+### Nacho follows me around town
 
-- One Saturday, I need to run some errands in Dénia.
-- Nacho is always there, wherever I am, walking by in view.
+- The following Saturday, I need to run some errands in Dénia.
+- Nacho is always there, wherever I am, walking by me in view.
 - He's following me, trying to upset me.
-- I smile and laugh at him. He looks embarrassed.
-- Nevertheless, I'm stressed and anxious about this.
+- I smile and laugh at him. 
+- He looks embarrassed.
+- I'm stressed and anxious about this.
 
 ## Threatening men outside
 
