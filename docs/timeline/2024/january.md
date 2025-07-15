@@ -495,7 +495,7 @@
 ## Dick pics from the choir teacher
 
 - The evening after the first choir class of year four of professional piano studies, in September 2023, on X, an [account named Salva posted a dick pic on my timeline](../2023/september.md#choir).
-- I mention dick pics on Twitter on 17th January 2024, right before choir class.
+- I mention dick pics on X on 17th January 2024, right before choir class.
 
 [![Dick pics](../../content/tweets/january-2024/dick-pics.png)](https://x.com/1FRGVN/status/1747674699901911497)
 
