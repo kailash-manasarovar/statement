@@ -499,7 +499,7 @@
 
 [![Dick pics](../../content/tweets/january-2024/dick-pics.png)](https://x.com/1FRGVN/status/1747674699901911497)
 
-- About half-an-hour into the class, Salva's WhatsApp beeps.
+- About half-an-hour into the class, Salva the choirmaster's WhatsApp beeps.
 - He takes out his phone to look at his messages.
 - Suddenly, he's enraged. 
 - He starts telling a horror story to the children; about terrible things that have happened in schools.
