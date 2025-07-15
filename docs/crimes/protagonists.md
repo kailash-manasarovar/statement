@@ -16,7 +16,7 @@ The people involved were seasoned professionals in the gang-stalking game, and s
 
 The chances of me being the oldest victim, at least in the conservatory system, is very high.
 
-## Vidal Sastre Sanchez Hornero
+## Vidal Sastre Sanchez Hornero (wip investigation)
 
 - This is the name given to the trumpet teacher who turned up to teach class very sporadically starting at the [end of November 2022](../timeline/2022/november.md#the-trumpet-teacher).
 - The bait.
