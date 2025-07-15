@@ -509,7 +509,7 @@
 
 [![Miracle-working tweets](../../content/tweets/january-2024/eejit-face.png)](https://x.com/1FRGVN/status/1713271409911251274)
 
-- Surely this shows untoward surveillance of my every move online?
+- Surely this shows untoward observation of my every move online?
 - Salva continues by saying that this person brought a knife into class and stabbed everyone. 
 - He may have even mentioned horrible details about cutting body parts off students. 
 - He was, of course, referring to me somehow!
