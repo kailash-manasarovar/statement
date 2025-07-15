@@ -91,9 +91,13 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - "Se la rifaron" means, they sold her off.
 - Notice at a certain point in the performance, the trumpet player plays in a very sexually suggestive manner, *stripper style*.
 - These people are not hiding, but I believe they are drugging and sedating women and girls, and not just here, probably all over the region wherever adult men have unrestricted access to women, teenage girls, and younger.
-- Where this person has been listed as teaching in the Generalitat Valenciana region, maybe a young girl or woman is a target.
+- Wherever VSSH has been listed as teaching in the Generalitat Valenciana region, could a young girl or woman be in danger?
 - I have seen this name listed in Castellon, Bunol, Alicante, amongst other places.
-- I believe that *Vidal Sastre Sanchez Hornero* may be the name of one, and only one, of the gang. Or, perhaps, it is a collection of four of the gang's surnames.
+- I thought maybe that *Vidal Sastre Sanchez Hornero* was the name of one, and only one, of the gang. Now I'm thinking that, perhaps, it is a collection of four of the gang's surnames.
+- There will be some sick reason for the choice of name.
+- It was not the name of the man, or men, who came to teach class to me and Pablo; one of whom I am led to believe is called Antonio Ruiz.
+- Could Antonio have been simply used as bait for a sinister sex gang operating and controlling the region's conservatories?
+- Were his children in danger of kidnap, as he suggested online to me at one point?
 - Whoever these people are, they are proud of their behavior, and arrogant enough to showcase their "controlling young girls" activity on [YouTube](https://www.youtube.com/@saxofonator/search?query=vidal%20sanchez%20sastre%20horneros).
 - It appears that all attacks, or "funerals" of women are videoed and shared, and certainly my "funeral" on [12th June 2023](../timeline/2023/june.md#monday-12th-june-2023), was excitedly recorded on the mobile phones of all present, including teachers, staff, and students.
 
