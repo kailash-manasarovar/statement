@@ -505,6 +505,11 @@
 - He starts telling a horror story to the children; about terrible things that have happened in schools.
 - The children become animated and overexcited. 
 - I'm paraphrasing and misquoting, but the gist was that he had a student in a class one time, someone who thought they were a spiritual mystic, and were complaining about bullying, but were in fact psychotic and mentally ill.
+- I believe some of my tweets around my study of A Course In Miracles might have prompted such statements.
+
+[![Miracle-working tweets](../../content/tweets/january-2024/eejit-face.png)](https://x.com/1FRGVN/status/1713271409911251274)
+
+- Surely this shows untoward surveillance of my every move online?
 - Salva continues by saying that this person brought a knife into class and stabbed everyone. 
 - He may have even mentioned horrible details about cutting body parts off students. 
 - He was, of course, referring to me somehow!
