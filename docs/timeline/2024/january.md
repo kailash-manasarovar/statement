@@ -505,7 +505,7 @@
 - He starts telling a horror story to the children; about terrible things that have happened in schools.
 - The children become animated and overexcited. 
 - I'm paraphrasing and misquoting, but the gist was that he had a student in a class one time, someone who thought they were a spiritual mystic, and were complaining about bullying, but were in fact psychotic and mentally ill.
-- Salva continues saying that this person brought a knife into class and stabbed everyone. 
+- Salva continues by saying that this person brought a knife into class and stabbed everyone. 
 - He may have even mentioned horrible details about cutting body parts off students. 
 - He was, of course, referring to me somehow!
 - It was unbelievable.
