@@ -229,6 +229,8 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     !!! info
         - Details of the Channel 4 documentary featuring these two coming up soon.
 
+- We must ask the question that, given the UK police must have known who and what these two are capable of, and where they went, why were they permitted to freely take control of a small area of Spain without any sort of restraint?
+
 ## Twitter accounts of note
 
 - `@jctot19`: I believe this must be the trumpet teacher's account although could be being controlled/managed by others too.
