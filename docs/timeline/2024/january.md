@@ -518,14 +518,15 @@
 
 ## Trying to get help again
 
-- My stress and anxiety levels are overwhelming.
-- Something sinister and threatening is happening to me every minute of the day.
-- I'm beginning to exists in a constant state of fear and stress.
-- The euphoria has disappeared. It seems to have been replaced with excessive fearfulness.
+- My stress and anxiety levels are through the roof.
+- Something sinister and threatening is happening to me every minute of every day.
+- I exist in a constant state of fear and dread.
+- The euphoria has disappeared completely. 
+- It seems to have been replaced with excessive fearfulness.
 - I wonder now if they changed the prescription.
-- I don't know why the Generalitat has not replied to me.
+- I don't know why the Generalitat has not replied to my [letter from October 2023](../2023/october.md#first-letter-to-the-generalitat).
 - I decide to write to them again.
-- I also decide to write to Katia, my classmate at chamber music who is apparently Ana Requena's friend.
+- I also decide to write to Katia, my classmate at chamber music who is *apparently* Ana Requena's close friend.
 
 ### January 18th correspondence to Katia 
 
