@@ -234,10 +234,11 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - `@jctot19`: I believe this must be the trumpet teacher's account although could be being controlled/managed by others too.
 - `@sinremite`: I believe this is Carmen Cano's account.
 
-## Everyone else
+## Everyone else functioning as introduction agents of some sort
 
 - Members of the Javea Computer Club.
 - Members of expat walking groups.
+- Klara Sarkadi singing teacher and leader of the Orfeo de Denia choir.
 - Old (apparent) friends in Dénia.
 - The whole town of Dénia who were clearly lied to about why I had been targeted and so felt justified in joining in the fun. 
 - The only other option is that the town of Dénia is controlled by pure evil.
