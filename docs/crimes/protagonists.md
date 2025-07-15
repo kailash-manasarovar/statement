@@ -19,6 +19,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ## Vidal Sastre Sanchez Hornero
 
 - This is the name given to the trumpet teacher who turned up to teach class very sporadically starting at the [end of November 2022](../timeline/2022/november.md#the-trumpet-teacher).
+- The bait.
 - I found it hard to believe that this man's name is Vidal Sastre Sanchez Hornero, unless these criminal gangs are so arrogant and protected, they don't bother hiding themselves.
 - This is the name registered in the Generalitat Valenciana systems, even today. 
 - Curiously a government official told me no record of the person could be found at the same time I was looking at his name on official Generalitat government lists.
@@ -90,7 +91,9 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - "Se la rifaron" means, they sold her off.
 - Notice at a certain point in the performance, the trumpet player plays in a very sexually suggestive manner, *stripper style*.
 - These people are not hiding, but I believe they are drugging and sedating women and girls, and not just here, probably all over the region wherever adult men have unrestricted access to women, teenage girls, and younger.
-- I believe that *Vidal Sastre Sanchez Hornero* is the name of one, and only one, of this gang.
+- Where this person has been listed as teaching in the Generalitat Valenciana region, maybe a young girl or woman is a target.
+- I have seen this name listed in Castellon, Bunol, Alicante, amongst other places.
+- I believe that *Vidal Sastre Sanchez Hornero* may be the name of one, and only one, of the gang. Or, perhaps, it is a collection of four of the gang's surnames.
 - Whoever these people are, they are proud of their behavior, and arrogant enough to showcase their "controlling young girls" activity on [YouTube](https://www.youtube.com/@saxofonator/search?query=vidal%20sanchez%20sastre%20horneros).
 - It appears that all attacks, or "funerals" of women are videoed and shared, and certainly my "funeral" on [12th June 2023](../timeline/2023/june.md#monday-12th-june-2023), was excitedly recorded on the mobile phones of all present, including teachers, staff, and students.
 
