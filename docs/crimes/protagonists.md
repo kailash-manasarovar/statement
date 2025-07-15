@@ -83,7 +83,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - With such access, criminals can manipulate and intimidate a woman or child via their social media and other online activity.
 - Is this how children are being coerced online into sending sexually explicit pictures of themselves for a pedophile porn market?
-- If a target is physically present, and being drugged as well, like perhaps the [flautist in this video](../timeline/2023/june.md#youtube), then it is highly likely they will eventually suffer a physical sexual, or be manipulated into something apparently consensual, and then be put on porn networks without their consent.
+- If a target is physically present, and being drugged as well, like perhaps the [flautist in this video](../timeline/2023/june.md#youtube), then it is highly likely they will eventually suffer a sedated sexual assault, or be manipulated into something apparently consensual, and then be put on porn networks without their consent.
 - Here's another reference to a "funeral" or "sale" of a groomed young woman from the band in Valencia.
 
 ![Hornero activity funeral home](../content/images/hornero/horn-funerals-1.png)
