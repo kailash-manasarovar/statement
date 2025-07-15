@@ -585,25 +585,34 @@
 
 ### January 18th correspondence to the Generalitat
 
-- I also [email the Generalitat again](../../content/documents/emails/jan-18-email-to-GV.png) that day with an update of what's going on.
+- I [email the Generalitat again](../../content/documents/emails/jan-18-email-to-GV.png) with an update of what's going on.
 - The Generalitat reply to tell me they have transferred the matter to the Alicante office. 
 - I have to ask them to give me a contact there.
 - They're fobbing me off. 
-- It's 3 months since I wrote the [original letter of complaint](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf) to which I never received any reply.
-- I mention buying a new phone in the email to the Generalitat, which I did, which was expensive, an iPhone 14 as suggested by someone at work. They hacked into it pretty much immediately.
+- It's three months since I wrote my [original letter of complaint](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf), asking for help.
+- I received no reply.
 
-### Forwarded to Christine BJ
+#### Forwarded to Christine BJ
 
-- I don't trust the Generalitat anymore but I know how important to have documented proof of what's going on.
-- I forward [every communication I send to the GV to Christine](../../content/documents/emails/Screenshot%202024-02-20%20at%2008.48.40.png).
+- I don't trust the Generalitat.
+- I know how important it is to have documented proof of what's going on.
+- I forward [everything I send to the Generalitat Valenciano to Christine](../../content/documents/emails/Screenshot%202024-02-20%20at%2008.48.40.png).
 
 ## Domingo demonstrates his control of women again
 
-- The day after I write to the Generalitat, I'm going to practice the piano at the conservatory.
-- As I'm going up the stairs, Domingo is coming down the stairs and he's sort of behind and semi-forcing this woman down along with him at his pace, like frogmarching. They are closely connected.
-- It reminds me of how the man forces [the woman in the tunnel](../2023/november.md#tonya) along whenever I see them.
-- The woman looks mix-raced and I wonder if she is the German ex-girlfriend he mentioned back in 2014 although I would have expected her to be older, maybe.
-- It's a demonstration for my benefit. I'm not impressed.
+- The day after I write to the Generalitat, I go to practice the piano at the conservatory.
+- As I'm going up the stairs, Domingo is coming down the stairs with a woman.
+- He's sort of behind and beside, semi-forcing this woman down along with him at his fast pace, like he's frogmarching her. 
+
+![Frogmarching](../../content/images/frogmarching.png)
+
+- The two are very closely connected physically.
+- They rush past me and he stares at me as he passes.
+- The woman's head is down.
+- They remind me of [the woman in the tunnel](../2023/november.md#tonya).
+- The woman has dark-colored skin, and I wonder if she is the German ex-girlfriend he mentioned back in 2014.
+- It's a demonstration for my benefit and a sign he knows I wrote to the Generalitat again, and he doesn't care.
+- I'm not impressed.
 
 ## Twitter
 
