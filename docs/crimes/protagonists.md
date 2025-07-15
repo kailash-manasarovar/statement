@@ -101,6 +101,9 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     - If I'm right about this, then the children of the conservatory would also have to be somewhat complicit in the deception and targeting of female students by countless adult males and their female assistants.
     - This is a somewhat horrific thing to consider and I do hope it is not true but given statistics like all 11-year-old boys have seen pedophile gang rape porn and worse, usually in school on their mates' phones, then nothing would surprise me anymore.
 
+- Is it possible that what is a well-known and much loved Spanish tradition of destroying single women or girls for fun now a countrywide porn business making millions for porn distribution gangs; each girl delivered up at the appropriate time?
+- Given the whole town of Dénia knows of pedophile rape-gang porn I was in from 1989, and doesn't seem to think that is a crime worth reporting, is it possible they know the details of 1000s of crimes against women and girls?
+
 ### A second opinion
 
 - Another version of events is that if this person, having the name Vidal SSH, *is* one of the men in the pictures above, he may have been set up to be the fall-guy if anything went wrong in the original plan.
