@@ -596,7 +596,7 @@
 
 - I don't trust the Generalitat.
 - I know how important it is to have documented proof of what's going on.
-- I forward [everything I send to the Generalitat Valenciano to Christine](../../content/documents/emails/Screenshot%202024-02-20%20at%2008.48.40.png).
+- I forward [everything I send to the Generalitat Valenciana to Christine](../../content/documents/emails/Screenshot%202024-02-20%20at%2008.48.40.png).
 
 ## Domingo demonstrates his control of women again
 
