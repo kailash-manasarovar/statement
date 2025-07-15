@@ -549,18 +549,18 @@
 - It's 3 months since I wrote the [original letter of complaint](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf) to which I never received any reply.
 - I mention buying a new phone in the email to the Generalitat, which I did, which was expensive, an iPhone 14 as suggested by someone at work. They hacked into it pretty much immediately.
 
-### Domingo demonstrates his control of women again
-
-- The following day, I'm going to practice the piano at the conservatory.
-- As I'm going up the stairs, Domingo is coming down the stairs and he's sort of behind and semi-forcing this woman down along with him at his pace, like frogmarching. They are closely connected.
-- It reminds me of how the man forces [the woman in the tunnel](../2023/november.md#tonya) along whenever I see them.
-- The woman looks mix-raced and I wonder if she is the German ex-girlfriend he mentioned back in 2014 although I would have expected her to be older, maybe.
-- It's a demonstration for my benefit. I'm not impressed.
-
 ### Forwarded to Christine BJ
 
 - I don't trust the Generalitat anymore but I know how important to have documented proof of what's going on.
 - I forward [every communication I send to the GV to Christine](../../content/documents/emails/Screenshot%202024-02-20%20at%2008.48.40.png).
+
+## Domingo demonstrates his control of women again
+
+- The day after I write to the Generalitat, I'm going to practice the piano at the conservatory.
+- As I'm going up the stairs, Domingo is coming down the stairs and he's sort of behind and semi-forcing this woman down along with him at his pace, like frogmarching. They are closely connected.
+- It reminds me of how the man forces [the woman in the tunnel](../2023/november.md#tonya) along whenever I see them.
+- The woman looks mix-raced and I wonder if she is the German ex-girlfriend he mentioned back in 2014 although I would have expected her to be older, maybe.
+- It's a demonstration for my benefit. I'm not impressed.
 
 ## Twitter
 

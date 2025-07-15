@@ -876,7 +876,7 @@ function googleTranslateElementInit() {
 - The implication is my (non-existent online) love affair with the trumpet teacher is a real thing, that he is going out with Ana as per constant messaging online, and Ana has become extremely angry and jealous of me.
 - It's absurd, but I'm never sure what's true.
 - In December, she *meaningfully* gives me her mobile phone number.
-- [I write to her about everything](../2024/january.md#january-18th-correspondence-to-katia-and-the-generalitat) in January.
+- [I write to her about everything](../2024/january.md#january-18th-correspondence-to-katia) in January.
 - She does not reply apart from making a weird comment to me the next time I see her at class.
 
 ### Nacho tries to terrorize me
