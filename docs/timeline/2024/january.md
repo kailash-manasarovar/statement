@@ -504,18 +504,16 @@
 - Suddenly, he's enraged. 
 - He starts telling a horror story to the children; about terrible things that have happened in schools.
 - The children become animated and overexcited. 
-- I'm paraphrasing and misquoting, but the gist was that there was someone in a class one time, who thought they were a spiritual mystic but were in fact psychotic and mentally ill.
-- Salva continues saying this person brought a knife in to class and stabbed everyone. 
-- He may have even mentioned horrible details about cutting body parts off people. 
-- He was, of course, referring to me!
+- I'm paraphrasing and misquoting, but the gist was that he had a student in a class one time, someone who thought they were a spiritual mystic, and were complaining about bullying, but were in fact psychotic and mentally ill.
+- Salva continues saying that this person brought a knife into class and stabbed everyone. 
+- He may have even mentioned horrible details about cutting body parts off students. 
+- He was, of course, referring to me somehow!
 - It was unbelievable.
 - I was utterly appalled at his behavior. 
 - So was Samuel who sat behind me.
-- I mentioned to Samuel that Salva clearly didn't want his students to come back the following week.
-- Salva had said things that would ensure parents did not allow their children to come to his class if they knew he was like that.
-- Certainly I would have felt that way about my children.
+- I mentioned to Samuel that Salva clearly didn't want his students to return to class.
 - Someone unknown had sent him a link to my post on WhatsApp, for a joke.
-- Boys will be boys.
+- (Boys will be boys I guess.)
 - The guilt, vengeance, and anger he had towards me at that moment caused him to lose the balance of his mind completely.
 
 ## January 18th correspondence to Katia and the Generalitat
