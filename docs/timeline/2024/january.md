@@ -503,7 +503,7 @@
 - He takes out his phone to look at his messages.
 - Suddenly, he's enraged. 
 - He starts telling a horror story to the children; about terrible things that have happened in schools.
-- The children get really animated and excited. 
+- The children become animated and overexcited. 
 - I'm paraphrasing and misquoting, but the gist was that there was someone in a class one time, who thought they were a spiritual mystic but were in fact psychotic and mentally ill.
 - Salva continues saying this person brought a knife in to class and stabbed everyone. 
 - He may have even mentioned horrible details about cutting body parts off people. 
