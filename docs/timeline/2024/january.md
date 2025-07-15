@@ -492,14 +492,14 @@
 - I wonder how many of their targets were minors, and ended up in prostitution or porn, or whether they ended up having nervous breakdowns or killing themselves.
 - I can't help but think about [Elaine](../2021/july.md#elaine-black), often.
 
-## Dick pics from the choir master
+## Dick pics from the choir teacher
 
 - The evening after the first choir class of year four of professional piano studies, in September 2023, on X, an [account named Salva posted a dick pic on my timeline](../2023/september.md#choir).
 - I mention dick pics on Twitter on 17th January 2024, right before choir class.
 
 [![Dick pics](../../content/tweets/january-2024/dick-pics.png)](https://x.com/1FRGVN/status/1747674699901911497)
 
-- About half-an-hour into the class, Salva the choirmaster's WhatsApp beeps.
+- About half-an-hour into the class, Salva the teacher's WhatsApp beeps.
 - He takes out his phone to look at his messages.
 - Suddenly, he's enraged. 
 - He starts telling a horror story to the children; about terrible things that have happened in schools.

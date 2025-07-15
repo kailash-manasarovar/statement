@@ -959,7 +959,7 @@ function googleTranslateElementInit() {
 - That evening on Twitter, I see a post on my `@jackchardwood` timeline from an account I never saw before named *Salva*.
 - I look at the post. 
 - A man is taking his trousers down to show his penis.
-- I mention [dick pics on Twitter in January 2024](../2024/january.md#dick-pics-from-the-choir-master), right before choir class.
+- I mention [dick pics on Twitter in January 2024](../2024/january.md#dick-pics-from-the-choir-teacher), right before choir class.
 - During the class, he receives a WhatsApp message, reads it, and becomes apoplectic.
 
 ## Apes beating their chests
