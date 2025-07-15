@@ -494,17 +494,29 @@
 
 ## Dick pics from the choir master
 
-- The evening after my first choir class in September 2023, on Twitter, an [account named Salva, posted a dick pic](../2023/september.md#choir).
-- I mention [dick pics on Twitter on 17th January 2024](https://x.com/search?q=dick%20pic%20(from%3A1frgvn)&src=typed_query&f=live) right before choir class.
-- About half an hour into the class, Salva's WhatsApp beeps, and he takes out his phone to look at his messages.
+- The evening after the first choir class of year four of professional piano studies, in September 2023, on X, an [account named Salva posted a dick pic on my timeline](../2023/september.md#choir).
+- I mention dick pics on Twitter on 17th January 2024, right before choir class.
+
+[![Dick pics](../../content/tweets/january-2024/dick-pics.png)](https://x.com/1FRGVN/status/1747674699901911497)
+
+- About half-an-hour into the class, Salva's WhatsApp beeps.
+- He takes out his phone to look at his messages.
 - Suddenly, he's enraged. 
-- He makes a dreadful fool of himself by talking about terrible things that happen to people to all the children.
+- He starts telling a horror story to the children; about terrible things that have happened in schools.
 - The children get really animated and excited. 
-- I'm paraphrasing and misquoting, but the gist was there was someone in a class one time, who thought they were a spiritual mystic but were in fact psychotic and mentally ill. They brought a knife in to class and stabbed everyone. He may have even mentioned horrible details about cutting body parts off people. It was unbelievable.
-- I was utterly appalled at his behavior in class. So was Samuel. 
+- I'm paraphrasing and misquoting, but the gist was that there was someone in a class one time, who thought they were a spiritual mystic but were in fact psychotic and mentally ill.
+- Salva continues saying this person brought a knife in to class and stabbed everyone. 
+- He may have even mentioned horrible details about cutting body parts off people. 
+- He was, of course, referring to me!
+- It was unbelievable.
+- I was utterly appalled at his behavior. 
+- So was Samuel who sat behind me.
 - I mentioned to Samuel that Salva clearly didn't want his students to come back the following week.
-- Salva had said things that would make parents stop their children coming to his class, if they knew he was like that.
-- Someone unknown had sent him a link to my posts at that moment, for a joke, and, due to the guilt, he became uncontrollably enraged.
+- Salva had said things that would ensure parents did not allow their children to come to his class if they knew he was like that.
+- Certainly I would have felt that way about my children.
+- Someone unknown had sent him a link to my post on WhatsApp, for a joke.
+- Boys will be boys.
+- The guilt, vengeance, and anger he had towards me at that moment caused him to lose the balance of his mind completely.
 
 ## January 18th correspondence to Katia and the Generalitat
 
