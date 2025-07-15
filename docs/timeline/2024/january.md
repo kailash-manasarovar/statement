@@ -490,7 +490,7 @@
 - I often wonder how many others have been targets like me. Undoubtedly loads.
 - These people are running a finely-tuned terror mechanism.
 - I wonder how many of their targets were minors, and ended up in prostitution or porn, or whether they ended up having nervous breakdowns or killing themselves.
-- I can't help but think about Elaine, often.
+- I can't help but think about [Elaine](../2021/july.md#elaine-black), often.
 
 ## Dick pics from the choir master
 
