@@ -514,7 +514,7 @@
 - I mentioned to Samuel that Salva clearly didn't want his students to return to class.
 - Someone unknown had sent him a link to my post on WhatsApp, for a joke.
 - (Boys will be boys I guess.)
-- The guilt, vengeance, and anger he had towards me at that moment caused him to lose the balance of his mind completely.
+- The guilt, vengeance, and anger, on top of the hatred he already bore towards me, caused Salva to lose the balance of his mind completely.
 
 ## January 18th correspondence to Katia and the Generalitat
 
