@@ -454,9 +454,9 @@
 
 - On 16th January, I'm walking back home after practicing the piano at the conservatory.
 - I take an unusual route to enter my building from the back.
-- As I'm walking up the Calle Alcanali, I see at the top, parked on the opposite side of the Calle Xativa, a grey saloon Mercedes or similar, possibly two-door; a very expensive and fast car.
+- As I'm walking up the Calle Alcanali, I see at the top, parked on the opposite side of the Calle Xativa, a grey coupe Mercedes or similar, possibly two-door; a very expensive and fast car.
 
-![Grey saloon car](../../content/images/threatening-men.png)
+![Grey coupe car](../../content/images/threatening-men.png)
 
 - There are two men sitting in the front.
 - They glare at me angrily.
@@ -472,7 +472,7 @@
 - At that time, from April or May 2025, fast cars will growl outside my apartment and often I hear them beeping their horns loudly as they pass.
 - Carrer Furs is an extremely quite road.
 - One time, I ran to see what the car beeping looked like.
-- It was [the same grey saloon I had seen in January](may.md#cars-beeping-outside).
+- It was [the same grey coupe I had seen in January](may.md#cars-beeping-outside).
 
 ## Constant threat
 
