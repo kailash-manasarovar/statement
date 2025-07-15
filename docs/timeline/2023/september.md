@@ -741,7 +741,7 @@ function googleTranslateElementInit() {
 - They post cartoon pictures/gifs of her on my X feed. Three I remember are her naked and shaking titled "Nature Girl"; another of her face full of acne titled "Pizza Face"; and one really horrible one was her from behind having sex and how he was going to beat her if she didn't make arches. I had to look that up, but it is somewhat self-explanatory.
 - It's relentless.
 - When I see her so angry, I'm concerned the trumpet teacher has hurt her.
-- I will [write to her friend Katia](../2024/january.md#january-18th-correspondence-to-katia-and-the-generalitat) about seeing her like this in January 2024 after she *meaningfully* gives me her mobile number.
+- I will [write to her friend Katia](../2024/january.md#january-18th-correspondence-to-katia) about seeing her like this in January 2024 after she *meaningfully* gives me her mobile number.
 - Katia ignores me as per instructions.
 - Ana has timed it so that our paths cross precisely because anyone tracking me knew exactly where I was and would have told her to GO!
 - It's astonishing that teachers put so much effort and energy into terrorizing a student.

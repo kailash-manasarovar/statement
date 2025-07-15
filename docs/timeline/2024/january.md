@@ -516,16 +516,32 @@
 - (Boys will be boys I guess.)
 - The guilt, vengeance, and anger, on top of the hatred he already bore towards me, caused Salva to lose the balance of his mind completely.
 
-## January 18th correspondence to Katia and the Generalitat
+## Trying to get help again
 
-- I've convinced myself the women can't be involved, they must be being lied to by the men.
-- Yet, as well as the two Ana's, Katia the singer is also ridiculously angry with me in my chamber music class.
-- I'm worn down, and I feel it is all very unfair. 
-- Katia gives me her mobile number at some point.
-- I can't believe the women could all be involved and I try to reach out to them.
-- I [text Katia](../../content/whatsapps/text-to-katia.pdf). 
-- Katia does not reply or even mention the text when I see her next at class. 
-- Instead, she looks at me and says something like, "oh you are the best", in a weird way, and that's that.
+- My stress and anxiety levels are overwhelming.
+- Something sinister and threatening is happening to me every minute of the day.
+- I'm beginning to exists in a constant state of fear and stress.
+- The euphoria has disappeared. It seems to have been replaced with excessive fearfulness.
+- I wonder now if they changed the prescription.
+- I don't know why the Generalitat has not replied to me.
+- I decide to write to them again.
+- I also decide to write to Katia, my classmate at chamber music who is apparently Ana Requena's friend.
+
+### January 18th correspondence to Katia 
+
+- Katia *significantly* gave me her mobile number at the class before Christmas.
+- I can't believe the women would be involved in terrorizing me if they knew the truth.
+- I convince myself the men must be lying to them about me.
+- As well as the two Ana's, Katia is also ridiculously angry with me for no reason.
+- I'm worn down.
+- I feel it is all very unfair. 
+- I [text Katia](../../content/whatsapps/text-to-katia.pdf) on the number she gave me. 
+- Katia does not reply, or even mention the text when I see her next at class. 
+- It was seen and read, however.
+- The next time I see Katia she says, "Oh you are the best", in a weird way, and that's that.
+
+### January 18th correspondence to the Generalitat
+
 - I also [email the Generalitat again](../../content/documents/emails/jan-18-email-to-GV.png) that day with an update of what's going on.
 - The Generalitat reply to tell me they have transferred the matter to the Alicante office. 
 - I have to ask them to give me a contact there.
