@@ -530,16 +530,58 @@
 
 ### January 18th correspondence to Katia 
 
-- Katia *significantly* gave me her mobile number at the class before Christmas.
+- Katia *significantly* gave me her mobile number at class before Christmas.
 - I can't believe the women would be involved in terrorizing me if they knew the truth.
 - I convince myself the men must be lying to them about me.
 - As well as the two Ana's, Katia is also ridiculously angry with me for no reason.
 - I'm worn down.
 - I feel it is all very unfair. 
-- I [text Katia](../../content/whatsapps/text-to-katia.pdf) on the number she gave me. 
+- I [text Katia](../../content/whatsapps/text-to-katia.pdf) on the number she gave me.
+- Note I still believe the [trumpet teacher's name is Vidal](../../crimes/protagonists.md) and there is something going on with him and Ana. 
+- Note my reasonableness and kindness in my attempts to solve this horrific problem I have.
+
+!!! tip "WhatsApp to Katia Thu, Jan 18, 2024 at 10:55 AM"
+    Dear K, it seems a good time to reach out to you.
+
+    No-one speaks to me so I imagine the only info you all get is from people with bad intentions towards me/us.
+    
+    There's no need for anyone to be angry at me.
+    
+    I had no idea about Ana until July, and only from pictures of her they posted online!
+    
+    And at that time I thought it had to be a lie because I had been terrorized by them so badly I could not/cannot believe anything they say. They said a lot of disparaging things about Ana.
+
+    They continue to terrorise me online. They pretend they're Vidal and pretend they're in love with me. It's such bullshit but sometimes I quite enjoyed the game, I admit. I'm sorry about that.
+
+    I was attracted to Vidal initially. I had a horrible PTSD reaction to his attention (which was also a lie) and I did reach out to him to explain I had been sexually abused as a child and so found it difficult to communicate with people I liked. I did that in April. But probably you all know that.
+    
+    And no-one said anything to me, and they tried to destroy me. Nice people!
+    
+    It was very healing for me to do that, and his reaction to me was very pure and loving, which didn't help matters, but anyway ...
+    
+    So basically Anna has nothing to worry about with regards to me. Other Ana has no need to be angry with me. I can only assume I have been lied about egregiously once again because I've no idea why she's so angry.
+    
+    If you want, we can get together, us women, and I will tell you my story because you will be truly horrified at how I have been treated by them and you cannot know the full story because only monsters would be angry with me if they knew it.
+
+    Let me know, I'd be happy to do that. I may need a translator.
+
+    If you want, I can also forward you the letter I sent to Concha after they tried to crucify me in June (which probably Ana was aware of, but OK), and the letters I have sent to the Generalitat about continued abuse, hacking my phone, videoing me at my hotel, etc. It's been an absolutely hell for me.
+
+    So, yes, I did get tough, and I will continue to be tough because their behaviour is absolutely unbelievable, and criminal too.
+    
+    I'm not the problem. It was Domingo initially and now it is whoever has been managing the information.
+    
+    In the meantime, please let the women know that I have no bad feelings towards anyone and I wish Ana the very best. And I see she has an amazing friend in you.
+    
+    I hope we can move forward from all this macho chaos and destruction.
+    
+    With love and respect.
+    
+    Katharine
+
 - Katia does not reply, or even mention the text when I see her next at class. 
 - It was seen and read, however.
-- The next time I see Katia she says, "Oh you are the best", in a weird way, and that's that.
+- The next time I see Katia she says, "Oh you are the best", in a weird way, and nothing more.
 
 ### January 18th correspondence to the Generalitat
 
