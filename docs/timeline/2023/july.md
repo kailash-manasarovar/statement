@@ -269,7 +269,7 @@ function googleTranslateElementInit() {
 - I believe the author to be the trumpet teacher as his account posted it.
 - Now I see that this is exactly like *all* communication I have with manipulating cyber-stalkers; apart from some notably heart-felt conversations with one person I believed to be the trumpet teacher who told me he could not go against these people or they would kidnap his daughters.
 - The repeated pattern of content is to entice with something genuine and nice, then twist and distort it into fearful nastiness.
-- I believe this is NLP for frightening and destabilizing targets.
+- I believe this is a common online NLP tactic, used for frightening and destabilizing targets.
 - Taking a target from emotional pole-to-pole, as it were, and thus gaining control of them by applying fear and associating it with love and thus making porn and prostitution more reasonable, incrementally.
 - It's like titration in healing practices, except this is it's opposite, to make very emotionally unwell and vulnerable.
 
