@@ -271,7 +271,7 @@ function googleTranslateElementInit() {
 - The repeated pattern of content is to entice with something genuine and nice, then twist and distort it into fearful nastiness.
 - I believe this is a common online NLP tactic, used for frightening and destabilizing targets.
 - Taking a target from emotional pole-to-pole, as it were, and thus gaining control of them by applying fear and associating it with love and thus making porn and prostitution more reasonable, incrementally.
-- It's like titration in healing practices, except this is it's opposite, to make very emotionally unwell and vulnerable.
+- It's like titration and decoupling in trauma healing practices, except this is the opposite, to make very emotionally unwell and vulnerable.
 
 ### Seaweed
 
