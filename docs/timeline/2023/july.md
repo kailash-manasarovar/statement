@@ -266,7 +266,7 @@ function googleTranslateElementInit() {
 - The author starts talking about how much spit they will have shared over the years.
 - The author describes it in measures, litres and litres.
 - What had been a fairly nice story becomes grotesque and disturbing.
-- At the time, I find it weird.
+- At the time, I find it extremely weird.
 - Now I see that this is exactly like *all* communication I have with manipulating cyber-stalkers; apart from some notably heart-felt conversations with one person I believed to be the trumpet teacher who told me he could not go against these people or they would kidnap his daughters.
 - The repeated pattern of content is to entice with something genuine and nice, then twist and distort it into fearful nastiness.
 - I believe this is a common online NLP tactic, used for frightening and destabilizing targets.
