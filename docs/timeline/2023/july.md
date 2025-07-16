@@ -276,7 +276,7 @@ function googleTranslateElementInit() {
 - Now I see that this is exactly like *all* communication I have with manipulating cyber-stalkers; apart from some notably heart-felt conversations with one person I also believed to be the trumpet teacher who told me he could not go against these people or they would kidnap his daughters.
 - The repeated pattern of content is to entice with something genuine and nice, then twist and distort it into fearful nastiness.
 - I believe this is a common online NLP tactic, used for frightening and destabilizing targets.
-- They take a target from emotional pole-to-pole, as it were, and thus gain control of them by applying fear and associating it with love.
+- The sex gangs take a target from emotional pole-to-pole, as it were, and gain control of them by applying fear and associating it with love.
 - Eventually, this makes porn and prostitution more and more reasonable, incrementally; then impossible to escape.
 - It's like titration and decoupling in trauma healing practices, except this is the opposite, to make very emotionally unwell and vulnerable for sinister purposes.
 
