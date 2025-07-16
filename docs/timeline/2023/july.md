@@ -262,16 +262,20 @@ function googleTranslateElementInit() {
 - It is a hand-written romance of some sort.
 - I believe the author to be the trumpet teacher.
 - The author describes the first time he met the woman he married and how they spend the whole day in San Sebastian.
-- It's a nice story... until...
-- The author starts talking about how much spit they will have shared over the years.
-- The author describes it in measures, litres and litres.
+- How she tells him about her life, her mother, the hurts she has endured over the years.
+- How he keeps quiet and listens, waiting for the promised physical intimacy.
+- Apart from the arrogance of the author, it's a fairly nice story, very romantic... until...
+- The author starts talking about how much spit they will have shared over the last 25 years.
+- The author describes it in measures, and counts litres and litres.
 - What had been a fairly nice story becomes grotesque and disturbing.
 - At the time, I find it extremely weird.
-- Now I see that this is exactly like *all* communication I have with manipulating cyber-stalkers; apart from some notably heart-felt conversations with one person I believed to be the trumpet teacher who told me he could not go against these people or they would kidnap his daughters.
+- And I'm only reading it because I think TT wrote it.
+- Now I see that this is exactly like *all* communication I have with manipulating cyber-stalkers; apart from some notably heart-felt conversations with one person I also believed to be the trumpet teacher who told me he could not go against these people or they would kidnap his daughters.
 - The repeated pattern of content is to entice with something genuine and nice, then twist and distort it into fearful nastiness.
 - I believe this is a common online NLP tactic, used for frightening and destabilizing targets.
-- Taking a target from emotional pole-to-pole, as it were, and thus gaining control of them by applying fear and associating it with love and thus making porn and prostitution more reasonable, incrementally.
-- It's like titration and decoupling in trauma healing practices, except this is the opposite, to make very emotionally unwell and vulnerable.
+- They take a target from emotional pole-to-pole, as it were, and thus gain control of them by applying fear and associating it with love.
+- Eventually, this makes porn and prostitution more and more reasonable, incrementally; then impossible to escape.
+- It's like titration and decoupling in trauma healing practices, except this is the opposite, to make very emotionally unwell and vulnerable for sinister purposes.
 
 ### Seaweed
 
