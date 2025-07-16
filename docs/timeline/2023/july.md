@@ -262,8 +262,11 @@ function googleTranslateElementInit() {
 - It is a hand-written romance of some sort.
 - I believe the author to be the trumpet teacher.
 - The author describes the first time he met the woman he married and how they spend the whole day in San Sebastian.
-- How she tells him about her life, her mother, the hurts she has endured over the years.
-- How he keeps quiet and listens, waiting for the promised physical intimacy.
+
+![Romance in San Sebastian](../../content/images/romance-in-san-sebastian.png)
+
+- She tells him about her life, her mother, the hurts she has endured over the years.
+- He keeps quiet and listens, waiting patiently for the promised physical intimacy.
 - Apart from the arrogance of the author, it's a fairly nice story, very romantic... until...
 - The author starts talking about how much spit they will have shared over the last 25 years.
 - The author describes it in measures, and counts litres and litres.
