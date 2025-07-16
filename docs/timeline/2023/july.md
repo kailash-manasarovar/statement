@@ -255,6 +255,20 @@ function googleTranslateElementInit() {
 
 ## Other smaller examples from Google searches
 
+### Romance in San Sebastian
+
+- On the `@jctot19` results, there is an entry that is a short story.
+- I read it.
+- It is a romance of some sort.
+- The author describes the day he met the woman he married and how they spend the whole day in San Sebastian.
+- It's a nice story... until...
+- The author starts talking about how much spit they will have shared over the years.
+- The author describes it in measures, litres and litres.
+- What had been a fairly nice story becomes grotesque and disturbing.
+- This is exactly like *all* communication I have with manipulating cyber-stalkers; apart from some notably heart-felt conversations with one person I believed to be the trumpet teacher who told me he could not go against these people or they would kidnap his daughters.
+- The repeated pattern of content is to entice with something genuine and nice, then twist and distort it into fearful nastiness.
+- I believe this is to frighten and destabilize targets; going from emotional pole-to-pole, as it were, and thus gaining control of a target's mind incrementally.
+
 ### Seaweed
 
 - I see photos of hanging strips of seaweed on the `@sinremite` account.
