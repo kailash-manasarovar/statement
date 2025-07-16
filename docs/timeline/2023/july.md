@@ -260,13 +260,13 @@ function googleTranslateElementInit() {
 - On the `@jctot19` results, there is a short-story.
 - I read it.
 - It is a hand-written romance of some sort.
+- I believe the author to be the trumpet teacher.
 - The author describes the first time he met the woman he married and how they spend the whole day in San Sebastian.
 - It's a nice story... until...
 - The author starts talking about how much spit they will have shared over the years.
 - The author describes it in measures, litres and litres.
 - What had been a fairly nice story becomes grotesque and disturbing.
 - At the time, I find it weird.
-- I believe the author to be the trumpet teacher as his account posted it.
 - Now I see that this is exactly like *all* communication I have with manipulating cyber-stalkers; apart from some notably heart-felt conversations with one person I believed to be the trumpet teacher who told me he could not go against these people or they would kidnap his daughters.
 - The repeated pattern of content is to entice with something genuine and nice, then twist and distort it into fearful nastiness.
 - I believe this is a common online NLP tactic, used for frightening and destabilizing targets.
