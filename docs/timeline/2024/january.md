@@ -601,7 +601,9 @@
 - Is this what happens to parents who raise the alarm about any serious wrong-doing by teachers and staff?
 - Does the Generalitat's total dismissal of my complaint give the sex gangs carte blanche going forward? 
 - Does the Generalitat realize that they very literally put my life in total jeopardy by ignoring my pleas for help?
-- How many others?
+- Was that, perhaps, the most sure and certain way of getting rid of me?
+- How many others? 
+- ¿Cuántos más?
 - I wonder about this every day.
 
 #### Forwarded to Christine BJ
