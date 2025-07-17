@@ -597,7 +597,7 @@
 - The Generalitat instead tell me they have transferred the matter to the Alicante office. 
 - I have to ask them to give me a contact there I can write to.
 - It feels like they're fobbing me off and getting rid of an utter inconvenience.
-- It's three months since I wrote my [original letter of complaint](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf), asking for help.
+- It's three months since I wrote my [original letter of complaint](../2023/october.md#first-letter-to-the-generalitat) asking for help.
 - Is this what happens to parents who raise the alarm about any serious wrong-doing by teachers and staff?
 - Does the Generalitat's total dismissal of my complaint give the sex gangs carte blanche going forward? 
 - Does the Generalitat realize that they very literally put my life in total jeopardy by ignoring my pleas for help?
