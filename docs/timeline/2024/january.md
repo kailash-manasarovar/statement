@@ -591,11 +591,15 @@
 ### January 18th correspondence to the Generalitat
 
 - I [email the Generalitat again](../../content/documents/emails/jan-18-email-to-GV.png) with an update of what's going on.
-- The Generalitat reply to tell me they have transferred the matter to the Alicante office. 
-- I have to ask them to give me a contact there.
-- They're fobbing me off. 
+- I did not write this out in English first, and when I read it I find that either the Spanish is very poor, or my stressed state of mind is apparent.
+- Notice I confirm my feelings about the women and my certainty they cannot be involved.
+- I receive no reply.
+- The Generalitat instead tell me they have transferred the matter to the Alicante office. 
+- I have to ask them to give me a contact there I can write to.
+- They're fobbing me off; and getting rid of this inconvenience to their days.
 - It's three months since I wrote my [original letter of complaint](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf), asking for help.
-- I received no reply.
+- Is this what happens to parents who raise the alarm about any serious wrong-doing by teachers and staff?
+- Does their total dismissal of my complaint give the sex gangs carte blanche going forward? 
 
 #### Forwarded to Christine BJ
 
