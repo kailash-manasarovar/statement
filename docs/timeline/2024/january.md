@@ -600,6 +600,9 @@
 - It's three months since I wrote my [original letter of complaint](../../content/documents/letters/3.%20Letter%20to%20Generalitat%20of%2022%20October%2023%20-%20ES.pdf), asking for help.
 - Is this what happens to parents who raise the alarm about any serious wrong-doing by teachers and staff?
 - Does their total dismissal of my complaint give the sex gangs carte blanche going forward? 
+- Does the Generalitat realize that they very literally put my life in jeopardy by ignoring my pleas for help?
+- How many others?
+- I wonder about this every day.
 
 #### Forwarded to Christine BJ
 
