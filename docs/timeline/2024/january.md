@@ -591,7 +591,7 @@
 ### January 18th correspondence to the Generalitat
 
 - I [email the Generalitat again](../../content/documents/emails/jan-18-email-to-GV.png) with an update of what's going on.
-- I did not write this out in English first, and when I read it I find that either the Spanish is very poor, or my stressed state of mind is apparent.
+- I did not write the email in English first, and when I read it I find that either the Spanish is very poor, or my stressed state of mind is apparent, or both.
 - Notice I confirm my feelings about the women and my certainty they cannot be involved.
 - I receive no reply.
 - The Generalitat instead tell me they have transferred the matter to the Alicante office. 
