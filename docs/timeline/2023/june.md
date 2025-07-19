@@ -620,7 +620,8 @@ function googleTranslateElementInit() {
 
 ### Ana Requena and Julia Lohmann
 
-- I see pictures of strips of hanging seaweed such as that which  you can see behind Julia in the photo below.
+- I see pictures of strips of hanging seaweed such as that which you can see behind Julia in the photo below.
+- This goes on for a week or two, inexplicably.
 - I have no idea what this means until I see numerous pictures of [Ana Requena](https://lamarina.eldiario.es/2015/03/02/denia-classics-a-piacere-ha-sido-un-orgullo-poder-tocar-por-fin-en-denia/) modeling for Julia Lohmann.
 - The Julia Lohmann art installation is revealed to me in [July on Google searches as something Ana Requena the violin teacher took part in](july.md#seaweed) with a kind of *mean girl* energy that's supposed to upset me and make me jealous.
 
@@ -630,7 +631,7 @@ function googleTranslateElementInit() {
     - Below, Ana the violin teacher is in a modeling role for Finnish artist Julia Lohmann. 
     - There is a strong Finnish connection to the sex gangs of Dénia, as [Patricia Penny mentioned previously](../2022/october.md#patricia) and I wonder if there is a connection with Julia Lohmann. 
     - Was/is she another victim maybe; scouted and introduced to the honey-trappers by Ana Requena?
-    - Either way, Julia Lohmann pics with seaweed were coming up at the same time as pictures of Ana, so I related the two things in the same way I thought [plate lady](july.md#plate-lady-early-in-the-month) was a current girlfriend, probably called Carmen.
+    - Given the gang is so proud of their accomplishments, and never ceases telling me about someone else they've destroyed - often but not always a woman with money - I believe it is highly likely Lohmann is a victim and, if so, Ana Requena is implicated again.
     - A whole bunch of Ana pics were posted for me to see via the trumpet teacher's *apparent* account around June/July 2023 seemingly in order to convince me that Ana and the trumpet teacher were a romantic item.
     - Over the hacking duration, and during the conversations I had with hackers, they mentioned Ana a lot, often in an extremely derogatory manner such as comments about her bad skin, about her poor quality sexual behavior.
     - They even posted pictures of what looked like her, sometimes AI cartoons in dreadful poses or insulting states. I was truly appalled.
