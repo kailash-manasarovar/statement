@@ -63,6 +63,8 @@
 - The man on her right smiles and shows me his face. He looks like a possum.
 - I have this on camera.
 - I never go to the beach again.
+- At the laundry that evening, the lovely man there asks, without requiring an answer "¿Todo claro?". 
+- I mention this in [another section about the laundry](../2023/november.md#the-laundry).
 - Back home that night a fake account says possum man is looking for developers. The inference is I'm being offered a job in tech.
 
 !!! warning
@@ -93,13 +95,26 @@
 
 - There's no reply.
 
-## Threats at the laundry
+## Threats and a woman at the laundry
 
 - Whenever I go to the laundry, there is some stalker activity or another.
 - This has been true since they started to drug me back in December 2022.
+- I mention this in more detail in the [November 2023 section](../2023/november.md#the-laundry).
 - Of course, they know where I'm going and what I'm doing so they can spring into action whenever they like.
-- On two occasions in October, threatening young men are in the laundry while I'm there. The first group are speaking about 4 or 5 different languages. 
-- The second group stares at me menacingly. I stare right on back.
+- On two occasions in October, threatening young men are in the laundry while I'm there. 
+- The first time, a small group of young men are speaking about 4 or 5 different languages. 
+- The second time, a group stares at me menacingly. I stare right on back.
+
+### The woman
+
+- The second time, I see a woman chatting with the lovely man there who manages the laundry.
+- I know her, but I cannot think how.
+- She looks at me, our eyes meet. I smile.
+- I have no idea how I know her but I do.
+- I now wonder if she is a member of the Hospitalite de Lourdes, and does service at the baths, like myself.
+- Could that be where I know her from?
+- Did I work with her one session in one of the baths sometime between 2014-2018?
+- TBC.
 
 ## Rape porn gangs
 
