@@ -57,6 +57,14 @@
 ![doctor pic](../../content/images/doctor-2.png)
 
 - I also suspect this is a warning because the week I am in Dénia at my flat, from 27th October until I leave for London on the 3rd November 2024, I am certain I am being poisoned, and quite seriously too.
+- The hacker says sorry again in a similar way, in July 2025, as I write to Moorfields Eye Hospital to report deteriorating peripheral vision.
+
+![Hacker says sorry](../../content/images/hacker-says-sorry.jpg)
+
+- It's difficult to know what to think about this.
+- I would obviously accept a genuine request for forgiveness.
+- I don't think it could possibly be the Cano's and associates who seemed to delight in the idea of my deteriorating health.
+- I still have samples.
 
 ## Hundreds of women like me
 
