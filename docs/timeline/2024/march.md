@@ -237,6 +237,10 @@
 - It's a huge set up, all meant to terrify me, probably give me a nervous breakdown, and maybe kill myself too.
 - Each piece the kids play at the concert is related to things I have said on Twitter, or in letters to the Generalitat asking for help that were ignored.
 - I'm surprised and somewhat alarmed to see the little Romanian boy who had been so energetic and full of life whenever I saw him previously looking so unwell and anxious. It makes me wonder.
+
+!!! danger
+    - I'm really worried about this boy now, he was a beautiful boy.
+    
 - There are pieces with related names, including something like "Four Aunts" by a modern composer called Mercedes Zavala (this is a horribly aggressive piece that Antonio Signes Argudo plays very well), [poison and aunts](../early-years/2014.md#poisoned-aunts), and other related things.
 
 ![Poisoned aunt](../../content/tweets/poisoned-aunt.png)
