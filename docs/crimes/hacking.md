@@ -34,3 +34,16 @@
 https://x.com/1FRGVN/status/1857644038989463787
 
 ![Me in my pants](../content/images/me-in-my-pants.JPG)
+
+## Translating messages
+
+- This is on my mobile phone in July 2025, as an example of what I have been seeing on all mobiles and devices since June 2023.
+- This is on an X account I set up that got banned immediately, even though I had only posted three tweets.
+
+![The sort of thing](../content/images/hacking/the-sort-of-thing.png)
+
+- I would translate these foreign language messages and there would be something *significant* in them.
+- Sometimes, the translation I got was completely different to the true translation, which proved to me real-time rewrites going on.
+- When I didn't know what was happening, these posts would be kind of fascinating. It was like a game. 
+- What were they going to tell me now?
+- When they stopped drugging me, this sort of thing dropped off completely, and whenever they do try it again, it has little fascination.
