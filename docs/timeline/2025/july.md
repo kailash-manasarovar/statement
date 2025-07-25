@@ -52,11 +52,9 @@
 
 ## Threats
 
-- I also see threatening pics on my mobile device which remind me very much of the violent threats I received on X in March 2024.
+- I also see threatening pics on my mobile device which remind me very much of [the violent threats I received on X in March 2024](../2024/march.md#twitter-screenshots).
 
 ![Violent images](../../content/images/violent-images.png)
-
-- TODO: link to March images.
 
 ## The Benijembla woman
 
