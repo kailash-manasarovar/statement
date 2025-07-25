@@ -43,7 +43,7 @@
 
 ![Threatening ugly](../../content/images/a-tadge-menacing.png)
 
-- I have seen this face before in menacing communications.
+- I have seen this profile photo before during menacing communications.
 - I check the profile message.
 
 ![Ugly](../../content/images/a-tadge-menacing-2.png)
