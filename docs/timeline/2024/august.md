@@ -54,7 +54,7 @@
 - I mention *Carmen* in some way to the hacker I'm communicating with at that moment - who I believe to be the trumpet teacher as usual.
 - There is a curt retort.
 - I believe now it was Carmen Cano I was conversing with at the time.
-- Seeing her prostate and humble in my mind's eye has been somewhat helpful, especially when I bump into [her and another woman coming out of my apartment building and smiling at me](october.md#serious-poisoning-with-intent-to-harm-or-kill) while I was being seriously poisoned.
+- Seeing her prostate and humble in my mind's eye has been somewhat helpful, especially when I bump into [her and another woman coming out of my apartment building and smiling at me](october.md#serious-poisoning-with-intent-to-harm-or-kill) while I was being seriously poisoned at the end of October 2024.
 
 ## I realize I have been poisoned and drugged
 
