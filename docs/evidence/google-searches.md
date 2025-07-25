@@ -1,3 +1,13 @@
+# Google search
+
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Significant communication from hackers
 
 - As mentioned in [July 2023 timeline doc](../timeline/2023/july.md#google-search), manipulated results on Google search became one of the key ways the hackers communicated with me.

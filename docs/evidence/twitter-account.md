@@ -1,3 +1,13 @@
+# Twitter / X
+
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Fake accounts
 
 - Here is a list of a small proportion the accounts that were, and still are in some cases, cyber stalking me.

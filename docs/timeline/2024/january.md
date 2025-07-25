@@ -1,5 +1,13 @@
 # January 2024
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Back home in Dénia
 
 - I arrive home still high and euphoric after Christmas and New Year. 

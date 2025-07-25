@@ -1,3 +1,13 @@
+# Health
+
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Homeopath
 
 - The homeopath I saw in Dénia from early 2023 to March 2024 was Ana Vilalba.

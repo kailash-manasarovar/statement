@@ -1,3 +1,13 @@
+# Maybes
+
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Communication with criminals
 
 - Sometimes, the online activity seems like they think it is all a game and great fun to terrorize women, drug them, and put them in porn without their consent.

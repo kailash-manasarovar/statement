@@ -1,5 +1,13 @@
 # Theories
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Vidal Sastre Sanchez Hornero control women and girls
 
 - This statement came from a [dream I had in November 2023](../timeline/2023/november.md#dreaming-of-jesus-christ).
