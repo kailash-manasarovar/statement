@@ -48,6 +48,28 @@ This is a non-exhaustive list of all the dreams or visions I remembered from aro
 - I thought this RA was yet another autoimmune but when I traveled away from all my belongings for a short time, it cleared up. On returning home, it started up again.
 - I'm now throwing everything away or repeat washing it (10 times I'm told is how many times you have to wash such items to get rid of poisons).
 
+### Puffs and squeaks
+
+- From July 2023, I regularly heard two significant noises in my home.
+- Usually I would hear these noises around lunchtimes, from about 1.30pm, when I was resting and perhaps online on the sofa.
+- Sometimes, I heard them in the evenings too.
+- I only heard these noises when I was sitting resting on the sofa, often with my laptop on my belly and browsing X.
+
+#### Regular puffs
+
+- Short regular puffing noises, like a short breath of air.
+- I heard these every 15 minutes or so during lunchtimes.
+- They were just like a pest mechanism which blows some gas into the air that kills mosquitoes.
+- I can describe it like that because I have just been hearing exactly the same thing in the hotel I'm staying at.
+- But, unlike continual puffs, I remember hearing two or three maximum, and no more.
+
+#### Squeaks
+
+- At the same times, and in the same place (the sofa), I would hear the water pipes to the sink squeaking as if they were being manipulated.
+- These pipes were lose because the tap was extendable.
+- The sounds was much like the sound the pipes made when I extended them, but it always sounded like the noise was coming from behind the wall.
+- When I heard these in 2022 and 2023, I thought it must be cockroaches in the pipes and this is why I was so adamant with my landlady about why I was feeling sick all the time and why I needed a new fridge. The original fridge was easily 30 years old.
+
 ### Mandrake
 
 - This is an interesting herb that has been used for poisoning over millennia and grows native in the region.
