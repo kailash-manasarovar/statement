@@ -57,3 +57,20 @@
 ![Violent images](../../content/images/violent-images.png)
 
 - TODO: link to March images.
+
+## The Benijembla woman
+
+- In November 2022, while walking with the English ladies, a choreographed scene was set up for my benefit.
+- I write about it [here](../2022/november.md#walking-in-benijembla-with-the-english-ladies).
+- I noticed a woman with the trumpet teacher on that afternoon.
+- I see pictures of her on X, again and again, in profile photos and elsewhere.
+- Even in July 2025, hackers post her pic.
+- Here's a couple.
+
+![Benijembla lady 1](../../content/images/fake-accounts/woman%20in%20benijembla.png)
+![Benijembla lady 1](../../content/images/fake-accounts/missus.png)
+
+- I'm led to believe it is TT's wife - the dangerous TT - but it's never clear what they want me to think.
+- The implication is usually that she's been doing porn.
+- I may even have an X account with a profile picture of her as a young girl of about 13 maybe. 
+- I have to find it.
