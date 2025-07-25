@@ -1,3 +1,13 @@
+# Modern stalking
+
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Then and now
 
 Modern stalking for criminal purposes uses typical traditional bullying and gang-stalking tactics together with cyberstalking, especially of a target's social media accounts. Depending on the circumstances, and how valuable the target is, to make it extremely unlikely a target has the power to escape, the criminal gangs will use drugging and poisoning tactics too.

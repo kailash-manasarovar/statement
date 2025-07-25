@@ -1,3 +1,13 @@
+# Poisoning
+
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Sedating
 
 - I believe it is highly likely I was sedated from time-to-time, possibly every Monday night there was a chamber music class.
