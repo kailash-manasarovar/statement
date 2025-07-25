@@ -1,7 +1,8 @@
 ## Sexual arousal
 
 - I head off to France.
-- As soon as I'm out of Dénia, the intensity of the sexual arousal drops off and then stops.
+- As soon as I'm out of Dénia, the intensity of the sexual arousal drops off and then stops when I'm in Lourdes.
+- However, intermittently, I find myself aroused in Cauterets, usually after having my coffee in the morning.
 
 ## The landlady changes the bank account that receives the rent again
 
