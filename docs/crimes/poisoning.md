@@ -37,6 +37,7 @@ This is a non-exhaustive list of all the dreams or visions I remembered from aro
 - He was in the kitchen with me, possibly slow dancing.
 - Marie Carmen my neighbor was in my flat standing in front of me, poking me in the chest.
 - Hazel Smith was in my flat with a man I didn’t know.
+- She may have been wearing a top hat and circus outfit, this is vague.
 - Men I didn’t know were in my flat, sometimes in the bathroom, two or three of them at the same time.
 
 ## Substances added in my home
