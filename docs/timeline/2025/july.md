@@ -16,3 +16,39 @@
 - The bar staff address the woman by name.
 - We thought she might be the boss. 
 - Just like the guy from March, she had the air of someone who only speaks to people who are very afraid of her.
+
+## Lourdes
+
+- I visit Lourdes.
+- As I check into my hotel, the Arcades, two people walk past me after speaking with reception.
+- One of those people is the woman to the left of this pic.
+- She speaks perfect French to the receptionist.
+- She is walking on crutches.
+
+![Taya](../../content/images/domingo-target-mother-advertisement.jpg)
+
+- Later, on X, she introduces herself as Taya.
+- At the hotel, she is with a tech I suppose; a man of about 20 with black hair and very pale skin. 
+- He is dressed in black.
+- The following day, they come to the restaurant for dinner, just after I have arrived to eat.
+- She no longer has crutches.
+- As she walks past the waitress, she says something like "oh, I don't need my crutches anymore, it must be a miracle".
+- I see the waitress sort of whirl backwards a bit as they brush past her.
+- The waitress goes off sick and doesn't return. 
+- It is now 7 days she is off sick. She had a very bad cough. This might be irrelevant.
+- There is a lot of activity on X, especially after I post a response to all this.
+
+![Taya toll](../../content/images/taya-toll.png)
+
+- Some threatening follows also.
+
+![Threatening ugly](../../content/images/a-tadge-menacing.png)
+
+- I have seen this face before in menacing communications.
+- I check the profile message.
+
+![Ugly](../../content/images/a-tadge-menacing-2.png)
+
+- The message, "Ugly", I presume to be reference to being followed the previous summer in Lourdes and Cauterets, something [I already wrote about](https://fearandloathinginlasmarinas.com/timeline/2024/august/#followed-by-the-gypsy-in-france), and maybe posted about, we will see.
+
+
