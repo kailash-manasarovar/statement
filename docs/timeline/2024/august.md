@@ -41,6 +41,20 @@
 - I sense whoever I'm talking to wants out of this dreadful life.
 - I ask "How many more like me?". The answer is two more.
 
+## Carmen Cano
+
+- The conversation continues even when I'm out hiking.
+- The day I visit the Viscos mountain, we chat again in the same way, except I am using the mobile instead of desktop.
+- I find a curious parallel between [a book written by Paulo Coelho](https://fondationpaulocoelho.com/books/paulo-coelho-the-devil-and-miss-prym/) based in the village of Viscos, and the strange things going on between myself and the Dénia criminals.
+- I realize at the time of writing this section (July 2025) and looking back at that time that I was totally high during this period in the mountains in 2024 as well as 2023.
+- I had no idea.
+- While I'm hiking up towards the Viscos peak, I see very clearly Carmen Cano on her knees begging for forgiveness or rather, begging someone, a man I believe, to take a different decision than the one they are taking which is causing her enormous upset.
+- It's such a vivid picture in my mind, and I see it repeatedly while I'm at the mountain.
+- I mention *Carmen* in some way to the hacker I'm communicating with at that moment - who I believe to be the trumpet teacher as usual.
+- There is a curt retort.
+- I believe now it was Carmen Cano I was conversing with at the time.
+- Seeing her prostate and humble in my mind's eye has been somewhat helpful, especially when I bump into [her and another woman coming out of my apartment building and smiling at me](october.md#serious-poisoning-with-intent-to-harm-or-kill) while I was being seriously poisoned.
+
 ## I realize I have been poisoned and drugged
 
 - It took a while but I finally realize why I got [rhabdo at class](../2023/january.md#serious-poisoning-at-chamber-music-class).
