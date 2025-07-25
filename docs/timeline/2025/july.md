@@ -6,7 +6,7 @@
 
 ## The woman at the Red Lion
 
-- Dad and I go to the Red Lion for a Sunday dinner.
+- Dad and I go to the Red Lion in High Barnet for a Sunday dinner.
 - We sit down.
 - A woman comes and sits next to us.
 - She is over-talkative but not-friendly.
