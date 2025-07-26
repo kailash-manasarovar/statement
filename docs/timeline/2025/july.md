@@ -35,6 +35,8 @@
 - I see the waitress sort of whirl backwards a bit as they brush past her.
 - The waitress goes off sick and doesn't return. 
 - It is now 7 days she is off sick. She had a very bad cough. This might be irrelevant.
+- I believe it is *highly* likely these two came into my room to add substances to my toiletries or whatever it is they do.
+- They must be *going equipped* at all times.
 - There is a lot of activity on X, especially after I post a response to all this.
 
 ![Taya toll](../../content/images/taya-toll.png)
