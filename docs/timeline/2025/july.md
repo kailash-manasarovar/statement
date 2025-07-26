@@ -38,7 +38,7 @@
 - I believe it is *highly* likely these two came into my room to add substances to my toiletries or whatever it is they do.
 - They must be *going equipped* at all times.
 - My eye health has deteriorated massively this week in Lourdes.
-- Having been to police and doctors all over Europe about being poisoned over the last years, my sudden-onset pre-glaucoma condition and other things, and literally no-one wants to help me, I have no other option but to write it down.
+- Having been to police and doctors all over Europe about being stalked and poisoned over the last years, my sudden-onset pre-glaucoma condition amongst other things, and literally no-one wants to help me, I have no other option but to write it down.
 - Are they trying to blind me so that I can't continue to write?
 - There is a lot of activity on X, especially after I post a response to all this.
 
