@@ -55,6 +55,13 @@
 
 - The message, "Ugly", I presume to be reference to being followed the previous summer in Lourdes and Cauterets, something [I already wrote about](https://fearandloathinginlasmarinas.com/timeline/2024/august/#followed-by-the-gypsy-in-france), and maybe posted about, we will see.
 
+### Constant confirmation I'm being watched
+
+- Over these 10 days in Lourdes I see posts and account messages confirming I'm being watched, and very closely too.
+- I see posts referring to my belly size which makes me think they've installed a spy-cam in my room.
+- I see posts related to how I look, what I'm wearing, things in the town, decorations at the hotel, the amount of mosquitoes in the hotel.
+- It's endless.
+
 ## Threats
 
 - I also see threatening pics on my mobile device which remind me very much of [the violent threats I received on X in March 2024](../2024/march.md#twitter-screenshots).
