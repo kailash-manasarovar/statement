@@ -77,6 +77,14 @@ function googleTranslateElementInit() {
 - It feels purposeful but I don't complain. 
 - I feel like complaining will make them feel justified about something.
 
+#### Miguel Angel her husband
+
+- I ask how Miguel Angel is doing.
+- She says oh he's very bad, he's all yellow and losing his hair, she tells me.
+- She says he can hardly speak now.
+- I expected her to tell me he had passed away or recovered.
+- I did not think people lingered for years with lung cancer, deteriorating like this.
+
 ### Harmony
 
 - The teacher is Adrià Gil Boronat, an erratic and extremely nervous man in his fifties.
