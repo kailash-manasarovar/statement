@@ -76,10 +76,10 @@ function googleTranslateElementInit() {
 
 ## Easter Saturday
 
-- I meet [Sally in Lourdes](../early-years/2014.md#march-to-july). 
+- I meet [Sandra Rita Diaz in Lourdes](../early-years/2014.md#march-to-july). 
 - I tell her I'm in love.
 - I talk incessantly about the thoughts racing through and looping around my mind continuously. 
-- Sally can confirm how crazy I was about all this, and for how long too. It went on for well over 18 months more; I assume while I was being drugged.
+- Sandra Rita Diaz can confirm how crazy I was about all this, and for how long too. It went on for well over 18 months more; I assume while I was being drugged.
 - While sitting across the river from the grotto, I text the trumpet teacher the Philip Glass music I had arranged the night before.
 - About half an hour later, I walk over to the grotto to sit with the pilgrims in front of Mary.
 - My phone goes off. It's WhatsApp. The trumpet teacher has replied.
@@ -88,17 +88,17 @@ function googleTranslateElementInit() {
 ![Forgie and his love at Lourdes](../../content/images/forg/forgie-and-his-love-at-lourdes.png)
 
 - I have no idea that hackers and pornographers are tracking my movements and carefully building a trap.
-- With Sally later, I talk about having babies and getting married. I'm obsessed and euphoric. I keep thinking about how old Sarah was when she had her first child. It was absurd and unhinged but, even though my suspicions remained, I couldn't ground myself at all.
+- With Sandra Rita Diaz later, I talk about having babies and getting married. I'm obsessed and euphoric. I keep thinking about how old Sarah was when she had her first child. It was absurd and unhinged but, even though my suspicions remained, I couldn't ground myself at all.
 
 !!! danger "My suspicions"
-    - As well as being out of my mind with "love", I also told Sally that there was another explanation for what was going on.
+    - As well as being out of my mind with "love", I also told Sandra Rita Diaz that there was another explanation for what was going on.
     - I detailed my suspicions with regards to Domingo and the plot to humiliate me, and everything that had happened previously.
     - However, the feelings were so intense, I could not believe, at that time, that Domingo could be behind this too.
-    - Sally, unknown to me at the time, was taking notes and reporting back. It is not yet clear to whom.
+    - Sandra Rita Diaz, unknown to me at the time, was taking notes and reporting back. It is not yet clear to whom.
 
 ## The Novena prayer
 
-- Sally told me about Novena prayers so I bought a Novena candle and started to pray.
+- Sandra Rita Diaz told me about Novena prayers so I bought a Novena candle and started to pray.
 - *I asked Mary to undo all the knots in the way of communicating honestly with this man.*
 - At that time, I was writing all my private thoughts down on notes in my computer, including the things I was going to ask for in prayer, and all the things I wanted to happen in my life including my feelings for the trumpet teacher.
 
@@ -118,7 +118,7 @@ function googleTranslateElementInit() {
 - It's curious the main picture is from [a day at the sea](#overwhelming-romantic-feelings).
 - In January 2024, I will see another side of this picture where the person deep down is taking a picture of the woman swimming above him.
 - I guess that's how they entrap the men, or the lesbians.
-- The next day I told Sally what had happened. We were amazed. It was a miracle!
+- The next day I told Sandra Rita Diaz what had happened. We were amazed. It was a miracle!
 - I followed the Twitter account. 
 - The account blocked me immediately.
 - I post a reaction on X.
@@ -143,7 +143,7 @@ function googleTranslateElementInit() {
 - I believe this because of the time he [handed me his phone](march.md#the-trumpet-teacher-hands-me-his-phone) and I saw he was making travel plans for a large group of people going to France.
 - I also believe this because I'm out of my mind on some psychoactive substance I'm unaware is probably in my shampoo; and most likely I'm being fed constant online reinforcement of this idea.
 - I have a vision of the trumpet teacher with a large group of people; he himself rising up to be seen above the figures who surround him.
-- I'm reminded of this vision when I see Sally in Lourdes again, sometime in 2024, and she gives me a bunch of Psalms of David to read for protection against the evil people in Dénia who plan to do me harm.
+- I'm reminded of this vision when I see Sandra Rita Diaz in Lourdes again, sometime in 2024, and she gives me a bunch of Psalms of David to read for protection against the evil people in Dénia who plan to do me harm.
 
 !!! quote "Psalm 27"
 
@@ -195,7 +195,7 @@ function googleTranslateElementInit() {
 - I was extremely high that day, my whole body vibrating in class as usual, something I thought was to do with chemistry between us, and my kidneys were aching as usual after class, and I had to lie down.
 - The picture was like opium to my mind and heart. 
 - I was 100% caught in the trap at that moment.
-- I texted my friend Sally from Lourdes about all this.
+- I texted my friend Sandra Rita Diaz from Lourdes about all this.
 
 !!! tip "The Studio Ghibli tweet"
     - As the cyber-terrorism continued into late 2023 and on into 2024, numerous fake accounts followed me pretending to be the trumpet teacher.

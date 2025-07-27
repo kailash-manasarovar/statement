@@ -522,12 +522,12 @@ function googleTranslateElementInit() {
 ## Lourdes
 
 - I arrive in Lourdes.
-- When I meet my friend Sally, I'm sorry to tell her that my [negative suspicions](april.md#easter-saturday) about what had been going on were correct, and that I had been bullied and targeted by Domingo and his associates, and that the trumpet teacher was involved also.
+- When I meet my friend Sandra Rita Diaz, I'm sorry to tell her that my [negative suspicions](april.md#easter-saturday) about what had been going on were correct, and that I had been bullied and targeted by Domingo and his associates, and that the trumpet teacher was involved also.
 - I was still in love, however.
 - And still very much out of my mind.
-- Sally looked alarmed from time to time as I never stopped talking about my overwhelming feelings.
+- Sandra Rita Diaz looked alarmed from time to time as I never stopped talking about my overwhelming feelings.
 - I must have still been regularly ingesting whatever substances the criminal gangs were using to control me.
-- Interestingly, Sally often asked to use the toilet whenever she visited my room.
-- I believe it was around this time that Sally started to talk about poisoning in other contexts, repeatedly. 
+- Interestingly, Sandra Rita Diaz often asked to use the toilet whenever she visited my room.
+- I believe it was around this time that Sandra Rita Diaz started to talk about poisoning in other contexts, repeatedly. 
 - Poisoning would be a common theme in our discussions for over a year.
 - Was she trying to warn me?

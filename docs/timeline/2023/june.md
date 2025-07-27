@@ -368,7 +368,7 @@ function googleTranslateElementInit() {
 ![Pros and cons](../../content/images/pros-and-cons.jpeg)
 
 - The weird "communication" continues between my new fake account and the `@jctot19` account. 
-- I have a long WhatsApp chat with Sally, my French friend who I believe now is a spy, where I complain that the man is lazy. 
+- I have a long WhatsApp chat with Sandra Rita Diaz, my French friend who I believe now is a spy, where I complain that the man is lazy. 
 - I hear about him being lazy again and again over the next year or so online.
 
 !!! info

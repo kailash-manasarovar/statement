@@ -15,7 +15,7 @@ function googleTranslateElementInit() {
 
 ![Safe passage](../../content/tweets/august-comms/offering-domingo-healing.png)
 
-- I also go to the church at Cauterets to pray with Sally.
+- I also go to the church at Cauterets to pray with Sandra Rita Diaz.
 
 ![L'eglise at Cauterets](../../content/images/cauterets-eglise.jpg)
 

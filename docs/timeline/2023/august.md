@@ -653,16 +653,16 @@ function googleTranslateElementInit() {
 - This was an out-of-the-blue meaningless reply with overtones of sexual perversion, and *nervous sweaty elephant* I felt was a reference to me.
 - When I went to class about an hour after this interaction, feeling *unusually* stressed and anxious as I always did at choir, the French-horn player who always sat beside me stunk of peanuts (she was eating a peanut bun), and the choir master (an extremely unpleasant man who will send me a dick pic on X in September) spoke endlessly about elephant trunks, *trompas* the word also happens to be very similar to trumpet, and can also mean "big nose".
 
-## In the baths at Cauterets with Sally
+## In the baths at Cauterets with Sandra Rita Diaz
 
-- I take Sally to the baths at Cauterets.
+- I take Sandra Rita Diaz to the baths at Cauterets.
 
 ![Bains du Rocher](../../content/images/bains-du-rocher-1.webp)
 
 - She behaves as if she is very shy of being in her swimming suit in public.
 - We sit in the bubbling beds outside, the Péguère mountain watching us.
 
-![Me and Sally at the Bains du Rocher](../../content/images/bains-du-rocher.png)
+![Me and Sandra Rita Diaz at the Bains du Rocher](../../content/images/bains-du-rocher.png)
 
 - I tell her I'm going to tame the trumpet teacher, and that he'll enjoy it.
 

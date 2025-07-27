@@ -91,11 +91,11 @@ function googleTranslateElementInit() {
 - A grown-up child rape-gang star must make them really crazy; ready to trash their own souls for millennia.
 - We are seeing evidence of this everywhere we look; men destroying the world for their boners.
 
-### Sally
+### Sandra Rita Diaz
 
-- Sally is also in Lourdes for these few days.
+- Sandra Rita Diaz is also in Lourdes for these few days.
 - In retrospect I wonder if she's checking up on me.
-- My suspicions about Sally's intentions revolve around bizarre things she has said to me over the years which seemed to be in order to gage my reaction to them.
+- My suspicions about Sandra Rita Diaz's intentions revolve around bizarre things she has said to me over the years which seemed to be in order to gage my reaction to them.
 - One of these instances was in 2016 when we met for dinner in Paris one afternoon, and out of the blue, this shy ditzy apparently innocent and childish woman shows me a picture of a loaf of French bread moulded into the shape of a massive phallus and testicles.
 - She tells me a black priest sent it to her and wants to know what I think.
 - It's an extraordinary thing to communicate.
@@ -106,13 +106,13 @@ function googleTranslateElementInit() {
 
 - I may be wrong, but he has [that grin](../2022/november.md#walking-in-benijembla-with-the-english-ladies).
 - I know it must have been the 8th because this will have been the only day the Carrefour is open and busy.
-- Another table starts to talk to us a little. Sally says something incredibly bizarre and incongruent about how much she loves animals. This makes them all roll their eyes at her and not speak to us again.
+- Another table starts to talk to us a little. Sandra Rita Diaz says something incredibly bizarre and incongruent about how much she loves animals. This makes them all roll their eyes at her and not speak to us again.
 - We stay a long time and drink wine.
 - We also take a drink from the strange man who says he works in security for the sanctuary.
 - I tell everyone about [Ana in the car with no driver](november.md#ana-in-the-blue-van).
 - I ask everyone if it means the trumpet teacher is in love with me?
 - They all say, yes, it could be.
-- Sally tells me she thinks she is being poisoned by someone she knows.
+- Sandra Rita Diaz tells me she thinks she is being poisoned by someone she knows.
 - I don't know how to respond.
 - This is the first time she tells me there are a lot of devil worshippers at the sanctuary.
 - I'm not clear about why she would say something like this either.
@@ -131,7 +131,7 @@ function googleTranslateElementInit() {
 - It looks doctored a little; the top half is not me, but the bottom half does indeed look like me.
 - It's on a tweet from a woman I follow, but I never saw the picture before.
 - I know immediately that, without any doubt, hackers have sound and video clips of me [masturbating in Lourdes on Good Friday](april.md#good-friday).
-- I show my friend Sally in Lourdes this search result in person; using the Google search function on my mobile as she watches.
+- I show my friend Sandra Rita Diaz in Lourdes this search result in person; using the Google search function on my mobile as she watches.
 - Hackers remove this result from Google search the day after I post a screenshot of it on Twitter in January 2024.
 
 [![Screenshot of the stalker result](../../content/tweets/december-2023/manipulating-google-search.png)](https://x.com/1FRGVN/status/1748485970272419873)
@@ -306,8 +306,8 @@ function googleTranslateElementInit() {
 
 ![St Teresa's prayer](../../content/images/st-teresa-of-avila.jpg)
 
-- I'm communicating with [Sally](../early-years/2014.md#sally) a lot via WhatsApp.
-- Sally has about four different French numbers and I never know which one to use.
+- I'm communicating with [Sandra Rita Diaz](../early-years/2014.md#sandra-rita-diaz) a lot via WhatsApp.
+- Sandra Rita Diaz has about four different French numbers and I never know which one to use.
 - Eventually she replies to me on one of them.
 - I tell her I'm in love and that I'm going to have a boyfriend soon.
 - I'm extremely sexually aroused. 
