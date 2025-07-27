@@ -62,11 +62,22 @@
 - I see posts related to how I look, what I'm wearing, things in the town, decorations at the hotel, the amount of mosquitoes in the hotel.
 - It's endless.
 
-## Threats
+!!! tip "Videos"
+    - I tried to get videos of them at dinner.
+    - I added the videos I did get to the repo:
+        - [1]() 
+        - [2]()
+        - [3]()  
+
+## More threats
 
 - I also see threatening pics on my mobile device which remind me very much of [the violent threats I received on X in March 2024](../2024/march.md#twitter-screenshots).
 
 ![Violent images](../../content/images/violent-images.png)
+
+- I can't describe how exhausting it is to be constantly stalked by multiple gypsies who probably don't even know the why of it anymore.
+- If I didn't have God, I'd fear their murderous and vile intentions, and from time to time I do fear it.
+- I pray all this is over soon.
 
 ## The Benijembla woman
 
@@ -92,3 +103,9 @@
 - Could her name be Maggie Harrington?
 
 ![Maggie Harrington](../../content/images/fake-accounts/maggie-harrington.png)
+
+## Viscos
+
+- I see the Viscos peak from [my temporary chair](../../content/videos/viscos-from-my-chair.mov).
+- The lightning feels like a wave back; "I noticed you too".
+- So nice.
