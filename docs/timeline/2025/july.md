@@ -109,3 +109,13 @@
 - I see the Viscos peak from [my temporary chair]().
 - The lightning feels like a wave back; "I noticed you too".
 - So nice.
+
+## Damning updates
+
+- I write a number of damning updates such as [Alessandra's fake illness](../early-years/2009.md#alessandra-gets-sick) and [Elaine's daughter's online grooming](../early-years/2013.md#elaines-trans-child).
+- An account follows me immediately afterwards.
+- Note they are even able to manipulate the date of the follow to two days previous.
+
+![Evil us](../../content/images/fake-accounts/yvalnous.png)
+
+- Phonetically, and translated from French, this sounds like an admission of guilt; "evil us".
