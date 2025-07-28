@@ -78,12 +78,13 @@
 - I'm trying to think.
 - I tell him to shut up.
 - I feel like someone has told him to distract me constantly so that I do not have a minute to think or collect my thoughts about anything.
-- He tells me he is sharing a flat with a man.
+- He tells me he is sharing a flat with a man in North London. It turns out he's sleeping on the sofa and the owner is an opium addict.
 - I find out later he's living in his car and has been for years.
 - He tells me he is not a heroin addict.
 - I have to take his word for it.
 - Nevertheless, I have no choice but to send him home and go to the police in Madrid without him.
 - I give him my coat and a decent woolen jumper and tell him not to sell them.
+- I think about the many good people I know in North London whose lives were destroyed by drugs.
 
 ### Paul's friend Lucy
 
