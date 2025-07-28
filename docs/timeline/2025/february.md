@@ -26,7 +26,8 @@
 
 ### Child gang-rape porn
 
-- I tell Paul the whole story about what's been going on and how it is related to when I was sexually abused as a child.
+- I tell Paul the whole story about what's been going on in Denia and how it is related to when I was sexually abused as a child.
+- He asks me; "How didn't you go mad?"
 - I tell him I think the Adams family are involved.
 - He tells me he went to school with one of them; a male who committed suicide.
 - I tell him I was right to be suspicious of him.
@@ -40,10 +41,14 @@
 - We arrive back in London.
 - I'm driving Paul back to his car where he lives.
 - It's late and we're both tired.
-- As we pull up to the junction at the bottom of Muswell Hill, the light goes green but it is not signalling right so I don't go.
+- As we pull up to the junction at the bottom of Muswell Hill, the light goes green but it is not signalling right so I don't go. 
+- There's a feeder light usually. At least there was the last time I drove here, over 5 years previously.
 - Paul says, go go, it's green, so I move forward, but there is oncoming traffic so I can't turn right.
 - I break and ride the clutch a little bit but the car won't move, it is revving hard, but not moving, and I'm trying to go in and out of first, and I can smell this awful smell.
 - Paul pulled the handbrake button without my knowledge.
+- "What's that smell?" I say.
+- "You hammered the clutch," Paul says.
+- It's too late to think about this more but I know something's wrong.
 - I leave Paul at his car and thank him for saving my life.
 - I drive home alone.
 - At some point a car pulls out in front of me and I end up following it all the way to Church Lane N2.
