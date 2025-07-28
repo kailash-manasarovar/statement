@@ -22,6 +22,16 @@
     - With regards to my situation in Dénia, running for election was a game changer.
     - For anyone interested, here is my [election leaflet](../../content/documents/Katharine%20leaflet.pdf) which went out to 80,000 London constituents, twice, via Royal Mail.
 
+### Social media and Paul
+
+- I create a Facebook account for my election campaign.
+- An old friend Paul Pompeus connects with me.
+- He is exuberant and friendly.
+- He sounds exactly like the person I used to know over twenty years before.
+- He sends me messages fairly regularly on Facebook up until I see him again in January 2025.
+- I reach out to a number of other people on Facebook, including all of Paul's family and their friends and family. They all ignore me.
+- I assume it is because they are pro-trans or do not want to be associated with someone speaking up about the dangers of gender ideology.
+
 ## Continued stalking and health matters
 
 - I'm stalked online constantly by hackers while I'm in the UK, and a conversation continues with them on DMs with fake accounts during this time. Copies available on request.

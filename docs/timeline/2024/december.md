@@ -112,7 +112,7 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
     - Misogynists generally.
     - women's groups who have been told things to discredit me that they believe.
 
-## New Year's Eve
+### New Year's Eve
 
 - I decided to try to use the Linux laptop again which the [technician](../2024/april.md#hacking-expert) reset to factory settings.
 - I move my Google account over and change the password without connection to the MacOS.
@@ -134,3 +134,9 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
 - The hackers on Twitter referred to him as "Brat". I assume that would be Domingo as he would know him best.
 
 ![harmony teacher looking scared](../../content/images/google-searches/harmony-teacher.png)
+
+### Lucyfer Adams
+
+- An account flies by a lot over December 2024 while I'm in Thailand.
+- The account name is "Lucyfer Adams"
+- I note it.
