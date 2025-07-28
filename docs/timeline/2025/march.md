@@ -2,6 +2,19 @@
 
 - It's time to knuckle down and finish editing this statement in preparation for publishing it as a novel.
 
+## Let Women Speak Aberdeen
+
+- I travel to [Let Women Speak in Aberdeen](https://www.letwomenspeak.org/event-details/let-women-speak-aberdeen).
+- Sandra, one of my [electoral volunteers](../2024/june.md#volunteers-not-what-they-seem) and her sister Susan are there.
+- Susan and I spend some time talking over drinks at the party.
+- She tells me she would be pearly queen if they still existed as they are her ancestors.
+- I have forgotten Susan owns an X account which *significantly* repeated a phrase from my sexual abuse statement as I was reporting it, on December 5th, Winston May's birthday, in 2024.
+
+![Are you OK](../../content/images/are-u-okay.png)
+
+- If you have forgotten about the "Are you OK" significance, please reread the [chamber music concert](../2023/may.md#chamber-music-concert) section from May 2023.
+- Susan tells me she has had kidney failure for over 10 years but her doctors only just told her.
+
 ## A man who reminds me of Domingo
 
 - My father and I go to the Red Lion pub in Barnet for a meal.

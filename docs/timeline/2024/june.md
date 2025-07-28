@@ -87,14 +87,17 @@
 ### Volunteers not what they seem
 
 !!! danger "Volunteer list"
-    - I believe most of my "volunteers" were connected to Hazel and Sandra Smith in Dénia in some way. Here is a list of them:
+    - I believe most of my "volunteers" were connected to Hazel and Sandra Smith in Dénia in some way, or bent coppers trying to silence me due to my rape-gang survivor status.
+    - Here is a list of them:
+
         - Janet (calls herself So): constantly and extremely weirdly trying to distract me from campaigning. She gave me some items which may have contained poison and were certainly related to my history; a vile of holy water from St Valentine, a badge my dad wore, etc.
 
         ![Trannish inquisition](../../content/images/so-informer.png)
 
         - Steve Norman: lovely man from N2 who kept saying he had been involved in vivisection activity in the 80s which I took to mean he was probably a police informant of some sort, but now I believe he was connected to the criminal gangs of Dénia.
         - Athena Norman: Steve's "wife", a trans-sexual man. I believed this set up to be a way to discredit me in the future.
-        - Wesley Aguilar: a man who was clearly embarrassed about something as he could not look me in the eye. Had he seen the child rape porn I was in?
+        - Wesley Aguilar: a man who was clearly embarrassed about something as he could not look me in the eye. Had he seen the child rape porn I was in? I suspect he works for the police, along with a bunch of other men that are Let Women Speak regulars... who I have been told will block newcomers from interacting with the established group at LWS.
+        - Sandra: a woman I initially trusted but after something she said, and some [experiences with her sister Susan](../2025/march.md#let-women-speak-aberdeen) I suspect she must be connected to the Smiths somehow.
         - There were a few other volunteers who I did trust that I won't mention here.
 
 - I've since told So I don't trust her. I was warned about her on an [email from Patricia](../../content/documents/emails/trish-warning-about-So.png) on December 8th, 2024 (a significant date for me as everyone knows.)
