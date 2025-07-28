@@ -90,9 +90,12 @@
 
 - Paul tells me how I'm one of his best friends in the whole world, that he has only three best friends in the whole world, and I'm one of them.
 - He tells me this repeatedly.
-- It's weird. Is he trying to butter me up?
+- It's weird.
+- I haven't seen the man in twenty years.
+- Is he trying to butter me up?
 - One of the other best friends of Paul's in the whole world is a woman called Lucy.
-- I don't know her, but something rings suspicious.
+- He mentions her even more.
+- I don't know who she is, but something rings suspicious.
 - Something reminds me of [Lucyfer Adams](../2024/december.md#lucyfer-adams).
 - I ask Paul how long he's known Lucy. 
 - He says a few years.
