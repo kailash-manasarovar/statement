@@ -106,7 +106,7 @@
 
 ## Viscos
 
-- I see the Viscos peak from [my temporary chair]().
+- I see the Viscos peak from [my temporary chair](https://drive.google.com/file/d/1W92R2v8QAsAzDaAs1oIg99ozWLrcuqJ4/view?usp=sharing).
 - The lightning feels like a wave back; "I noticed you too".
 - So nice.
 
