@@ -40,10 +40,13 @@
 
 !!! danger "Grooming and the CB radio"
     - Paul and a group of boys were groomed over the CB radio by a gay man called Dennis in the 70s.
-    - Dennis convinced the boys that he was a replacement for their parents.
+    - CB radio was the first ever social media and, as you might imagine, pedophiles and predators immediately made use of it to get close to targets.
+    - The mass online grooming going on today would have blown their minds.
+    - Dennis convinced the boys that he was a decent replacement for their parents, convincing Paul of the utter uselessness of his own father.
     - This group of 14 year old boys would go and hang out with this gay adult male at his house and elsewhere.
-    - Paul's parents were horrified, as you can imagine, but groomers know very well which children to target and whatever they tried to do about it failed.
+    - Paul's parents were horrified, and rightly so, but groomers know very well which children to target and whatever they tried to do about it failed.
     - Paul never got over it and, to this day, he believes Dennis was a force for good in his life.
+    - In fact, I believe this is what drew me and Paul together and made drugs and alcohol so appealing; our shared child sexual grooming experiences.
 
 - I meet Paul at Madrid airport.
 - He is emaciated; skin and bone.
