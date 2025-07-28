@@ -42,14 +42,21 @@
 
 - A direct message pops up: "Who's paying you?"
 
-## London
+## Adding spy-cams to my London address
 
 - If you knew your spy-cam porn star was moving house, and you were 100% convinced that no-one would ever help her, and you were making untold money on spy-cam porn from her alone, how would you arrange spy-cams to be set up in her bathroom before she moved back?
 - Would you make sure you could manipulate her family's internet network?
+- Would you have to, given that the network had been breached for decades already?
 - Would you devise a method of stepping in when anyone in the family needed some work done?
 - Would you give yourself a name which would pretty much ensure your fake company would be tasked with the job, a family name perhaps?
 - Would you send the person with instructions to annoy the resident so much she would leave you alone for long periods in the house alone, where you could install as many spy-cams as you liked?
 - Do you think you might do that, if you were a criminal gang with no concerns about getting caught?
+- My mother employed a man, Sean Murphy (a significant family name), to install stair lifts at the house.
+- My dad doesn't believe that's his name and keeps calling him Dennis.
+- Sean Murphy wound my mother up so much she nearly sacked him two or three times.
+- He would turn up really late, or not at all, leaving her waiting around all day for him.
+- On a couple of occasions this tactic meant my mother was so exasperated she left him alone in the house for long periods while she went out to do the shopping.
+- Was he employed to [install spy-cams](../2025/may.md#spy-cams-in-london-n2-also)?
 
 ## Drugs test
 

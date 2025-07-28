@@ -90,21 +90,29 @@
     - I believe most of my "volunteers" were connected to Hazel and Sandra Smith in Dénia in some way, or bent coppers trying to silence me due to my rape-gang survivor status.
     - Here is a list of them:
 
-        - Janet (calls herself So): constantly and extremely weirdly trying to distract me from campaigning. She gave me some items which may have contained poison and were certainly related to my history; a vile of holy water from St Valentine, a badge my dad wore, etc.
+        - Janet (calls herself So): constantly and extremely weirdly trying to distract me from campaigning. She gave me some items which may have contained poison and were certainly related to my history; a vile of holy water from St Valentine, a badge my dad wore, etc. She significantly runs distracting game on me at [Brent X tube](#winston-may) while they're setting up the Winston May event.
 
         ![Trannish inquisition](../../content/images/so-informer.png)
 
-        - Steve Norman: lovely man from N2 who kept saying he had been involved in vivisection activity in the 80s which I took to mean he was probably a police informant of some sort, but now I believe he was connected to the criminal gangs of Dénia.
-        - Athena Norman: Steve's "wife", a trans-sexual man. I believed this set up to be a way to discredit me in the future.
+        - Steve Norman: lovely man from N2 who kept saying he had been involved in vivisection activity in the 80s which I took to mean he was probably a police informant of some sort as he was significantly involved in the [Winston May event](#winston-may) at Brent Cross tube, but now I believe he could also be connected to the criminal gangs of Dénia. Perhaps the two interested parties work together very closely.
+        - Athena Norman: Steve's "wife", a trans-sexual man. I believed this set up to be a way to discredit me in the future. Steve gave a speech at Let Women Speak about "his wife" sometimes in 2024.
         - Wesley Aguilar: a man who was clearly embarrassed about something as he could not look me in the eye. Had he seen the child rape porn I was in? I suspect he works for the police, along with a bunch of other men that are Let Women Speak regulars... who I have been told will block newcomers from interacting with the established group at LWS.
-        - Sandra: a woman I initially trusted but after something she said, and some [experiences with her sister Susan](../2025/march.md#let-women-speak-aberdeen) I suspect she must be connected to the Smiths somehow.
+        - Sandra: a woman I initially trusted but after something she said, and some [experiences with her sister Susan](../2025/march.md#let-women-speak-aberdeen), I suspect she must be connected to the Smiths via North London criminal gangs and possibly the police.
         - There were a few other volunteers who I did trust that I won't mention here.
 
-- I've since told So I don't trust her. I was warned about her on an [email from Patricia](../../content/documents/emails/trish-warning-about-So.png) on December 8th, 2024 (a significant date for me as everyone knows.)
+- I've since told So I don't trust her. I was warned about her on an [email from Patricia](../../content/documents/emails/trish-warning-about-So.png) on December 8th, 2024 (a significant date for me as everyone knows).
 - I told her I didn't trust her. She since changed her profile with a message to me.
 
 ![so profile](../../content/images/so-profile.png)
 
 ## No sexual arousal
 
-- I am not sexually aroused at all this month away from Dénia.
+- I am not sexually aroused at all this month in London at my family's home away from Dénia.
+- However, I am high and extremely physically sensitive (a certain event makes me realize this).
+- Looking back, I see that I am in a heightened state of consciousness during the whole month of June and into July.
+- DMs with hackers reveal this.
+- I believe the drugging is continuing via bathroom products most likely, but I'm too busy with the election to be sexually aroused and/or the social media sexual hypno-suggestions have dropped off because there's no spy-cams available for the gangs to cash in on.
+- This may change as I have no choice but to move back to London in 2025.
+
+[![Spy cams in London in 2025](../../content/tweets/spy-cams-in-london.png)](https://x.com/1FRGVN/status/1926266246925795504)
+

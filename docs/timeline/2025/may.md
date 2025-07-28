@@ -48,7 +48,7 @@
 
 - "Bad boil a-knock-out"?
 - Does this mean my home in London N2 has somehow also been fitted with spy-cams? If so, since when and by whom?
-- Perhaps in [November 2024](../2024/november.md#london).
+- Perhaps in [November 2024](../2024/november.md#adding-spy-cams-to-my-london-address).
 - A fake account follows me on my `@jackchardwood` account. The name is interesting and sounds a bit like "camera on gawk zany".
 
 ![Camera on](../../content/images/fake-accounts/camera-on.png)
