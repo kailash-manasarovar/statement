@@ -65,9 +65,9 @@
 !!! tip "Videos"
     - I tried to get videos of them at dinner.
     - I added the videos I did get to the repo:
-        - [1]() 
-        - [2]()
-        - [3]()  
+        - [1](https://drive.google.com/file/d/1flFEbVj4ekoadj2ptsBCY2fn8fRb1xbq/view?usp=sharing) 
+        - [2](https://drive.google.com/file/d/1ZdSf9KXYfJRfW4zpJ01d7vWHOIoamtoC/view?usp=sharing)
+        - [3](https://drive.google.com/file/d/1hZvMgg0z0DzZbERC9se5HlvDEzWi5AUt/view?usp=sharing)  
 
 ## More threats
 
