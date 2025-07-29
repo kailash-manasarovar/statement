@@ -109,7 +109,7 @@
 - I write about this in the [August 2024 section](../2024/august.md#i-realize-i-have-been-poisoned-and-drugged) the first time a hacker said sorry to me when I mention being poisoned.
 - On my last day of service to Mary, I have a really big headache which feels like it is going to become a migraine and is effecting my eyes and vision.
 - I have to come back to my room and skip the afternoon service.
-- The following day, I feel a little better, but after about an hour in the car, I can feel both kidneys are screaming just like they did when I was sitting peacefully in my apartment in Denia around lunchtimes.
+- The following day, I feel a little better, but after about an hour in the car, I can feel both kidneys are screaming just like they did when I was sitting peacefully in my apartment in Dénia around lunchtimes.
 - The next day, my kidneys are still aching, my eyes are blurry, and my vision is extremely poor. 
 - I can hardly look at bright lights, including a clear sky.
 - They certainly got me, yet again.
