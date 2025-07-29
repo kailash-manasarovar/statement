@@ -73,7 +73,7 @@
 
 - I bought a spy cam for my trip so that I can see if anyone unusual is coming into my hotel room.
 - It has no network connectivity so it cannot be hacked, I assume.
-- The date setting of anything created defaults to 2017. 
+- The date setting of videos defaults to 2017. 
 - I cannot change the `date.txt` file as it is in Chinese.
 - I test the device for a few days and it works well, maintaining the 2017 date.
 - It picks up the cleaners coming in for 10 minutes and doing a quick towel change and making the bed.
@@ -88,7 +88,7 @@
 - It is a Monday during the dizzy heights of intense drugging, cyber-stalking, and terror at the conservatory.
 - Notably, on this day I do not post at all in the evening.
 - I do post first thing on Tuesday morning with a song in my head.
-- Was 27th December an evening in which I was sedated and people came into my apartment?
+- Was 27th December an evening in which I was sedated and people came into my apartment to abuse me on camera?
 - I'm obviously feeling extraordinarily stressed the following morning.
 
 [![Heart attack](../../content/tweets/heart-attack.png)](https://x.com/1FRGVN/status/1729385938495602851)
@@ -97,12 +97,17 @@
 
 - In service at the baths at Lourdes, I startlingly notice how poor my left peripheral vision has become.
 - I'm just not seeing things I should be seeing; someone's coat dropping to the floor right beside me, movement of pilgrims in the baths, and other things.
-- Not only that, but I missed seeing a giant crack on my left windshield that was caused while the car was parked during the sea crossing.
+- Not only that, but I missed seeing a giant crack on my left windshield that was caused by something falling during rough seas on the boat.
 - Even though the Brittany Ferries operative came over with a clipboard - I now realize to take the information - I hadn't seen the crack yet so I didn't know why he was hovering around looking like he wanted to talk to me, and then just sort of wandered off looking a bit silly. 
 - I noticed the crack in the bright sunlight about an hour later on the road.
 - It's even more surprising because Moorfields gave me a *somewhat* clean bill of health just a couple of months ago.
 - I write to them, concerned.
-- On my last day of service to Mary, I have a really big headache which feels like it is going to become a migraine and is effecting my eyes.
+- As I'm writing to Moorfields, a hacker says sorry in the spell check options.
+
+![Hacker says sorry](../../content/images/hacker-says-sorry.jpg)
+
+- I write about this in the [August 2024 section](../2024/august.md#i-realize-i-have-been-poisoned-and-drugged) the first time a hacker said sorry to me when I mention being poisoned.
+- On my last day of service to Mary, I have a really big headache which feels like it is going to become a migraine and is effecting my eyes and vision.
 - I have to come back to my room and skip the afternoon service.
 - The following day, I feel a little better, but after about an hour in the car, I can feel both kidneys are screaming just like they did when I was sitting peacefully in my apartment in Denia around lunchtimes.
 - The next day, my kidneys are still aching, my eyes are blurry, and my vision is extremely poor. 
