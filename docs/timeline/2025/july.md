@@ -69,6 +69,30 @@
         - [2](https://drive.google.com/file/d/1ZdSf9KXYfJRfW4zpJ01d7vWHOIoamtoC/view?usp=sharing)
         - [3](https://drive.google.com/file/d/1hZvMgg0z0DzZbERC9se5HlvDEzWi5AUt/view?usp=sharing)  
 
+### Spy cam
+
+- I bought a spy cam for my trip so that I can see if anyone unusual is coming into my hotel room.
+- It has no network connectivity so it cannot be hacked, I assume.
+- The date setting of anything created defaults to 2017. 
+- I cannot change the `date.txt` file as it is in Chinese.
+- I test the device for a few days and it works well, maintaining the 2017 date.
+- It picks up the cleaners coming in for 10 minutes and doing a quick towel change and making the bed.
+- The evening after I see [these two in the hotel restaurant](#lourdes), I check the device.
+- There is a video of me leaving the room, as normal, and coming back, as normal.
+- The cleaners didn't come that day.
+- During an hour's period while I'm out, there are 10 new videos.
+- Each one is a still of the room, there is no movement in it at all.
+- I assume this is when those two came in.
+- Also, the date has been changed on the device to 27th November 2023.
+- I check this date online.
+- It is a Monday during the dizzy heights of intense drugging, cyber-stalking, and terror at the conservatory.
+- Notably, on this day I do not post at all in the evening.
+- I do post first thing on Tuesday morning with a song in my head.
+- Was 27th December an evening in which I was sedated and people came into my apartment?
+- I'm obviously feeling extraordinarily stressed the following morning.
+
+[![Heart attack](../../content/tweets/heart-attack.png)](https://x.com/1FRGVN/status/1729385938495602851)
+
 ## More threats
 
 - I also see threatening pics on my mobile device which remind me very much of [the violent threats I received on X in March 2024](../2024/march.md#twitter-screenshots).
