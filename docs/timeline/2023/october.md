@@ -506,6 +506,7 @@ function googleTranslateElementInit() {
 - What was he afraid of?
 - The others lead the way and we end up in the back room of the Irish bar on the Calle La Mar.
 - It's empty apart from an extremely dodgy (apparently) French bloke who says he studies guitar at the conservatory. 
+- He says his name is Laurent.
 - He wants to know things about me. 
 - I know he's part of it all. So does everyone else.
 - He has a little helper with him who's dressed as the joker and keeps glaring at me menacingly.
@@ -526,6 +527,9 @@ function googleTranslateElementInit() {
 - I tweet the song when I get home.
 
 [![You made me love you](../../content/tweets/november-2023/you-made-me-love-you.png)](https://x.com/1FRGVN/status/1719532076725072313)
+
+- I suppose Laurent could be Domingo's uncle; a man able to hire, fire, and target women and students at the conservatory.
+- I guess he could be Hazel Smith's partner in crime too; the elusive Paco Sendra.
 
 ## Tweets
 
