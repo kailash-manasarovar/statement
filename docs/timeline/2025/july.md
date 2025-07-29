@@ -117,7 +117,7 @@
 - Perhaps they even got into the car where I was keeping water and food.
 - What a nightmare.
 - I wonder what on earth they get out of it.
-- I suspect the woman and her assistant are just following orders, but whose, and for what purpose.
+- I suspect the woman and her assistant are just following orders, but whose, and for what purpose?
 - I suspect the woman has suffered things I couldn't dream of.
 
 [![Suffering women](../../content/tweets/that-woman.png)](https://x.com/1FRGVN/status/1946267176052134153)
