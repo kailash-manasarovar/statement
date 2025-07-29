@@ -24,7 +24,7 @@
 - She speaks perfect French to the receptionist.
 - She is walking on crutches.
 
-![Taya](../../content/images/domingo-target-mother-advertisement.jpg)
+[![Taya](../../content/images/domingo-target-mother-advertisement.jpg)](../../crimes/protagonists.md#domingo-lopez-cano)
 
 - Later, on X, she introduces herself as Taya.
 - At the hotel, she is with a tech I suppose; a man of about 20 with black hair and very pale skin. 
