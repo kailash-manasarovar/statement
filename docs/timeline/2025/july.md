@@ -88,8 +88,12 @@
 - It is a Monday during the dizzy heights of intense drugging, cyber-stalking, and terror at the conservatory.
 - Notably, on this day I do not post at all in the evening.
 - I do post first thing on Tuesday morning with a song in my head.
+
+[![Lion of Judah](../../content/tweets/lion-of-judah.png)](https://x.com/1FRGVN/status/1729376983019086141)
+
 - Was 27th December an evening in which I was sedated and people came into my apartment to abuse me on camera?
-- I'm obviously feeling extraordinarily stressed the following morning.
+- Was my choice of song afterwards significant?
+- I'm obviously feeling extraordinarily stressed.
 
 [![Heart attack](../../content/tweets/heart-attack.png)](https://x.com/1FRGVN/status/1729385938495602851)
 
