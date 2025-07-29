@@ -93,6 +93,34 @@
 
 [![Heart attack](../../content/tweets/heart-attack.png)](https://x.com/1FRGVN/status/1729385938495602851)
 
+### Eyes and kidneys, again
+
+- In service at the baths at Lourdes, I startlingly notice how poor my left peripheral vision has become.
+- I'm just not seeing things I should be seeing; someone's coat dropping to the floor right beside me, movement of pilgrims in the baths, and other things.
+- Not only that, but I missed seeing a giant crack on my left windshield that was caused while the car was parked during the sea crossing.
+- Even though the Brittany Ferries operative came over with a clipboard - I now realize to take the information - I hadn't seen the crack yet so I didn't know why he was hovering around looking like he wanted to talk to me, and then just sort of wandered off looking a bit silly. 
+- I noticed the crack in the bright sunlight about an hour later on the road.
+- It's even more surprising because Moorfields gave me a *somewhat* clean bill of health just a couple of months ago.
+- I write to them, concerned.
+- On my last day of service to Mary, I have a really big headache which feels like it is going to become a migraine and is effecting my eyes.
+- I have to come back to my room and skip the afternoon service.
+- The following day, I feel a little better, but after about an hour in the car, I can feel both kidneys are screaming just like they did when I was sitting peacefully in my apartment in Denia around lunchtimes.
+- The next day, my kidneys are still aching, my eyes are blurry, and my vision is extremely poor. 
+- I can hardly look at bright lights, including a clear sky.
+- They certainly got me, yet again.
+- Toiletries, toothpaste, moisturizer? Who knows.
+- Perhaps they even got into the car where I was keeping water and food.
+- What a nightmare.
+- I wonder what on earth they get out of it.
+- I suspect the woman and her assistant are just following orders, but whose, and for what purpose.
+- I suspect the woman has suffered things I couldn't dream of.
+
+[![Suffering women](../../content/tweets/that-woman.png)](https://x.com/1FRGVN/status/1946267176052134153)
+
+- But even this doesn't explain why I continue to be a target for poisoning.
+- Are they just angry I got away?
+- You can't win em all pets.
+
 ## More threats
 
 - I also see threatening pics on my mobile device which remind me very much of [the violent threats I received on X in March 2024](../2024/march.md#twitter-screenshots).
