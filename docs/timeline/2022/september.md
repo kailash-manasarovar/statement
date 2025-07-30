@@ -35,6 +35,7 @@ function googleTranslateElementInit() {
 - He was sitting with [Katia](../2023/september.md#katia).
 - Is it possible this man had already been in my apartment, and that's how I knew him? 
 - Is it possible that the sedating had started long before I began my conservatory studies?
+- I would recognize this man in an instant.
 
 ## Threatening tweets
 
