@@ -24,6 +24,12 @@ function googleTranslateElementInit() {
     - I was not supposed to return to the conservatory after that and people like Samuel, who had been helping the criminal gangs out, would have finished their obligations and been paid, I suspect, and probably wanted nothing more to do with the ongoing crimes.
 
 - Every time we walk home together, Samuel tells me he is planning to take a costly TEFL course online the following summer.
+- Samuel spends a lot of time with Domingo and the two little sisters.
+- I always seem them together.
+- I like Elvira, she's a good kid.
+- I tell Sam this.
+- Sam says, oh no, she's really scatty.
+- I wonder why he would say this about a 14-year old girl who is an obvious target.
 
 ## Vomiting and sickness in the flat
 

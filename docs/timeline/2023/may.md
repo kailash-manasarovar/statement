@@ -149,6 +149,19 @@ function googleTranslateElementInit() {
 - I was really only concerned that my tweet might have upset Concha because I had mentioned her (not by name).
 - I deleted the tweet on June 12th.
 
+### Elvira
+
+- It is a cold rainy day and everyone is dressed warmly, apart from Elvira, Domingo's 14-year-old student.
+- She is wearing an extremely skimpy vest top and is clearly very cold.
+- I'm concerned Domingo has told her what to wear that day, just like at the [audition the June previous](../2022/june.md#conservatory-audition).
+- I will see naked women doing porn in vest tops just like these throughout the cyber-abuse.
+- It's such a specific thing, I started to wonder why women in porn would be wearing vest tops.
+- My assumption is it refers to rape; i.e. "we don't waste time undressing her properly".
+- When I figure this out, I remember Elvira at the choir concert and how concerned I had been about what she was wearing.
+- The trumpet teacher attended the choir concert and was in the audience.
+- Was he picking out his next victim?
+- Was Elvira highlighted for him as being groomed and ready by what she was wearing?
+
 ## Next class at the conservatory
 
 - When I went back to the conservatory for chamber music class the next Monday, the whole atmosphere had changed again.
