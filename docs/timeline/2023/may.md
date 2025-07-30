@@ -161,6 +161,7 @@ function googleTranslateElementInit() {
 - The trumpet teacher attended the choir concert and was in the audience.
 - Was he picking out his next victim?
 - Was Elvira highlighted for him as being groomed and ready by what she was wearing?
+- Or was Domingo proudly demonstrating, yet again, just how much power he has over little girls?
 
 ## Next class at the conservatory
 
