@@ -529,6 +529,7 @@ function googleTranslateElementInit() {
 [![You made me love you](../../content/tweets/november-2023/you-made-me-love-you.png)](https://x.com/1FRGVN/status/1719532076725072313)
 
 - I suppose Laurent could be Domingo's uncle; a man able to hire, fire, award pensions, and target women and students at the conservatory.
+- The uncle, maybe, related to [Domingo's aunt whose hair fell out and went yellow when she left him](../early-years/2014.md#poisoned-aunts).
 - I guess he could be Hazel Smith's partner in crime too; the elusive Paco Sendra.
 
 ## Tweets
