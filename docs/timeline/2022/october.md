@@ -53,6 +53,25 @@ function googleTranslateElementInit() {
 - I start to have bad dreams.
 - There is still no teacher for chamber music.
 
+## Angela
+
+- One of the women that walks with the British hikers is a lady called Angela. 
+- Her email is angelapladecalvo@gmail.com.
+- Every time we meet she is complaining about how unbalanced she has become.
+- She has seen her doctor numerous times about it but they do nothing.
+- She details wobbling on her feet and is concerned about it.
+- While being drugged continuously, I also experienced this unbalanced footing.
+- It's easy to pass it off as age, or whatever, until it stops completely.
+
+### Angela's hair
+
+- Angela always has beautifully done blond hair, like a Hollywood professional does her hair.
+- I remark on it.
+- One time, I'm so amazed at how good her hair is I ask for her hairdresser details.
+- Christine pushes into the conversation very quickly and says, no no no, you can't go to Angela's hairdresser.
+- It's very strange indeed.
+- Was Angela also being sedated for porn and going regularly to hair and make-up?
+
 ## Patricia
 
 - I'm surprised to meet Patricia on a hike with the English ladies after so many years. She seems sad. I notice how much she has aged.
