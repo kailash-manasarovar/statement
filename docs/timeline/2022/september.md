@@ -26,10 +26,15 @@ function googleTranslateElementInit() {
 
 - For about a week of my stay, there was a couple I bumped into regularly on the trails and in the town.
 - They were usually running the trail around Cauterets.
-- Nothing unusual about them except in December I see a man at the choir concert who looked exactly like the man I had seen running on the trail.
+- Nothing unusual about them except I'm drawn to his face, I recognize it somehow.
+- I think he must be a film or TV star, and that's why I know him.
 - He has a very distinctive look.
-- I saw a man who looked just like him at the [choir concert in December](december.md#the-curious-man).
-- I saw the person again on the [online meeting in September 2023](../2023/september.md#chamber-music) led by Paqui Fornet.
+- I will see the same man at the [choir concert in December](december.md#the-curious-man) and do a double-take.
+- Again, I think he must be a film or TV star, and that's why I know him.
+- I saw the man yet again on the [online meeting in September 2023](../2023/september.md#chamber-music) led by Paqui Fornet.
+- He was sitting with [Katia](../2023/september.md#katia).
+- Is it possible this man had already been in my apartment, and that's how I knew him? 
+- Is it possible that the sedating had started long before I began my conservatory studies?
 
 ## Threatening tweets
 
@@ -83,7 +88,8 @@ function googleTranslateElementInit() {
 - She says oh he's very bad, he's all yellow and losing his hair, she tells me.
 - She says he can hardly speak now.
 - I expected her to tell me he had passed away or recovered.
-- I did not think people lingered for years with lung cancer, deteriorating like this.
+- I did not think people lingered for years with lung cancer, just deteriorating.
+- I'm now worried about the true fate of Miguel Angel.
 
 ### Harmony
 
