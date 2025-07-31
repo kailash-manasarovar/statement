@@ -127,9 +127,9 @@
 
 [![Suffering women](../../content/tweets/that-woman.png)](https://x.com/1FRGVN/status/1946267176052134153)
 
-- But even this doesn't explain why I continue to be a target for poisoning.
-- Are they just angry I got away?
-- You can't win em all pets.
+- I guess this means they went for my heart this time around, and I certainly saw a couple of fake accounts flying by with names or messages containing the words; "finger injections".
+- Even then, you may have noticed, God got there first.
+- There's way too much to do for this ridiculous time-wasting.
 
 ## More threats
 
