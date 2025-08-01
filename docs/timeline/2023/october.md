@@ -66,6 +66,7 @@ function googleTranslateElementInit() {
 - I'm going to suggest that this is a somewhat appropriate reaction for someone involved in a vile conspiracy to give a child victim of rape gangs a nervous breakdown or make them commit suicide, or whatever.
 - I know that Paul was always just doing what he was told.
 - But there again, I always see the best in people.
+- Could Paul have been blushing because he had taken part in one of those Monday night soirees we keep hearing about?
 
 ## Gang stalking by conservatory civil servants
 
