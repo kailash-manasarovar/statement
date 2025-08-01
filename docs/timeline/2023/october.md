@@ -57,6 +57,14 @@ function googleTranslateElementInit() {
     - Do they have a choice in whether they take part?
     - It's clear the good people of Dénia have a really, really nasty festering problem.
 
+## Paul and Alessandra
+
+- I bump into Paul and Alessandra.
+- They are in the car.
+- Paul is blushing furiously; his face is beetroot.
+- I understand it now to mean that Hazel showed him the child rape-gang porn between the last time I saw him and this moment, and he is overwhelmed with emotion.
+- I'm going to suggest that this is a somewhat appropriate reaction for someone involved in a vile conspiracy to give a child victim of rape gangs a nervous breakdown or make them commit suicide, or whatever.
+
 ## Gang stalking by conservatory civil servants
 
 ### Choir
