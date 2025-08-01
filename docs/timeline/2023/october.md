@@ -64,6 +64,7 @@ function googleTranslateElementInit() {
 - Paul is blushing furiously; his face is beetroot.
 - I understand it now to mean that Hazel showed him the child rape-gang porn between the last time I saw him and this moment, and he is overwhelmed with emotion.
 - I'm going to suggest that this is a somewhat appropriate reaction for someone involved in a vile conspiracy to give a child victim of rape gangs a nervous breakdown or make them commit suicide, or whatever.
+- I know that Paul was always just doing what he was told.
 
 ## Gang stalking by conservatory civil servants
 
