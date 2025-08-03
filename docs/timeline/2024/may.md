@@ -169,6 +169,11 @@
 - The implication, however, is that I am incompetent. And mud sticks.
 - This has been Gabriel's outward view of me since January after hearing from Grace about my women's rights activities, and why, I assume, he stopped giving me any work at that time.
 - I remain high and euphoric. I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
+- I am unusually sexually aroused the whole time I am in Bali.
+- I am targeted by a British Pakistani man who makes violent sexual threats to me over dinner.
+- I'm wondering if this guy was another actor-type, like Nadim.
+- I remember saying to Anthony that night that the man had Nadim energy.
+- He behaved extremely strangely and menacingly towards me.
 
 ## Lourdes
 
