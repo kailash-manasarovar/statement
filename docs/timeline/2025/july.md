@@ -97,7 +97,9 @@
 
 [![Heart attack](../../content/tweets/heart-attack.png)](https://x.com/1FRGVN/status/1729385938495602851)
 
-### Eyes and kidneys, again
+- Having spent a few days in the mountains struggling to walk, I now believe they picked this date to inform me they had gone for my heart this time.
+
+### Eyes and kidneys, again, and heart now too?
 
 - In service at the baths at Lourdes, I startlingly notice how poor my left peripheral vision has become.
 - I'm just not seeing things I should be seeing; someone's coat dropping to the floor right beside me, movement of pilgrims in the baths, and other things.
