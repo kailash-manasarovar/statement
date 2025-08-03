@@ -129,9 +129,7 @@
 
 [![Suffering women](../../content/tweets/that-woman.png)](https://x.com/1FRGVN/status/1946267176052134153)
 
-- I guess this means they went for my heart this time around, and I certainly saw a couple of fake accounts flying by with names or messages containing the words; "finger injections".
-- Even then, you may have noticed, God got there first.
-- There's way too much to do for this ridiculous time-wasting.
+- By my current inability to walk uphill, it appears they went for my heart this time around, and I certainly saw a couple of fake accounts flying by with names or messages containing the words; "finger injections", i.e. injecting digitalis into my bathroom products or water.
 
 ## More threats
 
