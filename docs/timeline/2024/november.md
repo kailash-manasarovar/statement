@@ -20,6 +20,18 @@
 - Update on 2nd December, the froth in my urine has now disappeared even when drinking wine.
 - I get a diagnosis of PACS from the eye hospital (primary angle closure suspect). Sudden onset glaucoma risk basically. No one in my family has this and everything else is completely normal. It's unusual.
 
+## Bangkok
+
+### Writing my police statement
+
+- I start writing a full draft of what's happened to me over the last few years in Denia.
+- I decide to make a website of it, save it in git, and then use cloudflare to publish it.
+- I WayBack machine all the pages after updates.
+
+### Hiring a lawyer to help me with Polygon's illegal dismissal
+
+- See also [Miguel Angel Piano](../early-years/2014.md#signs-a-spanish-lawyer-is-not-behaving-correctly).
+
 ## A threat to my brother's life
 
 - On Sunday 10 November, hackers post what I consider a threat to my brother's life.
