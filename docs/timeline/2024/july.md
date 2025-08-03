@@ -59,8 +59,10 @@
 - I know they're showing me her.
 - Another target.
 - She's dressed a little bit like a cheap porn star.
-- She's tall, heavily made up, dark skinned, long black hair, and she's wearing a skimpy dress and massive platform boots.
+- She's tall, heavily made up, dark skinned, long black straightened hair, and she's wearing a skimpy dress and massive platform boots.
 - She checks her phone, sighs anxiously again, and runs off.
+- Another foreigner, I guess.
+- Anyone born in the region, or having family there, will likely know what's going on and who is involved; that's why they go for newcomers mostly.
 
 ## Big chat with the hacker begins
 
