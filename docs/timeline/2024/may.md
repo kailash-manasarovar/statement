@@ -165,7 +165,7 @@
 ![Bali](../../content/images/bali.png)
 
 - Gabriel Silva mentions how he is going to be sorting out the docs using other people who are not on the writing team. 
-- This happens over the following month where another employee tries to pretend my systems are unusable, but he can't really and he just looks stupid.
+- The bullying continues over the following month where another employee, on his orders, tries to pretend my systems are unusable, but he can't really and he just looks stupid.
 - The implication, however, is that I am incompetent. And mud sticks.
 - This has been Gabriel's outward view of me since January after hearing from Grace about my women's rights activities, and why, I assume, he stopped giving me any work at that time.
 - I remain high and euphoric. I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.

@@ -39,6 +39,18 @@
 - Something was making me open my mouth and tilt my head back if I was in the bathroom, I have no idea what.
 - I would masturbate under my covers in my bedroom, and after that I would see posts of people with their heads covered in blankets.
 
+## Zoe and the transvestite
+
+- I bump into Zoe on the Calle Diana.
+- Zoe, who I now believe has been called in to talk to me; perhaps to see how I'm doing and report back on my state of mind.
+- She is with a transvestite.
+- It's meant to destabilize me.
+- I shake his hand.
+- We talk.
+- I explain to her what the people at the conservatory did in brief.
+- When I mention someone dressing up as Elaine Black at the concert in March, Zoe looks alarmed, but doesn't follow up.
+- I believe Zoe knows exactly what happened to Elaine; perhaps everyone does.
+
 ## Big chat with the hacker begins
 
 - A conversation begins with the hacker(s) at that point which goes on all summer.

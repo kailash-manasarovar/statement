@@ -16,11 +16,14 @@ function googleTranslateElementInit() {
 - I'm nauseated often in my apartment. I don't know why but I have experienced substantial vomiting fits which are a bit inexplicable. I wonder the refrigerator is so old it is leaking bacteria onto my food.
 - My eyes are tired and my sight is often blurry.
 
-### Meeting Zoe while walking
+### Meeting Zoe and Marie while walking
 
-- On one Saturday, I bump into an old friend I hadn't seen in years while walking along Las Rotas.
-- She tells me about Elaine Black's suicide.
+- On one Saturday, I bump into an old friend I hadn't seen in years while walking along Las Rotas, Zoe Braganza Jones.
+- She is with her Liverpudlian friend Marie.
+- Zoe tells me about Elaine Black's suicide.
 - I'm devastated.
+- I had no idea my every move was being tracked at that time, but now it seems sensible to assume that meeting, like every meeting I had, was set up by Hazel Smith and the Cano family.
+- I recall seeing her, in another finely tuned choreographic moment, in 2014 while I'm [waiting for Domingo in the car outside my apartment in Joan Fuster](../early-years/2014.md#trip-to-london).
 
 ## Preparing for the conservatory audition
 
