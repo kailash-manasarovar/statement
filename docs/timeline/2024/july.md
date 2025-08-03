@@ -51,6 +51,17 @@
 - When I mention someone dressing up as Elaine Black at the concert in March, Zoe looks alarmed, but doesn't follow up.
 - I believe Zoe knows exactly what happened to Elaine; perhaps everyone does.
 
+### The running girl
+
+- I continue on with my chores. 
+- I think I needed to go to the post office after buying vegetables.
+- I see a woman, anxious and stressed, constantly looking at her phone, running here and there.
+- I know they're showing me her.
+- Another target.
+- She's dressed a little bit like a cheap porn star.
+- She's tall, heavily made up, dark skinned, long black hair, and she's wearing a skimpy dress and massive platform boots.
+- She checks her phone, sighs anxiously again, and runs off.
+
 ## Big chat with the hacker begins
 
 - A conversation begins with the hacker(s) at that point which goes on all summer.
