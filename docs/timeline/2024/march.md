@@ -240,6 +240,9 @@
 
 !!! danger
     - I'm really worried about this boy now, he was a beautiful boy.
+    - Could they be so sick and twisted, they were demonstrating proudly what they do?
+    - I can believe it of Domingo, and Paqui maybe.
+    - Horrifying.
     
 - There are pieces with related names, including something like "Four Aunts" by a modern composer called Mercedes Zavala (this is a horribly aggressive piece that Antonio Signes Argudo plays very well), [poison and aunts](../early-years/2014.md#poisoned-aunts), and other related things.
 
