@@ -221,9 +221,16 @@
 - I'm walking into Denia to attend harmony classes with Alfonso.
 - As I approach the road of the conservatory, Pablo from my chamber music class comes out of a doorway. He looks frustrated and upset. I realize he has been asked to join in the choreography of terror against me.
 - I feel bad for him and run past him.
-- Teachers glare at me angrily as I enter the conservatory. It's a warning.
-- Domingo has his hands on a small girl of about 6 years old's shoulders on the steps going up to the front door. He glances at me meaningfully in the way he does.
+
+### Domingo adjusts the child's rucksack
+
+- Teachers glare at me angrily as I enter the conservatory. 
+- It's a warning.
+- Domingo has his hands on a small girl of about 6 years old's shoulders, apparently adjusting her rucksack.
+- They're on the steps going up to the front door as I pass them.
+- He glances at me meaningfully in the way he does.
 - It looks like he is adjusting her rucksack but I wonder now if this is a demonstration for my benefit of the power he has over very young children and how no-one can do a thing about it.
+- Is this how they drug people; create a diversion and add powder into the neck area or ear maybe?
 
 ### Ana dresses as if she's pregnant
 
@@ -234,14 +241,18 @@
 ### A serious attack on my wellbeing from piano teachers at Dénia conservatory
 
 - On Tuesday 12th March, there is a end of term piano concert at the Casa de Cultura in Dénia.
+- I leave from the conservatory and walk over to the venue.
 - It's a huge set up, all meant to terrify me, probably give me a nervous breakdown, and maybe kill myself too.
 - Each piece the kids play at the concert is related to things I have said on Twitter, or in letters to the Generalitat asking for help that were ignored.
 - I'm surprised and somewhat alarmed to see the little Romanian boy who had been so energetic and full of life whenever I saw him previously looking so unwell and anxious. It makes me wonder.
 
 !!! danger
     - I'm really worried about this boy now, he was a beautiful boy.
-    - Could they be so sick and twisted, they were demonstrating proudly what they do?
-    - I can believe it of Domingo, and Paqui maybe.
+    - Could they be so sick and twisted, they were demonstrating proudly what they do to children?
+    - Just like [the two drugged girls](../2022/june.md#maria-and-domingo) in June 2022.
+    - Or the [girls at the audition](../2022/june.md#conservatory-audition).
+    - Or [Elvira in her vest](../2023/may.md#elvira).
+    - Or the [tiny child Domingo was apparently helping](#domingo-adjusts-the-childs-rucksack). 
     - Horrifying.
     
 - There are pieces with related names, including something like "Four Aunts" by a modern composer called Mercedes Zavala (this is a horribly aggressive piece that Antonio Signes Argudo plays very well), [poison and aunts](../early-years/2014.md#poisoned-aunts), and other related things.
