@@ -41,16 +41,18 @@
 
 ## Zoe and the transvestite
 
-- I bump into Zoe on the Calle Diana.
+- I bump into [Zoe](../early-years/2007.md#zoe) on the Calle Diana.
 - Zoe, who I now believe has been called in to talk to me; perhaps to see how I'm doing and report back on my state of mind.
 - She is with a transvestite.
 - It's meant to destabilize me.
 - I shake his hand.
 - We talk.
-- I explain to her what the people at the conservatory did, in brief.
-- When I mention someone dressing up as Elaine Black at the concert in March, Zoe looks alarmed, but doesn't follow up.
+- It's friendly. I'm delighted to hear the little dog they had, Lola, is still alive. She was wonderful.
+- Zoe tells me about her younger daughter who is doing very well by all accounts. She says nothing about the older daughter, and I sense a shadow.
+- I explain to her what the people at the conservatory did, in brief because she is not asking for more information, and she is not interested at all in the way she normally would be in a story like this.
+- When I mention someone dressing up as Elaine Black at the piano concert in March, Zoe looks alarmed, but doesn't follow up.
 - I believe Zoe knows exactly what happened to Elaine; perhaps everyone does.
-- Does no-one talk because they were recruited by Hazel Smith years before?
+- Does no-one talk because they were recruited by Hazel Smith years before and are therefore implicated?
 
 ### The running girl
 
