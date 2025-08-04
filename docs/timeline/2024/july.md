@@ -47,9 +47,10 @@
 - It's meant to destabilize me.
 - I shake his hand.
 - We talk.
-- I explain to her what the people at the conservatory did in brief.
+- I explain to her what the people at the conservatory did, in brief.
 - When I mention someone dressing up as Elaine Black at the concert in March, Zoe looks alarmed, but doesn't follow up.
 - I believe Zoe knows exactly what happened to Elaine; perhaps everyone does.
+- Does no-one talk because they were recruited by Hazel Smith years before?
 
 ### The running girl
 

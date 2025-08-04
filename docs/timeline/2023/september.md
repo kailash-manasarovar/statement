@@ -84,7 +84,7 @@ function googleTranslateElementInit() {
 - So, although I was safer in some respects, I was in more danger in others.
 - Some of my new followers have [profile pics of the faces of teachers and staff](../../crimes/protagonists.md) at the conservatory of Dénia.
 - From this moment onwards, the English language of the stalker accounts becomes fluent, native, and vernacular. 
-- In retrospect, I'm convinced this is when [Hazel Smith](../early-years/2007.md#hazel-smith), her family, the wider British gang membership, and her local English-speaking associates, such as [Patricia and Christine](../2022/november.md#walking-in-benijembla-with-the-english-ladies), step in.
+- In retrospect, I'm convinced this is when [Hazel Smith](../early-years/2006.md#hazel-smith), her family, the wider British gang membership, and her local English-speaking associates, such as [Patricia and Christine](../2022/november.md#walking-in-benijembla-with-the-english-ladies), step in.
 - I guess many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
 - In September 2023, however, I have no idea Hazel and Sandra Smith are involved, and have been involved in the story since [2006](../early-years/2006.md#september). This key to the story starts to come out in a rather curious way about a month later.
 - At the time, I believe the wild interest on my *tweet-for-help* and the sudden 1000s of followers I gained were mostly genuine. 
@@ -797,7 +797,7 @@ function googleTranslateElementInit() {
 
 - I notice from now on that whatever conversations I have during the day, and with whomsoever, are *played back to me* on social media with fake accounts and targeted posts.
 - It becomes so commonplace, I only mention it to anyone when it's egregious.
-- I could be wrong, but I have often wondered if Alex and John's landlady is Hazel Smith and the flat they live in now might be [rather familiar to me](../early-years/2007.md#hazel-smith).
+- I could be wrong, but I have often wondered if Alex and John's landlady is Hazel Smith and the flat they live in now might be [rather familiar to me](../early-years/2006.md#hazel-smith).
 - I wonder now if his *friends* will come in under the pretense of doing some work and set up the houses he has keys for with spy-cams. It seems likely.
 
 ## Meeting Christine

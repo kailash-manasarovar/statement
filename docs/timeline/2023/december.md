@@ -51,7 +51,7 @@ function googleTranslateElementInit() {
 - I wonder if they wheeled the Valencia-based trumpet teacher out because I found the Dénia version so utterly abhorrent, and [I had *fallen in love* with the Valencia-based version](march.md#dreaming-of-the-trumpet-teacher), and so they needed to remind me of those feelings to retrigger the emotions and keep me hooked in?
 - Could teachers and staff at the conservatory of Dénia be this sick in the head?
 - Have they been doing the same to countless minors for decades?
-- Was the Dénia version of the trumpet teacher [Paco Sendra](../early-years/2007.md#hazel-smith), Hazel Smith's right-hand-man?
+- Was the Dénia version of the trumpet teacher [Paco Sendra](../early-years/2006.md#hazel-smith), Hazel Smith's right-hand-man?
 - Let's hope Paco does not play the trumpet, and that Antonio is an Aries.
 
 ## Muscle-men outside the tunnel

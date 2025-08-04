@@ -226,7 +226,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ## Hazel and Sandra Smith
 
-- Mentioned in [early days content](../timeline/early-years/2007.md#hazel-smith).
+- Mentioned in [early days content](../timeline/early-years/2006.md#hazel-smith).
 
     !!! info
         - Details of the Channel 4 documentary featuring these two coming up soon.
