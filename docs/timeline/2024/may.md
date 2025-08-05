@@ -166,7 +166,7 @@
 
 - I seem to have "bumping into" episodes every day; *meaningfully* set up events and situations, or literally bumping into people meaningfully.
 - I complain to my manager about it - the American CTO who replaced David Z. (name incoming) - referencing an earlier complaint I had made to him.
-- Gabriel Silva, nothing to do with the writing team at that point, mentions how he is going to be sorting out the docs using other people who are not on the writing team. 
+- Gabriel Silva, nothing to do with the writing team at that point, mentions how he is going to be sorting out the docs (my work) using other people who are not on the writing team. 
 - It's a military coup; and that's exactly how I describe it to my manager.
 - The bullying continues over the following month where another employee, on Gabriel's orders, tries to pretend my systems are unusable, but he can't really and he just looks stupid. It's all in the Git records.
 - The implication, however, is that I am incompetent. And mud sticks.
