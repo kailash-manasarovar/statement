@@ -185,7 +185,8 @@
 - On the first morning of sessions, I'm stressed and anxious as people have been making sly comments to me continuously.
 - Everyone has left the hall, and I see an Indian-looking fellow grinning at me.
 - He walks over.
-- He has long hair and big grinning white teeth. He looks like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life). No exaggeration. 
+- He has long black hair and enormous grinning white teeth. 
+- He looks like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life). No exaggeration. 
 - In July 2025, I wonder whether he was supposed to look like Jitendra Das!
 - He tells me he's from Rochdale, Yorkshire; Pakistani rape-gang territory.
 - He grins at me constantly.
@@ -194,7 +195,7 @@
 
 [![Sexual violence threats at dinner](../../content/images/sexual-violence-at-dinner.png)](https://x.com/1FRGVN/status/1790392972057747804)
 
-- While this guy, Aziv Abad (maybe his name, probably not), a Rust engineer who had started the job that week was talking to us, his chatter was so disordered he reminded me of Nadim Kabosi.
+- While this guy, Aziv Abad (maybe his name, probably not), a Rust engineer who had started the job that week was talking to us, his chatter was so disordered he reminded me of [Nadim Kobesi](../2023/november.md#polygon).
 - Was this sexually threatening man another actor, just like Nadim was.
 - Were they both hired to terrorize me, and for no other reason?
 - I remember saying to Anthony that night that the man had Nadim energy.
