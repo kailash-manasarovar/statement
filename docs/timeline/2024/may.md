@@ -164,16 +164,39 @@
 
 ![Bali](../../content/images/bali.png)
 
-- Gabriel Silva mentions how he is going to be sorting out the docs using other people who are not on the writing team. 
+- I seem to have "bumping into" episodes every day.
+- Gabriel Silva, nothing to do with the writing team at that point, mentions how he is going to be sorting out the docs using other people who are not on the writing team. 
 - The bullying continues over the following month where another employee, on his orders, tries to pretend my systems are unusable, but he can't really and he just looks stupid.
 - The implication, however, is that I am incompetent. And mud sticks.
 - This has been Gabriel's outward view of me since January after hearing from Grace about my women's rights activities, and why, I assume, he stopped giving me any work at that time.
-- I remain high and euphoric. I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
+- However, there is another explanation to all this, which is Polygon Spanish employees know exactly what is going on for me in Denia, and are involved somehow.
+- I believe this is why I was [re-programmed into feeling extraordinarily sexually aroused by the gypsies](april.md#the-trumpet-teacher-in-denia).
+- I remain high and euphoric throughout May and in Bali also.
+- Is my hotel room set up with spy-cams?
+- I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
 - I am unusually sexually aroused the whole time I am in Bali.
-- I am targeted by a British Pakistani man who makes violent sexual threats to me over dinner.
-- I'm wondering if this guy was another actor-type, like Nadim.
+
+### The Pakistani Yorkshireman
+
+- On the first morning of sessions, I'm stressed and anxious as people have been making sly comments to me.
+- Everyone has left the hall, and I see an Indian-looking fellow grinning at me.
+- He walks over.
+- He has long hair and big grinning white teeth. He looks like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life). No exaggeration. 
+- In July 2025, I wonder about this.
+- He tells me he's from Rochdale; Pakistani rape-gang territory.
+- He grins at me constantly.
+- At dinner, he makes violent sexual threats towards me.
+- I tweet about it.
+
+[![Sexual violence threats at dinner](../2023/november.md#polygon)](https://x.com/1FRGVN/status/1790392972057747804)
+
+- While this guy, Aziv Abad (maybe his name, probably not), a Rust engineer who had started the job that week was talking to us, his chatter was so disordered he reminded me of Nadim Kabosi.
+- Was this sexually threatening man another actor, just like Nadim was.
+- Were they both hired to terrorize me, and for no other reason?
 - I remember saying to Anthony that night that the man had Nadim energy.
 - He behaved extremely strangely and menacingly towards me.
+- I wonder who he really is, and how much Polygon management paid him, and if I'm on some sort of destroy-the-woman porn soap opera somewhere?
+- It seems more and more likely doesn't it. 
 
 ## Lourdes
 
