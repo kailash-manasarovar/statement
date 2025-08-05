@@ -164,7 +164,7 @@
 
 ![Bali](../../content/images/bali.png)
 
-- I seem to have "bumping into" episodes every day; meaning set up events or situations, or literally walking around and bumping into people meaningfully.
+- I seem to have "bumping into" episodes every day; *meaningfully* set up events and situations, or literally bumping into people meaningfully.
 - I complain to my manager about it; referencing an earlier complaint I had made to him.
 - Gabriel Silva, nothing to do with the writing team at that point, mentions how he is going to be sorting out the docs using other people who are not on the writing team. 
 - It's a military coup; and that's exactly how I describe it to my manager.
