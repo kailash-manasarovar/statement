@@ -174,7 +174,7 @@
 
 ## Damning updates
 
-- I write a number of damning updates such as [Alessandra's fake illness](../early-years/2009.md#alessandra-gets-sick) and [Elaine's daughter's online grooming](../early-years/2013.md#elaines-trans-child).
+- I write a number of damning updates such as [Alessandra's fake illness](../early-years/2009.md#alessandra-gets-sick) and [Lorraine's daughter's online grooming](../early-years/2013.md#lorraines-trans-child).
 - An account follows me immediately afterwards.
 - Note they are even able to manipulate the date of the follow to two days previous.
 

@@ -285,7 +285,7 @@ function googleTranslateElementInit() {
 
 [![Who the hell are you people](../../content/tweets/september-23-comms/who-the-hell-are-you-people.png)](https://x.com/1FRGVN/status/1707672863283556809)
 
-- I posted a video of this in the [2008](../early-years/2008.md#working-for-elaine-black) section.
+- I posted a video of this in the [2008](../early-years/2008.md#working-for-lorraine-blackbourn) section.
 
 <center><iframe src="https://www.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2Fjack.chardwood.3%2Fvideos%2F1686361321869766%2F&show_text=false&width=560&t=0" width="560" height="314" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe></center>
 
@@ -538,7 +538,7 @@ function googleTranslateElementInit() {
 - One day I smiled at her and she got really scared, really quickly, and I knew.
 - These two were at the [piano concert](../2024/march.md#tuesday-12th-march) at the Casa de Cultura on 12th March 2024.
 - They sat right behind me.
-- The woman dressed up as [Lorraine Blackbourn](../2021/july.md#elaine-black) in the most [outrageous and vicious psychological attack](../2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) that I experienced at the hands of teachers and staff from the conservatory of Dénia.
+- The woman dressed up as [Lorraine Blackbourn](../2021/july.md#lorraine-blackbourn) in the most [outrageous and vicious psychological attack](../2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) that I experienced at the hands of teachers and staff from the conservatory of Dénia.
 
 ### Rape-gang reminders
 
@@ -597,7 +597,7 @@ function googleTranslateElementInit() {
 - He always said he didn't want to and I always thought it was such a shame.
 - Perhaps everyone knows what they're like.
 - On Facebook, there's a lovely picture of [Joe as a baby with his dummy in](https://www.facebook.com/photo/?fbid=10200343206052070&set=ecnf.1512218809) that everyone has seen.
-- The references to Elaine during the cyber-attacks and gang-stalking are constant, as if she is always on their minds and not in a good way.
+- The references to Lorraine during the cyber-attacks and gang-stalking are constant, as if she is always on their minds and not in a good way.
 
 !!! tip "Crypto is not that anonymous"
     - It is easy to uncover the owners of these meme coins.

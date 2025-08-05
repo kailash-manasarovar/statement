@@ -269,7 +269,7 @@
 - She has done a really good job of it too. 
 - I gasp.
 - At precisely that moment, my security camera at home goes off and sounds an alarm on my phone. I don't have time to look.
-- The woman dressed as Elaine (who I now believe to be Carmen Cano, Domingo's sister) and a man sit directly behind me, in seats that have been saved for them.
+- The woman dressed as Lorraine (who I now believe to be Carmen Cano, Domingo's sister) and a man sit directly behind me, in seats that have been saved for them.
 - Patricia, Christine BJ, and another English woman have come to listen. They maybe know what's going on, it's not clear. Certainly there is a frosty feeling, and when we walk out and I insist I'm going to continue playing the piano, and play some Spanish flamenco at the next concert, Patricia visibly grimaces.
 - When I get home that night, I check my camera security camera. 
 
@@ -556,24 +556,24 @@
 
 ![Ana Girbes](../../content/images/fake-accounts/ani-lovi/ana-3.png)
 
-### Elaine threats 
+### Lorraine threats 
 
 - Another account appeared to be a trigger to remind me of Lorraine Blackbourn who had hung herself in July 2021 in Dénia. 
 - This account had been following me since January but the threat level ramped up in March.
 
-![Elaine](../../content/images/threats/lorraine/lorraine%20account.png)
-![Elaine](../../content/images/threats/lorraine/lorraine-2.png)
+![Lorraine](../../content/images/threats/lorraine/lorraine%20account.png)
+![Lorraine](../../content/images/threats/lorraine/lorraine-2.png)
 
 - I thought `@kiwipally` was also a stalker account as they were very active at this time.
 
-![Elaine](../../content/images/threats/lorraine/lorraine%20again.png)
-![Elaine](../../content/images/threats/lorraine/lorraine-5.png)
-![Elaine](../../content/images/threats/lorraine/lorraine-4.png)
-![Elaine](../../content/images/threats/lorraine/lorraine-3.png)
+![Lorraine](../../content/images/threats/lorraine/lorraine%20again.png)
+![Lorraine](../../content/images/threats/lorraine/lorraine-5.png)
+![Lorraine](../../content/images/threats/lorraine/lorraine-4.png)
+![Lorraine](../../content/images/threats/lorraine/lorraine-3.png)
 
 - The account no longer exists.
 
-![Elaine](../../content/images/threats/lorraine/lorraine-6.png)
+![Lorraine](../../content/images/threats/lorraine/lorraine-6.png)
 
 ## 19th March
 

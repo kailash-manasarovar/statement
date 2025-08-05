@@ -51,7 +51,7 @@
 - Zoe tells me about her younger daughter who is doing very well by all accounts. She says nothing about the older daughter, and I sense a shadow.
 - I explain to her what the people at the conservatory did, in brief because she is not asking for more information, and she is not interested at all in the way she normally would be in a story like this.
 - When I mention someone dressing up as Lorraine Blackbourn at the piano concert in March, Zoe looks alarmed, but doesn't follow up.
-- I believe Zoe knows exactly what happened to Elaine; perhaps everyone does.
+- I believe Zoe knows exactly what happened to Lorraine; perhaps everyone does.
 - Does no-one talk because they were recruited by Hazel Smith years before and are therefore implicated?
 
 ### The running girl
