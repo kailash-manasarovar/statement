@@ -200,8 +200,9 @@
 - Were they both hired to terrorize me, and for no other reason?
 - I remember saying to Anthony that night that the man had Nadim energy.
 - He behaved extremely strangely and menacingly towards me.
-- I wonder who he really is, and how much Polygon management paid him, and if I'm on some sort of destroy-the-woman porn soap opera somewhere?
+- I wonder who he really is, and how much Polygon management paid him, and if I'm on some sort of destroy-the-woman porn soap-opera somewhere?
 - It seems more and more likely doesn't it. 
+- Do they do the same to the kids now?
 
 ## Lourdes
 
