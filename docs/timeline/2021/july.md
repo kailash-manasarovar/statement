@@ -38,12 +38,12 @@ function googleTranslateElementInit() {
 - During my trip, I meet Christine for lunch a couple of times. She tells me her views on trans ideology and I quietly agree. 
 - I share with her that I am a child sexual abuse survivor of a grooming gang. I also tell her that I probably would be trans and removing my breasts, womb, and ovaries had I been born 30 years later.
 - I tell Christine I have been suffering from a debilitating depression after reporting child sexual abuse to the Met Police in 2016.
-- I also tell Christine that Elaine Black just committed suicide. 
+- I also tell Christine that Lorraine Blackbourn just committed suicide. 
 - She pretends not to know.
 
 ### Elaine Black 
 
-- [Elaine Black](../early-years/2008.md#working-for-elaine-black) killed herself the week I visited and her funeral was on or around the day I arrived. 
+- [Lorraine Blackbourn](../early-years/2008.md#working-for-elaine-black) killed herself the week I visited and her funeral was on or around the day I arrived. 
 - A few days after that, I was coming back from the Las Marinas beach towards the Daniya hotel where I was staying.
 - As I crossed the road in front of the [Katmandu Indian restaurant](https://www.google.com/maps/place/KATHMANDU+RESTAURANT./@38.8473292,0.0998328,17z/data=!4m14!1m7!3m6!1s0x129e1b1eab713bef:0xb942b79aaf5ee018!2sRestaurante+Rani+Palace!8m2!3d38.8463516!4d0.1075146!16s%2Fg%2F11cmfs1pyt!3m5!1s0x129e1b117d23e84d:0x99265dc6a93775f6!8m2!3d38.8489761!4d0.0971108!16s%2Fg%2F12cp73vx8?entry=ttu&g_ep=EgoyMDI1MDcwOS4wIKXMDSoASAFQAw%3D%3D), I saw an old friend, Caroline, sitting at a table-for-two on her own, right in front of the entrance.
 - She looked devastated.

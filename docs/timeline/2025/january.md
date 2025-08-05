@@ -13,7 +13,7 @@
 
 ## Trumpet teacher
 
-- I now believe the trumpet teacher's name is Paco Sendra, the married man [Hazel Smith told she was having an affair with](../early-years/2006.md#hazel-smith) back in 2007.
+- I now believe the trumpet teacher's name is Paco Sendra, the married man [Hazel Smith told she was having an affair with](../early-years/2007.md#hazel-smith) back in 2007.
 
 !!! tip "Correction"
     - Paco Sendra is most likely not the man's name as this is the name of a famous footballer. Possibly Hazel Smith would not have known that at the time.

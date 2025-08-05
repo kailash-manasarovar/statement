@@ -275,7 +275,7 @@ function googleTranslateElementInit() {
 ![Poisoned 2](../../content/tweets/october-2023/poisoned-2.png)
 
 - I say three hours here, but it was much more. I wasn't able to get into bed until the sun had come up which would have been around 8am in November.
-- Compare the above with [my experience in 2007](../early-years/2006.md#hazel-smith).
+- Compare the above with [my experience in 2007](../early-years/2007.md#hazel-smith).
 
 ## Rocio Vidal
 

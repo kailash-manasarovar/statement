@@ -131,4 +131,4 @@ function googleTranslateElementInit() {
 
 ![Effigy](../../content/images/threats/effigy-2.png)
 
-- This feels extremely sinister, especially considering Elaine Black hung herself.
+- This feels extremely sinister, especially considering Lorraine Blackbourn hung herself.

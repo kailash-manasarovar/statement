@@ -68,7 +68,7 @@ function googleTranslateElementInit() {
     - The man continued to give me *that look* in the first few classes.
     - His behavior certainly did trigger memories of pedophile rape-gang members Winston M and his associates for many months, and I even related all this to a friend verbatim in September 2023, but curiously and ironically this triggering activity would end up being extraordinarily healing for me, a gift from God even.
     - I believe it is highly likely that this man, teachers and staff at the conservatory, and all their criminal associates, perhaps even the English ladies, had seen me starring, sedated, in pedophile rape porn from 1989. 
-    - Of course, after reading my police statement they will have found the clips on the dark net, maybe even reached out to the perpetrators. Perhaps they had all this information back [in 2007](../early-years/2006.md#hazel-smith). 
+    - Of course, after reading my police statement they will have found the clips on the dark net, maybe even reached out to the perpetrators. Perhaps they had all this information back [in 2007](../early-years/2007.md#hazel-smith). 
     - This malicious psychological triggering activity using words, phrases, and behaviors I had described in my statement went on throughout the terror in Dénia and was even meted out to me by teachers and staff at the conservatory sometimes while I was in class.
     - They certainly had enough detailed information about my personal experience of child sexual abuse by North London rape gangs for terrorizing me, and I can only assume their goal was my total destruction by nervous breakdown or suicide.
     - For the regular people of Dénia, perhaps that would be enough. Maybe they had bets on how things would end for me.

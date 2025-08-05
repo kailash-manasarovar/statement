@@ -20,7 +20,7 @@ function googleTranslateElementInit() {
 
 - On one Saturday, I bump into an old friend I hadn't seen in years while walking along Las Rotas, Zoe Braganza Jones.
 - She is with her Liverpudlian friend Marie.
-- Zoe tells me about Elaine Black's suicide.
+- Zoe tells me about Lorraine Blackbourn's suicide.
 - I'm devastated.
 - I had no idea my every move was being tracked at that time, but now it seems sensible to assume that meeting, like every meeting I had, was set up by Hazel Smith and the Cano family.
 - I recall seeing her, in another finely tuned choreographic moment, in 2014 while I'm [waiting for Domingo in the car outside my apartment in Joan Fuster](../early-years/2014.md#trip-to-london).

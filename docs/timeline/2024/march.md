@@ -262,7 +262,7 @@
 - Before we begin, people are coming in to listen. Many of them look at me and smile.
 - I recognize a couple as [two people I saw on the beach](../2023/september.md#dog-tags-and-his-missus) following me and part of the group of people making sexual noises the September previous.
 - At 7.30, the concert begins.
-- At that moment, the lights go down, and the door to the hall opens, and in walks a woman who has dressed to look exactly like Elaine Black, my friend who committed suicide.
+- At that moment, the lights go down, and the door to the hall opens, and in walks a woman who has dressed to look exactly like Lorraine Blackbourn, my friend who committed suicide.
 
 ![The most evil people in Denia by far](../../content/images/lorraine-at-the-piano-concert.png)
 
@@ -356,7 +356,7 @@
 ### The dose ramps up
 
 - Given that I was not fearful after the ridiculous piano concert on the 12th, and went to choir on the 13th, it seems reasonable to suppose I was relatively unaffected by this choreographed terror, perhaps I was getting used to it.
-- However, the link to Elaine Black was extremely sinister and got to me.
+- However, the link to Lorraine Blackbourn was extremely sinister and got to me.
 - Eventually, I text and tweet to everyone that I would never commit suicide and, if I turn up dead and it looks like I did, it's suspicious: https://x.com/1FRGVN/status/1768046490272870687.
 - The following morning I am severely anxious. I'm bumping my head on things. I have to go to town. I am terrorized the whole way in and out. I feel horrendous.
 - I believe I was on serious drugs and poison at this point that they were putting in the water.
@@ -558,7 +558,7 @@
 
 ### Elaine threats 
 
-- Another account appeared to be a trigger to remind me of Elaine Black who had hung herself in July 2021 in Dénia. 
+- Another account appeared to be a trigger to remind me of Lorraine Blackbourn who had hung herself in July 2021 in Dénia. 
 - This account had been following me since January but the threat level ramped up in March.
 
 ![Elaine](../../content/images/threats/lorraine/lorraine%20account.png)
