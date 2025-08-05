@@ -194,7 +194,7 @@
 - At dinner, he makes violent sexual threats towards me.
 - I tweet about it.
 
-[![Sexual violence threats at dinner](../2023/november.md#polygon)](https://x.com/1FRGVN/status/1790392972057747804)
+[![Sexual violence threats at dinner](../../content/images/sexual-violence-at-dinner.png)](https://x.com/1FRGVN/status/1790392972057747804)
 
 - While this guy, Aziv Abad (maybe his name, probably not), a Rust engineer who had started the job that week was talking to us, his chatter was so disordered he reminded me of Nadim Kabosi.
 - Was this sexually threatening man another actor, just like Nadim was.
