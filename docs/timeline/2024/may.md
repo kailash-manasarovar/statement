@@ -177,6 +177,9 @@
 - I remain high and euphoric and extraordinarily sexually aroused throughout May, and especially in Bali.
 - Is my hotel room set up with spy-cams?
 - I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
+- Curiously, the film I watch on the plane is [The Sound of Freedom](https://en.wikipedia.org/wiki/Sound_of_Freedom_(film)); a true story about child sex trafficking, and more curiously a pic that came up on the `@jctot19` search around December 2023 time.
+- I find the whole thing very significant, obviously.
+- Even more so because the protagonist's wife is Katherine and they have 9 children.
 - I am unusually sexually aroused the whole time I am in Bali.
 
 ### The Pakistani Yorkshireman
