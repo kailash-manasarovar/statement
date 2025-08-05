@@ -178,9 +178,8 @@
 - Is my hotel room set up with spy-cams?
 - I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
 - Curiously, the film I watch on the plane is [The Sound of Freedom](https://en.wikipedia.org/wiki/Sound_of_Freedom_(film)); a true story about child sex trafficking, and more curiously the film's picture came up as a result on my `@jctot19 x` searches around December 2023.
-- I find the whole thing very significant, obviously, and am 100% convinced the person I'm talking to on Signal is the trumpet teacher.
-- Even more so because the protagonist's wife in the film is called Katherine and they have 9 children!
-- Silly girl aren't I :D
+- I find the whole thing very significant, obviously, and I am 100% convinced the person I'm talking to on Signal is the trumpet teacher.
+- Perhaps it is.
 
 ### The Pakistani Yorkshireman
 
