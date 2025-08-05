@@ -121,6 +121,9 @@
 - "No, no, it couldn't be you. We heard this woman was unstable", she says, "like a victim of domestic violence".
 - I remain flabbergasted.
 - A woman interrogates me about what happened at lunch but my Spanish is so poor I can barely describe it.
+- What I don't know is that I'm being drugged so I'm not at all clear about what's going on, and when I think about the trumpet teacher I get giggly because of the triggered sexual arousal.
+- Later, in January 2025, someone posts me a picture of the woman who was organizing the Spanish feminists at this event as the face in the Sphinx.
+- I take this to mean the woman has gitano connections and was told to discredit me whatever way she could; and she could not refuse the request.
 
 ## Telegram/Signal
 
