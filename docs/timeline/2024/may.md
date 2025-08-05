@@ -179,9 +179,8 @@
 - I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
 - Curiously, the film I watch on the plane is [The Sound of Freedom](https://en.wikipedia.org/wiki/Sound_of_Freedom_(film)); a true story about child sex trafficking, and more curiously the film's picture came up as a result on my `@jctot19 x` searches around December 2023.
 - I find the whole thing very significant, obviously, and I am 100% convinced the person I'm talking to on Signal is the trumpet teacher.
-- Perhaps it is.
 
-### The Pakistani Yorkshireman
+### The Pakistani Yorkshire-man
 
 - On the first morning of sessions, I'm stressed and anxious as people have been making sly comments to me continuously.
 - Everyone has left the hall, and I see an Indian-looking fellow grinning at me.
