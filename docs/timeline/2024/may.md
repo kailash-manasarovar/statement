@@ -168,7 +168,7 @@
 - I complain to my manager about it; referencing an earlier complaint I had made to him.
 - Gabriel Silva, nothing to do with the writing team at that point, mentions how he is going to be sorting out the docs using other people who are not on the writing team. 
 - It's a military coup; and that's exactly how I describe it to my manager.
-- The bullying continues over the following month where another employee, on Gabriel's orders, tries to pretend my systems are unusable, but he can't really and he just looks stupid.
+- The bullying continues over the following month where another employee, on Gabriel's orders, tries to pretend my systems are unusable, but he can't really and he just looks stupid. It's all in the Git records.
 - The implication, however, is that I am incompetent. And mud sticks.
 - This has been Gabriel's outward view of me since January after hearing from Grace about my women's rights activities, and why, I assume, he stopped giving me any work at that time.
 - However, there is something much more sinister going on at Polygon.
