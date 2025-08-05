@@ -12,6 +12,7 @@ function googleTranslateElementInit() {
 
 - I'm staying in Cauterets, a small town near Lourdes in the Pyrenees.
 - It's close to the high mountains and I go for long hikes whenever I can.
+- From the town, you can see a mountain with some finger-like shapes pointing to the sky.
 - When I'm back in my room I start to think about the rave music from 1989, and I listen to it on YouTube.
 - I tweet about curious events during this time.
 - On one trip particular trip early in the month, a crow is unusually vocal. Some might say this was a warning.
