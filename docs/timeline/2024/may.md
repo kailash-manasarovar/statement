@@ -164,7 +164,7 @@
 
 ![Bali](../../content/images/bali.png)
 
-- I seem to have "bumping into" episodes every day.
+- I seem to have "bumping into" episodes every day; meaning set up events or situations, or literally walking around and bumping into people meaningfully.
 - Gabriel Silva, nothing to do with the writing team at that point, mentions how he is going to be sorting out the docs using other people who are not on the writing team. 
 - The bullying continues over the following month where another employee, on his orders, tries to pretend my systems are unusable, but he can't really and he just looks stupid.
 - The implication, however, is that I am incompetent. And mud sticks.
