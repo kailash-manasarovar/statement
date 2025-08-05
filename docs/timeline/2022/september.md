@@ -146,7 +146,22 @@ function googleTranslateElementInit() {
 - This class is where I accompany a soloist.
 - I have been designated a trumpet student: Pablo, a 14 year old boy.
 - There is no teacher assigned to this class in September.
-- There will be no teacher assigned to this class until the end of November. This is extremely unusual as the Generalitat has an over abundance of music teachers available at all times.
+- There will be no teacher assigned to this class until the end of November. 
+- This is extremely unusual as the Generalitat has an over abundance of music teachers available at all times.
+
+#### My Favorite Things
+
+- Nevertheless, I come in every Monday evening to practice accompanying an invisible soloist.
+- I had thought Pablo might come in anyway, but he didn't.
+- I was a little obsessed with John Coltraine's *My Favorite Things*.
+
+[![My Favorite Things by John Coltrane](../../content/images/favorite-things.jpg)](https://youtu.be/rqpriUFsMQQ)
+
+- I had been listening to it in the mountains, along with all the rave music.
+- The piano part is exceptional and I've always wanted to play it.
+- I download the music and study it.
+- I didn't have to transpose it for trumpet.
+- I find this curious now for reasons I won't go into.
 
 ## Domingo's little group of youngsters
 
