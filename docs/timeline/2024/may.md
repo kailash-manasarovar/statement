@@ -183,12 +183,12 @@
 
 ### The Pakistani Yorkshireman
 
-- On the first morning of sessions, I'm stressed and anxious as people have been making sly comments to me.
+- On the first morning of sessions, I'm stressed and anxious as people have been making sly comments to me continuously.
 - Everyone has left the hall, and I see an Indian-looking fellow grinning at me.
 - He walks over.
 - He has long hair and big grinning white teeth. He looks like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life). No exaggeration. 
-- In July 2025, I wonder about this.
-- He tells me he's from Rochdale; Pakistani rape-gang territory.
+- In July 2025, I wonder whether he was supposed to look like Jitendra Das!
+- He tells me he's from Rochdale, Yorkshire; Pakistani rape-gang territory.
 - He grins at me constantly.
 - At dinner, he makes violent sexual threats towards me.
 - I tweet about it.
