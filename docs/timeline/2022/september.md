@@ -153,15 +153,15 @@ function googleTranslateElementInit() {
 
 - Nevertheless, I come in every Monday evening to practice accompanying an invisible soloist.
 - I had thought Pablo might come in anyway, but he didn't.
-- I was a little obsessed with John Coltraine's *My Favorite Things*.
+- At that time, I was obsessed with John Coltrane's *My Favorite Things*.
 
 [![My Favorite Things by John Coltrane](../../content/images/favorite-things.jpg)](https://youtu.be/rqpriUFsMQQ)
 
 - I had been listening to it in the mountains, along with all the rave music.
 - The piano part is exceptional and I've always wanted to play it.
 - I download the music and study it.
-- I didn't have to transpose it for trumpet.
-- I find this curious now for reasons I won't go into.
+- I didn't have to transpose the trumpet part when I downloaded it for us to play in January or February 2023, which is curious perhaps.
+- As I'm writing this in August 2025, I look back and find my obsession with this piece even more curious, for reasons I won't go into.
 
 ## Domingo's little group of youngsters
 
