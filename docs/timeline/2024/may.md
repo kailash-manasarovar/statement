@@ -188,7 +188,8 @@
 - He has long black hair and enormous grinning white teeth. 
 - He looks like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life). No exaggeration. 
 - In July 2025, I wonder whether he was supposed to look like Jitendra Das!
-- He tells me he's from Rochdale, Yorkshire; Pakistani rape-gang territory.
+- He tells me he's Pakistani, from Rochdale, Yorkshire; rape-gang territory.
+- His Oxford-English accent says otherwise.
 - He grins at me constantly.
 - At dinner, he makes violent sexual threats towards me.
 - I tweet about it.
