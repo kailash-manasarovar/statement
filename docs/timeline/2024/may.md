@@ -165,13 +165,16 @@
 ![Bali](../../content/images/bali.png)
 
 - I seem to have "bumping into" episodes every day; meaning set up events or situations, or literally walking around and bumping into people meaningfully.
+- I complain to my manager about it; referencing an earlier complaint I had made to him.
 - Gabriel Silva, nothing to do with the writing team at that point, mentions how he is going to be sorting out the docs using other people who are not on the writing team. 
-- The bullying continues over the following month where another employee, on his orders, tries to pretend my systems are unusable, but he can't really and he just looks stupid.
+- It's a military coup; and that's exactly how I describe it to my manager.
+- The bullying continues over the following month where another employee, on Gabriel's orders, tries to pretend my systems are unusable, but he can't really and he just looks stupid.
 - The implication, however, is that I am incompetent. And mud sticks.
 - This has been Gabriel's outward view of me since January after hearing from Grace about my women's rights activities, and why, I assume, he stopped giving me any work at that time.
-- However, there is another explanation to all this, which is Polygon Spanish employees know exactly what is going on for me in Denia, and are involved somehow.
-- I believe this is why I was [re-programmed into feeling extraordinarily sexually aroused by the gypsies](april.md#the-trumpet-teacher-in-denia).
-- I remain high and euphoric throughout May and in Bali also.
+- However, there is something much more sinister going on at Polygon.
+- Polygon Spanish male founders and developers know exactly what is going on for me in Denia, and are involved in the conspiracy; at least from 12th June 2023 when whatever was supposed to happen didn't, but possibly before.
+- I believe this is why I was [re-programmed into feeling extraordinarily sexually aroused by the gypsies](april.md#the-trumpet-teacher-in-denia) just before traveling to Bali.
+- I remain high and euphoric and extraordinarily sexually aroused throughout May, and especially in Bali.
 - Is my hotel room set up with spy-cams?
 - I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
 - I am unusually sexually aroused the whole time I am in Bali.
