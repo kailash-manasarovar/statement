@@ -172,7 +172,7 @@
 - The implication, however, is that I am incompetent. And mud sticks.
 - This has been Gabriel's outward view of me since January after hearing from Grace about my women's rights activities, and why, I assume, he stopped giving me any work at that time.
 - However, there is something much more sinister going on at Polygon.
-- Polygon Spanish male founders and developers know exactly what is going on for me in Denia, and are involved in the conspiracy; at least from 12th June 2023 when whatever was supposed to happen didn't, but possibly before.
+- Polygon Spanish male founders and developers know exactly what is going on for me in Denia, and are involved in the conspiracy; at least from [12th June 2023](../2023/june.md#monday-12th-june-2023) when whatever was supposed to happen didn't, but possibly before.
 - I believe this is why I was [re-programmed into feeling extraordinarily sexually aroused by the gypsies](april.md#the-trumpet-teacher-in-denia) just before traveling to Bali.
 - I remain high and euphoric and extraordinarily sexually aroused throughout May, and especially in Bali.
 - Is my hotel room set up with spy-cams?
