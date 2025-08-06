@@ -94,6 +94,16 @@
     - Running for election at the UK General Election in July 2024 for the Party of women was a game changer for me, quite possibly a life saving act.
     - In one of the first messages in our long communication from July and over August, the hacker said "well I wasn't expecting that" with regards to it.
 
+#### My friend from Madrid
+
+- Curiously, my friend from Madrid is there and she records my speech on her phone. I have a copy.
+- She brings her 14-year-old nephew, who she tells me has ADHD.
+- He does seem a little high; he just grins a lot and keeps falling asleep.
+- The thing is, she had a 5-year-old nephew in 2006, the year I met her.
+- She told me she had visited London with him at that time.
+- This boy is supposed to be the same nephew, but he's 10 years too young!
+- I find it suspicious.
+
 ### Volunteers not what they seem
 
 !!! danger "Volunteer list"

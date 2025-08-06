@@ -463,6 +463,7 @@ function googleTranslateElementInit() {
 - Is it possible [I'm being filmed also](#hotel-room-cyber-stalker)?
 - I believe now, at the time of writing, that I am communicating directly with Hazel Smith via the [Matthew account](#chat-with-the-american-matthew).
 - I visit a dear friend in Madrid and tell her everything that’s been going on to the extent that I understand it at the time.
+- I ask her if she remembered [me telling her about the trumpet teacher the year before](../2022/december.md#madrid)? She says no.
 - I tell her I'm communicating with the trumpet teacher via X DMs, and that I have a boyfriend or soon will have one.
 - I ask her about Spanish men, what they're like, what a Spanish music teacher might be like, that sort of thing.
 - Looking back, I see that everything I'm thinking about this man has zero basis in reality.
@@ -483,6 +484,8 @@ function googleTranslateElementInit() {
 ![Food poisoning translations](../../content/tweets/december-2023/food-poisoning-translations.png)
 
 - My friend was not affected by anything and we ate and drank exactly the same things.
+- Could she have had something to do with it?
+- If my friend was a government spy, could she have been asked to make me sick, to shut down what was going on online?
 - As I trawl through the tweets I posted around this time, I notice I am posting information about everything that is happening to me.
 
 [![Metro cleaning team](../../content/tweets/december-2023/metro-cleaning-team.png)](https://x.com/1FRGVN/status/1740728445917663701)
@@ -490,8 +493,10 @@ function googleTranslateElementInit() {
 - I have to wonder if someone wanted to shut things down because it was getting so crazy.
 - I wonder how many hundreds or thousands of people were watching everything I was doing at that time.
 - Did someone take the decision to shut it all down and somehow poison me for that reason?
+- If so, was it gitano poisoning gangs, or Spanish security services knowing full well what's going on and needing to yet again brush it under the carpet?
 - I'm pretty sure that the wide extent of the stalking and the amount of people involved means that I should have vast numbers of corroborators perhaps sick to death of their lives being controlled by corrupt officials and criminal gangs.
-- Cynically, however, I wonder who they're targeting now, and whether this adult or child will be driven to a nervous breakdown, or persuaded to commit suicide, or end up as the living-dead in porn like so many others.
+- Cynically, however, I wonder who they're targeting now, and if these adults or children will be driven to a nervous breakdown, or persuaded to commit suicide, or end up as the living-dead in porn like so many others.
+- I wonder how many young women, some boys undoubtedly, children and babies could have been saved if something had been done when the alarm was first raised.
 
 ### Hotel room cyber stalker
 

@@ -126,3 +126,24 @@ function googleTranslateElementInit() {
 - It is highly likely many people knew *exactly* what was going on, and did attempt to warn me in December 2022.
 - Unfortunately, or fortunately, my mind was not able to comprehend in any way the evil I was about to experience in Dénia so the warnings went by unheeded.
 - Still, others *were* looking too, and enjoying the view. For later. And that is somewhat comforting to me now in June 2025.
+
+## Madrid
+
+- I stay in Madrid for a few days on the way home as my Thai flight lands there.
+- I meet an old, old friend I haven't seen for nearly 10-years.
+- I think the last time I saw her was in Madrid at Christmas 2014.
+- I remember telling her about Domingo the piano teacher and how awful it all was at that time.
+- I ask her does she remember me telling her about all that? She says no.
+- We met on a healing retreat in 2005 which was ostensibly about accessing hidden memories of sexual trauma and male violence against women and children.
+- The leader of the retreat was a man called Sat Santokh. 
+- He had been the roadie for the Grateful Dead at one stage and took the boys to Woodstock.
+- Since then, he had turned into a Sikh by following a guru from India we won't talk about.
+- He was quite a character.
+- Anyway, at that time I had no recollection about serial and sedated sexual assaults and certainly no idea I had been gang raped multiple times.
+- I remembered one instance of rape, with one person, but I knew something more had happened and I was trying to find out what it was.
+- That's why I was on the retreat at that time.
+- It didn't work but I didn't give up and tried something else instead until I accessed one memory of gang rape.
+- Anyway, back to Madrid in 2022.
+- My friend starts telling me about how her sister has been stalked online by flying monkeys.
+- I don't really know what she's talking about.
+- I tell her about the trumpet teacher.

@@ -411,12 +411,15 @@
 - I tell them I believe that Domingo and his family are planning to murder me.
 - I remind them of what he told me all those years ago, the threat of poisoning, something that I had told them at that time.
 - While I'm in Madrid I reformat to factory settings both my Mac and iPhone. It doesn't appear to make any difference at all.
+- I contact my friend I saw at [Christmas 2022](../2022/december.md#madrid) and [Christmas 2023](../2023/december.md#madrid).
+- I tell her that I'm experiencing the hostile cyber-stalking flying-monkey attacks that she told me her sister was experiencing too, and I tell her what teachers and staff at the conservatory have done also.
+- She advises we go to the police the following morning.
 
 ## 15th March
 
 ### Reporting the matter to the police in Madrid
 
-- With the help of a friend I make a proper denuncia to the police in Madrid.
+- With the help of my friend I make a proper denuncia to the police in Madrid.
 - The report goes well, although I am finding it very difficult to think straight, and my friend's translations and the consequent additions to the denuncia documents are not quite right.
 
     - [Denuncia page 1](../../content/documents/evidence/Madrid%201.JPG).
