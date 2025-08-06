@@ -334,7 +334,7 @@ function googleTranslateElementInit() {
 - I ask for help from my managers. 
 - I am ignored.
 - The other team member, Anthony Matlala, sides with Hans once he sees I'm getting no support from my managers.
-- At an offsite in Bali in May, I am threatened with sexual violence from a Rust engineer who has started that week. He has clearly been told to target me. Anthony is at the dinner table when this happens.
+- At an [offsite in Bali in May, I am threatened with sexual violence from an "apparent" Rust engineer](../2024/may.md#the-pakistani-yorkshire-man) who has started that week. He has clearly been told to target me. Anthony is at the dinner table when this happens.
 
 ![Pakistani threats at dinner](../../content/images/pakistani-man-threatens-woman.png)
 
