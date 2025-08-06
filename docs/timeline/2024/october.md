@@ -217,6 +217,7 @@
 - I hug her and thank her, and I don't expect to see or hear from her again.
 - Over the next few weeks, accounts fly by with names like "bogus government official", and similar.
 - They know.
+- When I see my friend again, she tells me Paloma thinks we are both in danger.
 
 ## Serious poisoning with intent to harm or kill
 
