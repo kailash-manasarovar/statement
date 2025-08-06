@@ -779,7 +779,7 @@ function googleTranslateElementInit() {
 - If the conspiracy reaches all the way into the Polygon job I start on 1st November 2023, the job that has been suggested at since a "David Ruiz", apparent Polygon employee, wanted to interview me in August 2023, then this "chance" meeting deserves another look too.
 - It also suggests I am not only being targeted as a rape-gang survivor and because I'm all over the child rape-gang porn networks, but also for my political views against child abuse and the obliteration of women's rights.
 - This seems to be a fair assumption if we're talking about a vast and international criminal network of misogynist porn gangs.
-- I wonder if there was a Polygon event on in Valencia that the boys neglected to mention to me.
+- I wonder if there was a Polygon event on in Valencia the night before that the boys neglected to mention they had attended.
 
 ## Alex and Paul
 
