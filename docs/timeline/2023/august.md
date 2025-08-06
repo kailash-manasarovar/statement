@@ -371,7 +371,7 @@ function googleTranslateElementInit() {
 
 [![Linux box requirements](../../content/tweets/august-comms/jackchardwood/morning-after-the-big-reveal.png)](https://x.com/JackChardwood/status/1696073754462265427)
 
-- Around this time, I was head-hunted by a company called Torus looking for a technical writer. I'm convinced it's part of the attack and explain this to the head-hunter. The manager is Spanish, from Valencia, and had worked for Polygon. I detail this in a [following section](#head-hunted). The web3 comment is related to this. 
+- Around this time, I was head-hunted by a company called Torus looking for a technical writer. I'm convinced it's part of the attack and explain this to the head-hunter. The manager is Spanish, from Valencia, and had worked for Polygon. I detail this in a [following section](#head-hunted-by-ex-polygon-director). The web3 comment is related to this. 
 
 [![Head hunted](../../content/tweets/august-comms/jackchardwood/head-hunted.png)](https://x.com/JackChardwood/status/1696840825412407430)
 
@@ -449,7 +449,7 @@ function googleTranslateElementInit() {
 - There's some suggestion that criminal gangs had managed to access my belongings in Lourdes and Cauterets too.
 - Nevertheless, it felt real, and so I gave it to God for His purposes, and since July or August 2023, I have not experienced any suicidal depression at all. It's totally cured.
 
-## Head hunted
+## Head hunted by ex-Polygon director
 
 - Throughout August I'm looking for a new role.
 - I'm head hunted for a start-up called Torus who had a one-page website promising an upcoming release. 
