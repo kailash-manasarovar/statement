@@ -764,7 +764,7 @@ function googleTranslateElementInit() {
 - We take public transport because I do not have a legal driving license since [being grassed up by the conservatory, and stopped by the traffic police](july.md#stopped-by-the-traffic-police).
 - On the way home, a British man sits next to me.
 - He's from Yorkshire.
-- His two friends sit behind me.
+- His two friends sit behind us.
 - They're giggling and snickering.
 - As they get onboard, I can see them from my left peripheral looking at me and whispering.
 - The young man starts up a conversation.
