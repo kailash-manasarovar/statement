@@ -765,8 +765,8 @@ function googleTranslateElementInit() {
 - On the way home, a British man sits next to me.
 - He's from Yorkshire.
 - His two friends sit behind me.
-- They're all giggling and snickering.
-- As they get onboard, I can see them from my left peripheral looking at me and talking about me.
+- They're giggling and snickering.
+- As they get onboard, I can see them from my left peripheral looking at me and whispering.
 - The young man starts up a conversation.
 - It turns out he has been making money running a Polygon node.
 - We talk a little bit about this.
