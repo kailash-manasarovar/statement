@@ -770,7 +770,8 @@ function googleTranslateElementInit() {
 - The young man starts up a conversation.
 - It turns out he has been making money running a Polygon node.
 - We talk a little bit about this.
-- They're getting off at Altea and they have been in Valencia on the piss the night before.
+- They're getting off at Altea.
+- He tells me they were in Valencia on the piss the night before, and it was *crazy*.
 - I tweet about the meeting because he said something funny to me.
 
 [![Nowt as queer as folk](../../content/tweets/september-23-comms/nowt-as-queer-as-folk.png)](https://x.com/1FRGVN/status/1705653717742096512)
