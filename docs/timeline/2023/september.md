@@ -758,6 +758,28 @@ function googleTranslateElementInit() {
 - It feels like a snub, an insult.
 - She is supposed to be my piano teacher this year but she's obviously too good to stoop to say hello to the porn-gang's latest victim.
 
+### Polygon node operators on the bus home
+
+- I accompany my friend to Valencia airport when he's leaving.
+- We take public transport because I do not have a legal driving license since [being grassed up by the conservatory, and stopped by the traffic police](july.md#stopped-by-the-traffic-police).
+- On the way home, a British man sits next to me.
+- He's from Yorkshire.
+- His two friends sit behind me.
+- They're all giggling and snickering.
+- As they get onboard, I can see them from my left peripheral looking at me and talking about me.
+- The young man starts up a conversation.
+- It turns out he has been making money running a Polygon node.
+- We talk a little bit about this.
+- They're getting off at Altea and they have been in Valencia on the piss the night before.
+- I tweet about the meeting because he said something funny to me.
+
+[![Nowt as queer as folk](../../content/tweets/september-23-comms/nowt-as-queer-as-folk.png)](https://x.com/1FRGVN/status/1705653717742096512)
+
+- If the conspiracy reaches all the way into the Polygon job I start on 1st November 2023, the job that has been suggested at since a "David Ruiz", apparent Polygon employee, wanted to interview me in August 2023, then this "chance" meeting deserves another look too.
+- It also suggests I am not only being targeted as a rape-gang survivor and because I'm all over the child rape-gang porn networks, but also for my political views against child abuse and the obliteration of women's rights.
+- This seems to be a fair assumption if we're talking about a vast and international criminal network of misogynist porn gangs.
+- I wonder if there was a Polygon event on in Valencia that the boys neglected to mention to me.
+
 ## Alex and Paul
 
 - I knock on Paul's door in the old town to say hello. He's an old friend from Dénia. 
