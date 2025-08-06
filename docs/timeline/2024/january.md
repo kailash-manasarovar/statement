@@ -283,6 +283,8 @@ function googleTranslateElementInit() {
 
 ![TT therapy with the author](../../content/images/attending-therapy.PNG)
 
+- In 2025, I donate the therapy table to Steve Terrell's work in Jerusalem, Israel; and that's where it is today.
+
 ## Boots from Ireland
 
 - I buy some expensive boots at [Brown Thomas](https://www.brownthomas.com/) in Galway.
