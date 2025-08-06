@@ -157,6 +157,12 @@
 - When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back. Nothing works.
 - When I arrive in Fatima the following evening, even though my iPhone camera is blocked, I get notifications on fake accounts of items in my hotel room. Of course, only the camera facing me is blocked, not the one looking out.
 
+### Madrid
+
+- I see [my friend](../2024/march.md#madrid) again and explain how much danger I am in.
+- She tells me she knows someone who can help me; a lady who works for the Spanish foreign office in London.
+- My friend says she can visit Madrid the following week as I'm passing through on my way home and talk to her.
+
 ## The router malfunctions while I'm in Fatima
 
 - On Tuesday 22nd October around 11am, my router at home malfunctions.
@@ -191,6 +197,26 @@
 - I see a young Spanish couple lying down together.
 - I know it is a hotel room as the furniture is sparse and the hotel style is very familiar to me.
 - I'll see if I can dig this up.
+
+## Madrid and Paloma
+
+- My friend and I meet Paloma; she has flown in from London where she works at the Spanish foreign office or similar.
+- There is a lot of talk about how secure her phone is, and how it can pick up any sort of hacking interference and shutdown the whole network in a building.
+- Paloma doesn't really listen to me when I speak, she talks directly to my friend.
+- She doesn't seem to be interested in what I have to say at all, until one moment when I mention that the trumpet teacher's daughters might be threatened with kidnap if he didn't do what they say.
+- At that moment, her eyes light up and she says, oh we can do something with that.
+- I'm dismayed.
+- A woman can go through years of hell and no-one cares, and the minute a man, someone essentially involved in creating this hell for me is in trouble, they'll spring into action.
+- It feels like rampant misogyny.
+- Paloma then says my story sounds like devil worship.
+- I'm even more dismayed. I know what this means.
+- I know she's not going to help me and she will be looking at covering it all up first and foremost.
+- She does say, it sounds like a chaos doesn't it, to my friend.
+- She advises I write a timeline down.
+- She tells me she can help me, maybe get Interpol involved.
+- I hug her and thank her, and I don't expect to see or hear from her again.
+- Over the next few weeks, accounts fly by with names like "bogus government official", and similar.
+- They know.
 
 ## Serious poisoning with intent to harm or kill
 
