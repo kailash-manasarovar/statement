@@ -43,13 +43,19 @@
 - I'm met by a male clinician who talks to me in an extremely strange way, like he's acting.
 - He speaks in a low voice, hurriedly, and repeats himself over and over.
 - He tells me that it doesn't matter, we're not going to do the in-depth tests, we don't need to dilate my eyes or look closely inside.
+- I say I was expecting to have the full investigation like in Bangkok, and the letter told me to expect that.
+- He tells me he doesn't understand why the letter says this, it shouldn't have said this, he says something silly about things never getting updated and giggles.
+- I'm surprised by all this, including his behavior.
+- It's tiring having to think the worst of everyone all the time, and I don't want to do that, so I assume everything's OK with what they're going to test.
 - Another man takes me through the series of tests.
-- There's something going on. These two men are a bit snickery and giggly, something's happening that they're not telling me about that's important I should know.
-- They remind me of countless situations I've been in over the last few years where people seem to know more about me than I do, and none of it's good.
+- There's something going on though.
+- These two men are a bit snickery and giggly with each other, like they're winking and grinning at me.
+- Something's happening that they're not telling me about, and it's important I should know.
+- They remind me of countless situations I've been in over the last few years where people seem to know more about me than I do, and none of it is good.
 - Have they seen the porn I'm in? The snickering would suggest so.
-- When I do the peripheral test, I notice I hardly see any dots in the left peripheral.
+- When I do the peripheral test, I notice I can hardly see any dots in the left peripheral.
 - They don't dilate and investigate further.
-- When I get the results, a few weeks later, they say I'm fine, but they make a point of saying my angles are indeed narrow.
+- When I get the results, a few weeks later, they say I'm fine and I don't need any further investigation; but they do make a point of saying my angles are indeed narrow.
 
 ## Conservatory news
 
