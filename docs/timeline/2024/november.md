@@ -164,3 +164,23 @@
 - If so, he will be there for one reason only, to sexually groom minors.
 
 ![blocked from accessing webpage](../../content/images/blocked-from-accessing-page.png)
+
+## Pre-glaucoma eye condition
+
+- On 28th November, I have an eye examination at Rutnin Eye Hospital in Bangkok.
+- My eyes have been red and blurry for weeks, and it's very difficult to focus. 
+- They diagnose me with a pre-glaucoma condition which is very serious.
+- I could go blind suddenly and very quickly.
+- I'm told if I get any signs that my angles are closing, I need to go to A&E immediately and [my PACS medical certificate](../../content/documents/health/medical-certificate-PACS.JPG) will get me to the front of the queue.
+- I'm horrified. 
+- It's a sudden onset eye-condition coming directly from poisoning.
+- I'm guessing methanol.
+- I immediately replace all my bathroom products, skin care, everything.
+- Symptoms decrease immediately.
+- I realize what was behind the [unusually high eye pressure reported by Alain Afflelou](../../personal/health.md#eyes) the opticians in Ondara when I moved back to Denia in 2022, something I had never suffered from previously.
+- I'm beginning to realize I have been being drugged and poisoned from the moment I moved back to Spain in February 2022.
+- It looks like I was lured back to that apartment specifically for sinister and criminal purposes.
+- The scale and duration of the conspiracy is mind-blowing.
+- What could be so interesting about me to put so much time, effort, and resources into doing me serious harm? 
+- None of it made any sense.
+

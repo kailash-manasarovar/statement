@@ -35,6 +35,22 @@
 - And why did they sit right beside us instead of in one of the more private areas elsewhere?
 - Are they trying to make deals?
 
+## Moorfields Eye Hospital
+
+- Given I've had a diagnosis of pre-glaucoma from [Rutnin Eye Hospital in Bangkok](../2024/november.md#pre-glaucoma-eye-condition), I need the same in the UK so it's on my NHS record.
+- I arrange an appointment at Moorfields in Brent Cross.
+- Something weird is going on at the appointment.
+- I'm met by a male clinician who talks to me in an extremely strange way, like he's acting.
+- He speaks in a low voice, hurriedly, and repeats himself over and over.
+- He tells me that it doesn't matter, we're not going to do the in-depth tests, we don't need to dilate my eyes or look closely inside.
+- Another man takes me through the series of tests.
+- There's something going on. These two men are a bit snickery and giggly, something's happening that they're not telling me about that's important I should know.
+- They remind me of countless situations I've been in over the last few years where people seem to know more about me than I do, and none of it's good.
+- Have they seen the porn I'm in? The snickering would suggest so.
+- When I do the peripheral test, I notice I hardly see any dots in the left peripheral.
+- They don't dilate and investigate further.
+- When I get the results, a few weeks later, they say I'm fine, but they make a point of saying my angles are indeed narrow.
+
 ## Conservatory news
 
 - On [Dénia.com](https://www.denia.com/wp-content/uploads/2025/03/firmas-recogidas-para-un-nuevo-conservatorio-de-musica-en-denia-scaled.jpg) there is a report on a petition raised regarding a new building for the conservatory.

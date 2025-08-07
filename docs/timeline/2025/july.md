@@ -131,6 +131,27 @@
 
 - By my current inability to walk uphill, it appears they went for my heart this time around, and I certainly saw a couple of fake accounts flying by with names or messages containing the words; "finger injections", i.e. injecting digitalis into my bathroom products or water.
 
+#### Moorfields
+
+- I write to Moorfields extremely concerned about the sudden onset vision loss in my left peripheral.
+- I'm walking in the mountains, like I do every year, and I simply can't see things on the left side.
+- Even the right side is different than before.
+- When I compare my sight to a year before in September when I was doing the same thing, it's obvious my eyes have suffered some serious harm.
+- I believe this eye problem comes from [poisoning in my apartment by my neighbors at Carrer Furs, and Carmen Cano and her associates in October 2024](../2024/october.md#serious-poisoning-with-intent-to-harm-or-kill).
+- I mention the [appointment with Moorfields in March](march.md#moorfields-eye-hospital) and that I felt unconvinced by the results.
+- I mention the [diagnosis at Rutnin from November 2024](../2024/november.md#pre-glaucoma-eye-condition).
+- They are giving me the run around; they can't find my files now.
+- Does the global spy-cam porn conspiracy extend so far that even the British government are prepared to cover up the systematic targeting of women and children for porn and worse for decades in Spain?
+- Do they think that, perhaps, once society is totally immoral no-one will care anyway and they won't have to worry about ignoring 1000s of complaints, probably [Lorraine Blackbourn's too](../2021/july.md#lorraine-blackbourn).
+- Is the conspiracy wrapped up in the [medical-transitioning of children](../early-years/2013.md#lorraines-trans-child) scandal too?
+- Is this why whenever I desperately tried to get help from the UK embassy or foreign office, they ignored me, even put the phone down on me?
+- Is this why the [Metropolitan Police](../2025/january.md#i-call-the-police) might as well have told me I'm an idiot, knowing full well I'm a rape-gang survivor?
+- Is this why Spanish gangs feel 100% completely safe, and will only get worse and worse, if it's possible to get any worse, because they know they are protected at the highest level?
+- They must know it can't go on forever.
+- Will I simply end up dead in suspicious circumstances, like Lorraine, like everyone else who complains?
+- My heart says I will survive even this.
+- I hope so, we've lots to get through and the world is insane in very dangerous ways now.
+
 ## More threats
 
 - I also see threatening pics on my mobile device which remind me very much of [the violent threats I received on X in March 2024](../2024/march.md#twitter-screenshots).
