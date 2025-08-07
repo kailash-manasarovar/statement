@@ -319,10 +319,13 @@ function googleTranslateElementInit() {
 - From that moment, his demeanor towards me changes.
 - He starts to bully me outrageously.
 - It is so bad, he is fired about two weeks later, but not before he has spread the word around the business, including to my boss and managers I have to work with very closely, that I am a *transphobe*.
-- When I spoke to engineers on the team about him later on, they couldn't believe the guy had got the job. They said he was totally ineffective and impossible to work with and any work he had done they couldn't believe he had done it it was so poor quality, as if he had no idea what he was doing.
+- About a week before he gets fired, Grace insists I go on a trip to Barcelona with her and Nadim at the weekend. It's out of the blue and feels like bullying.
+- I wonder what their intention was for the trip to Barcelona.
+- Did Nadim find something out he didn't like at all, and got out of there?
+- When I spoke to engineers on the team about him later on, they couldn't believe the guy had got the job. They said he was totally ineffective and impossible to work with and any work he had done they couldn't believe he had done it, it was so poor quality, as if he had no idea what he was doing.
 - He did, however, have root level access to all systems for the short time he was on the engineering team.
 - I look him up on Google and find out he is a trained actor with a bachelor's degree from the [National Institute of Dramatic Art](https://www.nida.edu.au/) in Sydney, graduated in 2010, and has been in a number of films. 
-- It seems he could be a spy.
+- It seems he was a spy.
 - I wonder how much damage he was able to do in the engineering department in such a short space of time. The tech failed and faltered again and again in early 2024.
 - He certainly added a lot of malicious code to our backend set up which broke our SEO for months before we could figure it out.
 - In any case, from the moment I gave Nadim my Twitter account details, everything changed for me at Polygon. My boss Grace starts to treat me badly. I am no longer given work by Gabriel Silva who I am supposed to be working with closely. 
