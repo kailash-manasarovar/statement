@@ -151,7 +151,7 @@
 - They must know it can't go on forever.
 - Will I simply end up dead in suspicious circumstances, like Lorraine, like everyone else who complains?
 - My heart says I will survive even this.
-- I hope so, we've lots to get through and the world is insane in very dangerous ways now.
+- I hope so, we've lots to get through and the world is insane in very dangerous ways now and something has to change.
 
 ## More threats
 
