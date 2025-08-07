@@ -367,12 +367,14 @@ function googleTranslateElementInit() {
 - Being targeted at my job for being "transphobic" on top of being targeted by criminal gangs of Dénia is really too much for one person to cope with without any support at all.
 - And yet, I'm still here.
 
-!!! danger "Could Nadim have been yet another porn-gang spy?"
-    - I wonder a bit about Nadim now.
+!!! danger "Could Nadim and Aziv have been yet more porn-gang spies?"
+    - I wonder a bit about Nadim and Aziv now.
     - It's easy to get paranoid when you're an international child rape-gang porn star of over 40 years and never knew it till very recently.
     - I did think he was an industrial spy, but maybe it's even more twisted.
     - Could Nadim have been set up to specifically get me the job, which made me a lot of money for future honey-trappers, and then cause me enough trouble to cause me to leave?
     - If so, then that implies a conspirator within the managers or even the founders at Polygon, specifically the Spanish ones.
+    - Was the Aziv sexual threat just more fun for them?
+    - I wonder what they might tell the police if questioned.
 
 ### Interview with Polygon
 
