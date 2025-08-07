@@ -146,7 +146,8 @@
 - Is the conspiracy wrapped up in the [medical-transitioning of children](../early-years/2013.md#lorraines-trans-child) scandal too?
 - Is this why whenever I desperately tried to get help from the UK embassy or foreign office, they ignored me, even put the phone down on me?
 - Is this why the [Metropolitan Police](../2025/january.md#i-call-the-police) might as well have told me I'm an idiot, knowing full well I'm a rape-gang survivor?
-- Is this why Spanish gangs feel 100% completely safe, and will only get worse and worse, if it's possible to get any worse, because they know they are protected at the highest level?
+- Is this why Spanish gangs feel 100% completely safe, and don't even care about leaving an evidential trail that a cat could follow?
+- Do they know they are protected at the highest level?
 - They must know it can't go on forever.
 - Will I simply end up dead in suspicious circumstances, like Lorraine, like everyone else who complains?
 - My heart says I will survive even this.
