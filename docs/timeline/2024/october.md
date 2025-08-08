@@ -214,8 +214,9 @@
 - She does say, it sounds like a chaos doesn't it, to my friend.
 - She advises I write a timeline down.
 - She tells me she can help me, maybe get Interpol involved.
-- I hug her and thank her, and I don't expect to see or hear from her again.
-- Over the next few weeks, accounts fly by with names like "bogus government official", and similar.
+- She says once we have the information, then we can help [Irene](august.md#irene-the-plate-lady) and the other targeted women.
+- I hug her and thank her, but I don't expect to see or hear from her again.
+- Over the next few weeks, accounts fly by with names like "dubious government official", and similar.
 - They know.
 - When I see my friend again, she tells me Paloma thinks we are both in danger.
 
