@@ -5,7 +5,7 @@
 - The mountains give me time to reflect and get my head straight.
 - They whisper their secrets, as usual.
 
-[![Hey Baby]()](https://www.youtube.com/watch?v=OJXQ7BBH594)
+[![Hey Baby New Rising Sun](../../content/images/hey-baby.webp)](https://www.youtube.com/watch?v=OJXQ7BBH594)
 
 - My health is a shadow of what it was last year due to the poisoning but I'm still here so I'm grateful.
 - I continue to notice my peripheral [eyesight deterioration](july.md#moorfields). 
@@ -27,6 +27,6 @@
 - But no, I think it was something more insidious.
 - I tweet about it.
 
-![]()
+[![Sandra and the hack job](../../content/tweets/august-2025/sally-and-the-hack-job.png)](https://x.com/1FRGVN/status/1953541700179161328)
 
 - A message flies by "Oh we know what it was, we know, we know!"
