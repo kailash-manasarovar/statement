@@ -203,12 +203,18 @@
 - My friend and I meet Paloma; she has flown in from London where she works at the Spanish foreign office or similar.
 - There is a lot of talk about how secure her phone is, and how it can pick up any sort of hacking interference and shutdown the whole network in a building.
 - Paloma doesn't really listen to me when I speak, she talks directly to my friend.
-- She doesn't seem to be interested in what I have to say at all, until one moment when I mention that the trumpet teacher's daughters might be threatened with kidnap if he didn't do what they say.
+- I tell her about Irene, about Rocio Vidal, about the hundreds of other women.
+- I have to push to be heard.
+- She doesn't seem to be interested in what I have to say, until one moment when I mention that the trumpet teacher's daughters might be threatened with kidnap if he didn't do what they say.
 - At that moment, her eyes light up and she says, oh we can do something with that.
 - I'm dismayed.
 - A woman can go through years of hell and no-one cares, and the minute a man, someone essentially involved in creating this hell for me is in trouble, they'll spring into action.
 - It feels like rampant misogyny.
-- Paloma then says my story sounds like devil worship.
+- She looks at her phone and says, oh, yes, Rocio Vidal was hacked.
+- I then tell her about Hazel and Sandra Smith and how I have known who and what they are since 2006, about how they've been free to target the ex-pat elderly, and how they targeted me at that time.
+- My friend remembers me mentioning them in 2007. I had told her that I have seen British criminals in the Marina Alta, Las Marinas to be precise.
+- I tell her about the [innocent lady groomed into porn](august.md#photos-of-abused-women-and-girls) and the [sedated woman in the car](september.md#another-upsetting-targeted-woman), and the many pictures I received that I believe are targeted women, including a picture of one of Domingo's students.
+- Paloma looks briefly at my friend and says my story sounds like devil worship.
 - I'm even more dismayed. I know what this means.
 - I know she's not going to help me and she will be looking at covering it all up first and foremost.
 - She does say, it sounds like a chaos doesn't it, to my friend.
