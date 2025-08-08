@@ -205,7 +205,7 @@
 - I'm stunned.
 - I believe I have enough evidence to share and I feel it's my responsibility to help these abused women.
 
-## Time to write to people
+## The letters
 
 - Given my laptop is fully accessed by hackers, I write, painstakingly by hand, a letter to my friend explaining everything that's happened.
 
