@@ -6,7 +6,7 @@
 - I am highly sexually aroused and I think about the trumpet teacher constantly.
 - When I'm scheduled to be away from my room, I see young "gypsy-looking" men dressed in black with pale skin and black hair, (techs), entering my hotel building and going to the elevator I just got out of with a look of intent in their eyes.
 - I'm suspicious of them. They've timed it so I see them.
-- I see Rocio Vidal in the cafe with a bunch of Spanish men. They ensure she stands up so I see her as I pass.
+- I see [Rocio Vidal](../2023/october.md#rocio-vidal) in the cafe with a bunch of Spanish men. They ensure she stands up so I see her as I pass.
 - My "friend" [Sandra Rita Diaz](../early-years/2014.md#sandra-rita-diaz), a woman who signed up to serve Mary at the baths with the Hospitalite of Lourdes in 2014 and was in my intake group, visits my room for five minutes and uses my bathroom.
 - I have always had my suspicions but something's not right with Sandra. 
 - She is constantly talking about the old women she sings with in the choir; in particular one woman, Mireille, who is apparently evil, *everyone says so*, giggle.
