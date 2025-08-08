@@ -31,12 +31,13 @@
 - I told her I'd tell her in 20 years.
 - She asks again and again.
 - I repeat my answer and say nothing more.
-- She asks to use the toilet again on the way home.
+- She asks to use my toilet again on the way home.
 - When we're in my room, I show her one of the letters.
 - She reads a bit and then she says, in her giggly naive voice, "are you starting studies again at the conservatory when you get back?"
 - I am AMAZED! 
 - I shout, "Are you insane?"
 - She keeps her head down and doesn't say anything.
+- After about a minute, she says softly, no I am not insane.
 - The next day she is upset with me, different, anxious.
 
 ### The hairdresser
