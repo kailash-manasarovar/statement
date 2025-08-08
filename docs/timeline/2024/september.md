@@ -46,6 +46,7 @@
 - I ask if Sandra wouldn't mind explaining to the hairdresser what I need to have done because my French is so appalling.
 - She does, but I see Sandra telling the woman something else too, in low tones.
 - I wonder what it was.
+- Whatever it was [rears its ugly head](../2025/august.md#haircut) in August 2025.
 
 ## Who Is This?
 
