@@ -30,3 +30,4 @@
 [![Sandra and the hack job](../../content/tweets/august-2025/sally-and-the-hack-job.png)](https://x.com/1FRGVN/status/1953541700179161328)
 
 - A message flies by "Oh we know what it was, we know, we know!"
+- It makes me wonder about the November 2024 hack-job in Bangkok, which curiously ended up being one of the best haircuts I ever had.

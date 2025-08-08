@@ -58,7 +58,10 @@ function googleTranslateElementInit() {
 - It was a Wednesday, or thereabouts, in late July.
 - In the dream, there was a meeting, downstairs, in the living room of the house.
 - Countless people had been invited and were arriving. The room was packed.
-- They were double parking in the road and on the drive.
+- They were double parking in the road and on the drive outside.
+
+![Glastonbury dreaming](../../content/images/glastonbury-dreaming.png)
+
 - I looked out of the window of my bedroom and saw them walking up the garden path to the front door, to enter and assemble.
 - The purpose of the meeting was to discuss, and plan, how they were going to murder me.
 - It was horrifying and I was extremely troubled by it.
