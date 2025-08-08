@@ -15,7 +15,7 @@
 - She constantly talks about devil worship at Lourdes.
 - She talks about the magic spells her family does on people.
 - She visits Cauterets for a few days and spends a lot of time with me. I didn't ask her to come.
-- I tell her about the trumpet teacher, how I'm still hopelessly in love with him, that he's the love of my life, that I don't care if he did gay porn, and how I'm still being terrorized by Domingo's family and others in Denia.
+- I tell her about the trumpet teacher, how I'm still hopelessly in love with him, that he's the love of my life, that I don't care if he did gay porn, he must have been groomed and coerced if not outright blackmailed, and how I'm still being terrorized by Domingo's family and others in Denia.
 - I tell her about [Irene](august.md#irene-the-plate-lady) and [the handwritten letters](august.md#the-letters).
 
 ### The Royalty
