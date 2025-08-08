@@ -208,7 +208,7 @@
 - She doesn't seem to be interested in what I have to say, until one moment when I mention that the trumpet teacher's daughters might be threatened with kidnap if he didn't do what they say.
 - At that moment, her eyes light up and she says, oh we can do something with that.
 - I'm dismayed.
-- A woman can go through years of hell and no-one cares, and the minute a man, someone essentially involved in creating this hell for me is in trouble, they'll spring into action.
+- A woman can go through years of hell and no-one cares, and the minute a man, someone essentially involved in creating this hell is in trouble, they'll spring into action.
 - It feels like rampant misogyny.
 - She looks at her phone and says, oh, yes, Rocio Vidal was hacked.
 - I then tell her about Hazel and Sandra Smith and how I have known who and what they are since 2006, about how they've been free to target the ex-pat elderly, and how they targeted me at that time.
