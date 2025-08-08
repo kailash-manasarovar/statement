@@ -212,7 +212,7 @@
 - It feels like rampant misogyny.
 - She looks at her phone and says, oh, yes, Rocio Vidal was hacked.
 - I then tell her about Hazel and Sandra Smith and how I have known who and what they are since 2006, about how they've been free to target the ex-pat elderly, and how they targeted me at that time.
-- My friend remembers me mentioning them in 2007. I had told her that I have seen British criminals in the Marina Alta, Las Marinas to be precise.
+- My friend remembers me mentioning them in 2007. I told her that I had seen British criminals in the Marina Alta, Las Marinas to be precise.
 - I tell her about the [innocent lady groomed into porn](august.md#photos-of-abused-women-and-girls) and the [sedated woman in the car](september.md#another-upsetting-targeted-woman), and the many pictures I received that I believe are targeted women, including [a picture of one of Domingo's students](../2023/october.md#choir) Elsa.
 - Paloma looks briefly at my friend and says my story sounds like devil worship.
 - I'm even more dismayed. I know what this means.
