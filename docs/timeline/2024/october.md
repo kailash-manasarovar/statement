@@ -256,6 +256,22 @@
 
 - That day, Friday 1st November, in the afternoon, I'm certain I see Carmen Cano and the woman I have seen going in and out of number 18 leaving the building together. They smile at me as I walk by.
 
+## Challenging Sandra Rita Diaz
+
+- I have a WhatsApp chat with Sandra.
+- I explain to her I was sacked and she starts writing a genuine and rather horrible curse on the man who sacked me; I have to tell her to calm down.
+- I'm suddenly sure she's fully involved.
+- Her words sound exactly like Carmen Cano is talking to me; the words of an evil person.
+- I tell her what I think.
+- She says, no Katharine, I am your friend.
+- I say no, you're involved aren't you Sandra.
+- You work for the police. 
+- No, no, I don't work for the police, she says. I don't know why she would deny her actual job is working for the police.
+- Yes, you do.
+- You kept "popping" up, I say. You have a boyfriend at the border between Spain and Portugal.
+- I say, yes, you're involved, aren't you.
+- I never hear from her again.
+
 ## Nota simple from the neighbors flats
 
 - I'm trying to figure out how they're poisoning me.
