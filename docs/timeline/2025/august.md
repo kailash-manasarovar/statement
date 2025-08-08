@@ -21,7 +21,7 @@
 - I go for my regular haircut with the exceptionally good hairdressers here in Cauterets.
 - I wonder if [whatever Sandra told them](../2024/september.md#the-hairdresser) the year before will be *in the air*.
 - It is.
-- The hairdresser gives me a hack-job and appears to be angry with me.
+- The male hairdresser gives me a hack-job and appears to be angry with me.
 - I'm amazed.
 - I was wondering if maybe Sandra was so sure I'd never return, she told them I was terminally sick or something like that.
 - But no, I think it was something more insidious.
