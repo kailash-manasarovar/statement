@@ -76,7 +76,7 @@ function googleTranslateElementInit() {
 ### Adjusting a child's rucksack
 
 - On [Tuesday 12th March 2024](../timeline/2024/march.md#tuesday-12th-march) I see Domingo adjusting a very small child's rucksack on the stairs going into the conservatory.
-- He has his hands on the straps and he is helping the child of about 5 adjust them.
+- He has his hands on the straps and he is helping the child of about 5-years-old, possibly younger, adjust them.
 - He puts his hands on the child's shoulders, neck, head, and arms.
 - As his hands are on the child's shoulders, neck, and head, Domingo looks meaningfully at me.
 - I expect he was demonstrating to me at that moment how he drugs children.
