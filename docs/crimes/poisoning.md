@@ -16,6 +16,7 @@ function googleTranslateElementInit() {
 - Poison or drug application in a setting in which the target is together with the poisoner for a length of time is easier and can be done with dissolving skin patches. I suspect this is probably how a teacher might poison a student especially a child.
 - The following situations are events in which I was poisoned or drugged in Denia and the distraction techniques I noticed.
 - Regarding drugging at the conservatory, it seems extraordinarily reckless to be administering drugs and poisons to targets in the presence of minor children who may accidentally ingest some.
+- I guess that's a testament to how little respect these people have for human life.
 
 ### A small beautiful child
 
