@@ -342,6 +342,8 @@
 - I text Christine BJ, Alessandra, Brenda, and Sarah Lebanon to say that I would never commit suicide and I think whatever happened to Lorraine is happening to me.
 - Online stalker activity is relentless.
 - One of the fake accounts posts something like: "leave her, she's had enough now", and I felt an enormous upset. 
+- For some reason, I thought Maria my old piano teacher posted this statement.
+- It sounded like her voice; I know this doesn't make sense.
 - I believe this statement is audible in one of the rape porn films taken from 1989, probably when I was sedated, which was likely quite violent.
 - Did something similar happen to me that night sedated in my apartment?
 - I wonder what the special was on Denia TV.
