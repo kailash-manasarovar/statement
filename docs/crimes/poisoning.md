@@ -13,7 +13,7 @@ function googleTranslateElementInit() {
 - Apart from being drugged and poisoned in my own home - criminals coming into apply poison whenever I was out, or regular poisoning via the water mains and air vents - I was also targeted in public.
 - A poisoner operating in a public place, like a school or the street, will use a distraction technique on the target before applying the poison in powder form to available skin; behind the ear, on the arm, back of the neck, etc. 
 - Care must be take regarding the hairstyle of the person (mine was very short at the time) and whether it covers the ears, and what the person is wearing.
-- Poison or drug application in a setting in which the target is together with the poisoner for a length of time is easier and can be done with dissolving skin patches. I suspect this is probably how a teacher might poison a student especially a child.
+- Poison or drug application in a setting in which the target is together with the poisoner for a length of time is easier and can be done with dissolving skin patches. I suspect this is probably how a teacher might poison a student, especially a child.
 - The following situations are events in which I was poisoned or drugged in Denia and the distraction techniques I noticed.
 - Regarding drugging at the conservatory, it seems extraordinarily reckless to be administering drugs and poisons to targets in the presence of minor children who may accidentally ingest some.
 - I guess that's a testament to how little respect these people have for human life.
