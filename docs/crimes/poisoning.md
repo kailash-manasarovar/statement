@@ -44,7 +44,7 @@ function googleTranslateElementInit() {
 - I remember being euphoric and highly sexually aroused in other classes, like choir for example.
 - It's not clear for what purpose they would drug me in other classes unless they were simply keeping me high continually while I had yet to foil their evil plans.
 - I rarely felt this way in harmony class.
-- I remember feeling this way once in piano class with Maria when I told her that I was on fire.
+- I remember feeling this way once in piano class with Maria when [I told her that I was on fire](../timeline/2023/march.md#piano-classes).
 
 ### In chamber music class
 
