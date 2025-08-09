@@ -67,7 +67,7 @@ function googleTranslateElementInit() {
 - I fall sick with a chest infection the next day which quickly becomes very bad.
 - I have this chest infection for nearly three weeks until I see the doctor in Mumbai who prescribes me hardcore antibiotics and medicine for pleurisy.
 - I cough so hard in India, I crack a rib. 
-- The docs says I probably have pneumonia.
+- The doc says I probably have pneumonia.
 - My friend Yan can confirm as I could not stop coughing until the medicine started to work.
 - It's not clear if I was drugged with a substance intended to make me very ill, or on this particular night I was assaulted extremely violently in my home by this man and others, and the chest infection was a physical reaction to sedated abuse I'm consciously unaware of.
 - This has been common with me throughout my life; I get chest infections as a reaction to trauma.
