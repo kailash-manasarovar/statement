@@ -286,14 +286,19 @@ function googleTranslateElementInit() {
 - I expect to bump into him at any moment. It's not clear why I believe this.
 - Instead, I "bump" into two young girls when my hat flies off and they hand it back to me. I wonder later if the girls pulled my hat off.
 - The two girls, who resembled the two girls I had seen on his facebook page in December, were angry or scared looking.
-- I'm starting to realize now that people involved in the scam are quite often angry and scared. I wonder if that's because they don't really want to be involved in a murderous conspiracy against someone they don't know.
-- I hold my scarf up to the air. It has a picture of a burning sun with a rolling eyes emoji on it.
+- I'm starting to realize now that people involved in the scam are quite often angry and scared, like Mercedes was when she [first mentioned studying piano at the conservatory](../early-years/2013.md#meeting-mercedes) or my [landlady who was alway furious](../2021/december.md#too-good-to-be-true-on-the-8th-december).
+- I wonder if that's because they don't really want to be involved in a murderous conspiracy or is it unconscious guilt coming up.
+- I hold my scarf up to the air as I walk away. 
+- It has a picture of a burning sun with a rolling eyes emoji on it.
 
 ![girls on the beach](../../content/images/girls-on-the-beach.png)
 
-- I had bought the sarong in Thailand at Christmas.
+- I bought the scarf/sarong in Thailand at Christmas.
 - I guess I'm supposed to think these two are his daughters. 
 - I do think it's a possibility at that time.
+- This movement of holding my sarong up in the air turns out to be very significant indeed. 
+- It sort of becomes like a meme to me, it's repeated often in new stalker choreography and online storytelling.
+- I'm not sure what it means until Steve mentions [the cat](../2024/january.md#san-antonio-and-the-cat) in January 2024.
 
 ## Twitter communications
 
