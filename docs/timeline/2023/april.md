@@ -250,6 +250,25 @@ function googleTranslateElementInit() {
     - She seems relieved when I tell her I have received my medical card.
     - I wonder why she would be so concerned about this.
 
+## Flying in choir class
+
+- I remember one particular choir class where I'm totally out of my mind.
+- I'm sitting there in a sort of reverie of romantic feelings.
+- I probably masturbated that lunchtime due to the overwhelming sexual arousal.
+- Choir class starts at 5pm but whatever has heightened my awareness at my apartment has not worn off, and has even perhaps been enhanced on my way up the stairs.
+- Anyway.
+- There's a fly in the class. 
+- A giant, nasty one.
+- It's buzzing around, annoying everyone.
+- It's big and black and pretty awful actually.
+- Concha gets her fly killer spray out and stuns it.
+- It falls to earth under my chair, in its death throws, fizzing and whirling.
+- I have to move seats because it's so grotesque.
+- Eventually, the fly stops moving and dies.
+- I get a tissue and pick it up and throw it out of the window, dead.
+- I wonder if it hit anyone in the street.
+- I return to my chair.
+
 ## Tarot
 
 - I remember the tarot reading from [the summer before in Glastonbury](../2022/july.md#glastonbury).
