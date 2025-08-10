@@ -134,6 +134,7 @@ function googleTranslateElementInit() {
 - It seemed strange to me that band rehearsals might start at around 10pm, but it's Spain so I thought OK.
 - However, I now wonder if Monday night was the sedated-porn special time, taking place at my spy-cam-fitted apartment, and broadcast on Denia TV and elsewhere.
 - And that's why everyone knows me in Denia.
+- Did TT have to finish early to make sure we were all back at mine and ready for action by 9:05pm?
 - Could something so outrageous, grotesque, and evil be true?
 - Given 80+ men were happy to rape a man's sedated wife in France, and only got caught by accident, it seems more than likely something so similar in content could be true, with everyone complicit and keeping quiet.
 - Do we have to wait for it to happen again, and again, and again ...
