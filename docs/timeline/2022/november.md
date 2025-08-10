@@ -128,7 +128,7 @@ function googleTranslateElementInit() {
 
 ### TT always finished early
 
-- TT turned up for about a third of the classes scheduled throughout the year and never finished the class on time.
+- TT turned up for about half of the classes scheduled throughout the year and never finished the class on time.
 - He apparently had a rehearsal on a Monday night.
 - He never said the "rehearsal" was in Valencia, I just assumed that.
 - It seemed strange to me that band rehearsals might start at around 10pm, but it's Spain so I thought OK.
