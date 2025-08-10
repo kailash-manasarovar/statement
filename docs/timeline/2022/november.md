@@ -95,11 +95,11 @@ function googleTranslateElementInit() {
 - He says his name is Vidal.
 - In the Generalitat Valenciana systems, his name was/is Vidal Sastre Sanchez Hornero, although I was told by a government official that this person doesn't exist! 
 
-!!! tip "The cover up continues"
-    - In October 2024, a Spanish government official approaches me and wants to know what's going on.
+!!! tip "The cover up continues in late 2024"
+    - In October 2024, a Spanish government official approaches me, [Paloma](../2024/october.md#madrid-and-paloma), and wants to know what's going on.
     - She can hardly hide her disgust with me, I assume it's because I told her about the sexual abuse I suffered as a child.
     - And, even though she tells me she is going to help me, it is very clear she is not on my side.
-    - A few weeks later, she tells us there's no record of Vidal Sastre Sanchez Hornero in the Generalitat systems.
+    - A few weeks later, she tells us there's no record of [Vidal Sastre Sanchez Hornero](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero) in the Generalitat systems.
     - Ironically, she also tells me I must have a written timeline of data as my story is just a chaos.
     - It is on her advice I start writing this statement in November 2024.
 
@@ -107,7 +107,7 @@ function googleTranslateElementInit() {
 - After I entered the class, there was some immediate confusion about him needing the toilet, but he kept looking at his phone, and not really going anywhere except up and down the room a bit, and then he was moving to the door, and he kept saying he was going to the toilet. 
 - It was weird and contrived.
 - The toilet is just next door to room 6 at the conservatory. 
-- I heard him "bump" into a woman and start talking to her.
+- He went out and I heard him "bump" into a woman and start talking to her.
 - I started to feel a bit light headed and smiley, flushed. 
 - I heard someone say my name, Katharine, and so I looked out of the door.
 - The trumpet teacher was standing over Ana Requena Marín, the violin teacher, and talking to her softly.
@@ -125,6 +125,17 @@ function googleTranslateElementInit() {
 - Then the other student, Pablo Sesé Savall, a 14 year old boy, turned up to class. 
 - The trumpet teacher kept looking at me with that same grin I'd seen on him in Benijembla. 
 - It was disturbing.
+
+### TT always finished early
+
+- TT turned up for about a third of the classes scheduled throughout the year and never finished the class on time.
+- He apparently had a rehearsal in Valencia he had to get to on a Monday night.
+- It seemed strange to me that band rehearsals might start at around 10pm, but it's Spain so OK I thought.
+- However, I now wonder if Monday night was the sedated-porn special time, taking place at my spy-cam-fitted apartment, and broadcast on Denia TV.
+- And that's why everyone knows me in Denia.
+- Could something so outrageous, grotesque, and evil be true?
+- Given 80+ men were happy to rape a man's sedated wife in France, it seems more than likely it's true.
+- God I remember both of you clearly now. Wow.
 
 ### His other classes
 
