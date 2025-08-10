@@ -143,6 +143,7 @@ function googleTranslateElementInit() {
 ### His other classes
 
 - The trumpet teacher had two other classes; one was with the autistic girl, Candela Morales Lucas, 14 or so. She played the flute and a boy (could he be a trans boy?) who played the guitar to accompany.
+- Incidentally, they wheeled Candela out to "bump" into me one evening in the tunnel when I was on my way home, sometime in the Autumn of 2024.
 - The other student he had was an adult learner. A doctor from the Dénia hospital, Joan, and his class was just before ours, 7-8pm.
 - Incidentally, I believe I had already seen this guy hiking with the trumpet teacher as [just mentioned](#walking-in-benijembla-with-the-english-ladies). 
 - AFAIK the trumpet teacher had no other classes and he only came to the conservatory on Monday evenings.
