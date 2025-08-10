@@ -30,6 +30,9 @@
 
 ### Hiring a lawyer to help me with Polygon's illegal dismissal
 
+- I get a recommendation of a lawyer from a friend who works for Deutsche Bank who made a successful complaint for unfair dismissal some years previous when she was working with another firm.
+- The British lawyer cannot help me as I have a Spanish contract, but she recommends a Spanish lawyer in Madrid who I contact immediately.
+- Names incoming.
 - See also [Miguel Angel Piano](../early-years/2014.md#signs-a-spanish-lawyer-is-not-behaving-correctly).
 
 ## A threat to my brother's life

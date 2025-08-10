@@ -1,5 +1,13 @@
 # Gaslighting
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 Gaslighting should be a crime when its sole intention is to silence dissent and protect sex offenders and pedophiles.
 
 Gaslighting in Denia was governed by one of the multiple porn-gang associates, then, disseminated to the general public out via gossip which then took on a persecuting life of its own.
