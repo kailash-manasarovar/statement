@@ -17,12 +17,18 @@
 - I'm horrified.
 - I ask Paul to look around to see if there is any evidence of tampering with the plumbing or the TV.
 - He tells me everything is normal, but he is unconvincing.
-- He tells me that if he takes the back off the TV it'll break it and he won't be able to get it back on.
+- He is especially unconvincing regarding the TV and tells me that if he takes the back off it it'll break it and he won't be able to get it back on.
 - I don't believe him.
+- It feels like he's doing and saying what he's been told to do and say.
 - He tells me the odd-looking piping in the kitchen is normal.
 - Paul shows me messages from his friend Lucy about her new girlfriends.
 - He even shows me a rather pornographic photo that she's sent him.
 - I'm rather appalled and don't really know what's going on but know it's all very uncool.
+- He says things that sound like they came out of my police statement from 2015.
+- He tells me he told his family I made "grands a day", on my crypto business. I'm furious.
+- He keeps telling me about his urinary symptom of "diabetes" that matches exactly my urinary symptom from poisoning.
+- I believe he is keeping an eye on me for the Adams family and will be paid for his services in cocaine.
+- I believe the medication he takes every day is either cocaine or something similar to keep him going.
 
 ### Child gang-rape porn
 

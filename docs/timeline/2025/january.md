@@ -105,6 +105,16 @@
 - He seems to be in constant communication with Lucy on WhatsApp, and he calls her too.
 - Paul shows me a picture of Lucy on his phone. It's her WhatsApp profile pic.
 
+### The gay bar
+
+- When I'm back in London prior to going to get my stuff I see Paul a lot.
+- One day, we're in the Old White Lion in N2.
+- He gets a WhatsApp and suddenly says, let's go somewhere else.
+- We head to a bar in Highgate Village which is apparently a gay bar.
+- There's no reason for this.
+- He explains it's a place he often goes to with [Lucy](#pauls-friend-lucy).
+- I'm certain he has been instructed to take me there so I can be "viewed".
+
 ## Madrid policia 
 
 - TBC
