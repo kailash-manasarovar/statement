@@ -129,13 +129,15 @@ function googleTranslateElementInit() {
 ### TT always finished early
 
 - TT turned up for about a third of the classes scheduled throughout the year and never finished the class on time.
-- He apparently had a rehearsal in Valencia he had to get to on a Monday night.
-- It seemed strange to me that band rehearsals might start at around 10pm, but it's Spain so OK I thought.
-- However, I now wonder if Monday night was the sedated-porn special time, taking place at my spy-cam-fitted apartment, and broadcast on Denia TV.
+- He apparently had a rehearsal on a Monday night.
+- He never said the "rehearsal" was in Valencia, I just assumed that.
+- It seemed strange to me that band rehearsals might start at around 10pm, but it's Spain so I thought OK.
+- However, I now wonder if Monday night was the sedated-porn special time, taking place at my spy-cam-fitted apartment, and broadcast on Denia TV and elsewhere.
 - And that's why everyone knows me in Denia.
 - Could something so outrageous, grotesque, and evil be true?
-- Given 80+ men were happy to rape a man's sedated wife in France, it seems more than likely it's true.
-- God I remember both of you clearly now. Wow.
+- Given 80+ men were happy to rape a man's sedated wife in France, and only got caught by accident, it seems more than likely something so similar in content could be true, with everyone complicit and keeping quiet.
+- Do we have to wait for it to happen again, and again, and again ...
+- Does anyone care they've been doing it so long they got bored and went for the kids and the babies?
 
 ### His other classes
 
