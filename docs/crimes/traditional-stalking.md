@@ -1,5 +1,13 @@
 # Traditional gang-stalking in Spain
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## wip
 
 - I suspect gang-stalking in Spain is well-known to the Spaniard and part of a old tradition of targeting a single woman for persecution.
