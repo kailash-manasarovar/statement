@@ -204,7 +204,7 @@
 - There is a lot of talk about how secure her phone is, and how it can pick up any sort of hacking interference and shutdown the whole network in a building.
 - Paloma doesn't really listen to me when I speak, she talks directly to my friend.
 - I tell her about [Irene](august.md#irene-the-plate-lady), about [Rocio Vidal](../2023/october.md#rocio-vidal), about the hundreds of other women.
-- I have to push to be heard.
+- I have to push to be heard; although she sort of groans at every new horror I mention, as if none of this is unfamiliar to her.
 - She doesn't seem to be interested in what I have to say, until one moment when I mention that the trumpet teacher's daughters might be threatened with kidnap if he didn't do what they say.
 - At that moment, her eyes light up and she says, oh we can do something with that.
 - I'm dismayed.
