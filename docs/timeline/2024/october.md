@@ -208,8 +208,9 @@
 - She doesn't seem to be interested in what I have to say, until one moment when I mention that the trumpet teacher's daughters might be threatened with kidnap if he didn't do what they say.
 - At that moment, her eyes light up and she says, oh we can do something with that.
 - I'm dismayed.
-- A woman can go through years of hell and no-one cares, and the minute a man, someone essentially involved in creating this hell is in trouble, they'll spring into action.
+- A woman can go through years of torture and no-one cares, and the minute a man, someone essentially involved in creating this hell is in trouble, they'll spring into action.
 - It feels like rampant misogyny.
+- Her words suggest thousands of ignored complaints.
 - She looks at her phone and says, oh, yes, Rocio Vidal was hacked.
 - I then tell her about Hazel and Sandra Smith and how I have known who and what they are since 2006, about how they've been free to target the ex-pat elderly, and how they targeted me at that time.
 - My friend remembers me mentioning them in 2007. I told her that I had seen British criminals in the Marina Alta, Las Marinas to be precise.
@@ -260,7 +261,8 @@
 
 - I have a WhatsApp chat with Sandra.
 - I explain to her I was sacked and she starts writing a genuine and rather horrible curse on the man who sacked me; I have to tell her to calm down.
-- I'm suddenly sure she's fully involved.
+- She's been gaslighting me for a while too.
+- I'm now suddenly sure she's fully involved.
 - Her words sound exactly like Carmen Cano is talking to me; the words of an evil person.
 - I tell her what I think.
 - She says, no Katharine, I am your friend.
