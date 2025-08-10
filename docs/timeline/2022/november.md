@@ -153,7 +153,7 @@ function googleTranslateElementInit() {
 - The trumpet teacher skipped many, many classes.
 - All in all he probably turned up to teach about a third to half of the classes we had scheduled.
 - He (apparently) had the flu 3 times and numerous other more important things to do. 
-- It was all very weird at the time and especially for someone who would never expect a murderous conspiracy of civil servants in a Spanish music school.
+- It was all very weird at the time and especially for someone who would never expect a murderous rape-porn conspiracy of civil servants in a Spanish music school.
 - One must ask the question. Is this sort of thing very common in Spain?
 
 ### Skills and experience
