@@ -57,6 +57,7 @@ function googleTranslateElementInit() {
 !!! tip "Attendance"
     - The trumpet teacher's attendance is extremely poor. He has missed nearly 3 months of classes before he arrives, and only turns up to maximum 50% of the classes scheduled to the end of the school year.
     - I wonder now if his sketchy attendance was more about a group of men's availability on Monday evenings, and not just his alone.
+    - Or, even better, if there were normal periods between each class, was I more likely to notice two separate men playing the part of the trumpet teacher?
 
 - I vaguely remember on one occasion Pablo asking the trumpet teacher that turned up one evening where the other guy was.
 - The trumpet teacher flirts with me more and more, but his behavior is garish and ignorant; phoney.
@@ -73,6 +74,13 @@ function googleTranslateElementInit() {
     - Was this the moment, Monday evening after class with the trumpet teacher, that I was sedated and filmed with men who had access to my apartment?
 
     ![Sedating](../../content/images/sedating/sedating-2.png)
+
+### Swapping trumpet teachers
+
+- Somehow, these two men swapped places during classes.
+- Possibly when going to the photocopier.
+- Possibly when my back was turned away from the door and my eyesight exceptionally blurred with drugging.
+- Certainly, this will have happened in the presence of Pablo and [others](may.md#chamber-music-concert).
 
 ### Noises upstairs after Monday's chamber-music classes
 
