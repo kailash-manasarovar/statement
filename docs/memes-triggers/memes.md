@@ -40,3 +40,10 @@ function googleTranslateElementInit() {
 
 - There was a whole bunch of men's checked-shirt results on Google search in the early days, after which checked shirts triggered a fear reaction in me.
 - Did men wear checked shirts when coming into my apartment to assault me while sedated?
+
+## Sylvia
+
+- This name came up constantly.
+- I wonder if it is a code name for the targeted woman?
+- My thoughts eventually went to a [French woman, Sylvie, I did know in 2015](../timeline/early-years/2015.md#greek-man-with-a-twitch-and-sylvie) who was surrounded by the Denia body-building massive, i.e. Domingo Cano's friend, and I wonder if people could have been referring to her.
+- However, this would mean that people fully engaged in terrorizing me were suddenly finding some heart and trying to warn me about what was going on, especially if some ill has befallen Sylvie, so I expect the connection is coincidence.
