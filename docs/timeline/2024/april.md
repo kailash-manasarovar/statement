@@ -2,13 +2,22 @@
 
 - I am away from Spain for the first week of April.
 - I travel to India with a friend for a short tour.
-- When I return to Spain, Christine arranges a hurried lunch. She wants to know who he is, what does he do, where does he live. She asks me these questions over and over.
+- When I return to Spain, Christine arranges a hurried lunch. She wants to know who my friend is, what he does, where he lives.
+- She asks me these questions over and over.
 - I wonder why she is so interested when the hell I'm enduring in Denia seems to be a bit more important.
 - Was she sent to urgently report back because I happen to be communicating with someone the criminal gangs are unaware of?
 - Of course, the most worrying thing for a brave criminal gang terrorizing a single woman is if she is not, after all, alone. 
 - Little did they know... although I did keep telling them.
 - The inherent cowardice in this sort of thing is off the scale.
-- I wonder if this prompted them to [wheel him out again](#the-trumpet-teacher-in-denia) and up the doses of euphoria.
+- I wonder if this prompted them to [wheel him out again](#the-trumpet-teacher-in-denia) and up the doses of euphoria, but I suspect that was more to do with prepping me for [Bali](may.md#bali).
+- There must be something in my bathroom products while I'm in India, as I'm still high.
+
+### Bring him to Me
+
+- At one of the jyotirlingum temples, I whisper in Nandi's ear my romantic wishes about the trumpet teacher.
+- As I whisper, I hear a booming voice coming from inside the temple saying, "Bring him to Me!"
+- Were these the Instructions?
+- How am I doing so far?
 
 ## Response from Generalitat
 
