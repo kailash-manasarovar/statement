@@ -38,5 +38,5 @@ function googleTranslateElementInit() {
 
 ## Checked shirts
 
-- There was a whole bunch of checked shirt result on Google search in the early days, after which checked shirts triggered a fear reaction in me.
+- There was a whole bunch of men's checked-shirt results on Google search in the early days, after which checked shirts triggered a fear reaction in me.
 - Did men wear checked shirts when coming into my apartment to assault me while sedated?
