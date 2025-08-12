@@ -66,6 +66,7 @@ function googleTranslateElementInit() {
     - On the run up to the 12th June 2023, when I was supposed to have been so terrorized I would leave my studies at the conservatory and never come back, these triggering events became more frequent.
     - We can only guess at what was originally intended for me beyond 12th June 2023.
     - Whatever it was, my actions ensured it didn't happen, and teachers and staff at the conservatory had to double down and continue terrorizing me on into the following study year.
+    - Nevertheless, what *had* been happening to me up till then was sufficiently criminal to put a whole bunch of them in jail for a very long time.
 
 !!! danger "Further confirmation in December 2024?"
     - Just after posting this update: commit no: [2370a8d](https://github.com/kailash-manasarovar/statement/commit/2370a8dc918f1d6d6a7b6ce3c9c3765965e03275), I feel like tweeting it so I do: https://x.com/1FRGVN/status/1864692459860893752
@@ -76,8 +77,11 @@ function googleTranslateElementInit() {
 
     ![are you okay](../../content/images/are-u-okay.png)
 
+    - Susan Hamill is a member of Posey Parker's Let Women Speak movement and someone I find rather threatening.
+
 - As we are setting up the concert, Ana Requena comes in again with her instrument, this time dressed up like she's going out; same old contrived weirdness.
-- The trumpet teacher flirts with me outrageously in public. I flirt back. It's quite amusing.
+- There is a door into the next room where Ana goes with her instrument. I believe trumpet teacher number two is waiting behind this door to make a swap.
+- The original trumpet teacher flirts with me outrageously in public. I flirt back. It's quite amusing.
 - I remember I have cause to say, after he asks me about my surname, and just after Ana has been in, that "Katharine is sufficient," and he giggles. He primes this, of course.
 - At one stage, our eyes lock, and there is a powerful and undeniably reciprocal sexual attraction which is rather overwhelming to both of us.
 - I will be reminded of the look I give him when I see [plate lady online in July](../../content/images/plate-lady/plate-lady-love.png).
@@ -89,8 +93,14 @@ function googleTranslateElementInit() {
 
 ![Chamber music concert](../../content/images/chamber-music-concert.png)
 
-- It's interesting to see how much of the conspiracy I had figured out by February 2024 when I posted this, it wasn't much. I still hadn't realized I was being drugged continuously.
-- The two Ana's (violin teacher and musical language teacher) make a great fuss of pretending that Ana the violin teacher is terribly jealous and angry with me for posting this information on X in February 2024.
+- Carmen Cano may have been taking the part of Pablo's "mum" in the audience.
+- I leave to walk out.
+- As I'm at the door, he says "Katharine", and I turn around and catch his eyes.
+- Trumpet teacher number one and two have swapped at this stage; but at the time I don't notice because they have successfully merged them into one person in my mind with the use of sedated sexual assaults, online manipulation, and drugging. 
+- It's interesting to see how much of the conspiracy I had figured out by when I originally posted this; it wasn't much initially, and yet steadily the truth comes out.
+- When I first posted this section, I hadn't realized I was being drugged continuously.
+- On the second or third drafts, I hadn't realized there were two trumpet teachers, or that I was sedated and rape-porn live-streamed from my apartment on a regular basis, probably for over a year by that time.
+- The two Ana's (violin teacher and musical language teacher) make a great fuss of pretending that Ana the violin teacher is terribly jealous and angry with me for posting the earlier information I had on X in [February 2024](../2024/february.md#constant-gang-stalking-at-the-conservatory).
 
 ## Assessment day at the conservatory
 
