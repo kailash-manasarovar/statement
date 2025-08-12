@@ -35,3 +35,8 @@ function googleTranslateElementInit() {
 - The single male adult member of my choir class "bumps" into me in the hall. He is looking at me and shaking his head laughing.
 
 [![Delivering the bomb](../content/tweets/memes/we-delivered-the-bomb.png)](https://x.com/1FRGVN/status/1736786105909784644)
+
+## Checked shirts
+
+- There was a whole bunch of checked shirt result on Google search in the early days, after which checked shirts triggered a fear reaction in me.
+- Did men wear checked shirts when coming into my apartment to assault me while sedated?
