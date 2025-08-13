@@ -128,6 +128,17 @@
 - So, aka Janet, my election volunteer, posts a random line on X; "Hunters".
 - I'm starting to see what's going on but it's difficult to think straight as I'm constantly drugged with something I'm ingesting in my apartment, or breathing in perhaps through the vents.
 
+### Porn star outside my house
+
+- I come home from the shop.
+- There is an outrageously dressed porn-star looking woman sitting on the bench outside my apartment building.
+- I mean dressed ridiculously for a Tuesday evening, or whenever it was.
+- Absolutely like a porn star.
+- At the time I thought it was weird.
+- Now I wonder were they bringing people like this into my apartment while they were sedating and assaulting me to spice up the shows; and showing me them too (also probably filmed).
+- I now wonder about the [upstairs neighbor and what I thought was his daughter in the lift](../2022/march.md#upstairs-neighbor-at-carrer-furs); a meeting obviously timed as they knew where I was every second.
+- I guess it could have been another porn "actress" come to star with me in the weekly specials on Denia TV or wherever they were being shown to literally everyone and anyone in the world.
+
 ## Bullying at work
 
 - Polygon are more obviously building up to firing me.
