@@ -1,4 +1,4 @@
-# Introduction agents
+# Introduction agents, conspirators, and porn audiences
 
 <div id="google_translate_element"></div>
 <script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
@@ -12,7 +12,7 @@ function googleTranslateElementInit() {
 
 ### Thao Qi acupuncture
 
-- Thao seemed to be deeply embedded in the conspiracy and I believe was doing as she was told, and passing me onto medics who would diagnose diabetes or something equally serious.
+- Thao seemed to be deeply embedded in the conspiracy and I believe was doing as she was told, and required to pass me onto medics who would diagnose diabetes or something equally serious.
 - https://www.thaoqi.com/
 - See [my experience with her](../timeline/2023/may.md#acupuncture-with-thao-qi).
 
