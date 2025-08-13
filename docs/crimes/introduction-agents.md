@@ -26,14 +26,16 @@ function googleTranslateElementInit() {
 
 - https://www.cemclinicas.com/centro-medico-denia
 - The nurse who worked here was a [close associate of Domingo](../timeline/early-years/2015.md#domingo-pretends-he-has-another-girlfriend).
+- The doctor who gave me a scan when I was worried about my health, and didn't look at the screen at all and said I was fine, must have been involved somehow.
 - The doctor who looked at my ingrown toenail in June 2023, I believe to have known me intimately, and may even be on my security cam video [from the beach on 6th October 2024](../timeline/2024/october.md#sunday-6th-october).
 - The [doctor who was "apparently" a trumpet student](../timeline/2023/january.md#serious-poisoning-at-chamber-music-class), a man I understand to be called Joan and who was present at the class where they overdosed me and I got rhabdo, worked at the Denia hospital.
 - To be fair, if I was on Denia TV each week sedated, everyone knew me intimately.
 
-### Foreign desk at the council
+### Foreigners desk at the council
 
 - Enric Gil ran the foreigners welcoming desk at the local council and has an office there.
-- He was [extremely unhelpful](../timeline/2024/march.md#enric-gil) when I was in dire need of assistance in March 2024, and seemed to be laughing at me.
+- He was [extremely unhelpful](../timeline/2024/march.md#enric-gil) when I was in dire need of assistance in March 2024, and seemed to be laughing at me as I explained what was going on.
+- He was also highlighted to me by [Gloria](../timeline/2022/june.md#gloria-and-the-effects-of-poisoning), one of Domingo's main conspirators at the conservatory, and for that reason I suspect complicity.
 - I wonder if his job including telling criminals about new arrivals and whether anyone was "vulnerable"; i.e. old, alone and female, very rich, etc.
 
 ## Locals
@@ -42,6 +44,7 @@ function googleTranslateElementInit() {
 
 - Domingo's associate.
 - I believe Domingo required her to go to the Orfeo de Denia choir and "meet" me there.
+- Her husband needs a wellness and safety check at a minimum.
 
 ## Ex-pats
 
@@ -49,11 +52,17 @@ function googleTranslateElementInit() {
 
 - https://javeacomputerclub.com/
 
-### Writing groups
+### U3A
+
+- https://www.u3adenia.com/
 
 ### Choirs
 
 ### Help charity
+
+- I volunteered here with Margaret Cornwell who needs a wellness and safety check.
+- https://helpmarinaalta.org/
+- A charity like this, and the U3A, and anywhere there is a community of wealthy expats will have been infiltrated.
 
 ## Kids
 
