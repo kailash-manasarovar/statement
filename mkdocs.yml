@@ -47,6 +47,7 @@ theme:
 
 nav:
   - Preface: preface.md
+  - Dedication: dedication.md
   - Home: 
     - Summary: index.md
   - Timeline:
