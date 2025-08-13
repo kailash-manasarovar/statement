@@ -22,11 +22,12 @@ function googleTranslateElementInit() {
 - https://www.adentaria.com/
 - See [my experience here](../timeline/2022/november.md#dentist).
 
-### Denia medical centre
+### Denia medical centre and hospital
 
 - https://www.cemclinicas.com/centro-medico-denia
 - The nurse who worked here was a [close associate of Domingo](../timeline/early-years/2015.md#domingo-pretends-he-has-another-girlfriend).
-- The doctor I saw to look at my ingrown toenail in June 2023, I believe to have known me intimately, and may even be on my security cam video [from the beach on 6th October 2024](../timeline/2024/october.md#sunday-6th-october).
+- The doctor who looked at my ingrown toenail in June 2023, I believe to have known me intimately, and may even be on my security cam video [from the beach on 6th October 2024](../timeline/2024/october.md#sunday-6th-october).
+- The [doctor who was "apparently" a trumpet student](../timeline/2023/january.md#serious-poisoning-at-chamber-music-class), a man I understand to be called Joan and who was present at the class where they overdosed me and I got rhabdo, worked at the Denia hospital.
 - To be fair, if I was on Denia TV each week sedated, everyone knew me intimately.
 
 ### Foreign desk at the council
@@ -46,9 +47,13 @@ function googleTranslateElementInit() {
 
 ### JCC
 
+- https://javeacomputerclub.com/
+
 ### Writing groups
 
 ### Choirs
+
+### Help charity
 
 ## Kids
 
