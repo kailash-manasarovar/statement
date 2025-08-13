@@ -35,7 +35,7 @@
 ## Recruitment agents
 
 - Having just had a couple of back-to-back, too-good-to-be-true headhunts from recruitment agencies (I have had zero queries in months and months, and only about two in total since I left Polygon last October/November), I'm wondering if the global tech porn elite commonly use recruitment agents to manipulate porn targets who might be working in tech.
-- Could there be a female colleague porn category?
+- Could there be a female tech-colleague porn category?
 - The emails remind me of the [Torus](../2023/august.md#head-hunted-by-ex-polygon-director) job which never existed and seemed to be part of the hacking I was enduring at the time, and the reason why I pulled out of the process.
 - They also remind of the eventual [Polygon job interview and offer](../2023/november.md#polygon) and how an actor, Nadim, seemed to have been recruited to terrorize me, and then again in [Bali](../2024/may.md#bali) where an actor may have been recruited to be filmed having sex with me at a company offsite gathering.
 - I'm also reminded of a job offer from a company I received just as I started to write out this statement. I had a really great chat with the Spanish CTO of a company: https://www.nexera.network/ or Alliance Block, perhaps another company that doesn't really exist. The Spanish CTO who lived in Alicante I believe was a member of the Kadampa Buddhist community and had been to the Merseyside temple. My suspicions came from the interview task I was expected to undertake which was easily a five day writing task. I told them I didn't have time as I had a writing task that was taking precedence but I could get back to it in a week or so. They said they weren't interested in continuing and stopped the process. 
