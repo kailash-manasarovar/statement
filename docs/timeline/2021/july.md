@@ -41,6 +41,18 @@ function googleTranslateElementInit() {
 - I also tell Christine that Lorraine Blackbourn just committed suicide. 
 - She pretends not to know.
 
+### The tiny Ecuadorian woman
+
+- At the hotel I'm staying at, the Daniya, there is a tiny Ecuadorian woman waiting tables in the restaurant.
+- She's beautiful and young.
+- I know her. 
+- She was in Klara Sarkadi's choir when I was a member.
+- A great sadness is coming from her.
+- She knows who I am too. 
+- She wants to tell me something.
+- We never speak.
+- I now believe she was targeted, like me, via the Orfeo de Denia choir, Klara Sarkadi, and maybe even Mercedes too, and she wanted to tell me this.
+
 ### Lorraine Blackbourn
 
 - [Lorraine Blackbourn](../early-years/2008.md#working-for-lorraine-blackbourn) killed herself the week I visited and her funeral was on or around the day I arrived. 
