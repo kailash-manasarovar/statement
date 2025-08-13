@@ -125,7 +125,7 @@
 - An aggressive message flies by "we take what we want", and the arrogant statement "we're hunters" flies by continuously.
 - The implication is that older men I saw on the beach do whatever they like to women and children in Denia.
 - Except, it turns out, they have to sedate us first.
-- So, aka Janet, my election volunteer, posts a random line on X; "Hunters".
+- [So, aka Janet, my election volunteer](../2024/june.md#volunteers-not-what-they-seem), posts a random line on X; "Hunters".
 - I'm starting to see what's going on but it's difficult to think straight as I'm constantly drugged with something I'm ingesting in my apartment, or breathing in perhaps through the vents.
 
 ### Porn star outside my house
