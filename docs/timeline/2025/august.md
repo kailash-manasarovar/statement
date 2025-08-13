@@ -34,7 +34,7 @@
 
 ## Recruitment agents
 
-- Having just had a couple of back-to-back, too-good-to-be-true headhunts from recruitment agencies (I have had zero queries in months and months, and only about two in total since I left Polygon last October/November), I'm wondering if the global tech porn elite, those who have known about the [porn fatwa on my head](../early-years/2003.md#porn-fatwa) commonly use recruitment agents to manipulate porn targets who might be working in tech.
+- Having just had a couple of back-to-back, too-good-to-be-true headhunts from recruitment agencies (I have had zero queries in months and months, and only about two in total since I left Polygon last October/November), I'm wondering if the global tech porn elite, those who must have known about the [porn fatwa on my head](../early-years/2003.md#porn-fatwa), commonly use recruitment agents to manipulate porn targets who might be working in tech.
 - Could there be a female tech-colleague porn category these days?
 - The emails remind me of the [Torus](../2023/august.md#head-hunted-by-ex-polygon-director) job which never existed and seemed to be part of the hacking I was enduring at the time, and the reason why I pulled out of the process.
 - They also remind of the eventual [Polygon job interview and offer](../2023/november.md#polygon) and how an actor, Nadim, seemed to have been recruited to terrorize me, and then again in [Bali](../2024/may.md#bali) where an actor may have been recruited to be filmed having sex with me at a company offsite gathering.
