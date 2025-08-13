@@ -51,7 +51,8 @@ function googleTranslateElementInit() {
 - She knows who I am too. 
 - She wants to tell me something.
 - We never speak.
-- I now believe she was targeted, like me, via the Orfeo de Denia choir, Klara Sarkadi, and maybe even Mercedes too, and she wanted to tell me this.
+- I now believe she was targeted, like me, via the Orfeo de Denia choir, Klara Sarkadi, and maybe even Mercedes too.
+- She wanted to tell me this; and somehow she did.
 
 ### Lorraine Blackbourn
 
