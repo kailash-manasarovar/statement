@@ -45,4 +45,5 @@
 - It's remarkable I managed to have any sort of career at all!
 - Is this what the billions of dollars funding for crypto is really paying for? Female tech colleague-porn subscriptions?
 - It would not surprise me.
-- Let's see if they come back now.
+- Do I have to be suspicious of everyone I have worked for over the last twenty years now as well?
+- Let's see if the recruiters come back now.
