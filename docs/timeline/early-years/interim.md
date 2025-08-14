@@ -103,7 +103,7 @@ function googleTranslateElementInit() {
 
 ### Targeted by online scammers
 
-- I quickly fall into the clutches of an extraordinarily unpleasant company who I book a flat to stay in for two weeks while I'm looking for permanent accommodation.
+- I quickly fall into the clutches of an extraordinarily unpleasant company (name incoming) who I book a flat to stay in for two weeks while I'm looking for permanent accommodation.
 - I book through Hotels.com.
 - I wonder if I'm lured online to this result or if it's just bad luck.
 - The property is an upstairs apartment on Ravenhill Court and may have been the scene of a horrific violent murder in the past.
