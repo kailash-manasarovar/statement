@@ -69,7 +69,8 @@ function googleTranslateElementInit() {
 
 - The crypto firm I work with is Fetch.AI in Cambridge.
 - One of the developers does something extremely weird while I'm there.
-- We have an online meeting set up first thing and I turned up and put my zoom on.
+- We have an online meeting set up first thing.
+- I turn up and put my zoom on.
 - His camera is under his desk pointing to his crotch.
 - He is sitting at his desk in his boxer shorts.
 - I ask him what's going on.
