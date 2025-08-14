@@ -101,6 +101,19 @@ function googleTranslateElementInit() {
 - I realize that if I had been born 30 years later, I would have sought comfort in the trans belief that I didn't have to be female anymore after serious sexual abuse, and I would believe that life would be easier that way.
 - I tentatively join Twitter at one point to keep abreast of what's going on, but I get scared and delete my account.
 
+### Targeted by online scammers
+
+- I quickly fall into the clutches of an extraordinarily unpleasant company who I book a flat to stay in for two weeks while I'm looking for permanent accommodation.
+- I book through Hotels.com.
+- I wonder if I'm lured online to this result or if it's just bad luck.
+- The property is an upstairs apartment on Ravenhill Court and may have been the scene of a horrific violent murder in the past.
+- The apartment has security cameras all over it.
+- I'm very uneasy, I have a terrible night in dread and fear, and I leave the following morning.
+- My car was keyed in the meantime.
+- The company insists they will not refund me and I attempt to take them to small claims but they bully and threaten me so much I give up.
+- This is the first moment I feel like I have ants all over me and I cannot get them off.
+- I will feel this way until August 14th 2025.
+
 ### Transforming the experienced-based brain
 
 - I begin my trauma therapy study and practice with Stephen Terrell from Austin Texas.
