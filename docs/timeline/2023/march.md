@@ -47,7 +47,7 @@ function googleTranslateElementInit() {
 - Whenever the trumpet teacher turned up for class, not often, I felt the same lightheadedness and euphoria, my whole body vibrating.
 - Moreover, whenever I returned home from class I felt like I had run a marathon, my kidneys ached, and I had to lie down
 - I couldn't understand it and told all my therapists about what I was experiencing.
-- They were never as intense as on Mondays during and after chamber music class but these feelings, which I put down to being in love, continued every day of the week, even on the days I didn't leave the house.
+- The feelings were at their most intense on Mondays during and after chamber music class but these feelings, which I put down to being in love, continued every day of the week, even on the days I didn't leave the house.
 - I was always extremely anxious about going to class on a Monday and had to take my PTSD remedy beforehand to get calm enough to go. I believe this was because, at a subconscious level, I knew exactly what was going on and it frightened me.
 
 ![Sedating me and coming into my room](../../content/images/sedating/sedating-3.png)
