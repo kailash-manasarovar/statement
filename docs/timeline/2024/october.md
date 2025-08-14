@@ -200,12 +200,16 @@
 - I'm fired summarily on 25th October, [as expected](#bullying-at-polygon).
 - The constant dehumanizing up to now didn't work so they had to think of something more formal.
 - I'm told the whole team is dismissed as they are no longer required.
-- I know it's because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy was able to cause enormous trouble with the tech systems, and consequently find out about my private political activities and managed to stick the boot in for me, just weeks after I started.
+- I used to think it was because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy was able to cause enormous trouble with the tech systems, and consequently find out about my private political activities and managed to stick the boot in for me, just weeks after I started.
+- I now believe it was due to the [porn fatwa](../early-years/2003.md#porn-fatwa) which had gotten so out of control everything I did in my life was monitored and manipulated by porn addicts, often working alongside me in tech companies.
+- Furthermore, anyone in Polygon management knowing what was happening to me in Denia will have known I was about to be [murdered by poisoning by Carmen Cano and her associates](#serious-poisoning-with-intent-to-harm-or-kill). They couldn't have me turn up to meetings while that was happening now, could they?
 - The dismissal letter explains the company is aware it is an unlawful dismissal, but I'm supposed to accept it.
 - I instruct a lawyer to help me who appears to be on Polygon's side.
-- I suspect they continue to hire one of my team, Hans; a man who was outrageously insubordinate towards me when I was his manager.
-- Hans appeared to be instructed to be subordinate towards me which included shouting me down in meetings, constant heckling, not doing any work at all, complaining about me to my manager, and more.
+- I suspect they continue to hire one of my team, [Hansraj Bodani](../2023/november.md#polygon); a man who was outrageously insubordinate towards me when I was his manager.
+- Hans appeared to have been instructed to be insubordinate towards me (possibly by James Dawes who he had worked with before, or more like directly from Gabriel Silva).
+- His behavior included shouting me down in meetings, constant heckling, not doing any work at all, complaining about me to my manager, and more.
 - Whenever I asked for help from my managers with him, I was ignored.
+- Hans clearly knew he could say and do whatever he liked, and he did so.
 - Hans was good as gold with Gabriel Silva when he took over.
 - I suspect he's working there now still.
 
