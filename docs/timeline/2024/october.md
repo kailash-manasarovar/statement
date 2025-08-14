@@ -19,7 +19,7 @@
 - I don't realize that I've been targeted because of the [porn fatwa](../early-years/2003.md#porn-fatwa) which has gotten totally out of control; my women's rights activities are an extra gift for them I expect.
 - The HR team has a company-wide meeting in which they mention me specifically in a underhand way.
 - They mention the word [Fetch](../early-years/interim.md#fetchai) over and over for no reason.
-- Remember, the HR woman says (incidentally the same woman I'm reporting bullying to), remember the word Fetch.
+- "Remember", the HR woman says laughing, (incidentally the same woman I'm reporting bullying to), "Remember the word Fetch".
 - Fetch is a direct reference to when I was working at a company in Cambridge and a man flashed at me in an online meeting.
 - HR professionals share stories like these so that women will eventually be driven out of tech for good. They've very nearly achieved this goal.
 - Gabriel Silva makes sure to mention we *must* all watch this meeting if we didn't attend, especially me.
