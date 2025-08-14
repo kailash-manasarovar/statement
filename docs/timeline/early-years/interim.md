@@ -107,7 +107,7 @@ function googleTranslateElementInit() {
 - I book through Hotels.com.
 - I wonder if I'm lured online to this result or if it's just bad luck.
 - The property is an upstairs apartment on Ravenhill Court and may have been the scene of a horrific violent murder in the past.
-- The apartment has security cameras all over it.
+- The apartment has security cameras all over it. I only knew this in retrospect when I bought some myself and realized what these strange items were on the kitchen surface and bedside table.
 - I'm very uneasy, I have a terrible night in dread and fear, and I leave the following morning.
 - My car was keyed in the meantime.
 - The company insists they will not refund me and I attempt to take them to small claims but they bully and threaten me so much I give up.
