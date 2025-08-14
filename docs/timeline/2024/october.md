@@ -25,6 +25,8 @@
 - HR professionals share stories like these so that women will eventually be driven out of tech for good. They've very nearly achieved this goal.
 - Gabriel Silva makes sure to mention we *must* all watch this meeting if we didn't attend, especially me.
 - Polygon hires a [man who targeted me at zkSync](../2023/june.md#work-stress), Coogan.
+- I guess there are so few technical female-workers in the industry, you're bound to be targeted by the wider community.
+- I wonder if James Dawes and the HR team had seen me [starring in child rape-gang porn](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) too?
 
 ## Is there a bible in the house?
 
