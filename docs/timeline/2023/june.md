@@ -131,6 +131,9 @@ function googleTranslateElementInit() {
 
 - Work is becoming extremely stressful and I'm not able to handle some of the emotionally challenging things that are going on there.
 - I'm doing my best to do a good job but I feel like the *important men* are trying to make me look incompetent and get me to leave.
+- One man, Coogan, has become exceptionally offended that I corrected some work he did; so much so he aggressively tries to take over control of my machine in a meeting where he is ostensibly trying to show me how wrong I was. I tell him no and ask him to demonstrate how wrong I am on his machine.
+- He does so, but eventually comes up against the error I had corrected and has to back down.
+- He never forgives me for this; or he's aware of the [porn fatwa](../early-years/2003.md#porn-fatwa) and how I'm an international porn-addict target.
 - I am managing one other writer on the team whose level of English is pre-school. He doesn't know where to put full stops and capital letters.
 - He was hired by someone who didn't know the job and he had been hacking away at the content for nearly a year.
 - I redirect him into things he can do which I don't have time for, things he's really good at like web development - although sometimes, he admits, he gets someone else to help him.
@@ -139,11 +142,12 @@ function googleTranslateElementInit() {
 - Quite often, women-in-tech end up pretending to be not as competent as they are to avoid this, and obviously are targeted at that time for being incompetent.
 - Tech is a game that women cannot win.
 - We work side-by-side with violent men, and the predominantly decent men we work with usually do nothing to help or support us.
+- I wonder how many of the men I have worked with over the years have [seen me in child rape-gang porn](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x).
 - In this specific case, I had corrected some published instructions which we were getting a lot of complaints about.
-- The original author, a very insecure male, took great exception to this and tried to hack into my laptop directly with my permission, which I did not give him. He was very aggressive.
+- The original author, an insecure male, Coogan, took great exception to this and tried to hack into my laptop directly with my permission, which I did not give him. He was very aggressive.
 - Eventually, we worked through the examples together and he had to agree there was a problem he hadn't noticed.
 - Nevertheless, these sorts of situations are death knells to women's careers in tech, and I was targeted by management from that moment onwards.
-- The stress of being bullied and sexually groomed relentlessly at the conservatory and online, and the feelings of being high and anxious from drugging, made me unable to deal with any of this effectively.
+- The stress of being bullied and sexually groomed relentlessly at the conservatory and online and the feelings of being high and anxious from drugging and sedating, made me unable to deal with any of this effectively.
 - I start thinking about resigning; for the second time in less than 6 months.
 - Was getting me fired, or getting me to leave my job, part of the conspiracy so that I would be fully isolated from any possible avenue of help when the conservatory classes were over for the school-year and the porn gangs could begin their campaign of terror in earnest?
 
@@ -491,6 +495,7 @@ function googleTranslateElementInit() {
     - It's not what they wanted.
 
 - I quit my job but I don't have another one to go to.
+- I'm wondering if my role at zkSync was also part of the conspiracy, as the men at that organization built up the stress and tension to extraordinary levels on the run up to the day of the concert, so much so I was determined to leave. Was this a manipulated response too?
 - To everyone's shock and surprise, I go to practice the piano at the conservatory.
 - This was not what they intended, and I knew that very well.
 - But how dare they treat a student like that! 

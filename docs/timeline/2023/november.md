@@ -301,8 +301,13 @@ function googleTranslateElementInit() {
 - It's a great job and I'm very excited about my new role.
 
 !!! tip "Corruption in Spain again?"
-    - I do wonder if there were any corrupt machinations behind my employment as the company is very Spanish and I was earning heaps of money!
-    - A honey-trappers wet-dream indeed.
+    - As I am writing my book, I started to wonder about corrupt machinations behind my employment with Polygon as the company is very Spanish and I was earning heaps of money! A honey-trappers wet-dream indeed.
+    - It came just after the [Torus](august.md#head-hunted-by-ex-polygon-director) nonsense job which was obviously part of the extreme hacking I was subject to. 
+    - Were Polygon founders involved in that too, and by extension everything else that was going on?
+    - In retrospect, my assignment with Polygon seems to be just another example of [the porn fatwa](../early-years/2003.md#porn-fatwa), especially when we consider Nadim, and the [Pakistani Brit making threats of sexual violence towards me in Bali](../2024/may.md#the-pakistani-yorkshire-man).
+    - What's not clear is how many of the men I have worked with had seen [child rape-gang porn with me in it](#first-time-they-flash-up-my-naked-16-year-old-body-on-x) and/or knew I was being drugged and sedated in my apartment in Denia, and how the criminal gangs intended to rob and murder me when I was run through, like they do with all the other women, and now children.
+    - I'm wondering if my role at zkSync was also part of the conspiracy, as the men at that organization built up the stress and tension to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023).
+    - "It's what they do", as [Paqui had said to me in class](../2024/january.md#i-tell-paqui-im-being-terrorized-by-teachers-and-staff-at-the-conservatory).
 
 - I was interviewed by [Nadim Kobesi](https://nadim.computer/); *apparently* an engineer and cryptographer. 
 - Every time he speaks, he prefaces his words with "as an engineer" or "as a security expert", in case we forget I suppose.
@@ -325,16 +330,17 @@ function googleTranslateElementInit() {
 - He did, however, have root level access to all systems for the short time he was on the engineering team.
 - I look him up on Google and find out he is a trained actor with a bachelor's degree from the [National Institute of Dramatic Art](https://www.nida.edu.au/) in Sydney, graduated in 2010, and has been in a number of films. 
 - It seems he was a spy.
-- Did Nadim find something out he didn't like at all, and got himself out of there quick?
+- Did Nadim find something out he didn't like, about the [porn fatwa maybe](../early-years/2003.md#porn-fatwa) and got himself out of there quick?
 - Or did they know I had found out he was an actor because they were watching my every move online along with everyone else in Spain it seems?
 - I wonder how much damage he was able to do in the engineering department in such a short space of time. The tech failed and faltered again and again in early 2024. I think this is probably a red-herring now.
-- He, or other parties, certainly added a lot of malicious code to our backend set up which broke our SEO for months before we could figure it out.
+- He, or other parties, certainly added a lot of malicious code to our backend set up which broke our SEO for months before we could figure it out, but this was probably an inside job.
 - In any case, from the moment I gave Nadim my Twitter account details, everything changed for me at Polygon. My boss Grace starts to treat me badly. I am no longer given work by Gabriel Silva who I am supposed to be working with closely. 
 - Gabriel starts complaining about my work to me, and others; he doesn't like my writing style, he continually puts me down in meetings, he calls me a single point of failure with other team members.
 - It doesn't matter so much because in early 2024, while the zk system is continually failing, 20% of the workforce is made redundant.
 - I move up to team lead so I am really busy and Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not gone up, he would have effectively made me a candidate for redundancy very quickly.
 - Instead, my team (who are not really tech writers, and don't know the job well - one is an exceptional copy writer, the other an academic-writing-style mathematician) starts to mutiny.
 - One of the team in particular, Hans Bodani, starts to shout at me in team meetings, gets angry with me, complains about things I did not say to my boss, who supports him, and then refuses to communicate with me at all.
+- Curiously, a new HR head starts around same time, James Dawes, who has worked with Hans previously.
 - I ask for help from my managers. 
 - I am ignored.
 - The other team member, Anthony Matlala, sides with Hans once he sees I'm getting no support from my managers.
@@ -347,18 +353,20 @@ function googleTranslateElementInit() {
 [![Sexual violence at dinner](../../content/images/sexual-violence-at-dinner.png)](https://x.com/1FRGVN/status/1790392972057747804)
 
 - At the Bali offsite and in Belgium at EthCC in July, Polygon employees come up to me continually to say, oh I'm sorry you're leaving.
+- Nothing is done. When I see Miriam the Spanish HR woman in Brussels, she asks me what my game is.
 - My team refuses to communicate with me at all. Meetings are sabotaged by Hans' angry outbursts. I am unable to do my job.
 - I believe the intention is that I leave due to the stress and unpleasantness.
 - I don't leave but I cannot do my job and no-one is helping me fix the outrageous situation of an insubordinate team.
 - I believe the team has been told to behave this way by managers.
 - An email comes from from Kellie-J Keen as leader of the [Party Of Women](https://www.partyofwomen.org/) in the UK in June asking if anyone would like to stand as a political candidate for general election.
-- I take two weeks off and run a political campaign in North London and come second-to-last in Finchley & Golders Green.
+- I take two weeks off and run a [political campaign in North London](../2024/june.md#election-campaign) and come second-to-last in Finchley & Golders Green.
 - I step down as technical writing team lead and Gabriel Silva steps in and immediately gives all the work to Anthony and Hans.
 - He leaves me with nothing to do, certainly no writing, but as he said before he doesn't like how I write so I'm unsurprised.
 - Gabriel doesn't know what he's talking about when it comes to technical writing. He is bullying me and trying to push me out.
 - So I'm left with nothing to do. Anything I do write, he asks Hans to do over. 
 - He picks on me in meetings and gives me impossible backend tasks which I complete successfully.
 - By September/October, I'm getting really upset about it and contact HR to start harassment procedures because it's clear to me I'm being shoved out due to my political views.
+- I'm unaware of the [porn fatwa](../early-years/2003.md#porn-fatwa) at that time which is the underlying purpose of terrorizing me.
 - A couple of weeks later they fire me, and the whole team, saying we're redundant, which is not true.
 - They formally accept that my dismissal is unlawful under Spanish employment law.
 - I get a Spanish lawyer to help me.
@@ -368,13 +376,15 @@ function googleTranslateElementInit() {
 - And yet, I'm still here.
 
 !!! danger "Could Nadim and Aziv have been yet more porn-gang spies?"
-    - I wonder a bit about Nadim and Aziv now.
+    - I wonder a bit about Nadim and Aziv (or whatever his name was) now.
     - It's easy to get paranoid when you're an international child rape-gang porn star of over 40 years and never knew it till very recently.
     - I did think he was an industrial spy, but maybe it's even more twisted.
     - Could Nadim have been set up to specifically get me the job, which made me a lot of money for future honey-trappers, and then cause me enough trouble to cause me to leave?
-    - If so, then that implies a conspirator within the managers or even the founders at Polygon, specifically the Spanish ones.
-    - Was the Aziv sexual threat just more fun for them?
-    - I wonder what they might tell the police if questioned.
+    - Or is it just simple brutishness and I was a supreme target for abuse.
+    - The implication is a conspiracy within the managers or even the founders at Polygon, specifically the Spanish ones.
+    - And then, when James Dawes joins and does his research, he finds out about all the other times I was targeted with sexual harassment and he believes he can use that against me to ensure my destruction.
+    - Was the Aziv sexual threat just more fun for them? Or were they hoping I would have violent sex with him. I had been primed by the [gypsy sex drug ring right before leaving and the drugs had been put in my toiletries too](../2024/april.md#the-trumpet-teacher-in-denia).
+    - I wonder what these two actors might tell the police if questioned.
 
 ### Interview with Polygon
 

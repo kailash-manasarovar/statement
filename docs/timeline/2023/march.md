@@ -160,4 +160,11 @@ function googleTranslateElementInit() {
 ## Work stress
 
 - Work is becoming extremely stressful and I'm unable to handle the normal situations that are going on there.
-- I quit my job but I have another one lined up to go to immediately.
+- I believe most of this stress was manipulated online by Denia hackers and cyber-stalkers.
+- I quit my job with a tech crypto company based in New York, Digital Asset, but I have another one lined up to go to immediately at zkSync.
+- In retrospect, Digital Asset was probably a safe space and I should have continued with them. They offered me a month's stay in New York to learn their programming language and I declined due to my conservatory studies - which was insane!
+- I believe this was part of online manipulation.
+- I start a new role at zkSync.
+- I'm starting to wonder if my role at zkSync was set up by the cyber-stalkers.
+- Looking back, it seemed likely some of the men at zkSync were aware of the [porn fatwa against me](../early-years/2003.md#porn-fatwa)?
+- I'm wondering if my role at zkSync was also part of the conspiracy, as the men at that organization built up the stress and tension to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023) which was supposed to be the grand finale, and I expect my transition into being a full time porn star (no payment obviously) and abused woman.

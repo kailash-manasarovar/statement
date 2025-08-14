@@ -377,6 +377,8 @@ function googleTranslateElementInit() {
 - She didn't reply apart from saying that it would be safe for me to go to the concert.
 - I had no idea she was 100% involved; a ringleader in fact.
 - She had no further interest in finding out more about what I had told her.
+- At a later class, when I'm still obviously reeling emotionally from what's going on and I say I'm still being stalked by Domingo and his associates online and in the town and how it's relentless, she says in an uppity manner, "It's what they do."
+- I take this to mean that men in Denia commonly single out a woman to terrorize, and everyone knows, and no-one is going to help me.
 
 ### The concert
 

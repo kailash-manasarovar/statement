@@ -65,6 +65,21 @@ function googleTranslateElementInit() {
 - I make plans to move to Ireland. I'm choosing Ireland because I have connected with a trauma therapist who is going to be giving courses there from February 2020.
 - I'm still feeling suicidally depressed and anxious but less so, and I'm not using any medication or drinking alcohol.
 
+### Fetch.AI
+
+- The crypto firm I work with is Fetch.AI in Cambridge.
+- One of the developers does something extremely weird while I'm there.
+- We have an online meeting set up first thing and I turned up and put my zoom on.
+- His camera is under his desk pointing to his crotch.
+- He is sitting at his desk in his boxer shorts.
+- I ask him what's going on.
+- He fixes his camera.
+- He doesn't apologize or explain.
+- I laugh it off, as we women do knowing we can't really complain because it's just too much trouble and we need to work.
+- Furthermore, I am a contractor so I cannot make an official complaint about sexual harassment anyway.
+- Was this man connected up to online porn-addict communities and did he know who I was from the [porn fatwa](../early-years/2003.md#porn-fatwa) now getting out of control?
+- James Dawes and his team use the word "Fetch" over and over in their September meeting at Polygon in 2024, which I believe was specifically done to persecute me.
+
 ## October 2019
 
 - I leave London.

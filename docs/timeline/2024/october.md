@@ -11,6 +11,20 @@
 
 - The message says: "Enjoy my homemade poison. The poison made by my own family..".
 
+## Bullying at Polygon
+
+- Polygon are more obviously building up to firing me.
+- Colleagues' demeanor towards me in [Bali](may.md#bali) really solidified what had been going on since the previous November.
+- I request an investigation done with regards to being targeted continually for my [women's rights activism](june.md#uk).
+- I don't realize that I've been targeted because of the [porn fatwa](../early-years/2003.md#porn-fatwa) which has gotten totally out of control; my women's rights activities are an extra gift for them I expect.
+- The HR team has a company-wide meeting in which they mention me specifically in a underhand way.
+- They mention the word [Fetch](../early-years/interim.md#fetchai) over and over for no reason.
+- Remember, the HR woman says (incidentally the same woman I'm reporting bullying to), remember the word Fetch.
+- Fetch is a direct reference to when I was working at a company in Cambridge and a man flashed at me in an online meeting.
+- HR professionals share stories like these so that women will eventually be driven out of tech for good. They've very nearly achieved this goal.
+- Gabriel Silva makes sure to mention we *must* all watch this meeting if we didn't attend, especially me.
+- Polygon hires a [man who targeted me at zkSync](../2023/june.md#work-stress), Coogan.
+
 ## Is there a bible in the house?
 
 - I start to see continued X posts that refer to whether there is a "bible in the house".
@@ -138,16 +152,6 @@
 - Now I wonder were they bringing people like this into my apartment while they were sedating and assaulting me to spice up the shows; and showing me them too (also probably filmed).
 - I now wonder about the [upstairs neighbor and what I thought was his daughter in the lift](../2022/march.md#upstairs-neighbor-at-carrer-furs); a meeting obviously timed as they knew where I was every second.
 - I guess it could have been another porn "actress" come to star with me in the weekly specials on Denia TV or wherever they were being shown to literally everyone and anyone in the world.
-
-## Bullying at work
-
-- Polygon are more obviously building up to firing me.
-- Colleagues' demeanor towards me in [Bali](may.md#bali) really solidified what had been going on since the previous November.
-- I have requested an investigation done with regards to being targeted continually for my [women's rights activism](june.md#uk).
-- The HR team has a meeting in which they mention me specifically in a underhand way. They mention the word 'Fetch' over and over for no reason. Fetch is a direct reference to when I was working at a company in Cambridge and a man flashed at me in an online meeting.
-- HR professionals share stories like these so that women will eventually be driven out of tech for good. They've very nearly achieved this goal.
-- Gabriel Silva makes sure to mention we all watch this meeting if we didn't attend, especially me.
-- Polygon hires the [man who isn't very competent](../2023/june.md#work-stress) and doesn't like women who correct his mistakes, but has a very loud voice, that I had worked with before.
 
 ## Fatima
 
