@@ -166,5 +166,5 @@ function googleTranslateElementInit() {
 - I believe this was part of online manipulation.
 - I start a new role at zkSync.
 - I'm starting to wonder if my role at zkSync was set up by the cyber-stalkers.
-- Looking back, it seemed likely some of the men at zkSync were aware of the [porn fatwa against me](../early-years/2003.md#porn-fatwa)?
+- Looking back, it seemed likely some of the men at zkSync were aware of the [porn fatwa against me](../early-years/2003.md#porn-fatwa).
 - I'm wondering if my role at zkSync was also part of the conspiracy, as the men at that organization built up the stress and tension to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023) which was supposed to be the grand finale, and I expect my transition into being a full time porn star (no payment obviously) and abused woman.
