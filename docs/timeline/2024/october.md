@@ -197,7 +197,7 @@
 
 ## Polygon fires the whole writing team
 
-- I'm fired summarily on 25th October, [as expected](#bullying-at-work).
+- I'm fired summarily on 25th October, [as expected](#bullying-at-polygon).
 - The constant dehumanizing up to now didn't work so they had to think of something more formal.
 - I'm told the whole team is dismissed as they are no longer required.
 - I know it's because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy was able to cause enormous trouble with the tech systems, and consequently find out about my private political activities and managed to stick the boot in for me, just weeks after I started.

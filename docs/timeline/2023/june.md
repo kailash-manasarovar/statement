@@ -151,6 +151,18 @@ function googleTranslateElementInit() {
 - I start thinking about resigning; for the second time in less than 6 months.
 - Was getting me fired, or getting me to leave my job, part of the conspiracy so that I would be fully isolated from any possible avenue of help when the conservatory classes were over for the school-year and the porn gangs could begin their campaign of terror in earnest?
 
+### Elon
+
+- The CTO at zkSync, a British guy living in California, was particularly vicious towards me.
+- The day before the mass-firing where my writer was sacked, he posted a gun emoji to me on Slack.
+- Incidentally, his job prior to working a zkSync was with Elon Musk.
+- Did he know Elon?
+- Could Elon himself know about the [porn fatwa](../early-years/2003.md#porn-fatwa) and support it?
+- Elon's posts [often strangely coincided](november.md#elons-violinist) with what was going on for me at the conservatory and with regards to the trumpet teacher.
+- Was this just coincidence?
+- Is Elon aware of the systemic targeting of women in tech by porn addicts?
+- He clearly prefers pornified-women over real ones.
+
 ## Sunday 11th June
 
 - I often go to the beach on Sundays.
