@@ -371,19 +371,20 @@ function googleTranslateElementInit() {
 - They formally accept that my dismissal is unlawful under Spanish employment law.
 - I get a Spanish lawyer to help me.
 - The lawyer appears to be colluding with the Spanish company, so I have no option but to fire them in December 2024.
-- There's a lot more to this story; this is just a quick sketch.
-- Being targeted at my job for being "transphobic" on top of being targeted by criminal gangs of Dénia is really too much for one person to cope with without any support at all.
+- There's a lot more to this story; we are steadily unraveling it all.
+- I felt that being targeted at my job for being "transphobic" on top of being targeted by criminal sedating rape-gangs of Dénia is really too much for one person to cope with without any support at all.
 - And yet, I'm still here.
 
 !!! danger "Could Nadim and Aziv have been yet more porn-gang spies?"
     - I wonder a bit about Nadim and Aziv (or whatever his name was) now.
     - It's easy to get paranoid when you're an international child rape-gang porn star of over 40 years and never knew it till very recently.
-    - I did think he was an industrial spy, but maybe it's even more twisted.
+    - I did think Nadim was an industrial spy, but I now believe it's even more twisted.
     - Could Nadim have been set up to specifically get me the job, which made me a lot of money for future honey-trappers, and then cause me enough trouble to cause me to leave?
-    - Or is it just simple brutishness and I was a supreme target for abuse.
-    - The implication is a conspiracy within the managers or even the founders at Polygon, specifically the Spanish ones.
-    - And then, when James Dawes joins and does his research, he finds out about all the other times I was targeted with sexual harassment and he believes he can use that against me to ensure my destruction.
-    - Was the Aziv sexual threat just more fun for them? Or were they hoping I would have violent sex with him. I had been primed by the [gypsy sex drug ring right before leaving and the drugs had been put in my toiletries too](../2024/april.md#the-trumpet-teacher-in-denia).
+    - Or was it just plain and simple brutishness and I was a supreme target for abuse.
+    - The implication is a conspiracy within the management team or amongst the founders at Polygon, specifically the Spanish ones.
+    - And then, when James Dawes (Hans Bodani's ex-colleague) joins, finds out that I'm a target and does his research in UK male porn-addict networks, he finds out about all the other times I was targeted with sexual harassment and decides to use triggering words from those times at the [HR meeting in October 2024 just before I'm sacked](../2024/october.md#bullying-at-polygon) which felt like severe mental/emotional violence to me.
+    - Was the Aziv sexual threat just more fun for them? Or were they hoping I would have violent sex with him.
+    - Remember, I had been primed by the [gypsy sex drug ring right before leaving and the drugs had been put in my toiletries too](../2024/april.md#the-trumpet-teacher-in-denia).
     - I wonder what these two actors might tell the police if questioned.
 
 ### Interview with Polygon
