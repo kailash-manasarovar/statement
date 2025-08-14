@@ -161,7 +161,7 @@ function googleTranslateElementInit() {
 - Elon's posts [often strangely coincided](november.md#elons-violinist) with what was going on for me at the conservatory and with regards to the trumpet teacher.
 - Was this just coincidence?
 - Is Elon aware of the systemic targeting of women in tech by porn addicts?
-- He clearly prefers pornified-women over real ones.
+- He clearly prefers pornified-women over real ones as his X posts demonstrate.
 
 ## Sunday 11th June
 
