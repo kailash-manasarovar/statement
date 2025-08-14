@@ -21,7 +21,7 @@
 - James Dawes (ex-colleague of [Hans Bodani](../2023/november.md#polygon)) leads the meeting and alludes to something exciting coming up.
 - He starts to mention the word [Fetch](../early-years/interim.md#fetchai) over and over for no particular reason.
 - "Remember", the HR woman who takes over says laughing, (incidentally the same woman I'm reporting bullying to), "Remember the word Fetch".
-- Fetch is a direct reference to when I was working at a company in Cambridge and a man flashed at me in an online meeting.
+- Fetch is a direct reference to when [I was working at a company in Cambridge and a man flashed at me in an online meeting](../early-years/interim.md#fetchai).
 - HR professionals share stories like these so that women will eventually be driven out of tech for good. They've very nearly achieved this goal.
 - Gabriel Silva makes sure to mention we *must* all watch this meeting if we didn't attend, especially me.
 - Polygon hires a [man who targeted me at zkSync](../2023/june.md#work-stress), Coogan.
