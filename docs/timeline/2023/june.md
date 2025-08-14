@@ -155,7 +155,7 @@ function googleTranslateElementInit() {
 
 - The CTO at zkSync, a British guy living in California, was particularly vicious towards me.
 - The day before the mass-firing where my writer was sacked, he posted a gun emoji to me on Slack.
-- Incidentally, his job prior to working a zkSync was with Elon Musk.
+- Incidentally, his job prior to working at zkSync was with Elon Musk.
 - Did he know Elon?
 - Could Elon himself know about the [porn fatwa](../early-years/2003.md#porn-fatwa) and support it?
 - Elon's posts [often strangely coincided](november.md#elons-violinist) with what was going on for me at the conservatory and with regards to the trumpet teacher.
