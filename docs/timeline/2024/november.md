@@ -66,12 +66,12 @@
 - Would you give yourself a name which would pretty much ensure your fake company would be tasked with the job, a family name perhaps?
 - Would you send the person with instructions to annoy the resident so much she would leave you alone for long periods in the house alone, where you could install as many spy-cams as you liked?
 - Do you think you might do that, if you were a criminal gang with no concerns about getting caught?
-- My mother employed a man, Sean Murphy (a significant family name), to install stair lifts at the house.
+- My mother employed a man, [Sean Murphy](https://find-and-update.company-information.service.gov.uk/officers/tqU3t9O-pOkVHJKKZIuE1h2cx3I/appointments) (a significant family name), to install stair lifts at the house.
 - My dad doesn't believe that's his name and keeps calling him Dennis.
 - Sean Murphy wound my mother up so much she nearly sacked him two or three times.
 - He would turn up really late, or not at all, leaving her waiting around all day for him.
 - On a couple of occasions this tactic meant my mother was so exasperated she left him alone in the house for long periods while she went out to do the shopping.
-- Was he employed to [install spy-cams](../2025/may.md#spy-cams-in-london-n2-also)?
+- Was he also employed to [install spy-cams](../2025/may.md#spy-cams-in-london-n2-also)?
 
 ## Drugs test
 
