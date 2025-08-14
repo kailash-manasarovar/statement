@@ -4,5 +4,5 @@
 
 - wip
 - Anita Diamond was there.
-- A staggering overplay?
+- A staggering overplay by the male porn-addict tech elite?
 
