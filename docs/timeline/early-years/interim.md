@@ -111,6 +111,7 @@ function googleTranslateElementInit() {
 - I'm very uneasy, I have a terrible night in dread and fear, and I leave the following morning.
 - My car was keyed in the meantime.
 - The company insists they will not refund me and I attempt to take them to small claims but they bully and threaten me so much I give up.
+- When I research them, I find out that they are probably a criminal gang.
 - This is the first moment I feel like I have ants all over me and I cannot get them off.
 - I will feel this way until August 14th 2025.
 
