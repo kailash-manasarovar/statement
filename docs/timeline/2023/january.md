@@ -174,17 +174,22 @@ function googleTranslateElementInit() {
 
 - There is a bike crash on the mountain and a huge traffic jam.
 - I wait for about 30 minutes but there is still a delay.
-- Everyone starts to turn around and go back the way they came.
+- I'm not in any hurry, and I'm just going to wait.
+- Everyone starts to turn around and go back the way they came. I stay.
 - As each car disappears, I creep up, closer to the front of the queue, and I wait.
 - Eventually, I see a couple of cyclists on the road but nothing serious.
 - Even so, a man from the policia comes and tell everyone to turn around and go home.
 - I wonder about this now.
 - Could anyone have been heavily invested in making sure I didn't get rhabdo again at class the following Monday? And, if so, why?
-- Given everyone who was hacking me (the whole town) knew about my rhabdo symptoms and my concerns that it could have come from a hike, did the local police *and* the traffic police create a fake accident so that I wouldn't go up again, and die, and any tests would have shown the sorts of substances I was ingesting.
+- Given everyone who was hacking me (the whole town) knew about [my rhabdo symptoms](#serious-poisoning-at-chamber-music-class) and my concerns that it could have come from the hike at the weekend, did the local police *and* the traffic police create a fake accident so that I wouldn't go up again, and die, and any tests would have shown the sorts of substances I was ingesting, or more likely they'd stop making so much money from the sedated porn with me in it so I had to be kept alive.
 - It seems likely since there was no accident to see, and they told everyone to turn around and go home anyway for no reason.
-- This means the local police, and the traffic section of the Guardia Civil are also conspiring in the sedated raping of lone females in their apartments and/or hotel rooms in Denia.
-- It puts [my interaction with trafico the following July](july.md#stopped-by-the-traffic-police) in a somewhat different light.
-- It explains [being shown the door by the national police in February 2024](../2024/february.md#policia-nacional).
+- This means the local police, and at least the traffic section of the Guardia Civil would also be conspiring in the porn network distribution of sedating and raping lone females in their apartments and/or hotel rooms in Denia and beyond.
+- It puts [my interaction with the traffic police the following July](july.md#stopped-by-the-traffic-police) in a somewhat different light.
+- It explains [being shown the door by the national police in February 2024](../2024/february.md#policia-nacional) because I didn't have a complaint, they told me, because the man who was threatening me online with violence might think I was ugly.
 - And it explains being fobbed off and shown the door by the national police twice; once in [March 2024](../2024/march.md#reporting-the-matter-to-the-police-in-madrid) and then again in [January 2025](../2025/january.md#madrid-policia).
 - It also explains why the [Denia local police](../2024/march.md#enric-gil) refused to speak to me.
-- All in support of despicable porn networks including the global porn-addict engineering elite who were probably paying millions in subscriptions to porn networks to see me suffer, be sedated and raped, and goodness knows what else, perhaps even my activities at the conservatory; the concerts, the terrorizing, the drugging in class, going to the toilet; everything I expect they now do to the children and teenage girls.
+- All in support of despicable porn networks including the global porn-addict engineering elite who were probably paying millions in subscriptions to porn networks to see me, and others, suffer, be sedated and raped, and goodness knows what else, perhaps even watching my activities at the conservatory; the concerts, the terrorizing, the drugging in class, going to the toilet; everything I expect they have been doing to the children and teenage girls for some time too.
+- There are at least four or five specific children I have names for listed in this statement that I have told the authorities I'm concerned about them being in *extreme* danger.
+- I was ignored.
+- Nothing is done about it.
+- I know it is just the tip of the iceberg, and I know Lorraine found something out so horrible that it broke her to know about it, and to know nobody cared either. 
