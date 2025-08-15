@@ -168,7 +168,7 @@ function googleTranslateElementInit() {
 
 #### Criminal gang online cruelty 
 
-- Regarding this kidney injury which was further exacerbated by constant poisoning and drugging, criminal gangs relentlessly tease me about how I probably have a severe kidney disease, if not failure.
+- Regarding this kidney injury which was further exacerbated by constant poisoning and drugging over the next two years, criminal gangs, to this day, relentlessly tease me about how I probably have a severe kidney disease, if not kidney failure!
 - They do this online using fake accounts such as with the Catherine vonRuhland account you can see here which even looks like me a bit.
 
 ![Catherine vonRuhland](../../content/images/fake-accounts/dialysis.png)
