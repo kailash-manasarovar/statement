@@ -193,3 +193,5 @@ function googleTranslateElementInit() {
 - I was ignored.
 - Nothing is done about it.
 - I know it is just the tip of the iceberg, and I know Lorraine found something out so horrible that it broke her to know about it, and to know nobody cared either. 
+- Was it that men in Denia were making women pregnant - with the help of online manipulation - so that they could earn thousands on the baby and pedo porn?
+
