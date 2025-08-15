@@ -166,7 +166,7 @@ function googleTranslateElementInit() {
 - I try to do a test myself from the local chemist; their pamphlet says they have them available. They never have the test whenever I ask for it, and they never seem to know why they don't have it, or when it's coming in.
 - One of the pharmacists tells me, "Oh, I don't think we sell the kidney tests anymore."
 
-### Hiking the following weekend
+### The police close the road for me
 
 - I decide to go hiking in the [Montgo national park](https://parquesnaturales.gva.es/es/web/pn-el-montgo) again the following weekend.
 
@@ -178,7 +178,7 @@ function googleTranslateElementInit() {
 - Everyone starts to turn around and go back the way they came. I stay.
 - As each car disappears, I creep up, closer to the front of the queue, and I wait.
 - Eventually, I see a couple of cyclists on the road but nothing serious.
-- Even so, a man from the policia comes and tell everyone to turn around and go home.
+- Even so, a policeman tells everyone to turn around and go home.
 - I wonder about this now.
 - Could anyone have been heavily invested in making sure I didn't get rhabdo again at class the following Monday? And, if so, why?
 - Given everyone who was hacking me (the whole town) knew about [my rhabdo symptoms](#serious-poisoning-at-chamber-music-class) and my concerns that it could have come from the hike at the weekend, did the local police *and* the traffic police create a fake accident so that I wouldn't go up again, and die, and any tests would have shown the sorts of substances I was ingesting, or more likely they'd stop making so much money from the sedated porn with me in it so I had to be kept alive.
