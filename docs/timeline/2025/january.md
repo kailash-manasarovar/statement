@@ -90,7 +90,7 @@
 
 - I tell Paul later that it is extraordinarily common for people who have been groomed and abused as children to become retraumatized as adults and have breakdowns; specifically when their same-sex kids get to the same age they were when they were groomed by a predator.
 - I believe this is what happened to Paul.
-- Paul denied the abuse and repeatedly stood up for this random man who had broken up the relationship these boys had with their parents.
+- Paul denied the abuse and repeatedly stood up for this random man who had destroyed the relationship these boys had with their parents.
 - I told him there wasn't a planet in the universe where what Dennis had done was OK.
 - Paul was a great guy, one of the best. 
 - He, like me, never had any real support from family as they didn't seem to know what was going on for him, and, like me, he was blamed by them for everything that was happening to him that his child's mind couldn't really comprehend.
