@@ -191,7 +191,8 @@ function googleTranslateElementInit() {
 - Even so, a policeman tells everyone left to turn around and go home. There's only about four cars left waiting.
 - I wonder about this now.
 - Could anyone have been heavily invested in making sure I didn't get rhabdo again at class the following Monday? And, if so, why?
-- Given everyone who was hacking me (the whole town) knew about [my rhabdo symptoms](#serious-poisoning-at-chamber-music-class) and my concerns that it could have come from the hike at the weekend, did the local police *and* the traffic police create a fake accident so that I wouldn't go up again, and die, and any tests would have shown the sorts of substances I was ingesting, or more likely they'd stop making so much money from the sedated porn with me in it so I had to be kept alive.
+- Given everyone who was hacking me (the whole town) knew about [my rhabdo symptoms](#serious-poisoning-at-chamber-music-class) and my concerns that it could have come from the hike at the weekend, did the local police *and* the traffic police create a fake accident so that I wouldn't go up again, and die or be hospitalized; any tests would have shown the sorts of substances I was ingesting.
+- Or was it more likely they didn't want to stop making so much money from the sedated porn they were distributing globally to the porn-addict tech elite (amongst others) with me in it, so I had to be kept alive and well.
 - It seems likely since there was no accident to see, and they told everyone to turn around and go home anyway for no reason.
 - This means the local police, and at least the traffic section of the Guardia Civil would also be conspiring in the porn network distribution of sedating and raping lone females in their apartments and/or hotel rooms in Denia and beyond.
 - It puts [my interaction with the traffic police the following July](july.md#stopped-by-the-traffic-police) in a somewhat different light.
