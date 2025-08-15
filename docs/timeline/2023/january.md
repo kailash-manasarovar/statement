@@ -138,7 +138,7 @@ function googleTranslateElementInit() {
     - Run a marathon dehydrated.
     - Get hit by lightning.
     - Are poisoned.
-- I put it down to a hike I did at the weekend, but there was nothing extraordinary about the hike other than I had sweated a lot and it was extremely cold at the summit.
+- I put it down to a hike I did at the weekend - and I do a lot of Google searching to that effect - but there was nothing extraordinary about the hike other than I had sweated a lot and it was extremely cold at the summit.
 - I had recently done far more strenuous hikes in the Pyrenees. 
 - There was no other explanation at that time, however.
 - I lost a lot of weight after this, probably 10kg or thereabouts, 15kg in total since the [seizure in Thailand](../2022/december.md#a-seizure-in-thailand).
@@ -180,3 +180,11 @@ function googleTranslateElementInit() {
 - Even so, a man from the policia comes and tell everyone to turn around and go home.
 - I wonder about this now.
 - Could anyone have been heavily invested in making sure I didn't get rhabdo again at class the following Monday? And, if so, why?
+- Given everyone who was hacking me (the whole town) knew about my rhabdo symptoms and my concerns that it could have come from a hike, did the local police *and* the traffic police create a fake accident so that I wouldn't go up again, and die, and any tests would have shown the sorts of substances I was ingesting.
+- It seems likely since there was no accident to see, and they told everyone to turn around and go home anyway for no reason.
+- This means the local police, and the traffic section of the Guardia Civil are also conspiring in the sedated raping of lone females in their apartments and/or hotel rooms in Denia.
+- It puts [my interaction with trafico the following July](july.md#stopped-by-the-traffic-police) in a somewhat different light.
+- It explains [being shown the door by the national police in February 2024](../2024/february.md#policia-nacional).
+- And it explains being fobbed off and shown the door by the national police twice; once in [March 2024](../2024/march.md#reporting-the-matter-to-the-police-in-madrid) and then again in [January 2025](../2025/january.md#madrid-policia).
+- It also explains why the [Denia local police](../2024/march.md#enric-gil) refused to speak to me.
+- All in support of despicable porn networks including the global porn-addict engineering elite who were probably paying millions in subscriptions to porn networks to see me suffer, be sedated and raped, and goodness knows what else, perhaps even my activities at the conservatory; the concerts, the terrorizing, the drugging in class, going to the toilet; everything I expect they now do to the children and teenage girls.
