@@ -190,7 +190,6 @@ function googleTranslateElementInit() {
 - Eventually, I see a couple of cyclists on the road but nothing serious.
 - Even so, a policeman tells everyone left to turn around and go home. There's only about four cars left waiting.
 - I wonder about this now.
-- Could anyone have been heavily invested in making sure I didn't get rhabdo again at class the following Monday? And, if so, why?
 - Given everyone who was hacking me (the whole town) knew about [my rhabdo symptoms](#serious-poisoning-at-chamber-music-class) and my concerns that it could have come from the hike at the weekend, did the local police *and* the traffic police create a fake accident so that I wouldn't go up again, and die or be hospitalized; any tests would have shown the sorts of substances I was ingesting.
 - Or was it more likely they didn't want to stop making so much money from the sedated porn they were distributing globally to the porn-addict tech elite (amongst others) with me in it, so I had to be kept alive and well enough for more abuse.
 - It seems likely since there was no accident to see, and they told everyone to turn around and go home anyway, for no reason.
