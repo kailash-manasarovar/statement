@@ -166,6 +166,16 @@ function googleTranslateElementInit() {
 - I try to do a test myself from the local chemist; their pamphlet says they have them available. They never have the test whenever I ask for it, and they never seem to know why they don't have it, or when it's coming in.
 - One of the pharmacists tells me, "Oh, I don't think we sell the kidney tests anymore."
 
+#### Criminal gang online cruelty 
+
+- Regarding this kidney injury which was further exacerbated by constant poisoning and drugging, criminal gangs relentlessly tease me about how I probably have a severe kidney disease, if not failure.
+- They do this online using fake accounts such as with the Catherine vonRuhland account you can see here which even looks like me a bit.
+
+![Catherine vonRuhland](../../content/images/fake-accounts/dialysis.png)
+
+- They also do this with sly comments such as when [Susan Hamill told me she had kidney failure](../2025/march.md#let-women-speak-aberdeen) for 10 years and her doctors never told her.
+- It's never ending.
+
 ### The police close the road for me
 
 - I decide to go hiking in the [Montgo national park](https://parquesnaturales.gva.es/es/web/pn-el-montgo) again the following weekend.
