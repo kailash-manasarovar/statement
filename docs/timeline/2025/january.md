@@ -97,7 +97,7 @@
 - It was unfair for him, and me.
 - Paul went to pieces around about the same time his second son who he was parenting reached the age that Paul was groomed.
 - Paul told me a lot of stories, most of them lies I expect, I hope.
-- He did mention that he had met both Charles and Diana on numerous occasions because his grandfather had been the chief librarian at the Times and they came in when he was there.
+- He did mention that he had met both Charles and Diana because his grandfather had been the chief librarian at the Times and they came in when he was there.
 - He told another story about Diana bumping into him in Camden High Street somewhere when she was hounded by paparazzi and he had caught her and she remembered him.
 - Paul told a great deal of porkies while we were together. Some were really nasty stories about people you could tell he was "getting back" for something.
 - The stories he told about his grandfather, mostly, I really wanted to be true.
