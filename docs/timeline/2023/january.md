@@ -176,7 +176,7 @@ function googleTranslateElementInit() {
 - They also do this with sly comments such as when [Susan Hamill told me she had kidney failure](../2025/march.md#let-women-speak-aberdeen) for 10 years and her doctors never told her.
 - It's never ending.
 
-### The police close the road for me
+### Denia police close the road... for me
 
 - I decide to go hiking in the [Montgo national park](https://parquesnaturales.gva.es/es/web/pn-el-montgo) again the following weekend.
 
@@ -202,7 +202,7 @@ function googleTranslateElementInit() {
 - There are at least four or five specific children I have names for listed in this statement that I have told the authorities I'm concerned about being in *extreme* danger.
 - I am continually ignored. They even tried to make out the whole thing was all my fault.
 - Nothing is ever done about it, and of course it just gets worse and worse and WORSE!
-- I know it is just the tip of the iceberg, and I know Lorraine found something out so horrible that it broke her to know about it, and to know nobody cared either. 
+- I know it is just the tip of the iceberg, and I know Lorraine found something out so horrible - many years ago now - that it broke her to know about it, and to know nobody cared either. 
 - Was it that, along with everything else, men in Denia had started making women and girls pregnant - with the help of online manipulation - so that they could earn thousands on the baby and pedo porn they discovered could make them into millionaires?
 - Or is it something even more horrible, if there could be anything more horrible.
 - Do the global tech porn-addict elite know they're funding the baby rape capital of the world? I guess they do, and I guess it must make them feel triumphant.
