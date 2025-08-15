@@ -200,7 +200,7 @@ function googleTranslateElementInit() {
 - And it explains being fobbed off and shown the door by the national police twice; once in [March 2024](../2024/march.md#reporting-the-matter-to-the-police-in-madrid) and then again in [January 2025](../2025/january.md#madrid-policia).
 - It also explains why the [Denia local police](../2024/march.md#enric-gil) refused to speak to me.
 - All in support of despicable porn networks including the global porn-addict engineering elite who were probably paying millions in subscriptions to porn networks to see me, and others, suffer, be sedated and raped, and goodness knows what else, perhaps even watching my activities at the conservatory; the concerts, the terrorizing, the drugging in class, going to the toilet; everything I expect they have been doing to the children and teenage girls for some time too.
-- There are at least four or five specific children I have names for listed in this statement that I have told the authorities I'm concerned about them being in *extreme* danger.
+- There are at least four or five specific children I have names for listed in this statement that I have told the authorities I'm concerned about being in *extreme* danger.
 - I was ignored.
 - Nothing is done about it.
 - I know it is just the tip of the iceberg, and I know Lorraine found something out so horrible that it broke her to know about it, and to know nobody cared either. 
