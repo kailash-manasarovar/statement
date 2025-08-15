@@ -55,7 +55,7 @@
 - Bizarrely, Paul did not come through to the arrivals hall at Madrid airport. Instead, he waits at the shuttle train station for about an hour.
 - When I arrive, I call him.
 - He's been there over an hour and he sort of pretends he doesn't know where he is or how to get out, and I tell him to come to arrivals as I'm collecting my bag.
-- This behavior concerns me enough to write about it in an earlier commit on the same evening.
+- Paul is far from stupid so this behavior concerns me enough to write about it in an earlier commit on the same evening.
 - I delete the content later on as Paul does help me a lot and I feel a bit guilty about thinking badly of him.
 - I comment on the deletion.
 
@@ -69,11 +69,11 @@
 - I'm convinced he's doing serious drugs and has drugs on him, and that he didn't want to come through to arrivals in case he was stopped.
 - I'm convinced he waited for me so that he would look more legit walking through with me.
 - I wonder if he was given advice about that because it seems an odd thing to think up if you didn't have anything to worry about.
-- However, Paul looks like one of the drug ghouls that used to roam around in a junkie shoal around the Oudekerk in Amsterdam.
+- Paul looks like one of the drug ghouls that used to roam around in a junkie shoal around the Oudekerk in Amsterdam.
 - I tell him this and rebook his return flight to go home the next day.
 - He is not coming to the police in Madrid with me looking like this.
 - He is offended. 
-- He has already told me he has diabetes which I believe, but diabetes doesn't make you look like he does or shout incessantly about nothing.
+- He has already told me he has diabetes which I believe, but diabetes doesn't make you look like he does, or shout incessantly about nothing.
 - He is doing my head in. 
 - I'm trying to think.
 - I tell him to shut up.
@@ -85,6 +85,22 @@
 - Nevertheless, I have no choice but to send him home and go to the police in Madrid without him.
 - I give him my coat and a decent woolen jumper and tell him not to sell them.
 - I think about the many good people I know in North London whose lives were destroyed by drugs.
+
+### A child sexual abuse survivor gets retraumatized
+
+- I tell Paul later that it is extraordinarily common for people who have been groomed and abused as children to become retraumatized as adults; specifically when their same-sex kids get to the same age they were when they were groomed by a predator.
+- I believe this is what happened to Paul.
+- Paul denied the abuse and repeatedly stood up for this random man who had broken up the relationship these boys had with their parents.
+- I told him there wasn't a planet in the universe where what Dennis had done was OK.
+- Paul was a great guy, one of the best. 
+- He, like me, never had any real support from family as they didn't seem to know what was going on for him, and, like me, he was blamed by them for everything that was happening to him that his child's mind couldn't really comprehend.
+- It was unfair for him, and me.
+- Paul went to pieces around about the same time his second son who he was parenting reached the age that Paul was groomed.
+- Paul told me a lot of stories, most of them lies I expect, I hope.
+- He did mention that he had met both Charles and Diana on numerous occasions because his grandfather had been the chief librarian at the Times and they came in when he was there.
+- He told another story about Diana bumping into him in Camden High Street somewhere when she was hounded by paparazzi and he had caught her and she remembered him.
+- Paul told a great deal of porkies while we were together. Some were really nasty stories about people you could tell he was "getting back" for something.
+- The stories he told about his grandfather, mostly, I really wanted to be true.
 
 ### Paul's friend Lucy
 
