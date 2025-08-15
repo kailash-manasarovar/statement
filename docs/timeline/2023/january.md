@@ -204,4 +204,5 @@ function googleTranslateElementInit() {
 - Nothing is ever done about it, and of course it just gets worse and worse and WORSE!
 - I know it is just the tip of the iceberg, and I know Lorraine found something out so horrible that it broke her to know about it, and to know nobody cared either. 
 - Was it that, along with everything else, men in Denia had started making women and girls pregnant - with the help of online manipulation - so that they could earn thousands on the baby and pedo porn they discovered could make them into millionaires?
+- Or is it something even more horrible, if there could be anything more horrible.
 - Do the global tech porn-addict elite know they're funding the baby rape capital of the world? I guess they do, and I guess it must make them feel triumphant.
