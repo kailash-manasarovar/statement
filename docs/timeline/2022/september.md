@@ -110,7 +110,10 @@ function googleTranslateElementInit() {
 - Elvira has a sister, Lucía, in the year above who is also Domingo's student.
 - Now and then, Samuel, Domingo, Elvira and Lucía will go out in the evenings together, just those four. 
 - Samuel avoids telling me where they're going when I ask.
-- Samuel talks about Elvira as if he knows her intimately; "oh she's very erratic", he tells me.
+- Samuel talks about Elvira as if he knows her intimately.
+- I tell him I think Elvira is a really sensible young girl, and he disagrees strongly.
+- "No, no, you're very wrong. She's very erratic", he tells me.
+- I wonder if I am right about her, and he is also right, but he is right because of drugging and sedating which might make anyone become erratic, at a minimum.
 
 !!! warning "Elvira and Lucía"
     - Elvira and Lucía have moved to Dénia from Madrid.
