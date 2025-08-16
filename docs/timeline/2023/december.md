@@ -486,6 +486,8 @@ function googleTranslateElementInit() {
 - My friend was not affected by anything and we ate and drank exactly the same things.
 - Could she have had something to do with it?
 - If my friend was a government spy, could she have been asked to make me sick, to shut down what was going on online?
+- I sadly expect that's exactly what happened, while children remained in danger.
+- I've pretty much been wrong about everyone I liked, apart from one person.
 - As I trawl through the tweets I posted around this time, I notice I am posting information about everything that is happening to me.
 
 [![Metro cleaning team](../../content/tweets/december-2023/metro-cleaning-team.png)](https://x.com/1FRGVN/status/1740728445917663701)
