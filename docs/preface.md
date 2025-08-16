@@ -52,6 +52,8 @@ You might think the police would be keen to root out sex offending networks as q
 
 Yet targets have been happenstance wandering into the town for many decades, bumping into one of the numerous [*"introduction agents"*](crimes/introduction-agents.md) and ending up in rape porn, with or without their knowledge. One wonders how many complaints the police have buried over the years.  Certainly all the author's requests for help were silenced and ignored; by the Spanish police three times, and by UK police numerous times as well.
 
+I suppose if the official protocol is to ignore and bury all complaints about serious sex offenses, and has been for decades, you might well be persuaded to join in.
+
 Nevertheless, even if the people of Dénia have ceased to care for the safety and wellbeing of their own offspring, the author, a [child sexual abuse survivor herself](timeline/2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x), has not.
 
 For that reason, the statement is now a novel in production and the author is in the process of filling out the details from the skeleton draft she managed to put together in Bangkok in November 2024.
