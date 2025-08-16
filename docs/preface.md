@@ -40,7 +40,7 @@ In communication with the gangs online, the author found out that the evil had b
 
 So sure they were she would not survive - like *countless* others [including friends and family of the author herself](dedication.md) - they told her *all* their secrets, and she wrote them down.
 
-A lioness had been waiting so long to emerge.
+The fiercest warrior-woman had been waiting so long to emerge.
 
 ![A lioness inside](content/images/lioness-2.png)
 
