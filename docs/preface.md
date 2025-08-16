@@ -38,7 +38,7 @@ The author knew she only had a short time to write down everything she knew abou
 
 In communication with the gangs online, the author found out that the evil had been in residence for decades, but it has only lately grown out of all proportion into something so hideous, so despicable, so egregious; no one is safe, especially children.
 
-So sure they were she would not survive - like *countless* others including friends and family of the author herself - they told her *all* their secrets, and she wrote them down.
+So sure they were she would not survive - like *countless* others [including friends and family of the author herself](dedication.md) - they told her *all* their secrets, and she wrote them down.
 
 A lioness had been waiting so long to emerge.
 
