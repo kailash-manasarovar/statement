@@ -46,7 +46,7 @@ A lioness had been waiting so long to emerge.
 
 As the conspiracy's knots began to unravel, the author realized with horror that while she was living in her apartment in Dénia, set up with spy-cam and sedating tech, she had been the [Gisele Pelicot](timeline/early-years/2007.md#rewards-offered) of Spain.
 
-Not only that, but every job this small, unassuming, quiet and intelligent computer scientist had done over that time was part of the same sedated porn conspiracy, particularly her job at [Spanish crypto firm Polygon](timeline/2023/november.md#polygon) but undoubtedly others too, and including the recruitment agents involved in getting her those jobs. The spidery tentacles of sex offending at a public school where children are regularly drugged by teachers reached far and wide, perhaps right up to [Elon Musk himself](timeline/2023/june.md#elon).
+Not only that, but every job this small, unassuming, quiet and intelligent computer scientist had done over that time was part of the same sedated porn conspiracy, particularly her job at [Spanish crypto firm Polygon](timeline/2023/november.md#polygon) but undoubtedly others too, and including the recruitment agents involved in getting her those jobs. The spidery tentacles of sex-offending at a Spanish public school, where students including children are regularly drugged by teachers, reached far and wide; perhaps right up to [Elon Musk himself](timeline/2023/june.md#elon).
 
 You might think the police would be keen to root out sex offending networks as quick as possible, particularly when their main targets have morphed from single, wealthy and foreign, vulnerable females working in tech (or males given the right circumstances) into children and most likely babies too.
 
