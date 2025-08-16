@@ -168,9 +168,10 @@
 ![Bali](../../content/images/bali.png)
 
 - I seem to have "bumping into" episodes every day; *meaningfully* set up events and situations, or literally bumping into people meaningfully.
-- I complain to my manager about it - the American CTO who replaced David Z. (name incoming) - referencing an earlier complaint I had made to him.
+- I complain to my manager, Paul O'Leary about it - the American CTO who replaced David Z. - referencing an earlier complaint I had made to him.
 - Gabriel Silva, nothing to do with the writing team at that point, mentions how he is going to be sorting out the docs (my work) using other people who are not on the writing team. 
-- It's a military coup; and that's *exactly* how I describe it to my manager.
+- It's a military coup; and that's *exactly* how I describe it to my manager Paul.
+- When I speak to Paul O'Leary about this in Bali, he sort of [groans with familiarity](october.md#madrid-and-paloma), in exactly the same way Paloma groans when I tell her about the porn-gangs and pedophilia going on at the conservatory of Denia.
 - The bullying continues over the following month where another employee, on Gabriel's orders, tries to pretend my systems are unusable, but he can't really and he just looks stupid. It's all in the Git records.
 - The implication, however, is that I am incompetent. And mud sticks.
 - This has been Gabriel's outward view of me since January after hearing from Grace about my women's rights activities, and why, I assume, he stopped giving me any work at that time.
