@@ -369,6 +369,8 @@ function googleTranslateElementInit() {
 
 [![Car keyed](../../content/tweets/october-2023/reporting-car-keyed.png)](https://x.com/1FRGVN/status/1716066748456149202)
 
+- The man looks like Lorraine's ex-husband; a cousin maybe.
+
 ## First letter to the Generalitat
 
 - Letters to the Generalitat Valenciana have been [appearing on Google search `@jctot19 x`](september.md#generalitat-letterheads) since September.
