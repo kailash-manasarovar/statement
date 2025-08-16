@@ -1,3 +1,5 @@
+# May 2024
+
 ## Hazel Smith on Twitter
 
 - This account was likely Hazel, or her mum, as we had a long chat: https://x.com/1FRGVN/status/1785410648802734485.
@@ -9,10 +11,12 @@
 ![Hazel](../../content/images/threats/hazel/choral-symphony-thread-1.png)
 ![Hazel](../../content/images/threats/hazel/choral-symphony-thread-2.png)
 
-- More recently (27th November), another account has popped-up as significant, Granny Smith. This account has been targeting people close to me who thought they met them in person, but in the end we discovered they never had.
+- More recently (27th November), another account has popped-up as significant, Granny Smith. 
+- This account has been targeting people close to me who thought they met them in person, but in the end we discovered they never had.
 
 ![Granny Smith](../../content/images/fake-accounts/lard-shugga.png)
 
+- Except, the person who told me that was one of my dodgy [election volunteers](june.md#election-campaign), So or Janet who eventually appeared to be tag teaming online with the Smiths *and* the Denia porn-gangs.
 - This account was deleted over the last two days. The timing on that is interesting.
 
 ## Targeting kids
