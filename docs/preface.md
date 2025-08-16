@@ -18,7 +18,7 @@ Dear reader,
 
 This book started life as a police statement.
 
-It was written under extraordinary pressures, and while the author was being poisoned, drugged, and terrorized by criminal sex gangs, operating freely in Spanish public schools amongst minor children, teenagers, and young people.
+It was written under extraordinary pressures, and while the author was being poisoned, drugged, and terrorized by criminal sex gangs operating freely in Spanish public schools amongst minor children, teenagers, and young people.
 
 ![Terrorized by Spanish men and their female slaves](content/images/planning-the-murder-of-innocents-2.png)
 
