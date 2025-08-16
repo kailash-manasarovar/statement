@@ -101,6 +101,11 @@ function googleTranslateElementInit() {
 - Samuel makes a huge effort to help me throughout this year with translation and explaining things the fast-speaking teacher says. He walks home with me a little way after every class.
 - After the end of the course, in [June 2023](../2023/june.md), Samuel rarely speaks to me at all and never walks with me. 
 - Samuel tells me he used to be a student of Lorraine Blackbourn. I cry when he tells me this and have to leave the room. This is not like me normally.
+- Samuel was around Lorraine regularly at the time she killed herself; I believe he said he was taking classes at her academy when she died.
+- I asked him what happened. He mumbled something incomprehensible about how she had been anxious at the time.
+- I said didn't anyone notice anything, and try to help?
+- He didn't reply.
+- I wonder if Samuel was implicated in gang-stalking Lorraine Blackbourn around the time of her death, in the same way he is implicated in gang-stalking me on request from Domingo.
 - Elvira is also in this class. She is a minor child and she is Domingo's student also.
 - Elvira has a sister, Lucía, in the year above who is also Domingo's student.
 - Now and then, Samuel, Domingo, Elvira and Lucía will go out in the evenings together, just those four. 
@@ -113,11 +118,11 @@ function googleTranslateElementInit() {
     - Domingo is often seen alone with Elvira and Lucía in the town.
     - Domingo is alone with them a lot and will have had unfettered access to their mobiles as he does with all his students.
     - At some point, Samuel informs me that the girl's mother is buying a Steinway piano.
-    - I am concerned about the safety of these females.
+    - I am concerned about the safety of these little girls.
 
 !!! tip "Sara"
     - A girl called Sara attends classes this year, but she does not return for year 4.
-    - She looks a lot like (one of) the trumpet teachers and I eventually wonder if she could be a daughter, or a close family member, sent to report back on the unconsenting British rape porn star.
+    - She looks a lot like (one of) the trumpet teachers (Mark) and I eventually wonder if she could be a daughter, or a close family member, sent to report back on the unconsenting British sedated rape porn star.
 
 !!! info "A curious irony"
     - The harmony teacher minds me of Gene Hackman and I start thinking about the film, The Conversation, where Gene Hackman is recording and eavesdropping on a conversation between lovers.
