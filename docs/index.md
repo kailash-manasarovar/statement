@@ -91,37 +91,43 @@ The report details the following:
 
 ## Motive
 
-While trying to figure out what was going on, I spent much time theorizing on why a whole town would put so much energy into threatening and terrorizing a woman they considered vulnerable for over three years.
+While trying to figure out what was going on, I spent much time theorizing on why a whole town would put so much energy and resources into threatening and terrorizing a woman they considered vulnerable for over three years.
 
-In the end, I think the town has suffered a murderous mass-psychosis.
+In the end, I am left with no other theory than that the town is suffering from a murderous mass-psychosis brought on by unfettered porn-addictions coupled with commonplace corruption.
 
-I believe the town of Dénia has been a spy-cam porn-studio for over a decade. Prior to that, wealthy and foreign women were commonly targeted for sexual exploitation using spy-cam technology, so it was a simple evolution into installing spy-cams in AirBnBs, hotels, rental apartments, and houses for sale.
+I believe the town of Dénia has been a spy-cam porn-studio for over a decade. Prior to that, from at least three decades ago, wealthy and foreign women were commonly targeted for sexual exploitation using spy-cam technology; see the [Irene sections](timeline/2023/july.md#plate-lady-early-in-the-month) for an example of this. 
+
+It would have been a seamless evolution into installing spy-cams in AirBnBs, hotels, rental apartments, and houses for sale, and making a lot of money by doing so.
 
 Any resultant police complaints will have been silenced and ignored, and I expect there are thousands.
 
-We know that porn-addicts get bored easily, and need more and more deprivation, more rape, more murder and injury, so the porn studio clearly extended into schools and places where children and young people are vulnerable to grooming. We don't know how many children have been victims of the porn gangs. Again, multiple complaints will have been silenced and ignored.
+We know that porn-addicts get bored easily and need more and more deprivation, more rape, more murder and injury, younger and younger victims; so the porn studio must have seamlessly again extended into schools and places where children and young people are vulnerable to grooming. 
 
-Furthermore, there is evidence to suggest that online manipulation techniques coupled with clandestine drugging is being used to persuade women to have babies with porn-gang members, which they can then abuse to make up the millions of baby-rape videos we hear about every week in the news.
+We don't know how many children have been victims of the porn gangs. Again, multiple complaints will have been silenced and ignored.
 
-And what happens to people who have such power over others? The power of life and death by clandestine poisoning. The power of knowing what a person is doing 24-hours a day. The power of hearing all conversations, and reading all letters, chats, and correspondence.
+A more worrying trend is the evidence suggesting online manipulation techniques coupled with clandestine drugging is being used to persuade women to have babies with porn-gang members, which they can then abuse to add to the millions of baby-rape videos we hear about every week in the news, and pay for their ferrari's on the darknet subscription fees.
 
-I believe they started creating "shows" of targeted women and everything that has happened to me has been watched online by millions of sick porn-addicts and homicidal maniacs. Could Denia TV be broadcasting such evil?
+And what happens to people who have such power over others? The power of life and death by clandestine poisoning: The power of knowing what a person is doing 24-hours a day: The power of hearing all conversations, reading all letters, chats, and correspondence, and knowing total strangers intimately?
+
+I believe that what Lorraine stumbled across was they had started creating live-streamed "shows" of targeted women, and everything that has happened to me, every incident in this statement, has been watched online by millions of sick porn-addicts and homicidal maniacs.
+
+Could [Dénia TV](timeline/early-years/2008.md#denia-tv) be broadcasting such evil?
 
 Perhaps they even run a betting segment; will she kill herself? Or should we just murder her?
 
 No wonder Christine said, ["Why does someone always have to die?"](timeline/2023/december.md#piano-concert).
 
-The suicide statistics in Denia are off the scale.
+The suicide statistics in Dénia are off the scale. Something very evil is going on there.
 
-The end goal of everything that happened to me, and any other target, was death; either by suicide, or murder.
+The end goal of everything that happened to me, and any other target, is death; either by suicide, or murder.
 
-If I'm right, I still can't believe they are all this insane. Are the good people of Dénia prisoners in their own homes? Do they know what's going on but can't do anything about it because they'll be killed or maimed? How many tried to solve this problem and were murdered?
+If I'm right, I still can't believe they are all this insane. Are the good people of Dénia prisoners in their own homes? Do they know what's going on but can't do anything about it because they'll be killed or maimed? How many have tried to correct this problem and been murdered?
 
 Are the cyber-stalkers who fed me information and evidence about actual crimes simply decent Dénia citizens unable to get help via any normal security routes?
 
-Could such staggering criminality have been normalized by the Spanish police and governments in Spain, and abroad, because so many people know about it, and you have to be a porn-addict to know about it, and so many men are completely lost in porn, from all walks of life, and every echelon of society?
+Could such staggering criminality have been normalized by the Spanish police and governments in Spain, and abroad, because so many people know about it, and of course you have to be a porn-addict to know about it, and so many men are completely lost in porn, from all walks of life, and every echelon of society, hopeless hopelessly lost?
 
-Is Dénia the only city in Spain where this is happening? Or is it everywhere; in Spain and throughout the West?
+Is Dénia the only city in Spain where this is happening? Or is it everywhere; in Spain and throughout the Western world?
 
 ## Why was I in Dénia?
 
