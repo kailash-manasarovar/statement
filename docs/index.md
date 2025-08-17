@@ -54,6 +54,7 @@ The report details the following:
 - Once I'd been run through and the porn-gangs had finished with me, and I refused to leave (because I had no idea what was going on), they decided they would murder me by poison, possibly strychnine, methanol, or similar; [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-harm-or-kill).
 - I have sustained a severe kidney injury due to the poisoning (which will heal eventually). Criminal gangs continue to be [extremely nasty to me about the kidney injury online](timeline/2023/january.md#criminal-gang-online-cruelty).
 - My vision has also deteriorated hugely since September 2024 and I have been diagnosed with a [pre-glaucoma condition](timeline/2024/november.md#pre-glaucoma-eye-condition). I have noticed my peripheral vision has completely disappeared on the left side mostly, and in front, and on the right side too. This is why I think they probably used methanol in October 2024, and likely mandrake over a long period to make my vision blurry so I could not make people out properly. When one's pupils are dilated for months or years continuously, as mine were, this can cause pre-glaucoma in a person who would otherwise never get it.
+- I expect this also to heal.
 - I have samples for everything I'm detailing here, as well as the physical injuries.
 - I have suffered [incalculable personal financial losses that continue](personal/expenses.md), and there has been an even more extraordinary amount of financial gain from my suffering to the [porn-gangs](crimes/protagonists.md#domingo-lopez-cano) of Dénia for over at least a decade.
 - I'm told of the extremely high likelihood that I was sedated, raped, and videoed in the same way at my flat in Joan Fuster 11 over the years 2014-2016; events that triggered a huge suicidal depression. It's possible Lorraine Blackbourn found out about this.
@@ -123,7 +124,7 @@ Are the cyber-stalkers who fed me information and evidence about actual crimes s
 
 Could such staggering criminality have been normalized by the Spanish police and governments in Spain, and abroad, because so many people know about it, and you have to be a porn-addict to know about it, and so many men are completely lost in porn, from all walks of life, and every echelon of society?
 
-Is Dénia the only city in Spain where this is happening? Or is it everywhere?
+Is Dénia the only city in Spain where this is happening? Or is it everywhere; in Spain and throughout the West?
 
 ## Why was I in Dénia?
 
