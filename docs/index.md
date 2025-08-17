@@ -80,18 +80,13 @@ The report details the following:
 ### Colleagues and employers
 
 - It turns out, that everyone was having so much fun at my expense over the last twenty years, and making so much money too, the tech-bro porn-addicts at the tech companies I worked for (not all of them) were also involved in the conspiracy too, particularly [Polygon](timeline/2024/may.md#bali).
-- Over the last ten years, possibly after being watched online by the global tech-bro porn-addict community, perhaps being live-streamed from Joan Fuster, and as a delightful extension on the regular violence against women requirement, even recruitment agents were employed to lure me into amazing jobs in which I was immediately treated like dirt.
+- Over the last ten years, possibly after being watched online by the global tech-bro porn-addict community, perhaps even being live-streamed sedated from Joan Fuster, and as a delightful extension on the regular violence against women requirement, even recruitment agents were employed to lure me into amazing jobs in which I was immediately treated like dirt, or grotesque interview set ups designed to upset me.
 - For that reason, I'm uploading my CV here so that if anyone cares to investigate the global tech-bro porn-gang conspiracy (of which I am no doubt the tip of the iceberg), here's where to look first.
 
 [![My CV](content/images/cv.png)](content/documents/CV_2025_CV.pdf)
 
 - Yes, I know I know, why is a Dr of Computer Science who built the world's first spiritual tech working in a role that's kind of akin to secretary?
 - I will expand on all of this shortly, of course.
-
-## My personal suffering
-
-- See [Health](personal/health.md) for more information on health problems arising from 3 years of poisoning and drugging in Dénia.
-- See [Expenses](personal/expenses.md) for more information on the financial cost to myself of enduring 3 years of gang stalking and mass gender violence by the people of Dénia, including lost work due to extreme stress and non-consensual drugging rendering me incapable of making good decisions.
 
 ## Motive
 
@@ -150,6 +145,11 @@ This photo is of me playing the piano as a piano student of the conservatory of 
 ![Katharine Murphy plays the piano at the boat club in Dénia in 2015](content/images/katharine-pianist.jpg){width=70%}
 
 I still can't believe that everyone in the town is evil. I wonder if the battered women, like Paqui Fornet and others, felt unable to resist their husbands maddening porn-addictions. I wonder if many others just went quietly mad too, knowing there was nothing they could do. I wonder if the majority prayed constantly and fervently to God, asking for His intercession. I'd hope it was a majority, I suspect it wasn't, but regardless God answers every prayer. I hope this police statement does somewhat to answer at least some of those prayers.
+
+## My personal suffering
+
+- See [Health](personal/health.md) for more information on health problems arising from 3 years of poisoning and drugging in Dénia.
+- See [Expenses](personal/expenses.md) for more information on the financial cost to myself of enduring 3 years of gang stalking and mass gender violence by the people of Dénia, including lost work due to extreme stress and non-consensual drugging rendering me incapable of making good decisions.
 
 ## Report layout
 
