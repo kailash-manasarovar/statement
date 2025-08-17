@@ -129,6 +129,8 @@ Could such staggering criminality have been normalized by the Spanish police and
 
 Is Dénia the only city in Spain where this is happening? Or is it everywhere; in Spain and throughout the Western world?
 
+Is the vile misogyny in Muslim cultures bettered by the porn-gangs of the West?
+
 ## Why was I in Dénia?
 
 I love Dénia. 
