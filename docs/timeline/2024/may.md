@@ -217,7 +217,7 @@
 
 - Alicia Katz worked at Polygon and was part of the bullying I described to my manager (the CTO at the time that took over from David Schwartz) as a military coup operation.
 - At Bali, I was set up to "bump" into her a couple of times. 
-- I assume engineers at Polygon had the same sort of pinhole location access to my physical whereabouts as did teachers and staff at the conservatory of Denia, and local townsfolk and porn-gang members.
+- I assume engineers at Polygon had the same sort of pinpoint location access to my physical whereabouts as did teachers and staff at the conservatory of Denia, and local townsfolk and porn-gang members.
 - I'm pretty sure, like most people at Polygon and elsewhere, she was persuaded to go along with bullying me because of my women's rights activities and concerns about child safeguarding. It's a common thing, whatever.
 - She wouldn't have known about the spy-cam and sedating porn going on at my apartment in Denia at the time. I didn't know myself.
 - Anyway, shortly after Bali, Alicia leaves the firm suddenly. 

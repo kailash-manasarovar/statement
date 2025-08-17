@@ -320,13 +320,18 @@
 ## Trying to find the cameras
 
 - I'm absolutely sure there are cameras in my flat but they are impossible to find.
-- There is a huge purposeful hole in the wall behind the bathroom mirror, however.
+- Nevertheless I believe there is one on the ceiling in the living room above the TV; I always noticed a little black dot there.
+- I believe there is one on the ceiling in the corner of the bedroom which matches the position of the spy-cam porn posted on my Google search results.
+- There is a huge purposeful hole in the wall behind the bathroom mirror also, however.
 - There is another one behind the sofa on the wall.
 - I'm interested in one particular network I can see on the networks around: **Casa LANister**.
 
 ![Available networks](../../content/images/lan.png)
 
 - I'm also very interested in the group of networked devices named **Cascadas** which I believe are the hidden cameras but only an investigative team would be able to confirm this.
+- When the man from Telco comes to [fix the router](#the-router-malfunctions-while-im-in-fatima), he has obviously been told to tell me about the spy-cam LAN.
+- He asks me to come over to where he is standing, which is underneath where I believe there's a spy-cam and in front of the TV.
+- He starts talking about something particularly inconsequential, and while he's doing so he's pointing at the *Casa LANister* connections very slowly, and very pointedly, and looking at me meaningfully as he does while mumbling about something completely irrelevant.
 
 ## The police trafficking email
 

@@ -61,7 +61,8 @@ The report details the following:
 - A [Spanish official confirmed](timeline/2024/october.md#madrid-and-paloma) that they answer in the affirmative; everyone knows who I am.
 - If you ask them why the whole town persecuted and terrorized me for 3 years, the answers will be quite interesting.
 - Try and find someone who's seen footage of me naked, maybe masturbating, privately in my flat. They will be easy to find.
-- Perhaps you can find someone who's seen me going to the toilet, or having a bath, or taking an enema, or maybe they heard me passing wind very loudly?
+- Perhaps you can find someone who's seen me going to the toilet, or having a bath, doing yoga, or taking an enema, or maybe they heard me passing wind very loudly?
+- Were they party to private conversations with colleagues and industrial secrets; things I had to sign NDAs about?
 - Try and find someone who's seen footage of me as a child, sedated, being gang raped by a group of black men, and you may find someone who has seen it. You will certainly find many people who heard about it. 
 - Try and find some of the men who have entered my apartment while I was sedated and raped me while the events were live-streamed internationally? They are there, and I have them on spy-cam too.
 
@@ -100,6 +101,8 @@ I believe they started creating "shows" of targeted women and everything that ha
 
 Perhaps they even run a betting segment; will she kill herself? Or should we just murder her?
 
+No wonder Christine said, ["Why does someone always have to die?"](timeline/2023/december.md#piano-concert).
+
 The suicide statistics in Denia are off the scale.
 
 The end goal of everything that happened to me, and any other target, was death; either by suicide, or murder.
@@ -107,6 +110,8 @@ The end goal of everything that happened to me, and any other target, was death;
 If I'm right, I still can't believe they are all this insane. Are the good people of Dénia prisoners in their own homes? Do they know what's going on but can't do anything about it because they'll be killed or maimed? How many tried to solve this problem and were murdered?
 
 Are the cyber-stalkers who fed me information and evidence about actual crimes simply decent Dénia citizens unable to get help via any normal security routes?
+
+Could such staggering criminality have been normalized by the Spanish police and government because you have to be a porn-addict to know about it, and so many men are, from all walks of life, and every echelon of society?
 
 ## Why was I in Dénia?
 
@@ -129,6 +134,8 @@ In fact, I just wanted to play the piano and the standard of music teaching was 
 This photo is of me playing the piano as a piano student of the conservatory of Dénia in 2015.
 
 ![Katharine Murphy plays the piano at the boat club in Dénia in 2015](content/images/katharine-pianist.jpg){width=70%}
+
+I still can't believe that everyone in the town is evil. I wonder if the battered women, like Paqui Fornet and others, felt unable to resist their husbands maddening porn-addictions. I wonder if many others just went quietly mad too, knowing there was nothing they could do. I wonder if the majority prayed constantly and fervently to God, asking for His intercession. I'd hope it was a majority, I suspect it wasn't, but regardless God answers every prayer. I hope this police statement does somewhat to answer at least some of those prayers.
 
 ## Report layout
 
