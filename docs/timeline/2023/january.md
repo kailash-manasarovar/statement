@@ -173,6 +173,7 @@ function googleTranslateElementInit() {
 
 ![Catherine vonRuhland](../../content/images/fake-accounts/dialysis.png)
 
+- Note the sick porn reference in the URL.
 - They also do this with sly comments such as when [Susan Hamill told me she had kidney failure](../2025/march.md#let-women-speak-aberdeen) for 10 years and her doctors never told her.
 - It's never ending.
 
