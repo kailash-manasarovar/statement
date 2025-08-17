@@ -62,7 +62,7 @@ function googleTranslateElementInit() {
 
 - Klara, a Hungarian national I believe, runs the Orfeo international choir which I was a member of and where I met [Mercedes](#mercedes-correas-lara).
 - Klara knows Domingo very well.
-- When I met Klara for the first time in years at the [concert in May 2023](../timeline/2023/may.md#concert-de-orfeo-de-dénia), her nervousness was obvious to me.
+- When I met Klara for the first time in years at the [concert in May 2023](../timeline/2023/may.md#concert-de-orfeo-de-denia), her nervousness was obvious to me.
 - I believe she knows everything that has been going on and is a main porn-gang co-conspirator.
 - As payment, it appears she has been allowed to study conducting at the superior conservatory of Alicante and there are photos of her there together with lots of male teachers.
 - This kind of achievement is unprecedented and I can only assume Domingo or his uncle arranged it as payment for target delivery.
