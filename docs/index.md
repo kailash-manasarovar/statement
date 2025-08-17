@@ -63,7 +63,7 @@ The report details the following:
 - This staggering criminality is something they were so experienced and expert at, there's no way I'm the only victim. In fact, I list a whole bunch of victims in this statement covering many decades and current, including minors in serious danger; something the Spanish authorities (police, government, and the Generalitat) decided to ignore when I told them, multiple times.
 - I believe that **every event** I detail in this statement was videoed and broadcast to a mostly porn-addict and vile misogynist online audience as a kind of "show" which explains the townsfolk's total insanity and has also made criminal gangs very rich.
 - This is, essentially, why so many people know who I am.
-- I was in a kind of Truman Show, except Truman is a targeted individual, usually a woman but not always, can be a child, and these "Trumans" are expected to die by suicide or serious ill health from poisoning, or be outright murdered, and none have never escaped. 
+- I was in a kind of Truman Show, except the "Truman" is a targeted individual, usually a woman but not always, can be a child, and these "Trumans" are expected to die by suicide or serious ill health from poisoning, or be outright murdered, and none have never escaped. 
 - Until now.
 
 ### Everyone knows who I am
