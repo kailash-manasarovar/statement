@@ -33,7 +33,7 @@ The crimes include distribution of spy-cam footage from my apartment where I was
 
 Gang-stalking, cyber-terrorizing, constant online persecution, and poisoning (attempted murder) by criminal gangs has continued since leaving Spain in February 2025.
 
-### Mass voyeurism, cyber-stalking, gang stalking, honey-trapping, and staggering levels of violence against women
+## Mass voyeurism, cyber-stalking, gang stalking, honey-trapping, and staggering levels of violence against women
 
 The report details the following:
 
@@ -66,7 +66,7 @@ The report details the following:
 - I was in a kind of Truman Show, except the "Truman" is a targeted individual, usually a woman but not always, can be a child, and these "Trumans" are expected to die by suicide or serious ill health from poisoning, or be outright murdered, and none have never escaped. 
 - Until now.
 
-### Everyone knows who I am
+## Everyone knows who I am
 
 - If you travel to Dénia and talk to just a few people; ask them if they know me. 
 - A [Spanish official confirmed](timeline/2024/october.md#madrid-and-paloma) that they answer in the affirmative; everyone knows who I am.
@@ -74,18 +74,19 @@ The report details the following:
 - Try and find someone who's seen footage of me naked, maybe masturbating, privately in my flat. They will be easy to find.
 - Perhaps you can find someone who's seen me going to the toilet, or having a bath, doing yoga, or taking an enema, or maybe they heard me passing wind very loudly?
 - Was anyone party to private conversations I had with colleagues about industrial secrets; things I had to sign NDAs about?
-- Try and find someone who's seen footage of me as a child, sedated, being gang raped by a group of black men, and you may find someone who has seen it. You will certainly find many people who heard about it. 
+- Try and find someone who's seen footage of me as a child, sedated, being gang raped by a group of black men, and you may find someone who has seen it. You will certainly find many people who heard about it. It shocked me to know that the townsfolk heard about it long before I did.
 - Try and find some of the men who have entered my apartment while I was sedated and raped me while the events were live-streamed internationally? They are there, and I have them on spy-cam too.
 
-#### Colleagues and employers
+### Colleagues and employers
 
-- It turns out, that everyone was having so much fun at my expense, and making so much money too, the tech companies (not all of them) I worked for were hugely involved in the conspiracy too, particularly [Polygon](timeline/2024/may.md#bali).
-- Over the last ten years, possibly after being watched online in Joan Fuster by the global tech-bro porn-addict community, as an extended violence against women requirement, recruitment agents were employed to lure me into amazing jobs in which I was immediately treated like dirt.
+- It turns out, that everyone was having so much fun at my expense over the last twenty years, and making so much money too, the tech-bro porn-addicts at the tech companies I worked for (not all of them) were also involved in the conspiracy too, particularly [Polygon](timeline/2024/may.md#bali).
+- Over the last ten years, possibly after being watched online by the global tech-bro porn-addict community, perhaps being live-streamed from Joan Fuster, and as a delightful extension on the regular violence against women requirement, recruitment agents were employed to lure me into amazing jobs in which I was immediately treated like dirt.
 - For that reason, I'm uploading my CV here so that if anyone cares to investigate the global tech-bro porn-gang conspiracy (of which I am no doubt the tip of the iceberg), here's where to look first.
 
 [![My CV](content/images/cv.png)](content/documents/CV_2025_CV.pdf)
 
-- I will expand on this shortly of course.
+- Yes, I know I know, why is a Dr of Computer Science who built the world's first spiritual tech working in a role that's kind of akin to secretary?
+- I will expand on all of this shortly, of course.
 
 ## My personal suffering
 
