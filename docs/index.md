@@ -80,7 +80,7 @@ The report details the following:
 ### Colleagues and employers
 
 - It turns out, that everyone was having so much fun at my expense over the last twenty years, and making so much money too, the tech-bro porn-addicts at the tech companies I worked for (not all of them) were also involved in the conspiracy too, particularly [Polygon](timeline/2024/may.md#bali).
-- Over the last ten years, possibly after being watched online by the global tech-bro porn-addict community, perhaps being live-streamed from Joan Fuster, and as a delightful extension on the regular violence against women requirement, recruitment agents were employed to lure me into amazing jobs in which I was immediately treated like dirt.
+- Over the last ten years, possibly after being watched online by the global tech-bro porn-addict community, perhaps being live-streamed from Joan Fuster, and as a delightful extension on the regular violence against women requirement, even recruitment agents were employed to lure me into amazing jobs in which I was immediately treated like dirt.
 - For that reason, I'm uploading my CV here so that if anyone cares to investigate the global tech-bro porn-gang conspiracy (of which I am no doubt the tip of the iceberg), here's where to look first.
 
 [![My CV](content/images/cv.png)](content/documents/CV_2025_CV.pdf)
