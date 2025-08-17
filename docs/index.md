@@ -73,7 +73,7 @@ The report details the following:
 - If you ask them why the whole town persecuted and terrorized me for 3 years, the answers will be quite interesting.
 - Try and find someone who's seen footage of me naked, maybe masturbating, privately in my flat. They will be easy to find.
 - Perhaps you can find someone who's seen me going to the toilet, or having a bath, doing yoga, or taking an enema, or maybe they heard me passing wind very loudly?
-- Were they party to private conversations I had with colleagues about industrial secrets; things I had to sign NDAs about?
+- Was anyone party to private conversations I had with colleagues about industrial secrets; things I had to sign NDAs about?
 - Try and find someone who's seen footage of me as a child, sedated, being gang raped by a group of black men, and you may find someone who has seen it. You will certainly find many people who heard about it. 
 - Try and find some of the men who have entered my apartment while I was sedated and raped me while the events were live-streamed internationally? They are there, and I have them on spy-cam too.
 
