@@ -378,6 +378,7 @@ function googleTranslateElementInit() {
 - He asks me where I live, I tell him Denia.
 - He says did I know a [Maria who does Vipasana in Denia](../early-years/2015.md#vipasana-maria).
 - I say yes.
+- I don't tell him [Maria signed my child sexual abuse statement to the Metropolitan Police in 2015](../early-years/2015.md#statement-to-the-metropolitan-police), but perhaps he knows already.
 - He says they were a romantic item at one point.
 - I tell him the last time I saw her was nearly 10 years before, and she was very unwell with a liver problem.
 - He says, pobrecita.
@@ -385,7 +386,8 @@ function googleTranslateElementInit() {
 - It would not surprise me.
 - As with everyone else in this statement, I would recognize him in an instant.
 - Does he know something about why Maria was so ill and the doctors were fobbing her off?
-- Did he say his name was Antonio? Could the man have given a false name so as to divert attention back to the trumpet teacher?
+- He had a very Spanish name but I can't remember what it was.
+- Maria will know, if she's still alive.
 
 #### Jess
 
