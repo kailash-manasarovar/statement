@@ -372,6 +372,20 @@ function googleTranslateElementInit() {
 - Could I have been being drugged by stalkers at the retreat?
 - Our bedrooms and belongings were completely free to infiltrate at any time.
 
+#### A mutual friend
+
+- While I'm working in the kitchen one afternoon, a man introduces himself, he has excellent English.
+- He asks me where I live, I tell him Denia.
+- He says did I know a [Maria who does Vipasana in Denia](../early-years/2015.md#vipasana-maria).
+- I say yes.
+- He says they were a romantic item at one point.
+- I tell him the last time I saw her was nearly 10 years before, and she was very unwell with a liver problem.
+- He says, pobrecita.
+- In retrospect, I notice that he looks like [Nati's sailor man](../early-years/2015.md#nati-de-prati-yoga) I see on Facebook in 2025, and I wonder if they are one and the same.
+- It would not surprise me.
+- As with everyone else in this statement, I would recognize him in an instant.
+- Does he know something about why Maria was so ill and the doctors were fobbing her off?
+
 #### Jess
 
 - A British woman living in Bilbao attended volunteering.
