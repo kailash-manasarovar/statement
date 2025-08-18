@@ -389,6 +389,9 @@ function googleTranslateElementInit() {
 - He had a very Spanish name but I can't remember what it was. Although he may have said it was Antonio, perhaps because he has been trying to make me think so hard for so long that he is the trumpet teacher.
 - Not in a trillion years buster, and then not.
 - Maria will know who he is and what his name is, if she's still alive.
+- As we were talking, he mentioned my received pronunciation and my glottal stop. It was curious enough to me to tweet about it the same day.
+
+[![Received pronunciation](../../content/tweets/december-2023/received-pronunciation.png)](https://x.com/1FRGVN/status/1739768159748468855)
 
 #### Jess
 
