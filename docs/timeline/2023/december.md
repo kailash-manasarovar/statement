@@ -381,13 +381,14 @@ function googleTranslateElementInit() {
 - I don't tell him [Maria signed my child sexual abuse statement to the Metropolitan Police in 2015](../early-years/2015.md#statement-to-the-metropolitan-police), but perhaps he knows already.
 - He says they were a romantic item at one point.
 - I tell him the last time I saw her was nearly 10 years before, and she was very unwell with a liver problem.
-- He says, pobrecita.
+- He says, *pobrecita*.
 - In retrospect, I notice that he looks like [Nati's sailor man](../early-years/2015.md#nati-de-prati-yoga) I see on Facebook in 2025, and I wonder if they are one and the same.
 - It would not surprise me.
 - As with everyone else in this statement, I would recognize him in an instant.
 - Does he know something about why Maria was so ill and the doctors were fobbing her off?
-- He had a very Spanish name but I can't remember what it was.
-- Maria will know, if she's still alive.
+- He had a very Spanish name but I can't remember what it was. Although he may have said it was Antonio, perhaps because he has been trying to make me think so hard for so long that he is the trumpet teacher.
+- Not in a trillion years buster, and then not.
+- Maria will know who he is and what his name is, if she's still alive.
 
 #### Jess
 
