@@ -270,7 +270,9 @@
 - I gasp.
 - At precisely that moment, my security camera at home goes off and sounds an alarm on my phone. I don't have time to look.
 - The woman dressed as Lorraine (who I now believe to be Carmen Cano, Domingo's sister) and a man sit directly behind me, in seats that have been saved for them.
-- Patricia, Christine BJ, and another English woman have come to listen. They maybe know what's going on, it's not clear. Certainly there is a frosty feeling, and when we walk out and I insist I'm going to continue playing the piano, and play some Spanish flamenco at the next concert, Patricia visibly grimaces.
+- When I go up to play, I'm certain I'm not leaving my handbag at my chair (as I usually would) because these criminals are sitting right behind me. Instead, I take my bag onto the stage and leave it on the floor by the piano.
+- I do a surprisingly good job with the Mozart Sonata I've been memorizing, apart from the last bit which I muck up. The pounding heart, screaming nervous system, and overwhelming stress is somehow helpful in getting focused on the job at hand.
+- Patricia, Christine BJ, and another English woman have come to listen. They probably know what's going on, it's not clear. They're pretending not to know. Certainly there is a frosty feeling, and when we walk out and I insist I'm going to continue playing the piano, and play some Spanish flamenco at the next concert, Patricia visibly grimaces.
 - When I get home that night, I check my camera security camera. 
 
 ![Screenshot of the security cam alarm pic](../../content/documents/evidence/12-march-alarm-notification.jpeg)

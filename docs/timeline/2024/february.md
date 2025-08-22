@@ -24,6 +24,13 @@
 - I wonder now what they thought they were achieving and/or if their purpose was that I would have a nervous breakdown or kill myself.
 - For sure, at a minimum, they intended I have a severe nervous breakdown.
 
+### Ana & Domingo's concerts
+
+- I see advertisements on the conservatory walls for concerts.
+- Ana and Domingo are playing concerts at the boat club or in room 5.
+- It's like the conservatory is declaring: we are totally 100% committed to destroying one or more of our students, and we know she is being sedated and raped in her apartment and has been for a few years now, and we're enjoying watching that, and we know she is being abused continually online and in the town, and ... we don't care.
+- We're just carrying on as normal, because that's what we do here.
+
 ## My funny valentine
 
 <iframe width="672" height="378" src="https://www.youtube.com/embed/Are-c0BLyIg" title="Frank Sinatra - My Funny Valentine" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
