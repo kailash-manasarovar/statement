@@ -47,7 +47,7 @@ function googleTranslateElementInit() {
 - Don't we all want to be loved?
 - Who wouldn't be influenced by feelings of love and a potential relationship with someone you believe you really like, even if it is manufactured and fake?
 - Or did they set me up with someone they knew would be a perfect match? And someone who was more-or-less the same size and shape as the real monster?
-- If true, how could they know that? Weird occultism or astrology, maybe?
+- If true, how could they know I would fall in love? Weird occultism or astrology, maybe?
 - Did Christ the alchemist himself take over, [on request from us both, and more](https://www.biblegateway.com/passage/?search=matthew%2018:19-20&version=NIV#:~:text=19%20%E2%80%9CAgain%2C%20truly%20I%20tell%20you%20that%20if,in%20my%20name%2C%20there%20am%20I%20with%20them.%E2%80%9D)?
 
 ### The `@JackChardwood` X feed changes completely
