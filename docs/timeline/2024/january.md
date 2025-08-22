@@ -28,6 +28,7 @@ function googleTranslateElementInit() {
     - I still have multiple samples ready for inspection if anyone ever gets round to caring about the safety and wellbeing of children, women, and young girls, and most importantly babies, toddlers, and newborns living in the Spanish Valencian community.
     - I can't imagine how an inexperienced young girl or child could possibly survive a similarly vicious attack on the emotional and mental state.
     - I am convinced that such techniques have been used on children across the world by pornographers.
+    - Hackers, in conversation with me over summer 2024, admit that targeting children has been part of what they are now required to do by their criminal bosses.
      
 - I continue chatting with the [fake account that posted a picture of my hotel room](../2023/december.md#hotel-room-cyber-stalker).
 - The content goes from Dénia specifics, and I've no doubt a man is speaking to me, to someone who is unusually delighted and claims to be a retired British lady in France showing me pictures of goats in her garden, and back and forth like this.
