@@ -25,7 +25,7 @@ function googleTranslateElementInit() {
     - These two manipulation techniques meant that I could not think rationally about anything at all.
     - Whatever is triggering these beliefs is very powerful, and is connected to a daily overwhelming sexual arousal, something I did not experience before April 2023, and have not experienced since I left my apartment in October 2024.
     - I believe I was being drugged daily via the water coming into my apartment, tampered food and bathroom products, plus manipulation with online seduction techniques.
-    - I still have multiple samples ready for inspection if anyone ever gets round to caring about the safety and wellbeing of children, women, and young girls living in the Spanish Valencian community.
+    - I still have multiple samples ready for inspection if anyone ever gets round to caring about the safety and wellbeing of children, women, and young girls, and most importantly babies, toddlers, and newborns living in the Spanish Valencian community.
     - I can't imagine how an inexperienced young girl or child could possibly survive a similarly vicious attack on the emotional and mental state.
     - I am convinced that such techniques have been used on children across the world by pornographers.
      
