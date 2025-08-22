@@ -76,14 +76,14 @@
 ## I'm banned for life on LinkedIn
 
 - I change my LinkedIn profile pics and messages to things related to my political activities with the Party Of Women.
-- I'm suddenly banned for life on LinkedIn.
+- I'm banned for life on LinkedIn.
 - I seek help from the Free Speech Union.
-- They ask me to do a data access.
+- They ask me to request my data as is my right.
 - I request LinkedIn send me all my personal data over the last few years.
-- They refuse.
-- I request again.
-- They refuse. They have no valid reason for refusing.
-- My LinkedIn data will include all the bot accounts that prompted me to get jobs at Polygon, zkSync, and others which are implicated in the online porn-gang conspiracy.
+- They refuse with some fobbing-off reason.
+- I request again more clearly.
+- They refuse again. They have no valid reason for refusing.
+- My LinkedIn data includes all the fake bot accounts that prompted me to get jobs at [Polygon](../2023/november.md#polygon), [zkSync](../2023/june.md#elon), the [Torus](../2023/august.md#head-hunted-by-ex-polygon-director) scam, and all people implicated in the international online porn-gang conspiracy.
 
 ## Drugs test
 
