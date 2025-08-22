@@ -83,7 +83,7 @@
 - They refuse with some fobbing-off reason.
 - I request again more clearly.
 - They refuse again. They have no valid reason for refusing.
-- My LinkedIn data includes all the fake bot accounts that prompted me to get jobs at [Polygon](../2023/november.md#polygon), [zkSync](../2023/june.md#elon), the [Torus](../2023/august.md#head-hunted-by-ex-polygon-director) scam, and all people implicated in the international online porn-gang conspiracy.
+- My LinkedIn data includes all the fake bot accounts that prompted me to get jobs at [Polygon](../2023/november.md#polygon), [zkSync](../2023/june.md#elon), the [Torus](../2023/august.md#head-hunted-by-ex-polygon-director) scam, and all the tech-bros implicated in the international online porn-gang conspiracy that contacted me via LinkedIn.
 
 ## Drugs test
 
