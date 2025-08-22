@@ -43,7 +43,7 @@ function googleTranslateElementInit() {
 - I wonder if it is jail.
 - I end up blocking the account because it's all just so weird; but I think if you believe the lie, even a tiny bit, they think they have a hold over you. 
 - It's like if you talk to the Indian phone-scammer, even just a few words, they never leave you alone.
-- I believed he loved me and wanted to communicate with me, a little.
+- Nevertheless, I believed he loved me and wanted to communicate with me, a little.
 - Don't we all want to be loved?
 - Who wouldn't be influenced by feelings of love and a potential relationship with someone you believe you really like, even if it is manufactured and fake?
 - Or did they set me up with someone they knew would be a perfect match? And someone who was more-or-less the same size and shape as the real monster?
