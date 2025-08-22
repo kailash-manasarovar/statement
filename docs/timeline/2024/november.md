@@ -35,7 +35,7 @@
 - Names incoming.
 - See also [Miguel Angel Piano](../early-years/2014.md#signs-a-spanish-lawyer-is-not-behaving-correctly).
 
-## A threat to my brother's life
+### A threat to my brother's life
 
 - On Sunday 10 November, hackers post what I consider a threat to my brother's life.
 - The profile pic is clearly my brother, although the bottom part of this person may be someone else.
@@ -46,7 +46,7 @@
 
 ![Account details have RIP and sniffing dogs](../../content/images/threats/image_123655411.JPG)
 
-## Bangkok
+### Porn-addicts of Bangkok out in force
 
 - Hackers post fake accounts with information from emails I have just written or conversations I have just had.
 - I visit Lumpini Park in Bangkok.
@@ -72,6 +72,18 @@
 - He would turn up really late, or not at all, leaving her waiting around all day for him.
 - On a couple of occasions this tactic meant my mother was so exasperated she left him alone in the house for long periods while she went out to do the shopping.
 - Was he also employed to [install spy-cams](../2025/may.md#spy-cams-in-london-n2-also)?
+
+## I'm banned for life on LinkedIn
+
+- I change my LinkedIn profile pics and messages to things related to my political activities with the Party Of Women.
+- I'm suddenly banned for life on LinkedIn.
+- I seek help from the Free Speech Union.
+- They ask me to do a data access.
+- I request LinkedIn send me all my personal data over the last few years.
+- They refuse.
+- I request again.
+- They refuse. They have no valid reason for refusing.
+- My LinkedIn data will include all the bot accounts that prompted me to get jobs at Polygon, zkSync, and others which are implicated in the online porn-gang conspiracy.
 
 ## Drugs test
 
