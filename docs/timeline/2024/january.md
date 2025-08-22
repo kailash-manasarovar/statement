@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 ## Back home in Dénia
 
-- I arrive home still high and euphoric after Christmas and New Year. 
+- I arrive home still high and euphoric after [Christmas and New Year](../2023/december.md#christmas). 
 - All the online interactions have made me think I have a boyfriend.
 - Whenever I [Google search](#google-search-results-reinforce-the-idea-of-boyfriends) my own account or the `@jctot19` account, I see multiple references to boyfriends. 
 
