@@ -172,7 +172,7 @@ function googleTranslateElementInit() {
     - In a situation like my experiences at the conservatory, there's no way a dummy love-interest could not know what was going on. 
     - It appears the whole of the Marina Alta region of Spain knew what was going on!
 
-- The first post I saw on his timeline, on 10th January, was an image of an angel climbing a ladder to heaven.
+- The first post I see on his timeline, on 10th January, is an image of an angel climbing a ladder to heaven.
 
 ![Angel climbing to heaven](../../content/images/angel-climbing-to-heaven.jpg)
 
