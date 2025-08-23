@@ -93,6 +93,7 @@ function googleTranslateElementInit() {
 - Gloria, the receptionist at the conservatory, leaves a message on my phone earlier in the day to say class is starting. It's a weird message where I hear the word guapo (handsome) and someone says something in the background, Paqui Fornet probably, then they both laugh weirdly.
 - I go to class that evening and the same guy who Patricia was talking to in Benijembla is there, in Jaume's room where I had been allowed to practice for my audition.
 - He says his name is Vidal.
+- He has a big black old-looking case with him, apparently for his trumpet, although he could have brought it to look like the [VHS video recorder case](../early-years/2015.md#statement-to-the-metropolitan-police) I had reported to the Met in 2015 and in 2006.
 - In the Generalitat Valenciana systems, his name was/is Vidal Sastre Sanchez Hornero, although I was told by a government official that this person doesn't exist! 
 
 !!! tip "The cover up continues in late 2024"
