@@ -182,7 +182,7 @@ function googleTranslateElementInit() {
 - There was a to-and-fro, as before, all positive.
 - After a day or two of this, however, the content starts to be interspersed with references to porn, specifically violent and humiliating porn; much of it containing unpleasant references to Ana Requena.
 - I feel Carmen Cano energy (learned by watching the @sinremite content) and an older brutish male energy all over the activity.
-- I posted one tweet with a sexual connotation; *will you look me dead in the eyes?*.
+- I posted one tweet with a sexual connotation; *will you look me dead in the eyes?*
 - The account immediately reaches out to a random woman he hasn't seen in years with an anodyne tweet, now deleted.
 - All communication ceased immediately from that moment.
 - Did I surprise them?
