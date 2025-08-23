@@ -197,7 +197,7 @@ function googleTranslateElementInit() {
 - Did my words surprise whoever was running the account?
 - The energy of the account owner was masculine and feminine over those days.
 - If I had to guess, I would say that a very evil woman (Carmen Cano) and a very sexually cruel man (her uncle?) were managing the content together at that time, and had possibly taken over from an original more benevolent user when they saw what was happening.
-- Why don't I say the male energy is Domingo Cano? 
+- Why don't I say the male energy is [Domingo Cano](../../crimes/protagonists.md#domingo-lopez-cano)? 
 - Well, Domingo was inept really, and probably only efficient at (and interested in) terrorizing children and teenagers, not women.
 - The things he said and did always made me think of him as somewhat of a fool, and, in my naivety about the situation back then, I could never understand why everyone put up with him.
 
