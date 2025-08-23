@@ -162,7 +162,7 @@ function googleTranslateElementInit() {
     - When I read this in November 2024, still under the influence of something, I was upset.
     - The tone was outrageous actually. 
     - Draw a target in, again and again, drug and manipulate them online, then say they're harassing you!
-    - Given we don't even know [who the trumpet teacher is](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero), never mind who runs the `@jctot19` honey-trap account, that's quite a charge.
+    - Given we don't even know [who or how many trumpet teachers there were](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero), never mind who runs the `@jctot19` honey-trap account, that's quite a charge.
     - I wonder if this is how they defend themselves if a girl dares accuse them of sexual coercion/grooming and cyber-stalking, or anything at all.
     - Do these men say, *oh she was obsessed with me*.
     - Has that happened previously?
@@ -181,6 +181,7 @@ function googleTranslateElementInit() {
 - I posted about the transformational touch therapy protocol, and looked on his timeline for responses, as before.
 - There was a to-and-fro, as before, all positive.
 - After a day or two of this, however, the content starts to be interspersed with references to porn, specifically violent and humiliating porn; much of it containing unpleasant references to Ana Requena.
+- I feel Carmen Cano energy (learned by watching the @sinremite content) and an older brutish male energy all over the activity.
 - I posted one tweet with a sexual connotation; *will you look me dead in the eyes?*.
 - The account immediately reaches out to a random woman he hasn't seen in years with an anodyne tweet, now deleted.
 - All communication ceased immediately from that moment.
@@ -195,7 +196,10 @@ function googleTranslateElementInit() {
 - I stopped communicating and deleted the twitter account.
 - Did my words surprise whoever was running the account?
 - The energy of the account owner was masculine and feminine over those days.
-- If I had to guess, I would say that a very evil woman and a very sexually cruel man were managing the content together at that time, and had possibly taken over from an original more benevolent user when they saw what was happening.
+- If I had to guess, I would say that a very evil woman (Carmen Cano) and a very sexually cruel man (her uncle?) were managing the content together at that time, and had possibly taken over from an original more benevolent user when they saw what was happening.
+- Why don't I say the male energy is Domingo Cano? 
+- Well, Domingo was inept really, and probably only efficient at (and interested in) terrorizing children and teenagers, not women.
+- The things he said and did always made me think of him as somewhat of a fool, and, in my naivety about the situation back then, I could never understand why everyone put up with him.
 
 ### Flying back to Spain from Ireland
 
