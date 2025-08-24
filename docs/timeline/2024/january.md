@@ -468,6 +468,7 @@ function googleTranslateElementInit() {
 
 - Even though I do my best to hide it, the constant persecution causes me a lot of stress and anxiety.
 - When I have time to think about what's going on, I have a dull and uncomfortable pain in my arms and shoulders.
+- It feels like I can't move them; I have to push through a force, as if something is holding them down.
 
 ## Threatening men outside
 
