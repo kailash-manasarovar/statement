@@ -118,7 +118,7 @@
 - The following day, I feel a little better, but after about an hour in the car, I can feel both kidneys are screaming just like they did when I was sitting peacefully in my apartment in Dénia around lunchtimes.
 - The next day, my kidneys are still aching, my eyes are blurry, and my vision is extremely poor. 
 - I can hardly look at bright lights, including a clear sky.
-- And that [private symptom Ana Girbes had such fun jeering at](../2024/january.md#ana-and-ana) has returned.
+- And that [private symptom Ana Girbes had such fun jeering at](../2024/january.md#ana-and-ana-and-paqui) has returned.
 - They certainly got me, yet again.
 - Toiletries, toothpaste, moisturizer? Who knows.
 - Perhaps they even got into the car where I was keeping water and food.

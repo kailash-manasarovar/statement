@@ -549,7 +549,7 @@
 
 ![Ana Girbes](../../content/images/fake-accounts/ani-lovi/ana.png)
 
-- The evening after the following interaction, [Ana Girbes barks](january.md#ana-and-ana), literally, at me about my very private health matter that no one *could possibly* know about unless they had access to my Google search activity.
+- The evening after the following interaction, [Ana Girbes barks](january.md#ana-and-ana-and-paqui), literally, at me about my very private health matter that no one *could possibly* know about unless they had access to my Google search activity.
 
 ![Ana Girbes](../../content/images/fake-accounts/ani-lovi/ana-1.png)
 
