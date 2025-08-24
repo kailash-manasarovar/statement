@@ -169,7 +169,7 @@
 ## The British girl at the conservatory
 
 - I go to my piano lesson on one Monday this month.
-- I am waiting outside, no-one is around.
+- I am waiting outside, weirdly no-one is around.
 - Suddenly, a girl of about 13 I know walks down the stairs.
 - She is giggly, smiley, and I expect now, high.
 - She is the half-British/half-Ukrainian-or-Russian girl that I have seen singing in concerts.
@@ -183,7 +183,7 @@
 - She is so sweet with such a clear voice, I'm delighted and it must show on my face.
 - Joan Carles glares at me angrily.
 - I'm a little stunned.
-- I realized this child must be a major target for the gangs shortly afterwards, and when I realized I had been drugged continuously, I realized she was high when she walked down the stairs.
+- I realized this child must be a major target for the gangs shortly afterwards, and when I eventually realized I was being drugged continuously in classes, I realized she was high when she had walked down the stairs, like [the two girls Domingo had with him for me to see](../2022/june.md#maria-and-domingo) in June 2022.
 - They must have set this up for me to see.
 - The arrogance is staggering.
 - I warned the British embassy about yet another child being in imminent danger, mentioning her and the others I knew about in January 2025.
