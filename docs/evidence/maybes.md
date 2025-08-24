@@ -26,7 +26,12 @@ function googleTranslateElementInit() {
 ### Alice Lara
 
 - Lara is a common name in the Dénia area. 
-- I wonder who Alice Lara is. She looks stressed.
+- I wonder who Alice Lara is. She looks stressed. So do the children.
+- The man looks triumphant, very well, very happy.
+- Something's off.
+- Did Lorraine know this woman?
+- Is she still alive and well?
+- What about the children?
 - The man in this pic looks like half of some of the AI-mix pics of the engineer who has been [full time stalking me](../content/images/fake-accounts/messages-oct/13.png).
 
 ![Alice Lara](../content/images/maybes/alice-lara-1.png)

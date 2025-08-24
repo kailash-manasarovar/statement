@@ -32,8 +32,11 @@
 
 - I get a recommendation of a lawyer from a friend who works for Deutsche Bank who made a successful complaint for unfair dismissal some years previous when she was working with another firm.
 - The British lawyer cannot help me as I have a Spanish contract, but she recommends a Spanish lawyer in Madrid who I contact immediately.
-- Names incoming.
+- The company is [J. A. Cremades Y Associates](https://www.jacremades.com/) based in Madrid.
 - See also [Miguel Angel Piano](../early-years/2014.md#signs-a-spanish-lawyer-is-not-behaving-correctly).
+- Reading through our correspondence, I start to become suspicious about the Madrid law firm when it becomes obvious they are mis-hearing and re-writing important things I have said, which would make me look like a liar.
+- They also appear to be ignoring the sexual harassment claim and referring to it as "opinion".
+- They then appear to be colluding with the company I'm complaining about by only calling witnesses who work for the company, and ignoring [Nadim Kobesi](../2023/november.md#polygon) who may have been working for the porn-gangs, the British Pakistani man who made a [violent sexual threat towards me at dinner in Bali](../2024/may.md#bali) who again may have been working for the porn gangs via Polygon management, and the other sacked writer on my team Anthony who was there at the time who very likely would not have lied about what happened.
 
 ### A threat to my brother's life
 
