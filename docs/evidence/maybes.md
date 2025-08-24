@@ -59,6 +59,8 @@ Of course, big nose is *trompa* in Spanish.
 
 Another one with an apparently normal account, but who knows: https://www.facebook.com/profile.php?id=100087276017749.
 
+This man reminds me of the man with the women and tiny girl who [followed me, distracted me, and drugged me](../timeline/2024/april.md#the-trumpet-teacher-in-denia), my guess is to prime me sexually prior to the Polygon trip to [Bali](../timeline/2024/may.md#bali).
+
 ## Someone we know?
 
 ![Maybe maybe](../content/images/maybes/maybes-nat-2.png)
