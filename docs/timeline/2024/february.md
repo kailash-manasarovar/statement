@@ -179,7 +179,7 @@
 - They do piano duets together in concerts.
 - In the rehearsal for the concert on 12th March, they are both there in room 11, with a few others.
 - They perform God Save The Queen as a duet.
-- The half-British girl then sing a solo accompanied by her teacher.
+- The half-British girl then sings a solo accompanied by her teacher.
 - She is so sweet with such a clear voice, I'm delighted and it must show on my face.
 - Joan Carles glares at me angrily.
 - I'm a little stunned.
