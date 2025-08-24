@@ -172,20 +172,21 @@
 - I am waiting outside, no-one is around.
 - Suddenly, a girl of about 13 I know walks down the stairs.
 - She is giggly, smiley, and I expect now, high.
-- She is the half-British/half-Ukrainian or Russian girl that I have seen singing in concerts.
+- She is the half-British/half-Ukrainian-or-Russian girl that I have seen singing in concerts.
 - She's beautiful, really lovely.
-- I know she is British because of her accent when she speaks English.
+- I know she is British because of her very British accent whenever she speaks English, but her name is something Russian so I assume she has mixed-parents and is trilingual with the Spanish too.
 - She has a Russian or Ukrainian friend of about the same age who is a little surly.
 - They do piano duets together in concerts.
 - In the rehearsal for the concert on 12th March, they are both there in room 11, with a few others.
-- They perform God Save The Queen.
-- When the girl is singing, she is so sweet with such a clear voice, I'm delighted and it must show on my face.
+- They perform God Save The Queen as a duet.
+- The half-British girl then sing a solo accompanied by her teacher.
+- She is so sweet with such a clear voice, I'm delighted and it must show on my face.
 - Joan Carles glares at me angrily.
 - I'm a little stunned.
 - I realized this child must be a major target for the gangs shortly afterwards, and when I realized I had been drugged continuously, I realized she was high when she walked down the stairs.
 - They must have set this up for me to see.
 - The arrogance is staggering.
-- I warned the British embassy about yet another child being in imminent danger, mentioning her and the others I knew about too.
+- I warned the British embassy about yet another child being in imminent danger, mentioning her and the others I knew about in January 2025.
 
 ## Twitter
 
