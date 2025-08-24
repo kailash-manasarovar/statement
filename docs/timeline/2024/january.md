@@ -321,7 +321,7 @@ function googleTranslateElementInit() {
 - Hackers enter my phone nearly immediately; I assume via my home network.
 - I know this from fake account profile messages which match conversations I have had during the day, from clear evidence stalkers know exactly where I'm going to be at any given moment, and from my feeling that the threat level is increasing, online and in-person.
 
-## Ana and Ana
+## Ana and Ana and Paqui
 
 - Ana Girbes starts taking a more central role in the bullying at the conservatory. 
 - She makes herself visible to me whenever I come into class. 
