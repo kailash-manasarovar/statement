@@ -401,6 +401,8 @@ function googleTranslateElementInit() {
 - Teachers and staff stare at me horribly; they do not return my smiles and waves, Paqui included.
 - It's all very threatening.
 - The constant stress and tension of being bullied and terrorized around the clock has started to take its toll on my health and wellbeing.
+- Could everyone have decided that, because I was being sedated, raped, and broadcast on porn networks from my apartment without my knowledge, and had been for some years, that was reason and justification enough to detest me?
+- Or were they all doing what they were told, knowing that if they didn't, they might be poisoned, maimed, or murdered like so many others had been?
 
 ## The smug man I always see
 
