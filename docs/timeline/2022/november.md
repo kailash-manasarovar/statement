@@ -165,7 +165,7 @@ function googleTranslateElementInit() {
 ### Deafness
 
 - He seemed to have a hearing issue, and a bit of a speech impediment arising from it.
-- I found his faultiness strangely endearing.
+- I found this faultiness strangely endearing and I even told Sandra how much more I liked him because of it.
 
 ### Flirting
 
