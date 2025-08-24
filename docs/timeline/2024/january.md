@@ -333,7 +333,7 @@ function googleTranslateElementInit() {
 
 ![Ana transformer figure](../../content/images/ana-transformer.png)
 
-- I wonder who else saw the pic. It was an exceptional likeness.
+- I wonder who else saw the pic. It is an exceptional likeness.
 - One evening, Ana Girbes is waiting for me as I come out of the toilets.
 - She barks something as she walks past me.
 - It is a derogatory statement about a private urinary health matter I have *only ever told Google search*.
