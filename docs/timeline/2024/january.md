@@ -541,7 +541,7 @@ function googleTranslateElementInit() {
 - Someone unknown had sent him a link to my post on WhatsApp, for a joke.
 - (Boys will be boys I guess.)
 - The guilt, vengeance, and anger, on top of the hatred he already bore towards me, caused Salva to lose the balance of his mind completely.
-- Did Salva know me intimately without my knowledge?
+- Did Salva also know me intimately without my knowledge?
 
 ## Trying to get help again
 
