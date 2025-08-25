@@ -506,7 +506,7 @@ function googleTranslateElementInit() {
 - This anxiety grows until, probably, June when I'm in Lourdes and then head back to the UK for a few weeks. From February to May it is overwhelming. 
 - It is still not nearly as bad as the anxiety I experienced after reporting child sexual abuse to the police in 2015, however.
 - And quite possibly not as bad as the PTSD I suffered from sexual abuse in 1989, which coincidentally came with some extra bullying on top from apparent friends, another thing I mentioned to the police in my 2015 statement.
-- Is it possible what I was feeling over these months was connected to more sedated sexual abuse I was not aware of happening in my apartment?
+- Is it possible that what I was feeling over these months was connected to more sedated sexual abuse I was not aware of happening in my apartment?
 - Everything that's going on is extraordinarily evil and I can hardly believe it.
 - I often wonder how many others have been targets like me. Undoubtedly loads.
 - These people are running a finely-tuned terror mechanism.
