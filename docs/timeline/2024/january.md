@@ -509,7 +509,7 @@ function googleTranslateElementInit() {
 - Is it possible that what I was feeling over these months was connected to more sedated sexual abuse I was not aware of happening in my apartment?
 - Everything that's going on is extraordinarily evil and I can hardly believe it.
 - I often wonder how many others have been targets like me. Undoubtedly loads.
-- These people are running a finely-tuned terror mechanism.
+- These people are running a finely-tuned sex-terror mechanism.
 - I wonder how many of their targets were minors, and ended up in prostitution or porn, or whether they ended up having nervous breakdowns or killing themselves.
 - I can't help but think about [Lorraine](../2021/july.md#lorraine-blackbourn), often.
 
