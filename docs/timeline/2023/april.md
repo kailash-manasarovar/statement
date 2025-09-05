@@ -109,6 +109,9 @@ function googleTranslateElementInit() {
 
 - The Novena prayer is a nine-day prayer. 
 - While I am praying, whenever I get to the end of a decade, at that exact moment, the laptop goes into sleep. It is extraordinarily peculiar and I think rather lovely, as if Mary herself is taking a breath. I wonder now if someone else was praying along with me.
+- When I remember these small things, I'm certain that this was a very tender and very real connection, poisoned by evil.
+- I hope it has healed others as much as it has healed me.
+- Anyway.
 - On evening six or seven of the prayer, I was searching for his name in Google again, ["Vidal Sastre Sanchez Hornero"](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero) and his Twitter account came up in results, or so it seemed: `@jctot19`.
 - The larger profile pic certainly looked like it could very well be him.
 
