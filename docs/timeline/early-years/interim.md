@@ -103,7 +103,7 @@ function googleTranslateElementInit() {
 
 ### Targeted by online scammers
 
-- I quickly fall into the clutches of an extraordinarily unpleasant company (name incoming) who I book a flat to stay in for two weeks while I'm looking for permanent accommodation.
+- I quickly fall into the clutches of an extraordinarily unpleasant company Key 1 Properties who I book a flat to stay in for two weeks in December 2019 while I'm looking for permanent accommodation.
 - I book or find them through Hotels.com. 
 - I end up having to pay them directly, I think, which is why their scam is successful.
 - I wonder if I'm lured online to this result or if it's just bad luck.
@@ -113,7 +113,7 @@ function googleTranslateElementInit() {
 - The apartment has security cameras all over it. I only knew this in retrospect when I bought some myself and realized what these strange items were on the kitchen surface and bedside table.
 - I'm very uneasy, I have a terrible night in dread and fear, a living nightmare, and I leave the following morning.
 - My car was keyed while parked outside that night.
-- The company insists they will not refund me and I attempt to take them to small claims but they bully and threaten me so much I give up.
+- The company insists they will not refund me and, although I do get most of my money back as I paid by credit card, I attempt to take them to small claims but they bully and threaten me so much I give up.
 - When I research them, I find out that they are very likely a criminal gang.
 - This is the first moment I feel like I have ants all over me and I cannot get them off.
 - I will feel this way until August 14th 2025.
