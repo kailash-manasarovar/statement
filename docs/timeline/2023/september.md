@@ -686,6 +686,7 @@ function googleTranslateElementInit() {
 ## The Tibetan monk visits
 
 - My friend the Tibetan monk visits for a few days in September.
+- He has a British passport and lives in a Tibetan Bon monastery in Blou near Samur in France.
 - I have told him what's going on, as far as I understand it at the time, and he is saying daily prayers on my behalf for strong protection.
 - He knows I'm scared and upset.
 
@@ -780,6 +781,23 @@ function googleTranslateElementInit() {
 - It also suggests I am not only being targeted as a rape-gang survivor and because I'm all over the child rape-gang porn networks and have been for decades, but also for my political views against child abuse and the obliteration of women's rights.
 - This seems to be a fair assumption if we're talking about a vast and international criminal network of misogynist porn gangs.
 - I wonder if there was a Polygon event on in Valencia the night before that the boys neglected to mention they had attended.
+
+### Could my Tibetan friend have been involved in the porn conspiracy?
+
+- Was my friend part of the porn-fatwa network too?
+- Once, when I was explaining what was happening to me, probably in early 2024, he told me you have to stop sex.
+- I thought it a strange thing to say, and I told him that what was happening wasn't about sex.
+- Why would he say that?
+- At the time I thought he was making assumptions from what I was telling him about the trumpet teacher and getting them wrong.
+- Also, when he visited the porn gangs were utterly insane, running around the town crazy and out of control.
+- This is very unlike them when a man's around.
+- Usually they scurry away under their rocks when a male figure is around who may help.
+- They didn't do that and I wonder if that means Lama Ashak was part of the porn conspiracy.
+- Did they sedate me through the AC as usual, and bring him to my apartment after I had left him at the hostel?
+- Could he be starring on porn networks with me too?
+- When I explained to him that I thought I was being drugged and sedated and raped in my apartment, he stopped talking to me completely.
+- He never responds to my texts at all now.
+- Why?
 
 ## Alex and Paul
 
