@@ -157,6 +157,18 @@ function googleTranslateElementInit() {
 - Eventually I realize that perhaps the trumpet teacher himself is called Tonya, or Tonia, and that he was trying to communicate honestly with me against a lot of online noise that did not want us to communicate for some reason.
 - Was Tonia the good hacker, the trumpet teacher who cried, a lone man trying to do the right thing against an online hellscape ridden with evil?
 
+### Did they walk me around town too
+
+- Did they sedate me without my knowledge and walk me around town too.
+- Is that how everyone knows me, and was it broadcast on Denia TV.
+- Did they take me for coffee, or a lemon ice, in a cafe in the town, while I was sedated.
+- Did they dress up as Batman and walk me around town.
+- Did all those symbols, words, and memes that gang members mentioned or demonstrated to me, things that made me horribly anxious for no apparent reason, did they come from significant sedated moments just like the woman I saw might be experiencing too.
+- If so, the porn gangs of Denia are psychopathic in the extreme, and it is only a short hop to mass serial killing.
+- Could Denia be the first case of mass serial-killing in the modern world, fueled by porn-addictions and steroid use, where the targets are sedated women and children, or those cyber-stalked and manipulated online?
+- Could Denia be the snuff-porn capital of the world as well as baby rape?
+- How bad has it gotten out there with police and government constantly turning a blind eye? The world needs to know.
+
 ## Ana in the blue van
 
 - I'm driving back from the shops one Saturday afternoon around 4pm.
