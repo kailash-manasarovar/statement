@@ -154,7 +154,8 @@ function googleTranslateElementInit() {
 
 ![Who is Tonya](../../content/images/targeted-women/innocent-lady/1.png)
 
-- One wonders if this is another attempt from the Spanish and British porn gangs operating in Dénia to deflect any blame coming their way onto the trumpet teacher's pimping gang from Valencia?
+- Eventually I realize that perhaps the trumpet teacher himself is called Tonya, or Tonia, and that he was trying to communicate honestly with me against a lot of online noise that did not want us to communicate for some reason.
+- Was Tonia the good hacker, the trumpet teacher who cried, a lone man trying to do the right thing against an online hellscape ridden with evil?
 
 ## Ana in the blue van
 
