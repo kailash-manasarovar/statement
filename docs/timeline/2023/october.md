@@ -555,7 +555,7 @@ function googleTranslateElementInit() {
 - Are these three men one and the same?
 - I get home and I am horribly unwell until the morning of the 2nd of November when I have to get up to start my new job.
 - I believe I drank water directly from the tap that night.
-- I'm in bed and my kidney feels like it explodes.
+- I'm in bed and my right kidney feels like it explodes.
 - I vomit profusely until late in the evening of 1st November.
 - All the neighbors will have heard me, the walls are extremely thin.
 
