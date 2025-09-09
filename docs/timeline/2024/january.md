@@ -107,6 +107,7 @@ function googleTranslateElementInit() {
 
 #### Taking the piss out of the boyfriend meme
 
+- If they can take the piss, so can I.
 - I post responses to the boyfriend hack, as I do with all the hacker foolishness.
 - Here's a few examples of my piss-take responses to the boyfriend ridiculousness.
 
@@ -117,7 +118,6 @@ function googleTranslateElementInit() {
 [![Boyfriend 2](../../content/tweets/january-2024/boyfriends-2.png)](https://x.com/1FRGVN/status/1746989463228596549)
 
 [![Boyfriend 3](../../content/tweets/january-2024/boyfriends-3.png)](https://x.com/1FRGVN/status/1746989793496449213)
-
 
 - Is this a response to the poll results? And equally sinister, the knowledge of what was really going on rising to the surface in curious ways?
 
@@ -729,7 +729,7 @@ function googleTranslateElementInit() {
 - https://x.com/1FRGVN/status/1748728422262546895 -> Commenting on how once I had posted the screenshot of my bum, they removed it from the search results the following day. Deleted tweet.
 - https://x.com/1FRGVN/status/1748707659014873275 -> I'm always trying to communicate normally with them.
 - https://x.com/1FRGVN/status/1748661477542695104 -> Never letting up.
-- https://x.com/1FRGVN/status/1748658865330086076 -> Wondering if my experience might stop it happening again to someone else.
+- https://x.com/1FRGVN/status/1748658865330086076 -> Wondering if my experience and fierce defense against what is happening to me - although I have no idea how bad it truly is - might stop it happening again to someone else, a child probably.
 - https://x.com/1FRGVN/status/1748653573347360955 -> Mentioning the gypsies serenading me in the tunnel.
 - https://x.com/1FRGVN/status/1748498545664016638 -> Communicating with stalkers; it's curious how I started to mention politics to the stalkers.
 - https://x.com/Cult_De_Plucker -> Major stalker account.
@@ -743,21 +743,17 @@ function googleTranslateElementInit() {
 - https://x.com/1FRGVN/status/1747717880903254325 -> Mentioning how it is the time of miracles.
 - https://x.com/1FRGVN/status/1747575884947530204 -> Ironically, something I mentioned in my csa statement from 2015.
 - https://x.com/1FRGVN/status/1747287478535442834 -> Imagining what it's like for them.
-- https://x.com/1FRGVN/status/1747193607017177422 -> If they can take the piss, so can I.
-- https://x.com/1FRGVN/status/1747003108067049819 -> More piss taking.
-- https://x.com/1FRGVN/status/1746989463228596549 -> In response to the boyfriend/girlfriend images on Google search which are very numerous at this point.
-- https://x.com/1FRGVN/status/1746828429746405782
-- https://x.com/1FRGVN/status/1743914743172063303 -> still high and exuberant.
-- https://x.com/1FRGVN/status/1742989177572987180 -> I believe, erroneously the trumpet teacher is trying to communicate. I think it only really works when they're spiking me at the same time.
-- https://x.com/1FRGVN/status/1742137652537589965 -> stalkers responding to a poll.
-- https://x.com/15john23 -> stalker account.
-- https://x.com/1FRGVN/status/1741874776811950580
-- https://x.com/1FRGVN/status/1741866348777472360 -> seeing the good in the monstrous.
-- https://x.com/1FRGVN/status/1741864932839133252
-- https://x.com/1FRGVN/status/1741842106937663832 -> 2012 might have been the first year I went to the international choir.
-- https://x.com/1FRGVN/status/1741738099439259731
-- https://x.com/1FRGVN/status/1741728804320526343
-- https://x.com/1FRGVN/status/1741644588207439970 -> I really did not get the Alicante airport visit until November 2024.
+- https://x.com/1FRGVN/status/1746828429746405782 -> A response to hackers.
+- https://x.com/1FRGVN/status/1743914743172063303 -> Referring to the recent high and exuberant times.
+- https://x.com/1FRGVN/status/1742989177572987180 -> I believe the trumpet teacher is trying to communicate. I think we did, somehow.
+- https://x.com/1FRGVN/status/1742137652537589965 -> Stalkers responding to a poll.
+- https://x.com/15john23 -> Stalker account.
+- https://x.com/1FRGVN/status/1741874776811950580 -> Trying to understand what's going on.
+- https://x.com/1FRGVN/status/1741866348777472360 -> Seeing the good in the monstrous.
+- https://x.com/1FRGVN/status/1741864932839133252 -> Truth.
+- https://x.com/1FRGVN/status/1741842106937663832 -> 2012 was when I joined the international choir and met Mercedes. The conspiracy started long before in truth, but I didn't give them those options.
+- https://x.com/1FRGVN/status/1741728804320526343 -> Very interesting tweet.
+- https://x.com/1FRGVN/status/1741644588207439970 -> I really did not understand anything, including the [Alicante airport visit](../2023/june.md#sunday-18th-june-alicante-airport), until November 2024 when I realized I had been drugged continuously for years at my apartment.
 
 ### @JackChardwood
 
