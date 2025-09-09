@@ -105,6 +105,27 @@ function googleTranslateElementInit() {
 - The results were the same as on my devices. 
 - Of course, they may have hacked that young woman's phone too, anyone close to me probably which at that time was no-one uninvolved in the conspiracy.
 
+#### Taking the piss out of the boyfriend meme
+
+- I post responses to the boyfriend hack, as I do with all the hacker foolishness.
+- Here's a few examples of my piss-take responses to the boyfriend ridiculousness.
+
+[![Boyfriend 1](../../content/tweets/january-2024/boyfriends-1.png)](https://x.com/1FRGVN/status/1747003108067049819)
+
+- Some of the responses to this one could be interpreted as rather sinister.
+
+[![Boyfriend 2](../../content/tweets/january-2024/boyfriends-2.png)](https://x.com/1FRGVN/status/1746989463228596549)
+
+[![Boyfriend 3](../../content/tweets/january-2024/boyfriends-3.png)](https://x.com/1FRGVN/status/1746989793496449213)
+
+
+- Is this a response to the poll results? And equally sinister, the knowledge of what was really going on rising to the surface in curious ways?
+
+[![Boyfriend 4](../../content/tweets/january-2024/boyfriends-4.png)](https://x.com/1FRGVN/status/1747193607017177422)
+
+- You can't make this stuff up. 
+- God is good.
+
 ## I see my naked 16-year-old body on X again
 
 - Hackers flash up another example of the porn they have with me in it, made in 1989, where I am sedated and gang-raped by a group of predominantly black men somewhere near Tottenham, North London.
@@ -353,6 +374,9 @@ function googleTranslateElementInit() {
 - On one occasion during the month of January, they both change their demeanor completely.
 - They smile sweetly at me instead, and never say anything.
 - This changes back to feigned and intense fury the next time I go in.
+- I mention it in a tweet, and appear to think the woman are on my side again.
+
+[![Ana smiles sweetly](../../content/tweets/january-2024/ana-smiles-sweetly.png)](https://x.com/1FRGVN/status/1747527940173082745)
 
 !!! danger "More reenactments coming directly from information in my statement to the Metropolitan police"
     - Curiously, this was also part of my [child sexual abuse statement to the police](../early-years/2015.md#statement-to-the-metropolitan-police).
@@ -366,7 +390,11 @@ function googleTranslateElementInit() {
 
 - Paqui Fornet would then reinforce their behavior towards me, as if it was justified, with an off the cuff remark at my piano class such as:
     - "Oh you never stop chasing another women's man do you", referring to me taking Ana's boyfriend! 
-    - "You're a grass total", referring to me cataloguing any events at the conservatory on my X feed, perhaps sometimes that involving things she had said or done. 
+    - "You're a grass total", an angry remark referring to me cataloguing any events at the conservatory on my X feed, perhaps sometimes that involving things she had said or done. The offending tweet which caused this comment is here:
+
+    [![Grass total](../../content/tweets/january-2024/mentioning-paqui.png)](https://x.com/1FRGVN/status/1748690428814033168)
+
+    - As you can see, my tweet hardly warrants any comment, unless Paqui was monitoring my online activity minute-by-minute and knew I was talking about her because we had just had the conversation in which she had said "It's what they do" (see [following point](#i-tell-paqui-im-being-terrorized-by-teachers-and-staff-at-the-conservatory)) when I had told her how stressed I was and that Domingo and his associates were terrorizing me. Note also my respect and admiration for this woman at that time.
     - "It's what the men do", referring to the overwhelming stress I am under, and other similarly triggering statements.
 - I'd just like to take a moment to remind everyone at this point that these women are teachers in a public school with temporary-guardianship responsibility over many hundreds of children.
 
@@ -650,67 +678,74 @@ function googleTranslateElementInit() {
 - It's a demonstration for my benefit and a sign he knows I wrote to the Generalitat again, and he doesn't care.
 - I'm not impressed.
 
-## Twitter
+## X.com
+
+- For anyone interested, there is a lot of interesting data in my X account activity. 
+- Here's the [search link for January 2024](https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-02-01%20since%3A2024-01-01&src=typed_query&f=live).
+- I don't have the energy for this at the moment; maybe it'll return. X is always there.
+- I imagine it's all been backed up too, with names, posts, IPs, etc; probably even deleted ones.
+- Let's get those little foxes.
 
 ### @1frgvn
 
-There's a lot of confirmation of what I have been saying here in these tweets. It's like I had time to breathe and assess things in the second half of this month. Did they stop spiking me/and manipulating me online temporarily?
+- Early in the month, I remain exuberant.
+- In the second half of the month, things calm down. Did I run out of shampoo, etc, and buy new bathroom products? Or were teachers and staff at the conservatory busy planning their [grand finale in detail](march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory).
 
-Earlier in the month I remain exuberant and there are lots of deleted tweets, and suspended and deleted accounts involved.
+- https://x.com/1FRGVN/status/1752602299803783584 -> referring to the smile of the trumpet teacher in [Benijembla](../2022/november.md#walking-in-benijembla-with-the-english-ladies) and at [chamber music class](../2022/november.md#the-trumpet-teacher) that reminded me of the pedo from 1989 I had reported in my 2015 police statement.
+- https://x.com/1FRGVN/status/1752342228465262902 -> in reference to the sad woman at Benijembla which we think is either a trumpet-teacher wife, girlfriend, or porn actress, or all three maybe.
+- https://x.com/1FRGVN/status/1752340257280815497 -> declaring my love again.
+- Reporting threatening behavior online and in real life.
 
-- https://x.com/1FRGVN/status/1752602299803783584 -> talking about the smile of the trumpet teacher in Benijembla and class.
-- https://x.com/1FRGVN/status/1752342228465262902 -> in reference to the sad woman at Benijembla.
-- https://x.com/1FRGVN/status/1752340257280815497 -> declaring love again (under extreme manipulation of course).
-- https://x.com/1FRGVN/status/1752243357399634152 -> mentioning threats.
-- https://x.com/1FRGVN/status/1751698770314535410
-- https://x.com/1FRGVN/status/1751679949734334725
-- https://x.com/1FRGVN/status/1751332834835329038
-- https://x.com/1FRGVN/status/1751275593352491469 -> stalker account `@1Loviatar` pretending they're my friend.
+[![Reporting threats](../../content/tweets/january-2024/reporting-threats.png)](https://x.com/1FRGVN/status/1752243357399634152)
+
+- https://x.com/1FRGVN/status/1751698770314535410 -> I'm always nudging away at them. It gave me some pleasure in extraordinarily challenging times, I must say.
+- Reference to the "baby seal", i.e. me, and how I just never go away.
+
+[![The baby seal lives](../../content/tweets/january-2024/baby-seal-ref.png)](https://x.com/1FRGVN/status/1751679949734334725)
+
+- https://x.com/1FRGVN/status/1751332834835329038 -> another ribbing.
+- https://x.com/1FRGVN/status/1751275593352491469 -> stalker account `@1Loviatar` pretending they're my friend, offering to "listen" if I need someone. She (or he) is building up to brutal gang-stalking and online persecution in collaboration with teachers and staff at the conservatory to take place in [March 2024](march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory).
 - https://x.com/1FRGVN/status/1751211014308139309 -> mentioning the "most brutal of wind ups the world has ever known". Do I think it's over at this point?
-- https://x.com/1FRGVN/status/1751185092020519333 -> mentioning no depression to another stalker account `@Lucyinbetween`.
+- https://x.com/1FRGVN/status/1751185092020519333 -> mentioning to another stalker account `@Lucyinbetween` how whatever I have been going through (what I believe even today is true love in the most profound sense) cured me of depression.
 - https://x.com/1FRGVN/status/1751152861390467073 -> wondering about how many kids (conservatory students) have suffered the same as me.
-- https://x.com/1FRGVN/status/1751146570521731402 -> all stalker-related content goes into Highlights.
-- https://x.com/1FRGVN/status/1751145935646621796 -> stalker account `@AIinAmerica`. This one posted the boy that even today comes up first on Google searches. I'm supposed to think it's the trumpet teacher as a young man. I don't. In fact, I think I saw the actual man this is a picture of on the Las Marinas beach in October 2024.
+- https://x.com/1FRGVN/status/1751146570521731402 -> all stalker-related content goes into my Highlights section.
+- https://x.com/1FRGVN/status/1751145935646621796 -> stalker account `@AIinAmerica`. This one posted the picture of boy that *even today* comes up near the top (was always first before) on Google searches. I'm supposed to think it's the trumpet teacher as a young man. I don't. In fact, I think I saw the actual man this is a picture of on the Las Marinas beach in October 2024, *and* I have him on body cam along with a bunch of other local perverts. Isn't that interesting!
 
 ![Current google searches with the young man](../../content/images/google-searches/google-search-young-man.png)
 
-- https://x.com/1FRGVN/status/1751135469306302843 -> unblocking Matthew account. I must be triggered again.
-- https://x.com/1FRGVN/status/1751134068182339603 -> thinking the trumpet teacher is on my side again.
-- https://x.com/1FRGVN/status/1750917987983294535 -> feeling like they're leaving me alone.
-- https://x.com/1FRGVN/status/1750805760131436689 -> the crux of the matter?
-- https://x.com/1FRGVN/status/1750625565168533819 -> has the spiking stopped/paused? Some reaction to this post, I wonder if this is when they posted a horror face picture directly in the middle of my screen.
-- https://x.com/1FRGVN/status/1750530601487385009
-- https://x.com/1FRGVN/status/1750526658594111715
-- https://x.com/1FRGVN/status/1750178193963671859
-- https://x.com/1FRGVN/status/1750258545382007014 -> stalker account weird tweet.
-- https://x.com/1FRGVN/status/1749706361003262351
-- https://x.com/1FRGVN/status/1748699479916572952 -> asking stalkers why no one talks to me.
-- https://x.com/1FRGVN/status/1748651089568686511 -> summary of stalking experiences.
+- https://x.com/1FRGVN/status/1751135469306302843 -> unblocking the [Matthew account](../2023/august.md#matthew). I must be triggered again.
+- https://x.com/1FRGVN/status/1751134068182339603 -> I'm certain I am protected and loved, and I believe that anyone who supports me is also protected and loved in the same way. This, of course, includes the trumpet teacher (I don't know there's at least two trumpet teachers at this time).
+- https://x.com/1FRGVN/status/1750917987983294535 -> I'm feeling like they're leaving me alone for a change.
+- https://x.com/1FRGVN/status/1750805760131436689 -> The crux of the matter? I thought so for a while. Perhaps my 2014/15 very public ego-defacement of Domingo *is* the original world-saving trigger.
+- https://x.com/1FRGVN/status/1750625565168533819 -> Has the spiking stopped/paused? Did I buy new toiletries? Did the poisoner go on holiday? There is a reaction to this post, and I wonder if this is when they posted a roaring horror face directly in the middle of my screen.
+- https://x.com/1FRGVN/status/1750530601487385009 -> Although it seems like Spanish women are happy for the men to devour everyone's children, and have some pleasure in taking part.
+- https://x.com/1FRGVN/status/1750526658594111715 -> More consternation about what's going on and how everyone's involved.
+- https://x.com/1FRGVN/status/1750178193963671859 -> Deleted tweet. (It may have had a swear word in it that I had to remove as I may stand for political party UK Reform in the elections next year).
+- https://x.com/1FRGVN/status/1750258545382007014 -> Stalker account weird tweet.
+- https://x.com/1FRGVN/status/1749706361003262351 -> More nudges.
+- https://x.com/1FRGVN/status/1748699479916572952 -> Asking stalkers why no one talks to me.
+- https://x.com/1FRGVN/status/1748651089568686511 -> Summary of stalking experiences. This is interesting and verifies a lot of the horrible experiences I have detailed in this statement.
 - https://x.com/1FRGVN/status/1748925404079956427 -> trying to communicate back cos everyone is treating me so badly. In response to Ana Requena and Ana Girbes tormenting me.
-- https://x.com/1FRGVN/status/1748728422262546895 -> commenting on how once I had posted the screenshot of my bum, they removed it from the search results the following day.
-- https://x.com/1FRGVN/status/1748707659014873275 -> always trying to communicate, this is a long convo.
-- https://x.com/1FRGVN/status/1748690428814033168
-- https://x.com/1FRGVN/status/1748661477542695104
-- https://x.com/1FRGVN/status/1748658865330086076
-- https://x.com/1FRGVN/status/1748658865330086076
-- https://x.com/1FRGVN/status/1748653573347360955 -> mentioning the gypsies serenading me in the tunnel.
-- https://x.com/1FRGVN/status/1748498545664016638 -> communicating with stalkers.
-- https://x.com/Cult_De_Plucker -> major stalker account.
-- https://x.com/search?q=(from%3ACult_De_Plucker)%20(to%3A1frgvn)&src=typed_query&f=live -> suspect this is Hazel.
-- https://x.com/1FRGVN/status/1748493771837165912 -> commenting on how the overwhelming sexual arousal concerns me.
-- https://x.com/1FRGVN/status/1748493251663761694 -> mentioning the Google search manipulation technique.
-- https://x.com/1FRGVN/status/1748490081936003127 -> mentioning the men on the beach making porn noises and touching themselves as I walked by.
-- https://x.com/1FRGVN/status/1748486972664946749
+- https://x.com/1FRGVN/status/1748728422262546895 -> Commenting on how once I had posted the screenshot of my bum, they removed it from the search results the following day. Deleted tweet.
+- https://x.com/1FRGVN/status/1748707659014873275 -> I'm always trying to communicate normally with them.
+- https://x.com/1FRGVN/status/1748661477542695104 -> Never letting up.
+- https://x.com/1FRGVN/status/1748658865330086076 -> Wondering if my experience might stop it happening again to someone else.
+- https://x.com/1FRGVN/status/1748653573347360955 -> Mentioning the gypsies serenading me in the tunnel.
+- https://x.com/1FRGVN/status/1748498545664016638 -> Communicating with stalkers; it's curious how I started to mention politics to the stalkers.
+- https://x.com/Cult_De_Plucker -> Major stalker account.
+- https://x.com/search?q=(from%3ACult_De_Plucker)%20(to%3A1frgvn)&src=typed_query&f=live -> I suspect this is Hazel Smith.
+- https://x.com/1FRGVN/status/1748493771837165912 -> Commenting on how the overwhelming sexual arousal concerns me. Pavlova (with strawberries of course) is a reference to sexual arousal.
+- https://x.com/1FRGVN/status/1748493251663761694 -> Mentioning the Google search manipulation technique.
+- https://x.com/1FRGVN/status/1748490081936003127 -> Mentioning the [men on the beach making porn noises and touching themselves](../2023/september.md#rape-gang-reminders) as I walked by. Note that when I first wrote this point, I had not understood the significance of the kitchen chairs they were sitting on.
 - https://x.com/1FRGVN/status/1748470435165987252 -> I think my browser caches might well be extremely interesting if someone unbiased could have a look at them.
-- https://x.com/1FRGVN/status/1748281008422584715
-- https://x.com/1FRGVN/status/1747792341992190029 -> hacking link?
-- https://x.com/1FRGVN/status/1747717880903254325
-- https://x.com/1FRGVN/status/1747575884947530204 -> ironically something I mentioned in my csa statement from 2015.
-- https://x.com/1FRGVN/status/1747527940173082745 -> Ana Requena had smiled at me sweetly that day as I was leaving the conservatory. As you will see above, it changed to anger the following time I bumped into her, those times no one ever talked.
-- https://x.com/1FRGVN/status/1747287478535442834
-- https://x.com/1FRGVN/status/1747193607017177422 -> if they can take the piss, so can I.
-- https://x.com/1FRGVN/status/1747003108067049819 -> more piss taking.
-- https://x.com/1FRGVN/status/1746989463228596549 -> in response to the boyfriend/girlfriend images on Google search which are very numerous at this point.
+- https://x.com/1FRGVN/status/1748281008422584715 -> Amazed at the arrogance of online terrorists getting angry at their target's comments. Adding something that happened to me as a child which seemed to foretell my horrible online experiences as an adult.
+- https://x.com/1FRGVN/status/1747792341992190029 -> Is this a hacking link from a stalker account `@RoseInWanderla1`?
+- https://x.com/1FRGVN/status/1747717880903254325 -> Mentioning how it is the time of miracles.
+- https://x.com/1FRGVN/status/1747575884947530204 -> Ironically, something I mentioned in my csa statement from 2015.
+- https://x.com/1FRGVN/status/1747287478535442834 -> Imagining what it's like for them.
+- https://x.com/1FRGVN/status/1747193607017177422 -> If they can take the piss, so can I.
+- https://x.com/1FRGVN/status/1747003108067049819 -> More piss taking.
+- https://x.com/1FRGVN/status/1746989463228596549 -> In response to the boyfriend/girlfriend images on Google search which are very numerous at this point.
 - https://x.com/1FRGVN/status/1746828429746405782
 - https://x.com/1FRGVN/status/1743914743172063303 -> still high and exuberant.
 - https://x.com/1FRGVN/status/1742989177572987180 -> I believe, erroneously the trumpet teacher is trying to communicate. I think it only really works when they're spiking me at the same time.
