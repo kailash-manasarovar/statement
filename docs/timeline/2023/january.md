@@ -92,6 +92,18 @@ function googleTranslateElementInit() {
 
 ![Sedating me and coming into my room](../../content/images/sedating/sedating-1.png)
 
+### My boots are destroyed
+
+- At one chamber music class, I look down and notice my rather expensive Hush Puppy boots are completely falling apart.
+- The plastic soles are coming off and they look tattered and old.
+- At the time, I think I have only just noticed something that has clearly been the case for a while.
+- I throw out my boots and get a new pair.
+- At the time of writing, I'm wondering if gypsy sedating gangs destroyed my boots on purpose for some sick reason.
+- I did put a lot of clothes in the clothes bin outside my apartment block.
+- Did Carmen Cano like my taste in clothes?
+- Did she get her henchmen to repair my boots once I'd thrown them away?
+- Did she wear [my boots from Ireland out](../2024/january.md#boots-from-ireland) a year later?
+
 ## Ganesha
 
 - I print out a copy of Ganesha on an A4 piece of paper.

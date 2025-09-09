@@ -24,7 +24,7 @@ function googleTranslateElementInit() {
     - On its own, I don't believe the online activity would be sufficient to maintain my interest, so I must have been ingesting mood-altering substances without my knowledge.
     - These two manipulation techniques meant that I could not think rationally about anything at all.
     - Whatever is triggering these beliefs is very powerful, and is connected to a daily overwhelming sexual arousal, something I did not experience before April 2023, and have not experienced since I left my apartment in October 2024.
-    - I believe I was being drugged daily via the water coming into my apartment, tampered food and bathroom products, plus manipulation with online seduction techniques.
+    - I believe I was being drugged daily via the water coming into my apartment, tampered food and bathroom products, plus manipulation with online seduction techniques, and all of this continually reinforced by the outrageous behavior of teachers and staff at the conservatory of Dénia where I was studying the piano alongside hundreds of children.
     - I still have multiple samples ready for inspection if anyone ever gets round to caring about the safety and wellbeing of children, women, and young girls, and most importantly babies, toddlers, and newborns living in the Spanish Valencian community.
     - I can't imagine how an inexperienced young girl or child could possibly survive a similarly vicious attack on the emotional and mental state.
     - I am convinced that such techniques have been used on children across the world by pornographers.
