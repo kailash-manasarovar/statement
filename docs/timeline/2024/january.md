@@ -757,9 +757,10 @@ function googleTranslateElementInit() {
 
 ### @JackChardwood
 
-A lot of messages are in reply to an actual tweet but they're replying to something, deleted posts and/or accounts usually.
+- The first rumblings of the book to come.
 
-- https://x.com/JackChardwood/status/1748769496926494944
+[![Fear and loathing in Las Marinas](../../content/tweets/january-2024/fear-and-loathing-in-las-marinas.png)](https://x.com/JackChardwood/status/1748769496926494944)
+
 - https://x.com/JackChardwood/status/1747256644218892584 -> replying to some fake account message.
 - https://x.com/JackChardwood/status/1747244233944092861 -> replying to some fake account message.
-- https://x.com/JackChardwood/status/1743984054964252990 -> I wonder about these long sleeps now.
+- https://x.com/JackChardwood/status/1743984054964252990 -> I wonder about these long sleeps now. Was I sedated over that weekend at my apartment?
