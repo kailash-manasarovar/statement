@@ -1,3 +1,5 @@
+# February 2024
+
 ## Choir class
 
 - Salva, the choir master, tells us we're going to be singing a new tune for a concert at the Centro Social before Easter. 
@@ -30,6 +32,14 @@
 - Ana and Domingo are playing concerts at the boat club or in room 5.
 - It's like the conservatory is declaring: we are totally 100% committed to destroying one or more of our students, and we know she is being sedated and raped in her apartment and has been for a few years now, and we're enjoying watching that, and we know she is being abused continually online and in the town, and ... we don't care.
 - We're just carrying on as normal, because that's what we do here.
+
+### Nacho and the smug man with cases
+
+- TODO:
+
+### Black woman with clipboard
+
+- TODO:
 
 ## My funny valentine
 
