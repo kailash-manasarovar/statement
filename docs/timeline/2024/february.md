@@ -1,13 +1,63 @@
 # February 2024
 
-## Choir class
+## Domestic violence in choir class
 
-- Salva, the choir master, tells us we're going to be singing a new tune for a concert at the Centro Social before Easter. 
-- It is a song about domestic violence, ostensibly written with the intention of helping women in distress, but Salva's use of it is very much in "celebration of" domestic violence, which I am, arguably, suffering at the hands of the whole town and beyond.
-- There's an intense aggression towards me in the classroom.
-- I realize that one of the songs we are singing has a repeated refrain, "ka ka ka". I know he's taking the piss with this too. 
+- [Salva](../2023/september.md#choir), the choir master, tells us we're going to be singing a new song for a sudden concert to be held at the [Centro Social](https://www.denia.com/centro-social/) just before Easter. 
+- It's *La Puerta Violeta* by Rozalén.
 
-![Ka ka account 1](../../content/images/fake-accounts/kaka-1.png)
+<iframe width="640" height="360" src="https://www.youtube.com/embed/gYyKuLV8A_c" title="Rozalén - La Puerta Violeta" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+- The song is about domestic violence; apparently written with the intention of raising awareness about male violence against women.
+- The words are very triggering and Salva's use of the song seems to me to be in *celebration of* domestic violence, which I am, arguably, suffering at the hands of the whole town and beyond.
+- As I hear and understand the words of the song in class, I feel more and more anxious and alarmed.
+- I watch the woman who sits beside me check my fingernails (which I chew and make bloody when I'm stressed) at every class.
+
+!!! quote "Lyrics in English"
+    A sad girl in the mirror</br>
+    He looks at me prudently and doesn't want to talk</br>
+    There is a gray monster in the kitchen</br>
+    That breaks everything, that doesn't stop screaming</br>
+    </br>
+    I got a hand on my neck that subtly</br>
+    It prevents me from breathing</br>
+    A blindfold covers my eyes</br>
+    I can smell the fear and it's coming</br>
+    </br>
+    I have a knot in the strings that soils my voice when I sing</br>
+    I have a guilt that squeezes me</br>
+    It lands on my shoulders and I have a hard time walking</br>
+    </br>
+    But, I drew a purple door on the wall</br>
+    And when I entered I freed myself, as the sail of a ship unfolds</br>
+    I woke up in a green meadow, far away from here</br>
+    I ran, I screamed, I laughed</br>
+    I know what I don't want, now I'm safe</br>
+    </br>
+    A flower that withers</br>
+    A tree that does not grow because it is not its place</br>
+    A punishment that is imposed on me</br>
+    A verse that crosses me out and annuls me</br>
+    </br>
+    I've got my whole body chained up (Uh, uh, uh)</br>
+    Cracked hands, a thousand wrinkles on the skin</br>
+    Ghosts talk in the back of the neck</br>
+    The wound reopens and bleeds (Uh, uh, uh)</br>
+    </br>
+    There's a goldfinch in my throat that's flying hard</br>
+    I have the urge to turn the key and not look back</br>
+    </br>
+    So I drew a purple door on the wall</br>
+    And when I entered I freed myself, as the sail of a ship unfolds</br>
+    I woke up in a green meadow far away from here</br>
+    I ran, I screamed, I laughed</br>
+    I know what I don't want, now I'm safe</br>
+
+- I feel an intense aggression towards me in the classroom coming from Salva, the French horn player beside me, Samuel who wears a chequered shirt now and then which triggers me for reasons I'm unaware of, and others.
+- Undoubtedly I am ingesting something without my knowledge that exacerbates intense feelings of anxiety.
+- While all this is going on, I realize that one of the other songs we have been singing since September has a repeated refrain, "ka ka ka", words I see [constantly from online abusers](../2023/september.md#immature-boy-bad-companions-or-both). 
+- The song is *Dry Your Tears Afrika* by John Williams, and the score we all received in class had been edited to add *ka-ka-ka* at the ends of song lines.
+
+[![Ka ka account 1](../../content/images/fake-accounts/kaka-1.png)](../2023/september.md#immature-boy-bad-companions-or-both)
 
 ## New e-SIM with Yoigo
 
