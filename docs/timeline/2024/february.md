@@ -10,7 +10,7 @@
 - The song is about domestic violence; apparently written with the intention of raising awareness about male violence against women.
 - The words are very triggering and Salva's use of the song seems to me to be in *celebration of* domestic violence, which I am, arguably, suffering at the hands of the whole town and beyond.
 - As I hear and understand the words of the song in class, I feel more and more anxious and alarmed.
-- I watch the woman who sits beside me check my fingernails (which I chew and make bloody when I'm stressed) at every class.
+- I watch the woman who sits beside me check my fingernails (which I chew and make bloody when I'm stressed).
 
 !!! quote "Lyrics in English"
     A sad girl in the mirror</br>
