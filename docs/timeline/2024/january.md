@@ -503,8 +503,9 @@ function googleTranslateElementInit() {
 [![Smile it confuses them](../../content/tweets/january-2024/smile-2.png)](https://x.com/1FRGVN/status/1748293270080200790)
 
 - I'm curious about the reply, "True, it’s always funny to watch the what do I say now!".
-- What is the "what do I say now?" Is everyone watching my every move, every minute of the day?
-- Does she want to say, "sedated-porn-target live stream"?
+- What is the "what do I say now?" 
+- Is everyone watching my every move, every minute of the day?
+- Does she/he (Hazel Smith?) really want to say, “sedated-porn-target live stream”?
 - Do they live stream the children from the conservatory too?
 - Even though I do my best to hide it, the constant persecution causes me a lot of stress and anxiety.
 - When I have time to think about what's going on, I have a dull and uncomfortable pain in my arms and shoulders.
