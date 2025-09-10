@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 ## Homeopath
 
-- The homeopath I saw in Dénia from early 2023 to March 2024 was Ana Vilalba.
+- The homeopath I saw in Dénia from early 2023 to March 2024 was Ana Villalba.
 - In her notes, you will see I complained about the following symptoms over this time:
     - Stress and anxiety, PTSD issues primarily
     - Inflamed gums, teeth issues
@@ -24,10 +24,13 @@ function googleTranslateElementInit() {
 - Ana did not want me to write to her with information. She insisted I phoned her but I was uncomfortable speaking about my health issues in my flat as the neighbors would hear.
 - I didn't think it unusual that Ana was so insistent I didn't write anything down until recently.
 - Ana was over-interested in my sexual abuse history and asked me about it every visit, asking questions like, "where were your parents" etc. The questions were not loving or kind, and felt like she was trying to find a way to blame me for it.
-- She gave me homeopathic drops which I got from the [Farmacia Romany](https://www.facebook.com/farmaciaromany/) and I took them every day. Here are some of [my updates to her](../content/documents/emails/ana-homeopath-1.pdf).
+- She gave me homeopathic drops which I got from the [Farmacia Romany](https://www.facebook.com/farmaciaromany/) and I took them every day for months. Here are some of [my updates to her](../content/documents/emails/ana-homeopath-1.pdf).
 - When I complained about my eyes, she suggested an eye mist company that she had an account with Quinton Medical, and I bought two or three eye mist products.
-- Another thing she mentioned, every session, was domestic violence by giving an example of a patient who had finally found the strength to leave.
-- When I left, I wrote her [this letter](../content/documents/emails/ana-homeopath-2.pdf) to which I received no reply.
+- Another thing she mentioned, every session, was domestic violence by giving an example of a patient who had finally found the strength to leave. I always found this strange as it was completely unrelated to anything I was telling her. 
+- When I left her practice after being terrorized to the extent I feared for my life, I wrote her [this letter](../content/documents/emails/ana-homeopath-2.pdf) to which I received no reply.
+- A family member of hers appears to be [advertising help for poor vision](https://www.ameliasalvador.es/index.php/contacto/) at the same location I visited Ana. That's interesting in itself.
+- I noticed Ana Villalba in a photo included in a spiritual retreat centre website in Pedreguer. She was part of the retreat's online advertised offerings.
+- Could it be the same retreat centre mentioned as being shut down by the police in August 2025: https://en.lamarinaalta.com/salen-a-la-luz-los-detalles-de-la-redada-en-la-finca-de-retiros-de-ayahuasca-en-pedreguer-detenidos-investigados-y-numerosas-sustancias-intervenidas/?
 
 ## Cognitive loss
 
