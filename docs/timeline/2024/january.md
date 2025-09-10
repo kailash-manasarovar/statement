@@ -494,7 +494,7 @@ function googleTranslateElementInit() {
 
 ![Nacho follows me around town](../../content/images/nacho-follows-me-around.png)
 
-- I see a fake account on X whose profile message seems to relate to this event.
+- Back at home, I see a fake account on X whose profile message seems to relate to this event.
 
 [![Smile it confuses them](../../content/tweets/january-2024/smile-1.png)](https://x.com/k357msn)
 
