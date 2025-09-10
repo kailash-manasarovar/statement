@@ -59,6 +59,8 @@
 
 [![Ka ka account 1](../../content/images/fake-accounts/kaka-1.png)](../2023/september.md#immature-boy-bad-companions-or-both)
 
+- The African reference (black men) is now not lost on me either.
+
 ## New e-SIM with Yoigo
 
 - I try to get a new SIM from Yoigo on 7th February.
