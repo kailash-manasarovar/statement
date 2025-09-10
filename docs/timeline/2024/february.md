@@ -52,7 +52,7 @@
     I ran, I screamed, I laughed</br>
     I know what I don't want, now I'm safe</br>
 
-- I feel an intense aggression towards me in the classroom coming from Salva, the French horn player beside me, Samuel who wears a chequered shirt now and then which triggers me for reasons I'm unaware of, and others.
+- I feel an intense aggression towards me in the classroom coming from Salva, the French horn player beside me, Samuel who wears a chequered shirt which triggers me for reasons I'm unaware of, and others.
 - Undoubtedly I am ingesting something without my knowledge that exacerbates intense feelings of anxiety.
 - While all this is going on, I realize that one of the other songs we have been singing since September has a repeated refrain, "ka ka ka", words I see [constantly from online abusers](../2023/september.md#immature-boy-bad-companions-or-both). 
 - The song is *Dry Your Tears Afrika* by John Williams, and the score we all received in class had been edited to add *ka-ka-ka* at the ends of song lines.
