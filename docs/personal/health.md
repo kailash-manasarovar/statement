@@ -31,6 +31,7 @@ function googleTranslateElementInit() {
 - A family member of hers appears to be [advertising help for poor vision](https://www.ameliasalvador.es/index.php/contacto/) at the same location I visited Ana. That's interesting in itself.
 - I noticed Ana Villalba in a photo included in a spiritual retreat centre website in Pedreguer. She was part of the retreat's online advertised offerings.
 - Could it be the same retreat centre mentioned as being shut down by the police in August 2025: https://en.lamarinaalta.com/salen-a-la-luz-los-detalles-de-la-redada-en-la-finca-de-retiros-de-ayahuasca-en-pedreguer-detenidos-investigados-y-numerosas-sustancias-intervenidas/?
+- Or do the Spanish police only prosecute foreign criminals, turning a blind eye to the uncontrolled seething, swirling, swelling and spreading snake-pit at their doors?
 
 ## Cognitive loss
 
