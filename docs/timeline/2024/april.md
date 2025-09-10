@@ -18,8 +18,8 @@
 - As I whisper, I hear a booming voice coming from inside the temple saying, "Bring him to Me!"
 - Were these the Instructions?
 - How am I doing so far?
-- I'm not telling the whole story here because I'm still rather embarrassed about the intensity of my feelings, and my certainty, which I then doubt due to the drugging.
-- I'll tell you one day.
+- The truth is, I wished the same thing that I heard.
+- Is that alignment?
 
 ## Response from Generalitat
 
