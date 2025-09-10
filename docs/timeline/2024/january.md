@@ -494,6 +494,16 @@ function googleTranslateElementInit() {
 
 ![Nacho follows me around town](../../content/images/nacho-follows-me-around.png)
 
+- I see a fake account on X whose profile message seems to relate to this event.
+
+[![Smile it confuses them](../../content/tweets/january-2024/smile-1.png)](https://x.com/k357msn)
+
+- I respond and get a reply.
+
+[![Smile it confuses them](../../content/tweets/january-2024/smile-2.png)](https://x.com/1FRGVN/status/1748293270080200790)
+
+- I'm curious about the reply, "True, it’s always funny to watch the what do I say now!".
+- What is the "what do I say now?" Is everyone watching my every move, every minute of the day?
 - Even though I do my best to hide it, the constant persecution causes me a lot of stress and anxiety.
 - When I have time to think about what's going on, I have a dull and uncomfortable pain in my arms and shoulders.
 - It feels like I can't move them; I have to push through a force, as if something is holding them down.
