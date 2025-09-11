@@ -115,6 +115,7 @@
 - At the time, I assume this is an attempt to persuade me that the Generalitat are investigating and have sent an inspector; something that actually does happen at my [piano class in a month's time](march.md#an-inspector-calls).
 - Now, at the time of writing, I believe that everything I witnessed is fake and set up.
 - I'm curious if the Generalitat are aware of all this outrageous behavior and how many more complaints they've buried over the years.
+- Indeed, are members of the Generalitat taking part by accessing the live-streams?
 
 ### Ana & Domingo's concerts
 
