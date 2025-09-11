@@ -72,6 +72,8 @@
 
 ## Constant gang stalking at the conservatory
 
+### Ana and Ana
+
 - Ana Girbes continues to be really angry at me for no reason, as does Ana Requena.
 - On February 14th, Valentine's day, as I'm climbing the stairs to choir, Ana and Ana are sitting with their backs to me in Ana Girbes classroom. 
 - Ana Requena rushes out and stares at my face angrily without saying anything at all to me.
@@ -80,20 +82,27 @@
 - I wonder now what they thought they were achieving and/or if their purpose was that I would have a nervous breakdown or kill myself.
 - For sure, at a minimum, they intended I have a severe nervous breakdown.
 
+### Nacho and the smug man with cases
+
+- Every time I go into practice the piano - most lunchtimes - something is going on.
+- I see Nacho carrying big cases full of files and computers.
+- I see the [smug man](january.md#the-smug-man-i-always-see) wheeling a trolley full of computers into the conservatory offices.
+- They seem to always be doing it as I arrive for practice, so I assume it is intended as yet another choreographed idiocy for me to become curious about.
+- My assumption is that they are trying to make me think the Generalitat is taking my complaints seriously and is doing due diligence on conservatory files and computers.
+- It concerns me, if that is the case, that the culprits themselves are doing the investigations.
+
+#### Black woman with clipboard
+
+- At class time, an officious looking black woman ([Domingo's ex again?](january.md#domingo-demonstrates-his-control-of-women-again)) wonders around the halls outside the classrooms where I can see her.
+- She is carrying a clipboard and making notes.
+- I assume this is the same foolishness as the [previous note](#nacho-and-the-smug-man-with-cases).
+
 ### Ana & Domingo's concerts
 
 - I see advertisements on the conservatory walls for concerts.
 - Ana and Domingo are playing concerts at the boat club or in room 5.
-- It's like the conservatory is declaring: we are totally 100% committed to destroying one or more of our students, and we know she is being sedated and raped in her apartment and has been for a few years now, and we're enjoying watching that, and we know she is being abused continually online and in the town, and ... we don't care.
-- We're just carrying on as normal, because that's what we do here.
-
-### Nacho and the smug man with cases
-
-- TODO:
-
-### Black woman with clipboard
-
-- TODO:
+- It's like the conservatory is declaring: we are totally 100% committed to destroying one or more of our students, and we know she is being sedated and raped in her apartment and has been for a few years now, and we know there are other targets in the school, some minors, and we're enjoying watching it all and taking part, and we know Katharine is being abused continually online and in the town, and ... we don't care.
+- We're just carrying on as normal because that's what we do here.
 
 ## My funny valentine
 
