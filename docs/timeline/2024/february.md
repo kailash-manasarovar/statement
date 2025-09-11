@@ -103,7 +103,7 @@
 - They seem to always be doing it as I arrive for practice, so I assume it is intended as yet another choreographed idiocy for me to become curious about.
 - My assumption is that they are trying to make me think the Generalitat is taking my complaints seriously and is doing due diligence on conservatory files and computers.
 - It concerns me, if that is the case, that the culprits themselves are doing the investigations.
-- Perhaps my unassailable good opinion of people was still in the way and instead they are trying to make me think they're destroying evidence.
+- But looking back, more likely my unassailable good opinion of people was still in the way and instead they were trying to make me think they were destroying evidence.
 
 #### Black woman with clipboard
 
