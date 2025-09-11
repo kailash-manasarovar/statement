@@ -112,8 +112,8 @@
 
 ![Domingo's ex is playing her part again](../../content/images/domingos-ex-plays-her-part.png)
 
-- At the time, I assume this is an attempt to persuade me that the Generalitat are investigating and have sent an inspector; something that does happen at my [piano class in a month's time](march.md#an-inspector-calls).
-- Now, at the time of writing, I believe that everything I'm witnessing is fake and set up.
+- At the time, I assume this is an attempt to persuade me that the Generalitat are investigating and have sent an inspector; something that actually does happen at my [piano class in a month's time](march.md#an-inspector-calls).
+- Now, at the time of writing, I believe that everything I witnessed is fake and set up.
 - I'm curious if the Generalitat are aware of all this outrageous behavior and how many more complaints they've buried over the years.
 
 ### Ana & Domingo's concerts
