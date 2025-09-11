@@ -92,7 +92,7 @@
 
 <iframe width="672" height="378" src="https://www.youtube.com/embed/Are-c0BLyIg" title="Frank Sinatra - My Funny Valentine" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### Nacho and the smug man with cases
+### Nacho and the smug man destroying evidence
 
 - Every time I go into practice the piano - most lunchtimes - something is going on.
 - I see [Nacho](../2023/july.md#nacho-caresses-the-8-year-old-girl) carrying big cases full of files and desktop computers.
