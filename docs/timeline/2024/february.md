@@ -105,11 +105,16 @@
 - It concerns me, if that is the case, that the culprits themselves are doing the investigations.
 - But looking back, it's more likely my unassailable good opinion of people was still in the way and instead they were trying to make me think they were destroying evidence.
 
-#### Black woman with clipboard
+#### Official with a clipboard
 
 - At class time, an officious looking black woman ([Domingo's ex again?](january.md#domingo-demonstrates-his-control-of-women-again)) wonders around the halls outside the classrooms where I can see her.
-- She is carrying a clipboard and making notes.
-- I assume this is the same foolishness as the [previous note](#nacho-and-the-smug-man-with-cases).
+- She is carrying a clipboard and making notes on it.
+
+![Domingo's ex is playing her part again](../../content/images/domingos-ex-plays-her-part.png)
+
+- At the time, I assume this is an attempt to persuade me that the Generalitat are investigating and have sent an inspector; something that does happen at my [piano class in a month's time](march.md#an-inspector-calls).
+- Now, at the time of writing, I believe that everything I'm witnessing is fake and set up.
+- I'm curious if the Generalitat are aware of all this outrageous behavior and how many more complaints they've buried over the years.
 
 ### Ana & Domingo's concerts
 
