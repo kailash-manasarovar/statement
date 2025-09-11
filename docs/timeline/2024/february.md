@@ -123,6 +123,7 @@
 - Ana and Domingo are playing concerts at the boat club or in room 5.
 - It's like the conservatory is declaring: we are totally 100% committed to destroying one or more of our students, and we know she is being sedated and raped in her apartment and has been for a few years now, and we know there are other targets in the school, some minors, and we're enjoying watching it all and taking part, and we know Katharine is being abused continually online and in the town, and ... we don't care.
 - We're just carrying on as normal because that's what we do here.
+- I'm confused because I still believe the Generalitat are going to help me.
 
 ## Highlights on Twitter
 
