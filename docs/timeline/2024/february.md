@@ -97,9 +97,13 @@
 - Every time I go into practice the piano - most lunchtimes - something is going on.
 - I see [Nacho](../2023/july.md#nacho-caresses-the-8-year-old-girl) carrying big cases full of files and desktop computers.
 - I see the [smug man](january.md#the-smug-man-i-always-see) wheeling a trolley full of desktop computers into the conservatory offices.
+
+![Destroying evidence](../../content/images/destroying-evidence.png)
+
 - They seem to always be doing it as I arrive for practice, so I assume it is intended as yet another choreographed idiocy for me to become curious about.
 - My assumption is that they are trying to make me think the Generalitat is taking my complaints seriously and is doing due diligence on conservatory files and computers.
 - It concerns me, if that is the case, that the culprits themselves are doing the investigations.
+- Perhaps my unassailable good opinion of people was still in the way and instead they are trying to make me think they're destroying evidence.
 
 #### Black woman with clipboard
 
