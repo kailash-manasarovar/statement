@@ -11,7 +11,7 @@ function googleTranslateElementInit() {
 ## Fake accounts
 
 - Here is a list of a small proportion the accounts that were, and still are in some cases, cyber stalking me.
-- Some are clear images of people I know, especially teachers and staff from the conservatory. I will note that where I can.
+- Some have clear profile images of people I know, especially teachers and staff from the conservatory. I will note that where I can.
 - Some are obvious AI merges of people, sometimes people I know, sometimes not, and me.
 
 !!! important "Disclaimer"
@@ -95,6 +95,9 @@ function googleTranslateElementInit() {
 | ![ fake ]( ../content/images/fake-accounts/list/58.png ){width=50%} |  Fake account. Rape gang implication. |
 | ![ fake ]( ../content/images/fake-accounts/list/59.png ){width=50%} |  Old fake account, constant stalker. |
 | ![ fake ]( ../content/images/fake-accounts/bertha-dalziel.png ){width=50%} | "Massive in the earwig community" I wonder what that means? |
+| ![ fake ]( ../content/images/fake-accounts/bert-dalziel/samuel-and-yoga-teacher-1.png ){width=50%} | Bert Dalziel looks like an AI mix between Samuel and the weird yoga teacher from 2015. |
+| ![ fake ]( ../content/images/fake-accounts/bert-dalziel/samuel-and-yoga-teacher-2.png ){width=50%} | Bert Dalziel looks like an AI mix between Samuel and the weird yoga teacher from 2015. |
+| ![ fake ]( ../content/images/fake-accounts/katiekmucha.png ){width=50%} | A response to me personally, "Katie, that much?!", after I reveal explosive truths. |
 | ![ fake ]( ../content/images/fake-accounts/katiekmucha.png ){width=50%} | A response to me personally, "Katie, that much?!", after I reveal explosive truths. |
 
 ## Can't access spaces on desktop
