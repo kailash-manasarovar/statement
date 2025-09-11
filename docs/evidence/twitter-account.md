@@ -95,9 +95,8 @@ function googleTranslateElementInit() {
 | ![ fake ]( ../content/images/fake-accounts/list/58.png ){width=50%} |  Fake account. Rape gang implication. |
 | ![ fake ]( ../content/images/fake-accounts/list/59.png ){width=50%} |  Old fake account, constant stalker. |
 | ![ fake ]( ../content/images/fake-accounts/bertha-dalziel.png ){width=50%} | "Massive in the earwig community" I wonder what that means? |
-| ![ fake ]( ../content/images/fake-accounts/bert-dalziel/samuel-and-yoga-teacher-1.png ){width=50%} | Bert Dalziel looks like an AI mix between Samuel and the weird yoga teacher from 2015. |
+| ![ fake ]( ../content/images/fake-accounts/bert-dalziel/samuel-and-yoga-teacher-1.png ){width=50%} | Bert Dalziel looks like an AI mix between [Samuel](../timeline/2022/september.md#chamber-music) and the [weird yoga teacher from 2015](../timeline/early-years/2015.md#nati-de-prati-yoga). |
 | ![ fake ]( ../content/images/fake-accounts/bert-dalziel/samuel-and-yoga-teacher-2.png ){width=50%} | Bert Dalziel looks like an AI mix between Samuel and the weird yoga teacher from 2015. |
-| ![ fake ]( ../content/images/fake-accounts/katiekmucha.png ){width=50%} | A response to me personally, "Katie, that much?!", after I reveal explosive truths. |
 | ![ fake ]( ../content/images/fake-accounts/katiekmucha.png ){width=50%} | A response to me personally, "Katie, that much?!", after I reveal explosive truths. |
 
 ## Can't access spaces on desktop
