@@ -74,13 +74,19 @@
 
 ### Ana and Ana
 
-- Ana Girbes continues to be really angry at me for no reason, as does Ana Requena.
-- On February 14th, Valentine's day, as I'm climbing the stairs to choir, Ana and Ana are sitting with their backs to me in Ana Girbes classroom. 
-- Ana Requena rushes out and stares at my face angrily without saying anything at all to me.
-- I assume the intention is for me to think she is concerned I will have put makeup on for Valentine's day.
-- It's absolutely ridiculous and I know they are laughing at me as I continue on up.
-- I wonder now what they thought they were achieving and/or if their purpose was that I would have a nervous breakdown or kill myself.
-- For sure, at a minimum, they intended I have a severe nervous breakdown.
+- Ana Girbes continues to be really angry at me for no reason whenever I see her, as does Ana Requena.
+- On February 14th, Valentine's day, as I'm climbing the stairs to choir, Ana and Ana are sitting huddled together with their backs to me in Ana Girbes empty classroom with the door open as I pass so I can see them. 
+
+![Ana and Ana on Valentine's Day](../../content/images/ana-and-ana.png)
+
+- No-one else is around, curiously.
+- Ana Girbes sees me and motions towards me and Ana Requena rushes out and peers at my face angrily, without looking at me or saying anything at all.
+- I assume the intention is for me to think she is concerned I will have put makeup on for Valentine's day so that I think she thinks I have a date with the trumpet teacher.
+- It's absolutely ridiculous and I know they are laughing at me as I continue on up to choir.
+- I wonder now what they thought they were achieving.
+- At a minimum, they must have intended I have a severe nervous breakdown.
+- I wonder how many others they drove to madness or suicide?
+- I wonder how many youngsters they shepherded, porn-ready, to the criminal gangs that control the town?
 
 ### Nacho and the smug man with cases
 
