@@ -88,6 +88,10 @@
 - I wonder how many others they drove to madness or suicide?
 - I wonder how many youngsters they shepherded, porn-ready, to the criminal gangs that control the town?
 
+#### My funny valentine
+
+<iframe width="672" height="378" src="https://www.youtube.com/embed/Are-c0BLyIg" title="Frank Sinatra - My Funny Valentine" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
 ### Nacho and the smug man with cases
 
 - Every time I go into practice the piano - most lunchtimes - something is going on.
@@ -109,10 +113,6 @@
 - Ana and Domingo are playing concerts at the boat club or in room 5.
 - It's like the conservatory is declaring: we are totally 100% committed to destroying one or more of our students, and we know she is being sedated and raped in her apartment and has been for a few years now, and we know there are other targets in the school, some minors, and we're enjoying watching it all and taking part, and we know Katharine is being abused continually online and in the town, and ... we don't care.
 - We're just carrying on as normal because that's what we do here.
-
-## My funny valentine
-
-<iframe width="672" height="378" src="https://www.youtube.com/embed/Are-c0BLyIg" title="Frank Sinatra - My Funny Valentine" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ## Highlights on Twitter
 
