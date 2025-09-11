@@ -63,10 +63,12 @@
 
 ## New e-SIM with Yoigo
 
-- I try to get a new SIM from Yoigo on 7th February.
-- It's such a complicated business, I never manage to set it up, even though they sent me detailed instructions.
-- The relevant part of the instructions on email was missing, i.e. QR code, so I was never able to set up the e-SIM.
+- I decide to get a new e-SIM from Yoigo on 7th February in the hope it might impede hackers.
+- I go to the store in town and they do the backend administration and send me a confirmation email.
+- It's such a complicated business however, I never manage to set it up, even though they sent me detailed instructions.
+- The relevant part of the instructions on the email was missing, i.e. QR code, so I was never able to set up the e-SIM.
 - I believe the email was interfered with and the QR code removed or made unreadable so that I could not set up the e-SIM.
+- I was starting to find really very simple tasks quite impossible around this time.
 
 ## Constant gang stalking at the conservatory
 
