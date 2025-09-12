@@ -158,7 +158,7 @@
 
 - I'm serving at Lourdes and as part of service you have to fulfil a few formalities and training.
 - I have two trainings assigned.
-- On the Tuesday or service, I go to the training centre for the first training.
+- On the Tuesday of service, I go to the training centre for the first training.
 - A woman called Kathleen is running the trainings for the English-speakers this week. It rotates depending on who is in Lourdes at the time.
 - She is an enormous woman in her seventies probably. Huge.
 - She reminds me of an orangutan.

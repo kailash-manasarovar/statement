@@ -58,6 +58,7 @@
 - Silence. 
 - Of course, he's worried about himself, never me.
 - Pedo's always pick their victims wisely and will have always done their homework and family background checks.
+- They never count on God though.
 
 ### Gang of adult men talking about getting their dicks out at Finchley Central tube station
 
