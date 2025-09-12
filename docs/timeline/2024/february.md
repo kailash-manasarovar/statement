@@ -117,13 +117,16 @@
 - I'm curious if the Generalitat are aware of all this outrageous behavior and how many more complaints they've buried over the years.
 - Indeed, are members of the Generalitat taking part by accessing the live-streams?
 
-### Ana & Domingo's concerts
+### Ana & Domingo concerts
 
 - I see advertisements on the conservatory walls for concerts.
-- Ana and Domingo are playing concerts at the boat club or in room 5.
-- It's like the conservatory is declaring: we are totally 100% committed to destroying one or more of our students, and we know she is being sedated and raped in her apartment and has been for a few years now, and we know there are other targets in the school, some minors, and we're enjoying watching it all and taking part, and we know Katharine is being abused continually online and in the town, and ... we don't care.
+- Ana Requena and Domingo Cano are both performing concerts this month; at the boat club or in room 5.
+
+![Ana's and Domingo's concerts](../../content/images/ana-and-domingo-concerts.png)
+
+- It's like the conservatory is declaring: we are totally 100% committed to destroying one or more of our students, and we know she is being sedated and raped in her apartment and has been for a few years now, we probably know the same thing was happening to her while she studied with us in 2015-15, and we are fully aware about other targets in the school, some very young, and we're enjoying watching it all and taking part, and ... we don't care.
 - We're just carrying on as normal because that's what we do here.
-- I'm confused because I still believe the Generalitat are going to help me.
+- It's confusing to me because I still believe the Generalitat are going to help me.
 
 ## Highlights on Twitter
 
