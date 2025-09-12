@@ -146,11 +146,11 @@
     - When I read through this email, I sense my growing anxiety and exhaustion with what's happening to me.
     - Please note, dear reader, at the time of writing, September 2025, it is business as usual at the conservatory of Dénia, Alicante, Spain.
 
-### The conservatory knows about my correspondence to the Generalitat
+### Everyone at the conservatory knows about my correspondence to the Generalitat
 
-- When I go to the conservatory the following week, it is very clear that everyone knows what I have said in the email I sent to the Generalitat at the weekend, particularly with regards to Mercedes, who is crying and moaning at reception with Gloria about something.
-- The bullying from [Ana and Ana](#ana-and-ana) also ramps up.
-- Everything feels, again, like it is set up and contrived.
+- When I go to the conservatory the following week, it is very clear to me that everyone knows what I have said in the email I sent to the Generalitat at the weekend, particularly with regards to Mercedes, who is crying and moaning at reception with Gloria as I pass them.
+- The bullying from [Ana and Ana](#ana-and-ana) and others online and in-person ramps up.
+- Everything I experience feels, again, like it is set up and contrived.
 - No one speaks to me.
 - The Generalitat do not reply.
 
