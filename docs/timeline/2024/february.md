@@ -124,7 +124,7 @@
 
 ![Ana's and Domingo's concerts](../../content/images/ana-and-domingo-concerts.png)
 
-- It's like the conservatory is declaring: we are totally 100% committed to destroying one or more of our students, and we know she is being sedated and raped in her apartment and has been for a few years now, we probably know the same thing was happening to her while she studied with us in 2015-15, and we are fully aware about other targets in the school, some very young, and we're enjoying watching it all and taking part, and ... we don't care.
+- It's like the conservatory is declaring: we here are 100% committed to destroying one or more of our students, and we know she is being drugged in class, sedated and raped in her apartment, and has been for a few years now, we know the same thing was happening to her while she studied with us in 2014-15 too, and we are fully aware about other targets in the school, some very young, and we're enjoying watching it all, and taking part, and ... and ... we don't care.
 - We're just carrying on as normal because that's what we do here.
 - It's confusing to me because I still believe the Generalitat are going to help me.
 
