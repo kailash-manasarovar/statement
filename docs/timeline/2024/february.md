@@ -61,6 +61,98 @@
 
 - The African reference (black men) is now not lost on me either.
 
+## Another email to the Generalitat (the school board for the region)
+
+- Things are getting worse for me, online and in person.
+- I feel I'm in constant danger.
+- I'm becoming more and more stressed and psychologically/emotionally injured.
+- No one outside of X communicates with me, and I don't know who to ask for help as everyone has ignored me when my complaints should have been taken extremely seriously.
+- I'm completely alone and the weight of what is going on for me is overwhelming.
+- It seems sensible to have some formal documentation on record and so I email the Generalitat Valenciana in Alicante, details given by the [previous brief response I received in January](january.md#january-18th-correspondence-to-the-generalitat):
+    - [Another complaint in English](../../content/documents/emails/feb-10-email-to-alicante-en.pdf).
+    - [Another complaint in Spanish](../../content/documents/emails/feb-10-email-to-alicante-es.pdf).
+    - [Proof of sending via email](../../content/documents/emails/receipt-of-feb-email.pdf) -> this document includes an extra short email I wrote regarding some of my concerns about Mercedes C Lara, and a screenshot of the [threat of violence](#threats-on-x-increase) which prompts me to go to the police later in the month.
+
+    !!! tip "My email to the Generalitat"
+        Saturday 10 February 2024,</br>
+        Denia Alicante</br>
+        Dear sir or madam,</br>
+        This letter is following the recent complaints I made about a teacher and his associates,
+        particularly the computer technical staff- at the conservatory of Denia to which I have received no reply even though the male aggressive behavior against myself continues.</br>
+        What has happened to me over the last 18 months is extraordinary, and a lot of it is even
+        criminal, but my foremost concern is that this teacher and his computer technician associates
+        have unlimited access to children, mostly girls, and their mobile phones. The ease and hubris
+        with which he and his associates hacked my phone and laptop, took photos and videos of me
+        half naked when I was home alone and disseminated them across the town, tracked my
+        physical movements with my phone and set up intricate coordinated “attacks” around town and
+        elsewhere, situations which were designed solely to terrorize me, can only mean that he has
+        been doing similar with the minor children and women he has unlimited access to as a teacher
+        over the years.</br>
+        Currently, his students are giving me the overt cold shoulder, which is most welcome in fact as I am going to the conservatory to study music and not engage in what can only be described as being the victim of coordinated misogynistic stalking and bullying, male violence against women, in fact.</br> 
+        However, I remain more concerned about their safety and dignity than my own.</br>
+        So many things have happened, the “attacks” have been pretty constant since October 2022 but
+        crescendoed around June 2023 and since then. There are so many situations I could mention.
+        For example, you might like to ask Domingo’s students what they were told about me in October
+        2023 with regards to a very subtle tweet I posted on one of my accounts which was
+        misinterpreted by him as me asking someone to travel somewhere in a romantic sense with me.
+        Something ironically Domingo also mistakenly believed he did with me in December 2014 when
+        I asked him to visit London with me, as a friend, and he lied to the conservatory about being sick so he could come with me and miss the important departmental meeting that December 2014.</br>
+        Domingo’s students, in October 23, after I posted this misinterpreted tweet, came up to me in
+        choir class and asked me directly about the trip I was going on with a boy and laughed and
+        giggled as if they had been told something salacious about it, which was absolutely ridiculous.</br>
+        But this is the kind of thing that has been going on constantly. Teachers should not be playing these sorts of games with their students. Are there no rules teachers have to follow with respect to their behavior towards students and minors or is Domingo Cano somehow exempt from them?</br>
+        I believe now that Domingo’s original interest in me, apparently romantically, in 2014 was fake, and his true intentions were much darker. I found myself in a dreadful situation with this piano teacher who pushed himself into and involved himself personally in my life, someone who was extremely sexist, insulting, and rude and, in the end when it all went wrong for him, inevitably, I couldn’t do anything about it apart from ask for a new teacher.</br>
+        When men in power overstep boundaries like this, we have to put up with them. We can’t get
+        away without drama. They know this.</br>
+        The story he has been telling everyone to discredit me is the sort of thing you think you might expect from teenagers at high school. They use the fact that they believe they tricked me into thinking one of the teachers liked me romantically to discredit and shame me. The problem is I knew about this trick from the choir concert in December 2022. It was so obvious and extremely unpleasant. Nevertheless, I played along, and by doing so they revealed their intentions and the fact that they have no limits on what measures they might take to hurt a student at the school they don’t like.</br>
+        Domingo has control of WhatsApp groups with his students as members, he instructs them to
+        spy on me and report back to him, and there is a very famous WhatsApp group that either
+        himself or the computer technician is managing which publicizes my tweets to the members, but
+        only tweets they have deemed interesting for whatever reason. This is the definition of stalking and is extremely concerning that public civil servants would have no qualms about doing this to a student. Everyone knows about this group.</br>
+        The interest has dropped off recently, since my most recent complaint, which is welcome and
+        something of an admission of guilt too, but they are still sharing some of my tweets. I can tell because you can see which tweets people are translating and then they make it known to me at the school that they heard about it. Someone is deciding which ones to share too and the
+        criteria is not clear but my more condemning tweets regarding male violence, voyeurism, and
+        sexual abuse do not get shared. Many of my tweets that have been disseminated amongst the
+        conservatory staff and beyond are misinterpreted, taken personally, and have even caused
+        teachers to be extremely angry with me when I have gone to the school!</br>
+        You might like to ask any of the teachers how extremely private health matters I only ever told Google are common knowledge?</br>
+        They have been utterly obsessed with me. It’s astonishing behavior, totally unacceptable from
+        civil servants responsible for minors, other people’s children.</br>
+        Nevermind my horrific experiences, I am extremely concerned for the safety and dignity of the
+        young girls they are responsible for. There can be no way I am the only victim of this sort of
+        thing. I also cannot believe I am the only person to ever complain about this sort of behavior
+        which was designed to destroy me, to frighten me into leaving and to never return. The delight
+        they took in engaging in this behavior was palpable and they were not expecting it to backfire so spectacularly.</br>
+        A teacher who propositions a student romantically and gets turned down and becomes so upset
+        they feel justified terrorizing them extensively over 10 years later should not be anywhere near women or children. It is gender abuse.</br>
+        The way Domingo Cano spoke about the school girls walking past us in the street as we were
+        having coffee one afternoon after class in October 2014 alerted me immediately to the fact that Domingo Cano has an extremely troubling over-sexualised view of schoolgirls alongside his
+        appallingly low view of women in general.</br>
+        I tweet a lot of concerns about child safety, gender abuse, and pedophilia. In fact, you might call me a feminist activist of some sort on Twitter and I have been so for nearly 3 years now. I believe these child-safety tweets surprised and upset Domingo and his associates to an even greater extent and put me in even more danger from them. Indeed, they have always been very quick to show me, in an exaggerated sense, how much power they have over young girls by overtly touching them in front of me, for example. It is appalling.</br>
+        He is often seen in town chaperoning his young girl students and is mistaken for their father by the local townsfolk who don’t know him. In my view, he should be nowhere near young girls or have the unfettered access to their phones that he has been enjoying for many years.</br>
+        I hope you will take some of what I am saying seriously, this is a very serious matter, and has caused me enormous distress and stress.</br>
+        I suspect if you checked any of these men’s hard drives you would find concerning material.</br> 
+        And if you check historical complaints you are bound to find a bunch of complaints about him that are similar to this.</br>
+        I don’t want to go to the police but if it continues I will eventually have no choice. However, I think my next port of call will be the media as it is such an astonishing story and extremely interesting to the public, especially parents.</br>
+        As a Spanish taxpayer and upstanding member of the local, European, and global community, I
+        have every right to study the piano at your most wonderful conservatory in Denia in peace and
+        without being in danger from misogynists who find my existence offensive. It is a great privilege for me to attend the conservatory and study the piano and the extraordinarily high level of teaching is second to none. It is a great shame that a few abusive men have so much control over vulnerable students they are responsible for and don’t seem to know how to behave like adults within the law.</br>
+        Please let me know if you need any further information. If anything else comes to light I may
+        reach out again.</br>
+        With the very best,</br>
+        Sincerely,</br>
+        Dra Katharine Murphy
+
+    - When I read through this email, I sense my growing anxiety and exhaustion with what's happening to me.
+
+### The conservatory knows about my correspondence to the Generalitat
+
+- When I go to the conservatory the following week, it is very clear that everyone knows what I have said in the email I sent to the Generalitat at the weekend, particularly with regards to Mercedes, who is crying and moaning at reception with Gloria about something.
+- The bullying from [Ana and Ana](#ana-and-ana) also ramps up.
+- Everything feels, again, like it is set up and contrived.
+- No one speaks to me.
+- The Generalitat do not reply.
+
 ## New e-SIM with Yoigo
 
 - I decide to get a new e-SIM from Yoigo on 7th February in the hope it might impede hackers.
@@ -128,43 +220,6 @@
 - We're just carrying on as normal because that's what we do here.
 - It's confusing to me because I still believe the Generalitat are going to help me.
 
-## Documenting my conscious awareness on X
-
-- The constant abuse is exhausting and I'm really upset at how I'm being treated at the conservatory.
-- I start to write my story.
-- I publish it on Twitter highlights.
-- Everything I have put in highlights relates to the conservatory gang stalking: https://x.com/1FRGVN/highlights.
-
-### The story published in highlights
-
-- This is such an interesting documentation exercise because it shows how much I was aware of at this time, which is very little really.
-- I have made assumptions on what is happening to me based on what I consciously know about it.
-- The more hideous sex crimes, constant voyeurism, and live-streaming, which everyone else must know about, I'm unaware of at this time.
-- Indeed, in retrospect, the full story of what has been happening to me at the hands of Domingo Cano and his family and associates, rather explains the psychopathy of teachers and staff at the conservatory, which was inexplicable to me at the time.
-- When normal people aren't able to do anything about the evil around them without getting murdered themselves, madness is safety (see, for example, Nazi Germany).
-- Let's have a closer look at what I knew in February 2024.
-
-- Part one - collecting my thoughts (the story): https://x.com/1FRGVN/status/1759737292472627532
-- Part two - the trumpet teacher: https://x.com/1FRGVN/status/1759770318409695275 
-- Part three - hacking: https://x.com/1FRGVN/status/1759837709365817828
-- Part four - manipulating and involving the children: https://x.com/1FRGVN/status/1759864483244089476 -> I think the information in this statement covers that.
-
-## Another email to the school board
-
-- Things are getting worse and I'm getting more and more stressed.
-- No one communicates with me and no one is trying to help me.
-- I'm completely alone and the weight of what is going on for me is becoming overwhelming.
-- It seems sensible to have some formal documentation on record and so I email the Generalitat Valenciana in Alicante, details given by the previous brief response I received in January:
-    - [Another complaint in English](../../content/documents/emails/feb-10-email-to-alicante-en.pdf).
-    - [Another complaint in Spanish](../../content/documents/emails/feb-10-email-to-alicante-es.pdf).
-    - [Proof of sending via email](../../content/documents/emails/receipt-of-feb-email.pdf) -> this includes an extra short email I wrote about my concerns that Mercedes would lie about me and proof that was sent also.
-
-## The conservatory knows about my correspondence to the Generalitat
-
-- When I go to the conservatory the following week, it is very clear that everyone knows what I have said in the email I sent to the Generalitat at the weekend, particularly with regards to Mercedes, who is crying and moaning at reception with Gloria about something.
-- It feels, again, set up and contrived.
-- No one speaks to me about anything.
-
 ## Threats on X increase
 
 - I'm followed by a weird fake account, Mark Moseley, who is just like the other fake accounts that interact with me directly, but decidedly more violent in tone. He seems unhinged.
@@ -219,6 +274,27 @@
 - There was, of course, no reply.
 - I am starting to get seriously stressed and anxious now. And I'm scared too. 
 - I call 112. I'm told to go to report the matter in person to the police.
+
+## Documenting my conscious awareness on X
+
+- The constant abuse is exhausting and I'm really upset at how I'm being treated by the people at conservatory.
+- I start to write my story.
+- I publish it on Twitter highlights.
+- Everything I have put in highlights relates to the conservatory gang stalking: https://x.com/1FRGVN/highlights.
+
+### The story published in highlights
+
+- This is such an interesting documentation exercise because it shows how much I was aware of at this time, which is very little really.
+- I have made assumptions on what is happening to me based on what I consciously know about it.
+- The more hideous sex crimes, constant voyeurism, and live-streaming, which everyone else must know about, I'm unaware of at this time.
+- Indeed, in retrospect, the full story of what has been happening to me at the hands of Domingo Cano and his family and associates, rather explains the psychopathy of teachers and staff at the conservatory, which was inexplicable to me at the time.
+- When normal people aren't able to do anything about the evil around them without getting murdered themselves, madness is safety (see, for example, Nazi Germany).
+- Let's have a closer look at what I knew in February 2024.
+
+- Part one - collecting my thoughts (the story): https://x.com/1FRGVN/status/1759737292472627532
+- Part two - the trumpet teacher: https://x.com/1FRGVN/status/1759770318409695275 
+- Part three - hacking: https://x.com/1FRGVN/status/1759837709365817828
+- Part four - manipulating and involving the children: https://x.com/1FRGVN/status/1759864483244089476 -> I think the information in this statement covers that.
 
 ## Guardia Civil
 
