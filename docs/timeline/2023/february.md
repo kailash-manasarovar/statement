@@ -251,6 +251,7 @@ function googleTranslateElementInit() {
 
 ## Maria 
 
-- At one class, Maria explains delightedly how the *men* (who she seems to worship) apply screws to people, slowly screwing them in, tighter and tighter.
-- Maria demonstrates this movement with her hands screwing something into the wall.
+- At one class, Maria explains delightedly how the *men*, *machos* she calls them, (humans she seems to worship) apply screws to people, slowly screwing them in, tighter and tighter.
+- I understand this to mean applying psychological pressure.
+- Maria demonstrates the movement with her hands screwing an imaginary screw with great force into the wall, grimacing and giggling as she does.
 - I don't know that she is talking about what they are doing to me.
