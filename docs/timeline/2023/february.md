@@ -248,3 +248,9 @@ function googleTranslateElementInit() {
         - Who knows? Perhaps just a trigger to create more stress and anxiety in my mind. 
         - Probably just the trumpet teacher's wife, but which trumpet teacher, and does anyone even care?
     - I tweeted about this Silvia lie a fair bit: https://x.com/search?q=silvia%20(from%3A1frgvn)&src=typed_query&f=live
+
+## Maria 
+
+- At one class, Maria explains delightedly how the *men* (who she seems to worship) apply screws to people, slowly screwing them in, tighter and tighter.
+- Maria demonstrates this movement with her hands screwing something into the wall.
+- I don't know that she is talking about what they are doing to me.
