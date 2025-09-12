@@ -144,6 +144,7 @@
         Dra Katharine Murphy
 
     - When I read through this email, I sense my growing anxiety and exhaustion with what's happening to me.
+    - Please note, dear reader, at the time of writing, September 2025, it is business as usual at the conservatory of Dénia, Alicante, Spain.
 
 ### The conservatory knows about my correspondence to the Generalitat
 
