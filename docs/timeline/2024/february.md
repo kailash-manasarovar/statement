@@ -128,13 +128,21 @@
 - We're just carrying on as normal because that's what we do here.
 - It's confusing to me because I still believe the Generalitat are going to help me.
 
-## Highlights on Twitter
+## Documenting my conscious awareness on X
 
-- It's exhausting and I'm really upset at how I'm being treated.
-- I start to write my story and publish it on Twitter highlights.
-- Everything in highlights relates to gang stalking: https://x.com/1FRGVN/highlights.
+- The constant abuse is exhausting and I'm really upset at how I'm being treated at the conservatory.
+- I start to write my story.
+- I publish it on Twitter highlights.
+- Everything I have put in highlights relates to the conservatory gang stalking: https://x.com/1FRGVN/highlights.
 
 ### The story published in highlights
+
+- This is such an interesting documentation exercise because it shows how much I was aware of at this time, which is very little really.
+- I have made assumptions on what is happening to me based on what I consciously know about it.
+- The more hideous sex crimes, constant voyeurism, and live-streaming, which everyone else must know about, I'm unaware of at this time.
+- Indeed, in retrospect, the full story of what has been happening to me at the hands of Domingo Cano and his family and associates, rather explains the psychopathy of teachers and staff at the conservatory, which was inexplicable to me at the time.
+- When normal people aren't able to do anything about the evil around them without getting murdered themselves, madness is safety (see, for example, Nazi Germany).
+- Let's have a closer look at what I knew in February 2024.
 
 - Part one - collecting my thoughts (the story): https://x.com/1FRGVN/status/1759737292472627532
 - Part two - the trumpet teacher: https://x.com/1FRGVN/status/1759770318409695275 
