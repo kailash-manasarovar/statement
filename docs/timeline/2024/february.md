@@ -117,7 +117,7 @@
 - I'm curious if the Generalitat are aware of all this outrageous behavior and how many more complaints they've buried over the years.
 - Indeed, are members of the Generalitat taking part by accessing the live-streams?
 
-### Ana & Domingo concerts
+### Ana & Domingo play concerts
 
 - I see advertisements on the conservatory walls for concerts.
 - Ana Requena and Domingo Cano are both performing concerts this month; at the boat club or in room 5.
