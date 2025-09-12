@@ -115,6 +115,7 @@
 - I write about this in the [August 2024 section](../2024/august.md#i-realize-i-have-been-poisoned-and-drugged) the first time a hacker said sorry to me when I mention being poisoned.
 - On my last day of service to Mary, I have a really big headache which feels like it is going to become a migraine and is effecting my eyes and vision.
 - I have to come back to my room and skip the afternoon service.
+- Curiously, this is right after a [very bizarre meeting with a member of the British hospitalite](#more-transvestites-at-lourdes).
 - The following day, I feel a little better, but after about an hour in the car, I can feel both kidneys are screaming just like they did when I was sitting peacefully in my apartment in Dénia around lunchtimes.
 - The next day, my kidneys are still aching, my eyes are blurry, and my vision is extremely poor. 
 - I can hardly look at bright lights, including a clear sky.
@@ -146,12 +147,52 @@
 - Is the conspiracy wrapped up in the [medical-transitioning of children](../early-years/2013.md#lorraines-trans-child) scandal too?
 - Is this why whenever I desperately tried to get help from the UK embassy or foreign office, they ignored me, even put the phone down on me?
 - Is this why the [Metropolitan Police](../2025/january.md#i-call-the-police) might as well have told me I'm an idiot, knowing full well I'm a rape-gang survivor?
-- Is this why Spanish gangs feel 100% completely safe, and don't even care about leaving an evidential trail that a cat could follow?
+- Is this why Spanish gangs feel 100% completely safe, and don't even care about leaving an evidential trail that a blind cat on catnip could follow?
 - Do they know they are protected at the highest level?
 - They must know it can't go on forever.
 - Will I simply end up dead in suspicious circumstances, like Lorraine, like everyone else who complains?
 - My heart says I will survive even this.
 - I hope so, we've lots to get through and the world is insane in very dangerous ways now and something has to change.
+
+### More transvestites at Lourdes?
+
+- I'm serving at Lourdes and as part of service you have to fulfil a few formalities and training.
+- I have two trainings assigned.
+- On the Tuesday or service, I go to the training centre for the first training.
+- A woman called Kathleen is running the trainings for the English-speakers this week. It rotates depending on who is in Lourdes at the time.
+- She is an enormous woman in her seventies probably. Huge.
+- She reminds me of an orangutan.
+- I'm about 2 minutes late and there is some discussion about lateness being disrespectful.
+- Myself and a young man who works at M&S (I forget his name but he volunteers on the main plateau and I saw him standing there one afternoon and said hi) attend and it's a great meeting.
+- Kathleen explains there is now some safeguarding protocol at the baths.
+- I'm delighted to hear this and express it.
+- She waves a leaflet at us but doesn't really go into how we might report concerns.
+- I ask her if there is any way to report concerns anonymously to someone prior to reporting formally. The reason I ask is because of my experiences with men in the women's baths over the years, and being forcibly kissed by a male volunteer one summer.
+- Kathleen says, certainly there is such a function in the French side of the hospitalite, but not yet in the British.
+- After the meeting, Kathleen and I chat a bit about how AI might help the hospitalite with video tasks which have been historically time-consuming and difficult to manage.
+- I go for my second and last training on the Friday morning.
+- Kathleen is 10 minutes late to the meeting, I'm waiting outside. It seems I'm the only attendee.
+- She arrives and we go in.
+- I'm not sure where to sit, so I bring a chair a bit closer to her otherwise we'd be at opposite ends of the room.
+- Kathleen says: "You can sit on my knee if you like."
+- I say, strongly: "That won't be necessary," and move to the opposite side of the room.
+- I see her grin.
+- I suddenly start wondering about Kathleen.
+- Next, a young British Indian woman comes into the meeting, sits next to Kathleen, and starts talking in an outrageously posh manner.
+- It's a bit weird.
+- Kathleen says to me, oh, this lady is in tech, she understands AI etc.
+- I explain what I know about an exemplary AI video platform I recently saw demoed.
+- The Indian lady shuts me down with some ideas about how processing power is a real issue for AI systems and I'm sure she means privacy.
+- I note it.
+- Kathleen talks about people feeling inferior. 
+- I note it.
+- Kathleen then asks me about my experience this week regarding reverence for Mary and the sanctuary.
+- I notice the Indian woman is looking a little nervous.
+- I say: "I believe the sanctuary is sacred space, and from the moment you enter, anything that happens is important and governed by Mary."
+- The Indian woman's legs are shaking so hard she puts her bag in front of the chair.
+- I give an AI platform recommendation to the Indian woman and ask her to write it down, and explain that she can get a contract lawyer to go over any privacy details (which is probably what she was trying to say).
+- The meeting ends and I get an immediate headache and start feeling unwell; symptoms of poisoning rising to the surface.
+- Later, I realize that Kathleen could very well be a man and therefore his/her comment about sitting on her/his knee was even more toxic.
 
 ## More threats
 

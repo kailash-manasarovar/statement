@@ -37,6 +37,7 @@
 - I'm stalked online constantly by hackers while I'm in the UK, and a conversation continues with them on DMs with fake accounts during this time. Copies available on request.
 - I tell my new friends about the gypsy trumpeter I'm in love with.
 - None of them are particularly impressed and I'm not surprised at that.
+- Some of them seem to be trying to talk me out of it. Some seem to have background knowledge of what's been going on for me.
 - I'm aware that everything I do online is seen by hackers. Everything.
 - Electioneering is a social business and I drink alcohol most days.
 - However, I feel no ill effects like I do when I am at home in Dénia. It's weird.
@@ -44,6 +45,19 @@
 - It starts up again when I go back to Dénia in July.
 
 ## Election campaign
+
+### Barnet Post
+
+- My dad reads my article in the Barnet Post and gets upset.
+- He says, why didn't you tell me, a lot.
+- I say everyone knew.
+- Silence.
+- Later, when drunk, he makes a joke about how many men have had me.
+- He repeats the *why didn't you tell me* thing for nearly a year until I take a moment to point out a few obvious things out to him.
+- In September 2025, I excitedly tell him there might be a new investigation.
+- Silence. 
+- Of course, he's worried about himself, never me.
+- Pedo's always pick their victims wisely and will have always done their homework and family background checks.
 
 ### Gang of adult men talking about getting their dicks out at Finchley Central tube station
 
