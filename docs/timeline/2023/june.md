@@ -665,7 +665,9 @@ function googleTranslateElementInit() {
 - It feels like Domingo and his cohort are teasing me; posting things that they hope will upset me.
 - A porn video pops up on my timeline which looks like the trumpet teacher and Ana so I look at it.
 - It is extremely violent and he is holding her by the neck and throwing her around the kitchen. It certainly wasn't Ana but the woman was of a similar build and look.
-- It may have been the trumpet teacher however, as the man's back was to the camera and he was of the same build.
+- It may have been the trumpet teacher however, as the man's back was to the camera and he was of the same build, the build of the man that I was always *shown*; at the [choir concert](../2022/december.md#choir-concert), just as I was [drugged outside the tunnel](../2024/april.md#the-trumpet-teacher-in-denia), at [the beach](../2023/september.md#gang-stalking-on-the-beach), and elsewhere.
+- It would be very interesting if the *actual* trumpet teacher, the one who I had a genuine if somewhat unorthodox connection with, was of a shorter, slimmer, and slighter build as I had always remembered him to be those sporadic times he came to class, switching places with the larger man whenever they told him to.
+- I understand that they may have forced him to *muscle up*, although perhaps they didn't even need to do that as there were so many stand-ins for him, all of this same tall and lumbering size and shape.
 
 ### Interesting tweets from this period that suggest communication with online groups unknown
 
