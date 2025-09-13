@@ -282,15 +282,17 @@ function googleTranslateElementInit() {
 
 ### Seaweed
 
-- I see photos of hanging strips of seaweed on the `@sinremite` account.
-- They are from artist Julia Lohmann's installations.
+- I continue to see photos of hanging strips of seaweed on the `@sinremite` account.
+- They are from artist Julia Lohmann's installations, mentioned in the [June 2023 chapter](june.md#ana-requena-and-julia-lohmann).
 - I have no idea what they're from and I think nothing of them.
 - A few weeks later, I see Ana Requena Marin in a Julia Lohmann installation.
 
 ![Julia Lohmann](../../content/images/carmen/sinremite-julia-lohmann.jpg)
 
 - I'm truly amazed at the dedication and commitment of the teachers and staff at the conservatory.
-- None of it made any sense to me; unless they are truly evil people which I was never able to reconcile with my experience of living in Dénia, prior to being targeted by the criminal pedo-porn gangs.
+- None of it made any sense to me; unless they are truly evil people.
+- I was never able to reconcile this idea with my experience of living in Dénia, prior to being targeted by the criminal pedo-porn gangs.
+- Ana Requena appears to be a prominent member of the gang.
 
 ### The guy at the Alhambra
 
