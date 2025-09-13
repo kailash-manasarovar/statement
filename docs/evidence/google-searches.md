@@ -43,3 +43,4 @@ function googleTranslateElementInit() {
 - I believe the Santiago Garrido account is likely a honey-trap fake account.
 - There's so much of this psychological triggering and signposting stuff, I could write a book on it alone.
 - In time, I'll get this section organized and point out to the timeline.
+- I notice I'm duplicating screenshots so there will have to be a bit of a tidy up at some point.
