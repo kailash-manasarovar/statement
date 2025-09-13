@@ -452,7 +452,7 @@ function googleTranslateElementInit() {
 ## Head hunted by ex-Polygon director
 
 - Throughout August I'm looking for a new role.
-- I'm head hunted by a recruitment agency Spectrum Search for a start-up called Torus who had a one-page website promising an upcoming release (the following week they were supposed to be going live). 
+- I'm head hunted by a recruitment agency Spectrum Search for a crypto start-up called Torus who had a one-page website promising an upcoming release (the following week they were supposed to be going live). 
 - The website was `torus.io` which now doesn't even redirect to anything.
 - They sent a [job description](../../content/documents/torus-jd.pdf) which I felt was bogus, and I told the recruiter I thought so.
 - It's possible, if legit, the business ended up here: https://www.torusassociation.org/about-us.html#mission but I do not remember any of these people being part of the interview process and the company activity has completely changed from what was described in the job description.
