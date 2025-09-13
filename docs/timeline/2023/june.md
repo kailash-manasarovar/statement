@@ -637,7 +637,7 @@ function googleTranslateElementInit() {
 
 ### Ana Requena and Julia Lohmann
 
-- I see pictures of strips of hanging seaweed such as that which you can see behind Julia in the photo below.
+- On the `@sinremite` and `@jctot19` accounts, I see pictures of strips of hanging seaweed such as that which you can see behind Julia in the photo below.
 
 ![Julia Lohmann](../../content/images/julia-lohman.jpg)
 
