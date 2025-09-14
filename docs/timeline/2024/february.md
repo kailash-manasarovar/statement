@@ -73,7 +73,7 @@
 ## Domingo's students conspire in chamber music class
 
 - Chamber music class is similarly unpleasant.
-- No-one talks to me (compare this to the year before up to [June 12th 2023](../2023/june.md#monday-12th-june-2023)) when everyone chatted to me in a friendly manner constantly, even if they were information-gathering for Domingo.
+- No-one talks to me (compare this to the year before up to [June 12th 2023](../2023/june.md#monday-12th-june-2023)) when everyone chatted to me in a friendly manner constantly, even if they were just information-gathering for Domingo.
 - Domingo's students, Elvira a minor and Samuel an adult male, are on WhatsApp constantly.
 - The chamber music teacher, Alfonso, seems to be a little frustrated with them, and even mentions it out loud at one point.
 - *You're WhatsApping Domingo again?* he asks in an annoyed manner.
