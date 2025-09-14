@@ -70,19 +70,6 @@
 - I believe the email was interfered with and the QR code removed or made unreadable so that I could not set up the e-SIM.
 - I was starting to find really very simple tasks quite impossible around this time.
 
-## Domingo's students conspire in chamber music class
-
-- Chamber music class is similarly unpleasant.
-- No-one talks to me (compare this to the year before up to [June 12th 2023](../2023/june.md#monday-12th-june-2023)) when everyone chatted to me in a friendly manner constantly, even if they were just information-gathering for Domingo.
-- Domingo's students, Elvira a minor and Samuel an adult male, are on WhatsApp constantly.
-- The chamber music teacher, Alfonso, seems to be a little frustrated with them, and even mentions it out loud at one point.
-- *You're WhatsApping Domingo again?* he asks in an annoyed manner.
-- Alfonso doesn't appear to have a choice on what to study in the classroom if Domingo insists upon overriding him.
-- We're always listening to some piece of music that has a *meaningful* narrative.
-- At one class, we have to listen to a hugely emotive piece with a narrative about about poisoning, Irish witches, and a tragic romance.
-- *It's a bit intense don't you think*, I say.
-- It's all very dull and boring, but apart from Domingo's gang-stalking activities, the class is good and I enjoy it.
-
 ## Another email to the Generalitat (the school board for the region)
 
 - Things are getting worse for me, online and in person.
@@ -177,6 +164,19 @@
 - The Generalitat do not reply.
 
 ## Constant gang stalking at the conservatory
+
+### Domingo's students conspire in chamber music class
+
+- Chamber music class is similarly unpleasant.
+- No-one talks to me (compare this to the year before up to [June 12th 2023](../2023/june.md#monday-12th-june-2023)) when everyone chatted to me in a friendly manner constantly, even if they were just information-gathering for Domingo.
+- Domingo's students, Elvira a minor and Samuel an adult male, are on WhatsApp constantly.
+- The chamber music teacher, Alfonso, seems to be a little frustrated with them, and even mentions it out loud at one point.
+- *You're WhatsApping Domingo again?* he asks in an annoyed manner.
+- Alfonso doesn't appear to have a choice on what to study in the classroom if Domingo insists upon overriding him.
+- We're always listening to some piece of music that has a *meaningful* narrative.
+- At one class, we have to listen to a hugely emotive piece with a narrative about about poisoning, Irish witches, and a tragic romance.
+- *It's a bit intense don't you think*, I say.
+- It's all very dull and boring, but apart from Domingo's gang-stalking activities, the class is good and I enjoy it.
 
 ### Ana and Ana
 
