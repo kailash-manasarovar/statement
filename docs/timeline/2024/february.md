@@ -80,7 +80,7 @@
 - It seems sensible to have some formal documentation on record and so I email the Generalitat Valenciana in Alicante, details given by the [previous brief response I received in January](january.md#january-18th-correspondence-to-the-generalitat):
     - [Another complaint in English](../../content/documents/emails/feb-10-email-to-alicante-en.pdf).
     - [Another complaint in Spanish](../../content/documents/emails/feb-10-email-to-alicante-es.pdf).
-    - [Proof of sending via email](../../content/documents/emails/receipt-of-feb-email.pdf) -> this document includes an extra short email I wrote regarding some of my concerns about Mercedes C Lara, and a screenshot of the [threat of violence](#threats-on-x-increase) which prompts me to go to the police later in the month.
+    - [Proof of sending via email](../../content/documents/emails/receipt-of-feb-email.pdf) -> this document includes an extra short email I wrote regarding some of my concerns about Mercedes C Lara, and a screenshot of the [threat of violence](#the-denia-porn-gang-attempts-to-recruit-me) which prompts me to go to the police later in the month.
 
     !!! tip "My email to the Generalitat"
         Saturday 10 February 2024,</br></br>
@@ -234,7 +234,7 @@
 - We're just carrying on as normal because that's what we do here.
 - It's confusing to me because I still believe the Generalitat are going to help me.
 
-## Threats on X increase
+## The Dénia porn gang attempts to recruit me
 
 - I'm followed by a weird fake account, Mark Moseley, who is just like the other fake accounts that interact with me directly, but decidedly more violent in tone. He seems unhinged.
 - He is, apparently, a homeless drug addict from Portland Oregon but he baits me with information only the people of Dénia would know.

@@ -647,7 +647,7 @@ function googleTranslateElementInit() {
 - Whenever the account interacts with me, it says significant things that make me wonder, and then believe a little (perhaps a flash of the trumpet teacher in close up on my UI to remind my fascia of a sexual encounter I'm not consciously aware of), and then believe more and more, that I am interacting with the trumpet teacher himself.
 - We end up [DM'ing in December 2023](december.md#chat-with-the-american-matthew) significantly.
 - Later on, I take a closer look at some of the posts this account retweets and I note *extremely enticing*, honey-trap-type content coming from (apparent) women.
-- In retrospect, it reminds me of the [job offer doing the same](../2024/february.md#threats-on-x-increase) that I go to the police about.
+- In retrospect, it reminds me of the [job offer doing the same](../2024/february.md#the-denia-porn-gang-attempts-to-recruit-me) that I go to the police about.
 - Reviewing these interactions, particularly the one from the end of November, makes me shudder and shudder again.
 
 [![Nervous sweaty elephant first pic](../../content/tweets/august-comms/matthew/nervous-sweaty-elephant-first.png)](https://x.com/Matthew49200183/status/1729879649063416246)
