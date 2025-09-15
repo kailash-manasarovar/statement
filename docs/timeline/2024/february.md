@@ -426,7 +426,7 @@
 
 ![Account still live and posting just a few days ago](../../content/images/threats/threat-of-violence-ac-open-a-few-days-back.png)
 
-- When I got around to drafting this section, the account had been deleted.
+- When I got around to drafting this section, just days later, the account had been deleted.
 - I consider that to demonstrate how the porn-gang hackers were/are monitoring everything I do in real-time.
 - Going back to the original threat, I consider the threat to be credible and to mean that someone may throw acid on my face. 
 - I send a copy of the threat to the Alicante directorate too, asking them if they will now do something.
