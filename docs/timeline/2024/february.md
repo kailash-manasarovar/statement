@@ -418,7 +418,7 @@
 
 ![Threat of violence from Mark Mosely account](../../content/images/threats/threat-2.png)
 
-- I see some other threats which are unsettling, including the replies from other fake quick-spin-up accounts the following morning before I go to the police. An example:
+- I see some other threats which are unsettling, including replies from fake quick-spin-up accounts the following morning before I go to the police. An example:
 
 ![Threat of violence from Mark Mosely account](../../content/images/threats/threats-around-threats.png)
 
