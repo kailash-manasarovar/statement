@@ -234,7 +234,7 @@
 - We're just carrying on as normal because that's what we do here.
 - It's confusing to me because I still believe the Generalitat are going to help me.
 
-## The Dénia online porn-gang attempts to recruit me
+## The Dénia porn-gang attempts to recruit me
 
 - I'm followed by a weird fake account, Mark Moseley [`@markmoseley072`](https://x.com/markmoseley072), who is just like the other fake accounts that interact with me directly, but decidedly more violent in tone. 
 - He seems unhinged.
