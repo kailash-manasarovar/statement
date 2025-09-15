@@ -86,6 +86,8 @@ function googleTranslateElementInit() {
 - Salva mentions "going away for the weekend with your boyfriend" nearly every class after that.
 - The class after I posted this tweet, a student comes up to me as I enter the choir classroom, and asks me grinning, "Are you going away for the weekend?"
 - The girl (Elsa Martí García) is a piano student of Domingo. I suspect she's following his instructions.
+- Samuel once described Elsa as "the elegant one" of all the young women in choir when he was trying to explain who he was talking about.
+- I believe she was (maybe still is) in danger for years and no-one cares, and most significantly not the police in Dénia and Madrid.
 - Her picture was posted on a fake account I received during continued cyber-stalking in 2024.
 
 ![Choir student](../../content/images/fake-accounts/choir-student.png)
