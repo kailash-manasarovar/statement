@@ -236,64 +236,217 @@
 
 ## The Dénia porn gang attempts to recruit me
 
-- I'm followed by a weird fake account, Mark Moseley, who is just like the other fake accounts that interact with me directly, but decidedly more violent in tone. He seems unhinged.
+- I'm followed by a weird fake account, Mark Moseley [`@markmoseley072`](https://x.com/markmoseley072), who is just like the other fake accounts that interact with me directly, but decidedly more violent in tone. 
+- He seems unhinged.
+- Here are [my tweets to him that lead up to us DM'ing](https://x.com/search?q=(from%3A1frgvn)%20(%40markmoseley072)&f=live&src=typed_query). 
+- All his tweets to me have been deleted.
 - He is, apparently, a homeless drug addict from Portland Oregon but he baits me with information only the people of Dénia would know.
-- This goes on for a few weeks. I, again, think it is the trumpet teacher or someone related to him. He gives many details of things only he or his associates could know.
-- I tell him I don't believe who he says he is. He posts an identification document for Mark Moseley from Portland Oregon.
-- I guess now that it's another delegate, hacked, or stolen account.
-- He tells me how he prayed incessantly for something, help, and I came along. It seemed reasonable to me, still does.
-- He asks me would I die for him. I do not respond. He says he would die for me. 
-- In a DM, he tries to recruit me to his honey trap organization. This is on February 19th.
+- For a few days or maybe a week or so running up to the 19th February, I see his irrelevant and sporadic posts on my timeline, at the top; posts that suggest he is enduring a romantic obsession.
+- I empathize; and I think it could be the trumpet teacher, or someone close to him. 
+- He gives many details of things only he, the Canos, or their associates could know.
+- To be honest, I'm so desperate to communicate with the trumpet teacher, I believe everyone I interact with online could be him.
+- I'm aware, also, that even if these people are not the trumpet teacher, something I'm pretty sure is the case, the trumpet teacher will see all my attempts at communication anyways.
+- (That was really my state of mind, and my approach to the online abuse the whole time.)
+- I tell him I don't believe he is who he says he is. 
+- He posts an identification document for Mark Moseley from Portland Oregon, in exactly the same way other accounts have done; for example [`@lucyinbetween`](https://x.com/lucyinbetween).
+- I guess now that the account was another delegate, hacked, or stolen account.
+- It concerns me these people have copies of apparently genuine identity documents.
+- He tells me how he had prayed incessantly for something, for help, and I came along. 
+- It seemed reasonable to me, still does.
+- He asks me would I die for him. I do not respond.
+- He says he would die for me. 
+- In a DM, he tries to recruit me to his honey trap organization.
 - I refuse in no uncertain terms.
-- I have a copy of [the whole DM here](../../content/images/threats/mark-moseley-mail-in-full.pdf).
-- Joe Biden's worst nightmare is Trump, of course. The *trump*et teacher has always used trump as a trigger or signpost for me.
-- At the end of this chat, when I refuse to sign up to whatever he wants me to do - he'd said using fake accounts to find lonely men looking for love, or something like this - he threatens me with violence.
-- His message says: "I hope you find an excellent plastic surgeon for your face."
+- He gets annoyed and threatens me with violence.
+- There's a copy of [the whole DM here](../../content/images/threats/mark-moseley-mail-in-full.pdf).
+- "We can end this. So let's end this k?", he says, and I take it to mean he is suggesting that we can end the vile and vicious prolonged psychological torment (and sexual abuse I'm unaware of) that has been going on since I moved back in February 2022 at the hands of the Cano family.
 
-![Threat of violence from Mark Mosely account](../../content/images/threats/threat-1.png)
+!!! tip "Mark Moseley's full DM"
+    Brains Rewired Here  (Parody)</br>
+    @markmoseley072</br>
+    Welcome to High School 2.0 as we all find our clique.</br>
+    Joined February 2024</br>
+    </br>
+    5 Followers</br>
+    Hi.</br>
+    We can end this. So let's end this k?</br>
+    Feb 19, 2024, 9:20 PM</br>
+    You accepted the request</br>
+    yes, how?</br>
+    what do you want?</br>
+    Feb 19, 2024, 9:28 PM</br>
+    I want my 21-year-old daughter to not be terrified at the idea of bringing 
+    a new human being into this world.</br>
+    Feb 19, 2024, 9:29 PM</br>
+    why is she terrified?</br>
+    Feb 19, 2024, 9:30 PM</br>
+    Politics</br>
+    Feb 19, 2024, 9:30 PM</br>
+    how is this relevant?</br>
+    Feb 19, 2024, 9:30 PM</br>
+    Let's start over. You play my side and I'll play yours. Okay?</br>
+    Feb 19, 2024, 9:31 PM</br>
+    who are you?</br>
+
+    ![ID](../../content/tweets/february-2024/mark-moseley-id.png)
+    
+    I'm Joe Biden's worst nightmare</br>
+    Feb 19, 2024, 9:32 PM</br>
+    this is not helpful</br>
+    look I know I'm easy to wind up and its a laugh an' all, I can't believe you 
+    would put so much effort into it though, I'm not that amusing am I?
+    that's the only way you got into my laptop etc ... cos I'm just not that 
+    interesting .. .</br>
+    look, also, I know everything and I don't really care</br>
+    Feb 19, 2024, 9:34 PM</br>
+    I only care about the safety of kids , that's it
+    that's the hill I'll die on</br>
+    Feb 19, 2024, 9:34 PM</br>
+    Then let's die on that hill together</br>
+    Feb 19, 2024, 9:35 PM</br>
+    who are you?</br>
+
+    ![Birth certificate](../../content/tweets/february-2024/mark-moseley-birth-certificate.png)
+
+    Feb 19, 2024, 9:35 PM</br>
+    JC talks about something in ACIM about relationships and there being 
+    holy relationships</br>
+    Feb 19, 2024, 9:36 PM</br>
+    I never knew what it meant, and I still don't but ... there are signs yah </br>
+    yah</br>
+    they're not easy, in fact they turn the world totally upside down ...</br>
+    Feb 19, 2024, 9:37 PM</br>
+    Holy relationships have God in the middle all of the time, as measured 
+    by both humans believing that</br>
+    Feb 19, 2024, 9:37 PM
+    it's a relationship with God yes</br>
+    God in the other person, you recognise God in the other person
+    when you find something like that , you can be Creative in the truest 
+    sense</br>
+    Feb 19, 2024, 9:38 PM</br>
+    Three-way human relationships tend to be VERY unstable</br>
+    Feb 19, 2024, 9:38 PM</br>
+    that's what JC told me ...</br>
+    yes, we enter the ark 2-by-2</br>
+    Feb 19, 2024, 9:38 PM</br>
+    Evolution fixes that with inserting perfection as the third "person" 
+    ideologically speakinh</br>
+    Feb 19, 2024, 9:39 PM</br>
+    that's you then ay?</br>
+    Feb 19, 2024, 9:39 PM</br>
+    so what do you/he want?</br>
+    Feb 19, 2024, 9:40 PM</br>
+    I want what you want. Safe kids</br>
+    Feb 19, 2024, 9:40 PM</br>
+    I mean sure, we can save the world, that's the project ... but practically, 
+    now, in this business, are we ending this, or what?</br>
+    Feb 19, 2024, 9:40 PM</br>
+    Dating service. You find single women. I find kind single men; probably 
+    nice men who get tongue-tied around women. We match them up.</br>
+    Feb 19, 2024, 9:42 PM</br>
+    I don't need photos. I need only what each woman is looking for.</br>
+    Feb 19, 2024, 9:44 PM</br>
+    well, there's a single woman here, should I ask her?</br>
+    Feb 19, 2024, 9:44 PM</br>
+    Yes. She wants someone she trusts. What else?</br>
+    Feb 19, 2024, 9:44 PM</br>
+    I have not been looking for a man since 2010. All those things, I can 
+    hardly remember what they are anymore. I know how I felt. I want that. It 
+    was not just sex.</br>
+    I wasn't even in 2010, someone found me, that's usually been the way 
+    with me.</br>
+    I had no boundaries so men easily have pushed their way into my life.</br>
+    Feb 19, 2024, 9:47 PM</br>
+    Understood. I mis-communicated.</br>
+    Feb 19, 2024, 9:47 PM</br>
+    I only had one other genuine relationship in my life and only because I 
+    drank at that time and had false confidence. But it was beautiful.</br>
+    Feb 19, 2024, 9:47 PM</br>
+    Your task is to find single women who are interested in meeting kind shy 
+    men.</br>
+    Feb 19, 2024, 9:47 PM</br>
+    I found one right here.</br>
+    See I said one other ... amazing</br>
+    Feb 19, 2024, 9:48 PM</br>
+    I found one right here.</br>
+    Ask her something interesting on this topic then.</br>
+    Feb 19, 2024, 9:49 PM</br>
+    it's me dude</br>
+    Feb 19, 2024, 9:49 PM</br>
+    Oooooooooh</br>
+    Oh. Okay. Can we do a "proof on concept" first? To refine our methods?</br>
+    Feb 19, 2024, 9:50 PM</br>
+    how so?</br>
+    Feb 19, 2024, 9:51 PM</br>
+    You find a single woman who is not you, who wants to meet kind shy 
+    men.</br>
+    Feb 19, 2024, 9:51 PM</br>
+    why would I do that?</br>
+    Feb 19, 2024, 9:52 PM</br>
+    I'll do the same, but with men. Then, if we match them up well, then 
+    philosophically speaking you and I will necessarily have the opportunity 
+    to meet at their wedding.</br>
+    Feb 19, 2024, 9:53 PM</br>
+    why the f**keries bruv?</br>
+    Feb 19, 2024, 9:53 PM</br>
+    It'll be fun. I promise.</br>
+    You can start with fake profiles!</br>
+    Feb 19, 2024, 9:54 PM</br>
+    noooo, I'm not doing that, I've no time for the bs
+    honestly</br>
+    Then I have no time for you. You don't trust me. I'm sad  </br>
+    Feb 19, 2024, 9:55 PM</br>
+    ok</br>
+    Feb 19, 2024, 9:56 PM</br>
+    I hope you find an excellent plastic surgeon for your face. I'll pray for 
+    that.</br>
+    Feb 19, 2024, 9:56 PM</br>
+
+- Joe Biden's worst nightmare is Trump, of course. The *trump*et teacher meme always used trump as a trigger or signpost.
+- At the end of this chat, when I refuse to sign up to whatever they want me to do, he threatens me with violence.
+- His message says: "I hope you find an excellent plastic surgeon for your face."
+- I believe this to be a direct threat of violence towards me; possibly an acid attack in the town.
+
 ![Threat of violence from Mark Mosely account](../../content/images/threats/mark-mosely-tweet.png)
 
-- He says something else threatening about me which I didn't save at the time.
-- Here's the thread aftermath when I asked my X friends what they thought: https://x.com/1FRGVN/status/1759685644278723021.
+- I'm scared so I post the threat to my X friends and ask them what they think.
 
 ![What do you think I should do](../../content/tweets/what-do-you-think-i-should-do.png)
 
-- At the time of writing, Sunday 24th November 2024, the account has been deleted and so I am unable to see his past messages live on Twitter.
+- You can see some of their replies here: https://x.com/1FRGVN/status/1759685644278723021.
+- At the time of writing, Sunday 24th November 2024, the account is deleted (now suspended) and so I am unable to see any past messages I didn't screenshot.
 
 ![Threat of violence from Mark Mosely account](../../content/images/threats/threat-2.png)
 
-- And there are some other threats around this from other accounts which are unsettling. An example:
+- I see some other threats which are unsettling, including the replies from other fake quick-spin-up accounts the following morning before I go to the police. An example:
 
 ![Threat of violence from Mark Mosely account](../../content/images/threats/threats-around-threats.png)
 
-- Interestingly, it is only a few days previous to drafting this section up, Wednesday 20th November 2024, that I checked this account and it was still live and posting.
+- Interestingly, only a few days prior to drafting this section up, on Wednesday 20th November 2024 in Bangkok, I checked this account and it was still live and posting.
 
 ![Account still live and posting just a few days ago](../../content/images/threats/threat-of-violence-ac-open-a-few-days-back.png)
 
-- I consider that to demonstrate how hackers are still monitoring everything I do online in more-or-less real time.
-- Going back to the original threat, I consider the threat to be credible and to mean that someone may throw acid on my face.
-- A lot of my Twitter pals suggest reporting to the police: https://x.com/1FRGVN/status/1759685644278723021.
-- He has deleted the account now.
-
-!!! danger "Hackers still active - November 2024"
-    - My movements are still being tracked and I'm still being hacked extensively.
-    - I believe they deleted the Mark Moseley account at exactly the time I plan to be writing about it.
-    - It is highly likely they are reading this statement while I write it.
-
-- Perhaps any deleted accounts or messages are salvageable in Twitter caches.
-- I sent a copy of the threat to the Alicante directorate too, asking them if they would do something now.
+- When I got around to drafting this section, the account had been deleted.
+- I consider that to demonstrate how the porn-gang hackers were/are monitoring everything I do in real-time.
+- Going back to the original threat, I consider the threat to be credible and to mean that someone may throw acid on my face. 
+- I send a copy of the threat to the Alicante directorate too, asking them if they will now do something.
 
 ![Threat of violence on Twitter](../../content/images/threats/threat-of-violence-twitter.png)
 
-- There was, of course, no reply.
+- There was, of course, no reply from the Generalitat.
 - I am starting to get seriously stressed and anxious now. And I'm scared too. 
-- I call 112. I'm told to go to report the matter in person to the police.
+- I call 112.
+- I'm told I have to go to report the matter in person to the police.
+- I decide, very reluctantly and with a heavy heart, to go to the police the following morning.
 
 ## Documenting my conscious awareness on X
 
+- It's the same evening after I've been threatened.
+- I'm scared.
+- I've just got off the phone to the police.
 - The constant abuse is exhausting and I'm really upset at how I'm being treated by the people at conservatory.
-- I start to write my story.
-- I publish it on Twitter highlights.
+- I start to write my story down on Twitter for evidential purposes.
+- I publish everything and add my tweets to Twitter highlights.
 - Everything I have put in highlights relates to the conservatory gang stalking: https://x.com/1FRGVN/highlights.
 
 ### The story published in highlights
