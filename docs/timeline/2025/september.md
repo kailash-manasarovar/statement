@@ -11,7 +11,7 @@
 - I never stopped having an extremely good feeling about this man.
 - I only have four solid memories of him where I'm not confusing him with someone else:
 
-    - The time we sat together in class and [I believed he was fundamentally on my side and conspiring with me against Domingo](../2023/february.md#plot-awareness). My words on that evening upset him; he understood what I was doing and I know the way I changed the conspiracy around felt right to him.
+    - The time we sat together in class and [I believed he was fundamentally on my side and conspiring with me against Domingo](../2023/february.md#plot-awareness). My words on that evening upset him; he understood what I was doing and I know the way I rewrote the nature of the conspiracy felt right to him.
     - The time not long after when I remember waking up in my bed at home and he was [crying in my arms](../2023/march.md#dreaming-of-the-trumpet-teacher).
     - There was another time I saw him in class for a minute or two, and I was delighted to see him again - now I understand it was unexpectedly - and I smiled and he ignored me, looking sad and downwards, and not looking at me as I said goodbye for the evening.
     - Then, when the attraction-trick stopped working so well, I guess, and they decided to [wheel him out again](../2023/december.md#the-trumpet-teacher-has-a-brother) so I could be re-triggered, and I thought it was his twin brother!
@@ -38,10 +38,10 @@
     - He was the man involved in [poisoning me by overdose](../2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice.
     - He was the man who brought the music sheets from Gloria and [handed me his phone](../2023/march.md#the-trumpet-teacher-hands-me-his-phone).
     - The man who [was angry at me](../2023/april.md#back-in-chamber-music-class) after I followed the `@jctot19` account.
-    - The man who switched with [](#) right at the end of the [May 2023 concert](../2023/may.md#chamber-music-concert).
+    - The man who switched with [the other large man](#an-unknown-man-i-may-have-a-picture-of) right at the end of the [May 2023 concert](../2023/may.md#chamber-music-concert).
     - The man who led my *funeral* on [12th June 2023](../2023/june.md#monday-12th-june-2023).
 
-- I don't have a picture of this man.
+- I don't have a picture of this man but would recognize him immediately.
 
 ### An unknown man I may have a picture of
 
@@ -49,7 +49,7 @@
 - He was the man who organized and managed the [chamber music concert](../2023/may.md#chamber-music-concert) where Carmen Cano was in the audience (masquerading or not) as Pablo's mum.
 - He had a soft pleasant voice and he was the man who left any messages on my phone.
 - He was the man I spoke to who [mentioned a double session in a perverted way](../2023/may.md#teb-with-robin) the night before I saw possible evidence of being anally raped.
-- He did look like an older version of the young man in the middle this picture with his arms around two siblings (I assume).
+- He did look like an older version of the young man in the middle of this picture with his arms around two siblings (I assume).
 
 ![Vigas](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
 
@@ -67,27 +67,30 @@
 
 ## Sedated training for recognizing faces
 
-- The question is, of course, how did I manage to mistake four separate people for the same person?
+- The question is, of course, how did I manage to mistake four separate men for a single person?
 - I was living alone and had no social life.
 - I was being drugged continually with substances that blurred my vision and made my thoughts extremely unclear.
 - I was being sedated and likely sexually assaulted, except … 
-- Is it possible that the four of them just stared at me while I was sedated and my eyes were open so I would recognize their faces?
-- If they had assaulted me I would have found them frightening in real life, and I didn’t although they gave me a bad feeling that made me anxious and recoil… apart from the first older man who was different somehow because we were in each others heads and we liked it there…
+- Is it possible that the four of them treated me very nicely while I was sedated at home, with the intention of sexual abuse happening later on.
+- Could part of the mind training and manipulation (rehearsals, he called it at class) included staring at me full in the face while I was sedated and my eyes were open, and looking at them, so I would recognize their faces in real life?
+- If they had assaulted me I would have found them frightening in real life, and I didn’t, although they gave me a bad feeling that made me anxious and recoil… apart from the first older man who I never stopped having an extremely good feeling about.
 
-## The Truwoman Show or Turn My Wife into a Porn Star
+## The Truwoman Show or Please Turn My Wife into a Porn Star
 
 - I’m guessing this is a porn genre and many millions of men and porn addicts internationally know about it, particularly in Spain.
 - A great deal of police will be subscribing to this sort of thing.
-- They will live stream it most likely.
-- Women like schrondigner gata and the sports woman are targets requested by the paying viewers.
-- It must be total common knowledge across the world and that’s why all my complaints are ignored.
-- Theyve certainly evolved over the years from targeting wealthy women to setting up a kind of Truwoman Show … just another sick way men have found to delight and get boners at the destruction of women.
+- They will live stream the trick most likely.
+- The trick probably includes live-streamed gang-rape eventually in which the target is not sedated and recognizes all the men that have been *training* her.
+- Perhaps this has killed women outright with the shock.
+- Women like schrondigner gata (Rocio Vidal) and the sports woman will be viable targets requested by paying viewers.
+- It must be common knowledge across the world, and that’s fundamentally why all my complaints are ignored.
+- The sick perverts have certainly evolved over the years from targeting wealthy women to setting up a kind of Truwoman Show … just another sick way men have found to delight and get boners at the destruction of women.
 
 ### Is this why the McCann case continues to falter?
 
 - The sedating MO is exactly like the McCann case.
-- Could this be why the case stalled so badly and they're trying to pin an extremely professional kidnap job onto an obvious opportunist?
-- You only have to look up spy cam porn online to see millions of people unaware they’re being filmed.
+- Could this be why the case stalled so badly in the beginning, and why they're trying to pin an extremely professional kidnap job onto an obvious opportunist?
+- You only have to look up spy cam porn online to see millions of people unaware they’re being filmed and my guess is a lot of this is coming from Spain and Portugal.
 
 ### Sedating porn is normal now
 
@@ -95,19 +98,21 @@
 - I guess the paying viewers feel like they've not quite done child or baby rape but at least they're still getting a sexual hit off something equally abhorrent towards women and girls.
 - I wonder if the audiences can request their wives or girlfriends, or colleagues, are targeted .. and whether this is what happened to Mrs Lara, and Lorraine found out somehow… and reported… and was ignored... and was targeted online and manipulated into killing herself.
 - Was Mike W was manipulated into everything he did too?
+- Is this the backdrop to many of my professional experiences?
 
 ## My role
 
 - And running through all this evil and vileness is my journey through it.
-- I must have been judged another “silly little girl” ready for targeting.
-- They must have thought me an easy target with no friends or family, completely isolated, and yet something was going on that no one could have imagined and, once the trap was set, there was no escape, and even as the bear teeth tightened down on the conspiring fools, they still had so little respect for women they didn’t see it coming.
+- I must have been judged just another “silly little girl”, ready for targeting.
+- When they found out I was already a child rape victim, with the films to prove it, they must have thought me non-human and from there found it very easy to justify my murder.
+- They must have thought me an easy target with no friends or family, completely isolated, and yet something was going on that no one could have imagined and, once the divine trap was set - set in motion decades before - there was no escape, and even as the bear teeth tightened down on the conspiring fools, they still had so little respect for women and girls they didn’t see it coming the second before it hit.
 - Miracles.
 
 ## Future optimisms 
 
-- It looks like they might investigate my original grooming gang case from 1989.
+- The Rape Gang Inquiry has suggested that the police might now re-investigate my original grooming rape gang case from 1989.
 - Except, now, they cannot investigate those crimes without casting an eye on the decades long conspiracy against me.
-- How exciting.
-- Some amazing investigatory team will be winning official awards for their career-case work ensnaring the nastiest, vilest, pedo porn gang, serial killing international networked community of perverts and homicidal maniacs the world has ever known.
+- How exciting!
+- Some amazing investigatory team will be winning official awards for their career-case work ensnaring the nastiest, vilest, pedo-porn gang and serial killing international networked community of perverts and homicidal maniacs the world has ever known.
 - May it be very very soon.
 - And I myself will buy them all a non-toxic pint.
