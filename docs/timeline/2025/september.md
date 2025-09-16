@@ -34,6 +34,7 @@
 - I remember seeing this man numerous times, including but not limited to the following examples:
 
     - He was the man [Patricia Penny *introduced* me to in Benijembla](../2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class.
+    - He was the man that [stalked me at Lourdes](../2021/july.md#the-portuguese-man-next-door).
     - At the first class in [November 2022](../2022/november.md#the-trumpet-teacher) there he was hovering over Ana after timing a meeting at the toilet.
     - He was the man involved in [poisoning me by overdose](../2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice.
     - He was the man who brought the music sheets from Gloria and [handed me his phone](../2023/march.md#the-trumpet-teacher-hands-me-his-phone).
