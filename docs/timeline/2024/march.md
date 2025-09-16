@@ -370,6 +370,12 @@
 - The following morning I am severely anxious. I'm bumping my head on things. I have to go to town. I am terrorized the whole way in and out. I feel horrendous.
 - I believe I was on serious drugs and poison at this point that they were putting in the water.
 
+### Spider man
+
+- I'm heading back to my apartment.
+- A man dressed as spider man is limping towards me.
+- I recognize him.
+
 ### Devastated parents 
 
 - Nevertheless, I set off for the conservatory.
