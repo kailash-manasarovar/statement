@@ -69,6 +69,7 @@
 ![The deep-set man](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
 
 - Although I did think I saw the grown-up version of this person on the beach on [6th October 2024](../2024/october.md#sunday-6th-october) and have a body cam image too.
+- Perhaps they're related.
 
 ## Sedated training for recognizing faces
 
