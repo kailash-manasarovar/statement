@@ -138,6 +138,7 @@
     - Two security cameras: There was no storage card in one of the webcams so he could not check anything here. I don't know what happened to the card.
 - When I go to collect my devices, I pay 150 euros and he says he can check all my Twitter activity instead, so I give him both my account details and send Twitter archives too.
 - I have never heard back from him on any of it.
+- The same day a man has been removed from political office in Toledo after spy cam porn was released of him. I find this very similar to what's going on for me and say it's epidemic to the lawyer. He basically tells me to be quiet.
 
 ## I get an Orange SIM
 
