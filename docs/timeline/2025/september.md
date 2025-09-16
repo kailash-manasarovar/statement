@@ -72,7 +72,7 @@
 - I was being drugged continually with substances that blurred my vision and made my thoughts extremely unclear.
 - I was being sedated and likely sexually assaulted, except … 
 - Is it possible that the four of them treated me very nicely, sweetly, intimately but non-sexually, while I was sedated at home, with the intention of sexual abuse happening later on, possibly after my planned department from the conservatory studies in June 2023?
-- Could part of the mind training and manipulation (rehearsals, he called it at class) have included staring at me full in the face while I was sedated and my eyes were open, and looking at them, so I would recognize their faces in real life?
+- Could part of the mind training and manipulation (rehearsals, he called it at class) have included staring at me full in the face while I was sedated and my eyes were open, and I was looking straight at them so I would recognize their faces in real life?
 - If they had assaulted me I would have found them frightening in real life, and I didn’t, although they gave me a bad feeling that made me anxious and recoil… apart from the first older man who I never stopped having an extremely good feeling about.
 
 ## The Truwoman Show or Please Turn My Wife into a Porn Star
