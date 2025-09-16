@@ -441,22 +441,22 @@
 
 ## Documenting my conscious awareness on X
 
-- It's the same evening after I've been threatened.
+- It's the same evening. 
 - I'm scared.
 - I've just got off the phone to the police.
-- The constant abuse is exhausting and I'm really upset at how I'm being treated by the people at conservatory.
-- I start to write my story down on Twitter for evidential purposes.
-- I publish everything and add my tweets to Twitter highlights.
-- Everything I have put in highlights relates to the conservatory gang stalking: https://x.com/1FRGVN/highlights.
+- The constant abuse is exhausting.
+- Everything that is happening to me is related to how I'm being treated by teachers and staff, and some students, at the conservatory.
+- I publish my story on X for evidential purposes and add the posts to my highlights.
+- Everything in highlights relates to the conservatory gang stalking: https://x.com/1FRGVN/highlights.
+- In retrospect, this is such an interesting documentation exercise because it shows how much I was aware of at the time, which is very little really.
+- I have made assumptions on what is happening to me based on what I consciously know and remember.
+- The more hideous sedated sex crimes, constant spy-cam voyeurism, and live-streaming - which everyone in the town must know about - I'm unaware of at this time.
+- Indeed, in retrospect, the full story of what has been happening to me at the hands of Domingo Cano and his family and associates rather explains the psychopathy of teachers and staff at the conservatory, which was inexplicable to me at the time.
+- Of course, teachers and staff involved in gang-stalking women and children for decades would be extremely keen to destroy me.
+- Moreover, when normal people aren't able to do anything about the evil around them without getting murdered themselves, madness is safety (see, for example, Nazi Germany) although not an excuse.
 
 ### The story published in highlights
 
-- This is such an interesting documentation exercise because it shows how much I was aware of at this time, which is very little really.
-- I have made assumptions on what is happening to me based on what I consciously know about it.
-- The more hideous sex crimes, constant voyeurism, and live-streaming, which everyone else must know about, I'm unaware of at this time.
-- Indeed, in retrospect, the full story of what has been happening to me at the hands of Domingo Cano and his family and associates, rather explains the psychopathy of teachers and staff at the conservatory, which was inexplicable to me at the time.
-- Of course, teachers and staff involved in gang-stalking women and children for decades would be extremely keen to destroy me.
-- Moreover, when normal people aren't able to do anything about the evil around them without getting murdered themselves, madness is safety (see, for example, Nazi Germany).
 - Let's have a closer look at what I knew in February 2024.
 
 - Part one - collecting my thoughts (the story): https://x.com/1FRGVN/status/1759737292472627532
