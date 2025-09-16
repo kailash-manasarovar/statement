@@ -16,10 +16,11 @@
     - There was another time I saw him in class for a minute or two, and I was delighted to see him again - now I understand it was unexpectedly - and I smiled and he ignored me, looking sad and downwards, and not looking at me as I said goodbye for the evening.
     - Then, when the attraction-trick stopped working so well, I guess, and they decided to [wheel him out again](../2023/december.md#the-trumpet-teacher-has-a-brother) so I could be re-triggered, and I thought it was his twin brother!
 
-- This is the man I was convinced I loved and who loved me back. (I think this is a fairly old picture.)
+- This is the man I was convinced I loved and who loved me back. 
 
     ![The real trumpet teacher](../../content/images/hornero/hh1.png)
 
+- This is an old picture, the man is about 10 years older now. However, this younger picture demonstrates the likeness between him and the [next bloke I mention](#mark-from-english-class-in-2013) who must be related somehow.
 - I wonder if the gypsies made sure that one of the men would be someone I was strongly attracted to in order for the trick to work?
 - Did they examine our astrological charts or consult a witch?
 - It would not surprise me.
