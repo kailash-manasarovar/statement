@@ -452,7 +452,7 @@
 - I have made assumptions on what is happening to me based on what I consciously know and remember.
 - The more hideous sedated sex crimes, constant spy-cam voyeurism, and live-streaming - which everyone in the town must know about - I'm unaware of at this time.
 - Indeed, in retrospect, the full story of what has been happening to me at the hands of Domingo Cano and his family and associates rather explains the psychopathy of teachers and staff at the conservatory, which was inexplicable to me at the time.
-- Of course, teachers and staff involved in gang-stalking women and children for decades would be extremely keen to destroy me.
+- Of course, teachers and staff involved in gang-stalking women and children for decades would be extremely keen to shut me up.
 - Moreover, when normal people aren't able to do anything about the evil around them without getting murdered themselves, madness is safety (see, for example, Nazi Germany) although not an excuse.
 
 ### The story published in highlights
