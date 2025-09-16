@@ -411,6 +411,8 @@
 ### Madrid
 
 - In fear, I leave Dénia to go to Madrid and I stay from 14th-24th March at the AC Hotel Atocha by Marriot.
+- I'm so stressed I bang my head really hard on the car boot.
+- As I'm driving out of Denia, the blond woman I saw with the Russian men limps across the road in front of me.
 
 !!! important
     - My hotel costs run into the thousands but I feel I have no choice.
