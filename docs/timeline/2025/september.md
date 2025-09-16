@@ -64,6 +64,11 @@
 - He was the man I saw in the banged up Peugeot on the 11th June 2023, [the day before my *funeral*](../2023/june.md#sunday-11th-june) and [driving past me at the beach with the doctor in the passenger seat](../2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me), and [driving the blue car slowly past me](../2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car).
 - He was also reminiscent of [Patricia Penny's husband](../2021/december.md#christmas) and the [man who came out to terrorize me on Halloween](../2023/october.md#halloween) but not exactly the same - those two men could well be the same man.
 - I don't have a picture of this man but he will be very well known in Denia.
+- Unless, of course, this is him as a young man:
+
+![The deep-set man](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
+
+- Although I did think I saw the grown-up version of this person on the beach on [6th October 2024](../2024/october.md#sunday-6th-october) and have a body cam image too.
 
 ## Sedated training for recognizing faces
 
