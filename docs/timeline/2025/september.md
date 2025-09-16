@@ -20,7 +20,7 @@
 
     ![The real trumpet teacher](../../content/images/hornero/hh1.png)
 
-- I wonder if the gypsies made sure that one of them would be someone I was strongly attracted to in order for the trick to work?
+- I wonder if the gypsies made sure that one of the men would be someone I was strongly attracted to in order for the trick to work?
 - Did they examine our astrological charts or consult a witch?
 - It would not surprise me.
 - Regardless, the fact is that without these extremely good feelings I had for this man, and still do, and these short moments in time, we probably wouldn't be where we are today which is becoming something rather marvelous in my view.
