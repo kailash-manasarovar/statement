@@ -103,7 +103,7 @@
 ![Truman Show](../../content/tweets/truman.png)
 
 - I’m guessing this is a porn genre and many millions of men and porn addicts internationally know about it, particularly in Spain.
-- A great deal of police will be subscribing to this sort of thing.
+- A great deal of police will be subscribers.
 - They will live stream the whole thing most likely, as a kind of porn-reality show.
 - The series probably includes a live-streamed gang-rape as  grander-grand finale in which the target is not sedated and recognizes all the men that have been *training* her.
 - They must charge exorbitant fees for this.
