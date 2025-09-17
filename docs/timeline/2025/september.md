@@ -123,9 +123,10 @@
 
 - We were all horrified at the Gisele Pelicot case; but perhaps this is considered completely acceptable by pornographers and billions of porn viewers.
 - I guess the paying viewers feel like they've not quite reached the vileness of child or baby rape but at least they're still getting a sexual hit off something equally abhorrent towards women and girls.
-- I wonder if the audiences can request their wives or girlfriends, or colleagues, are targeted .. and whether this is what happened to Mrs Lara, and Lorraine found out somehow… and reported… and was ignored... and was targeted online and manipulated into killing herself.
-- Was Mike W was manipulated into everything he did too?
-- Is this the backdrop to many of my professional experiences?
+- I wonder if the audiences can request the gangs target their wives or girlfriends, or colleagues maybe, a sort of evolved *reader's-wives*.
+- Is this what happened to [Mrs Lara](../../evidence/maybes.md#alice-lara), and Lorraine found out somehow… and reported… and was ignored... and was then targeted online and manipulated into killing herself?
+- Was Mike Wenham manipulated into everything he did too? If so, for what purpose.
+- Is this the backdrop to many of my professional experiences, especially [Polygon](../2023/november.md#polygon)?
 
 ## My role
 
