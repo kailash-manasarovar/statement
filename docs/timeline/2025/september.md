@@ -29,7 +29,7 @@
 ### Mark from English class in 2013
 
 - This man certainly reminded me of Mark from English class in 2013.
-- He was the larger, taller, darker, more lumbering man that looked enough like the [older, slimmer man](#the-older-slimmer-greyer-man) for me to mistake them after what I assume was some sort of [sedated mistaking people training](#sedated-training-for-recognizing-faces).
+- He was the larger, taller, darker, more lumbering man that looked enough like the [older, slimmer man](#the-older-slimmer-greyer-man) for me to mistake them after what I assume had been some sort of [sedated psychological mistaking-people training](#sedated-training-for-recognizing-faces).
 - He was someone I had [found attractive when I met him in 2013](../early-years/2008.md#working-for-lorraine-blackbourn) in my English class when I worked for Lorraine Blackbourn.
 - It's likely this man is related to Lorraine Blackbourn's ex-husband and indeed was of the same size and shape, and facial features.
 - He was the man I saw most often at the conservatory, and I was always anxious around him.
