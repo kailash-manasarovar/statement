@@ -133,13 +133,13 @@
 - And running through all this evil and vileness is my journey through it.
 - I must have been judged just another *silly little girl*, ready for targeting.
 - When they found out I was already a child rape victim, with the films to prove it, they must have thought me non-human and from there it was very easy for everyone to justify my assured demise.
-- They must have thought me an easy target with no friends or family, completely isolated, and yet something was going on that no one could have imagined and, once the divine trap was set - set in motion decades before - there was no escape, and even as the bear teeth tightened down on the conspiring fools, they still had so little respect for women and girls they didn’t see it coming the second before it hit.
+- They must have thought me an easy target with no friends or family, completely isolated, and yet something was going on that no one could have imagined and, once the divine trap was operational - set in motion decades before - there was no escape, and even as the bear teeth tightened down on the conspiring fools, they still had so little respect for women, girls, children, and babies, they didn’t feel until it snapped shut.
 - Miracles.
 
 ## Future optimisms 
 
-- The Rape Gang Inquiry has suggested that the police might now re-investigate my original grooming rape gang case from 1989.
-- Except, now, they cannot investigate those crimes without casting an eye on the decades long conspiracy against me.
+- The Rape Gang Inquiry has suggested that they might be able to get the police to re-investigate my original Tottenham rape gang case from 1989.
+- Except, now, they cannot possibly investigate those crimes without casting an eye on the decades long international conspiracy against me.
 - How exciting!
 - Some amazing investigatory team will be winning official awards for their career-case work ensnaring the nastiest, vilest, pedo-porn gang and serial killing international networked community of perverts and homicidal maniacs the world has ever known.
 - May it be very very soon.
