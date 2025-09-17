@@ -66,13 +66,20 @@
 - I remember him [in my bed calling my name](../2023/april.md#dreaming-of-the-trumpet-teacher).
 - He was the man I saw in the banged up Peugeot on the 11th June 2023, [the day before my *funeral*](../2023/june.md#sunday-11th-june) and [driving past me at the beach with the doctor in the passenger seat](../2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me), and [driving the blue car slowly past me](../2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car).
 - He was also reminiscent of [Patricia Penny's husband](../2021/december.md#christmas) and the [man who came out to terrorize me on Halloween](../2023/october.md#halloween) but not exactly the same - those two men could well be the same man.
-- I don't have a picture of this man but he will be very well known in Denia.
-- Unless, of course, this is him as a young man:
+- This trumpet player, at the *funeral* of the young girl behind him, looks like him. 
+
+![The dark curly-haired man with the big legs](../../content/images/hornero/tt-1-again.png)
+
+- You'll notice Carmen Cano was in attendance here too. She gets around doesn't she.
+
+[![Youtube](../../content/images/youtube-video.png)](../2023/june.md#youtube)
+
+- Could this be him as a young man?
 
 ![The deep-set man](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
 
-- Although I did think I saw the grown-up version of this person on the beach on [6th October 2024](../2024/october.md#sunday-6th-october) and have a body cam image too.
-- Perhaps they're related.
+- Although I did think I saw the grown-up version of this person on the beach on [6th October 2024](../2024/october.md#sunday-6th-october) and have a body cam image of that man who was very different looking, short and quite ugly. Perhaps they're related.
+- I believe this is also the man who [interviewed me for a tech job where I'd be looking at genitals all day](../early-years/2016.md#march); a man who I saw online and in-person.
 
 ## Sedated training for recognizing faces
 
