@@ -83,7 +83,7 @@
 
 - Although I did think I saw the grown-up version of this person on the beach on [6th October 2024](../2024/october.md#sunday-6th-october) and have a body cam image of that man who was very different looking, short and quite ugly. Perhaps they're related.
 - I believe this is also the man who [interviewed me for a tech job where I'd be looking at genitals all day](../early-years/2016.md#march) in 2016; a man I saw online and in-person.
-- He is certainly the man depicted in the [book cover](../../index.md).
+- They are certainly the man depicted on the [book cover](../../index.md).
 
 ## Sedated training for recognizing faces
 
