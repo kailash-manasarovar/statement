@@ -26,7 +26,7 @@
 - Did they examine our astrological charts or consult a witch?
 - It would not surprise me.
 - Regardless, the fact is that without these extremely good feelings I had for this man, and still do, and these short moments in time, we probably wouldn't be where we are today which is becoming something rather marvelous in my view.
-- It is my view that this man made a mistake being involved with these criminals and is innocent.
+- It is my view that this man made a mistake being involved with these criminals and is innocent. Perhaps he doesn't feel this way.
 
 ### Mark from English class in 2013
 
