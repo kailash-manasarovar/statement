@@ -121,7 +121,7 @@
 
 ### Sedating porn is normal now
 
-- We were all horrified at the Gisele Pelicot case; but perhaps this is considered completely normal behavior by pornographers and billions of porn viewers.
+- We were all horrified at the Gisele Pelicot case; but perhaps this is considered completely acceptable by pornographers and billions of porn viewers.
 - I guess the paying viewers feel like they've not quite reached the vileness of child or baby rape but at least they're still getting a sexual hit off something equally abhorrent towards women and girls.
 - I wonder if the audiences can request their wives or girlfriends, or colleagues, are targeted .. and whether this is what happened to Mrs Lara, and Lorraine found out somehow… and reported… and was ignored... and was targeted online and manipulated into killing herself.
 - Was Mike W was manipulated into everything he did too?
