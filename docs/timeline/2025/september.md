@@ -11,7 +11,7 @@
 - I never stopped having an extremely good feeling about this man.
 - I only have four solid memories of him where I'm not confusing him with someone else:
 
-    - The time we sat together in class and [I believed he was fundamentally on my side and conspiring with me against Domingo](../2023/february.md#plot-awareness). My words on that evening upset him; he understood what I was doing and I know the way I rewrote the nature of the conspiracy felt right to him.
+    - The time we sat together in class and [I believed he was fundamentally on my side and conspiring with me against Domingo](../2023/february.md#plot-awareness). My words on that evening upset him; he understood what I was doing and the way I rewrote the nature of the conspiracy felt right to him.
     - The time not long after when I remember waking up in my bed at home and he was [crying in my arms](../2023/march.md#dreaming-of-the-trumpet-teacher).
     - There was another time I saw him in class for a minute or two, and I was delighted to see him again - now I understand it was unexpectedly - and I smiled and he ignored me, looking sad and downwards, and not looking at me as I said goodbye for the evening.
     - Then, when the attraction-trick stopped working so well, I guess, and they decided to [wheel him out again](../2023/december.md#the-trumpet-teacher-has-a-brother) so I could be re-triggered, and I thought it was his twin brother!
