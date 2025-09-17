@@ -74,12 +74,13 @@
 
 [![Youtube](../../content/images/youtube-video.png)](../2023/june.md#youtube)
 
+- I'm pretty sure these films they're so happy and safe to publish are the porn-genre adverts.
 - Could this be him as a young man?
 
 ![The deep-set man](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
 
 - Although I did think I saw the grown-up version of this person on the beach on [6th October 2024](../2024/october.md#sunday-6th-october) and have a body cam image of that man who was very different looking, short and quite ugly. Perhaps they're related.
-- I believe this is also the man who [interviewed me for a tech job where I'd be looking at genitals all day](../early-years/2016.md#march); a man who I saw online and in-person.
+- I believe this is also the man who [interviewed me for a tech job where I'd be looking at genitals all day](../early-years/2016.md#march) in 2016; a man I saw online and in-person.
 
 ## Sedated training for recognizing faces
 
