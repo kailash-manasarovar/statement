@@ -91,7 +91,7 @@
 - I was being drugged continually with substances that blurred my vision and made my thoughts extremely unclear.
 - I was being sedated and likely sexually assaulted, except … 
 - Is it possible that the four of them treated me very nicely, sweetly, intimately but non-sexually, while I was sedated at home prior to 12th June 2023, with the intention of sexual abuse happening on that night as a kind of *grand finale*?
-- Was the enormous anxiety I felt after 12th June 2023 due to the grand finale having occurred at my house that night?
+- Was the enormous and exaggerated anxiety I felt after the attack on the 12th June 2023 in fact (and it makes much more sense to be) due to the grand rape-gang finale having occurred at my house that night?
 - Could part of the mind training and manipulation (*rehearsals* he called it at class) have included staring at me full in the face while I was sedated and my eyes were open and I was looking straight at them so I would recognize their faces in real life?
 - If they had assaulted me prior to June 12th 2023, I would have found them frightening in real life, and I didn’t, although they gave me a bad feeling that made me anxious and recoil… apart from the first older man who I never stopped having an extremely good feeling about.
 - From 12th June 2023, I *did* find him frightening, and ran away when [I saw one of them at Alicante airport](../2023/june.md#sunday-18th-june-alicante-airport); I believe this one was the [unknown man that led the chamber music class](#an-unknown-man-i-may-have-a-picture-of) so it is likely sedated rape had begun.
