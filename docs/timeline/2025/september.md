@@ -107,7 +107,7 @@
 - They will live stream the whole thing most likely, as a kind of porn-reality show.
 - The series probably includes a live-streamed gang-rape as  grander-grand finale in which the target is not sedated and recognizes all the men that have been *training* her.
 - They must charge exorbitant fees for this.
-- I wouldn't be surprised if this has killed women and girls outright with the shock.
+- I wouldn't be surprised if this has killed women and girls outright with the shock; something the pornographers hope for probably as it makes a lot more money.
 - Women like [Rocio Vidal](../2023/october.md#rocio-vidal) and the sports woman I mentioned in [my handwritten letters](../2024/august.md#the-letters) are likely viable targets requested by paying viewers and maybe blackmailed into participating rather than sedated (especially if they're famous).
 - It must be common knowledge across the world, and that’s fundamentally why all my complaints are ignored.
 - The perverts have certainly evolved over the years from targeting wealthy women with body-cams to setting up a kind of Truwoman Show in people's homes… just another sickly-inventive way men have found to delight and get boners at the destruction of women and now children too.
