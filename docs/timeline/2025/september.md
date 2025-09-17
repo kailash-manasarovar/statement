@@ -52,7 +52,7 @@
 - There was a similarly tall but even larger lumbering man that I remember seeing a few times.
 - He was the man who organized and managed the [chamber music concert](../2023/may.md#chamber-music-concert) where Carmen Cano was in the audience (masquerading or not) as Pablo's mum.
 - He had a soft pleasant voice and he was the man who left any messages on my phone.
-- He was the man I spoke to who [mentioned a double session in a perverted way](../2023/may.md#teb-with-robin) the night before I saw possible evidence of being anally raped.
+- He was the man I spoke to who [mentioned a *double session* in a perverted way](../2023/may.md#teb-with-robin) the night before I saw possible evidence of being anally raped.
 - He did look like an older version of the young man in the middle of this picture with his arms around two siblings (I assume).
 
 ![Vigas](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
