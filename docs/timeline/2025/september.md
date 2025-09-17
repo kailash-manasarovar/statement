@@ -131,7 +131,7 @@
 ## My role
 
 - And running through all this evil and vileness is my journey through it.
-- I must have been judged just another “silly little girl”, ready for targeting.
+- I must have been judged just another *silly little girl*, ready for targeting.
 - When they found out I was already a child rape victim, with the films to prove it, they must have thought me non-human and from there found it very easy to justify my murder.
 - They must have thought me an easy target with no friends or family, completely isolated, and yet something was going on that no one could have imagined and, once the divine trap was set - set in motion decades before - there was no escape, and even as the bear teeth tightened down on the conspiring fools, they still had so little respect for women and girls they didn’t see it coming the second before it hit.
 - Miracles.
