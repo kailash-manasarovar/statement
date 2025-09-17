@@ -14,13 +14,13 @@
     - The time we sat together in class and [I believed he was fundamentally on my side and conspiring with me against Domingo](../2023/february.md#plot-awareness). My words on that evening upset him; he understood what I was doing and the way I rewrote the nature of the conspiracy felt right to him.
     - The time not long after when I remember waking up in my bed at home and he was [crying in my arms](../2023/march.md#dreaming-of-the-trumpet-teacher).
     - There was another time I saw him in class for a minute or two, and I was delighted to see him again - now I understand it was unexpectedly - and I smiled and he ignored me, looking sad and downwards, as I said goodbye and left for the evening.
-    - Then, when the attraction-trick stopped working so well, I guess, and they decided to [wheel him out again](../2023/december.md#the-trumpet-teacher-has-a-brother) so I could be re-triggered, and I thought it was his twin brother!
+    - Then, when the attraction-trick stopped working so well, I guess, and they decided to [wheel him out again](../2023/december.md#the-trumpet-teacher-has-a-brother) so I could be re-triggered, and I thought it was the trumpet teacher's twin brother!
 
 - This is the man I was convinced I loved and who loved me back. 
 
     ![The real trumpet teacher](../../content/images/hornero/hh1.png)
 
-- This is an old picture, the man is about 10 years older now. However, this younger picture demonstrates the likeness between him and the [next bloke I mention](#mark-from-english-class-in-2013) who must be related somehow.
+- This is an old picture, the man is about 10 years older now. However, this younger picture demonstrates the likeness between him and the [next bloke I mention](#mark-from-english-class-in-2013) who must be a family relation of some sort.
 - I wonder if the gypsies made sure that one of the men would be someone I was strongly attracted to in order for the trick to work?
 - Did they examine our astrological charts or consult a witch?
 - It would not surprise me.
@@ -28,7 +28,8 @@
 
 ### Mark from English class in 2013
 
-- Mark was the larger, taller, darker, more lumbering man that looked enough like the [older, slimmer man](#the-older-slimmer-greyer-man) for me to mistake them after what I assume was some sort of [sedated mistaking people training](#sedated-training-for-recognizing-faces).
+- This man certainly reminded me of Mark from English class in 2013.
+- He was the larger, taller, darker, more lumbering man that looked enough like the [older, slimmer man](#the-older-slimmer-greyer-man) for me to mistake them after what I assume was some sort of [sedated mistaking people training](#sedated-training-for-recognizing-faces).
 - He was someone I had [found attractive when I met him in 2013](../early-years/2008.md#working-for-lorraine-blackbourn) in my English class when I worked for Lorraine Blackbourn.
 - It's likely this man is related to Lorraine Blackbourn's ex-husband and indeed was of the same size and shape, and facial features.
 - He was the man I saw most often at the conservatory, and I was always anxious around him.
