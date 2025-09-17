@@ -141,6 +141,6 @@
 - The Rape Gang Inquiry has suggested that they might be able to get the police to re-investigate my original Tottenham rape gang case from 1989.
 - Except, now, they cannot possibly investigate those crimes without casting an eye on the decades long international conspiracy against me.
 - How exciting!
-- Some amazing investigatory team will be winning official awards for their career-case work ensnaring the nastiest, vilest, pedo-porn gang and serial killing international networked community of perverts and homicidal maniacs the world has ever known.
+- Some amazing investigatory team will be winning official awards for their career-case work ensnaring the nastiest, vilest, pedo-porn gang and serial-killing international online community of perverts and homicidal maniacs the world has ever known.
 - May it be very very soon.
 - And I myself will buy them all a non-toxic pint.
