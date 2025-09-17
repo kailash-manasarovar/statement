@@ -2,8 +2,8 @@
 
 ## Four distinct men 
 
-- As my mind clears and my heart heals from decades of abuse at the hands of the Canos, the Smiths, and their associates in Denia, France, and North London, normal memories of what happened to me are returning.
-- I realize now that the *trumpet teacher* was made up of four men who came to the conservatory of Denia in this role under the name Vidal Sastre Sanchez Hornero.
+- As my mind clears and my heart heals from decades of abuse at the hands of the Canos, the Smiths, and their associates in Denia, France, and North London, clearer memories of what happened to me and by whom are returning.
+- I realize now that the *trumpet teacher* was made up of four distinct men who came to the conservatory of Dénia in this role of teacher and using the name Vidal Sastre Sanchez Hornero.
 
 ### The older, slimmer, greyer man
 
