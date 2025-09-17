@@ -104,6 +104,7 @@
 - A great deal of police will be subscribing to this sort of thing.
 - They will live stream the whole thing most likely, as a kind of porn-reality show.
 - The series probably includes a live-streamed gang-rape as  grander-grand finale in which the target is not sedated and recognizes all the men that have been *training* her.
+- They must charge exorbitant fees for this.
 - I wouldn't be surprised if this has killed women and girls outright with the shock.
 - Women like [Rocio Vidal](../2023/october.md#rocio-vidal) and the sports woman I mentioned in [my handwritten letters](../2024/august.md#the-letters) are likely viable targets requested by paying viewers and maybe blackmailed into participating rather than sedated (especially if they're famous).
 - It must be common knowledge across the world, and that’s fundamentally why all my complaints are ignored.
