@@ -37,7 +37,7 @@
 
     - He was the man [Patricia Penny *introduced* me to in Benijembla](../2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class.
     - He was the man that [stalked me at Lourdes](../2021/july.md#the-portuguese-man-next-door).
-    - At the first class in [November 2022](../2022/november.md#the-trumpet-teacher) there he was hovering over Ana after timing a meeting at the toilet.
+    - At the first class in [November 2022](../2022/november.md#the-trumpet-teacher) there he was hovering over Ana Requena after timing a meeting at the toilet.
     - He was the man involved in [poisoning me by overdose](../2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice.
     - He was the man who brought the music sheets from Gloria and [handed me his phone](../2023/march.md#the-trumpet-teacher-hands-me-his-phone).
     - The man who [was angry at me](../2023/april.md#back-in-chamber-music-class) after I followed the `@jctot19` account.
@@ -48,7 +48,7 @@
 
 ### An unknown man I may have a picture of
 
-- There was a similarly tall but even larger man that I can remember seeing a few times.
+- There was a similarly tall but even larger lumbering man that I remember seeing a few times.
 - He was the man who organized and managed the [chamber music concert](../2023/may.md#chamber-music-concert) where Carmen Cano was in the audience (masquerading or not) as Pablo's mum.
 - He had a soft pleasant voice and he was the man who left any messages on my phone.
 - He was the man I spoke to who [mentioned a double session in a perverted way](../2023/may.md#teb-with-robin) the night before I saw possible evidence of being anally raped.
