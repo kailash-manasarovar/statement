@@ -88,7 +88,7 @@
 - I was living alone and had no social life.
 - I was being drugged continually with substances that blurred my vision and made my thoughts extremely unclear.
 - I was being sedated and likely sexually assaulted, except … 
-- Is it possible that the four of them treated me very nicely, sweetly, intimately but non-sexually, while I was sedated at home prior to 12th June 2023, with the intention of sexual abuse happening at that time?
+- Is it possible that the four of them treated me very nicely, sweetly, intimately but non-sexually, while I was sedated at home prior to 12th June 2023, with the intention of sexual abuse happening on that night as a kind of *grand finale*?
 - Was the enormous anxiety I felt after 12th June 2023 due to the grand finale having occurred at my house that night?
 - Could part of the mind training and manipulation (rehearsals, he called it at class) have included staring at me full in the face while I was sedated and my eyes were open, and I was looking straight at them so I would recognize their faces in real life?
 - If they had assaulted me I would have found them frightening in real life, and I didn’t, although they gave me a bad feeling that made me anxious and recoil… apart from the first older man who I never stopped having an extremely good feeling about.
