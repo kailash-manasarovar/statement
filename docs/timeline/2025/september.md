@@ -85,6 +85,7 @@
 ## Sedated training for recognizing faces
 
 - The question is, of course, how did I manage to mistake four separate men for a single person?
+- Let's examine that.
 - I was living alone and had no social life.
 - I was being drugged continually with substances that blurred my vision and made my thoughts extremely unclear.
 - I was being sedated and likely sexually assaulted, except … 
