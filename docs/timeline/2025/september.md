@@ -102,7 +102,7 @@
 
 - I’m guessing this is a porn genre and many millions of men and porn addicts internationally know about it, particularly in Spain.
 - A great deal of police will be subscribing to this sort of thing.
-- They will live stream the trick most likely.
+- They will live stream the whole thing most likely, as a kind of porn-reality show.
 - The series probably include live-streamed gang-rape as a grand finale in which the target is not sedated and recognizes all the men that have been *training* her.
 - I wouldn't be surprised if this has killed women and girls outright with the shock.
 - Women like schrondigner gata (Rocio Vidal) and the sports woman I mentioned will be viable targets requested by paying viewers.
