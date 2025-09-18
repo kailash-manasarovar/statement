@@ -720,8 +720,6 @@ function googleTranslateElementInit() {
 
 - This is the second time I become 100% convinced I'm going to be arrested.
 - It's terrifying.
-- Someone suggested this could be related to historic trauma whereby a pedophile rape-gang silences their child victims by telling them they'll go to prison if they tell anyone what's happened.
-- I don't remember that happening to me, and it certainly wasn't in my original police statement, but I guess it's possible.
 - For sure, my fear and anxiety levels were irrational, and something external was definitely causing this.
 - I experience the same fear again in [April 2024](../2024/april.md#the-third-time-im-convinced-im-going-to-be-arrested). 
 
