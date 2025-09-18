@@ -468,7 +468,7 @@
     - Part three - hacking: https://x.com/1FRGVN/status/1759837709365817828
     - Part four - manipulating and involving the children: https://x.com/1FRGVN/status/1759864483244089476 -> I stopped writing here as sudden threatening posts popped up which made me decided to postpone this section. Anything I would have written here is now in this statement.
 
-- Reading these back is so interesting for me. I had no idea what was going on, except everything I do say points firmly to the truth.
+- Reading these back is so interesting for me. I had no idea what was really going on, except everything I do say points firmly to the truth.
 
 ## Guardia Civil
 
