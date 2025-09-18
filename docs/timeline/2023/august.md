@@ -731,6 +731,7 @@ function googleTranslateElementInit() {
 - It's curious that I talk about a 'feeling' rather than anything tangible. (The full video shows exactly how scared I am.)
 - I wonder if this means that the criminal porn-gangs of Dénia had conversed with the Tottenham rape-gangs to share notes as to what kind of things might terrify me and how I could be better controlled.
 - Being threatened by the gangs with being arrested by the police was something I *never* reported to the police, and I don't remember anything like that happening. However, this does not mean I was not threatened in this way by the gangs and other victims may confirm it as common practice.
+- Certainly the level of terror the idea gave me, and gives me even writing this down, implies a suppressed traumatic event of some sort.
 - Regardless of the evil around me, just like the first time it happened in [July in Thailand](july.md#the-first-time-i-become-terrified-about-being-arrested) and the [day after my apparent 'funeral' in June](june.md#monday-12th-june-2023) a powerful supporting grace surrounds me.
 - First, when I go public a couple of days later, I get 1000s of new followers who will now hear what's been going on for me, although concerted efforts are made to silence and discredit me at that time.
 - Second, my Tibetan monk friend will come to visit me when I tell him how upset I am.
