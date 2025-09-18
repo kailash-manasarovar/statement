@@ -466,7 +466,7 @@
     - Part one - collecting my thoughts (the story): https://x.com/1FRGVN/status/1759737292472627532
     - Part two - the trumpet teacher: https://x.com/1FRGVN/status/1759770318409695275 
     - Part three - hacking: https://x.com/1FRGVN/status/1759837709365817828
-    - Part four - manipulating and involving the children: https://x.com/1FRGVN/status/1759864483244089476 -> I think the information in this statement covers that. I stopped writing here as I had sudden threatening posts pop up which made me realize they were not happy about me sharing this information so I decided to postpone sharing it.
+    - Part four - manipulating and involving the children: https://x.com/1FRGVN/status/1759864483244089476 -> I stopped writing here as sudden threatening posts popped up which made me decided to postpone this section. Anything I would have written here is now in this statement.
 
 - Reading these back is so interesting for me. I had no idea what was going on, except everything I do say points firmly to the truth.
 
