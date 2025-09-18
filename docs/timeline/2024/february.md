@@ -484,7 +484,7 @@
 - However, I can see from reading this document that this is a copy of a note from my Mac with more *story*, perhaps a draft I had made before I [published the story in highlights](#publishing-my-story-in-highlights).
 - Again, this reads as yet more consistent reporting on what's been happening to me since I met Domingo Cano in 2014, with many points I have made in this statement reconfirmed.
 - It's startling to realize how little I knew at that time, and more horrifying to realize how *everyone must have known* what was happening to me, including repeated sedated gang-rape and sexual assault in my apartment, live-streamed to the town and beyond.
-- The world must know about this and the frantic efforts from all involved to keep it quiet, to ignore the total destruction of an innocent community of women, girls, children, and babies at the altar of porn.
+- The world must know about this and the frantic efforts from all involved to keep it quiet and ignore the total destruction of an innocent community of women, girls, children, and babies at the altar of porn.
 
 ## Policia Nacional
 
