@@ -458,7 +458,7 @@
 ### Publishing my story in highlights
 
 - Writing things down was, for me, an insurance exercise in that, if anything did happen to me, all the information I had at the time would be available to the world if they needed or wanted it.
-- The more they terrorized me and threatened my life, the more scared I became, and the result was always that I needed to write everything down.
+- The more that teachers and staff at the conservatory terrorized me and threatened my life, the more scared I became, and the result was always that I needed to write everything down.
 - Looking back I remember a state of mind that was always hoping the nightmare would end, but it never did.
 - Let's have a closer look at what I knew in February 2024.
 
