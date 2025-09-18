@@ -455,14 +455,19 @@
 - Of course, teachers and staff involved in gang-stalking women and children for decades would be extremely keen to shut me up.
 - Moreover, when normal people aren't able to do anything about the evil around them without getting murdered themselves, madness is safety (see, for example, Nazi Germany) although never an excuse.
 
-### The story published in highlights
+### Publishing my story in highlights
 
+- Writing things down was, for me, an insurance exercise in that, if anything did happen to me, all the information I had at the time would be available to the world if they needed or wanted it.
+- The more they terrorized me and threatened my life, the more scared I became, and the result was always that I needed to write everything down.
+- Looking back I remember a state of mind that was always hoping the nightmare would end, but it never did.
 - Let's have a closer look at what I knew in February 2024.
 
-- Part one - collecting my thoughts (the story): https://x.com/1FRGVN/status/1759737292472627532
-- Part two - the trumpet teacher: https://x.com/1FRGVN/status/1759770318409695275 
-- Part three - hacking: https://x.com/1FRGVN/status/1759837709365817828
-- Part four - manipulating and involving the children: https://x.com/1FRGVN/status/1759864483244089476 -> I think the information in this statement covers that.
+    - Part one - collecting my thoughts (the story): https://x.com/1FRGVN/status/1759737292472627532
+    - Part two - the trumpet teacher: https://x.com/1FRGVN/status/1759770318409695275 
+    - Part three - hacking: https://x.com/1FRGVN/status/1759837709365817828
+    - Part four - manipulating and involving the children: https://x.com/1FRGVN/status/1759864483244089476 -> I think the information in this statement covers that. I stopped writing here as I had sudden threatening posts pop up which made me realize they were not happy about me sharing this information so I decided to postpone sharing it.
+
+- Reading these back is so interesting for me. I had no idea what was going on, except everything I do say points firmly to the truth.
 
 ## Guardia Civil
 
