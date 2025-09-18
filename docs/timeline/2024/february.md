@@ -459,7 +459,7 @@
 
 - Writing things down was, for me, an insurance exercise in that, if anything did happen to me, all the information I had at the time would be available to the world.
 - The more that teachers and staff at the conservatory terrorized me and threatened my life, the more scared I became, and the consistent result was that I was compelled to write everything down.
-- They knew I am a writer, it is my actual job. What did they think I was going to do?
+- They know I am a writer; it is one of my *actual* jobs. What did they think I was going to do?
 - Looking back I remember a state of mind that was always hoping the nightmare would end, but it never did.
 - Let's have a closer look at what I knew in February 2024.
 
