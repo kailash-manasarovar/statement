@@ -480,7 +480,7 @@
 - I know now I was blocked from accessing the Guardia Civil's gender violence and cyber stalking reporting service by hackers. 
 - I wonder if hackers preferred I reported to the Policia Nacional in Denia, who they clearly owned as I was to find out horribly [the next morning](#policia-nacional).
 - This happens again when I try to access the [European Union's human rights website](#european-court-of-human-rights) and report there a few days later, after which I'm bombarded with fake account with titles related to "human rights".
-- I saved this note because I thought it may be part of [a message I sent the Guardia Civil that night](../../content/documents/letters/possible-mail-to-the-GC.pdf) via a contact input box I found somewhere; the document I have is dated 20th February 2024.
+- I saved the note I've linked here because I thought it may be part of [a message I sent the Guardia Civil that night](../../content/documents/letters/possible-mail-to-the-GC.pdf) via a contact input box I found somewhere; the document I have is dated 20th February 2024.
 - However, I can see from reading this document that this is a copy of a note from my Mac with more *story*, perhaps a draft I had made before I [published the story in highlights](#publishing-my-story-in-highlights).
 - Again, this reads as yet more consistent reporting on what's been happening to me since I met Domingo Cano in 2014, with many points I have made in this statement reconfirmed.
 - It's startling to realize how little I knew at that time, and more horrifying to realize how *everyone must have known* what was happening to me, including repeated sedated gang-rape and sexual assault in my apartment, live-streamed to the town and beyond.
