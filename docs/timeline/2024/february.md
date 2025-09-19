@@ -501,7 +501,7 @@
 - I text a few others who do support me.
 - I enter the reporting room where there are two desks and a few police officers milling around.
 - The policeman who deals with me reads the [first letter I wrote to Concha the summer before](../2023/july.md#my-first-request-for-help), and possibly [her reply](../2023/july.md#concha-responds).
-- He does not ask me for my personal details; my name, address, date of birth, nothing.
+- He does not ask me for my personal details; my name, address, NIE, date of birth, nothing.
 - He tells me there is no crime and that I should go home.
 - He read less than 5% of the information I brought.
 - I show him the stack of letters I have brought for them so that they will understand what's happening to me.
