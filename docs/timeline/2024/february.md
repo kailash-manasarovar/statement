@@ -478,7 +478,7 @@
 - It's a *not connected to the internet* error, except I am connected.
 - The error only comes up on any page on the Guardia Civil website where I can report a crime. 
 - I know now I was blocked from accessing the Guardia Civil's gender violence and cyber stalking reporting service by hackers. 
-- I wonder if hackers preferred I reported to the Policia Nacional in Dénia, who they clearly owned, as I was to find out horribly [the next morning](#policia-nacional).
+- I wonder if hackers preferred I reported to the Policia Nacional in Dénia, who they clearly owned, as I was to find out horribly [the next morning](#my-first-trip-to-the-spanish-police-in-denia).
 - This happens again when I try to access the [European Union's human rights website](#european-court-of-human-rights) and report there a few days later, after which I'm bombarded with fake accounts with messages related to *human rights*.
 - I saved the note I've linked here because I thought it may be part of [a message I sent the Guardia Civil that night](../../content/documents/letters/possible-mail-to-the-GC.pdf) via a contact input box I found somewhere; the document I have is dated 20th February 2024.
 - However, I can see from reading this document that this is a copy of a note from my Mac with more *story*, perhaps a draft I had made before I [published the story in highlights](#publishing-my-story-in-highlights).
@@ -486,7 +486,7 @@
 - It's startling to realize how little I knew at that time, and more horrifying to realize how *everyone must have known* what was happening to me, including repeated sedated gang-rape and sexual assault in my apartment, live-streamed to the town and beyond.
 - The world must know about this and the frantic efforts from all involved to keep it quiet and ignore the total destruction of an innocent community of women, girls, children, and babies at the altar of porn.
 
-## Policia Nacional
+## My first trip to the Spanish police in Dénia
 
 - Having been threatened with real violence, I (reluctantly I must say) go to report the gang stalking and everything that's been happening to me that I'm aware of at that time to the police in Dénia the next morning.
 - I take all my documentation in Spanish detailing the story so far, including all my communication with the Generalitat.

@@ -467,10 +467,10 @@ function googleTranslateElementInit() {
     - English version of the [second letter to Concha](../../content/documents/letters/My%20experience%20-%20EN.pdf).
 
 !!! danger "Disinterested Dénia police"
-    - When I go to the [police in February 2024](../2024/february.md#policia-nacional) after a threat of violence on Twitter, I take numerous documents written in Spanish for them to look at, including all my written complaints to the school board. 
+    - When I go to the [police in February 2024](../2024/february.md#my-first-trip-to-the-spanish-police-in-denia) after a threat of violence on Twitter, I take numerous documents written in Spanish for them to look at, including all my written complaints to the school board. 
     - The police decide they will only read the letters I have written to Concha, before telling me there's no crime and I should go away. 
     - They refuse to read anything else.
-    - They tell me a man who was [trying to recruit me to his honey-trap enterprise and threatening me online](../2024/february.md#policia-nacional) probably thinks I'm ugly. (That, presumably, justifies his threat.)
+    - They tell me a man who was [trying to recruit me to his honey-trap enterprise and threatening me online](../2024/february.md#my-first-trip-to-the-spanish-police-in-denia) probably thinks I'm ugly. (That, presumably, justifies his threat.)
     - They tell me I need to take a civil case against the conservatory.
 
 - After receiving this letter, Concha makes no response to me at all.

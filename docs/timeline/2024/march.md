@@ -299,7 +299,7 @@
 ### Translator
 
 - It's time to go to the police again but I need a translator to help me deal with them properly.
-- After my experience with the [police in Dénia in February](february.md#policia-nacional), I believe I need firm proof of hacking before I can go to them again!
+- After my experience with the [police in Dénia in February](february.md#my-first-trip-to-the-spanish-police-in-denia), I believe I need firm proof of hacking before I can go to them again!
 - I get a recommendation, Sara Lebanon, through an Irish woman Brenda who incidentally knows Alessandra very well. 
 - I tell her everything, the child sexual abuse I suffered (she's very alarmed at this) and how it made me intolerant of children being sexualized at the conservatory, and how I had been targeted for basically mentioning that very informally in 2015. 
 - She says to me, "Oh at least you know you're not imagining it." I wonder why she would say that. She says it a few times.

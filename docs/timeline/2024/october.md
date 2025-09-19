@@ -337,7 +337,7 @@
 
 - I send a mail to the `trata@policia.es` email, an anonymous email where I'm told I can send information safely.
 - [The email and responses](../../content/documents/emails/trata@policia.pdf).
-- I get a response from Dénia police who were [decidedly unhelpful in February](february.md#policia-nacional).
+- I get a response from Dénia police who were [decidedly unhelpful in February](february.md#my-first-trip-to-the-spanish-police-in-denia).
 - I do not respond.
 
 ## Silvia
