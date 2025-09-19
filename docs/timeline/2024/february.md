@@ -497,6 +497,7 @@
 - I wait for about 40 minutes to see someone during which time I text Alessandra, Christine BJ, and Sandra Diaz, telling them where I am, what I'm doing, and why.
 - I do not realize that these three do not support my safety and wellbeing.
 - I text a few others who do support me.
+- I enter the reporting room where there are two desks and a few police officers milling around.
 - The policeman who deals with me reads the [first letter I wrote to Concha the June before](../2023/july.md#my-first-request-for-help), and possibly [her reply](../2023/july.md#concha-responds).
 - He tells me there is no crime and that I should go home.
 - He read less than 5% of the information I brought.
