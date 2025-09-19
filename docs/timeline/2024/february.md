@@ -488,12 +488,14 @@
 
 ## My first trip to the Spanish police in Dénia
 
-- Having been threatened with what I considered a [genuine threat of violence](#the-denia-porn-gang-attempts-to-recruit-me), I reluctantly go to report the threat, the gang stalking, and everything that's been happening to me at the hands of teachers and staff at the conservatory that I'm aware of at that time, to the police in Dénia on the morning of 20th February at around 11am.
-- I drive down and park the car. I keep the parking ticket.
+- Having been the subject of what I considered a [genuine threat of violence](#the-denia-porn-gang-attempts-to-recruit-me), I reluctantly go to report the threat, the gang stalking, and everything that's been happening to me at the hands of teachers and staff at the conservatory that I'm aware of at that time, to the police in Dénia on the morning of 20th February at around 11am.
+- Unusually, I drive down and park the car outside the police station.
+- I keep the parking ticket.
 - My heart is heavy and my stomach knows that this is not a good situation, for me.
 - I take all the documentation I have in Spanish detailing the story so far.
-- I bring every complaint I wrote to the Generalitat too.
+- I bring every complaint received by the Generalitat.
 - I wait for about 40 minutes to see someone during which time I text Alessandra, Christine BJ, and Sandra Diaz, telling them where I am, what I'm doing, and why.
+- I texted a few others who do support me.
 - I do not realize these three do not support my safety and wellbeing.
 - The policeman who deals with me reads the two letters I wrote to Concha the June before, and tells me there is no crime, and that I should go home.
 - I have a stack of documentation I would like them to read but they refuse to read it.
