@@ -488,16 +488,26 @@
 
 ## My first trip to the Spanish police in Dénia
 
-- Having been threatened with real violence, I (reluctantly I must say) go to report the gang stalking and everything that's been happening to me that I'm aware of at that time to the police in Dénia the next morning.
-- I take all my documentation in Spanish detailing the story so far, including all my communication with the Generalitat.
-- The policeman who deals with me reads the two letters I wrote to Concha the June before, tells me there is no crime, and that I should go home.
-- I have a stack of documentation I would like them to read, but they are not at all interested.
-- I tell them, but these people are civil servants in charge of children. They tell me I need to take a civil case out against the conservatory.
-- I explain I'm being hacked. They say, how can teachers at the conservatory hack you, they are musicians.
-- I tell them about the threat I received online the night before. They read it and tell me, "oh, he can say that because he probably thinks you're ugly".
-- I'm utterly flabbergasted, and leave.
-- While I was there, a woman police officer was holding up her mobile phone as if she was filming me the whole time.
-- I wondered if they knew exactly who I was and what was happening to me.
+- Having been threatened with what I considered a [genuine threat of violence](#the-denia-porn-gang-attempts-to-recruit-me), I reluctantly go to report the threat, the gang stalking, and everything that's been happening to me at the hands of teachers and staff at the conservatory that I'm aware of at that time, to the police in Dénia on the morning of 20th February at around 11am.
+- I drive down and park the car. I keep the parking ticket.
+- My heart is heavy and my stomach knows that this is not a good situation, for me.
+- I take all the documentation I have in Spanish detailing the story so far.
+- I bring every complaint I wrote to the Generalitat too.
+- I wait for about 40 minutes to see someone during which time I text Alessandra, Christine BJ, and Sandra Diaz, telling them where I am, what I'm doing, and why.
+- I do not realize these three do not support my safety and wellbeing.
+- The policeman who deals with me reads the two letters I wrote to Concha the June before, and tells me there is no crime, and that I should go home.
+- I have a stack of documentation I would like them to read but they refuse to read it.
+- I tell them, but these people are civil servants in charge of children. 
+- They tell me I need to take a civil case out against the conservatory.
+- I explain I'm being hacked. 
+- They say, how can teachers at the conservatory hack you, they are musicians.
+- I tell them about the threat I received online the night before. 
+- I show them and translate it. 
+- The officer tells me, "oh, he is allowed to say that because he probably thinks you're ugly".
+- I'm utterly flabbergasted.
+- I leave.
+- While I was there, a woman police officer holds up her mobile phone as if she is filming me the whole time.
+- I believe they knew exactly who I am and what was happening to me.
 
 ![Policia](../../content/images/policia-denia.png)
 
