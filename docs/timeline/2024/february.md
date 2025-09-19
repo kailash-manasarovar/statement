@@ -496,22 +496,34 @@
 - I bring every complaint received by the Generalitat.
 - I wait for about 40 minutes to see someone during which time I text Alessandra, Christine BJ, and Sandra Diaz, telling them where I am, what I'm doing, and why.
 - I do not realize that these three do not support my safety and wellbeing.
-- I texted a few others who do support me.
-- The policeman who deals with me reads the two letters I wrote to Concha the June before, and tells me there is no crime, and that I should go home.
-- I have a stack of documentation I would like them to read but they refuse to read it.
-- I tell them, but these people are civil servants in charge of children. 
-- They tell me I need to take a civil case out against the conservatory.
-- I explain I'm being hacked. 
-- They say, how can teachers at the conservatory hack you, they are musicians.
+- I text a few others who do support me.
+- The policeman who deals with me reads the [first letter I wrote to Concha the June before](../2023/july.md#my-first-request-for-help), and possibly [her reply](../2023/july.md#concha-responds).
+- He tells me there is no crime and that I should go home.
+- He read less than 5% of the information I brought him.
+- I explain and show them the stack of letters they should read in order to understand what's happening to me.
+- They refuse.
+- I tell them, but these people are civil servants in charge of children! 
+- They tell me I need to take a civil case out against the conservatory as there is no crime.
+- I tell them they didn't read anything.
+- They ignore me.
+- I explain that I'm being hacked. 
+- They say, how can teachers at the conservatory hack you, they are musicians!
 - I tell them about the threat I received online the night before. 
 - I show them and translate it. 
 - The officer tells me, "oh, he is allowed to say that because he probably thinks you're ugly".
 - I'm utterly flabbergasted.
+- I tell them that [Domingo Cano, my piano teacher, threatened me with violence in 2014](../early-years/2014.md#poisoned-aunts).
+- They say, what did he say?
+- I know they don't care and they are not going to help me.
+- I don't tell them what Domingo said.
 - I leave.
 - While I was there, a woman police officer holds up her mobile phone as if she is filming me the whole time.
 - I believe they knew exactly who I am and what was happening to me.
 
 ![Policia](../../content/images/policia-denia.png)
+
+- Maybe the woman police officer's film made it onto the sedated-porn-target WhatsApp groups and live-stream.
+- At the time, I felt she was filming me in case I turned up dead and they had to identify me.
 
 ## European Court of Human Rights
 
