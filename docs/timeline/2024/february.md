@@ -495,8 +495,8 @@
 - I take all the documentation I have in Spanish detailing the story so far.
 - I bring every complaint received by the Generalitat.
 - I wait for about 40 minutes to see someone during which time I text Alessandra, Christine BJ, and Sandra Diaz, telling them where I am, what I'm doing, and why.
+- I do not realize that these three do not support my safety and wellbeing.
 - I texted a few others who do support me.
-- I do not realize these three do not support my safety and wellbeing.
 - The policeman who deals with me reads the two letters I wrote to Concha the June before, and tells me there is no crime, and that I should go home.
 - I have a stack of documentation I would like them to read but they refuse to read it.
 - I tell them, but these people are civil servants in charge of children. 
