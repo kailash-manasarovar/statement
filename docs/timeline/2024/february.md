@@ -505,7 +505,7 @@
 - He tells me there is no crime and that I should go home.
 - He read less than 5% of the information I brought.
 - I show him the stack of letters I have brought for them so that they will understand what's happening to me.
-- I explain my Spanish is not so good.
+- I explain my Spanish is not so good but I am being terrorized by teachers and staff at the conservatory and online.
 - He refuses to read anything else.
 - I tell him; but these people are civil servants in charge of children! 
 - He tells me I need to take a civil case out against the conservatory as there is no crime.
