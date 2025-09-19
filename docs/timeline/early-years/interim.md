@@ -145,6 +145,7 @@ function googleTranslateElementInit() {
     - I wake a little back in Cork, shocked and sweating. I fall back to sleep again.
     - It is my wedding day, except, I'm looking at myself through the eyes of the groom. 
     - We are outside. It is spring time and we are among a semi-circle of trees.
+    - It's somewhere Mediterranean. Could it be Jerusalem?
 
     ![wedding day](../../content/images/wedding-day.png)
 
