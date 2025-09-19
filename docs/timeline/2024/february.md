@@ -499,7 +499,7 @@
 - I text a few others who do support me.
 - The policeman who deals with me reads the [first letter I wrote to Concha the June before](../2023/july.md#my-first-request-for-help), and possibly [her reply](../2023/july.md#concha-responds).
 - He tells me there is no crime and that I should go home.
-- He read less than 5% of the information I brought him.
+- He read less than 5% of the information I brought.
 - I explain and show them the stack of letters they should read in order to understand what's happening to me.
 - They refuse.
 - I tell them, but these people are civil servants in charge of children! 
