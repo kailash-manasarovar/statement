@@ -505,24 +505,27 @@
 - He tells me there is no crime and that I should go home.
 - He read less than 5% of the information I brought.
 - I show him the stack of letters I have brought for them so that they will understand what's happening to me.
+- I explain my Spanish is not so good.
 - He refuses to read anything else.
-- I tell them, but these people are civil servants in charge of children! 
-- They tell me I need to take a civil case out against the conservatory as there is no crime.
-- I tell them they didn't read anything.
+- I tell him; but these people are civil servants in charge of children! 
+- He tells me I need to take a civil case out against the conservatory as there is no crime.
+- I tell him they didn't take my complaint properly.
 - They ignore me.
-- I explain that I'm being hacked. 
+- I try again.
+- I explain that I've been hacked for over a year. 
 - They say, how can teachers at the conservatory hack you, they are musicians!
 - I tell them about the threat I received online the night before. 
-- I show them and translate it. 
-- The officer tells me, "oh, he is allowed to say that because he probably thinks you're ugly".
+- I show them the threat and I translate it. 
+- The officer tells me, "oh, he is legally allowed to say that because he probably thinks you're ugly".
 - I'm utterly flabbergasted.
+- I'm desperate now.
 - I tell them that [Domingo Cano, my piano teacher, threatened me with violence in 2014](../early-years/2014.md#poisoned-aunts).
 - They say, what did he say?
 - I know they don't care and they are not going to help me.
 - I don't tell them what Domingo said.
 - I leave.
-- While I was there, a woman police officer holds up her mobile phone as if she is filming me the whole time.
-- I believe they knew exactly who I am and what was happening to me.
+- While I was there talking to the office, a woman police officer stands behind him and holds up her mobile phone as if she is filming me.
+- I believe they knew exactly who I am and what was happening to me due to countless similar complaints over the years.
 
 ![Policia](../../content/images/policia-denia.png)
 
