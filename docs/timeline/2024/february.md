@@ -570,14 +570,17 @@
 ![Human rights accounts](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-04%20at%2008.32.54.png)
 ![Human rights accounts](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-08%20at%2008.35.00.png)
 
-## Searching for a security expert
+## Searching for a security expert to help me find the porn I'm starring in, sedated
 
-- The cyber stalkers are mentioning the child sexual abuse I endured more and more.
-- They post suggestions they have porn videos with me in them.
-- I see photos and silhouettes of what looks like me as a child of 16, lying on a bed, naked. 
-- I try to find a security expert who can search for these images online. 
-- I actually talk to a person: Andy Clarke <andy.clarke@fact-uk.org.uk> about this.
-- He said he was unable to help me.
+- The cyber stalkers are mentioning the child sexual abuse I endured more and more, in textual messages (references in account names, profile messages, etc), and in pics (profile pics, etc).
+- The strong suggestion is they have all been watching child rape porn with me starring as a child, sedated.
+- I understand I'm dealing with some extremely sick people.
+- They posts photos and silhouettes of what looks like me, as a child of 16, lying down, naked. 
+- It's stills from the same videos I saw flashed up in [November 2023](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) and again in [January 2024](../2024/january.md#i-see-my-naked-16-year-old-body-on-x-again).
+- They images are always posted quickly, and in a grainy way so I have to look closely, and then they disappear before I have time to screenshot them.
+- I decide to find a security expert who can help me find these images and videos online.
+- I actually talk to someone about this: Andy Clarke <andy.clarke@fact-uk.org.uk>.
+- He said he was unable to help me and gave me no advice about what to do next.
 
 ## The British girl at the conservatory
 
