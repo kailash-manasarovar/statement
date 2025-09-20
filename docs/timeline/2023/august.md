@@ -689,7 +689,7 @@ function googleTranslateElementInit() {
 - In John Lewis, or Fenwicks, one or the other, a beautiful pair of gloves was on display, just like the ones I've just mentioned.
 - I became obsessed with these gloves and had to have them. They were expensive too.
 - I bought them one Friday when I received my weekly paycheck of £95. 
-- Did these gloves end up in sedated child gang-rape porn that teachers and staff at the conservatory had seen?
+- Did these gloves end up in the sedated child, gang-rape porn that the teachers and staff at the conservatory had seen?
 - Seeing this photo immediately made me think of the gloves I used to have.
 - I think it was this image that started to open my eyes on what was really going on, but it was just a hint. 
 - I assume the intention on posting that to me was to trigger psychological and emotional trauma arising from severe sexual abuse.
