@@ -683,7 +683,7 @@ function googleTranslateElementInit() {
 ![Hand in glove](../../content/images/hand-in-glove.png)
 
 - When I was 16, just before I was terrorized and sexually abused by the Tottenham rape-gang, I worked at H Samuel in Brent X.
-- Incidentally, a man I [more recently saw in Thailand](../2024/december.md#threats) who bared his teeth at me may have come in one afternoon with a fake credit card.
+- Incidentally, a man I [more recently saw in Thailand](../2025/january.md#samui) who bared his teeth at me may have come in one afternoon with a fake credit card.
 - Anyway.
 - On my lunch breaks I used to wander around the shops looking at things.
 - In John Lewis, or Fenwicks, one or the other, a beautiful pair of gloves was on display, just like the ones I've just mentioned.
