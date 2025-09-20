@@ -584,7 +584,7 @@
 
 ## The British girl at the conservatory
 
-- I go to my piano lesson one Monday of this month.
+- I go to my piano lesson one Tuesday evening.
 - I am waiting outside on the bench; weirdly no-one else is around.
 - Suddenly, a girl of about 13 or 14 walks down the stairs.
 - She is giggly, smiley, and I expect now, high.
