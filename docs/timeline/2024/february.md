@@ -608,7 +608,7 @@
 - I realized this child must be a major target for the gangs shortly afterwards, and when I eventually realized I had been drugged continuously, even in classes at the conservatory, I realized that she too was high when she had walked down the stairs that evening, just as I realized the same about [the two girls Domingo had with him for me to see](../2022/june.md#maria-and-domingo) in June 2022.
 - They must have set this whole thing up for me to see.
 - The arrogance is staggering.
-- I warned the British embassy this girl, along with all the other children in what I believe to be imminent danger.
+- I warned the British embassy about this girl, along with all the other children in what I believe to be imminent danger.
 - They did not want to know. The reason I say this is because I was blocked from talking to them - they literally put the phone down on me one time - and my numerous emails and DMs were always ignored.
 
 ## Twitter
