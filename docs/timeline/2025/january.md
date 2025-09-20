@@ -4,6 +4,7 @@
 
 - The man that looks like the fraudster from H Samuels in 1989 bares his teeth at me.
 - Is he the same man [my brother spoke about in 2010](../early-years/2010.md#christmas-with-jitendra) that advised him how to get really high all the time, and he lost his mind in the process?
+- Good innit.
 
 ## Thoughts getting straight
 
