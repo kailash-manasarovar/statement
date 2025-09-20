@@ -175,8 +175,8 @@
 - I write a timeline of symptoms for her as it is so much to explain.
 
 ![Timeline 1](../../content/images/health-diagnosis-timeline/timeline-1.jpeg)
-![Timeline 3](../../content/images/health-diagnosis-timeline/timeline-3.jpeg)
 ![Timeline 2](../../content/images/health-diagnosis-timeline/timeline-2.jpeg)
+![Timeline 3](../../content/images/health-diagnosis-timeline/timeline-3.jpeg)
 
 - The only thing I missed on here was the snapped rib which happened three times and I believe due to weakened bone mass by poisoning.
 - I also give her the [PACS diagnosis](../../content/images/health-diagnosis-timeline/PACS-diagnosis.jpeg) and [kidney check result](../../content/images/health-diagnosis-timeline/kidney-check-BKK.jpeg) from BKK.
@@ -190,3 +190,4 @@
 
 !!! tip
     - RA symptoms in my hands seem to be completely gone now.
+    
