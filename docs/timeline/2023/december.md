@@ -421,6 +421,7 @@ function googleTranslateElementInit() {
 - Apparently she was flying back to Finland in the next few days, but he was from Germany and I wasn't sure where he was going. 
 - He may have been studying music in Spain. You don't usually bring an enormous cello on meditation trips to other countries, do you?
 - Nothing much of what she told me made sense.
+- I was so high, I drove (safely) like a maniac and, looking back, I think the Finnish lady was probably terrified. I'm happy to remember this, it was the very least she deserved.
 - When we arrived at their hostel, she told me she wanted to sing me a song.
 - She got her ukulele out and started to play.
 
