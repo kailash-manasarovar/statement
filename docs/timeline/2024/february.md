@@ -535,16 +535,41 @@
 ## European Court of Human Rights
 
 - On 26th February, I contact the European Court of Human Rights.
-- I have a similar experience to what happened when I tried to access the Guardia Civil cyber stalking and domestic violence pages.
-- I'm unable to find information about how to report what's going on for me.
-- I send a [message in a comment box](../../content/documents/letters/echr-message.pdf) instead, to which I never receive a reply.
-- Later that day, I get followed by fake accounts related to human rights. This is just one of them.
+- I have a similar experience to that which happened when I tried to access the [Guardia Civil cyber-stalking and domestic violence pages](#guardia-civil).
+- I'm unable to find any information about how to report what's going on for me.
+- I send a [message in a comment box](../../content/documents/letters/echr-message.pdf) instead.
+
+!!! info "My message to the ECHR"
+    Hello,</br> 
+    I am studying piano at the local conservatory here in Denia, Spain where I live. Staff and
+    teachers and their friends and families have engaged in a virulent campaign of harassment and
+    bullying towards me, primarily related to me turning one of the teachers down romantically here
+    in 2014 but also due to complaining about his behaviour around young girls. I used to live here
+    in 2014 but left in 2016. I returned in 2022 and recommenced my studies. The bullying was
+    supposed to get me to leave, and for their sexist sport too, but I didn't leave. My experience
+    with them has been appalling and I have been gang-stalked on social media and in the town.
+    They hacked my phone and computer and took private photos and recordings of me. They
+    involve the children at the school in the bullying. Everyone knows everything about me,
+    including extremely private health matters I only told Google. They know where I am physically
+    at all time and I believe they have tracked my phone or even my car. I just want to play the
+    piano and study music. I am a high earning tax payer and I pay my taxes to the town. I enjoy
+    living here. I have complained to the Generalitat on about 4 occasions but they ignore my
+    complaints completely and instead tell the teachers and staff at the conservatory immediately
+    everything I have said, even passing my letters to them. This puts me in more danger. I was
+    threatened with violence on social media by someone involved last week and I went to the
+    police about it. They told me there was no case and that musicians couldn't be cyber stalkers
+    too! I believe I am in danger as this teacher has local criminal family connections and has
+    threatened me with violence in the past. I believe this is why no-one talks to me too. I just want
+    to play the piano and it is my right as a tax-paying citizen of Denia and of the EU. I feel like I am
+    afforded no human rights as they have harassed and discriminated me due to my gender and
+    my right to say no to the romantic advances of a man in a position of authority.
+
+- I receive no reply from the ECHR.
+- Later that day, I'm followed by fake accounts related to human rights. 
+- This is just one of them.
 
 ![Human rights accounts](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-04%20at%2008.32.54.png)
 ![Human rights accounts](../../content/images/fake-accounts/human-rights-accs/Screenshot%202024-03-08%20at%2008.35.00.png)
-
-!!! note 
-    - The profile message: "WHAT THE UN HAS CALLED #CYBERTORTURE (A/HRC/43/49) #CYBERTORTURE IS BEING DONE TO ME. LINK TO COMPLAINTS PUBLISHED BY THE RAPPORTEUR FOR TORTURE, NILS MELZER".
 
 ## Searching for a security expert
 
