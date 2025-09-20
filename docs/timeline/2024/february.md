@@ -585,7 +585,8 @@
 ## The British girl at the conservatory
 
 - I go to my piano lesson one Tuesday evening.
-- I am waiting outside on the bench; weirdly no-one else is around.
+- I am waiting for class to start and sitting on the bench outside the classroom.
+- Weirdly, no-one else is around. There's usually a bunch of kids milling around.
 - Suddenly, a girl of about 13 or 14 walks down the stairs.
 - She is giggly, smiley, and I expect now, high.
 - I smile at her and she grins inanely at me.
