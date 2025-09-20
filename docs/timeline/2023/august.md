@@ -671,6 +671,31 @@ function googleTranslateElementInit() {
 
 ![Taming the snake](../../content/images/taming-the-snake.png)
 
+## Elbow-length white silk gloves
+
+- I see a fake account profile pic of a young girl.
+- I've seen this girl before and may see her again in August 2024 amongst the bombardment of porn I endure at that time.
+- The girl looks young, about 18.
+- She is naked and sitting on a sofa.
+- She looks upset.
+- She is wearing long, white, elbow-length silk gloves; they're like wedding-dress gloves with tassels down the sides.
+
+![Hand in glove](../../content/images/hand-in-glove.png)
+
+- When I was 16, just before I was terrorized and sexually abused by the Tottenham rape-gang, I worked at H Samuel in Brent X.
+- Incidentally, a man I [more recently saw in Thailand](../2024/december.md#threats) who bared his teeth at me may have come in one afternoon with a fake credit card.
+- Anyway.
+- On my lunch breaks I used to wander around the shops looking at things.
+- In John Lewis, or Fenwicks, one or the other, a beautiful pair of gloves was on display, just like the ones I've just mentioned.
+- I became obsessed with these gloves and had to have them. They were expensive too.
+- I bought them one Friday when I received my weekly paycheck of £95.
+- Did these gloves end up in sedated child gang-rape porn that teachers and staff at the conservatory had seen?
+- Seeing this photo immediately made me think of the gloves I used to have.
+- I think it was this image that started to open my eyes on what was really going on, but it was just a hint. 
+- I assume the intention on posting that to me was to trigger psychological and emotional trauma arising from severe sexual abuse.
+- It triggered something, an unusual memory, a connection to Winston May who would often repeat a phrase to me back in 1989, laughing hard as he did, "hand in glove".
+- I noted it.
+
 ## The hackers reveal themselves
 
 - It's near the end of the month and getting time to go back to Spain.

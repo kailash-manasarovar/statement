@@ -1,3 +1,9 @@
+# January 2025
+
+## Samui
+
+- The man that looks like the fraudster from H Samuels in 1989 bares his teeth at me.
+
 ## Thoughts getting straight
 
 - After three years, and having got rid of my toiletries, I am suddenly starting to see things more clearly.
