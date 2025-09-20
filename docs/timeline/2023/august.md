@@ -674,7 +674,7 @@ function googleTranslateElementInit() {
 ## Elbow-length white silk gloves
 
 - I see a fake account profile pic of a young girl.
-- I've seen this girl before and may see her again in August 2024 amongst the bombardment of porn I endure at that time.
+- I've seen this girl before and may see her again in August 2024 amongst [the bombardment of online porn I endure at that time](../2024/august.md#photos-of-abused-women-and-girls).
 - The girl looks young, about 18.
 - She is naked and sitting on a sofa.
 - She looks upset.
@@ -688,7 +688,7 @@ function googleTranslateElementInit() {
 - On my lunch breaks I used to wander around the shops looking at things.
 - In John Lewis, or Fenwicks, one or the other, a beautiful pair of gloves was on display, just like the ones I've just mentioned.
 - I became obsessed with these gloves and had to have them. They were expensive too.
-- I bought them one Friday when I received my weekly paycheck of £95.
+- I bought them one Friday when I received my weekly paycheck of £95. 
 - Did these gloves end up in sedated child gang-rape porn that teachers and staff at the conservatory had seen?
 - Seeing this photo immediately made me think of the gloves I used to have.
 - I think it was this image that started to open my eyes on what was really going on, but it was just a hint. 
