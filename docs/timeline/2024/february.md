@@ -540,8 +540,7 @@
 - I send a [message in a comment box](../../content/documents/letters/echr-message.pdf) instead.
 
 !!! info "My message to the ECHR"
-    Hello,</br> 
-    I am studying piano at the local conservatory here in Denia, Spain where I live. Staff and
+    Hello, I am studying piano at the local conservatory here in Denia, Spain where I live. Staff and
     teachers and their friends and families have engaged in a virulent campaign of harassment and
     bullying towards me, primarily related to me turning one of the teachers down romantically here
     in 2014 but also due to complaining about his behaviour around young girls. I used to live here
