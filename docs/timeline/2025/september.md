@@ -187,3 +187,7 @@
 - I tell her about my Transformational Touch work with Steve Terrell and how much it has helped me heal from trauma.
 - I also explain that I have asked numerous agencies; police, embassies, etc, for help and I have been ignored by everyone.
 - I tell her I do not feel safe in North London due to this.
+
+!!! tip
+    - RA symptoms in my hands seem to be completely gone now.
+    
