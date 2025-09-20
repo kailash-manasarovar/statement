@@ -190,4 +190,12 @@
 
 !!! tip
     - RA symptoms in my hands seem to be completely gone now.
+
+- She tells me to give my notes to the receptionist who will scan them into my file.
+- I do that.
+- As the receptionist is scanning my notes in, she suddenly remarks, "Oh, that's weird, the scanner's not working!"
+- Her tone sounds like the scanner *always* works.
+- I'm unsurprised at this development.
+- I ask her to please get these notes into my file in any way she can.
+- She photocopies them and tells me she'll do it later.
     
