@@ -588,6 +588,10 @@
 - I am waiting outside on the bench; weirdly no-one else is around.
 - Suddenly, a girl of about 13 or 14 walks down the stairs.
 - She is giggly, smiley, and I expect now, high.
+- I smile at her and she grins inanely at me.
+
+![The British girl in danger](../../content/images/british-girl-in-danger.png)
+
 - I know who she is.
 - She is the half-British/half-Ukrainian-or-Russian girl that I have seen singing in concerts.
 - She's beautiful, really lovely.
