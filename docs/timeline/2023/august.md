@@ -692,9 +692,8 @@ function googleTranslateElementInit() {
 - Did these gloves end up in the sedated child, gang-rape porn that the teachers and staff at the conservatory had seen?
 - Seeing this photo immediately made me think of the gloves I used to have.
 - I think it was this image that started to open my eyes on what was really going on, but it was just a hint. 
-- I assume the intention on posting that to me was to trigger psychological and emotional trauma arising from severe sexual abuse.
-- It triggered something, an unusual memory, a connection to Winston May who would often repeat a phrase to me back in 1989, laughing hard as he did, "hand in glove".
-- I noted it.
+- I assume the intention behind posting that to me was to trigger psychological and emotional trauma arising from severe and repeated sexual abuse.
+- It triggered something, an unusual memory, and another connection to Winston May who would often repeat a phrase to me back in 1989, laughing hard as he did, "hand in glove".
 
 ## The hackers reveal themselves
 
