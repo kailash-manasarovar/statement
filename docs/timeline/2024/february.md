@@ -649,7 +649,7 @@
 
 [![Trying to reason with them](../../content/tweets/february-2024/reasoning-1.png)](https://x.com/1FRGVN/status/1761507676171723144)
 
-- I post the profile pic that looks like an AI mix of my face with Hazel Smith's. Seeing her here really signifies the start of the cyber-terror-bombardment supporting the run up to my second *funeral* concert on [12th March 2024](march.md#tuesday-12th-march).
+- I post the profile pic that looks like an AI mix of my face with Hazel Smith's. Seeing her here really signifies the start of the cyber-terror-bombardment supporting the run up to my second *funeral* piano concert with the conservatory on [12th March 2024](march.md#tuesday-12th-march) at the Casa de Cultura in the town.
 
 [![Me and Hazey-wazey](../../content/tweets/february-2024/hazel.png)](https://x.com/1FRGVN/status/1763160058647429141)
 
