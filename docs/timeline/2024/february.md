@@ -611,12 +611,29 @@
 - I warned the British embassy about this girl, along with all the other children in what I believe to be imminent danger.
 - They did not want to know. The reason I say this is because I was blocked from talking to them - they literally put the phone down on me one time - and my numerous emails and DMs were always ignored.
 
-## Twitter
+## X.com
+
+- It is an enormous effort to go through all my tweets each month to assess whether they should be published here or not.
+- For that reason, I'm going to leave the task to a later date and just post a select few for February 2024.
+- The tweets from March 2024 and onwards are probably more interesting to law enforcement so we'll make a better effort when editing those sections.
+- This is not to say that there aren't very obvious patterns embedded in the constant online interactions with hackers and spy-cam pornographers which could possibly find markers highlighting the times I was hypnotized and sedated, and maybe even notice the text and image triggers used for this.
 
 ### `@1frgvn`
 
-- https://x.com/1FRGVN/status/1756669026153926765
-- https://x.com/1FRGVN/status/1756669472239129004
+- Here's me winding them up. I enjoyed this sort of thing and did it a lot. It gave me some power in what was ostensibly a powerless situation... I was a lab rat in a cage in truth, at least that's what everyone but me and God thought.
+
+[![Wind ups](../../content/tweets/february-2024/wind-ups-1.png)](https://x.com/1FRGVN/status/1756669026153926765)
+
+- Here's another.
+
+[![Wind ups](../../content/tweets/february-2024/wind-ups-2.png)](https://x.com/1FRGVN/status/1756669472239129004)
+
+- Here's one that confirms some of my concerns I was having about the little girls in skimpy clothes that made everyone cringe such as [Elvira at the choir concert](../2023/may.md#elvira) and all of Domingo's female minor child students at the [June 2022 audition](../2022/june.md#preparing-for-the-conservatory-audition).
+
+[![Wind ups](../../content/tweets/february-2024/wind-ups-3.png)](https://x.com/1FRGVN/status/1756609676563640497)
+
+- Really, all they have to do is ask, "Did your piano teacher tell you what to wear?", "Did he add you to WhatsApp groups and ask about Katharine all the time", etc. Again, I'm probably underestimating the evil that actually has occurred, as usual.
+
 - https://x.com/1FRGVN/status/1756609676563640497
 - https://x.com/1FRGVN/status/1712456797456359427
 - https://x.com/1FRGVN/status/1741728804320526343

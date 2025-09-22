@@ -168,8 +168,8 @@ function googleTranslateElementInit() {
 - It's such a specific thing, I started to wonder why women in porn would be wearing vest tops.
 - My assumption is it refers to rape; i.e. "we don't waste time undressing her properly".
 - When I figure this out, I remember Elvira at the choir concert and how concerned I had been about what she was wearing.
-- The trumpet teacher attended the choir concert and was in the audience.
-- Was he picking out his next victim?
+- The trumpet teacher attended the choir concert and was in the audience. This was the larger man of the three that came to the conservatory; the one that managed the [chamber music concert](#chamber-music-concert).
+- Was he picking out his next victims?
 - Was Elvira highlighted for him as being groomed and ready by what she was wearing?
 - Or was Domingo proudly demonstrating, yet again, just how much power he has over little girls?
 
