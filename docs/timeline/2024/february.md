@@ -655,4 +655,11 @@
 
 ### `JackChardwood`
 
-- https://x.com/JackChardwood/status/1761022632202236020
+- I'd forgotten about this tweet. 
+
+[![The swimmer](../../content/tweets/february-2024/the-swimmer.png)](https://x.com/JackChardwood/status/1761022632202236020)
+
+- This is in reference to the strange emotional experiences I was having in [January](january.md#the-photographer) related to online activity and, I believe, drugging.
+- I have either gotten the timing wrong in January and instead this happened in February and I managed to have enough mental-stability to screenshot it, *or*, more likely in my view I saw it again in February, recognized it, and screenshot it at that time.
+- Usually when I saw something online for the first time, there wasn't enough justification for a screenshot, so I believe it likely I saw it again, or this pic is similar enough to the original. It's difficult to say.
+- I wonder if this sort of thing is a signpost to specific moments-in-time in which I am enduring the hypno-technology and, coupled with whatever they're managing to spike me with, means I'm having strong emotional and psychological responses.
