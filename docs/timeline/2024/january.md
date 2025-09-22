@@ -289,8 +289,7 @@ function googleTranslateElementInit() {
 - And yet, the conflict with the horrible reality in Dénia made no sense at all.
 - It was excruciating, but I had to go on.
 - Now I wonder if I had just become extraordinarily psychic on whatever hallucinogens I was ingesting at the time, which clearly became even more potent after intense TT healing sessions.
-- Was I simply confusing the mind-connectivity I was certainly having with something, or someone, else. 
-- Remember. I have poetic license now.
+- It looks like I see this photo, or similar, again in [February and screenshot it](../../content/tweets/february-2024/the-swimmer.png).
 
 ### Therapy table
 
