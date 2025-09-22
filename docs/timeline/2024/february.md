@@ -628,7 +628,7 @@
 
 [![Wind ups](../../content/tweets/february-2024/wind-ups-2.png)](https://x.com/1FRGVN/status/1756669472239129004)
 
-- Here's one that confirms some of my concerns I was having about the little girls in skimpy clothes that made everyone cringe such as [Elvira at the choir concert](../2023/may.md#elvira) and all of Domingo's female minor child students at the [June 2022 audition](../2022/june.md#preparing-for-the-conservatory-audition).
+- Here's one that confirms some of my concerns I was having about the little girls in skimpy clothes that made everyone cringe such as [Elvira at the choir concert](../2023/may.md#elvira) and all of Domingo's female minor child students at the [June 2022 audition](../2022/june.md#conservatory-audition).
 
 [![Wind ups](../../content/tweets/february-2024/wind-ups-3.png)](https://x.com/1FRGVN/status/1756609676563640497)
 
