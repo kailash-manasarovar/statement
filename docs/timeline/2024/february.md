@@ -620,7 +620,7 @@
 
 ### `@1frgvn`
 
-- Here's me winding them up. I enjoyed this sort of thing and did it a lot. It gave me some power in what was ostensibly a powerless situation... I was a lab rat in a cage in truth, at least that's what everyone but me and God thought.
+- Here's me winding them up. I enjoyed this sort of thing and did it a lot. It gave me some power in what was ostensibly a powerless situation... I was a lab rat in a cage in truth, at least that's what everyone except me and God thought.
 
 [![Wind ups](../../content/tweets/february-2024/wind-ups-1.png)](https://x.com/1FRGVN/status/1756669026153926765)
 
@@ -633,12 +633,25 @@
 [![Wind ups](../../content/tweets/february-2024/wind-ups-3.png)](https://x.com/1FRGVN/status/1756609676563640497)
 
 - Really, all they have to do is ask, "Did your piano teacher tell you what to wear?", "Did he add you to WhatsApp groups and ask about Katharine all the time", etc. Again, I'm probably underestimating the evil that actually has occurred, as usual.
+- Indeed, I always had the total lack safety of the children in mind, and still do. Here's a tweet from October before which I may have retweeted a few times.
 
-- https://x.com/1FRGVN/status/1756609676563640497
-- https://x.com/1FRGVN/status/1712456797456359427
-- https://x.com/1FRGVN/status/1741728804320526343
-- https://x.com/1FRGVN/status/1761507676171723144
-- https://x.com/1FRGVN/status/1763160058647429141
+[![Worst of the worst](../../content/tweets/october-2023/the-end-is-nigh.png)](https://x.com/1FRGVN/status/1712456797456359427)
+
+- I retweet this tweet about Elon Musk's potential involvement in all this.
+
+[![Elon Musk warning](../../content/tweets/february-2024/wind-ups-and-warnings.png)](https://x.com/1FRGVN/status/1741728804320526343)
+
+- I'm referring to this tweet.
+
+[![Gang stalking by government officials](../../content/tweets/august-comms/jackchardwood/gang-stalking-by-government-officials.png)](https://x.com/JackChardwood/status/1691331499881041920)
+
+- I also often attempted to reason with them. What I was enduring made no sense at all so it always seemed to me that they might just get bored and decide to stop. I had no idea there was *so much at stake!*
+
+[![Trying to reason with them](../../content/tweets/february-2024/reasoning-1.png)](https://x.com/1FRGVN/status/1761507676171723144)
+
+- I post the profile pic that looks like an AI mix of my face with Hazel Smith's. Seeing her here really signifies the start of the cyber-terror-bombardment supporting the run up to my second *funeral* concert on [12th March 2024](march.md#tuesday-12th-march).
+
+[![Me and Hazey-wazey](../../content/tweets/february-2024/hazel.png)](https://x.com/1FRGVN/status/1763160058647429141)
 
 ### `JackChardwood`
 
