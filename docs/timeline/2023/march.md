@@ -107,7 +107,7 @@ function googleTranslateElementInit() {
 
 ![Valentine crying](../../content/images/valentine-crying.jpeg)
 
-- Interestingly enough, if one was having a relationship with an actual saint, I suspect it might feel as least as intense as I felt it.
+- Interestingly enough, if one was having a relationship with an actual saint, I suspect it might feel at least as intense as I felt it.
 
 ### A simple wooden box on the sofa
 
