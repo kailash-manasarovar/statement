@@ -74,8 +74,10 @@ function googleTranslateElementInit() {
 
 - The following morning I cannot get the man out of my head, it is excruciating.
 - I believe I am in love with this man, and that he loves me back.
-- Something is very, very wrong.
-- I wake up and sit with my hands in my head. My thoughts are like a hurricane.
+- I have never felt anything so powerful and wonderful in all my life.
+- But something is very, very wrong.
+- I wake up and sit with my head in my hands.
+- My thoughts are like a hurricane.
 - I tweet about this in August 2023, when hackers start to reveal themselves to me and communication begins in earnest.
 
 ![I held you in my arms](../../content/images/i-held-you-in-my-arms.png)
@@ -84,12 +86,13 @@ function googleTranslateElementInit() {
 
 - As I'm sitting at the end of my bed, distressed, I hear a loud voice say: "He is not for you."
 - I have no idea where this voice comes from.
-- I don't believe this voice.
+- I do not believe this voice.
 
 !!! tip "Suggestions through the walls"
     - I'm wondering if sometimes the neighbors who were involved in the conspiracy, probably the upstairs ones, were able to speak directly to me through the walls of my apartment (given the walls were so thin and you can hear everything).
     - If I was being drugged and in a very confused state, a statement like "He is not for you" might appear to be coming from my own mind.
     - It was an alien thought.
+    - Another option is that it could have come from my phone which was on the bedside table.
     - The question is, why would the criminals want me to think that he was not for me on top of wanting me to believe there is a relationship?
     - Is it because there were so many other men they were filming me with, they needed me to be unsure of everything I was thinking and feeling?
     - Do they do the sobbing trick to all the girls?
@@ -97,6 +100,14 @@ function googleTranslateElementInit() {
     - Maybe he had fallen in love first, maybe years before, and briefly, in that moment, he became aware of the enormity of his mistakes?
 
     ![Sobbing again](../../content/images/sobbing-2.png)
+
+#### Valentine
+
+- When I look back at this strange event, it was as if I was holding St Valentine himself in my arms as he sobbed his eyes out.
+
+![Valentine crying](../../content/images/valentine-crying.jpeg)
+
+- Interestingly enough, if one was having a relationship with an actual saint, I suspect it might feel as least as intense as I felt it.
 
 ### A simple wooden box on the sofa
 
