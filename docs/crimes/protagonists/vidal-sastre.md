@@ -30,14 +30,14 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - I never stopped having an extremely good feeling about this man.
 - I only have four solid memories of him where I'm not confusing him with someone else:
 
-    - The time we sat together in class and [I believed he was fundamentally on my side and conspiring with me against Domingo](../timeline/2023/february.md#plot-awareness). My words on that evening upset him; he understood what I was doing and the way I rewrote the nature of the conspiracy felt right to him.
-    - The time not long after when I remember waking up in my bed at home and he was [crying in my arms](../timeline/2023/march.md#dreaming-of-the-trumpet-teacher).
+    - The time we sat together in class and [I believed he was fundamentally on my side and conspiring with me against Domingo](../../timeline/2023/february.md#plot-awareness). My words on that evening upset him; he understood what I was doing and the way I rewrote the nature of the conspiracy felt right to him.
+    - The time not long after when I remember waking up in my bed at home and he was [crying in my arms](../../timeline/2023/march.md#dreaming-of-the-trumpet-teacher).
     - There was another time I saw him in class for a minute or two, and I was delighted to see him again - now I understand it was unexpectedly - and I smiled and he ignored me, looking sad and downwards, as I said goodbye and left for the evening.
-    - Then, when the attraction-trick stopped working so well, I guess, and they decided to [wheel him out again](../timeline/2023/december.md#the-trumpet-teacher-has-a-brother) so I could be re-triggered, and I thought it was the trumpet teacher's twin brother!
+    - Then, when the attraction-trick stopped working so well, I guess, and they decided to [wheel him out again](../../timeline/2023/december.md#the-trumpet-teacher-has-a-brother) so I could be re-triggered, and I thought it was the trumpet teacher's twin brother!
 
 - This is the man I was convinced I loved and who loved me back. 
 
-    ![The real trumpet teacher](../content/images/hornero/hh1.png)
+    ![The real trumpet teacher](../../content/images/hornero/hh1.png)
 
 - This is an old picture, the man is about 10 years older now. However, this younger picture demonstrates the likeness between him and the [next bloke I mention](#the-brother-or-mark-from-english-class-in-2013) who must be a family relation of some sort.
 - I wonder if the gypsies made sure that one of the men would be someone I was strongly attracted to in order for the trick to work?
@@ -49,21 +49,21 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ### The brother, or Mark from English class in 2013
 
-- Another man reminded me of [Mark from English class in 2013](../timeline/early-years/2008.md#working-for-lorraine-blackbourn).
+- Another man reminded me of [Mark from English class in 2013](../../timeline/early-years/2008.md#working-for-lorraine-blackbourn).
 - He was the larger, taller, darker, more lumbering man that looked enough like the [older, slimmer man](#the-older-slimmer-greyer-man) for me to mistake them after what I assume had been some sort of [sedated psychological mistaking-people training](#sedated-training-for-recognizing-faces).
-- He was someone I had [found attractive when I met him in 2013](../timeline/early-years/2008.md#working-for-lorraine-blackbourn) in my English class when I worked for Lorraine Blackbourn.
+- He was someone I had [found attractive when I met him in 2013](../../timeline/early-years/2008.md#working-for-lorraine-blackbourn) in my English class when I worked for Lorraine Blackbourn.
 - It's likely this man is related to Lorraine Blackbourn's ex-husband and indeed was of the same size and shape, and facial features.
 - He was the man I saw most often at the conservatory, and I was always anxious around him.
 - I remember seeing this man numerous times, including but not limited to the following examples:
 
-    - He was the man [Patricia Penny *introduced* me to in Benijembla](../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class.
-    - He was the man that [stalked me at Lourdes](../timeline/2021/july.md#the-portuguese-man-next-door).
-    - At the first class in [November 2022](../timeline/2022/november.md#the-trumpet-teacher) there he was hovering over Ana Requena after timing a meeting at the toilet.
-    - He was the man involved in [poisoning me by overdose](../timeline/2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice.
-    - He was the man who brought the music sheets from Gloria and [handed me his phone](../timeline/2023/march.md#the-trumpet-teacher-hands-me-his-phone).
-    - The man who [was angry at me](../timeline/2023/april.md#back-in-chamber-music-class) after I followed the `@jctot19` account.
-    - The man who switched with [the other large man](#an-unknown-man-i-may-have-a-picture-of) right at the end of the [May 2023 concert](../timeline/2023/may.md#chamber-music-concert).
-    - The man who led my *funeral* on [12th June 2023](../timeline/2023/june.md#monday-12th-june-2023).
+    - He was the man [Patricia Penny *introduced* me to in Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class.
+    - He was the man that [stalked me at Lourdes](../../timeline/2021/july.md#the-portuguese-man-next-door).
+    - At the first class in [November 2022](../../timeline/2022/november.md#the-trumpet-teacher) there he was hovering over Ana Requena after timing a meeting at the toilet.
+    - He was the man involved in [poisoning me by overdose](../../timeline/2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice.
+    - He was the man who brought the music sheets from Gloria and [handed me his phone](../../timeline/2023/march.md#the-trumpet-teacher-hands-me-his-phone).
+    - The man who [was angry at me](../../timeline/2023/april.md#back-in-chamber-music-class) after I followed the `@jctot19` account.
+    - The man who switched with [the other large man](#an-unknown-man-i-may-have-a-picture-of) right at the end of the [May 2023 concert](../../timeline/2023/may.md#chamber-music-concert).
+    - The man who led my *funeral* on [12th June 2023](../../timeline/2023/june.md#monday-12th-june-2023).
 
 - I don't have a picture of this man but would recognize him immediately.
 - Its possible there's still two men in this section. One man who looked a lot like the first man and could have been his younger brother, and another who looked more like the darker, meaner-looking Mark character I mention here.
@@ -71,14 +71,14 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ### An unknown man I may have a picture of
 
 - There was a similarly tall but even larger lumbering man that I remember seeing a few times.
-- He was the man who organized and managed the [chamber music concert](../timeline/2023/may.md#chamber-music-concert) with Carmen Cano in attendance (masquerading or not) as Pablo's mum.
+- He was the man who organized and managed the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) with Carmen Cano in attendance (masquerading or not) as Pablo's mum.
 - He had a soft pleasant voice and he was the man who left messages on my phone.
-- He was the man I spoke to who [mentioned a *double session* in a perverted way](../timeline/2023/may.md#teb-with-robin) the night before I saw possible evidence of being anally raped.
+- He was the man I spoke to who [mentioned a *double session* in a perverted way](../../timeline/2023/may.md#teb-with-robin) the night before I saw possible evidence of being anally raped.
 - He did look like an older version of the young man in the middle of this picture with his arms around two siblings (I assume).
 
-![Vigas](../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
+![Vigas](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
 
-- The younger brother in the pic looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../timeline/2024/march.md#wednesday-13th-march) right before I became convinced I was going to be murdered.
+- The younger brother in the pic looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../../timeline/2024/march.md#wednesday-13th-march) right before I became convinced I was going to be murdered.
 - I'm not sure I have any more solid memories of this man at the conservatory.
 - The girl in this picture is very familiar, I don't know why.
 - I'm guessing everyone in Dénia and the Marina Alta region knows this man.
@@ -87,53 +87,54 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - There was another man I have a few memories of which I have already documented.
 - I don't remember him ever being at the conservatory.
-- I remember him [in my bed calling my name](../timeline/2023/april.md#dreaming-of-the-trumpet-teacher).
-- He was the man I saw in the banged up Peugeot on the 11th June 2023, [the day before my *funeral*](../timeline/2023/june.md#sunday-11th-june) and [driving past me at the beach with the doctor in the passenger seat](../timeline/2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me), and [driving Ana Requena's blue car slowly past me](../timeline/2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car).
-- He was also reminiscent of [Patricia Penny's husband](../timeline/2021/december.md#christmas) and the [man who came out to terrorize me on Halloween](../timeline/2023/october.md#halloween) but not exactly the same - those two men could well be the same man.
+- I remember him [in my bed calling my name](../../timeline/2023/april.md#dreaming-of-the-trumpet-teacher).
+- He was the man I saw in the banged up Peugeot on the 11th June 2023, [the day before my *funeral*](../../timeline/2023/june.md#sunday-11th-june) and [driving past me at the beach with the doctor in the passenger seat](../../timeline/2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me), and [driving Ana Requena's blue car slowly past me](../../timeline/2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car).
+- He was also reminiscent of [Patricia Penny's husband](../../timeline/2021/december.md#christmas) and the [man who came out to terrorize me on Halloween](../../timeline/2023/october.md#halloween) but not exactly the same - those two men could well be the same man.
 - This trumpet player, at the *funeral* of the young girl behind him, looks like him. 
 
-![The dark curly-haired man with the big legs](../content/images/hornero/tt-1-again.png)
+![The dark curly-haired man with the big legs](../../content/images/hornero/tt-1-again.png)
 
 - You'll notice Carmen Cano was in attendance here too. She gets around doesn't she.
 
-[![Youtube](../content/images/youtube-video.png)](../timeline/2023/june.md#youtube)
+[![Youtube](../content/images/youtube-video.png)](../../timeline/2023/june.md#youtube)
 
 - I'm pretty sure these films they're so happy and safe to publish are the porn-genre adverts.
 - Could this be him as a young man?
 
-![The deep-set man](../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
+![The deep-set man](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
 
-- Although I did think I saw the grown-up version of this person on the beach on [6th October 2024](../timeline/2024/october.md#sunday-6th-october) and have a body cam image of that man who was very different looking, short and quite ugly. Perhaps they're related.
-- I believe this is also the man who [interviewed me for a tech job where I'd be looking at genitals all day](../timeline/early-years/2016.md#march) in 2016; a man I saw online and in-person.
-- They are certainly the man depicted on the [book cover](../index.md).
+- Although I did think I saw the grown-up version of this person on the beach on [6th October 2024](../../timeline/2024/october.md#sunday-6th-october) and have a body cam image of that man who was very different looking, short and quite ugly. Perhaps they're related.
+- I believe this is also the man who [interviewed me for a tech job where I'd be looking at genitals all day](../../timeline/early-years/2016.md#march) in 2016; a man I saw online and in-person.
+- They are certainly the man depicted on the [book cover](../../index.md).
 - I'm guessing everyone in Dénia knows this man.
 
 ### The L'Amistat Quart band
 
 - When you do an online search for *Vidal Sastre Sanchez Hornero*, the first result that comes up is for a band  called the [Musical Group of Friendship](https://www.lamistatquart.com/), a band located in Quart de Poblets, an area of Valencia city.
 
-![L'amistat quart](../content/images/hornero/search-results.png)
+![L'amistat quart](../../content/images/hornero/search-results.png)
 
 - Interestingly, the URL and the name of the band plus the location suggest **four friends**, a reference not lost on me now.
 - Vidal Sastre Sanchez Hornero is listed as the director of the band.
 - The band is supported by numerous government organizations - at least the website says so - including the Generalitat.
-- This is the band where we see [a young girl's *funeral* taking place](../timeline/2023/june.md#youtube), just like [mine](../timeline/2023/june.md#monday-12th-june-2023) and, just like me, the experience will have been utterly life changing and not in a good way.
+- This is the band where we see [a young girl's *funeral* taking place](../../timeline/2023/june.md#youtube), just like [mine](../../timeline/2023/june.md#monday-12th-june-2023) and, just like me, the experience will have been utterly life changing and not in a good way.
 - There are other significant creepy videos of this band performing, some of which I have already mentioned in this statement.
 - When I read the website text previously, I noticed a statement about the female members of the band that made me shudder a little. It said something like, "and we have the unconditional support of all the girls".
 
 #### The best band in the Valencian region
 
-- Further down the list, we see a newspaper article dated 21st October 2024; just as I was about to return home from Fatima and be [severely poisoned in my apartment](../timeline/2024/october.md#serious-poisoning-with-intent-to-harm-or-kill).
+- Further down the list, we see a newspaper article dated 21st October 2024; just as I was about to return home from Fatima and be [severely poisoned in my apartment](../../timeline/2024/october.md#serious-poisoning-with-intent-to-harm-or-kill).
+- One wonders if this was *quite* the alibi for a murder everyone knew was going to happen? And then didn't.
 - The article states the band is the best in the region.
 - We wonder, best at what?
 - [Trumpet teacher number one](#the-older-slimmer-greyer-man) stands proudly amongst the men receiving their awards at the prestigious Palau de Arts.
 
-![Award for the band of merry perverts](../content/images/hornero/newspaper.png).
+![Award for the band of merry perverts](../../content/images/hornero/newspaper.png).
 
 - He is also given a special mention of honor!
 - Perhaps we are seeing here what happens when the leaders of a culture completely lost to porn and violence against women and children start feeling a little nervous, or is it just ironic timing.
-- I do wonder if the Vidal Sastre Sanchez Hornero character is one of the other men.
-- If not, I wonder what this poor man I loved so intensely is thinking at this moment.
+- I do still wonder if the Vidal Sastre Sanchez Hornero character is one of the other men in this picture.
+- Regardless, I do wonder what this poor man I loved so intensely is thinking at this moment.
 - Surely the stress must be excruciating.
 
 #### Email address
@@ -142,7 +143,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - My guess is this is used to communicate with targeted women.
 - I used it a few times, long after they hoped I would I expect.
 - I wonder how many other women and girls have tried to contact someone they thought they were in love with in this way?
-- You can read [my emails here](../content/images/hornero/mail-to-vssh.pdf).
+- You can read [my emails here](../../content/images/hornero/mail-to-vssh.pdf).
 - In October 2025, I find it fascinating to follow the trail of my mind's emergence into clarity and see exactly how effective the attack was on me while it was in full operation while I rented my lovely home in Dénia.
 
 ### Sedated training for recognizing faces
@@ -156,12 +157,12 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Was the enormous and exaggerated anxiety I felt just after the attack on the 12th June 2023 in fact (and it makes much more sense to be) due to the grand rape-gang finale having occurred at my house that night?
 - Could part of the mind training and manipulation (*rehearsals* he called it at class) have included staring at me full in the face while I was sedated and my eyes were open and I was looking straight at them so I would recognize their faces in real life?
 - If they had assaulted me prior to June 12th 2023, I would have found them frightening in real life, and I didn’t, although they gave me a bad feeling that made me anxious and recoil… apart from the first older man who I never stopped having an extremely good feeling about.
-- From 12th June 2023, I *did* find him frightening, and ran away when [I saw one of them at Alicante airport](../timeline/2023/june.md#sunday-18th-june-alicante-airport); I believe this one was the [unknown man that led the chamber music class](#an-unknown-man-i-may-have-a-picture-of) so it is likely sedated rape had begun.
+- From 12th June 2023, I *did* find him frightening, and ran away when [I saw one of them at Alicante airport](../../timeline/2023/june.md#sunday-18th-june-alicante-airport); I believe this one was the [unknown man that led the chamber music class](#an-unknown-man-i-may-have-a-picture-of) so it is likely sedated rape had begun.
 - This whole process is so professional, so finely-tuned; none of them felt they were taking *any risk at all*. They must have done the same to hundreds, perhaps thousands of women and girls.
 
 ### The Truwoman Show or Please Turn My Wife into a Porn Star
 
-![Truman Show](../content/tweets/truman.png)
+![Truman Show](../../content/tweets/truman.png)
 
 - I’m guessing this is a porn genre and many millions of men and porn addicts internationally know about it, particularly in Spain.
 - A great deal of police will be subscribers.
@@ -169,7 +170,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - The series probably includes a live-streamed gang-rape as  grander-grand finale in which the target is not sedated and recognizes all the men that have been *training* her.
 - They must charge exorbitant fees for this.
 - I wouldn't be surprised if this has killed women and girls outright with the shock; something the pornographers hope for probably as the more horrible for the victim, the more money they make.
-- Women like [Rocio Vidal](../timeline/2023/october.md#rocio-vidal) and the sports woman I mentioned in [my handwritten letters](../timeline/2024/august.md#the-letters) are likely viable targets requested by paying viewers and maybe blackmailed into participating rather than sedated (especially if they're famous).
+- Women like [Rocio Vidal](../../timeline/2023/october.md#rocio-vidal) and the sports woman I mentioned in [my handwritten letters](../../timeline/2024/august.md#the-letters) are likely viable targets requested by paying viewers and maybe blackmailed into participating rather than sedated (especially if they're famous).
 - It must be common knowledge across the world, and that’s fundamentally why all my complaints are ignored.
 - The perverts have certainly evolved over the years from targeting wealthy women with body-cams to setting up a kind of Truwoman Show in people's homes… just another sickly-inventive way men have found to delight and get boners at the destruction of women and now children too.
 - This is the *only explanation* for the enormous resources spent on terrorizing me. 
@@ -185,9 +186,9 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - We were all horrified at the Gisele Pelicot case; but perhaps this is considered completely acceptable by pornographers and billions of porn viewers.
 - I guess the paying viewers feel like they've not quite reached the vileness of child or baby rape but at least they're still getting a sexual hit off something equally abhorrent towards women and girls.
 - I wonder if the audiences can request the gangs target their wives or girlfriends, or colleagues maybe, a sort of evolved *reader's-wives*.
-- Is this what happened to [Mrs Lara](../evidence/maybes.md#alice-lara), and Lorraine found out somehow… and reported… and was ignored... and was then targeted online and manipulated into killing herself?
+- Is this what happened to [Mrs Lara](../../evidence/maybes.md#alice-lara), and Lorraine found out somehow… and reported… and was ignored... and was then targeted online and manipulated into killing herself?
 - Was Mike Wenham manipulated into everything he did too? If so, for what purpose.
-- Is this the backdrop to many of my professional experiences, especially [Polygon](../timeline/2023/november.md#polygon)?
+- Is this the backdrop to many of my professional experiences, especially [Polygon](../../timeline/2023/november.md#polygon)?
 
 ### My role
 
@@ -208,42 +209,42 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ### Notes on my investigation
 
-- This is the name given to the trumpet teacher who turned up to teach class very sporadically starting at the [end of November 2022](../timeline/2022/november.md#the-trumpet-teacher).
+- This is the name given to the trumpet teacher who turned up to teach class very sporadically starting at the [end of November 2022](../../timeline/2022/november.md#the-trumpet-teacher).
 - The bait.
 - I found it hard to believe that this man's name is Vidal Sastre Sanchez Hornero, unless these criminal gangs are so arrogant and protected, they don't bother hiding themselves.
 - This is the name registered in the Generalitat Valenciana systems, even today. 
 - Curiously a government official told me no record of the person could be found at the same time I was looking at his name on official Generalitat government lists.
 
-![Generalitat list](../content/images/hornero/guv-records.png)
+![Generalitat list](../../content/images/hornero/guv-records.png)
 
 - He is apparently the director of a [band in Valencia](https://www.lamistatquart.com/) and this fits with his original story.
 - There are a bunch of references for the name online, including references which come from the Generalitat's formal lists of teachers.
 
-![Horn refs](../content/images/hornero/horn-refs.jpg)
+![Horn refs](../../content/images/hornero/horn-refs.jpg)
 
 - It's hard to believe there's no reference for him. He may have been working unofficially with the conservatory of Dénia, but they gave him a pension while doing so.
 - Online references include a number of pictures of the man who turned up to teach classes.
 
-![Hornero 1](../content/images/hornero/horn-pic-1.jpg)
-![Hornero 2](../content/images/hornero/horn-pic-2.jpg)
-![Hornero 3](../content/images/hornero/horn-pic-3.jpg)
+![Hornero 1](../../content/images/hornero/horn-pic-1.jpg)
+![Hornero 2](../../content/images/hornero/horn-pic-2.jpg)
+![Hornero 3](../../content/images/hornero/horn-pic-3.jpg)
 
 - It's not clear if the man below is the same man as in the previous pictures, but I recognize him too.
 
-![Hornero 4](../content/images/hornero/horn-pic-4.jpg)
+![Hornero 4](../../content/images/hornero/horn-pic-4.jpg)
 
 - The pictures show the man who taught the class on Monday evenings that I attended. At least, I look at all these pictures and remember them as being the "trumpet teacher" who turned up to class sporadically on Mondays.
 - But there are another bunch of pictures of this person who look like someone completely different to the men above.
 
-![TT1](../content/images/hornero/tt-1.png)
-![TT1](../content/images/hornero/tt-1-again.png)
-![TT1](../content/images/hornero/tt-1-again-2.png)
+![TT1](../../content/images/hornero/tt-1.png)
+![TT1](../../content/images/hornero/tt-1-again.png)
+![TT1](../../content/images/hornero/tt-1-again-2.png)
 
 - I recognize this man too as being the "trumpet teacher" that took classes on a Monday evening.
 - While I'm writing out my statement, I realize with horror there is more than one trumpet teacher.
-- Another picture I recognized as him was from [the video of another girls "funeral"](../content/images/youtube-video.png) I had found in June 2023, in Dublin, when I was severely traumatized after the events of [12th June 2023](../timeline/2023/june.md#monday-12th-june-2023).
+- Another picture I recognized as him was from [the video of another girls "funeral"](../../content/images/youtube-video.png) I had found in June 2023, in Dublin, when I was severely traumatized after the events of [12th June 2023](../../timeline/2023/june.md#monday-12th-june-2023).
 - However, on looking at these pictures, I believe I remember another man, who looked dissimilar again. 
-- If this is true, seemingly I became confused about these people being the same person, probably because I was [on drugs without my knowledge](../timeline/2023/january.md#serious-poisoning-at-chamber-music-class), and probably because the online NLP/hypnosis hypno-tech was set up with that intention.
+- If this is true, seemingly I became confused about these people being the same person, probably because I was [on drugs without my knowledge](../../timeline/2023/january.md#serious-poisoning-at-chamber-music-class), and probably because the online NLP/hypnosis hypno-tech was set up with that intention.
 - Curiously, online face comparison tools say that none of the above pictures are of the same person.
 
 !!! tip "What?"
@@ -258,10 +259,10 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     - Anyone making a complaint would be easily dismissed, not least because everyone else is aware there is a target and what's happening to her, and that this is protected by the highest authority of the land.
     - And if they really wanted to make sure she was confused about what she was seeing, they might try to blind her, perhaps with low-level continuous methanol doses direct into the water supply at her apartment, or if she's really feisty why not just spray all her clothes and belongings in high dose pesticides.
 
-- Did Pablo ask the trumpet teacher when he turned up [where the other guy was](../timeline/2023/january.md#chamber-music-classes-continue)?
+- Did Pablo ask the trumpet teacher when he turned up [where the other guy was](../../timeline/2023/january.md#chamber-music-classes-continue)?
 - One of my suspicions now is that this name probably relates to a group of criminals who control women by drugging them whilst having full root access to their online devices and using some sort of social media hacking app which can change the timeline or the UI with ease. 
 - It's not such an advanced piece of software, actually, and would just mean having some AI tool ready to rewrite the HTML on a target's machine with specific messages or pictures.
-- In the past, sexually coercive behavior like this would usually be undertaken by pimps and perverts with the end goal of enticing and trapping women in the sex "industry" and this is certainly in keeping with the content the gangs shared with me online, such as [the pictures of the lady who went from innocent girl to hardcore porn activity](../timeline/2024/august.md#photos-of-abused-women-and-girls).
+- In the past, sexually coercive behavior like this would usually be undertaken by pimps and perverts with the end goal of enticing and trapping women in the sex "industry" and this is certainly in keeping with the content the gangs shared with me online, such as [the pictures of the lady who went from innocent girl to hardcore porn activity](../../timeline/2024/august.md#photos-of-abused-women-and-girls).
 - In the past, this bait-and-switch activity would have been undertaken directly in physical settings, clubs and societies, bars, etc., and of course still is.
 - However, the sexual coercion techniques used in Dénia and the region has taken a new and extremely troubling turn.
 - Criminals and other bad actors are now able to access a person's private home network and devices in a remarkably easy way. From there, malicious actors can monitor and control all online activity, paying close attention to finances and anything incriminating.
@@ -273,10 +274,10 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - With such access, criminals can manipulate and intimidate a woman or child via their social media and other online activity.
 - Is this how children are being coerced online into sending sexually explicit pictures of themselves for a pedophile porn market?
-- If a target is physically present, and being drugged as well, like perhaps the [flautist in this video](../timeline/2023/june.md#youtube), then it is highly likely they will eventually suffer a sedated sexual assault, or be manipulated into something apparently consensual, and then be put on porn networks without their consent.
+- If a target is physically present, and being drugged as well, like perhaps the [flautist in this video](../../timeline/2023/june.md#youtube), then it is highly likely they will eventually suffer a sedated sexual assault, or be manipulated into something apparently consensual, and then be put on porn networks without their consent.
 - Here's another reference to a "funeral" or "sale" of a groomed young woman from the band in Valencia.
 
-![Hornero activity funeral home](../content/images/hornero/horn-funerals-1.png)
+![Hornero activity funeral home](../../content/images/hornero/horn-funerals-1.png)
 
 - "Se la rifaron" means, they sold her off.
 - Notice at a certain point in the performance, the trumpet player plays in a very sexually suggestive manner, *stripper style*.
@@ -289,7 +290,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Could Antonio have been simply used as bait for a sinister sex gang operating and controlling the region's conservatories?
 - Were his children in danger of kidnap, as he suggested online to me at one point?
 - Whoever these people are, they are proud of their behavior, and arrogant enough to showcase their "controlling young girls" activity on [YouTube](https://www.youtube.com/@saxofonator/search?query=vidal%20sanchez%20sastre%20horneros).
-- It appears that all attacks, or "funerals" of women are videoed and shared, and certainly my "funeral" on [12th June 2023](../timeline/2023/june.md#monday-12th-june-2023), was excitedly recorded on the mobile phones of all present, including teachers, staff, and students.
+- It appears that all attacks, or "funerals" of women are videoed and shared, and certainly my "funeral" on [12th June 2023](../../timeline/2023/june.md#monday-12th-june-2023), was excitedly recorded on the mobile phones of all present, including teachers, staff, and students.
 
 !!! danger "Shocking"
     - If I'm right about this, then the children of the conservatory would also have to be somewhat complicit in the deception and targeting of female students by countless adult males and their female assistants.
@@ -303,35 +304,35 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Another version of events is that if this person, having the name Vidal SSH, *is* one of the men in the pictures above, he may have been set up to be the fall-guy if anything went wrong in the original plan.
 - His attendance at the conservatory could have been a cover for the other man, a known criminal from the local area.
 - In this scenario, and following a recent tip from a reliable anonymous source, I was informed that one of the men in the pictures above was under investigation for sexual grooming at the time he visited the conservatory in 2022/23.
-- If this is true, and the [pictures and videos](../timeline/2023/june.md#youtube) made very public do seem to suggest he was involved in some sort of grooming gang scenario, then could the criminal porn gangs have needed someone to play a part to hide the fact that real pimps and pornographers were entering the conservatory freely to do whatever they liked?
+- If this is true, and the [pictures and videos](../../timeline/2023/june.md#youtube) made very public do seem to suggest he was involved in some sort of grooming gang scenario, then could the criminal porn gangs have needed someone to play a part to hide the fact that real pimps and pornographers were entering the conservatory freely to do whatever they liked?
 - And who better than someone already under suspicion for similar crimes?
 - What a hell these poor people are living in!
 
 ## The *other* trumpet teacher
 
 - The man in any of the pictures above is only half (or a quarter) of the man I remember.
-- While I was still being drugged, in late Autumn of 2023, I thought he had a [twin brother](../timeline/2023/december.md#the-trumpet-teacher-has-a-brother) called Malachi. I mentioned this in an earlier draft (commit) of this document. I said "the brother made himself known to me one evening when I walked through the tunnel during the intensive gang stalking."
+- While I was still being drugged, in late Autumn of 2023, I thought he had a [twin brother](../../timeline/2023/december.md#the-trumpet-teacher-has-a-brother) called Malachi. I mentioned this in an earlier draft (commit) of this document. I said "the brother made himself known to me one evening when I walked through the tunnel during the intensive gang stalking."
 - He had been set up to walk past the tunnel entrance at the road just as I was walking out so that I would see him.
 - I did see him and I ran up behind him before crossing the road. And he flinched.
 - He looked exactly like the trumpet teacher, but different. So I called him a twin brother. I was certain he was the twin brother and by that time I was so used to this constant torment, every day there was some nasty little set up "event" designed to terrorize and upset me, that it seemed a reasonable thing for them to do.
 - I now wonder about this apparent "twin" and whether this particular incident was set up to continue to remind me of what the man in the pictures above looked like because I had not behaved as expected, I had continued to attend classes at the conservatory so the trick had to continue.
-- I had assumed the man was a twin because he was *NOT AT ALL* like the man I had seen a number of times, such as the man who [turned up at the airport](../timeline/2023/june.md#sunday-18th-june-alicante-airport), or the man who had also [attended classes at the conservatory](../timeline/2023/february.md#observations-on-the-trumpet-teacher), or the man who had me pointed out to him by Patricia in [Benijembla](../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) and who had been at [the first chamber music class](../timeline/2022/december.md#chamber-music-classes) the following week. This first man was the one I [mostly dreamt about](poisoning.md#dreams-and-visions).
+- I had assumed the man was a twin because he was *NOT AT ALL* like the man I had seen a number of times, such as the man who [turned up at the airport](../../timeline/2023/june.md#sunday-18th-june-alicante-airport), or the man who had also [attended classes at the conservatory](../../timeline/2023/february.md#observations-on-the-trumpet-teacher), or the man who had me pointed out to him by Patricia in [Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) and who had been at [the first chamber music class](../../timeline/2022/december.md#chamber-music-classes) the following week. This first man was the one I [mostly dreamt about](poisoning.md#dreams-and-visions).
 - Had both these men been at that first class?
 - As I write this section and think of these two men, the initial man that Patricia pointed me out to, and the deep set, older-looking twin, are indeed very very different in appearance.
 - Had they wheeled out this original person from Valencia just to keep his face in my head (although by that time, some of the trick had worn off, i.e. I had forgotten him mostly and thought he was a twin brother instead of the real thing).
 - Patricia, when I asked her how she knew Vidal, said "who"? But it's clear she knows who, at least one of these other men is, but perhaps not the man I thought was the brother or any of the men in the pictures above.
-- During more recent stalking events when I was still clearly under the influence of mind-altering substances, and even though I had been away from Dénia for a while (which begs the question as to how anyone was managing to drug me or whether I carried it with me from home in my toiletries), the trumpet teacher posing as a hacker suggested to me there was a brother and a sister and sent [pictures](../timeline/2024/august.md#the-trumpet-teacher-pics). 
+- During more recent stalking events when I was still clearly under the influence of mind-altering substances, and even though I had been away from Dénia for a while (which begs the question as to how anyone was managing to drug me or whether I carried it with me from home in my toiletries), the trumpet teacher posing as a hacker suggested to me there was a brother and a sister and sent [pictures](../../timeline/2024/august.md#the-trumpet-teacher-pics). 
 - I was convinced the brother was called Andrew, a clearly younger brother with blond hair, but I couldn't understand why none of the pictures looked like there were twins and in fact the older brother, and the younger man which at the time of writing is still rendering on my Google searches, look like no-one I have seen before! At least not consciously.
 - In any case, serious investigators will know immediately who all of these people are, as will the whole town know who the main players are.
 - Here is one of the VSSH team playing the trumpet.
 
-![The trumpet teacher](../content/images/youtube-video.png)
+![The trumpet teacher](../../content/images/youtube-video.png)
 
 - And here is an AI mix of one of the above and Gloria the receptionist.
 
-![Trumpet teacher and Gloria receptionist](../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
+![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
 
-- Symbols and memes related to the trumpet teacher during the cyber stalking are horses, Trump, and more. I'll add these to the [memes section](../memes-triggers/memes.md) at some point as I go through all the material.
+- Symbols and memes related to the trumpet teacher during the cyber stalking are horses, Trump, and more. I'll add these to the [memes section](../../memes-triggers/memes.md) at some point as I go through all the material.
 
 ## The hacker
 
@@ -339,7 +340,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Initially I thought it was just one person who was close to the trumpet teacher and speaking for him.
 - I did find a reference to someone who might be of interest.
 
-![Hacker](../content/images/hornero/victor-castro-sanchez.png)
+![Hacker](../../content/images/hornero/victor-castro-sanchez.png)
 
 - His twitter is here: https://x.com/viccassan82.
 - He looks a lot like this guy too: https://x.com/csonnyb/photo an account the stalked me from October 2024.
