@@ -218,6 +218,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ![Generalitat list](../../content/images/hornero/guv-records.png)
 
 - Also, and at the same time, his [prestigious award was being collected](#the-lamistat-quart-band) and reported on by the Spanish news media.
+- I also had his Generalitat email address from conservatory teaching documentation from January 2023.
 - One wonders how many people knew I was going to be severely poisoned and were expecting me to die.
 - There are a bunch of references for this name online, including references which come from the Generalitat's formal lists of teachers.
 
