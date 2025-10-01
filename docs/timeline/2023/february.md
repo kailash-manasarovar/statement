@@ -95,7 +95,7 @@ function googleTranslateElementInit() {
     - Could these moments, whenever he leaves the class to go to the photocopier, or perhaps when he [goes downstairs with the doctor](january.md#serious-poisoning-at-chamber-music-class) be when a different man switches over?
     - When I think back on the men that took the trumpet teacher role, there seemed to be a soft spoken one who I had genuinely good feelings about, and a brash and violent one who made me feel nervous and afraid. 
     - Could these two have been the same person? 
-    - When I look at the [men in the trumpet-teacher photos](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero), I don't remember having good feelings for him/them.
+    - When I look at the [men in the trumpet-teacher photos](../../crimes/protagonists/vidal-sastre.md), I don't remember having good feelings for him/them.
     - When I think back, I remember a slighter man at class, with a physique I found attractive.
     - And then, I also remember that the man who came to class was a large lumbering man, with extremely muscular forearms and enormous thick, long legs.
 

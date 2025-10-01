@@ -183,7 +183,7 @@ function googleTranslateElementInit() {
     - When I read this in November 2024, still under the influence of something, I was upset.
     - The tone was outrageous actually. 
     - Draw a target in, again and again, drug and manipulate them online, then say they're harassing you!
-    - Given we don't even know [who or how many trumpet teachers there were](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero), never mind who runs the `@jctot19` honey-trap account, that's quite a charge.
+    - Given we don't even know [who or how many trumpet teachers there were](../../crimes/protagonists/vidal-sastre.md), never mind who runs the `@jctot19` honey-trap account, that's quite a charge.
     - I wonder if this is how they defend themselves if a girl dares accuse them of sexual coercion/grooming and cyber-stalking, or anything at all.
     - Do these men say, *oh she was obsessed with me*.
     - Has that happened previously?
@@ -218,7 +218,7 @@ function googleTranslateElementInit() {
 - Did my words surprise whoever was running the account?
 - The energy of the account owner was masculine and feminine over those days.
 - If I had to guess, I would say that a very evil woman (Carmen Cano) and a very sexually cruel man (her uncle?) were managing the content together at that time, and had possibly taken over from an original more benevolent user when they saw what was happening.
-- Why don't I say the male energy is [Domingo Cano](../../crimes/protagonists.md#domingo-lopez-cano)? 
+- Why don't I say the male energy is [Domingo Cano](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano)? 
 - Well, Domingo was inept really, and probably only efficient at (and interested in) terrorizing children and teenagers, not women.
 - The things he said and did always made me think of him as somewhat of a fool, and, in my naivety about the situation back then, I could never understand why everyone put up with him.
 
@@ -604,7 +604,7 @@ function googleTranslateElementInit() {
 - I'm worn down.
 - I feel it is all very unfair. 
 - I [text Katia](../../content/whatsapps/text-to-katia.pdf) on the number she gave me.
-- Note I still believe the [trumpet teacher's name is Vidal](../../crimes/protagonists.md) and there is something going on with him and Ana. 
+- Note I still believe the [trumpet teacher's name is Vidal](../../crimes/protagonists/vidal-sastre.md) and there is something going on with him and Ana. 
 - Note my reasonableness and kindness in my attempts to solve this horrific problem I have.
 
 !!! tip "WhatsApp to Katia Thu, Jan 18, 2024 at 10:55 AM"

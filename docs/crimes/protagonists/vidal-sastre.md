@@ -153,13 +153,13 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - I was being drugged continually with substances that blurred my vision and made my thoughts extremely unclear.
 - I was being sedated and likely sexually assaulted, except … 
 - Is it possible that the four of them treated me very nicely, sweetly, intimately but non-sexually, while I was sedated at home prior to 12th June 2023, with the intention of sexual abuse happening on that night as a kind of *grand finale*?
-- Was the enormous and exaggerated anxiety I felt after the attack on the 12th June 2023 in fact (and it makes much more sense to be) due to the grand rape-gang finale having occurred at my house that night?
+- Was the enormous and exaggerated anxiety I felt just after the attack on the 12th June 2023 in fact (and it makes much more sense to be) due to the grand rape-gang finale having occurred at my house that night?
 - Could part of the mind training and manipulation (*rehearsals* he called it at class) have included staring at me full in the face while I was sedated and my eyes were open and I was looking straight at them so I would recognize their faces in real life?
 - If they had assaulted me prior to June 12th 2023, I would have found them frightening in real life, and I didn’t, although they gave me a bad feeling that made me anxious and recoil… apart from the first older man who I never stopped having an extremely good feeling about.
 - From 12th June 2023, I *did* find him frightening, and ran away when [I saw one of them at Alicante airport](../timeline/2023/june.md#sunday-18th-june-alicante-airport); I believe this one was the [unknown man that led the chamber music class](#an-unknown-man-i-may-have-a-picture-of) so it is likely sedated rape had begun.
 - This whole process is so professional, so finely-tuned; none of them felt they were taking *any risk at all*. They must have done the same to hundreds, perhaps thousands of women and girls.
 
-## The Truwoman Show or Please Turn My Wife into a Porn Star
+### The Truwoman Show or Please Turn My Wife into a Porn Star
 
 ![Truman Show](../content/tweets/truman.png)
 
@@ -168,19 +168,19 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - They will live stream the whole thing most likely, as a kind of porn-reality show.
 - The series probably includes a live-streamed gang-rape as  grander-grand finale in which the target is not sedated and recognizes all the men that have been *training* her.
 - They must charge exorbitant fees for this.
-- I wouldn't be surprised if this has killed women and girls outright with the shock; something the pornographers hope for probably as it makes a lot more money.
+- I wouldn't be surprised if this has killed women and girls outright with the shock; something the pornographers hope for probably as the more horrible for the victim, the more money they make.
 - Women like [Rocio Vidal](../timeline/2023/october.md#rocio-vidal) and the sports woman I mentioned in [my handwritten letters](../timeline/2024/august.md#the-letters) are likely viable targets requested by paying viewers and maybe blackmailed into participating rather than sedated (especially if they're famous).
 - It must be common knowledge across the world, and that’s fundamentally why all my complaints are ignored.
 - The perverts have certainly evolved over the years from targeting wealthy women with body-cams to setting up a kind of Truwoman Show in people's homes… just another sickly-inventive way men have found to delight and get boners at the destruction of women and now children too.
-- This is the *only explanation* for the enormous resources spent on terrorizing me. They were earning far more for doing so than not.
+- This is the *only explanation* for the enormous resources spent on terrorizing me. 
 
-### Is this why the McCann case continues to falter?
+#### Is this why the McCann case continues to falter?
 
 - The sedating MO is exactly like the McCann case.
 - Could this be why the case stalled so badly in the beginning, and why they're trying to pin an extremely professional kidnap job onto an obvious opportunist?
 - You only have to look up spy cam porn online to see millions of people unaware they’re being filmed and my guess is a lot of this is coming from Spain and Portugal.
 
-### Sedating porn is normal now
+#### Sedating porn is normal now
 
 - We were all horrified at the Gisele Pelicot case; but perhaps this is considered completely acceptable by pornographers and billions of porn viewers.
 - I guess the paying viewers feel like they've not quite reached the vileness of child or baby rape but at least they're still getting a sexual hit off something equally abhorrent towards women and girls.
@@ -189,7 +189,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Was Mike Wenham manipulated into everything he did too? If so, for what purpose.
 - Is this the backdrop to many of my professional experiences, especially [Polygon](../timeline/2023/november.md#polygon)?
 
-## My role
+### My role
 
 - And running through all this evil and vileness is my journey through it.
 - I must have been judged just another *silly little girl*, ready for targeting.
@@ -197,7 +197,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - They must have thought me an easy target with no friends or family, completely isolated, and yet something was going on that no one could have imagined and, once the divine trap was operational - set in motion decades before - there was no escape, and even as the bear teeth tightened down on the conspiring fools, they still had so little respect for women, girls, children, and babies, they didn’t feel until it snapped shut.
 - Miracles.
 
-## Future optimisms 
+### Future optimisms 
 
 - The Rape Gang Inquiry has suggested that they might be able to get the police to re-investigate my original Tottenham rape gang case from 1989.
 - Except, now, they cannot possibly investigate those crimes without casting an eye on the decades long international conspiracy against me.
@@ -206,7 +206,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - May it be very very soon.
 - And I myself will buy them all a non-toxic pint.
 
-### WIP investigation
+### Notes on my investigation
 
 - This is the name given to the trumpet teacher who turned up to teach class very sporadically starting at the [end of November 2022](../timeline/2022/november.md#the-trumpet-teacher).
 - The bait.
@@ -345,92 +345,3 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - He looks a lot like this guy too: https://x.com/csonnyb/photo an account the stalked me from October 2024.
 - I believe there's a team probably working on numerous porn targets at any one time. 
 - My situation just spilled out into public because I refused to give into them. 
-
-## Domingo Lopez Cano
-
-- Domingo Lopez Cano was my piano teacher in [2014](../timeline/early-years/2014.md).
-- I met him first at the [conservatory audition](../timeline/early-years/2014.md#conservatory-audition).
-- Here he is in the summer of 2016, just after I left Dénia as I started to suffer from depression related to [going to the police about my experience in 1989 of sexual abuse by rape gangs in North London](../timeline/early-years/2015.md#statement-to-the-metropolitan-police).
-
-![Domingo et al](../content/images/domingo-target-mother-advertisement.jpg)
-
-- I wonder if the older woman to his right is his mother?
-- And I wonder who the young woman he is with is? Could she be another target?
-- Is this article from the [local online newspaper](https://www.denia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-denia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
-- The name "Cano" relates to all things canine and "Lopez" to all things wolverine. While I was being stalked and terrorized online, there were a lot of references to these animals, and particularly when the stalking took a more seriously threatening or abusive turn.
-- Indeed, dogs featured constantly in the online harassment and threats.
-- Here's a fake X account pic that communicated with me during the [March 2024 intensive online psychological abuse](../timeline/2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) of him as an older person.
-
-![Domingo lookalike or AI mix](../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
-
-### Carmen Lopez Cano
-
-- Carmen is Domingo's sister.
-- I believe she ran many of the fake accounts that terrorized me, along with Hazel and Sandra Smith.
-- A picture of her was posted on my Google searches which I screen shot in April.
-
-![Carmen Cano](../content/images/google-searches/carmen-cano.JPG)
-![Carmen Cano screenshot date](../content/images/google-searches/carmen-cano-date.JPG)
-
-- It's not clear who was passing me this information.
-- I have never met Carmen Cano but it's obvious that the picture of this woman has been merged with the face of Domingo the piano teacher.
-- I have another picture of her from a body cam I was wearing on 5th October 2024. I went out without my mobile phone to go for a walk along Las Rota in Dénia. I didn't want to be followed and tracked, but I wanted to still have means to call the police, so I brought my [analogue phone that I had bought in April](../timeline/2024/april.md#i-get-an-orange-sim). As I approached the restaurant Sendra, a woman cycles up behind me, then in front of me; she stops, smiles, and cycles off. I believe it was Carmen Cano and I would recognize her again. She looked a lot like the pics I have just posted and possibly a blond woman who plays in the L'Amistat band. 
-
-!!! info
-    - It appears even 2g/3g phones are trackable by these people.
-
-- On 1st November, the same woman is leaving my apartment building with another dark haired lady; a woman I have often seen going in and out of apartment number 18 next door to me since I got back to Dénia from France at the end of September 2024. It could have been the older woman in the picture above from 2016, except with darker hair.
-
-## Accomplices
-
-### Paqui Fornet Pastor
-
-![Paqui Fornet Pastor 1](../content/images/fake-accounts/paqui1.png)
-
-### Gloria the receptionist
-
-![Trumpet teacher and Gloria receptionist](../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
-
-### Ana Requena 
-
-![Ana](../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
-
-### Other teachers and students to a greater or lesser degree
-
-- Maria Hontanilla, my piano teacher during year 3 of professional piano.
-
-![Maria Hontanilla](../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png)
-
-- Esteve the chamber music teacher in year 4. 
-
-![Chamber music teacher from year 4](../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png)
-
-- Alfonso the harmony teacher in year 4.
-
-![Harmony teacher](../content/images/harmony-teacher.png)
-
-!!! info 
-    - Placeholder for more.
-
-## Hazel and Sandra Smith
-
-- Mentioned in [early days content](../timeline/early-years/2007.md#hazel-smith).
-
-    !!! info
-        - Details of the Channel 4 documentary featuring these two coming up soon.
-
-- We must ask the question that, given the UK police must have known who and what these two are capable of, and where they went, why were they permitted to freely take control of a small area of Spain without any sort of restraint?
-
-## Twitter accounts of note
-
-- `@jctot19`: I believe this must be the trumpet teacher's account although could be being controlled/managed by others too.
-- `@sinremite`: I believe this is Carmen Cano's account.
-
-## Everyone else functioning as introduction agents of some sort
-
-- Members of the Javea Computer Club.
-- Members of expat walking groups.
-- Klara Sarkadi singing teacher and leader of the Orfeo de Denia choir.
-- Old (apparent) friends in Dénia.
-- The whole town of Dénia who were clearly lied to about why I had been targeted and so felt justified in joining in the fun. 
-- The only other option is that the town of Dénia is controlled by pure evil.

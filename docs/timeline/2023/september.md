@@ -82,7 +82,7 @@ function googleTranslateElementInit() {
 
 - A great many of these new follower accounts are fake accounts managed by cyber-stalking criminals.
 - So, although I was safer in some respects, I was in more danger in others.
-- Some of my new followers have [profile pics of the faces of teachers and staff](../../crimes/protagonists.md) at the conservatory of Dénia.
+- Some of my new followers have [profile pics of the faces of teachers and staff](../../crimes/protagonists/domingo-et-al.md) at the conservatory of Dénia.
 - From this moment onwards, the English language of the stalker accounts becomes fluent, native, and vernacular. 
 - In retrospect, I'm convinced this is when [Hazel Smith](../early-years/2007.md#hazel-smith), her family, the wider British gang membership, and her local English-speaking associates, such as [Patricia and Christine](../2022/november.md#walking-in-benijembla-with-the-english-ladies), step in.
 - I guess many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
@@ -652,7 +652,7 @@ function googleTranslateElementInit() {
 - Klara told me repeatedly how tired my friend was from working in the fields. 
 - "She's very tired," she'd say repeatedly.
 - I go to buy some vegetables.
-- As I walk towards the stall, I see [Paqui Fornet Pastor](../../crimes/protagonists.md#paqui-fornet-pastor) talking to my friend. She gives me the side-eye and walks away.
+- As I walk towards the stall, I see [Paqui Fornet Pastor](../../crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor) talking to my friend. She gives me the side-eye and walks away.
 - I meet my friend. We hug and exchange a few words.
 - She mentions how she and her boyfriend had seen me walking up the Calle La Mar towards the tunnel from the conservatory, on [Monday 12th June in the evening](june.md#monday-12th-june-2023). 
 - They had beeped at me apparently. It rings a bell so I file this information away.
@@ -674,7 +674,7 @@ function googleTranslateElementInit() {
 - Another time I go for vegetables, [Thao](may.md#acupuncture-with-thao-qi) is there. Is she waiting for me too? 
 - She says hi, and asks if I went back to classes at the conservatory after the attack.
 - I say yes I did, very strongly.
-- Another time I go for vegetables, [Domingo](../../crimes/protagonists.md#domingo-lopez-cano) is there, on his own, with the two little girls from Madrid that he teaches.
+- Another time I go for vegetables, [Domingo](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) is there, on his own, with the two little girls from Madrid that he teaches.
 - I give him a [therapy card](#praying-at-cauterets) in person.
 - He shouts, "ooooh, touch", elongating the word *touch* in a salacious manner, and leaves with the little girls.
 - My friend says, oh you know him, and tells me that she sees him all the time with his daughters.
@@ -922,7 +922,7 @@ function googleTranslateElementInit() {
 
 ### Nacho tries to terrorize me
 
-- At the first chamber music class, Nacho the clarinet teacher races in, extremely angry, and starts shouting about something with the [chamber music teacher](../../crimes/protagonists.md#other-teachers-and-students-to-a-greater-or-lesser-degree).
+- At the first chamber music class, Nacho the clarinet teacher races in, extremely angry, and starts shouting about something with the [chamber music teacher](../../crimes/protagonists/domingo-et-al.md#other-teachers-and-students-to-a-greater-or-lesser-degree).
 - I know he's trying to upset me.
 - He kind of looks like an ugly Bryan Ferry.
 

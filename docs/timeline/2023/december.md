@@ -23,8 +23,8 @@ function googleTranslateElementInit() {
     - It's curious that I thought the man I saw outside the tunnel was the trumpet teacher's twin brother.
     - I believed this for over a year, and it was constantly repeated and reaffirmed to me online by cyber-stalkers, although I'm certain they expected me to think it was the *one and only* trumpet teacher.
     - I expect they had to "lean into" my assertion they were brothers, instead.
-    - When I got my mind back, from around March 2025, and after I looked over some of the photos online that I posted in [protagonists](../../crimes/protagonists.md#vidal-sastre-sanchez-hornero), I recognize *at least* two men of interest, but there may be more.
-    - I talk about the "other trumpet teacher" in [the protagonists section](../../crimes/protagonists.md#the-other-trumpet-teacher).
+    - When I got my mind back, from around March 2025, and after I looked over some of the photos online that I posted in [protagonists](../../crimes/protagonists/vidal-sastre.md), I recognize *at least* two men of interest, but there may be more.
+    - I talk about the "other trumpet teacher" in [the protagonists section](../../crimes/protagonists/vidal-sastre.md).
     - I would recognize these men as "the trumpet teacher" who came to teach classes on a Monday night at Dénia conservatory between 28th November 2022 and 12th June 2023.
     
     ![tt1](../../content/images/hornero/hh1.png)

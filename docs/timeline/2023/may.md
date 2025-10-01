@@ -132,7 +132,7 @@ function googleTranslateElementInit() {
 
 ![The international choir concert](../../content/images/coro-con-klari.webp)
 
-- [Paqui Fornet Pastor](../../crimes/protagonists.md#paqui-fornet-pastor) was there, my final piano teacher at the conservatory when I eventually left in fear of my life in March 2024; someone very much involved in the conspiracy and gang-stalking although I couldn't have known that at the time.
+- [Paqui Fornet Pastor](../../crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor) was there, my final piano teacher at the conservatory when I eventually left in fear of my life in March 2024; someone very much involved in the conspiracy and gang-stalking although I couldn't have known that at the time.
 - I saw Klara Sarkadi, the choir master, for the first time in nearly 10 years and we chatted for a while. 
 - She spoke to me in a concerned way. She seemed nervous. Her mouth was dry and she kept tripping up on her words.
 - Klara Sarkadi is a good friend of Domingo Cano. She has known him for years. She would ask me about him, what I thought of him and similar, back in [2014 when I first had classes with him](../early-years/2014.md#first-piano-class-at-the-end-end-of-september). I didn't realize she was reporting back.
