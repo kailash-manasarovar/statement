@@ -105,7 +105,7 @@ function googleTranslateElementInit() {
 
 - When I look back at this strange event, it was as if I was holding St Valentine himself in my arms as he sobbed his eyes out.
 
-![Valentine crying](../../content/images/valentine-crying.jpeg)
+![Valentine crying](../../content/images/valentine/valentine-crying.jpeg)
 
 - Interestingly enough, if one was having a relationship with an actual saint, I suspect it might feel at least as intense as I felt it.
 - Moreover, if Saint Valentine did find himself held in my arms in the most repellant situation imaginable, my view is he would sob his eyes out, and has probably been doing just that for centuries.

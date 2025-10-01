@@ -60,3 +60,39 @@
 - I ask her to please get these notes into my file in any way she can.
 - She photocopies them and tells me she'll do it later.
     
+## Dublin trauma therapy
+
+- I travel to Dublin for trauma therapy: Transforming Touch.
+- The day before the course starts, on Wednesday 24th September, a friend and I visit [Whitefriars Church](https://whitefriarstreetchurch.com/) in Dublin city centre.
+- My friend tells me he was drawn to visit the day before and was surprised to find relics of St Valentine there.
+- I found this information triggering for some reason and vowed to visit myself on the 29th September.
+- It turned out we ended up there on our walk anyway.
+- To my surprise, I found that the statue of St Valentine reminded me of the trumpet teacher somehow.
+- I thought it was just because the psychological attack had been so intense, I was triggered by the idea of romance, but there was something more.
+- The statue looked, to me, like it was real; a real human being.
+- At the time, it was so weird I didn't understand it.
+- A few days later, on the therapy table, I realized.
+- Valentine reminded me of [all the trumpet teachers](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) in fact, but [one of them](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) way way more than all the others.
+- There is, in fact, a true and uncanny resemblance.
+- You can't make this stuff up.
+- The statue in Whitefriars Church looks like the trumpet teacher who had [cried in my arms in my bed](../2023/march.md#valentine) in what I had thought was a dream but I am now pretty sure it wasn't a dream.
+- On the 29th September, Michaelmas, I visit again and take some photos.
+
+![Valentine](../../content/images/valentine/valentine-1.jpeg)
+![Valentine](../../content/images/valentine/valentine-2.jpeg)
+![Valentine](../../content/images/valentine/valentine-3.jpeg)
+![Valentine](../../content/images/valentine/valentine-relics.jpeg)
+![Valentine](../../content/images/valentine/valentine-crying.jpeg)
+
+### Healing process
+
+- On the TT table I have been extremely still for the five full years I have been doing the therapy practice. 
+- I do not move at all.
+- Since March this year, while doing TT shares at Purim-time, my therapy process has changed.
+- I started experiencing eye-twitching very slightly, and I assumed this was something from 1989.
+- In June, on a TT intensive, this eye-twitching became more pronounced.
+- On the course this month, the eye-twitching is now quite extreme. It's as if some physical shocks are happening to the body and I'm registering it in the eyes alone.
+- The changes also include fierce high-frequency head-shaking like I'm saying no repeatedly but can't vocalize or move my body.
+- I see this as confirmation of repeated sedated rape and I'm looking forward to more healing and peace.
+- I guess I might remember a whole bunch of things.
+- I remain assured it will be nothing I can't handle.
