@@ -65,7 +65,7 @@
 - I travel to Dublin for trauma therapy: Transforming Touch.
 - The day before the course starts, on Wednesday 24th September, a friend and I visit [Whitefriars Church](https://whitefriarstreetchurch.com/) in Dublin city centre.
 - My friend tells me he was drawn to visit the day before and was surprised to find relics of St Valentine there.
-- I found this information triggering for some reason and vowed to visit myself on the 29th September.
+- I found this information triggering for some reason and vowed to visit myself on the 29th September, my one free day after the course and before I head home.
 - It turned out we ended up there on our walk anyway.
 - To my surprise, I found that the statue of St Valentine reminded me of the trumpet teacher somehow.
 - I thought it was just because the psychological attack had been so intense, I was triggered by the idea of romance, but there was something more.
@@ -79,7 +79,6 @@
 - On the 29th September, Michaelmas, I visit again and take some photos.
 
 ![Valentine](../../content/images/valentine/valentine-1.jpeg)
-![Valentine](../../content/images/valentine/valentine-2.jpeg)
 ![Valentine](../../content/images/valentine/valentine-3.jpeg)
 ![Valentine](../../content/images/valentine/valentine-relics.jpeg)
 ![Valentine](../../content/images/valentine/valentine-crying.jpeg)
@@ -93,6 +92,7 @@
 - In June, on a TT intensive, this eye-twitching became more pronounced.
 - On the course this month, the eye-twitching is now quite extreme. It's as if some physical shocks are happening to the body and I'm registering it in the eyes alone.
 - The changes also include fierce high-frequency head-shaking like I'm saying no repeatedly but can't vocalize or move my body.
-- I see this as confirmation of repeated sedated rape and I'm looking forward to more healing and peace.
-- I guess I might remember a whole bunch of things.
+- I see this as confirmation of repeated sedated rape and/or worse.
+- I'm looking forward to more healing and peace.
+- I guess I might remember a whole bunch of things now.
 - I remain assured it will be nothing I can't handle.
