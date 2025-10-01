@@ -96,7 +96,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - You'll notice Carmen Cano was in attendance here too. She gets around doesn't she.
 
-[![Youtube](../content/images/youtube-video.png)](../../timeline/2023/june.md#youtube)
+[![Youtube](../../content/images/youtube-video.png)](../../timeline/2023/june.md#youtube)
 
 - I'm pretty sure these films they're so happy and safe to publish are the porn-genre adverts.
 - Could this be him as a young man?
@@ -316,7 +316,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - I did see him and I ran up behind him before crossing the road. And he flinched.
 - He looked exactly like the trumpet teacher, but different. So I called him a twin brother. I was certain he was the twin brother and by that time I was so used to this constant torment, every day there was some nasty little set up "event" designed to terrorize and upset me, that it seemed a reasonable thing for them to do.
 - I now wonder about this apparent "twin" and whether this particular incident was set up to continue to remind me of what the man in the pictures above looked like because I had not behaved as expected, I had continued to attend classes at the conservatory so the trick had to continue.
-- I had assumed the man was a twin because he was *NOT AT ALL* like the man I had seen a number of times, such as the man who [turned up at the airport](../../timeline/2023/june.md#sunday-18th-june-alicante-airport), or the man who had also [attended classes at the conservatory](../../timeline/2023/february.md#observations-on-the-trumpet-teacher), or the man who had me pointed out to him by Patricia in [Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) and who had been at [the first chamber music class](../../timeline/2022/december.md#chamber-music-classes) the following week. This first man was the one I [mostly dreamt about](poisoning.md#dreams-and-visions).
+- I had assumed the man was a twin because he was *NOT AT ALL* like the man I had seen a number of times, such as the man who [turned up at the airport](../../timeline/2023/june.md#sunday-18th-june-alicante-airport), or the man who had also [attended classes at the conservatory](../../timeline/2023/february.md#observations-on-the-trumpet-teacher), or the man who had me pointed out to him by Patricia in [Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) and who had been at [the first chamber music class](../../timeline/2022/december.md#chamber-music-classes) the following week. This first man was the one I [mostly dreamt about](../poisoning.md#dreams-and-visions).
 - Had both these men been at that first class?
 - As I write this section and think of these two men, the initial man that Patricia pointed me out to, and the deep set, older-looking twin, are indeed very very different in appearance.
 - Had they wheeled out this original person from Valencia just to keep his face in my head (although by that time, some of the trick had worn off, i.e. I had forgotten him mostly and thought he was a twin brother instead of the real thing).

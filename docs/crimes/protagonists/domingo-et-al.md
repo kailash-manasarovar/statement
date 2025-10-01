@@ -2,20 +2,20 @@
 
 ## Domingo Lopez Cano
 
-- Domingo Lopez Cano was my piano teacher in [2014](../timeline/early-years/2014.md).
-- I met him first at the [conservatory audition](../timeline/early-years/2014.md#conservatory-audition).
-- Here he is in the summer of 2016, just after I left Dénia as I started to suffer from depression related to [going to the police about my experience in 1989 of sexual abuse by rape gangs in North London](../timeline/early-years/2015.md#statement-to-the-metropolitan-police).
+- Domingo Lopez Cano was my piano teacher in [2014](../../timeline/early-years/2014.md).
+- I met him first at the [conservatory audition](../../timeline/early-years/2014.md#conservatory-audition).
+- Here he is in the summer of 2016, just after I left Dénia as I started to suffer from depression related to [going to the police about my experience in 1989 of sexual abuse by rape gangs in North London](../../timeline/early-years/2015.md#statement-to-the-metropolitan-police).
 
-![Domingo et al](../content/images/domingo-target-mother-advertisement.jpg)
+![Domingo et al](../../content/images/domingo-target-mother-advertisement.jpg)
 
 - I wonder if the older woman to his right is his mother?
 - And I wonder who the young woman he is with is? Could she be another target?
 - Is this article from the [local online newspaper](https://www.denia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-denia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
 - The name "Cano" relates to all things canine and "Lopez" to all things wolverine. While I was being stalked and terrorized online, there were a lot of references to these animals, and particularly when the stalking took a more seriously threatening or abusive turn.
 - Indeed, dogs featured constantly in the online harassment and threats.
-- Here's a fake X account pic that communicated with me during the [March 2024 intensive online psychological abuse](../timeline/2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) of him as an older person.
+- Here's a fake X account pic that communicated with me during the [March 2024 intensive online psychological abuse](../../timeline/2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) of him as an older person.
 
-![Domingo lookalike or AI mix](../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
+![Domingo lookalike or AI mix](../../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
 
 ## Carmen Lopez Cano
 
@@ -23,12 +23,12 @@
 - I believe she ran many of the fake accounts that terrorized me, along with Hazel and Sandra Smith.
 - A picture of her was posted on my Google searches which I screen shot in April.
 
-![Carmen Cano](../content/images/google-searches/carmen-cano.JPG)
-![Carmen Cano screenshot date](../content/images/google-searches/carmen-cano-date.JPG)
+![Carmen Cano](../../content/images/google-searches/carmen-cano.JPG)
+![Carmen Cano screenshot date](../../content/images/google-searches/carmen-cano-date.JPG)
 
 - It's not clear who was passing me this information.
 - I have never met Carmen Cano but it's obvious that the picture of this woman has been merged with the face of Domingo the piano teacher.
-- I have another picture of her from a body cam I was wearing on 5th October 2024. I went out without my mobile phone to go for a walk along Las Rota in Dénia. I didn't want to be followed and tracked, but I wanted to still have means to call the police, so I brought my [analogue phone that I had bought in April](../timeline/2024/april.md#i-get-an-orange-sim). As I approached the restaurant Sendra, a woman cycles up behind me, then in front of me; she stops, smiles, and cycles off. I believe it was Carmen Cano and I would recognize her again. She looked a lot like the pics I have just posted and possibly a blond woman who plays in the L'Amistat band. 
+- I have another picture of her from a body cam I was wearing on 5th October 2024. I went out without my mobile phone to go for a walk along Las Rota in Dénia. I didn't want to be followed and tracked, but I wanted to still have means to call the police, so I brought my [analogue phone that I had bought in April](../../timeline/2024/april.md#i-get-an-orange-sim). As I approached the restaurant Sendra, a woman cycles up behind me, then in front of me; she stops, smiles, and cycles off. I believe it was Carmen Cano and I would recognize her again. She looked a lot like the pics I have just posted and possibly a blond woman who plays in the L'Amistat band. 
 
 !!! info
     - It appears even 2g/3g phones are trackable by these people.
@@ -39,36 +39,36 @@
 
 ### Paqui Fornet Pastor
 
-![Paqui Fornet Pastor 1](../content/images/fake-accounts/paqui1.png)
+![Paqui Fornet Pastor 1](../../content/images/fake-accounts/paqui1.png)
 
 ### Gloria the receptionist
 
-![Trumpet teacher and Gloria receptionist](../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
+![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
 
 ### Ana Requena 
 
-![Ana](../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
+![Ana](../../content/images/fake-accounts/GZ69WCMXQAEQdzB.png)
 
 ### Other teachers and students to a greater or lesser degree
 
 - Maria Hontanilla, my piano teacher during year 3 of professional piano.
 
-![Maria Hontanilla](../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png)
+![Maria Hontanilla](../../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png)
 
 - Esteve the chamber music teacher in year 4. 
 
-![Chamber music teacher from year 4](../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png)
+![Chamber music teacher from year 4](../../content/images/fake-accounts/Screenshot 2024-04-30 at 22.42.50.png)
 
 - Alfonso the harmony teacher in year 4.
 
-![Harmony teacher](../content/images/harmony-teacher.png)
+![Harmony teacher](../../content/images/harmony-teacher.png)
 
 !!! info 
     - Placeholder for more.
 
 ## Hazel and Sandra Smith
 
-- Mentioned in [early days content](../timeline/early-years/2007.md#hazel-smith).
+- Mentioned in [early days content](../../timeline/early-years/2007.md#hazel-smith).
 
     !!! info
         - Details of the Channel 4 documentary featuring these two coming up soon.
