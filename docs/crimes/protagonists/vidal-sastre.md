@@ -230,7 +230,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - Also, and at the same time, his [prestigious award was being collected](#the-lamistat-quart-band) and reported on by the Spanish news media.
 - I also had his Generalitat email address from conservatory teaching documentation from January 2023.
-- One wonders how many people knew I was about to be severely poisoned just weeks after making [an online video](https://www.youtube.com/watch?v=VIYsj4OgiYA) explaining how I was finding myself unusually sexually aroused in my apartment and I suspected I was being filmed masturbating.
+- One wonders how many people knew I was about to be severely poisoned just weeks after making [an online video](https://www.youtube.com/watch?v=VIYsj4OgiYA) explaining inexplicable and overwhelming sexual arousal in my apartment, and that I suspected it meant I was being filmed masturbating.
 - It seems likely that they expected me to die and everything could carry on as normal.
 - There are a bunch of references for this name online, including references which come from the Generalitat's formal lists of teachers.
 
