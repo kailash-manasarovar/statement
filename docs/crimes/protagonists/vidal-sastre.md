@@ -144,7 +144,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - My guess is this is used to communicate with targeted women.
 - I used it a few times, long after they hoped I would I expect.
 - I wonder how many other women and girls have tried to contact someone they thought they were in love with in this way?
-- You can read [my emails here](../../content/images/hornero/mail-to-vssh.pdf).
+- You can read [my emails here](../../content/images/hornero/mail-to-vssh-new.pdf).
 - In October 2025, I find it fascinating to follow the trail of my mind's emergence into clarity and see exactly how effective the attack was on me while it was in full operation while I rented my lovely home in Dénia.
 
 ### Sedated training for recognizing faces
