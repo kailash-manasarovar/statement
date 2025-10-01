@@ -109,6 +109,7 @@ function googleTranslateElementInit() {
 
 - Interestingly enough, if one was having a relationship with an actual saint, I suspect it might feel at least as intense as I felt it.
 - Moreover, if Saint Valentine did find himself held in my arms in the most repellant situation imaginable, my view is he would sob his eyes out, and has probably been doing just that for centuries.
+- Poor old Valentine. Maybe his image is safer now.
 
 ### A simple wooden box on the sofa
 
