@@ -74,7 +74,6 @@
 - A few days later, on the therapy table, I realized.
 - Valentine reminded me of [all the trumpet teachers](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) in fact, but [one of them](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) way way more than all the others.
 - There is, in fact, a true and uncanny resemblance.
-- You can't make this stuff up.
 - The statue in Whitefriars Church looks like the trumpet teacher who had [cried in my arms in my bed](../2023/march.md#valentine) in what I had thought was a dream but I am now pretty sure it wasn't a dream.
 - On the 29th September, Michaelmas, I visit again and take some photos.
 
