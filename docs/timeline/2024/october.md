@@ -19,6 +19,10 @@
 
 ## Bullying at Polygon
 
+!!! tip "In retrospect"
+    - I wonder if Polygon's role from the porn-gang perspective - apart from financial and operational - was to add even more *bullying* alibi they could use to destabilize me and, if they needed to, charge me with hysteria or a vivid imagination, or whatever they do when they do it all together against one woman's complaints.
+    - This makes even more sense given I had no choice but to leave the conservatory in fear for my life and so they could not be used anymore as alibi for elaborate claims.
+
 - Polygon are more obviously building up to firing me.
 - Colleagues' demeanor towards me in [Bali](may.md#bali) really solidified what had been going on since the previous November.
 - I request an investigation done with regards to being targeted continually for my [women's rights activism](june.md#uk).
