@@ -123,7 +123,8 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 #### The best band in the Valencian region
 
-- Further down the list, we see a newspaper article dated 21st October 2024; just as I was about to return home from Fatima and be [severely poisoned in my apartment](../../timeline/2024/october.md#serious-poisoning-with-intent-to-harm-or-kill).
+- Further down the list, we see a [newspaper article dated 21st October 2024](https://www.levante-emv.com/horta/2024/10/21/amistat-quart-de-poblet-mejor-banda-comunitat-valenciana-109945426.html) reporting on an award ceremony that had taken place on the weekend of the 19th October.
+- This was around the same time my [home security system went dead](../../timeline/2024/october.md#the-router-malfunctions-while-im-in-fatima) for a week before I returned home from Fatima and was [severely poisoned in my apartment](../../timeline/2024/october.md#serious-poisoning-with-intent-to-harm-or-kill).
 - One wonders if this was *quite* the alibi for a murder everyone knew was going to happen? And then didn't.
 - The article states the band is the best in the region.
 - We wonder, best at what?
@@ -133,7 +134,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - He is also given a special mention of honor!
 - Perhaps we are seeing here what happens when the leaders of a culture completely lost to porn and violence against women and children start feeling a little nervous, or is it just ironic timing.
-- I do still wonder if the Vidal Sastre Sanchez Hornero character is one of the other men in this picture.
+- I still wonder if the Vidal Sastre Sanchez Hornero character is one of the other men in this picture.
 - Regardless, I do wonder what this poor man I loved so intensely is thinking at this moment.
 - Surely the stress must be excruciating.
 
@@ -207,34 +208,29 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - May it be very very soon.
 - And I myself will buy them all a non-toxic pint.
 
-### Notes on my investigation
+## Notes on my investigation
 
-- This is the name given to the trumpet teacher who turned up to teach class very sporadically starting at the [end of November 2022](../../timeline/2022/november.md#the-trumpet-teacher).
-- The bait.
-- I found it hard to believe that this man's name is Vidal Sastre Sanchez Hornero, unless these criminal gangs are so arrogant and protected, they don't bother hiding themselves.
-- This is the name registered in the Generalitat Valenciana systems, even today. 
-- Curiously a government official told me no record of the person could be found at the same time I was looking at his name on official Generalitat government lists.
+- In this section I will post important points published in earlier commits.
+- I believe whoever this man is, his role was *bait*.
+- I found the name Vidal Sastre Sanchez Hornero registered in the Generalitat Valenciana systems even though a [government official](../../timeline/2024/october.md#madrid-and-paloma) told me no record of this person could be found.
+- When she told me this, at exactly the same time, I was looking at his name on official Generalitat government lists.
 
 ![Generalitat list](../../content/images/hornero/guv-records.png)
 
-- He is apparently the director of a [band in Valencia](https://www.lamistatquart.com/) and this fits with his original story.
-- There are a bunch of references for the name online, including references which come from the Generalitat's formal lists of teachers.
+- Also, and at the same time, his [prestigious award was being collected](#the-lamistat-quart-band) and reported on by the Spanish news media.
+- One wonders how many people knew I was going to be severely poisoned and were expecting me to die.
+- There are a bunch of references for this name online, including references which come from the Generalitat's formal lists of teachers.
 
 ![Horn refs](../../content/images/hornero/horn-refs.jpg)
 
-- It's hard to believe there's no reference for him. He may have been working unofficially with the conservatory of Dénia, but they gave him a pension while doing so.
-- Online references include a number of pictures of the man who turned up to teach classes.
+- Online references include a number of pictures I remembered as being the man who turned up to teach classes.
 
 ![Hornero 1](../../content/images/hornero/horn-pic-1.jpg)
 ![Hornero 2](../../content/images/hornero/horn-pic-2.jpg)
 ![Hornero 3](../../content/images/hornero/horn-pic-3.jpg)
-
-- It's not clear if the man below is the same man as in the previous pictures, but I recognize him too.
-
 ![Hornero 4](../../content/images/hornero/horn-pic-4.jpg)
 
-- The pictures show the man who taught the class on Monday evenings that I attended. At least, I look at all these pictures and remember them as being the "trumpet teacher" who turned up to class sporadically on Mondays.
-- But there are another bunch of pictures of this person who look like someone completely different to the men above.
+- A note I made before I had remembered more clearly the four distinct men was about another bunch of pictures of this person who look like someone completely different to the men above.
 
 ![TT1](../../content/images/hornero/tt-1.png)
 ![TT1](../../content/images/hornero/tt-1-again.png)
