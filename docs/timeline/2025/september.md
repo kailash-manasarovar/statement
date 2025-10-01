@@ -2,7 +2,10 @@
 
 ## Thunderbolt clarity
 
-- Around the middle of this month, I suddenly become clear about the trumpet teacher and that he was not just one man, he was at least four men.
+- Around the middle of this month, I suddenly become clear about who the trumpet teacher was.
+- The four men I remember as playing the role of *trumpet teacher* become clear in my mind and I realize I can detail them and may even have some pictures of them.
+- It is possible there are many more men involved.
+- I detail the [results of my new and sudden clarity](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
 
 ## Current health
 
