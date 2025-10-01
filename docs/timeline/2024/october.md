@@ -255,7 +255,7 @@
     - It is a crime to poison people with the intent to harm or kill.
     - It is a crime to access someone's home without their permission in order to do so.
 
-- I arrive back in Dénia on 27th October.
+- I arrive back in Dénia on 27th October, just as the DANA hit the Valencian region.
 - On Monday 28th October, I get an inexplicable and excruciating headache at home which lasts a couple of days. 
 - While sitting at my desk, on the Monday morning, drinking my coffee, I experience shooting nerve pains all over my face.
 - My kidneys start to really ache over the week; the dull aching gets worse and worse.
