@@ -187,7 +187,7 @@
 
 - No-one else is around, curiously.
 - Ana Girbes sees me and motions towards me and Ana Requena rushes out and peers at my face angrily, without looking at me or saying anything at all.
-- It's as if she's looking to see Valentine himself in my face.
+- It's as if she's looking to see if she can see Valentine himself in my face. Maybe she can.
 - I assume the intention is for me to think she is concerned I will have put makeup on for Valentine's day so that I think she thinks I have a date with the trumpet teacher.
 - It's absolutely ridiculous and I know they are laughing at me as I continue on up to choir.
 - I wonder now what they thought they were achieving.
