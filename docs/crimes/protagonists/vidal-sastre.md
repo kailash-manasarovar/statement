@@ -107,6 +107,11 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - I believe this is also the man who [interviewed me for a tech job where I'd be looking at genitals all day](../../timeline/early-years/2016.md#march) in 2016; a man I saw online and in-person.
 - They are certainly the man depicted on the [book cover](../../index.md).
 - I'm guessing everyone in Dénia knows this man.
+- They even AI'ed his face and mixed it with Gloria the receptionists face and tormented me endlessly with a fake account having this profile pic.
+
+![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
+
+- The posts from this account I suspect came directly from Sandra Smith.
 
 ### The L'Amistat Quart band
 
@@ -225,7 +230,8 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - Also, and at the same time, his [prestigious award was being collected](#the-lamistat-quart-band) and reported on by the Spanish news media.
 - I also had his Generalitat email address from conservatory teaching documentation from January 2023.
-- One wonders how many people knew I was about to be severely poisoned and was expected to die.
+- One wonders how many people knew I was about to be severely poisoned.
+- It seems likely that they expected me to die and everything could carry on as normal.
 - There are a bunch of references for this name online, including references which come from the Generalitat's formal lists of teachers.
 
 ![Horn refs](../../content/images/hornero/horn-refs.jpg)
@@ -255,14 +261,14 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     - Even 4g/5g mobile networks, without access to wifi routers, are vulnerable.
 
 - These people are not hiding, but I believe they are drugging and sedating women and girls, and not just here, probably all over the region wherever adult men have unrestricted access to women, teenage girls, and younger.
-- Wherever VSSH has been listed as teaching in the Generalitat Valenciana region, could a young girl or woman be in danger?
-- I have seen this name listed in Castellon, Bunol, Alicante, amongst other places.
+- Wherever VSSH has been listed as teaching in the Generalitat Valenciana region, could there have been a young girl's *funeral*?
+- I have seen this name listed in the Generalitat teacher lists for Castellon, Bunol, and Alicante, amongst other places.
 - I thought maybe that *Vidal Sastre Sanchez Hornero* was the name of one, and only one, of the gang. Now I'm thinking that, perhaps, it is a collection of four of the gang's surnames.
-- There will be some sick reason for the choice of name.
+- There will be some sick reason for the choice of name if it not a real name.
 - It was not the name of the man, or men, who came to teach class to me and Pablo; one of whom I am led to believe is called Antonio Ruiz.
 - Could Antonio have been simply used as bait for a sinister sex gang operating and controlling the region's conservatories?
 - Were his children in danger of kidnap, as he suggested online to me at one point?
-- Whoever these people are, they are proud of their behavior, and arrogant enough to showcase their "controlling young girls" activity on [YouTube](https://www.youtube.com/@saxofonator/search?query=vidal%20sanchez%20sastre%20horneros).
+- Whoever these people are, they are proud of their behavior, and arrogant enough to showcase their "controlling young girls" activity on [YouTube](https://www.youtube.com/@saxofonator/search?query=vidal%20sanchez%20sastre%20horneros), although a lot of the more sinister films seem to have been removed now.
 - It appears that all attacks, or "funerals" of women are videoed and shared, and certainly my "funeral" on [12th June 2023](../../timeline/2023/june.md#monday-12th-june-2023), was excitedly recorded on the mobile phones of all present, including teachers, staff, and students.
 
 !!! danger "Shocking"
@@ -270,52 +276,5 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     - This is a somewhat horrific thing to consider and I do hope it is not true but given statistics like all 11-year-old boys have seen pedophile gang rape porn and worse, usually in school on their mates' phones, then nothing would surprise me anymore.
 
 - Is it possible that what is a well-known and much loved Spanish tradition of destroying single women or girls for fun now a countrywide porn business making millions for porn distribution gangs; each girl delivered up at the appropriate time?
-- Given the whole town of Dénia knows of pedophile rape-gang porn I was in from 1989, and doesn't seem to think that is a crime worth reporting, is it possible they know the details of 1000s of crimes against women and girls?
-
-### A second opinion
-
-- Another version of events is that if this person, having the name Vidal SSH, *is* one of the men in the pictures above, he may have been set up to be the fall-guy if anything went wrong in the original plan.
-- His attendance at the conservatory could have been a cover for the other man, a known criminal from the local area.
-- In this scenario, and following a recent tip from a reliable anonymous source, I was informed that one of the men in the pictures above was under investigation for sexual grooming at the time he visited the conservatory in 2022/23.
-- If this is true, and the [pictures and videos](../../timeline/2023/june.md#youtube) made very public do seem to suggest he was involved in some sort of grooming gang scenario, then could the criminal porn gangs have needed someone to play a part to hide the fact that real pimps and pornographers were entering the conservatory freely to do whatever they liked?
-- And who better than someone already under suspicion for similar crimes?
+- Given the whole town of Dénia knows of pedophile rape-gang porn I was in from 1989, and doesn't seem to think that is a crime worth reporting, is it possible they also know the details of 1000s of crimes against women and girls?
 - What a hell these poor people are living in!
-
-## The *other* trumpet teacher
-
-- The man in any of the pictures above is only half (or a quarter) of the man I remember.
-- While I was still being drugged, in late Autumn of 2023, I thought he had a [twin brother](../../timeline/2023/december.md#the-trumpet-teacher-has-a-brother) called Malachi. I mentioned this in an earlier draft (commit) of this document. I said "the brother made himself known to me one evening when I walked through the tunnel during the intensive gang stalking."
-- He had been set up to walk past the tunnel entrance at the road just as I was walking out so that I would see him.
-- I did see him and I ran up behind him before crossing the road. And he flinched.
-- He looked exactly like the trumpet teacher, but different. So I called him a twin brother. I was certain he was the twin brother and by that time I was so used to this constant torment, every day there was some nasty little set up "event" designed to terrorize and upset me, that it seemed a reasonable thing for them to do.
-- I now wonder about this apparent "twin" and whether this particular incident was set up to continue to remind me of what the man in the pictures above looked like because I had not behaved as expected, I had continued to attend classes at the conservatory so the trick had to continue.
-- I had assumed the man was a twin because he was *NOT AT ALL* like the man I had seen a number of times, such as the man who [turned up at the airport](../../timeline/2023/june.md#sunday-18th-june-alicante-airport), or the man who had also [attended classes at the conservatory](../../timeline/2023/february.md#observations-on-the-trumpet-teacher), or the man who had me pointed out to him by Patricia in [Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) and who had been at [the first chamber music class](../../timeline/2022/december.md#chamber-music-classes) the following week. This first man was the one I [mostly dreamt about](../poisoning.md#dreams-and-visions).
-- Had both these men been at that first class?
-- As I write this section and think of these two men, the initial man that Patricia pointed me out to, and the deep set, older-looking twin, are indeed very very different in appearance.
-- Had they wheeled out this original person from Valencia just to keep his face in my head (although by that time, some of the trick had worn off, i.e. I had forgotten him mostly and thought he was a twin brother instead of the real thing).
-- Patricia, when I asked her how she knew Vidal, said "who"? But it's clear she knows who, at least one of these other men is, but perhaps not the man I thought was the brother or any of the men in the pictures above.
-- During more recent stalking events when I was still clearly under the influence of mind-altering substances, and even though I had been away from Dénia for a while (which begs the question as to how anyone was managing to drug me or whether I carried it with me from home in my toiletries), the trumpet teacher posing as a hacker suggested to me there was a brother and a sister and sent [pictures](../../timeline/2024/august.md#the-trumpet-teacher-pics). 
-- I was convinced the brother was called Andrew, a clearly younger brother with blond hair, but I couldn't understand why none of the pictures looked like there were twins and in fact the older brother, and the younger man which at the time of writing is still rendering on my Google searches, look like no-one I have seen before! At least not consciously.
-- In any case, serious investigators will know immediately who all of these people are, as will the whole town know who the main players are.
-- Here is one of the VSSH team playing the trumpet.
-
-![The trumpet teacher](../../content/images/youtube-video.png)
-
-- And here is an AI mix of one of the above and Gloria the receptionist.
-
-![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
-
-- Symbols and memes related to the trumpet teacher during the cyber stalking are horses, Trump, and more. I'll add these to the [memes section](../../memes-triggers/memes.md) at some point as I go through all the material.
-
-## The hacker
-
-- Clearly, I have been targeted by industrial-scale criminal hacking expertise that includes men local to Dénia.
-- Initially I thought it was just one person who was close to the trumpet teacher and speaking for him.
-- I did find a reference to someone who might be of interest.
-
-![Hacker](../../content/images/hornero/victor-castro-sanchez.png)
-
-- His twitter is here: https://x.com/viccassan82.
-- He looks a lot like this guy too: https://x.com/csonnyb/photo an account the stalked me from October 2024.
-- I believe there's a team probably working on numerous porn targets at any one time. 
-- My situation just spilled out into public because I refused to give into them. 
