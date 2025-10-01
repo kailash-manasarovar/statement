@@ -118,7 +118,13 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Vidal Sastre Sanchez Hornero is listed as the director of the band.
 - The band is supported by numerous government organizations - at least the website says so - including the Generalitat.
 - This is the band where we see [a young girl's *funeral* taking place](../../timeline/2023/june.md#youtube), just like [mine](../../timeline/2023/june.md#monday-12th-june-2023) and, just like me, the experience will have been utterly life changing and not in a good way.
-- There are other significant creepy videos of this band performing, some of which I have already mentioned in this statement.
+- There are other significant creepy videos of this band performing.
+- Here's another reference to a "funeral" or "sale" of a groomed young woman from the band in Valencia.
+
+![Hornero activity funeral home](../../content/images/hornero/horn-funerals-1.png)
+
+- "Se la rifaron" means, they sold her off.
+- If you listen to the recording (this could be it although I couldn't find the original from the pic above: https://www.youtube.com/watch?v=X4M1d_WmHSA), at a certain point in the performance, the trumpet player plays in a very sexually suggestive manner, *stripper style*.
 - When I read the website text previously, I noticed a statement about the female members of the band that made me shudder a little. It said something like, "and we have the unconditional support of all the girls".
 
 #### The best band in the Valencian region
@@ -219,7 +225,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - Also, and at the same time, his [prestigious award was being collected](#the-lamistat-quart-band) and reported on by the Spanish news media.
 - I also had his Generalitat email address from conservatory teaching documentation from January 2023.
-- One wonders how many people knew I was going to be severely poisoned and were expecting me to die.
+- One wonders how many people knew I was about to be severely poisoned and was expected to die.
 - There are a bunch of references for this name online, including references which come from the Generalitat's formal lists of teachers.
 
 ![Horn refs](../../content/images/hornero/horn-refs.jpg)
@@ -230,54 +236,24 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ![Hornero 2](../../content/images/hornero/horn-pic-2.jpg)
 ![Hornero 3](../../content/images/hornero/horn-pic-3.jpg)
 ![Hornero 4](../../content/images/hornero/horn-pic-4.jpg)
-
-- A note I made before I had remembered more clearly the four distinct men was about another bunch of pictures of this person who look like someone completely different to the men above.
-
 ![TT1](../../content/images/hornero/tt-1.png)
 ![TT1](../../content/images/hornero/tt-1-again.png)
 ![TT1](../../content/images/hornero/tt-1-again-2.png)
 
-- I recognize this man too as being the "trumpet teacher" that took classes on a Monday evening.
-- While I'm writing out my statement, I realize with horror there is more than one trumpet teacher.
-- Another picture I recognized as him was from [the video of another girls "funeral"](../../content/images/youtube-video.png) I had found in June 2023, in Dublin, when I was severely traumatized after the events of [12th June 2023](../../timeline/2023/june.md#monday-12th-june-2023).
-- However, on looking at these pictures, I believe I remember another man, who looked dissimilar again. 
-- If this is true, seemingly I became confused about these people being the same person, probably because I was [on drugs without my knowledge](../../timeline/2023/january.md#serious-poisoning-at-chamber-music-class), and probably because the online NLP/hypnosis hypno-tech was set up with that intention.
-- Curiously, online face comparison tools say that none of the above pictures are of the same person.
-
-!!! tip "What?"
-    - I know, this sounds crazy, but it's possible.
-    - Imagine you have control of a person by giving them psychoactive and mood altering substances over long periods and they are unaware of it.
-    - Now you can set up a situation in which you have two, or more, people swapping the same role from time to time, so as to confuse the person into relating multiple people as the same one person.
-    - Add to this, root access to the target's online activity, with the ability to flash whatever images you like up for subliminal stimulation.
-    - I believe this happened to me, as the men in the pictures above are extremely dissimilar to each other, *and* to another man I remember taking the class from time to time.
-    - And now, I'm wondering if all the pictures of Vidal Sastre Sanchez Hornero that I personally recognize are of a number of different people.
-    - If a group of men wanted to groom unwitting young girls, and get away with it, how better than to never be the same person the young girls see twice.
-    - Even better if there is intimate activity with the target without her knowledge. The body, and mind under sedation, always remembers something.
-    - Anyone making a complaint would be easily dismissed, not least because everyone else is aware there is a target and what's happening to her, and that this is protected by the highest authority of the land.
-    - And if they really wanted to make sure she was confused about what she was seeing, they might try to blind her, perhaps with low-level continuous methanol doses direct into the water supply at her apartment, or if she's really feisty why not just spray all her clothes and belongings in high dose pesticides.
-
-- Did Pablo ask the trumpet teacher when he turned up [where the other guy was](../../timeline/2023/january.md#chamber-music-classes-continue)?
-- One of my suspicions now is that this name probably relates to a group of criminals who control women by drugging them whilst having full root access to their online devices and using some sort of social media hacking app which can change the timeline or the UI with ease. 
-- It's not such an advanced piece of software, actually, and would just mean having some AI tool ready to rewrite the HTML on a target's machine with specific messages or pictures.
-- In the past, sexually coercive behavior like this would usually be undertaken by pimps and perverts with the end goal of enticing and trapping women in the sex "industry" and this is certainly in keeping with the content the gangs shared with me online, such as [the pictures of the lady who went from innocent girl to hardcore porn activity](../../timeline/2024/august.md#photos-of-abused-women-and-girls).
-- In the past, this bait-and-switch activity would have been undertaken directly in physical settings, clubs and societies, bars, etc., and of course still is.
-- However, the sexual coercion techniques used in Dénia and the region has taken a new and extremely troubling turn.
-- Criminals and other bad actors are now able to access a person's private home network and devices in a remarkably easy way. From there, malicious actors can monitor and control all online activity, paying close attention to finances and anything incriminating.
+- It was while I was preparing this statement, slowly laboriously and extremely unpleasantly, I realized with horror there was more than one trumpet teacher at classes!
+- This puts the actions of teachers and staff at the conservatory in a completely different light.
+- Everything they did was as an alibi for the real crimes.
+- Whenever, eventually, my life was over - prostitution, porn actress, drug addiction, madness, suicide, murder, whatever - all I would have ever told anyone was that I was being bullied at the conservatory. 
+- The big men could then, if necessary, put the women up to take all the blame, but they knew that this could never happen due to how many *important* people have been involved in maintaining these sick practices.
+- I do have a small memory of Pablo asking the trumpet teacher one time [where the other guy was](../../timeline/2023/january.md#chamber-music-classes-continue), but amazingly now we know that even Pablo, a 14-year-old boy, was aware of what was going on.
+- Are the teenage boys and girls aware of everything that these men have been doing? Surely not!? 
+- Although, people talk, and I expect everyone must know about how much danger the children are in.
 
 !!! danger "Would anyone want to live here if they knew how much danger the wealthy, elderly, women and children are in?"
-    - Visitors to the region should be warned that it is highly likely their online activity will be monitored very closely by locals.
+    - Visitors to the region should be warned that it is highly likely their online activity will be monitored very closely by local criminal gangs.
     - Visitors should expect that to happen and act accordingly.
     - Even 4g/5g mobile networks, without access to wifi routers, are vulnerable.
 
-- With such access, criminals can manipulate and intimidate a woman or child via their social media and other online activity.
-- Is this how children are being coerced online into sending sexually explicit pictures of themselves for a pedophile porn market?
-- If a target is physically present, and being drugged as well, like perhaps the [flautist in this video](../../timeline/2023/june.md#youtube), then it is highly likely they will eventually suffer a sedated sexual assault, or be manipulated into something apparently consensual, and then be put on porn networks without their consent.
-- Here's another reference to a "funeral" or "sale" of a groomed young woman from the band in Valencia.
-
-![Hornero activity funeral home](../../content/images/hornero/horn-funerals-1.png)
-
-- "Se la rifaron" means, they sold her off.
-- Notice at a certain point in the performance, the trumpet player plays in a very sexually suggestive manner, *stripper style*.
 - These people are not hiding, but I believe they are drugging and sedating women and girls, and not just here, probably all over the region wherever adult men have unrestricted access to women, teenage girls, and younger.
 - Wherever VSSH has been listed as teaching in the Generalitat Valenciana region, could a young girl or woman be in danger?
 - I have seen this name listed in Castellon, Bunol, Alicante, amongst other places.
