@@ -264,7 +264,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Wherever VSSH has been listed as teaching in the Generalitat Valenciana region, could there have been a young girl's *funeral*?
 - I have seen this name listed in the Generalitat teacher lists for Castellon, Bunol, and Alicante, amongst other places.
 - I thought maybe that *Vidal Sastre Sanchez Hornero* was the name of one, and only one, of the gang. Now I'm thinking that, perhaps, it is a collection of four of the gang's surnames.
-- There will be some sick reason for the choice of name if it not a real name.
+- There will be some sick reason for the choice of name if it is not a real name.
 - It was not the name of the man, or men, who came to teach class to me and Pablo; one of whom I am led to believe is called Antonio Ruiz.
 - Could Antonio have been simply used as bait for a sinister sex gang operating and controlling the region's conservatories?
 - Were his children in danger of kidnap, as he suggested online to me at one point?
