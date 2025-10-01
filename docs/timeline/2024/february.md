@@ -195,9 +195,11 @@
 - I wonder how many others they drove to madness or suicide?
 - I wonder how many youngsters they shepherded, porn-ready, to the criminal gangs that control the town?
 
-#### My funny valentine
+#### My funny Valentine
 
 <iframe width="672" height="378" src="https://www.youtube.com/embed/Are-c0BLyIg" title="Frank Sinatra - My Funny Valentine" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+- Wow.
 
 ### Nacho and the smug man destroying evidence
 
