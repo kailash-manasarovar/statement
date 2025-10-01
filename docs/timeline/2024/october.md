@@ -11,6 +11,12 @@
 
 - The message says: "Enjoy my homemade poison. The poison made by my own family..".
 
+## YouTube with Kelly Oliver Dougall
+
+- https://www.youtube.com/watch?v=VIYsj4OgiYA
+- Sending it to my landlady on WhatsApp.
+- She *slow claps* back.
+
 ## Bullying at Polygon
 
 - Polygon are more obviously building up to firing me.
