@@ -97,6 +97,14 @@ function googleTranslateElementInit() {
 
 - The teacher is Adrià Gil Boronat, an erratic and extremely nervous man in his fifties.
 - One of my classmates is Samuel Viciano Herranz who has near perfect English. He is Domingo's student.
+
+!!! tip "Samuel's girlfriend"
+    - Samuel's girlfriend is Venezuelan; an outsider.
+    - She works at the English House.
+    - This is, interestingly enough, run by the same woman who *noticed* my [freshly mud-packed face in 2015](../early-years/2016.md#evidence-the-town-is-surveilling-me-without-my-knowledge) which seemed to me like she had seen me, except I had been in my flat in private.
+    - Samuel creates tension between myself and his girlfriend by telling her something that upsets her about me.
+    - I notice this at the [choir concert in December](december.md#choir-concert) where she is very obviously not happy with me.
+
 - Samuel had been studying singing at the Javea conservatory but moved to study piano in Dénia instead. It's not clear why. He doesn't have a good reason for it and his singing voice is amazing. 
 - Samuel makes a huge effort to help me throughout this year with translation and explaining things the fast-speaking teacher says. He walks home with me a little way after every class.
 - After the end of the course, in [June 2023](../2023/june.md), Samuel rarely speaks to me at all and never walks with me. 
