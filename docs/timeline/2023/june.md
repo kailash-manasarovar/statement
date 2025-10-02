@@ -80,7 +80,7 @@ function googleTranslateElementInit() {
 ![Intolerable levels of doubt and fear](../../content/tweets/intolerable-doubt-and-fear.png)
 
 !!! tip "Was I being primed and groomed online for that day?"
-    - A "setting up of events I should be worried about" was an ongoing theme with the cyber-stalkers from the conservatory, particularly in [August 2023](september.md#going-public-on-twitter) when I was so frightened I went public on Twitter, and then again in [March 2024](../2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) when I became afraid for my life and left my piano studies, and then again in [April 2024](../2024/april.md#the-third-time-im-convinced-im-going-to-be-arrested) when I became certain I was going to be arrested.
+    - A "setting up of events I should be worried about" was an ongoing theme with the cyber-stalkers from the conservatory, particularly in [August 2023](september.md#going-public-on-twitter) when I was so frightened I went public on Twitter, and then again in [March 2024](../2024/march/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) when I became afraid for my life and left my piano studies, and then again in [April 2024](../2024/april.md#the-third-time-im-convinced-im-going-to-be-arrested) when I became certain I was going to be arrested.
     - Is the original childishness an intended and sinister part of the murderous plots?
     - Will an avalanche of victims corroborate my story with their own horrible experiences at the hands of teachers and staff of the Generalitat Valenciana's conservatory system for music and dance?
 

@@ -60,7 +60,7 @@ function googleTranslateElementInit() {
 
 ### Blowing in my face
 
-- I am walking towards the tunnel on [Wednesday 13th March 2024](../timeline/2024/march.md#wednesday-13th-march) after choir.
+- I am walking towards the tunnel on [Wednesday 13th March 2024](../timeline/2024/march/march.md#wednesday-13th-march) after choir.
 - A man with long blond hair is coming out of the tunnel as I am walking in.
 - He walks right up to me grinning and blows in my face.
 - I would recognize this man again and believe I may have photos of him as a boy.
@@ -75,7 +75,7 @@ function googleTranslateElementInit() {
 
 ### Adjusting a child's rucksack
 
-- On [Tuesday 12th March 2024](../timeline/2024/march.md#tuesday-12th-march) I see Domingo adjusting a very small child's rucksack on the stairs going into the conservatory.
+- On [Tuesday 12th March 2024](../timeline/2024/march/march.md#tuesday-12th-march) I see Domingo adjusting a very small child's rucksack on the stairs going into the conservatory.
 - He has his hands on the straps and he is helping the child of about 5 or 6-years-old, possibly younger, adjust them.
 - He puts his hands on the child's shoulders, neck, head, and arms.
 - As his hands are on the child's shoulders, neck, and head, Domingo looks meaningfully at me.

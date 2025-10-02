@@ -193,7 +193,7 @@
 
 ### Madrid
 
-- I see [my friend](../2024/march.md#madrid) again and explain how much danger I am in.
+- I see [my friend](../2024/march/march.md#madrid) again and explain how much danger I am in.
 - She tells me she knows someone who can help me; a lady who works for the Spanish foreign office in London.
 - My friend says she can visit Madrid the following week as I'm passing through on my way home and talk to her.
 

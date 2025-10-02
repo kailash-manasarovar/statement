@@ -36,7 +36,7 @@ function googleTranslateElementInit() {
 ## Cognitive loss
 
 - I believe I have lost my previous level of cognitive skills to a large degree and I can only assume this is due to being poisoned over time in my apartment.
-- I mentioned in my description of [March's traumatic events](../timeline/2024/march.md#changing-card-pin-numbers) that I had great difficulty performing simple tasks.
+- I mentioned in my description of [March's traumatic events](../timeline/2024/march/march.md#changing-card-pin-numbers) that I had great difficulty performing simple tasks.
 - In fact, I have noticed my writing skills declining over the last year. It used to be extremely simple for me to prepare and execute writing tasks, now it isn't. 
 - I believe this makes it highly unlikely for me to continue working in the way I was before as things are now difficult.
 - I have also completely lost my ability to play chess well. I used to be extremely good at chess, and quick to understand the board and game status, and I always beat average players. I was always able to see the permutations of about 5 or 6 moves in advance.

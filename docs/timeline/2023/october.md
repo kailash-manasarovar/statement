@@ -686,7 +686,7 @@ function googleTranslateElementInit() {
 
 [![Poisoned aunt](../../content/tweets/october-2023/poisoned-aunt.png)](https://x.com/1FRGVN/status/1715741021655466380)
 
-- Somehow, from this rather innocuous message which would hold no meaning at all for anyone who didn't know what I was talking about, `aunts` became a [bullying theme](../2024/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory).
+- Somehow, from this rather innocuous message which would hold no meaning at all for anyone who didn't know what I was talking about, `aunts` became a [bullying theme](../2024/march/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory).
 
 #### Threats from hacker account
 
