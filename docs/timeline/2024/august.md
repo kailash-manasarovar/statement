@@ -220,7 +220,7 @@
 
 ![Rocio Vidal](../../content/images/Rocio-Vidal-on-Google-search.png)
 
-- I also send a copy of the first page of my [denuncia from March](march.md#reporting-the-matter-to-the-police-in-madrid).
+- I also send a copy of the first page of my [denuncia from March](march/13-end.md#reporting-the-matter-to-the-police-in-madrid).
 - The conversation with the hacker continues as I do this.
 
 ## Followed by the gypsy in France
