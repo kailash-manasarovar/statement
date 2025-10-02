@@ -5,7 +5,7 @@
 ### Translator
 
 - It's time to go to the police again but I need a translator to help me deal with them properly.
-- After my experience with the [police in Dénia in February](february.md#my-first-trip-to-the-spanish-police-in-denia), I believe I need firm proof of hacking before I can go to them again!
+- After my experience with the [police in Dénia in February](../february.md#my-first-trip-to-the-spanish-police-in-denia), I believe I need firm proof of hacking before I can go to them again!
 - I get a recommendation, Sara Lebanon, through an Irish woman Brenda who incidentally knows Alessandra very well. 
 - I tell her everything, the child sexual abuse I suffered (she's very alarmed at this) and how it made me intolerant of children being sexualized at the conservatory, and how I had been targeted for basically mentioning that very informally in 2015. 
 - She says to me, "Oh at least you know you're not imagining it." I wonder why she would say that. She says it a few times.
@@ -24,9 +24,9 @@
 - At some point, Jorge the expert looks at a list of stalker accounts that I send him.
 - Here is his response:
 
-![jorge checks accounts](../../content/images/jorge.JPG)
+![jorge checks accounts](../../../content/images/jorge.JPG)
 
-- Here is the [whole WhatsApp chat with Jorge](../../content/whatsapps/WhatsApp%20Chat%20-%20Jorge%20Esclapez%20Deckcard23.zip).
+- Here is the [whole WhatsApp chat with Jorge](../../../content/whatsapps/WhatsApp%20Chat%20-%20Jorge%20Esclapez%20Deckcard23.zip).
 
 ### Choir class
 
@@ -87,12 +87,12 @@
 - Nevertheless, I set off for the conservatory.
 - I pop into the church again just off the Carrer Loreto.
 
-![Church](../../content/images/church-narcis.jpg)
+![Church](../../../content/images/church-narcis.jpg)
 
 - A couple prays together at the front of the church, crying softly.
 - They carry a picture of a young girl; a daughter they lost to the sex-slave industry, maybe?
 
-![Devastated parents](../../content/images/devastated-parents-2.png)
+![Devastated parents](../../../content/images/devastated-parents-2.png)
 
 - I hum the Salve from the back.
 
@@ -129,12 +129,12 @@
 - I am followed and tracked in Madrid. 
 - Things that I say to my friend at lunch are repeated on fake account profiles later on. This happens every time I go to Madrid to see my friend.
 - I write a letter **by hand** to my parents and I date it the following morning. This is the first contact with them for nearly 3 years.
-    - [Letter to parents of 15th March](../../content/documents/letters/letter-to-parents-march-15.pdf).
+    - [Letter to parents of 15th March](../../../content/documents/letters/letter-to-parents-march-15.pdf).
 - I explain I'm being terrorized and by whom. I try to keep it calm because my parents are elderly, and I don't know how things are with them. I don't want to upset them too much.
 - I tell them I believe that Domingo and his family are planning to murder me.
 - I remind them of what he told me all those years ago, the threat of poisoning, something that I had told them at that time.
 - While I'm in Madrid I reformat to factory settings both my Mac and iPhone. It doesn't appear to make any difference at all.
-- I contact my friend I saw at [Christmas 2022](../2022/december.md#madrid) and [Christmas 2023](../2023/december.md#madrid).
+- I contact my friend I saw at [Christmas 2022](../../2022/december.md#madrid) and [Christmas 2023](../../2023/december.md#madrid).
 - I tell her that I'm experiencing the hostile cyber-stalking flying-monkey attacks that she told me her sister was experiencing too, and I tell her what teachers and staff at the conservatory have done also.
 - She advises we go to the police the following morning.
 
@@ -145,9 +145,9 @@
 - With the help of my friend I make a proper denuncia to the police in Madrid.
 - The report goes well, although I am finding it very difficult to think straight, and my friend's translations and the consequent additions to the denuncia documents are not quite right.
 
-    - [Denuncia page 1](../../content/documents/evidence/Madrid%201.JPG).
-    - [Denuncia page 2](../../content/documents/evidence/Madrid%202.JPG).
-    - [Denuncia page 3](../../content/documents/evidence/Madrid%203.JPG).
+    - [Denuncia page 1](../../../content/documents/evidence/Madrid%201.JPG).
+    - [Denuncia page 2](../../../content/documents/evidence/Madrid%202.JPG).
+    - [Denuncia page 3](../../../content/documents/evidence/Madrid%203.JPG).
 
 - I start to show the police officer some of the screenshots I have, including the picture of me in my pants they put on Google search.
 - At that moment, the conversation is somewhat shutdown and she tells us that before they can investigate I need to get a cyber expert to examine my devices in order to prove I've been hacked.
@@ -158,7 +158,7 @@
 - We do some research into getting my devices examined for hacking so that I can amplify my report to the police.
 - We find out to have this done can cost thousands.
 - We find an expert in Alicante who is reasonable, and quotes 600 euros for a laptop, phone, and two webcams.
-- My friend helps me [write a letter](../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf) to David Piñeiro, the technical expert at D.P.R., Arzobispo Loaces, 17, Local 1 - 2, 03003 Alicante.
+- My friend helps me [write a letter](../../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf) to David Piñeiro, the technical expert at D.P.R., Arzobispo Loaces, 17, Local 1 - 2, 03003 Alicante.
 
 ## 16th March
 
@@ -166,7 +166,7 @@
 
 - Chris BJ gaslights me on WhatsApp by obviously and weirdly referring to a tweet I sent after the piano concert.
 
-![I do love you](../../content/tweets/i-do-love-you.png)
+![I do love you](../../../content/tweets/i-do-love-you.png)
 
 - When I ask her about it, she denies it.
 - Throughout most of my communication with Chris BJ about the whole business there has been a high level of gaslighting coming from her, even though I shared all my documentation I sent to the Generalitat and other things.
@@ -178,11 +178,11 @@
 
 ### Email to Paqui
 
-- I [email Paqui](../../content/documents/emails/Letter%20to%20Paqui%2017-3.pdf) about the concert and subsequent events. I want her to clarify why I should feel fearful about going to the conservatory. She does not reply.
+- I [email Paqui](../../../content/documents/emails/Letter%20to%20Paqui%2017-3.pdf) about the concert and subsequent events. I want her to clarify why I should feel fearful about going to the conservatory. She does not reply.
 - Her silence speaks a thousand words.
 - I realize I am indeed not safe so I excuse myself from classes following the week of Fallas which means public holidays in the Valencia region.
 
-![Excusing myself from class](../../content/documents/papeles-conservatorio/excusing-myself-from-class.png)
+![Excusing myself from class](../../../content/documents/papeles-conservatorio/excusing-myself-from-class.png)
 
 ## Online threats during this period
 
@@ -190,66 +190,66 @@
 
 - This one references my private health matter which I told no one about except Google, but they all knew about it. 
 
-![private health matter](../../content/images/threats/march-threats.png)
+![private health matter](../../../content/images/threats/march-threats.png)
 
 ### Twitter screenshots
 
 - The B.A. Feldman account has been pretending to be the trumpet teacher for a while. Quite often, Trump features in accounts I'm supposed to believe are the trumpet teacher's.
 
-![ba feldman account](../../content/images/fake-accounts/ba-feldman-1.png)
-![ba feldman account](../../content/images/fake-accounts/ba-feldman-2.png)
-![march threats](../../content/images/threats/march-threats-1.png)
+![ba feldman account](../../../content/images/fake-accounts/ba-feldman-1.png)
+![ba feldman account](../../../content/images/fake-accounts/ba-feldman-2.png)
+![march threats](../../../content/images/threats/march-threats-1.png)
 
 - The following account is an example of a few which had pure violence as content around this time. 
 
-![march threats](../../content/images/threats/march-threats-2.png)
-![march threats](../../content/images/threats/march-threats-3.png)
-![march threats](../../content/images/threats/march-threats-4.png)
-![march threats](../../content/images/threats/march-threats-5.png)
-![march threats](../../content/images/threats/march-threats-6.png)
-![march threats](../../content/images/threats/march-threats-7.png)
+![march threats](../../../content/images/threats/march-threats-2.png)
+![march threats](../../../content/images/threats/march-threats-3.png)
+![march threats](../../../content/images/threats/march-threats-4.png)
+![march threats](../../../content/images/threats/march-threats-5.png)
+![march threats](../../../content/images/threats/march-threats-6.png)
+![march threats](../../../content/images/threats/march-threats-7.png)
 
 ### Random threats of violence
 
 - Norma relates to chamber music class and the bullying there.
 
-![march threats](../../content/images/threats/march-threats-8.png)
+![march threats](../../../content/images/threats/march-threats-8.png)
 
 - Khadidjatu sounds like Ka did you too. Africas is related to a song at choir and my personal life.
 
-![march threats](../../content/images/threats/march-threats-9.png)
+![march threats](../../../content/images/threats/march-threats-9.png)
 
 - A very threatening message. This whole tweet conversation with this account was extremely threatening and phosphorous poisoning was mentioned.
 
-![march threats](../../content/images/threats/march-threats-14.png)
+![march threats](../../../content/images/threats/march-threats-14.png)
 
 - I wondered if this account was the technician guy at the conservatory or the owner of the mobile phone shop.
 
-![march threats](../../content/images/threats/march-threats-12.png)
+![march threats](../../../content/images/threats/march-threats-12.png)
 
 - Tyburski I took to mean they were going to tamper with my car. The comment is derogatory of course. Note this profile pic looks like the [nurse again](../2021/december.md#semen-stains-on-the-sofa).
 
-![march threats](../../content/images/threats/march-threats-13.png)
+![march threats](../../../content/images/threats/march-threats-13.png)
 
 - The message translates to: "TERF I live for revenge."
 
-![march threats](../../content/images/threats/march-threats-11.png)
-![march threats](../../content/images/threats/march-threats-15.png)
+![march threats](../../../content/images/threats/march-threats-11.png)
+![march threats](../../../content/images/threats/march-threats-15.png)
 
 - Gone fission I took to refer to a conversation I had with Christine BJ at lunch where I was explaining how being stalked like this felt. This was back in probably November 2023 sometime. 
 - I had said that I believe the trumpet teacher was going to be the man I married and that he was doing the "if he likes you he treats you badly" thing to nuclear fission levels.
 
-![march threats](../../content/images/threats/march-threats-10.png)
+![march threats](../../../content/images/threats/march-threats-10.png)
 
 - An account called `@HierEncore49002` converses with me on Twitter. Peppered throughout the chat are threats and references to jail, drugs, and poisoning. Here's the search: https://x.com/search?q=%20%20(from%3AHEncore49002)%20(to%3A1frgvn)&src=typed_query&f=live and following are some examples.
 
-![hier encore threatening chat](../../content/images/threats/hier-1.png)
-![hier encore threatening chat](../../content/images/threats/hier-2.png)
-![hier encore threatening chat](../../content/images/threats/hier-3.png)
+![hier encore threatening chat](../../../content/images/threats/hier-1.png)
+![hier encore threatening chat](../../../content/images/threats/hier-2.png)
+![hier encore threatening chat](../../../content/images/threats/hier-3.png)
 
 - Interesting deleted reference. I'll try and remember what it was. I think it was in reference to me going no contact with my family.
 
-![hier encore threatening chat](../../content/images/threats/hier-4.png)
+![hier encore threatening chat](../../../content/images/threats/hier-4.png)
 
 - I believe this account, like many others, is manned by either Hazel or Sandra Smith together with Domingo and Carmen Cano by delegation. 
 - The reason I say that is because the English is extremely fluent, very vernacular for some messages, and then not at all.
@@ -261,11 +261,11 @@
 - I guess it's entirely possible this is just a random account which happened to find itself in the middle of a professional cyber stalking attack, but I doubt it.
 - Note she is calling herself `@loviatar` which is a bit of a play on words for avatar, and reminds me of the transformer figure I see on the `@jctot19` account every day, a figure which is drawn to look exactly like Ana Girbes, the musical language teacher at the conservatory.
 
-![Ana Girbes](../../content/images/fake-accounts/ani-lovi/ana.png)
+![Ana Girbes](../../../content/images/fake-accounts/ani-lovi/ana.png)
 
-- The evening after the following interaction, [Ana Girbes barks](january.md#ana-and-ana-and-paqui), literally, at me about my very private health matter that no one *could possibly* know about unless they had access to my Google search activity.
+- The evening after the following interaction, [Ana Girbes barks](../january.md#ana-and-ana-and-paqui), literally, at me about my very private health matter that no one *could possibly* know about unless they had access to my Google search activity.
 
-![Ana Girbes](../../content/images/fake-accounts/ani-lovi/ana-1.png)
+![Ana Girbes](../../../content/images/fake-accounts/ani-lovi/ana-1.png)
 
 - I can see them all laughing and giggling together after terrorizing me in this way at the conservatory.
 
@@ -276,30 +276,30 @@
 - A lot of posts from her make these suggestions.
 - The account would go from being extremely mean to suddenly caring and kind. Here's the account being reasonable at one point.
 
-![Ana Girbes](../../content/images/fake-accounts/ani-lovi/ana-2.png)
+![Ana Girbes](../../../content/images/fake-accounts/ani-lovi/ana-2.png)
 
 - And this is an example of the sort of gaslighting I would get after having been terrorized, as if I was imagining it. 
 
-![Ana Girbes](../../content/images/fake-accounts/ani-lovi/ana-3.png)
+![Ana Girbes](../../../content/images/fake-accounts/ani-lovi/ana-3.png)
 
 ### Lorraine threats 
 
 - Another account appeared to be a trigger to remind me of Lorraine Blackbourn who had hung herself in July 2021 in Dénia. 
 - This account had been following me since January but the threat level ramped up in March.
 
-![Lorraine](../../content/images/threats/lorraine/lorraine%20account.png)
-![Lorraine](../../content/images/threats/lorraine/lorraine-2.png)
+![Lorraine](../../../content/images/threats/lorraine/lorraine%20account.png)
+![Lorraine](../../../content/images/threats/lorraine/lorraine-2.png)
 
 - I thought `@kiwipally` was also a stalker account as they were very active at this time.
 
-![Lorraine](../../content/images/threats/lorraine/lorraine%20again.png)
-![Lorraine](../../content/images/threats/lorraine/lorraine-5.png)
-![Lorraine](../../content/images/threats/lorraine/lorraine-4.png)
-![Lorraine](../../content/images/threats/lorraine/lorraine-3.png)
+![Lorraine](../../../content/images/threats/lorraine/lorraine%20again.png)
+![Lorraine](../../../content/images/threats/lorraine/lorraine-5.png)
+![Lorraine](../../../content/images/threats/lorraine/lorraine-4.png)
+![Lorraine](../../../content/images/threats/lorraine/lorraine-3.png)
 
 - The account no longer exists.
 
-![Lorraine](../../content/images/threats/lorraine/lorraine-6.png)
+![Lorraine](../../../content/images/threats/lorraine/lorraine-6.png)
 
 ## 19th March
 
@@ -328,19 +328,19 @@
     - https://x.com/1FRGVN/status/1566353197878362114
 - I never once mentioned Mike Wenham, the name of the murderer, and yet, I am DM'ed by an account that asks me about him.
 
-![Mike](../../content/images/threats/mike-wenham/march-threats-mike-wenham-1.png)
-![Mike](../../content/images/threats/mike-wenham/march-threats-mike-wenham-2.png)
+![Mike](../../../content/images/threats/mike-wenham/march-threats-mike-wenham-1.png)
+![Mike](../../../content/images/threats/mike-wenham/march-threats-mike-wenham-2.png)
 
 - I looked at the profile of the account and it was a typical fake account used by stalkers, just a few messages and followers.
 - The message on the timeline was very suggestive because I had just found my mum's Twitter account. My cousin Leah had found me somehow a while back and I believe she told my mum I was on Twitter and gave her my details. 
 - I saw her following me and subsequently found out it really was her. Curiously, the hackers were more sure of that than me at that time! Initially, I had thought it was another fake account.
 
-![mum](../../content/images/mummy.png)
+![mum](../../../content/images/mummy.png)
 
 - Anyway, the whole interaction with this account was extremely threatening.
 
-![Mike](../../content/images/threats/mike-wenham/mike-2.png)
-![Mike](../../content/images/threats/mike-wenham/mike-3.png)
+![Mike](../../../content/images/threats/mike-wenham/mike-2.png)
+![Mike](../../../content/images/threats/mike-wenham/mike-3.png)
 
 - Whoever it was had done a fair bit of research on my Twitter activity and background to it.
 - Again, the English is extremely vernacular so it has to be a native.
@@ -358,11 +358,11 @@
 ### Domingo the piano teacher
 
 - The account `@AllyBrisket` had always seemed suspicious to me.
-- Samuel from harmony class back in [May 2023 when the cyber stalking really got going](../2023/may.md#harmony-class-the-week-after-my-first-explosive-tweet) may have signalled this account out to me during a weird chat.
+- Samuel from harmony class back in [May 2023 when the cyber stalking really got going](../../2023/may.md#harmony-class-the-week-after-my-first-explosive-tweet) may have signalled this account out to me during a weird chat.
 - At this point I'm so stressed I start communicating with accounts directly as if they are who I they think they are.
 
-![Domingo 1](../../content/images/fake-accounts/domingo-1.png)
-![Domingo 2](../../content/images/fake-accounts/domingo-2.png)
+![Domingo 1](../../../content/images/fake-accounts/domingo-1.png)
+![Domingo 2](../../../content/images/fake-accounts/domingo-2.png)
 
 ## 24th March
 
@@ -382,8 +382,8 @@
 
 - I write to the Guardia Civil from my hotel room in Mumbai.
 
-    - [Letter in English](../../content/documents/evidence/civil-guard.pdf).
-    - [Letter in Spanish](../../content/documents/evidence/civil-guard-spain.pdf).
+    - [Letter in English](../../../content/documents/evidence/civil-guard.pdf).
+    - [Letter in Spanish](../../../content/documents/evidence/civil-guard-spain.pdf).
 
 - I print and send it registered from my Mumbai hotel.
 - I don't know if anyone received it.
@@ -394,65 +394,4 @@
 - What's unsurprising is how the men are happy to remain hidden while they push the women out in front, to eventually take the blame when it all goes tits-up for them, which is inevitable of course.
 - I wonder if, nowadays, girls with parents in the know get jobs as make-up artists, set designers, poisoners, rape victim shepherdesses, and similar, in the burgeoning local rape-spy-cam porn industry while their parents pray fervently that their daughters will not be targeted, but I guess even they become a coward's worthy challenge.
 
-![Murderous bands of women](../../content/images/women-as-bad.png)
-
-## Tweets
-
-### `@1frgvn`
-
-- https://x.com/january_myth/status/1772034747775992249 -> the Taru Ann account, which may be sometimes run by Patricia retweets a post from 29th August 2023, around the time the hackers are revealing themselves. I don't remember seeing it at that time but I may have and it just didn't register as connected.
-
-![Love poem](../../content/tweets/taru-ann-poem-2.png)
-
-- At the same time, she retweets a pic from 12th June 2023, which I have been unable to locate so [asked the account owner about it directly](../../content/tweets/long-long-way-to-go.png) and she has posted the pic: https://x.com/january_myth/status/1860955287672213591/photo/1 but not the poem that went with it. I remember seeing that one but, again, I made no connection to this account.
-- I ask her about the poem.
-
-![taru ann poem and pic posted on 12th june 2023](../../content/images/taru-ann-poem.png)
-
-- It's curious that she deleted the tweet from 12th June 2023.
-- She just deleted a tweet replied to me today (Friday 29th November) in a way to **call out** the fact that she deletes tweets from time to time, except she never did it before today (Friday 29th November).
-- I begin to suspect that whoever is managing the Taru Ann account could be well known to me.
-- On September 22nd, after weird communication from Patricia all summer, I wonder if Taru Ann is Patricia from time to time by delegation: https://x.com/1FRGVN/status/1837596563557831058. The account likes my question in response. It could be anyone I guess but certainly someone involved somehow.
-
-![Could Patricia be Taru Ann sometimes](../../content/tweets/trish-is-taru-ann.png)
-
-- https://x.com/1FRGVN/status/1764211138269422006
-- https://x.com/1FRGVN/status/1764210826007728603
-- https://x.com/1FRGVN/status/1764554104469180450
-- https://x.com/1FRGVN/status/1764557706151538997
-- https://x.com/1FRGVN/status/1764555858963222694
-- https://x.com/1FRGVN/status/1765679070510026786
-- https://x.com/1FRGVN/status/1766020478387306801
-- https://x.com/1FRGVN/status/1766020032608227754
-- https://x.com/1FRGVN/status/1766018992202813506
-- https://x.com/1FRGVN/status/1766412512306618714
-- https://x.com/1FRGVN/status/1768008919329198108
-- https://x.com/1FRGVN/status/1768046490272870687
-- https://x.com/1FRGVN/status/1770013466180387194
-- https://x.com/1FRGVN/status/1770385824359608528 -> this was another tactic the stalkers used, posting my own tweets back at me, or liking them so that I would see the messages in order to terrorize me further.
-- https://x.com/1FRGVN/status/1771830853091422337
-- https://x.com/HEncore49002/status/1771577638932328955
-- https://x.com/1FRGVN/status/1770308212945834336
-- https://x.com/1FRGVN/status/1772072527218504061
-- https://x.com/1FRGVN/status/1772071779210498481
-- https://x.com/1FRGVN/status/1772075005066568065
-- https://x.com/1FRGVN/status/1772074205938319624 -> pretty sure there is some sort of bet on.
-- https://x.com/1FRGVN/status/1772059637384151485
-- https://x.com/1FRGVN/status/1772071533839597976
-- https://x.com/1FRGVN/status/1772070689496830409
-- https://x.com/1FRGVN/status/1772062320069398540
-- https://x.com/1FRGVN/status/1772060317524070527
-- https://x.com/1FRGVN/status/1772080804933357870
-- https://x.com/1FRGVN/status/1772255398801576139
-- https://x.com/1FRGVN/status/1772602721276751926 -> apologizing for not being able to go to choir because I am in fear for my life.
-- https://x.com/1FRGVN/status/1773059705549508827 -> Paqui on a fake account. She looks like she wants to kill herself.
-- https://x.com/1FRGVN/status/1773450210930270351
-- https://x.com/1FRGVN/status/1773459307423568301
-- https://x.com/1FRGVN/status/1773488720185798746
-- https://x.com/1FRGVN/status/1773488467281936384
-
-### `@JackChardwood`
-
-- It seems the tweets in here for this period are mostly related to romance and relationship, i.e. keeping the lie going.
-- Here's a link to the search: https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2024-03-31%20since%3A2024-03-01&src=typed_query&f=live
-
+![Murderous bands of women](../../../content/images/women-as-bad.png)
