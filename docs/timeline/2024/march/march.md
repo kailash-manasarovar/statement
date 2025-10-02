@@ -30,8 +30,12 @@
 - It details how a few days later I became convinced I was going to be murdered and decided I had no choice but to stop my studies.
 - I describe how I realize with horror that Lorraine's fate is interlinked with what is going on for me.
 - I explain how I escaped to Madrid and reported the cyber-stalking, gang-stalking, bullying, hacking, and how they had taken private photos of me from hacked machines to the police there.
-- It details all my failed attempts to get help.
-- It's a horrible story and very triggering.
-- I can only guess at how many other women, girls, beautiful boys and babies went more directly to hell without the change to make a complaint.
+- I detail my attempts to communicate with Paqui Fornet and her reactions, while I was seeing her online in fake accounts with threatening poses.
+
+![Paqui in account photos](../../../content/images/fake-accounts/paqui1.png)
+
+- It details all my failed attempts to get help from numerous people, lawyers, and organizations.
+- March 2024 is one of the most horrible parts of this story and writing it down is also triggering.
+- I can only guess at how many other women, girls, beautiful boys and babies went more directly to hell without the strength or opportunity to make a complaint.
 
 ![The bull fighters attack a child with the intention of murder](../../../content/images/bull-fight.png)
