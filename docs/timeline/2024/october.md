@@ -307,7 +307,7 @@
 ### Mary breaks
 
 - On one evening over these few days before I left for London, I had my little statue of Mary in my hand and it was if she jumped out and onto the floor, smashing into pieces.
-- A sign.
+- A sign, but not for me.
 
 ## Challenging Sandra Rita Diaz
 
