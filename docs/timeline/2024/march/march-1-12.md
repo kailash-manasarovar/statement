@@ -13,7 +13,7 @@
 - I arrive at my piano lesson and, after a minute or two, all of a sudden, a woman enters the classroom.
 - She is a large dark curly-haired woman of about 50 years old and I would recognize her again.
 
-![An inspector calls from the GV](../../content/images/inspector.png)
+![An inspector calls from the GV](../../../content/images/inspector.png)
 
 - Paqui explains the woman is an *inspector* from the Generalitat and she is here to help me.
 - I feel like it's probably an ambush and put my phone on record.
@@ -26,9 +26,9 @@
 - I mention that I sent the notices by email and that my address is in the systems and that they could have asked, or informed me, at any time.
 - She ignores me. These are the documents she showed me.
 
-    - [Document receipt copy with date info](../../content/documents/gv/8.%20Receipt%20date%20received%205%20March%20at%20piano%20lesson.JPG).
-    - [The document receipt](../../content/documents/gv/8.%20Receipt%20of%20something%20from%20the%20Generalitat%201%205%20March%202023.jpeg).
-    - [A part of the document they apparently sent](../../content/documents/gv/8.%20Receipt%20of%20something%20from%20the%20Generalitat%202%205%20March%202023.jpeg).
+    - [Document receipt copy with date info](../../../content/documents/gv/8.%20Receipt%20date%20received%205%20March%20at%20piano%20lesson.JPG).
+    - [The document receipt](../../../content/documents/gv/8.%20Receipt%20of%20something%20from%20the%20Generalitat%201%205%20March%202023.jpeg).
+    - [A part of the document they apparently sent](../../../content/documents/gv/8.%20Receipt%20of%20something%20from%20the%20Generalitat%202%205%20March%202023.jpeg).
 
 - Paqui looks nervous.
 - I ask her for the content of the letter they sent which I do not see in the documents she has.
@@ -92,7 +92,7 @@
 - I can only assume it is a message from someone to make me think Carmen Cano is behind the scam.
 - Carmen Cano being Domingo the piano teacher's sister.
 
-![Carmen Cano](../../content/images/fake-accounts/carmen-cano.png)
+![Carmen Cano](../../../content/images/fake-accounts/carmen-cano.png)
 
 ### Scarfs from the lady who knows who I am
 
@@ -118,18 +118,18 @@
 - Shortly after this, another remarkable set of tweet references were related to a monetary gift I had sent to my monk friend of 333 euros at Christmas.
 - As you may remember, they refer to the monk as "panda".
 
-![Panda 333](../../content/tweets/panda-333-1.png)
-![Panda 333](../../content/tweets/panda-333-3.png)
-![Panda 333](../../content/tweets/panda-333-4.png)
-![Panda 333](../../content/tweets/panda-333-5.png)
+![Panda 333](../../../content/tweets/panda-333-1.png)
+![Panda 333](../../../content/tweets/panda-333-3.png)
+![Panda 333](../../../content/tweets/panda-333-4.png)
+![Panda 333](../../../content/tweets/panda-333-5.png)
 
 - I'm pretty sure the `@crispolata` account is Hazel or Sandra Smith, or one of their associates.
 
 #### Fake accounts reference payments I have made online
 
 - I sent a financial a gift to my friend for Christmas.
-- My friend is a Tibetan monk and [he visited me in September 2023](../2023/september.md#the-tibetan-monk-visits) when I was being severely terrorized online and in-person in the town.
-- Fake accounts post the payment amount to me, while I'm in the middle of an X thread with a [stalker account about "pandas"](march.md#thursday-7th-march).
+- My friend is a Tibetan monk and [he visited me in September 2023](../../2023/september.md#the-tibetan-monk-visits) when I was being severely terrorized online and in-person in the town.
+- Fake accounts post the payment amount to me, while I'm in the middle of an X thread with a [stalker account about "pandas"](../march.md#thursday-7th-march).
 
 ### Change root password
 
@@ -149,15 +149,15 @@
 - He asks me to access 1.1.1.1 on my browser. What he's expecting to happen, doesn't happen. 
 - He's expecting to see the WARP webpage but, instead, we get the login page for the network router.
 
-![Router login](../../content/images/hacked-work-laptop/router-login.png)
+![Router login](../../../content/images/hacked-work-laptop/router-login.png)
 
 - He also sees some weird stuff with Mac certificates.
 
-![Mac certificates](../../content/images/hacked-work-laptop/weird-issues-with-certificates.png)
+![Mac certificates](../../../content/images/hacked-work-laptop/weird-issues-with-certificates.png)
 
 - He asks me to check on FireFox too.
 
-![Firefox security alert](../../content/images/hacked-work-laptop/hacking-alert.png)
+![Firefox security alert](../../../content/images/hacked-work-laptop/hacking-alert.png)
 
 !!! tip
     - The screenshots above are from my work laptop.
@@ -167,11 +167,11 @@
 - They put the `FalconSensorMacOS.MaverickGyr.pkg` on both my work and my personal laptop. The files are [here](https://drive.google.com/file/d/1MPTzekQ0o7pLizShUsWR_b-3qq73Aa-W/view?usp=sharing).
 - A few hours later, a stalker account tweets about 11.11 and references relationships.
 
-![Tweet about 11:11](../../content/images/hacked-work-laptop/stalker-account-mentions-it.png)
+![Tweet about 11:11](../../../content/images/hacked-work-laptop/stalker-account-mentions-it.png)
 
 - The following day, I tweet about it.
 
-![Tweet about 11:11](../../content/images/hacked-work-laptop/router-hack-tweet.png)
+![Tweet about 11:11](../../../content/images/hacked-work-laptop/router-hack-tweet.png)
 
 - From this point, I block all my cameras on laptops and phones with post it notes, or paper and sticky tape. 
 
@@ -204,7 +204,7 @@
 ### Chamber music class
 
 - I am extraordinarily stressed and explain to Katia that I am fearful for my life and I'm worried I'm going to be robbed.
-- An account pops up over the next few days which appears to be [referencing Katia moaning about this publicly](../../content/images/fake-accounts/list/52.png).
+- An account pops up over the next few days which appears to be [referencing Katia moaning about this publicly](../../../content/images/fake-accounts/list/52.png).
 
 ### Cracked rib
 
@@ -249,22 +249,22 @@
 !!! danger
     - I'm really worried about this boy now, he was a beautiful boy.
     - Could they be so sick and twisted, they were demonstrating proudly what they do to children?
-    - Just like [the two drugged girls](../2022/june.md#maria-and-domingo) in June 2022.
-    - Or the [girls at the audition](../2022/june.md#conservatory-audition).
-    - Or [Elvira in her vest](../2023/may.md#elvira).
+    - Just like [the two drugged girls](../../2022/june.md#maria-and-domingo) in June 2022.
+    - Or the [girls at the audition](../../2022/june.md#conservatory-audition).
+    - Or [Elvira in her vest](../../2023/may.md#elvira).
     - Or the [tiny child Domingo was apparently helping](#domingo-adjusts-the-childs-rucksack). 
     - Horrifying.
     
-- There are pieces with related names, including something like "Four Aunts" by a modern composer called Mercedes Zavala (this is a horribly aggressive piece that Antonio Signes Argudo plays very well), [poison and aunts](../early-years/2014.md#poisoned-aunts), and other related things.
+- There are pieces with related names, including something like "Four Aunts" by a modern composer called Mercedes Zavala (this is a horribly aggressive piece that Antonio Signes Argudo plays very well), [poison and aunts](../../early-years/2014.md#poisoned-aunts), and other related things.
 
-![Poisoned aunt](../../content/tweets/poisoned-aunt.png)
+![Poisoned aunt](../../../content/tweets/poisoned-aunt.png)
 
 - Before we begin, people are coming in to listen. Many of them look at me and smile.
-- I recognize a couple as [two people I saw on the beach](../2023/september.md#dog-tags-and-his-missus) following me and part of the group of people making sexual noises the September previous.
+- I recognize a couple as [two people I saw on the beach](../../2023/september.md#dog-tags-and-his-missus) following me and part of the group of people making sexual noises the September previous.
 - At 7.30, the concert begins.
 - At that moment, the lights go down, and the door to the hall opens, and in walks a woman who has dressed to look exactly like Lorraine Blackbourn, my friend who committed suicide.
 
-![The most evil people in Denia by far](../../content/images/lorraine-at-the-piano-concert.png)
+![The most evil people in Denia by far](../../../content/images/lorraine-at-the-piano-concert.png)
 
 - She has done a really good job of it too. 
 - I gasp.
@@ -275,14 +275,14 @@
 - Patricia, Christine BJ, and another English woman have come to listen. They probably know what's going on, it's not clear. They're pretending not to know. Certainly there is a frosty feeling, and when we walk out and I insist I'm going to continue playing the piano, and play some Spanish flamenco at the next concert, Patricia visibly grimaces.
 - When I get home that night, I check my camera security camera. 
 
-![Screenshot of the security cam alarm pic](../../content/documents/evidence/12-march-alarm-notification.jpeg)
+![Screenshot of the security cam alarm pic](../../../content/documents/evidence/12-march-alarm-notification.jpeg)
 
 - There's an orb in the video it captured. 
 - I post a Twitter poll about it: https://x.com/1FRGVN/status/1767647188698509820
 - a stalker account retweets my poll and makes a weird comment.
 
-![Security cam threats](../../content/tweets/piano-concert-threat.png)
-![Security cam threats](../../content/tweets/piano-concert-threat-info.png)
+![Security cam threats](../../../content/tweets/piano-concert-threat.png)
+![Security cam threats](../../../content/tweets/piano-concert-threat-info.png)
 
 - After the concert, I'm blocked from downloading the videos of the concert on the Generalitat's systems.
 
