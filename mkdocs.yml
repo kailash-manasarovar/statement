@@ -97,8 +97,8 @@ nav:
       - January: timeline/2024/january.md
       - February: timeline/2024/february.md
       - March:
-        - 1st to 12th: timeline/2024/march-1-12.md
-        - 13th to end: timeline/2024/march-13-end.md
+        - 1st to 12th: timeline/2024/march/1-12.md
+        - 13th to end: timeline/2024/march/13-end.md
         - Tweets: timeline/2024/march/tweets.md
       - April: timeline/2024/april.md
       - May: timeline/2024/may.md
