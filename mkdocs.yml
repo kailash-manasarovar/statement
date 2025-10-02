@@ -96,7 +96,9 @@ nav:
     - "2024":
       - January: timeline/2024/january.md
       - February: timeline/2024/february.md
-      - March: timeline/2024/march.md
+      - March:
+        - 1st to 12th: timeline/2024/march-1-12.md
+        - 13th to end: timeline/2024/march-13-end.md
       - April: timeline/2024/april.md
       - May: timeline/2024/may.md
       - June: timeline/2024/june.md
