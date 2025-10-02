@@ -166,9 +166,14 @@
 - I now wonder about the [upstairs neighbor and what I thought was his daughter in the lift](../2022/march.md#upstairs-neighbor-at-carrer-furs); a meeting obviously timed as they knew where I was every second.
 - I guess it could have been another porn "actress" come to star with me in the weekly specials on Denia TV or wherever they were being shown to literally everyone and anyone in the world.
 
-## Fatima
+## VSSH collects his aware at the Palau d'Arts
 
-- I head to Madrid to stay one night before traveling to Fatima in Portugal. I need to be away from Dénia as much as possible for my nervous system.
+- The L'Amistat band are awarded the *best band in the Valencian region*.
+- Extraordinary given every knows what's going on.
+
+## Fatima 20-26th October
+
+- I head to Madrid on 19th October to stay one night before traveling to Fatima in Portugal. I need to be away from Dénia as much as possible for my nervous system.
 
 !!! warning "Why didn't you leave Dénia?"
     - If I leave, then the story gets buried, the police do not investigate, and it happens again and again, and maybe someone is driven, again?, to suicide, or maybe they, again?, murder someone with poison, and children, again?, could be groomed into goodness knows what.
@@ -176,9 +181,10 @@
     - I was always working so hard, I had to think about that above and beyond everything else.
     - It was never clear where I could go to either. I still don't know. My family home in London is non-optimal.
 
-- Just before I leave on Saturday 12th October, I empty the bins. 
+- Just before I leave on Saturday 19th October, I empty the bins. 
 - There is a man in the driver's seat of a car staring at me angrily. 
 - His wife is embarrassed and looking down in the passenger seat. 
+- They look familiar, and I think they might be part of the Denia TV crowd I've seen online.
 - I remain amazed that anyone could be angry at the person they have been terrorizing relentlessly. I guess it's guilt. I tweet about it and suggest the man, if he didn't like the porn of me masturbating that everyone has seen, he should take it up with the local porn technicians.
 - I tweet about it: https://x.com/1FRGVN/status/1847579824128139602.
 - As I'm driving to the hotel I've booked in Madrid, all of a sudden, the volume disappears on Google maps so I'm lost on the busy M30/M40 junctions.
@@ -205,6 +211,12 @@
 
 - Here is the [WhatsApp chat with Movistar](../../content/whatsapps/WhatsApp%20Chat%20with%20Movistar.zip) where I explain I have been hacked and ask them to investigate.
 
+## Intense online stalking and hacking
+
+- Hackers post pictures of my hotel room seen from the front camera of my phone.
+- There is constant X activity.
+- tbc.
+
 ## Polygon fires the whole writing team
 
 - I'm fired summarily on 25th October, [as expected](#bullying-at-polygon).
@@ -212,16 +224,21 @@
 - I'm told the whole team is dismissed as they are no longer required.
 - I used to think it was because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy was able to cause enormous trouble with the tech systems, and consequently find out about my private political activities and managed to stick the boot in for me, just weeks after I started.
 - I now believe it was due to the [porn fatwa](../early-years/2003.md#porn-fatwa) which had gotten so out of control everything I did in my life was monitored and manipulated by porn addicts, often working alongside me in tech companies.
-- Furthermore, anyone in Polygon management knowing what was happening to me in Denia will have known I was about to be [murdered by poisoning by Carmen Cano and her associates](#serious-poisoning-with-intent-to-harm-or-kill). They couldn't have me turn up to meetings while that was happening now, could they?
+- I had just given a public online interview stating I believed I was being drugged and filmed in my flat.
+- Furthermore, anyone in Polygon management knowing what was happening to me in Denia will have known I was about to be [murdered by poisoning by Carmen Cano and her associates](#serious-poisoning-with-intent-to-harm-or-kill). 
+- They couldn't have me turn up to meetings while that was happening now, could they?
+- I wonder if VSSH and the L'Amistat band were also aware of this about to happen.
 - The dismissal letter explains the company is aware it is an unlawful dismissal, but I'm supposed to accept it.
 - I instruct a lawyer to help me who appears to be on Polygon's side.
 - I suspect they continue to hire one of my team, [Hansraj Bodani](../2023/november.md#polygon); a man who was outrageously insubordinate towards me when I was his manager.
-- Hans appeared to have been instructed to be insubordinate towards me (possibly by James Dawes who he had worked with before, or more like directly from Gabriel Silva).
+- The other member of my team, Anthony, is given work with one of Polygon's strong partners, `gateway.fm`, but doesn't stay long (maybe they found out what I was saying was true).
+- Hans appeared to have been instructed to be insubordinate towards me (possibly by James Dawes who he had worked with before, or more like directly from Gabriel Silva and the founders).
 - His behavior included shouting me down in meetings, constant heckling, not doing any work at all, complaining about me to my manager, and more.
 - Whenever I asked for help from my managers with him, I was ignored.
 - Hans clearly knew he could say and do whatever he liked, and he did so.
 - Hans was good as gold with Gabriel Silva when he took over.
 - I suspect he's working there now still.
+- Polygon, and other human resources agents and companies, are beginning to look very suspect.
 
 ## Couple in hotel room
 
@@ -265,14 +282,14 @@
     - It is a crime to poison people with the intent to harm or kill.
     - It is a crime to access someone's home without their permission in order to do so.
 
-- I arrive back in Dénia on 27th October, just as the DANA hit the Valencian region.
-- On Monday 28th October, I get an inexplicable and excruciating headache at home which lasts a couple of days. 
+- I arrive back in Dénia on 27th October, just as the DANA hits the Valencian region.
+- On waking up on Monday 28th October, I have an inexplicable and excruciating headache at home which lasts a couple of days. 
 - While sitting at my desk, on the Monday morning, drinking my coffee, I experience shooting nerve pains all over my face.
-- My kidneys start to really ache over the week; the dull aching gets worse and worse.
+- My kidneys start to really ache over the week; the dull aching gets worse and worse, left and right and starts that screaming pain thing.
 
 !!! info "Pain in kidneys"
     - I have experienced pain like this (although not as intense) continuously while I'm in my flat in Dénia since, probably, January 2023.
-    - I can describe it as a dull backache that starts about midday and gets worse until I have to lie down for a bit.
+    - I can describe it as a dull backache at my kidney area on the right and left side that starts about midday and gets worse until I have to lie down for a bit.
 
 - My urine becomes extremely frothy and it was fine the week before in Fatima.
 
@@ -281,6 +298,8 @@
 - I really feel like I'm being poisoned over this week in my flat, and quite intensely too.
 - Someone wants me to get seriously sick and/or possibly die.
 - If my dad did not have an accident on the 1st of November, and I had to rush back to London, I believe that Domingo's family may have made good on their threats and killed me via poisoning.
+- I believe everyone knew this was planned and intended; the [angry man and his wife in his car as I'm leaving for Fatima](#fatima-20-26th-october), the [L'Amistat band](#vssh-collects-his-aware-at-the-palau-darts) who may be offering some sort of alibi, even my bosses at [Polygon](#polygon-fires-the-whole-writing-team) who clearly only intended to fire me for dubious reasons.
+- How did everyone know? Is that part of the porn-soap-opera too? Did the audience have constant access to my home cameras and see people come in and interfere with my bathroom products?
 - I take some samples of water and items related to the air vents to London in the hope that the police will one day find things serious enough to investigate and I will have evidence for them to analyze.
 - There is another warning and condemnation about poisoning given via a fake account on Halloween night, the 1st November.
 

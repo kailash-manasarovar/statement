@@ -80,14 +80,14 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - The younger brother in the pic looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../../timeline/2024/march.md#wednesday-13th-march) right before I became convinced I was going to be murdered.
 - I'm not sure I have any more solid memories of this man at the conservatory.
-- The girl in this picture is very familiar, I don't know why.
+- The girl in this picture is very familiar, I don't know why yet.
 - I'm guessing everyone in Dénia and the Marina Alta region knows this man.
 
 ### Dark thick-curly-haired deep-set man
 
 - There was another man I have a few memories of which I have already documented.
 - I don't remember him ever being at the conservatory.
-- I remember him [in my bed calling my name](../../timeline/2023/april.md#dreaming-of-the-trumpet-teacher).
+- I remember him [in my bed calling my name](../../timeline/2023/april.md#dreaming-of-the-trumpet-teacher) which I now believe was not a dream.
 - He was the man I saw in the banged up Peugeot on the 11th June 2023, [the day before my *funeral*](../../timeline/2023/june.md#sunday-11th-june) and [driving past me at the beach with the doctor in the passenger seat](../../timeline/2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me), and [driving Ana Requena's blue car slowly past me](../../timeline/2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car).
 - He was also reminiscent of [Patricia Penny's husband](../../timeline/2021/december.md#christmas) and the [man who came out to terrorize me on Halloween](../../timeline/2023/october.md#halloween) but not exactly the same - those two men could well be the same man.
 - This trumpet player, at the *funeral* of the young girl behind him, looks like him. 
@@ -111,7 +111,9 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
 
-- The posts from this account I suspect came directly from Sandra Smith.
+- This pic could be a number of the trumpet teachers faces mixed with Gloria.
+- The arrogance of the gang and their certainty they will never be brought to justice is staggering.
+- The posts and language coming from this account I suspect came from powerful and unfiltered AI software (there was an unusual interesting and repeated pattern to the posts) with Sandra Smith controlling.
 
 ### The L'Amistat Quart band
 
@@ -123,37 +125,46 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Vidal Sastre Sanchez Hornero is listed as the director of the band.
 - The band is supported by numerous government organizations - at least the website says so - including the Generalitat.
 - This is the band where we see [a young girl's *funeral* taking place](../../timeline/2023/june.md#youtube), just like [mine](../../timeline/2023/june.md#monday-12th-june-2023) and, just like me, the experience will have been utterly life changing and not in a good way.
+- Remember; I use the word *funeral* as this is the word Domingo used.
 - There are other significant creepy videos of this band performing.
 - Here's another reference to a "funeral" or "sale" of a groomed young woman from the band in Valencia.
 
 ![Hornero activity funeral home](../../content/images/hornero/horn-funerals-1.png)
 
 - "Se la rifaron" means, they sold her off.
-- If you listen to the recording (this could be it although I couldn't find the original from the pic above: https://www.youtube.com/watch?v=X4M1d_WmHSA), at a certain point in the performance, the trumpet player plays in a very sexually suggestive manner, *stripper style*.
+- If you listen to the recording, at a certain point in the performance, the trumpet player plays in a very sexually suggestive manner, *stripper style*.
+- Here's another person filming the event; I guess everyone wants their own copy.
+
+[![Another view of the recording](../../content/images/hornero/another-view.png)](https://www.youtube.com/watch?v=X4M1d_WmHSA)
+
 - When I read the website text previously, I noticed a statement about the female members of the band that made me shudder a little. It said something like, "and we have the unconditional support of all the girls".
 
 #### The best band in the Valencian region
 
 - Further down the list, we see a [newspaper article dated 21st October 2024](https://www.levante-emv.com/horta/2024/10/21/amistat-quart-de-poblet-mejor-banda-comunitat-valenciana-109945426.html) reporting on an award ceremony that had taken place on the weekend of the 19th October.
-- This was around the same time my [home security system went dead](../../timeline/2024/october.md#the-router-malfunctions-while-im-in-fatima) for a week before I returned home from Fatima and was [severely poisoned in my apartment](../../timeline/2024/october.md#serious-poisoning-with-intent-to-harm-or-kill).
-- One wonders if this was *quite* the alibi for a murder everyone knew was going to happen? And then didn't.
+- This at the same time I left for Fatima, and was just before my [home security system went dead](../../timeline/2024/october.md#the-router-malfunctions-while-im-in-fatima) for a week before I returned home and was [severely poisoned in my apartment](../../timeline/2024/october.md#serious-poisoning-with-intent-to-harm-or-kill) over a few days.
+- One wonders if this was *quite* the alibi for a murder everyone knew was going to happen? And then didn't happen.
+- The [trumpet teacher](#the-older-slimmer-greyer-man) stands three men in from the right; a slim and not so tall man - certainly not large, muscular, and lumbering like the other men I remember.
+- Did the band know how bad things had got for me, and how I steadfastly refused to back down and leave the children of Dénia in peril, and how much everyone was implicated in their continued sacrifice?
+- Did they know I was about to be fired from my job so as not to be witnessed by colleagues slowly dying online from poison coming from the water in my apartment?
+- Is this what has happened before to so many women and girls, and beautiful boys, who just want to innocently play music?
 - The article states the band is the best in the region.
 - We wonder, best at what?
-- [Trumpet teacher number one](#the-older-slimmer-greyer-man) stands proudly amongst the men receiving their awards at the prestigious Palau de Arts.
+- [Trumpet teacher number one](#the-older-slimmer-greyer-man) stands proudly amongst the men receiving their awards at the prestigious Palau de Arts; although he looks a little shattered to me.
 
-![Award for the band of merry perverts](../../content/images/hornero/newspaper.png).
+[![Award for the band of merry perverts](../../content/images/hornero/newspaper.png)](https://www.levante-emv.com/horta/2024/10/21/amistat-quart-de-poblet-mejor-banda-comunitat-valenciana-109945426.html)
 
 - He is also given a special mention of honor!
 - Perhaps we are seeing here what happens when the leaders of a culture completely lost to porn and violence against women and children start feeling a little nervous, or is it just ironic timing.
-- I still wonder if the Vidal Sastre Sanchez Hornero character is one of the other men in this picture.
+- I still wonder if the Vidal Sastre Sanchez Hornero character is in fact one of the *other* men in this picture.
 - Regardless, I do wonder what this poor man I loved so intensely is thinking at this moment.
 - Surely the stress must be excruciating.
 
 #### Email address
 
 - The website has a contact email address.
-- My guess is this is used to communicate with targeted women.
-- I used it a few times, long after they hoped I would I expect.
+- My guess is this is used to lure targets into communicating with a man they think they're in love with.
+- I used it a few times, two years after they hoped I would I expect.
 - I wonder how many other women and girls have tried to contact someone they thought they were in love with in this way?
 - You can read [my emails here](../../content/images/hornero/mail-to-vssh-new.pdf).
 - In October 2025, I find it fascinating to follow the trail of my mind's emergence into clarity and see exactly how effective the attack was on me while it was in full operation while I rented my lovely home in Dénia.
@@ -222,17 +233,27 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ## Notes on my investigation
 
 - In this section I will post important points published in earlier commits.
-- I believe whoever this man is, his role was *bait*.
+- I believe that whoever [the original man](#the-best-band-in-the-valencian-region) is that I continue to have a good feeling about; his role was *bait*.
+- I wonder why they chose him when I guess they could have picked anyone at all.
 - I found the name Vidal Sastre Sanchez Hornero registered in the Generalitat Valenciana systems even though a [government official](../../timeline/2024/october.md#madrid-and-paloma) told me no record of this person could be found.
 - When she told me this, at exactly the same time, I was looking at his name on official Generalitat government lists.
 
 ![Generalitat list](../../content/images/hornero/guv-records.png)
 
-- Also, and at the same time, his [prestigious award was being collected](#the-lamistat-quart-band) and reported on by the Spanish news media.
+!!! tip "Curiosities"
+    - I wonder if this another tampered-with online alibi. 
+    - The listing states this person is stationed at the conservatory of Castellon and not in Dénia, 200kms away. 
+    - Is this where he went at the beginning of the year academic year that started in 2023?
+    - Why did he only turn up in November 2022 in Dénia? What kept him from starting the academic year at the beginning, like everyone else?
+    - Indeed, could a person possibly do all this work, *and* work fulltime as a secondary school teacher in the Valencia region as he (one of the others pretending to be him) stated to me in class?
+    - Or, is this a listing for the *real* Vidal Sastre Sanchez Hornero who is one of the other men from the L'Amistat Quart band; the solid alibi they teased me endlessly online about having?
+    - Or, does this named person not exist at all, and instead the name is a useful alibi for perverted criminal practices perfected over many years?
+
+- At the same time I was looking at references like these, his [prestigious award was being collected](#the-lamistat-quart-band) and reported on by the Spanish news media.
 - I also had his Generalitat email address from conservatory teaching documentation from January 2023.
 - One wonders how many people knew I was about to be severely poisoned just weeks after making [an online video](https://www.youtube.com/watch?v=VIYsj4OgiYA) explaining inexplicable and overwhelming sexual arousal in my apartment, and that I suspected it meant I was being filmed masturbating.
-- It seems likely that they expected me to die and everything could carry on as normal.
-- There are a bunch of references for this name online, including references which come from the Generalitat's formal lists of teachers.
+- It seems likely that everyone expected me to die, criminal and corrupt, and then the rape-porn-industry in Spain could carry on as normal and continue to pay for everyone's Ferrari's.
+- There are a bunch more references for this name online, including references which come from the Generalitat's formal lists of teachers.
 
 ![Horn refs](../../content/images/hornero/horn-refs.jpg)
 
@@ -246,19 +267,25 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ![TT1](../../content/images/hornero/tt-1-again.png)
 ![TT1](../../content/images/hornero/tt-1-again-2.png)
 
+- Online references would shift and change whenever I checked online. I realized I was being *fed* information and kept from anything that might bring the truth to light.
+
+### Truth emerging
+
 - It was while I was preparing this statement, slowly laboriously and extremely unpleasantly, I realized with horror there was more than one trumpet teacher at classes!
 - This puts the actions of teachers and staff at the conservatory in a completely different light.
 - Everything they did was as an alibi for the real crimes.
-- Whenever, eventually, my life was over - prostitution, porn actress, drug addiction, madness, suicide, murder, whatever - all I would have ever told anyone was that I was being bullied at the conservatory. 
-- The big men could then, if necessary, put the women up to take all the blame, but they knew that this could never happen due to how many *important* people have been involved in maintaining these sick practices.
-- I do have a small memory of Pablo asking the trumpet teacher one time [where the other guy was](../../timeline/2023/january.md#chamber-music-classes-continue), but amazingly now we know that even Pablo, a 14-year-old boy, was aware of what was going on.
+- Whenever, eventually, my life was over - slavery, prostitution, porn actress, drug addiction, madness, suicide, murder, whatever - all I would have ever told anyone was that I was being bullied at the conservatory. 
+- The big men could then, if necessary, put the women up to take all the blame, but they knew that this would never happen anyway due to how many *important* people have been involved in maintaining these sick practices.
+- Because of this certainty, the events and their actors take a grotesque and evil form.
+- I do have a small memory of Pablo asking the trumpet teacher one time [where the other guy was](../../timeline/2023/january.md#chamber-music-classes-continue), but amazingly now we know that even Pablo, a 14-year-old boy, was aware of what was going on and so these words were lines he was reading on instruction.
 - Are the teenage boys and girls aware of everything that these men have been doing? Surely not!? 
 - Although, people talk, and I expect everyone must know about how much danger the children are in.
 
 !!! danger "Would anyone want to live here if they knew how much danger the wealthy, elderly, women and children are in?"
     - Visitors to the region should be warned that it is highly likely their online activity will be monitored very closely by local criminal gangs.
     - Visitors should expect that to happen and act accordingly.
-    - Even 4g/5g mobile networks, without access to wifi routers, are vulnerable.
+    - Visitors should also be informed that many hotels, AirBnBs, rentals, and houses for sale may be fitted with spy-cam technology.
+    - Even 4g/5g mobile networks, without access to wifi routers, are vulnerable as I have found out.
 
 - These people are not hiding, but I believe they are drugging and sedating women and girls, and not just here, probably all over the region wherever adult men have unrestricted access to women, teenage girls, and younger.
 - Wherever VSSH has been listed as teaching in the Generalitat Valenciana region, could there have been a young girl's *funeral*?
@@ -273,8 +300,10 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 !!! danger "Shocking"
     - If I'm right about this, then the children of the conservatory would also have to be somewhat complicit in the deception and targeting of female students by countless adult males and their female assistants.
-    - This is a somewhat horrific thing to consider and I do hope it is not true but given statistics like all 11-year-old boys have seen pedophile gang rape porn and worse, usually in school on their mates' phones, then nothing would surprise me anymore.
+    - This is a somewhat horrific thing to consider and I do hope it is not true but given statistics like all 11-year-olds in the UK have seen pedophile gang rape porn and worse, usually in school on their mates' phones, then nothing would surprise me anymore.
 
 - Is it possible that what is a well-known and much loved Spanish tradition of destroying single women or girls for fun now a countrywide porn business making millions for porn distribution gangs; each girl delivered up at the appropriate time?
-- Given the whole town of Dénia knows of pedophile rape-gang porn I was in from 1989, and doesn't seem to think that is a crime worth reporting, is it possible they also know the details of 1000s of crimes against women and girls?
+- Given the whole town of Dénia knows of pedophile rape-gang porn I was in from 1989, and doesn't seem to think that is a crime worth reporting, is it possible they also know the details of 1000s of crimes against women and girls and feel a similar disinterest?
 - What a hell these poor people are living in!
+- I have to say that without God supporting me the whole way through this hell I endured in Dénia, Alicante, Spain, I would not have had the strength to go on, or be here to tell the tale.
+- I pray every day that the children will be safe once again.
