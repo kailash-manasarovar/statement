@@ -278,10 +278,6 @@
 
 ## Serious poisoning with intent to harm or kill
 
-!!! danger
-    - It is a crime to poison people with the intent to harm or kill.
-    - It is a crime to access someone's home without their permission in order to do so.
-
 - I arrive back in Dénia on 27th October, just as the DANA hits the Valencian region.
 - On waking up on Monday 28th October, I have an inexplicable and excruciating headache at home which lasts a couple of days. 
 - While sitting at my desk, on the Monday morning, drinking my coffee, I experience shooting nerve pains all over my face.
@@ -307,6 +303,11 @@
 ![doctor pic](../../content/images/doctor-2.png)
 
 - That day, Friday 1st November, in the afternoon, I'm certain I see Carmen Cano and the woman I have seen going in and out of number 18 leaving the building together. They smile at me as I walk by.
+
+### Mary breaks
+
+- On one evening over these few days before I left for London, I had my little statue of Mary in my hand and it was if she jumped out and onto the floor, smashing into pieces.
+- A sign.
 
 ## Challenging Sandra Rita Diaz
 

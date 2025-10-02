@@ -13,7 +13,8 @@ function googleTranslateElementInit() {
 - The trumpet teacher flirted with me at class.
 - I fancied him.
 - I hadn't liked a man in that way since 2003, and I was still depressed, so it was all a bit unsettling.
-- I also felt it was all a conspiracy and Domingo was behind it, for revenge.
+- He told me things that made me thing we shared life experiences; such as he lived in a small part of Valencia 7 kilometers from the centre. This is something Domingo noted when he visited me in London.
+- I felt everything that was going on was all a conspiracy and that Domingo was behind it, for revenge.
 - I know that this "pretending to like you game" is what Spanish men do to women who "turn them down" and it had bizarrely happened to me before so I knew what was going on, at least in that respect.
 - However, it was impossible to know how to deal with it.
 - I felt I was in a situation I could do nothing about at that time, except see what happened.
@@ -69,6 +70,7 @@ function googleTranslateElementInit() {
 - I guess he was in Cauterets at the same time, or someone who looked very much like him was.
 - A strange coincidence, maybe.
 - I saw the same man again at the online [chamber music meeting in September 2023](../2023/september.md#chamber-music).
+- He was sitting with Katia but he is not her husband, as far as I'm aware, who came to a concert instead and looked very different.
 
 ## Feeling unwell at home
 
