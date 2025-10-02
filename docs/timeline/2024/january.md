@@ -66,8 +66,8 @@ function googleTranslateElementInit() {
 
 [![Prefer the insipid Indians](../../content/tweets/january-2024/preferring-the-insipid-indians.png)](https://x.com/JackChardwood/status/1789065155193577680)
 
-- I believe the hackers and honey-trappers start doubling down in January 2024, knowing that the conservatory have devised the [most outrageous psychological attack on me planned for March 12th](march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) which they must believe will certainly make me leave my studies, after which they can hand me over to the sex-gangs as was originally planned for [June 12th 2023](../2023/june.md#monday-12th-june-2023), but failed.
-- Tired by their idiocy, the [staged event starring a woman dressed as Lorraine Blackbourn](march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) just made me more disgusted with them, so they had to do even worse until I did leave Dénia for Madrid a couple of days later, terrified and terrorized.
+- I believe the hackers and honey-trappers start doubling down in January 2024, knowing that the conservatory have devised the [most outrageous psychological attack on me planned for March 12th](march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) which they must believe will certainly make me leave my studies, after which they can hand me over to the sex-gangs as was originally planned for [June 12th 2023](../2023/june.md#monday-12th-june-2023), but failed.
+- Tired by their idiocy, the [staged event starring a woman dressed as Lorraine Blackbourn](march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) just made me more disgusted with them, so they had to do even worse until I did leave Dénia for Madrid a couple of days later, terrified and terrorized.
 - Once I had left the conservatory, teachers and staff must have felt relief that I had been finally handed over successfully to the porn gangs.
 - I wonder how many other students have had similar experiences.
 - The new content continues until I start writing my police statement in November 2024.
@@ -457,7 +457,7 @@ function googleTranslateElementInit() {
 - While editing this chapter, on 14th July 2025, I see that I have got some timings a little bit wrong.
 - I had a chunk in here about a reference to *panda*, my Tibetan monk friend.
 - I had sent him a monetary gift at Christmas, and this was mentioned online by hackers.
-- Although it had been mentioned a few times already, the [significant mention came in March](march.md#fake-accounts-reference-payments-i-have-made-online).
+- Although it had been mentioned a few times already, the [significant mention came in March](march/1-12.md#fake-accounts-reference-payments-i-have-made-online).
 - I removed the section from January 2024, and made some other changes to the next section.
 - When I check my X feed, I have some notifications. 
 - One is *panda*.
@@ -528,7 +528,7 @@ function googleTranslateElementInit() {
 - I recognize one of them as a man who had fixed my car back in 2013; a man who worked at the garage near my old flat.
 - He was wearing big goggle glasses and had longish dark-grey hair.
 - He looked pretty much exactly the same as when he had helped me replace a flat battery at that time.
-- I see the same car again after [I leave my studies at the conservatory in fear for my life](march.md#email-to-paqui), and the porn-gangs move in to finish me off. 
+- I see the same car again after [I leave my studies at the conservatory in fear for my life](march/13-end.md#email-to-paqui), and the porn-gangs move in to finish me off. 
 - At that time, from April or May 2025, fast cars will growl outside my apartment and often I hear them beeping their horns loudly as they pass.
 - Carrer Furs is an extremely quite road.
 - One time, I ran to see what the car beeping looked like.
@@ -701,7 +701,7 @@ function googleTranslateElementInit() {
 ### @1frgvn
 
 - Early in the month, I remain exuberant.
-- In the second half of the month, things calm down. Did I run out of shampoo, etc, and buy new bathroom products? Or were teachers and staff at the conservatory busy planning their [grand finale in detail](march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory).
+- In the second half of the month, things calm down. Did I run out of shampoo, etc, and buy new bathroom products? Or were teachers and staff at the conservatory busy planning their [grand finale in detail](march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory).
 
 - https://x.com/1FRGVN/status/1752602299803783584 -> referring to the smile of the trumpet teacher in [Benijembla](../2022/november.md#walking-in-benijembla-with-the-english-ladies) and at [chamber music class](../2022/november.md#the-trumpet-teacher) that reminded me of the pedo from 1989 I had reported in my 2015 police statement.
 - https://x.com/1FRGVN/status/1752342228465262902 -> in reference to the sad woman at Benijembla which we think is either a trumpet-teacher wife, girlfriend, or porn actress, or all three maybe.
@@ -716,7 +716,7 @@ function googleTranslateElementInit() {
 [![The baby seal lives](../../content/tweets/january-2024/baby-seal-ref.png)](https://x.com/1FRGVN/status/1751679949734334725)
 
 - https://x.com/1FRGVN/status/1751332834835329038 -> another ribbing.
-- https://x.com/1FRGVN/status/1751275593352491469 -> stalker account `@1Loviatar` pretending they're my friend, offering to "listen" if I need someone. She (or he) is building up to brutal gang-stalking and online persecution in collaboration with teachers and staff at the conservatory to take place in [March 2024](march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory).
+- https://x.com/1FRGVN/status/1751275593352491469 -> stalker account `@1Loviatar` pretending they're my friend, offering to "listen" if I need someone. She (or he) is building up to brutal gang-stalking and online persecution in collaboration with teachers and staff at the conservatory to take place in [March 2024](march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory).
 - https://x.com/1FRGVN/status/1751211014308139309 -> mentioning the "most brutal of wind ups the world has ever known". Do I think it's over at this point?
 - https://x.com/1FRGVN/status/1751185092020519333 -> mentioning to another stalker account `@Lucyinbetween` how whatever I have been going through (what I believe even today is true love in the most profound sense) cured me of depression.
 - https://x.com/1FRGVN/status/1751152861390467073 -> wondering about how many kids (conservatory students) have suffered the same as me.

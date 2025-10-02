@@ -833,7 +833,7 @@ function googleTranslateElementInit() {
 
 ![Andrew Google search](../../content/images/line-up/andrew-1-july-2025.png)
 
-- Did I see this person as an adult coming out of the tunnel, grinning, to blow something in my face on [Wednesday 13th March 2024](../2024/march/march.md#choir-class) after choir class?
+- Did I see this person as an adult coming out of the tunnel, grinning, to blow something in my face on [Wednesday 13th March 2024](../2024/march/13-end.md#choir-class) after choir class?
 - Or are these fake accounts on my side somehow; drip-feeding me the information that I need to bring down the porn gangs?
 
 ### `@JackChardwood`

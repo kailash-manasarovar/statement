@@ -221,7 +221,7 @@
 
 ![Domingo's ex is playing her part again](../../content/images/domingos-ex-plays-her-part.png)
 
-- At the time, I assume this is an attempt to persuade me that the Generalitat are investigating and have sent an inspector; something that actually does happen at my [piano class in a month's time](march.md#an-inspector-calls).
+- At the time, I assume this is an attempt to persuade me that the Generalitat are investigating and have sent an inspector; something that actually does happen at my [piano class in a month's time](march/1-12.md#an-inspector-calls).
 - Now, at the time of writing, I believe that everything I witnessed is fake and set up.
 - I'm curious if the Generalitat are aware of all this outrageous behavior and how many more complaints they've buried over the years.
 - Indeed, are members of the Generalitat taking part by accessing the live-streams?
@@ -652,7 +652,7 @@
 
 [![Trying to reason with them](../../content/tweets/february-2024/reasoning-1.png)](https://x.com/1FRGVN/status/1761507676171723144)
 
-- I post the profile pic that looks like an AI mix of my face with Hazel Smith's. Seeing her here really signifies the start of the cyber-terror-bombardment supporting the run up to my second *funeral* piano concert with the conservatory on [12th March 2024](march.md#tuesday-12th-march) at the Casa de Cultura in the town.
+- I post the profile pic that looks like an AI mix of my face with Hazel Smith's. Seeing her here really signifies the start of the cyber-terror-bombardment supporting the run up to my second *funeral* piano concert with the conservatory on [12th March 2024](march/1-12.md#tuesday-12th-march) at the Casa de Cultura in the town.
 
 [![Me and Hazey-wazey](../../content/tweets/february-2024/hazel.png)](https://x.com/1FRGVN/status/1763160058647429141)
 
