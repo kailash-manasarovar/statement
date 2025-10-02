@@ -341,7 +341,7 @@ function googleTranslateElementInit() {
 
 - There are some mentions of "staining" the kitchen table too.
 - I mention this in the [Carmen](july.md#carmen) section from July where I talk about content from the `@sinremite` account.
-- The same thing happens with [sinks in April 2024](../2024/april.md#let-that-sink-in), i.e. *let that sink in*, when I fear for my life and leave my studies after the most [outrageous psychological assault involving someone dressing up as my murdered friend](../2024/march/march.md#tuesday-12th-march) at a conservatory concert. Then again in April 2025 when I only see photos of refrigerators and show my mother.
+- The same thing happens with [sinks in April 2024](../2024/april.md#let-that-sink-in), i.e. *let that sink in*, when I fear for my life and leave my studies after the most [outrageous psychological assault involving someone dressing up as my murdered friend](../2024/march/1-12.md#tuesday-12th-march) at a conservatory concert. Then again in April 2025 when I only see photos of refrigerators and show my mother.
 - I have no idea why and puzzle over it.
 - I ask hacker-stalkers directly what they meant in October.
 
@@ -536,9 +536,9 @@ function googleTranslateElementInit() {
 - He usually has his back to me with his dog tags hanging down the back of his neck on a chain.
 - I got close to the woman a lot and I'd recognize her face again. 
 - One day I smiled at her and she got really scared, really quickly, and I knew.
-- These two were at the [piano concert](../2024/march/march.md#tuesday-12th-march) at the Casa de Cultura on 12th March 2024.
+- These two were at the [piano concert](../2024/march/1-12.md#tuesday-12th-march) at the Casa de Cultura on 12th March 2024.
 - They sat right behind me.
-- The woman dressed up as [Lorraine Blackbourn](../2021/july.md#lorraine-blackbourn) in the most [outrageous and vicious psychological attack](../2024/march/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) that I experienced at the hands of teachers and staff from the conservatory of Dénia.
+- The woman dressed up as [Lorraine Blackbourn](../2021/july.md#lorraine-blackbourn) in the most [outrageous and vicious psychological attack](../2024/march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) that I experienced at the hands of teachers and staff from the conservatory of Dénia.
 
 ### Rape-gang reminders
 
@@ -706,7 +706,7 @@ function googleTranslateElementInit() {
 - The first class is [choir class](#choir) and he takes me to class and meets me outside when it's over.
 - He will remember how anxious I was to go back to the conservatory.
 - I see much online content related to "pandas" during his visit.
-- *Panda* is typically how online stalkers referenced my Tibetan monk friend; while he was visiting and ongoing, including making [references to the exact amount of a monetary gift I send to him online at Christmas](../2024/march/march.md#fake-accounts-reference-payments-i-have-made-online).
+- *Panda* is typically how online stalkers referenced my Tibetan monk friend; while he was visiting and ongoing, including making [references to the exact amount of a monetary gift I send to him online at Christmas](../2024/march/1-12.md#fake-accounts-reference-payments-i-have-made-online).
 
 ### Gang stalking on the beach
 

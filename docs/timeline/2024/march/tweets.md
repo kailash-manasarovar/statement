@@ -16,7 +16,7 @@
 - I begin to suspect that whoever is managing the Taru Ann account could be well known to me.
 - On September 22nd, after weird communication from Patricia all summer, I wonder if Taru Ann is Patricia from time to time by delegation: https://x.com/1FRGVN/status/1837596563557831058. The account likes my question in response. It could be anyone I guess but certainly someone involved somehow.
 
-![Could Patricia be Taru Ann sometimes](../../content/tweets/trish-is-taru-ann.png)
+![Could Patricia be Taru Ann sometimes](../../../content/tweets/trish-is-taru-ann.png)
 
 - https://x.com/1FRGVN/status/1764211138269422006
 - https://x.com/1FRGVN/status/1764210826007728603
