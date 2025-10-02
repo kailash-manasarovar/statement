@@ -227,7 +227,7 @@
 
 ![march threats](../../../content/images/threats/march-threats-12.png)
 
-- Tyburski I took to mean they were going to tamper with my car. The comment is derogatory of course. Note this profile pic looks like the [nurse again](../2021/december.md#semen-stains-on-the-sofa).
+- Tyburski I took to mean they were going to tamper with my car. The comment is derogatory of course. Note this profile pic looks like the [nurse again](../../2021/december.md#semen-stains-on-the-sofa).
 
 ![march threats](../../../content/images/threats/march-threats-13.png)
 

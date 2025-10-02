@@ -156,7 +156,7 @@ Curious pic, it's not clear what/where the camera is that the woman is looking a
 
 ![monster](../../content/images/threats/monster.png)
 
-- It reminds me of a response to a tweet in March, probably when the [cyber stalking and threats were most intense](march.md#tuesday-12th-march) just before or after the piano concert.
+- It reminds me of a response to a tweet in March, probably when the [cyber stalking and threats were most intense](march/1-12.md#tuesday-12th-march) just before or after the piano concert.
 - I tweet about it: https://x.com/1FRGVN/status/1835765992556818662.
 - At that moment, a monster face like the one in the pic simply appeared in the middle of my Twitter timeline, completely out of nowhere.
 - It was shocking and I realized they had total control of everything I could see on Twitter but I was so stressed I had to file it away to think about later.
@@ -206,5 +206,5 @@ The message coming up again that I [showed Alessandra in December 2023](../2023/
 | ![pic]( ../../content/images/google-searches/sept-24/google-search-5.png ) 
 The pic of Jack Nicholson here was significant. |
 | ![pic]( ../../content/images/google-searches/sept-24/google-search-6.png ) 
-The [stalker message from March](march.md#ana-account) still coming up and in first place. |
+The [stalker message from March](march/13-end.md#ana-account) still coming up and in first place. |
 
