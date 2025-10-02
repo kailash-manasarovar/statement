@@ -4,7 +4,7 @@
 
 - Here's a good example of how cyber-stalkers communicate with me.
 - I will post something in this statement that annoys them, and they will pick one of my posts that can be used as a way to communicate with me (via the wording) and have all their fake accounts like it and repost it.
-- This happened yesterday with this post: 
+- This happened yesterday with this post dated 16th June 2024: 
 
 [![Communication examples](../../content/tweets/communication-examples.png)](https://x.com/1FRGVN/status/1802460545662022005)
 
