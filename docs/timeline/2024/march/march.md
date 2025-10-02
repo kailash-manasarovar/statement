@@ -33,3 +33,5 @@
 - It details all my failed attempts to get help.
 - It's a horrible story and very triggering.
 - I can only guess at how many other women, girls, beautiful boys and babies went more directly to hell without the change to make a complaint.
+
+![The bull fighters attack a child with the intention of murder](../../../content/images/bull-fight.png)
