@@ -34,7 +34,7 @@ function googleTranslateElementInit() {
 ### Foreigners desk at the council
 
 - Enric Gil ran the foreigners welcoming desk at the local council and has an office there.
-- He was [extremely unhelpful](../timeline/2024/march/march.md#enric-gil) when I was in dire need of assistance in March 2024, and seemed to be laughing at me as I explained what was going on.
+- He was [extremely unhelpful](../timeline/2024/march/1-12.md#enric-gil) when I was in dire need of assistance in March 2024, and seemed to be laughing at me as I explained what was going on.
 - He was also highlighted to me by [Gloria](../timeline/2022/june.md#gloria-and-the-effects-of-poisoning), one of Domingo's main conspirators at the conservatory, and for that reason I suspect complicity.
 - I wonder if his job including telling criminals about new arrivals and whether anyone was "vulnerable"; i.e. old, alone and female, very rich, etc.
 

@@ -78,7 +78,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ![Vigas](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
 
-- The younger brother in the pic looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../../timeline/2024/march/march.md#wednesday-13th-march) right before I became convinced I was going to be murdered.
+- The younger brother in the pic looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../../timeline/2024/march/13-end.md#wednesday-13th-march) right before I became convinced I was going to be murdered.
 - I'm not sure I have any more solid memories of this man at the conservatory.
 - The girl in this picture is very familiar, I don't know why yet.
 - I'm guessing everyone in Dénia and the Marina Alta region knows this man.

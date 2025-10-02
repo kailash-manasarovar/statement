@@ -13,7 +13,7 @@
 - Is this article from the [local online newspaper](https://www.denia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-denia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
 - The name "Cano" relates to all things canine and "Lopez" to all things wolverine. While I was being stalked and terrorized online, there were a lot of references to these animals, and particularly when the stalking took a more seriously threatening or abusive turn.
 - Indeed, dogs featured constantly in the online harassment and threats.
-- Here's a fake X account pic that communicated with me during the [March 2024 intensive online psychological abuse](../../timeline/2024/march/march.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) of him as an older person.
+- Here's a fake X account pic that communicated with me during the [March 2024 intensive online psychological abuse](../../timeline/2024/march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) of him as an older person.
 
 ![Domingo lookalike or AI mix](../../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
 
