@@ -44,9 +44,9 @@
 
 - It details all my failed attempts to get help from numerous people, lawyers, and organizations.
 - I describe how I wrote two handwritten letters to my parents in London, my first contact with them since October 2021 explaining what happened.
-- The first letter I try to describe everything as best I can. The following day I realize I'm probably going to be murdered and I haven't been clear enough so I write a second letter with some urgency.
+- The first letter I try to describe everything as best I can. The following day I realize I'm probably going to be murdered and I haven't been clear enough so I write a second letter with some urgency, enclosing my hacked phone for evidential purposes.
 - I describe returning to the Valencian region and feeling like I'm in danger everywhere I go.
-- March 2024 is one of the most horrible parts of this story and writing it down is also triggering.
+- March 2024 is one of the most horrible parts of this story and writing it down is very triggering.
 - I can only guess at how many other women, girls, beautiful boys and babies went more directly to hell without the strength or opportunity to make a complaint.
 
 ![The bull fighters attack a child with the intention of murder](../../../content/images/bull-fight.png)
