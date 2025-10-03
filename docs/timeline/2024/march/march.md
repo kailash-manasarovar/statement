@@ -1,7 +1,7 @@
 # March 2024
 
 - I'm splitting out this chapter into two parts as the events of March 2024 were *extremely* significant and an awful lot happened.
-- It felt like I was experiencing terror and psychological assault minute-by-minute, online or in the town whenever I left my house. I describe this constant surveillance.
+- It felt like I was experiencing terror and psychological assault minute-by-minute, online or in the town whenever I left my house. I describe the constant surveillance and gang-stalking.
 - The porn-gangs together with teachers and staff at the conservatory were determined to get me to leave my piano studies, and they did achieve their goal.
 - I spent much of this month in a state of total anxiety and fear.
 - Later on in the month I was not able to perform really simple actions and I expect that means I was being seriously drugged with fear-forming substances and maybe sedatives as well.
