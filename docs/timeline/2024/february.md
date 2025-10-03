@@ -623,6 +623,10 @@
 
 ### `@1frgvn`
 
+- I was sad about Ana Requena bullying me. I did post my true feelings from time to time.
+
+![Ana Requena](../../content/tweets/february-2024/thinking-about-ana-requena.png)
+
 - Here's me winding them up. I enjoyed this sort of thing and did it a lot. It gave me some power in what was ostensibly a powerless situation... I was a lab rat in a cage in truth, at least that's what everyone except me and God thought.
 
 [![Wind ups](../../content/tweets/february-2024/wind-ups-1.png)](https://x.com/1FRGVN/status/1756669026153926765)
