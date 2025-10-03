@@ -463,7 +463,7 @@ function googleTranslateElementInit() {
 
 ![David Ruiz](../../content/images/david-ruiz.png)
 
-- They were not able to confirm, or deny, that this person worked for Polygon, which was even stranger.
+- They were not able to confirm, or deny, that this person had worked for Polygon, which was even stranger.
 - I told the UK recruiter I was not interested because I believed it was a scam and I gave the background that I was being cyber-stalked and probably hacked at that time.
 - You can confirm with him: Morgan McCarthy @ Spectrum Search.
 - The one-page release website never moved into a released stage, and I checked regularly for months afterwards. Now the URL is dead.
