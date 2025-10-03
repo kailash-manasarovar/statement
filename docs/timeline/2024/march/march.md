@@ -5,8 +5,9 @@
 - The porn-gangs together with teachers and staff at the conservatory were determined to get me to leave my piano studies, and they did achieve their goal.
 - I spent this month in a state of total anxiety and fear.
 - Later on in the month I was not able to perform really simple actions and I expect that means I was being seriously drugged with fear-forming substances and maybe sedatives as well.
+- My arms, in particular, felt like they weren't working; I realize now it was as if I was being held by my arms.
 - I have no idea how many times my apartment was entered without my permission but I'm guessing many times, including while I was there.
-- My body and mind felt as if I was suffering continued assault.
+- My body and mind felt like I was suffering constant assaults.
 
 ![March horrors](../../../content/images/march-horrors.png)
 
