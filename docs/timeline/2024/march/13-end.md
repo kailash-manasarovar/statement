@@ -56,6 +56,14 @@
 - Did something similar happen to me that night sedated in my apartment?
 - I wonder what the special was on Denia TV.
 
+### My crypto account
+
+- I lose access to my Coinbase crypto account that night.
+- I don't know if they have stolen 70K from me or not.
+- My account is completely locked.
+- I'm really concerned about this.
+- I tweet about it: https://x.com/1FRGVN/status/1768093834188087798.
+
 ### Chest infection
 
 - I get very unwell after choir class, a cold which becomes a chest infection.
