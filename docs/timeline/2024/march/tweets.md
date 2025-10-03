@@ -52,6 +52,7 @@
 - https://x.com/1FRGVN/status/1773459307423568301
 - https://x.com/1FRGVN/status/1773488720185798746
 - https://x.com/1FRGVN/status/1773488467281936384
+- https://x.com/1FRGVN/status/1763113154802745678 - Lucyinbetween thread, very interesting. I suspect it's Domingo and the comment relates to actually what is happening to me, not pets.
 
 ## `@JackChardwood`
 
