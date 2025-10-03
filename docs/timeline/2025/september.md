@@ -40,6 +40,7 @@
 ![Timeline 3](../../content/images/health-diagnosis-timeline/timeline-3.jpeg)
 
 - The only thing I missed on here was the snapped rib which happened three times and I believe due to weakened bone mass by poisoning.
+- Also, a skin lesion on my nose which appeared while living at Carrer Furs and I believe due to using toxic substances on my skin and standing under the shower in the morning where poisons in the water will have accumulated. Hackers mentioned this online to make sure I knew I was being watched. I looked at this lesion a lot in the mirror.
 - I also give her the [PACS diagnosis](../../content/images/health-diagnosis-timeline/PACS-diagnosis.jpeg) and [kidney check result](../../content/images/health-diagnosis-timeline/kidney-check-BKK.jpeg) from BKK.
 - She listens and hears me.
 - She suggests immediately the mental health team.
