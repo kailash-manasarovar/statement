@@ -467,8 +467,9 @@ function googleTranslateElementInit() {
 - I told the UK recruiter I was not interested because I believed it was a scam and I gave the background that I was being cyber-stalked and probably hacked at that time.
 - You can confirm with him: Morgan McCarthy @ Spectrum Search.
 - The one-page release website never moved into a released stage, and I checked regularly for months afterwards. Now the URL is dead.
-- At the time, I didn't relate any of this to previous experiences that I had forgotten completely, such as [interviewing for a company where I'd be looking at genitals all day long](../early-years/2016.md#march), but now I do.
-- It seems like the porn-gangs have not only infiltrated the school system in Spain, but they've also brushed their processes up and infiltrated the working world in which *any woman doing a job search* could be targeted and she wouldn't suspect a thing.
+- At the time, I didn't relate any of this to previous experiences that I had forgotten completely, such as [interviewing for a company where I'd be looking at genitals all day long](../early-years/2016.md#march)
+- The man that interviewed me at that time was the [third man I have remembered as being the *trumpet teacher*](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man).
+- It seems like the porn-gangs have not only infiltrated the school system in Spain, but they've also brushed their processes up and are infiltrating the working world in which *any woman doing a job search* could be targeted and she wouldn't suspect a thing.
 - Here's the recruiter's [replies to me on LinkedIn](../../content/documents/emails/Torus-email-to-recruiter.pdf), a conversation we had after I'd got home in September.
 
 ## Eagles
