@@ -268,16 +268,18 @@ function googleTranslateElementInit() {
 
 ### Tweeting about being spiked in 2007
 
-- The energy of the events around this time reminded me of events from the past.
-- I also suspect the energy of the people around me was influencing me, even though I was not consciously aware of who they were outside of teachers and staff at the conservatory.
-- It must have been curious for the stalkers to see me tweet content which suggested I knew, at least a little bit, about what was going on more broadly.
+- The gang-stalking events, online and at the conservatory, triggered memories of events from the past such as the rape-gang from Tottenham in 1989, and other things I hadn't thought about for a long while.
+- It must have been curious for Hazel Smith and anyone she had told what had happened in 2007 to have seen me tweet content which suggested I knew, at least a little bit, about what was going on more broadly.
 
-[![Poisoned 1](../../content/tweets/october-2023/poisoned-1.png)](https://x.com/1FRGVN/status/1714432159425925547)
+![Poisoned at Hazel's house](../../content/tweets/march-2024/compelled-to-tell-hazel-story-1.png)(https://x.com/1FRGVN/status/1714429310906351705)
 
-![Poisoned 2](../../content/tweets/october-2023/poisoned-2.png)
+[![Poisoned at Hazel's house](../../content/tweets/march-2024/compelled-to-tell-hazel-story-2.png)](https://x.com/1FRGVN/status/1714432159425925547)
 
-- I say three hours here, but it was much more. I wasn't able to get into bed until the sun had come up which would have been around 8am in November.
+- I say three hours here, but it was much more.
+- I wasn't able to get into bed until the sun had come up which would have been around 8am in November.
 - Compare the above with [my experience in 2007](../early-years/2007.md#hazel-smith).
+- Do these compulsions to tweet experiences come directly after those people themselves entered my flat while I was being regularly sedated and assaulted, and I recognized them unconsciously, and my unconscious awareness filtered the information up to consciousness?
+- I'm guessing there's masses more of this to come, then.
 
 ## Rocio Vidal
 
