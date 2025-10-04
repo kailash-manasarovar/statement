@@ -227,7 +227,7 @@ function googleTranslateElementInit() {
 - My knees were up as if I was in a little ball, but I was lying on my back. 
 - My skin was practically blue I was so pale, dappled.
 - I may have had my hair in a pony tail. It wasn't clear.
-- It was horrifying and I knew immediately that teachers and staff at the conservatory had seen me in rape-gang porn.
+- It was horrifying and I knew immediately that teachers and staff at the conservatory had seen me in child rape-gang porn.
 - Here's a picture of me around that time, probably taken just a month or so before rape-gangs of North London sedated me and put me in rape-gang porn.
 
 ![Wee me](../../content/images/wee-katie.jpeg)
