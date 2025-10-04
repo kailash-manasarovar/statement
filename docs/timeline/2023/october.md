@@ -279,7 +279,7 @@ function googleTranslateElementInit() {
 - Compare the above tweets with [my experience in 2007](../early-years/2007.md#hazel-smith).
 - There are numerous tweets like this that I felt compelled to write after waking up in my bed (this one was at 1am).
 - Do these tweets flag up the times I was sedated while sleeping? 
-- Did the porn-gang wait for me to go to bed before applying the sedation tech?
+- Did the porn-gang watch and wait for me to go to bed before applying the sedation tech?
 - Do these compulsions to tweet what seemed random experiences come directly after those people themselves entered my flat while I was being regularly sedated and assaulted, and I recognized them unconsciously, and my unconscious awareness filtered the information up to consciousness?
 - I'm guessing there's masses more of this to come, then :(
 
