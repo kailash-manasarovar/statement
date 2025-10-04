@@ -224,7 +224,6 @@ function googleTranslateElementInit() {
 - It's called hyper-vigilance in psychology parlance and it's part of the fight-flight-freeze-fawn cycle; i.e. if you know what you're attacker is going to do next, you are more likely to escape.
 - Add to that a kind of clairvoyant ability I'm sure I got from my dad who I like to think descended from the Tuatha Dé Danann of ancient Ireland, and a few Irish gypsy influences in the ancestry, and you might forgive someone like me having rather strange experiences if they were ever to take any psychoactive substance.
 - It's my belief that that's exactly what I was ingesting through the water mains and any food items that had been interfered with in my apartment.
-- (I'm beginning to think that the water-mains thing is a red-herring to make victims look even more insane).
 - Just over a week after October 7th, I'm sleeping. 
 - Something drags me out of bed around 2am to write a very important tweet.
 - The urgency is rather like the time I was dragged out of bed to write [a very important tweet declaring my romantic interest with TT in April 2023](april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher).
