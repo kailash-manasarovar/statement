@@ -275,8 +275,8 @@ function googleTranslateElementInit() {
 
 [![Poisoned at Hazel's house](../../content/tweets/march-2024/compelled-to-tell-hazel-story-2.png)](https://x.com/1FRGVN/status/1714432159425925547)
 
-- I say three hours here, but it was much more.
-- I wasn't able to get into bed until the sun had come up which would have been around 8am in November.
+- I say three hours here, but it was much more, and it was November, right after the Kabbalah conference in Barcelona because I remembered telling Hazel and Sandra about a man there who had jokingly said people think he looked like Osama Bin Laden. 
+- I wasn't able to get into bed until the sun had come up that morning which would have been around 8am in November.
 - Compare the above tweets with [my experience in 2007](../early-years/2007.md#hazel-smith).
 - There are numerous tweets like this that I felt compelled to write after waking up in my bed (this one was at 1am).
 - Do these tweets flag up the times I was sedated while sleeping? 
