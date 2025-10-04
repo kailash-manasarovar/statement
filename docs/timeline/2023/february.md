@@ -11,7 +11,7 @@ function googleTranslateElementInit() {
 ## Mental state and health concerns
 
 - I can't stop thinking about this man, the trumpet teacher. My mind is racing with thoughts about him.
-- I excessively plan novel after novel about our romantic adventures in my head! 
+- I excessively plan novel after novel about our romantic adventures in my head! I tell my therapist in June 2023 I wrote 1000s of romance novels in my head about him.
 - I'm extremely concerned about rhabdo and having kidney damage.
 - I consider my GP to be ineffective.
 - I go on a very strict kidney diet to try to heal myself.
