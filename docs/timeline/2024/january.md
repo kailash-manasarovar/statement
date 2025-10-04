@@ -137,6 +137,11 @@ function googleTranslateElementInit() {
 - I see my tiny, extremely pale, dappled even, naked child's body.
 - I am on my back with my knees bent into a tiny ball, as before.
 - I know exactly what the criminals of Dénia, including teachers and staff at the conservatory, have seen.
+- In conversations with hackers, I regularly tweet about what they had shown me, and what I now knew existed.
+- This tweet is initially in reference to how they [filmed me masturbating in Lourdes via my hacked laptop](../2023/april.md#good-friday) on Good Friday 2023.
+
+![Tweeting about knowing about the porn](../../content/tweets/march-2024/reporting-on-the-1989-porn-films-i-now-know-about.png)
+
 - The sickest thing is that they all know way more about what happened to me than I do!
 - Yet after 35 years, I have an overwhelming sense of relief that I now know exactly what happened all those years ago, and why.
 - My suspicions had been solid, all this time.
