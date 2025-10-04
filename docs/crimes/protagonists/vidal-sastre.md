@@ -111,7 +111,9 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
 
-- This pic could be a number of the trumpet teachers faces mixed with Gloria.
+- This pic could be a number of the trumpet teachers faces mixed with Gloria, the music school receptionist.
+- However, the face of the [first man](#the-older-slimmer-greyer-man) is missing from here.
+- I do see signs of the [second](#the-brother-or-mark-from-english-class-in-2013) and [third](#an-unknown-man-i-may-have-a-picture-of) man in this mix, but not the [fourth](#dark-thick-curly-haired-deep-set-man), and indeed Gloria the school receptionist.
 - The arrogance of the gang and their certainty they will never be brought to justice is staggering.
 - The posts and language coming from this account I suspect came from powerful and unfiltered AI software (there was an unusual interesting and repeated pattern to the posts) with Sandra Smith controlling.
 
