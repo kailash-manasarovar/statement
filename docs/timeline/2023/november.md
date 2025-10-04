@@ -233,7 +233,10 @@ function googleTranslateElementInit() {
 ![Wee me](../../content/images/wee-katie.jpeg)
 
 - I still find it really hard to accept that a whole town would feel justified in destroying a person because of something like this happening to them when they were a child.
-- Is there anyone decent left in Dénia?
+- In conversations with hackers, I regularly tweet about what they had shown me, and what I now knew existed.
+- This tweet is initially in reference to how they [filmed me masturbating in Lourdes via my hacked laptop](../2023/april.md#good-friday) on Good Friday 2023.
+
+![Tweeting about knowing about the porn](../../content/tweets/march-2024/reporting-on-the-1989-porn-films-i-now-know-about.png)
 
 ## Meeting Alex for coffee
 
