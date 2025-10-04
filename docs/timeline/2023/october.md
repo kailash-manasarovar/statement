@@ -268,10 +268,10 @@ function googleTranslateElementInit() {
 
 ### Tweeting about being spiked in 2007
 
-- The gang-stalking events, online and at the conservatory, triggered memories of events from the past such as the rape-gang from Tottenham in 1989, and other things I hadn't thought about for a long while.
+- The gang-stalking events, online and at the conservatory, were triggering memories of events from the distance past too, such as the rape-gang from Tottenham in 1989, and other things I hadn't thought about for a long while.
 - It must have been curious for Hazel Smith and anyone she had told what had happened in 2007 to have seen me tweet content which suggested I knew, at least a little bit, about what was going on more broadly.
 
-![Poisoned at Hazel's house](../../content/tweets/march-2024/compelled-to-tell-hazel-story-1.png)(https://x.com/1FRGVN/status/1714429310906351705)
+[![Poisoned at Hazel's house](../../content/tweets/march-2024/compelled-to-tell-hazel-story-1.png)](https://x.com/1FRGVN/status/1714429310906351705)
 
 [![Poisoned at Hazel's house](../../content/tweets/march-2024/compelled-to-tell-hazel-story-2.png)](https://x.com/1FRGVN/status/1714432159425925547)
 
