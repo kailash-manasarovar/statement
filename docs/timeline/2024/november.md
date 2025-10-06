@@ -188,7 +188,9 @@
 - On 28th November, I have an eye examination at Rutnin Eye Hospital in Bangkok.
 - My eyes have been red and blurry for weeks, and it's very difficult to focus. 
 - They diagnose me with a pre-glaucoma condition which is very serious.
-- I could go blind suddenly and very quickly.
+- My eye pressure is very high, over 20 in both eyes. My normal pressures should be around 12-15.
+- The ophthalmologist suggests we do some breathing Buddhist meditation and this brings my pressures down to 15/17.
+- She tells me it means I could go blind suddenly and very quickly.
 - I'm told if I get any signs that my angles are closing, I need to go to A&E immediately and [my PACS medical certificate](../../content/documents/health/medical-certificate-PACS.JPG) will get me to the front of the queue.
 - I'm horrified. 
 - It's a sudden onset eye-condition coming directly from poisoning.
