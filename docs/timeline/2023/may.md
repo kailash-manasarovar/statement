@@ -105,7 +105,7 @@ function googleTranslateElementInit() {
 - I guess that means this chamber music class must have been live-streamed, and there are copies of it all over the world.
 - The two Ana's (violin teacher and musical language teacher) make a great fuss of pretending that Ana the violin teacher is terribly jealous and angry with me for posting the earlier information.
 - [Ana and Ana](../2024/february.md#ana-and-ana) never let up trying to terrorize me.
-- Were they forced to do this so that I had a non-sex-offending explanation for my state of anxiety?
+- Were they forced to do this so that I had a non-sex-offending explanation for my constant state of anxiety?
 
 !!! danger "What might happen if I noticed something and spoke up?"
     - When I think back on it all, I wonder about what might have happened if I had noticed the switcheroos.
