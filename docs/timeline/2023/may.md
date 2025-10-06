@@ -97,12 +97,15 @@ function googleTranslateElementInit() {
 - I leave to walk out.
 - As I'm at the door, a man's voice says "Katharine", and I turn around and catch the trumpet teacher's eyes.
 - Trumpet teacher number one and two have swapped at this stage; but at the time I don't notice because they have successfully merged into one person in my mind with the use of sedated sexual assaults, online manipulation, and drugging. 
+- As I think back, it's possible these two men swapped a couple of times during this concert.
 - It's interesting to see how much of the conspiracy I had figured out by when I originally posted this; it wasn't much initially, and yet steadily the truth comes out.
 - When I first posted this section, I hadn't realized I was being drugged continuously.
-- On the second or third drafts, I hadn't realized there were two trumpet teachers, or that I was sedated and rape-porn live-streamed from my apartment on a regular basis, probably for over a year by that time.
+- On the second or third drafts, I hadn't realized there were two trumpet teachers, and that I was sedated and rape-porn live-streamed from my apartment on a regular basis, probably for over a year by that time.
 - On the most recent draft of this section which adds the notification box below, I'm aware there are [at least four trumpet teachers](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) playing porn-switcheroo with me.
-- I guess that means this chamber music class was live-streamed, and we may have copies of it.
-- The two Ana's (violin teacher and musical language teacher) make a great fuss of pretending that Ana the violin teacher is terribly jealous and angry with me for posting the earlier information I had on X in [February 2024](../2024/february.md#constant-gang-stalking-at-the-conservatory).
+- I guess that means this chamber music class must have been live-streamed, and there are copies of it all over the world.
+- The two Ana's (violin teacher and musical language teacher) make a great fuss of pretending that Ana the violin teacher is terribly jealous and angry with me for posting the earlier information.
+- [Ana and Ana](../2024/february.md#ana-and-ana) never let up trying to terrorize me.
+- Were they forced to do this so that I had a non-sex-offending explanation for my state of anxiety?
 
 !!! danger "What might happen if I noticed something and spoke up?"
     - When I think back on it all, I wonder about what might have happened if I had noticed the switcheroos.
