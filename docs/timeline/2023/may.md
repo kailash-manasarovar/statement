@@ -115,11 +115,12 @@ function googleTranslateElementInit() {
 
 ## Slush puppy
 
-- At chamber music class, Samuel asks me to explain what *Slush Puppy* means in English.
+- At chamber music class, [Samuel](../2022/september.md#harmony) asks me to explain what *Slush Puppy* means in English.
 - I tell him that it is a flavored soft drink with ice.
 - I ask him why he wants to know.
 - He doesn't say anything.
 - I now know that Slush Puppy is a common *porn reference*.
+- Remember Samuel's email address that he gave me is the name of a [porn distribution network](../2022/october.md#sam-shares-some-files-with-me).
 - I wonder what he was referring to, and if it had taken place in my apartment while I was sedated during the month of May 2023.
 
 ## Assessment day at the conservatory
