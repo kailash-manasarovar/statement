@@ -97,9 +97,24 @@
     - Could this event have been set up by the police themselves; trying to terrorize a rape gang survivor out of politics?
     - Later, I remember my [dream from a month previous](may.md#dreaming-of-the-pedophile).
 
+### Party of Women party
+
+- There is a party in Islington held for Let Women Speak and the Party Of Women.
+- It takes place the Saturday 29th June, the weekend before the general election.
+- I go and meet many of the other candidates for election.
+- So (Janet), my volunteer, is there.
+- She came to help out at East Finchley festival.
+- She flatters me a little, and buys me a drink, and says she'll be helping out the following week.
+- A little bit later, I meet Beverley who is standing against Emily Thornberry.
+- When I go to give Bev a hug to say hi, our cheeks brush.
+- The softness of Bev's cheek skin is incredible, it's amazing, I'm blown away by the softness of her cheek.
+- I'm so amazed at how soft her cheek felt I tell a few people about it, including So, and one other woman who I met at Madrid (can't remember her name - but she tried to create some negativity with me that night by telling me a story with no details about how people have been saying things, oh you'll find out, she said... I wasn't impressed).
+- Anyway. 
+- The way I felt about Bev's cheek is proof, to me, I was high that night on something either I was absorbing through my shampoo I brought over from Spain - likely - or with something I had ingested that night without my knowledge, or both.
+
 ### Speech at LWS
 
-- At LWS in Hyde Park on 28th June, I make a speech.
+- At LWS in Hyde Park on 30th June, I make a speech.
 - It's obvious I'm being discredited in the community. My past experience as a grooming gang survivor makes people uncomfortable, but there's more to it than that.
 - When the video is posted on Twitter, the end part, including my speech is cut out.
 
