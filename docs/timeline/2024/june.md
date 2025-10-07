@@ -108,9 +108,10 @@
 - A little bit later, I meet Beverley who is standing against Emily Thornberry.
 - When I go to give Bev a hug to say hi, our cheeks brush.
 - The softness of Bev's cheek skin is incredible, it's amazing, I'm blown away by the softness of her cheek.
-- I'm so amazed at how soft her cheek felt I tell a few people about it, including So, and one other woman who I met at Madrid (can't remember her name - but she tried to create some negativity with me that night by telling me a story with no details about how people have been saying things, oh you'll find out, she said... I wasn't impressed).
+- I'm so amazed at how soft her cheek felt I tell a few people about it, including So, and one other woman who I met at Madrid (can't remember her name - but she tried to create some negativity with me that night by telling me a story with no details about how people have been saying things, oh you'll find out, Kate something, she said... I wasn't impressed).
+- Two weeks later, Posie Parker repeats everything this woman has said to me, word for word, on a video.
 - Anyway. 
-- The way I felt about Bev's cheek is proof, to me, I was high that night on something either I was absorbing through my shampoo I brought over from Spain - likely - or with something I had ingested that night without my knowledge, or both.
+- The way I felt about Beverley's soft cheek is proof, to me, that I was high that night on some sense-affecting substance, something either I was absorbing through my shampoo I brought over from Spain - likely to be the aphrodisiac they were feeding me - or with a top-up I had ingested that night without my knowledge.
 
 ### Speech at LWS
 
