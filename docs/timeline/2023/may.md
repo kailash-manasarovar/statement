@@ -113,6 +113,15 @@ function googleTranslateElementInit() {
     - It is my view I would have been murdered, quickly, and no-one would have been able to do a thing about it.
     - I wonder how many times this happened before and to who.
 
+## Slush puppy
+
+- At chamber music class, Samuel asks me to explain what *Slush Puppy* means in English.
+- I tell him that it is a flavored soft drink with ice.
+- I ask him why he wants to know.
+- He doesn't say anything.
+- I now know that Slush Puppy is a common *porn reference*.
+- I wonder what he was referring to, and if it had taken place in my apartment while I was sedated during the month of May 2023.
+
 ## Assessment day at the conservatory
 
 - I'm heading in to piano class and to practice.
