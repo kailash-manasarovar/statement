@@ -192,6 +192,12 @@
 
 ![Excusing myself from class](../../../content/documents/papeles-conservatorio/excusing-myself-from-class.png)
 
+## 18th March
+
+### I tell Gabriel Silva 
+
+- wip.
+
 ## Online threats during this period
 
 ### Google search
@@ -379,10 +385,11 @@
 - I return to Valencia on the 24th March and stay in the Barcelo from 24th-27th, and then the Holiday Inn Express near the airport from 27th-29th March.
 - I have a flight scheduled from Valencia to India on 29th March returning on Saturday 6th April so I need to be back in Valencia.
 - In Valencia I feel like I am being constantly watched, that people know who I am, and everything is extremely unfriendly and unpleasant. 
-- I did not have this experience in Madrid.
+- I did not have the intensity of this experience in Madrid, although it seemed I was being stalked there too.
 - I believe now this is to do with whatever drug they gave me prior to me leaving, which was a high dose, and it has made me very paranoid.
 - I wonder also if they managed to re-dose me somehow, or whether it was added to the car and so I got a dose after a long drive, or was the damage done at that point.
 - I was extremely paranoid in Valencia and I was constantly stalked by fake accounts on Twitter.
+- I also believe there are quite solid misogynist networks in the region which can be relied upon to inflict extra terror on a target whenever necessary.
 
 ## 31st March
 
