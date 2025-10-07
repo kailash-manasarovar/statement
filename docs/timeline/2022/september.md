@@ -96,7 +96,7 @@ function googleTranslateElementInit() {
 ### Harmony
 
 - The teacher is Adrià Gil Boronat, an erratic and extremely nervous man in his fifties.
-- One of my classmates is Samuel Viciano Herranz who has near perfect English. He is Domingo's student.
+- One of my classmates is Samuel Viciano Herranz, a man in his late 20s who has near perfect English. He is Domingo's student.
 
 !!! tip "Samuel's girlfriend"
     - Samuel's girlfriend is Venezuelan; an outsider.
