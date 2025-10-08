@@ -68,6 +68,15 @@
 - I believe they could be police now, they were that sort of men. 
 - In retrospect I wonder if they were trying to scare me.
 
+### An old friend
+
+- One morning at East Finchley tube, I see an old friend from 1989 Geetha.
+- She's never been my friend - she bullied me horribly since 1989 - but I'm happy to see her in any case.
+- She doesn't have anything nice to say.
+- She's seems nervous, her voice is shaking.
+- She takes a photo with me and her, and leaves.
+- I'm happy she came over to say hello and think nothing more of it.
+
 ### Winston May
 
 !!! danger "Proof that criminal gangs in Dénia had connections with North London rape gangs, somehow"
