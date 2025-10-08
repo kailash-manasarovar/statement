@@ -145,6 +145,12 @@ function googleTranslateElementInit() {
 
     <iframe width="857" height="228" src="https://www.youtube.com/embed/RUsEIdHxBPk" title="Main theme from The Conversation (1974)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
+!!! tip "The harmony teacher's state of mind"
+    - I start to wonder if Adria was being drugged too.
+    - He was really very disordered, in thought and word.
+    - Samuel complained he didn't like him, and made faces at him when he said certain things, and obviously found him to be a distasteful human somewhat beneath him.
+    - Whenever I asked Samuel what Adria had said to make him feel this way, he brushed it off.
+
 ### Choir
 
 - The teacher is Concha Ballester.
