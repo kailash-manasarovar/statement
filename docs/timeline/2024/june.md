@@ -70,11 +70,12 @@
 
 ### An old friend
 
-- One morning at East Finchley tube, I see an old friend from 1989 Geetha.
-- She's never been my friend - she bullied me horribly since 1989 - but I'm happy to see her in any case.
-- She doesn't have anything nice to say.
+- One morning at East Finchley tube while handing out leaflets, I see an old friend that was around when the rape-gang got hold of me in 1989, Geetha.
+- She's never been my friend - she bullied me horribly on three different occasions from 1980 including viciously after the rape-gang thing. 
+- I'm happy to see her in any case.
+- She doesn't have anything nice to say to me.
 - She's seems nervous, her voice is shaking.
-- She takes a photo with me and her, and leaves.
+- She takes a photo of me and her, and leaves.
 - I'm happy she came over to say hello and think nothing more of it.
 
 ### Winston May
