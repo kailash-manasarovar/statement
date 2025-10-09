@@ -103,12 +103,11 @@
 - Inside the hotel, online, I am stalked continuously and I believe they get full access again to my new Spanish mobile at this time.
 - I have forgotten to block the camera and there is a significant message that describes something in the room or something I'm wearing
 - On May 6th, I receive [an email notification that the conservatory has banned mobiles from the building](../../content/documents/emails/prohibiting-mobiles-conservatorio.pdf) and I inform my friend about this.
+- I wonder if it is so no-one can take images or films for evidence of wrong doing.
+- I have the sensation when I'm praying the rosary that [the monster trumpet teacher](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) is standing with me and praying the rosary too. I cannot explain this.
 - I am extremely sexually aroused during this time. And it felt like the trumpet teacher was in my mind.
-- They must have managed to drug me somehow during this time. I was out of my mind.
-
-### Novel events
-
-- A significant event from this time will go in the novel.
+- They must have managed to drug me somehow during this time. 
+- I was out of my mind on the run up to the Bali Polygon conference.
 
 ## My speech
 
