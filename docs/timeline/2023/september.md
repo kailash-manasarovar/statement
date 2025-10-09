@@ -795,7 +795,7 @@ function googleTranslateElementInit() {
 - Usually they scurry away under their rocks when a male figure is around who may help.
 - They didn't do that and I wonder if that means Lama Ashak was part of the porn conspiracy.
 - When I met him at the Blou temple in France in the summer of 2016 just after leaving Dénia with a growing depression, he did that thing men do which is *push their way in* to your life. I've only experienced men doing that who had dishonorable intentions.
-- Could they have reached out to him at that time, knowing where I was going and when, and after search for someone who has a porn subscription?
+- Could they have reached out to him at that time, knowing where I was going and when, and after a search for someone with a porn subscription? It can't be too difficult to find someone.
 - Or did they manage to manipulate him into subscribing, with videos from my apartment in Joan Fuster?
 - If so, when he visited in September 2023, did the gangs sedate me through the AC as usual, and bring him to my apartment after I had left him at his hostel?
 - Could he be starring on porn networks with me too?
