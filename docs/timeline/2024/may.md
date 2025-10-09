@@ -167,6 +167,7 @@
 ## Bali
 
 - I am in Bali from 11th-19th May with work.
+- My hotel room is next to John Michael from IT support. I reported my concerns about hacking to him previously.
 - During the week, numerous people come up to me to ask me, "when am I leaving?", or "I heard you're leaving".
 
 ![Bali](../../content/images/bali.png)
@@ -194,7 +195,11 @@
 - He meets me before a dinner one evening.
 - He is nervous.
 - He wants to tell me something but he can't.
+- He talks at me, very fast, a lot, and doesn't let me speak.
+- He's concerned.
 - He knows something about what's going on.
+- I have had long chats with Gordon before and this is not like him.
+- I know he's a family man.
 
 ### The Pakistani Yorkshire-man
 
@@ -232,6 +237,14 @@
 - In her leaving note, she mentions "the worst thing in the world happened" at Bali and how Sandeep Naiwal had really helped her out by getting her a new job.
 - I wonder what "the worst thing in the world" was and if it was sexual in content.
 - I have reached out to Alicia in case what happened to her at Bali is relevant to this story and to the global tech-bro porn conspiracy overall.
+
+### John Michael
+
+- When we get back from Bali, a few days later there is a chat on Slack about John Michael.
+- Someone has nominated him for being the best tech employee ever and Bali is mentioned.
+- I agree. 
+- John Michael is indeed a lovely man.
+- Are they laughing at me?
 
 ## Lourdes
 
