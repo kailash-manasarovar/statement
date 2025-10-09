@@ -707,6 +707,7 @@ function googleTranslateElementInit() {
 - He will remember how anxious I was to go back to the conservatory.
 - I see much online content related to "pandas" during his visit.
 - *Panda* is typically how online stalkers referenced my Tibetan monk friend; while he was visiting and ongoing, including making [references to the exact amount of a monetary gift I send to him online at Christmas](../2024/march/1-12.md#fake-accounts-reference-payments-i-have-made-online).
+- Two years after the events, it occurs to me that my Tibetan friend, Lama Ashak, could be [involved in the conspiracy](#could-my-tibetan-friend-have-been-involved-in-the-porn-conspiracy).
 
 ### Gang stalking on the beach
 
@@ -793,10 +794,13 @@ function googleTranslateElementInit() {
 - This is very unlike them when a man's around.
 - Usually they scurry away under their rocks when a male figure is around who may help.
 - They didn't do that and I wonder if that means Lama Ashak was part of the porn conspiracy.
-- Did they sedate me through the AC as usual, and bring him to my apartment after I had left him at the hostel?
+- When I met him at the Blou temple in France in the summer of 2016 just after leaving Dénia with a growing depression, he did that thing men do which is *push their way in* to your life. I've only experienced men doing that who had dishonorable intentions.
+- Could they have reached out to him at that time, knowing where I was going and when, and after search for someone who has a porn subscription?
+- Or did they manage to manipulate him into subscribing, with videos from my apartment in Joan Fuster?
+- If so, when he visited in September 2023, did the gangs sedate me through the AC as usual, and bring him to my apartment after I had left him at his hostel?
 - Could he be starring on porn networks with me too?
 - When I explained to him that I thought I was being drugged and sedated and raped in my apartment, he stopped talking to me completely.
-- He never responds to my texts at all now.
+- He never responds to my texts or emails at all now.
 - Why?
 
 ## Alex and Paul
