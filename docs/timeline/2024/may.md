@@ -190,7 +190,7 @@
 
 ### The security guy knows something
 
-- Gordon Bishop is the man on the security team who helped me with my [hacked work laptop](march/1-12.md#report-hacking-to-work).
+- Gordon Bishop is the man on the security team who helped me with my [hacked work laptop](march/1-12.md#reporting-hacking-to-polygon-labs).
 - He meets me before a dinner one evening.
 - He is nervous.
 - He wants to tell me something but he can't.
