@@ -293,6 +293,12 @@ function googleTranslateElementInit() {
 - He also has an X account, [`@KingForg1`](https://x.com/kingforg1) which was immediately suspended; probably due to British gang interactivity who were a bit annoyed about this when I initially set up the account on my very, *very* hacked Iphone.
 - I do hope the trumpet teacher looks after him.
 
+### Director and AD
+
+- There is no way any of this choreographed activity could happen so seamlessly without a director watching the whole thing and prompting them to move.
+- I expect there must be a *control room* somewhere which has access to everyone's phones.
+- I expect, also, the conservatory is wired up with spy cams.
+
 ## Tuesday 13th June
 
 - I wake up in fighting mode.
