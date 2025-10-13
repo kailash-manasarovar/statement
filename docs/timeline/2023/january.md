@@ -31,6 +31,8 @@ function googleTranslateElementInit() {
 
 - When we are alone a little later, I mention to Patricia that the trumpet teacher is the same guy we saw in [Benijembla at the end of November](../2022/november.md#walking-in-benijembla-with-the-english-ladies).
 - Patricia gets angry and changes the subject.
+- She tells me she has a younger Spanish husband who makes her a cup of tea every morning.
+- Later, I wonder what happened to her British husband, the father of Toby and her daughter.
 - **I'm never invited to walk again.** In fact, I'm cut off completely from the English ladies walking group. It's shocking to me actually and I can't figure it out at all. 
 - Not only that, I go for a walk on my own a week or two later and "bump" into them; Patricia, Christine, and the others. Christine tries to talk to me like I'm an idiot.
 - I'm offended and upset.
