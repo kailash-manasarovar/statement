@@ -37,6 +37,12 @@
 - Reading through our correspondence, I start to become suspicious about the Madrid law firm when it becomes obvious they are mis-hearing and re-writing important things I have said, which would make me look like a liar.
 - They also appear to be ignoring the sexual harassment claim and referring to it as "opinion".
 - They then appear to be colluding with the company I'm complaining about by only calling witnesses who work for the company, and ignoring [Nadim Kobesi](../2023/november.md#polygon) who may have been working for the porn-gangs, the British Pakistani man who made a [violent sexual threat towards me at dinner in Bali](../2024/may.md#bali) who again may have been working for the porn gangs via Polygon management, and the other sacked writer on my team Anthony who was there at the time who very likely would not have lied about what happened.
+- I fire them.
+- I'm upset about this. I feel this addition to the overwhelming oppression I have experienced could tip me into an angry meltdown; something I experience very rarely.
+- At this moment, a sense of calm comes over me and I feel like God is with me. 
+- I have a sensation that this is not the end of this story with this lawyer and Polygon, and I must wait till next year.
+- Something I trust implicitly is telling me not to worry.
+- I feel protected and guided, and I can get on with drafting this police statement without this distraction.
 
 ### A threat to my brother's life
 
