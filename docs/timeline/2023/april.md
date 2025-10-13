@@ -174,11 +174,12 @@ function googleTranslateElementInit() {
 
 - On the Monday night after the class, I dream I wake up to see the trumpet teacher in my bed, staring at me.
 - He says, "Katharine".
-- I turn my back on him. I'm appalled. He is not someone I want anything to do with.
+- I turn my back on him. I'm appalled. I didn't not want him there. He is not someone I want anything to do with.
 
 ![PP's husband?](../../content/images/vssh-memory-1.PNG)
 
 - I wake up even more obsessed and in love with the trumpet teacher.
+- This particular trumpet teacher was the [fourth man I have since remembered in the Autumn of 2025](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man).
 
 ## Disclosing child sexual abuse to the trumpet teacher
 
