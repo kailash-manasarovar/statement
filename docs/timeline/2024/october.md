@@ -221,12 +221,17 @@
 
 - I'm fired summarily on 25th October, [as expected](#bullying-at-polygon).
 - The constant dehumanizing up to now didn't work so they had to think of something more formal.
+- I'm buzzed into a meeting with HR.
+- Gabriel Silva reads from a script with Jonathan the HR guy standing beside him.
+- Gabe is very *very* nervous. His voice is shaking. He looks terrified.
+- Jonathan is extremely aggressive with me when I try to talk to them.
 - I'm told the whole team is dismissed as they are no longer required.
-- I used to think it was because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy was able to cause enormous trouble with the tech systems, and consequently find out about my private political activities and managed to stick the boot in for me, just weeks after I started.
-- I now believe it was due to the [porn fatwa](../early-years/2003.md#porn-fatwa) which had gotten so out of control everything I did in my life was monitored and manipulated by porn addicts, often working alongside me in tech companies.
+- I used to think it was because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy was able to cause enormous trouble with the tech systems, and consequently find out about my private political activities and manage to stick the boot in for me, just weeks after I started.
+- I now believe this was incorrect, and it was instead due to the [porn fatwa](../early-years/2003.md#porn-fatwa) which had gotten so out of control everything I did in my life was monitored and manipulated by porn addicts, often working alongside me in tech companies.
 - I had just given a public online interview stating I believed I was being drugged and filmed in my flat.
 - Furthermore, anyone in Polygon management knowing what was happening to me in Denia will have known I was about to be [murdered by poisoning by Carmen Cano and her associates](#serious-poisoning-with-intent-to-harm-or-kill). 
 - They couldn't have me turn up to meetings while that was happening now, could they?
+- Did Gabriel know what was coming next for me?
 - I wonder if VSSH and the L'Amistat band were also aware of this about to happen.
 - The dismissal letter explains the company is aware it is an unlawful dismissal, but I'm supposed to accept it.
 - I instruct a lawyer to help me who appears to be on Polygon's side.
