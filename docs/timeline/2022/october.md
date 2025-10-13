@@ -120,6 +120,7 @@ function googleTranslateElementInit() {
 - Later, she will tell me that they are named Vidal.
 - I remember how she curiously mentioned, again and again, that she had spent time in the UK doing the foundation art course; in 2012 or around then.
 - She mentioned this whenever I saw her and mentioned my conservatory studies. 
+- She also told me about her son, Toby, and how he was not able to live permanently in Spain after Brexit, and that he spent a lot of time living in his car in the UK. I thought it strange.
 - I really liked her work and told her I would buy some when I had my own place to hang some in.
 - I remember how her WhatsApp pic had been a picture of her and her husband, [the guy she had been with a Christmas](../2021/december.md#chinese) but their facial features had been distended and contorted, and there had been little images added to their noses and mouths, clown noses and small butterflies and similar, rather like what I will see on some of the numerous fake porn accounts sent to me over 2024.
 - I tell her that her profile image is a bit psychedelic and really rather sinister.
