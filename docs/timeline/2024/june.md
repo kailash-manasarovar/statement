@@ -122,6 +122,7 @@
 - Two weeks later, Posie Parker repeats everything this woman said to me, word for word, on a video.
 - Anyway. 
 - The way I felt about Beverley's soft cheek is proof, to me, that I was high that night on some sense-affecting substance, something either I was absorbing through my shampoo I brought over from Spain - likely to be the aphrodisiac they were feeding me - or with a top-up I had ingested that night without my knowledge.
+- I believe it must have been a low-dose LSD or mushroom-type substance.
 
 ### Speech at LWS
 
