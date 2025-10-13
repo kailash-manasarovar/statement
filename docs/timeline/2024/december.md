@@ -1,3 +1,5 @@
+# December 2024
+
 ## Unable to access my laptop
 
 - Sunday 1st December, my laptop is inaccessible. The password does not work at all.
@@ -36,6 +38,18 @@
 ## Threats
 
 - I continue to get online threats from fake accounts.
+
+## Jyotirlinga
+
+- I visit India for a few days temple tour.
+- Outside Shri Mahakaleshwar jyotirlinga temple, I meet a psychic.
+- He reads my hand.
+- He tells me what he sees.
+- It's quite astonishing how accurate he is.
+- He tells me about my love, but there are people in the way.
+- He talks about a small blond woman and a Muslim man waiting for me to die.
+- He is very accurate with regards to Carmen Cano.
+- I have no idea who the Muslim man could be, whether he got something wrong, or if there is more to this story I'm unaware of.
 
 ## Sunday 8th December 2024
 
