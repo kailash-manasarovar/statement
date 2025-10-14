@@ -12,6 +12,21 @@
 - He has five-o'clock shadow and he is talking in a squeaky high voice.
 - I'm horrified and [write to the Pope](../../content/documents/letters/Pope.pdf) about it.
 
+## Taking two-weeks vacation from Polygon
+
+- My team at Polygon has become unmanageable.
+- One of my team is so unbelievably rude, since I [told them what I was experiencing](./march/1-12.md#i-tell-my-team-at-polygon), he really should be disciplined.
+- Due to Hans' insubordination, Anthony had also become insubordinate, especially when he saw I was getting no help.
+- My team had become utterly unworkable, refusing to do any work, or respond to me at all when I tried to speak to them.
+- My manager Paul should have sorted it out immediately, but didn't.
+- I believe it is because the tech is failing once again and they're too busy.
+- The situation is getting really impossible to deal with and I don't know what to do.
+- I fight like mad to get two weeks vacation so I can run in the election.
+- The fact that I could not do any work because of my team's behavior and the lack of will to help me from management was a total God-send in many ways because I could take the time off suddenly to run my campaign.
+- They give me the time off eventually.
+- I start thinking about what I can do about this horrific and untenable work situation.
+- It feels like they want me to leave, but I love my job and have no intention of leaving.
+
 ## UK
 
 - I spend the rest of June in the UK running my election campaign in Finchley and Golders Green.
@@ -177,4 +192,3 @@
 - This may change as I have no choice but to move back to London in 2025.
 
 [![Spy cams in London in 2025](../../content/tweets/spy-cams-in-london.png)](https://x.com/1FRGVN/status/1926266246925795504)
-

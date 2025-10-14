@@ -8,6 +8,31 @@
     - [Response from ECHR to letter written in Brussels on 8th July](../../content/documents/evidence/ARES%202024_5484609.pdf).
 - I return back to London and get the boat from Portsmouth back to Spain with the car.
 
+### Gabriel Silva is given my role at Polygon
+
+- While at the conference, a number of things happen.
+- I discuss again with Miriam about what's being going on.
+- Miriam, you may remember, is the [Spanish HR rep](may.md#bali) who I reported sexual harassment to.
+- I say something has to happen, I'd like to step down from the role, it's too stressful, everyone hates me, no work is getting done, I can't manage a team of people who refuse to talk to me.
+- She speaks to me like I'm dirt on her shoe.
+- *What game are you playing*, she asks me when I say my team is subordinate.
+- Someone has been telling lies about me, it's obvious.
+- A day later, Paul tells me they've decided that Gabriel Silva is going to take over my role.
+- He is going to be getting married but when he's back he'll be the team manager.
+- I'm relieved.
+- I don't think Gabriel Silva is part of any concerted efforts against me at that time.
+
+#### Dreaming of Gabriel
+
+- While Gabriel is getting married, I dream about him.
+- It's a weird dream and feels like I'm in his head.
+- He is with his wife on their wedding night.
+- He is standing at the bottom of the bed wearing nothing but a baseball cap.
+- He has an erection and he is swinging his penis from side to side.
+- He then jumps up onto the bed and moves towards her.
+- I wake up and feel quite unwell.
+- I've no idea why I might be dreaming about that.
+
 ## Evidence of mass cyber stalking technology
 
 - I'm back in Dénia on 15th July. 
