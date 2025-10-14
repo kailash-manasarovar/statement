@@ -279,3 +279,16 @@ This woman does not know she is being photographed. |
 The two pics above are the same woman I often see dressed as a sexy nurse on a bed about to engage in sexual activity. It's never clear if she's aware of being filmed. I wonder if she is the nurse that lived at my apartment for a couple of weeks. Note the vile profile message that suggests she is dead in an umarked grave.  |
 | ![pic]( ../../content/images/targeted-women/20.png )
 This pic looks exactly like a student of the conservatory studying under Domingo the piano teacher: [Elsa](../2023/october.md#gang-stalking-by-conservatory-civil-servants) who I have mentioned before. |
+
+## Gabriel Silva's first team meeting as manager
+
+- It's late August and everyone is back from holiday.
+- Gabriel has [taken over my role as manager of the doc team at Polygon](july.md#gabriel-silva-is-given-my-role-at-polygon).
+- The whole team is there; Anthony, Hans, myself, and Gabriel.
+- Gabriel announces, smiling, that he is going to a bit of a *switcheroo*.
+- He giggles.
+- He then distributes all the work to Hans and Anthony, leaving me with none.
+- It's obvious to me what's going on, apart from the *switcheroo* reference at this stage.
+- I start thinking about what I'm going to do.
+- It's hard to get clear about what to do about anything else while I'm trying to get the hand-written letters out to as many people as I can.
+ 
