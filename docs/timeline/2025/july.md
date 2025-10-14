@@ -197,11 +197,16 @@
 ### Serving at the baths
 
 - While all this craziness was going on, I went into the baths, morning and afternoon, to serve Our Lady and assist the sick and faithful.
-- It was beautiful and I felt like I was existing very close to Heaven.
+- It was beautiful and I felt like I was existing in a world very close to Heaven.
 - The evil around me could not get in until that [last meeting](#more-transvestites-at-lourdes), at which point I started to notice effects of poisoning, although most likely I had been ingesting the same poison for the whole week.
 - Prior to that, every second in the baths was a blessing.
 - The little bird that flew in and needed rescuing.
-- The beautiful team from Napoli who I just adored.
+- The beautiful team from Napoli who I adored.
+- Every woman I worked with.
+- My appalling attempts at leading the Spanish prayers.
+- My less appalling attempts at leading the English prayers.
+- Everyone I met and interacted with.
+- Singing in the choir on St Mary Magdalena's feast day.
 - My Spanish partner one afternoon who gently put the holy water on the Alzheimer sufferer's lips, and for a moment he went calm and looked at me as we prayed.
 - The Hindu lady who came to see Mary and ask for healing.
 - The families, the single people, the man who had been cured miraculously in 2021 and now sings in the choir and tells everyone his story.
