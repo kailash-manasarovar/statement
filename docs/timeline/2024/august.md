@@ -287,8 +287,7 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 - The whole team is there; Anthony, Hans, myself, and Gabriel.
 - Gabriel announces, smiling, that he is going to a bit of a *switcheroo*.
 - He giggles.
-- He then distributes all the work to Hans and Anthony, leaving me with none.
+- He then distributes all my work to Hans and Anthony, leaving me with none.
 - It's obvious to me what's going on, apart from the *switcheroo* reference at this stage.
 - I start thinking about what I'm going to do.
-- It's hard to get clear about what to do about anything else while I'm trying to get the hand-written letters out to as many people as I can.
- 
+- It's hard to get clear about what to do about anything else while I'm receiving picture-after-picture of targeted women, and trying to get the handwritten letters out to as many people as I can.
