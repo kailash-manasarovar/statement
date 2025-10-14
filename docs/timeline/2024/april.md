@@ -136,7 +136,7 @@
 - However, I feel that I probably can't trust anyone here, so I only give them a few devices, and not the devices I am certain will come up positive for hacking.
 - I give them the following:
     - My Asus Zenbook 13 laptop: He finds nothing on here so I ask him to reformat the device for me. This device could be rechecked now as it was connected again to my new Movistar router which was accessed by hackers immediately it was installed.
-    - The Yoigo router: He asks for the password to the router. I give it to him. He then says that he can't analyze routers. I kept the router so we can check again.
+    - The Yoigo router: He asks for the password to the router. I give it to him. He then says that he can't analyze routers. Why did he need the password then? I kept the router so we can check again.
     - Two security cameras: There was no storage card in one of the webcams so he could not check anything here. I don't know what happened to the card.
 - When I go to collect my devices, I pay 150 euros and he says he can check all my Twitter activity instead, so I give him both my account details and send Twitter archives too.
 - I have never heard back from him on any of it.
