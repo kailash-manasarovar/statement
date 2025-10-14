@@ -47,6 +47,7 @@
 - He tells me what he sees.
 - It's quite astonishing how accurate he is.
 - He tells me about my love, but there are people in the way.
+- He mentions how they are *wasting my time*, over and over. I don't really understand this reference.
 - He talks about a small blond woman and a Muslim man waiting for me to die.
 - He is very accurate with regards to Carmen Cano.
 - I have no idea who the Muslim man could be, whether he got something wrong, or if there is more to this story I'm unaware of.
