@@ -194,6 +194,21 @@
 - The meeting ends and I get an immediate headache and start feeling unwell; symptoms of poisoning rising to the surface.
 - Later, I realize that Kathleen could very well be a man and therefore his/her comment about sitting on her/his knee was even more toxic.
 
+### Serving at the baths
+
+- While all this craziness was going on, I went into the baths, morning and afternoon, to serve Our Lady and assist the sick and faithful.
+- It was beautiful and I felt like I was existing very close to Heaven.
+- The evil around me could not get in until that [last meeting](#more-transvestites-at-lourdes), at which point I started to notice effects of poisoning, although most likely I had been ingesting the same poison for the whole week.
+- Prior to that, every second in the baths was a blessing.
+- The little bird that flew in and needed rescuing.
+- The beautiful team from Napoli who I just adored.
+- My Spanish partner one afternoon who gently put the holy water on the Alzheimer sufferer's lips, and for a moment he went calm and looked at me as we prayed.
+- The Hindu lady who came to see Mary and ask for healing.
+- The families, the single people, the man who had been cured miraculously in 2021 and now sings in the choir and tells everyone his story.
+- I asked Mary for guidance, for clarification on the love I feel for this man who has taken over my daily thoughts since December 2022.
+- Could such a powerful feeling that never lets up be all from drugs and manipulation, I asked her?
+- She replied no, not all.
+
 ## More threats
 
 - I also see threatening pics on my mobile device which remind me very much of [the violent threats I received on X in March 2024](../2024/march/13-end.md#twitter-screenshots).
