@@ -15,7 +15,7 @@
 ## Taking two-weeks vacation from Polygon
 
 - My team at Polygon has become unmanageable.
-- One of my team is so unbelievably rude, since I [told them what I was experiencing](./march/1-12.md#i-tell-my-team-at-polygon-im-being-stalked-and-hacked-in-denia), he really should be disciplined.
+- One of my team is so unbelievably rude, since I [told them what I was experiencing](./march/1-12.md#i-tell-my-team-at-polygon-im-being-stalked-and-hacked-by-my-neighbors), he really should be disciplined.
 - Due to Hans' insubordination, Anthony had also become insubordinate, especially when he saw I was getting no help.
 - My team had become utterly unworkable, refusing to do any work, or respond to me at all when I tried to speak to them.
 - My manager Paul should have sorted it out immediately, but didn't.
