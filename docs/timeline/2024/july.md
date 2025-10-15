@@ -38,7 +38,7 @@
 - I'm back in Dénia on 15th July. 
 - I was not sexually aroused at all while I'm away.
 - After a couple of days back in Dénia, the sexual arousal starts up again.
-- Morever, communication with the hacker begins again in earnest.
+- Moreover, communication with the hacker begins again in earnest.
 - It starts in a very interesting way.
 - A post comes up on my `@JackChardwood` account referencing [*strawberries*](../2023/october.md#strawberries) on July 17th, and something about staying or leaving. 
 - It also reads like a direct threat to me if I stay.
@@ -56,6 +56,13 @@
 - I explain it very clearly to the expert, with screenshots; See page 5 of the [email thread to the perito](../../content/documents/evidence/comms-with-perito.pdf).
 - I never hear anything from the expert in Alicante about this or anything else.
 - My friend phones him repeatedly for updates and the receptionist fobs her off.
+
+## Texting with Sandra Diaz
+
+- I text Sandra Diaz during this time.
+- She triggers the memory of [praying the rosary with the trumpet teacher](may.md#madrid) in Madrid.
+- I mention this to her.
+- She's done her job.
 
 ## Sexual arousal
 
