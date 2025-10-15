@@ -18,7 +18,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ## Vidal Sastre Sanchez Hornero
 
-- The *main* porn genre created throughout November 2022 to June 2023 in person, and then beyond online is called *switcheroo*.
+- The *main* porn genre created throughout November 2022 to June 2023 in person with the support of teachers and staff at the conservatory, and then beyond at my apartment and perhaps even while traveling for work is called *switcheroo*.
 - From research, I understand this commonly means a blindfolded target for multiple men.
 - In my case, the blindfold was continuous drugging and poisoning which made my sight extremely blurred, and intricately choreographed scenarios at the conservatory in which the men would literally switch to play the role of the trumpet teacher with this name.
 - This must mean, in my view, that the conservatory is wired up with spy-cams that also livestream onto porn networks.
