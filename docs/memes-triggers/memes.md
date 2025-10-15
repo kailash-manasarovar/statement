@@ -47,3 +47,12 @@ function googleTranslateElementInit() {
 - I wonder if it is a code name for the targeted woman?
 - My thoughts eventually went to a [French woman, Sylvie, I did know in 2015](../timeline/early-years/2015.md#greek-man-with-a-twitch-and-sylvie) who was surrounded by the Denia body-building massive, i.e. Domingo Cano's friend, and I wonder if people could have been referring to her.
 - However, this would mean that people fully engaged in terrorizing me were suddenly finding some heart and trying to warn me about what was going on, especially if some ill has befallen Sylvie, so I expect the connection is coincidence.
+
+## Donatello
+
+- This was a common meme early on whilst the cyber-stalking picked up after 12th June 2023.
+- I'd see little pics of the mutant ninja turtle figure, with glasses.
+- Sometimes this would be matched with a name, David.
+- Later on the images morphed into actual humans.
+- I'm guessing it was either related to the hacker dealing with me directly, or..
+- It was a demo of one of the common ways they target kids online.
