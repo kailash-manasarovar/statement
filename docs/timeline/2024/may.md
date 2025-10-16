@@ -212,6 +212,12 @@
 - His Oxford-English accent says otherwise.
 - He grins at me constantly.
 - At dinner, he makes violent sexual threats towards me.
+
+![Pakistani threats at dinner](../../content/images/pakistani-man-threatens-woman.png)
+
+- I tweet about it and tell Spanish HR the following morning.
+
+[![Sexual violence at dinner](../../content/images/sexual-violence-at-dinner.png)](https://x.com/1FRGVN/status/1790392972057747804)
 - I tweet about it.
 
 [![Sexual violence threats at dinner](../../content/images/sexual-violence-at-dinner.png)](https://x.com/1FRGVN/status/1790392972057747804)
