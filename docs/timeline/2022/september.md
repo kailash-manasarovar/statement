@@ -114,6 +114,8 @@ function googleTranslateElementInit() {
 - I said didn't anyone notice anything, and try to help?
 - He didn't reply.
 - I wonder if Samuel was implicated in gang-stalking Lorraine Blackbourn around the time of her death, in the same way he is implicated in gang-stalking me on request from Domingo.
+- Samuel will say things to me that seem to be part of the online and offline stalking; *storm in a teacup*, *dark horse*, *slush puppy*.
+- He also uses an email address which is the [name of a porn network](october.md#sam-shares-some-files-with-me).
 - Elvira is also in this class. She is a minor child and she is Domingo's student also.
 - Elvira has a sister, Lucía, in the year above who is also Domingo's student.
 - Now and then, Samuel, Domingo, Elvira and Lucía will go out in the evenings together, just those four. 
