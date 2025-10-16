@@ -60,7 +60,7 @@ For that reason, the statement is now a novel in production and the author is in
 
 Given now she has poetic license, the story is taking a new and more positive form. 
 
-Ultimately, this book is a love story; a tale of good versus evil, a story of multiple communities coming together under a strong commitment to the safety of women and children; and to the Truth, to Life, and to the Light.
+Ultimately, this book is a love story; a tale of good versus evil, a story of multiple communities coming together under a strong commitment to the safety of women and children and to the Truth, to Life, and to the Light.
 
 ![Miracles](content/images/principles-of-miracles-18.png)
 
