@@ -112,6 +112,9 @@ function googleTranslateElementInit() {
 - I started to feel a bit light headed and smiley, flushed. 
 - I heard someone say my name, Katharine, and so I looked out of the door.
 - The trumpet teacher was standing over Ana Requena Marín, the violin teacher, and talking to her softly.
+
+![Ana outside the toilet](../../content/images/ana-outside-the-toilet.png)
+
 - It sounds like he's explaining why he's only just arrived at class at the end of November and missed two months of the year already. I don't understand what he is saying.
 - I'm sort of amazed by him but I'm not quite sure why.
 
