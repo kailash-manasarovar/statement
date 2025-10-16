@@ -9,7 +9,7 @@
 - Dark circles suddenly appear under my eyes - like they did after the chamber music class in January 2023. 
 - My eyes are extremely blurry. My mind is confused and I can't remember simple things. I'm sure I'm being poisoned.
 - It's impossible for me to go out walking without feeling like I'm going to be attacked in some way; psychological usually.
-- Every night, I hear a woman next door talking to a man. Her voice sounds like a machine gun.
+- Every night, I hear a woman next door talking to a man. Her strident smoker's voice sounds like an extremely slow-motion machine gun; a hideous sound, monstrous.
 - I hear her and another woman outside my door a lot. I look out of the spyhole and see them at the water main cupboard, every day.
 - When I went shopping to the Carrefour the previous week, a couple parked their car close to mine and as I'm coming back to my car they start shrieking and laughing, and putting their phones up if they're recording me. I don't know who they are. The man looks like the [man who keyed my car on the Mongto](../2023/october.md#my-car-is-damaged-on-the-montgo). I recognize the woman somehow. Messages on Twitter fakes accounts that like my posts refer to it later on. It's been like that constantly since September 2023. Later, I dream the man slams the woman's face into the dashboard.
 - So I don't go out and consequently, if they are poisoning me through the air vents, I'm unable to get out to clean my lungs.
