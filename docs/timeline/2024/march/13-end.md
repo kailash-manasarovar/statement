@@ -40,8 +40,9 @@
 - They both read it at the same time.
 - They both look at me angrily: https://x.com/1FRGVN/status/1773436669007380597.
 - The choir repertoire includes a song about domestic violence which is very aggressive and unpleasant, a horrible irony.
-- That night I become extremely anxious and scared.
+- As I leave the building, Ana is playing trumpet music on her laptop and I hear it from her classroom as I walk by.
 - On my way home, through the tunnel, a longer-haired blond and stocky man of about 45 walks towards me grinning and blows in my face.
+- That night I become extremely anxious and scared.
 
 ### Stalker activity
 
