@@ -25,6 +25,9 @@ function googleTranslateElementInit() {
 ## Batman and little girl
 
 - I heard this said a lot around the conservatory, and it also came up on meme's on Twitter.
+- I wonder if the porn contained superhero outfits.
+- I'm also curious as to why `El Pais` ignored me and their servers were controlled by the porn-gangs.
+- They have a big picture of Batman on the wall of their offices.
 
 ## Jaws
 
