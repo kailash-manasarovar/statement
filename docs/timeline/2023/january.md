@@ -105,7 +105,7 @@ function googleTranslateElementInit() {
 - I buy them anyway.
 - In the summer of 2024, I will see one of their targeted women wearing similar boots to those which I bought around this time.
 
-[![Innocent lady's boots](../../content/images/targeted-women/innocent-lady/1.png)]()
+[![Innocent lady's boots](../../content/images/targeted-women/innocent-lady/1.png)](../2024/august.md#suspected-targets)
 
 - When I first wrote this section, I wondered if gypsy sedating porn gangs destroyed my boots on purpose for some sick reason, and if Carmen Cano liked my taste in clothes and simply wanted my things for herself.
 - Now it seems that the porn gangs intentions for me were set very early on, and their total control of my online activity, including what items I bought, to prep the future with little signs and symbols like this, were to inform me of my downfall incrementally while they closed the bear trap around me.
