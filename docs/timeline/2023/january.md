@@ -108,7 +108,7 @@ function googleTranslateElementInit() {
 [![Innocent lady's boots](../../content/images/targeted-women/innocent-lady/1.png)]()
 
 - When I first wrote this section, I wondered if gypsy sedating porn gangs destroyed my boots on purpose for some sick reason, and if Carmen Cano liked my taste in clothes and simply wanted my things for herself.
-- Now it seems that the porn gangs intentions for me were set very early on, and their total control of my online activity, including what the items I bought, to prep the future with little signs and symbols like this, were to inform me of my downfall incrementally while they closed the bear trap around me.
+- Now it seems that the porn gangs intentions for me were set very early on, and their total control of my online activity, including what items I bought, to prep the future with little signs and symbols like this, were to inform me of my downfall incrementally while they closed the bear trap around me.
 - I wonder how long it will be before we start seeing the lists of victims.
 - If you're reading, and you think you are or have been a target, or think you know of one, I'd be happy to receive any information for the book. 
 
