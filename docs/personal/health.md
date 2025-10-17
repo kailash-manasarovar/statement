@@ -133,3 +133,27 @@ function googleTranslateElementInit() {
 - Another extremely positive effect of me enduring these NLP seduction techniques online in the context of sexual grooming of women and children is that I am now able to describe it.
 
 ## Boils
+
+- It seems to me that the genital boils I have suffered on and off since 1991 may well be connected to sedated sexual attacks.
+- It is as if the body itself is complaining in no uncertain terms about things that have happened to it without the mind's knowledge.
+- The first set of boils I had was in 1991 and they were all over my face in the first month of me starting my BA studies in Performing Arts at Middlesex University; a time in which I struggled daily with severe PTSD.
+- The next time I had anything similar was as I was succumbing to systemic candida, a common autoimmune disease, triggered by blood poisoning and the ensuring hardcore antibiotic dose.
+- At that time, from 2001, I started to get random boils in my armpits and genital region, but nothing overwhelming.
+- The first time I can remember having severe genital boils that would burst blood and pus stains across the room was when I was living at Passeig Periodista Ramon Ortega in Denia from 2012-14.
+- I don't remember having these at Lourdes in 2014.
+- I don't remember having them at Joan Fuster until I started preparing my police statement in 2015; I may have mentioned them in it.
+- From 2016-2020 I had them the worst they'd ever been when I moved back to London.
+- It's like repressed anger manifesting.
+- I would get them whenever I spoke with my parents when I was living away.
+- I started to get them again in November 2022 when I noticed a big one near my groin area.
+- Detoxing regularly and going on the kidney diet in 2023 relieved me of boils for a short while.
+- It's hard to remember things like this from 2024.
+- I would also get them in my armpits, but this was more common earlier on, and I believe that was anger coming from being *passed around* as a child.
+
+## Making fists
+
+- Making fists is another way I processed trauma.
+- I remember that from August 1989 for many years I made tight fists that would not relax.
+- This started again in 2006 after remembering gang rape from 1989 and lasted years, possibly till 2008.
+- Interestingly, I was in Denia at that time too, possibly in another *procured* rental. We can check obviously.
+- Then again, from 2015 when I wrote out my police statement in Joan Fuster, I made fists, probably until I started on medication in December 2016.
