@@ -102,6 +102,7 @@ function googleTranslateElementInit() {
 - I throw out my boots and get a new pair.
 - While I'm looking for a pair of boots online, I cannot seem to find any I like.
 - I search again and again for similar boots, but the only option that comes up is a pair I'm not all that keen on.
+- I buy them anyway.
 - In the summer of 2024, I will see one of their targeted women wearing similar boots to those which I bought around this time.
 
 ![Innocent lady's boots](../../content/images/targeted-women/innocent-lady/1.png)
