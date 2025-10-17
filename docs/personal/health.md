@@ -131,3 +131,5 @@ function googleTranslateElementInit() {
 - I wonder if I was on an informal drug trial.
 - I thought what I was experiencing was true love, and it probably was a little bit, but the real trigger was the drugs and sexual feelings in the context of love that I hadn't experienced for twenty years.
 - Another extremely positive effect of me enduring these NLP seduction techniques online in the context of sexual grooming of women and children is that I am now able to describe it.
+
+## Boils

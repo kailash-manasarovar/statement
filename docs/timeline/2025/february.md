@@ -31,6 +31,16 @@
 - I believe he is keeping an eye on me for the Adams family and will be paid for his services in cocaine.
 - I believe the medication he takes every day is either cocaine or something similar to keep him going.
 
+### Picking up the car
+
+- I have the car detailed in Madrid close to where I'm staying.
+- I'm hoping this will remove any toxins the gangs managed to put in my car.
+- I use this company: https://garagedetail.es/, close to the El Pais offices.
+- When I pick up the car and start driving, it feels like the whole dash has been moved closer inwards.
+- I'm not able to put the same things back in the glove compartment that were there previously without issue; they don't fit.
+- My feet are misfiring as they step on the clutch because it's in a different place.
+- I wonder about this with Paul, and suggest the gangs might have got the detailers to put something in the car.
+
 ### Child gang-rape porn
 
 - I tell Paul the whole story about what's been going on in Denia and how it is related to when I was sexually abused as a child.
