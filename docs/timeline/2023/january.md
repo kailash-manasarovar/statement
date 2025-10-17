@@ -100,11 +100,16 @@ function googleTranslateElementInit() {
 - The plastic soles are coming off and they look tattered and old.
 - At the time, I think I have only just noticed something that has clearly been the case for a while.
 - I throw out my boots and get a new pair.
-- At the time of writing, I'm wondering if gypsy sedating gangs destroyed my boots on purpose for some sick reason.
-- I did put a lot of clothes in the clothes bin outside my apartment block.
-- Did Carmen Cano like my taste in clothes?
-- Did she get her henchmen to repair my boots once I'd thrown them away?
-- Did she wear [my boots from Ireland out](../2024/january.md#boots-from-ireland) a year later?
+- While I'm looking for a pair of boots online, I cannot seem to find any I like.
+- I search again and again for similar boots, but the only option that comes up is a pair I'm not all that keen on.
+- In the summer of 2024, I will see one of their targeted women wearing similar boots to those which I bought around this time.
+
+![Innocent lady's boots](../../content/images/targeted-women/innocent-lady/1.png)
+
+- At I first wrote this section, I'm wondered if gypsy sedating gangs destroyed my boots on purpose for some sick reason, and if Carmen Cano liked my taste in clothes and wanted my things for herself.
+- Now it seems that the porn gangs intentions for me were set very early on, and little signs and symbols like this were to inform me of it incrementally as they closed the bear trap around me.
+- I wonder how long it will be before we start seeing the lists of targeted woman.
+- If you're reading, and you think you are or have been a target, or think you know of one, I'd be happy to receive any information for the book. 
 
 ## Ganesha
 
