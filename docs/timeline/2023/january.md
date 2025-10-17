@@ -105,11 +105,11 @@ function googleTranslateElementInit() {
 - I buy them anyway.
 - In the summer of 2024, I will see one of their targeted women wearing similar boots to those which I bought around this time.
 
-![Innocent lady's boots](../../content/images/targeted-women/innocent-lady/1.png)
+[![Innocent lady's boots](../../content/images/targeted-women/innocent-lady/1.png)]()
 
-- At I first wrote this section, I'm wondered if gypsy sedating gangs destroyed my boots on purpose for some sick reason, and if Carmen Cano liked my taste in clothes and wanted my things for herself.
-- Now it seems that the porn gangs intentions for me were set very early on, and little signs and symbols like this were to inform me of it incrementally as they closed the bear trap around me.
-- I wonder how long it will be before we start seeing the lists of targeted woman.
+- When I first wrote this section, I wondered if gypsy sedating gangs destroyed my boots on purpose for some sick reason, and if Carmen Cano liked my taste in clothes and simply wanted my things for herself.
+- Now it seems that the porn gangs intentions for me were set very early on, and their total control of my online activity, including what the items I bought, to prep the future with little signs and symbols like this, were to inform me of my downfall incrementally while they closed the bear trap around me.
+- I wonder how long it will be before we start seeing the lists of victims.
 - If you're reading, and you think you are or have been a target, or think you know of one, I'd be happy to receive any information for the book. 
 
 ## Ganesha
