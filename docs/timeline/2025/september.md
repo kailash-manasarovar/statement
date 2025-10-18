@@ -1,5 +1,19 @@
 # September 2025
 
+## The Red Lion Barnet with dad
+
+- Dad likes to go to the Red Lion Barnet.
+- There's something fishy going on up there, though.
+- Every time I have taken him up for the carvery dinner, some weird event has taken place.
+- For example: the [Muslim men display](march.md#a-man-who-reminds-me-of-domingo) at the table right next to us in March.
+- Or the [woman who seems to know me](july.md#the-woman-at-the-red-lion) in July.
+- As we walk from the car to the pub, dad suddenly needs a wee. He stands in the middle of the pavement, in broad daylight, and pisses on the Red Lion pub's wall.
+- I'm pretty embarrassed actually, but he is 84, I guess.
+- At the same time, a fast expensive car speeds up to us very noisily, stops, waits, then reverses away as if they were looking at us.
+- While we're in the carvery, I see men peering into look at me.
+- My presence is clearly antagonizing.
+- I tell dad we have to stop coming here, I don't want to antagonize anyone.
+
 ## Thunderbolt clarity
 
 - Around the middle of this month, I suddenly become clear about who the trumpet teacher was.
