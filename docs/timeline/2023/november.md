@@ -313,6 +313,24 @@ function googleTranslateElementInit() {
 
 ## Polygon
 
+!!! tip "This section is a bit disordered"
+    - The reason for this is that I didn't think for one minute my professional life would be part of an international porn conspiracy when I first started writing this police statement.
+    - However, I knew that there were links into what was happening to me professionally and the constant onslaught of bullying and attacks seemed necessary to include.
+    - I am consequently not surprised to find genuine links from recruitment agents and colleagues internationally to what was happening to me in my spy-cam and sedating-tech installed apartment in Spain.
+    - I'll rework it all shortly.
+
+### Interview with Polygon
+
+- I attend a series of interviews for the job over September and October.
+- The technical interview stage is managed by Nadim.
+- I'm asked to research and write about the zero-knowledge engine, and ask questions where necessary.
+- I do a good job. 
+- I have an online chat about what I have prepared with Nadim.
+- As I'm interviewing, words fly by on my UI, "wow, you're an engineer".
+- I take it to mean the hacker is watching my every move, including my job interviews.
+
+### Starting with Polygon
+
 - I start a new job at [Polygon](https://polygon.technology/), web3 crypto giant, on 1st November as a Senior Technical Writer.
 - It's a great job and I'm very excited about my new role.
 
@@ -324,6 +342,8 @@ function googleTranslateElementInit() {
     - What's not clear is how many of the men I have worked with had seen [child rape-gang porn with me in it](#first-time-they-flash-up-my-naked-16-year-old-body-on-x) and/or knew I was being drugged and sedated in my apartment in Denia, and how the criminal gangs intended to rob and murder me when I was run through, like they do with all the other women, and now children.
     - I'm wondering if my role at zkSync was also part of the conspiracy, as the men at that organization built up the stress and tension to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023).
     - "It's what they do", as [Paqui had said to me in class](../2024/january.md#i-tell-paqui-im-being-terrorized-by-teachers-and-staff-at-the-conservatory).
+
+### Nadim Kobesi
 
 - I was interviewed by [Nadim Kobesi](https://nadim.computer/); *apparently* an engineer and cryptographer. 
 - Every time he speaks, he prefaces his words with "as an engineer" or "as a security expert", in case we forget I suppose.
@@ -337,11 +357,12 @@ function googleTranslateElementInit() {
 - He gives me zero advice that I didn't know already, and that anyone could have gotten from basic information.
 - I start to wonder about how much of an engineer and security expert he really is.
 - He tells me he will check out my Twitter account, and I give him my account details.
+- At the same time, I look him up and discover he's a trained actor.
 - From that moment, his demeanor towards me changes.
 - He starts to bully me outrageously.
 - It is so bad, he is fired about two weeks later, but not before he has spread the word around the business, including to my boss and managers I have to work with very closely, that I am a *transphobe*.
 - About a week before he gets fired, Grace insists I go on a trip to Barcelona with her and Nadim at the weekend. It's out of the blue and feels like bullying.
-- I wonder what their intention was for the trip to Barcelona.
+- I wonder what their intention was for the trip to Barcelona?
 - When I spoke to engineers on the team about him later on, they couldn't believe the guy had got the job. They said he was totally ineffective and impossible to work with and any work he had done they couldn't believe he had done it, it was so poor quality, as if he had no idea what he was doing.
 - He did, however, have root level access to all systems for the short time he was on the engineering team.
 - I look him up on Google and find out he is a trained actor with a bachelor's degree from the [National Institute of Dramatic Art](https://www.nida.edu.au/) in Sydney, graduated in 2010, and has been in a number of films. 
@@ -350,9 +371,15 @@ function googleTranslateElementInit() {
 - Or did they know I had found out he was an actor because they were watching my every move online along with everyone else in Spain it seems?
 - I wonder how much damage he was able to do in the engineering department in such a short space of time. The tech failed and faltered again and again in early 2024. I think this is probably a red-herring now.
 - He, or other parties, certainly added a lot of malicious code to our backend set up which broke our SEO for months before we could figure it out, but this was probably an inside job.
-- In any case, from the moment I gave Nadim my Twitter account details, everything changed for me at Polygon. My boss Grace starts to treat me badly. I am no longer given work by Gabriel Silva who I am supposed to be working with closely. 
+- In any case, from the moment I gave Nadim my Twitter account details and looked him up online in private, everything changed for me at Polygon. My boss Grace starts to treat me badly. I am no longer given work by Gabriel Silva who I am supposed to be working with closely. 
+
+![John 3 8](../../content/images/John-3-8.PNG)
+
+### Gabriel Silva
+
 - Gabriel starts complaining about my work to me, and others; he doesn't like my writing style, he continually puts me down in meetings, he calls me a single point of failure with other team members.
 - It doesn't matter so much because in early 2024, while the zk system is continually failing, 20% of the workforce is made redundant.
+- Grace loses her job in seconds; was she starting to suspect something?
 - I move up to team lead so I am really busy and Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not gone up, he would have effectively made me a candidate for redundancy very quickly.
 - Instead, my team (who are not really tech writers, and don't know the job well - one is an exceptional copy writer, the other an academic-writing-style mathematician) starts to mutiny.
 - One of the team in particular, Hans Bodani, starts to shout at me in team meetings, gets angry with me, complains about things I did not say to my boss, who supports him, and then refuses to communicate with me at all.
@@ -402,16 +429,6 @@ function googleTranslateElementInit() {
     - Was the Aziv sexual threat just more fun for them? Or were they hoping I would have violent sex with him.
     - Remember, I had been primed by the [gypsy sex drug ring right before leaving and the drugs had been put in my toiletries too](../2024/april.md#the-trumpet-teacher-in-denia).
     - I wonder what these two actors might tell the police if questioned.
-
-### Interview with Polygon
-
-- I attend a series of interviews for the job over September and October.
-- The technical interview stage is managed by Nadim.
-- I'm asked to research and write about the zero-knowledge engine, and ask questions where necessary.
-- I do a good job. 
-- I have an online chat about what I have prepared with Nadim.
-- As I'm interviewing, words fly by on my UI, "wow, you're an engineer".
-- I take it to mean the hacker is watching my every move, including my job interviews.
 
 ### X with Polygon
 
