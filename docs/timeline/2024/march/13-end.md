@@ -45,7 +45,8 @@
 - That night I become extremely anxious and scared.
 
 !!! tip "A little bird told me"
-    - They sedated me there and then... and put a plastic bag over my head and tied it shut and left me sedated in this state to the point of death before undoing it.
+    - They sedated me that night and put a plastic bag over my head and tied it shut and left me sedated in this state to the point of death before undoing it.
+    - That feels true and could explain the cold I was getting that evening becoming a six-week-long chest infection with a cough that made me crack a rib.
 
 ### Stalker activity
 
