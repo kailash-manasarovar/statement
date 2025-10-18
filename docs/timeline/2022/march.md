@@ -25,6 +25,9 @@ function googleTranslateElementInit() {
 
 - I meet a lovely Romanian couple with their young son who is auditioning for year 1 of piano studies.
 - He's a energetic and optimistic youngster, and an excellent player.
+- He's beautiful, really lovely looking.
+- Paqui Fornet takes us - and no others - up to her room to discuss the audition in more detail. 
+- She barely grunts at me and spends all of her energy dealing with the Romanian family.
 
 ## Upstairs neighbor at Carrer Furs
 

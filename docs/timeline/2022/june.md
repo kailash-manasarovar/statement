@@ -83,6 +83,7 @@ function googleTranslateElementInit() {
 - I go to the audition and pass it.
 - I'm scheduled to join the conservatory again for the third year professional piano studies in September.
 - At the audition, Domingo's female students are hanging around helping everyone. 
+- I see the Romanian beautiful boy there. His parents are with him.
 - The girls are all dressed in the same way; hot pants and skimpy tops. 
 - The girls are 14 or 15 years old.
 - He tells the girls to go and talk to people, and they mill around talking to parents.
