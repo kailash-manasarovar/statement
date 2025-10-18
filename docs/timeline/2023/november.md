@@ -314,9 +314,10 @@ function googleTranslateElementInit() {
 ## Polygon
 
 !!! tip "This section is a bit disordered"
-    - The reason for this is that I didn't think for one minute my professional life would be part of an international porn conspiracy when I first started writing this police statement.
-    - However, I knew that there were links into what was happening to me professionally and the constant onslaught of bullying and attacks seemed necessary to include.
-    - I am consequently not surprised to find genuine links from recruitment agents and colleagues internationally to what was happening to me in my spy-cam and sedating-tech installed apartment in Spain.
+    - The reason for this is that I didn't think for one minute my professional life would be part of an international sedated rape-porn conspiracy when I first started writing this police statement.
+    - However, I did know that the porn-gangs were involved in what was happening to me professionally at some level, and I felt it necessary to include the constant onslaught of bullying and professional attacks, even if just to set the tone of my state of mind over this period.
+    - Of course, I definitely had to include being targeted by UK recruitment companies for obvious scam positions related to Polygon.
+    - I am consequently unsurprised to find genuine links with recruitment agents and colleagues internationally to what was happening to me in my spy-cam, clandestine-drugging, and sedating-tech installed apartment in Spain.
     - I'll rework it all shortly.
 
 ### Interview with Polygon
