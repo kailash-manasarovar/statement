@@ -380,7 +380,7 @@ function googleTranslateElementInit() {
 
 - Gabriel starts complaining about my work to me, and others; he doesn't like my writing style, he continually puts me down in meetings, he calls me a single point of failure with other team members.
 - It doesn't matter so much because in early 2024, while the zk system is continually failing, 20% of the workforce is made redundant.
-- Grace loses her job in seconds; was she starting to suspect something?
+- Grace loses her job in seconds; was she starting to suspect something? I had told her just a few days previously that Nadim was an actor.
 - I move up to team lead so I am really busy and Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not gone up, he would have effectively made me a candidate for redundancy very quickly.
 - Instead, my team (who are not really tech writers, and don't know the job well - one is an exceptional copy writer, the other an academic-writing-style mathematician) starts to mutiny.
 - One of the team in particular, Hans Bodani, starts to shout at me in team meetings, gets angry with me, complains about things I did not say to my boss, who supports him, and then refuses to communicate with me at all.
