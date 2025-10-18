@@ -160,13 +160,13 @@ function googleTranslateElementInit() {
 ### Did they walk me around town too
 
 - Did they sedate me without my knowledge and walk me around town too.
-- Is that how everyone knows me, and was it broadcast on Denia TV.
+- Is that how everyone knows me, and was it broadcast on Dénia TV.
 - Did they take me for coffee, or a lemon ice, in a cafe in the town, while I was sedated.
 - Did they dress up as Batman and walk me around town.
 - Did all those symbols, words, and memes that gang members mentioned or demonstrated to me, things that made me horribly anxious for no apparent reason, did they come from significant sedated moments just like the woman I saw might be experiencing too.
-- If so, the porn gangs of Denia are psychopathic in the extreme, and it is only a short hop to mass serial killing.
-- Could Denia be the first case of mass serial-killing in the modern world, fueled by porn-addictions and steroid use, where the targets are sedated women and children, or those cyber-stalked and manipulated online?
-- Could Denia be the snuff-porn capital of the world as well as baby rape?
+- If so, the porn gangs of Dénia are psychopathic in the extreme, and it is only a short hop to mass serial killing.
+- Could Dénia be the first case of mass serial-killing in the modern world, fueled by porn-addictions and steroid use, where the targets are sedated women and children, or those cyber-stalked and manipulated online?
+- Could Dénia be the snuff-porn capital of the world as well as baby rape?
 - How bad has it gotten out there with police and government constantly turning a blind eye? The world needs to know.
 
 ## Ana in the blue van
@@ -315,7 +315,7 @@ function googleTranslateElementInit() {
 
 !!! tip "This section is a bit disordered"
     - The reason for this is that I didn't think for one minute my professional life would be part of an international sedated rape-porn conspiracy when I first started writing this police statement.
-    - However, I did know that the porn-gangs were involved in what was happening to me professionally at some level, and I felt it necessary to include the constant onslaught of bullying and professional attacks, even if just to set the tone of my state of mind over this period.
+    - However, I did know that the porn-gangs of were involved in what was happening to me professionally at some level - because they were hacking my network and monitoring my every move for one - and I felt it necessary to include the constant onslaught of bullying and professional attacks, even if just to set the tone of my state of mind over this period.
     - Of course, I definitely had to include being targeted by UK recruitment companies for obvious scam positions related to Polygon.
     - I am consequently unsurprised to find genuine links with recruitment agents and colleagues internationally to what was happening to me in my spy-cam, clandestine-drugging, and sedating-tech installed apartment in Spain.
     - I'll rework it all shortly.
@@ -340,7 +340,7 @@ function googleTranslateElementInit() {
     - It came just after the [Torus](august.md#head-hunted-by-ex-polygon-director) nonsense job which was obviously part of the extreme hacking I was subject to. 
     - Were Polygon founders involved in that too, and by extension everything else that was going on?
     - In retrospect, my assignment with Polygon seems to be just another example of [the porn fatwa](../early-years/2003.md#porn-fatwa), especially when we consider Nadim (see below), and the [Pakistani Brit making threats of sexual violence towards me in Bali](../2024/may.md#the-pakistani-yorkshire-man).
-    - What's not clear is how many of the men I have worked with had seen [child rape-gang porn with me in it](#first-time-they-flash-up-my-naked-16-year-old-body-on-x) and/or knew I was being drugged and sedated in my apartment in Denia, and how the criminal gangs intended to rob and murder me when I was run through, like they do with all the other women, and now children.
+    - What's not clear is how many of the men I have worked with had seen [child rape-gang porn with me in it](#first-time-they-flash-up-my-naked-16-year-old-body-on-x) and/or knew I was being drugged and sedated in my apartment in Dénia, and how the criminal gangs intended to rob and murder me when I was run through, like they do with all the other women, and now children.
     - I'm wondering if my role at zkSync was also part of the conspiracy, as the men at that organization built up the stress and tension to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023).
     - "It's what they do", as [Paqui had said to me in class](../2024/january.md#i-tell-paqui-im-being-terrorized-by-teachers-and-staff-at-the-conservatory).
 
