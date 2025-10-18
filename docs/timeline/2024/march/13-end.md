@@ -44,6 +44,9 @@
 - On my way home, through the tunnel, a longer-haired blond and stocky man of about 45 walks towards me grinning and blows in my face.
 - That night I become extremely anxious and scared.
 
+!!! tip "A little bird told me"
+    - They sedated me there and then... and put a plastic bag over my head and tied it shut and left me sedated in this state to the point of death before undoing it.
+
 ### Stalker activity
 
 - The next thing I remember is waking up past midnight afraid for my life.
