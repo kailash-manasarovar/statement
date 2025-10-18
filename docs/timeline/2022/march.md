@@ -28,6 +28,7 @@ function googleTranslateElementInit() {
 - He's beautiful, really lovely looking.
 - Paqui Fornet takes us - and no others - up to her room to discuss the audition in more detail. 
 - She barely grunts at me and spends all of her energy dealing with the Romanian family.
+- I leave them with her and go home.
 
 ## Upstairs neighbor at Carrer Furs
 
