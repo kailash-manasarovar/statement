@@ -125,3 +125,10 @@
 - I'm looking forward to more healing and peace.
 - I guess I might remember a whole bunch of things now.
 - I remain assured it will be nothing I can't handle.
+
+!!! info "Remembering a whole bunch of things"
+    - Update: [I'm handling it](../early-years/2015.md#colitis-symptoms), but there is no doubt the information, and my families reactions to it, would have killed me outright not that long ago.
+    - The betrayal is immense, incomprehensible.
+    - I'm reminded, yet again so no big surprises, of how evil the people closest to me are after my mother blamed me once again for apparently *choosing* to be a multiple rape-gang victim which now possibly includes my father's involvement - he has not denied it - and my brother called me a *tart* repeatedly looking at me as if I was dirt on his shoe.
+    - Again, BAU for the people here whenever the unwelcome truth pops up...
+    - I pray the whole truth emerges unhindered for me and other victims, and for the rape-apologists too who might be finally held to account by people they can't simply insult and silence.
