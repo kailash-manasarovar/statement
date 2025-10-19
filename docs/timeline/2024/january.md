@@ -126,6 +126,18 @@ function googleTranslateElementInit() {
 - You can't make this stuff up. 
 - God is good.
 
+## A strange meeting with Gabriel Silva
+
+- Polygon is about to sack 20% of the workforce, including my boss Grace.
+- A week or so before, I meet Gabriel Silva to chat about work.
+- Something strange happens in this meeting.
+- I become very upset for some reason.
+- It's inexplicable.
+- I remember Gabriel speaking very slowly and quietly, his face looking a bit shocked.
+- I remember being extremely upset.
+- I wonder about this event now, I didn't see Gabriel for a long time after that.
+- I wonder whether it could have been a porn-gang sedating tech demo.
+
 ## I see my naked 16-year-old body on X again
 
 - Hackers flash up another example of the porn they have with me in it, made in 1989, where I am sedated and gang-raped by a group of predominantly black men somewhere near Tottenham, North London.
