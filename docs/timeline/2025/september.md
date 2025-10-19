@@ -14,6 +14,19 @@
 - My presence is clearly antagonizing.
 - I tell dad we have to stop coming here, I don't want to antagonize anyone.
 
+## 13th Day of Elul, Saturday 6th September
+
+!!! quote "The ultimate purpose of technology"
+    Parenthetically, the ultimate purpose of technology is that it be used for holy matters, as stated: *All that the Holy One blessed be He created in this world was solely for His glory,* and *The only glory is Torah.* Thus we see that modern technology is to be used for increasing in the dissemination of Torah.
+
+    Although it is possible to utilize it for worldly matters (and even things antithetical to sanctity), this is only because man is given free choice. Indeed, when others use technology for undesirable purposes, Jews must rectify this by using it for holy purposes; and then the sanctity produced is that much greater, coming as it does from previous *darkness*.
+
+    Ref: https://www.chabad.org/therebbe/article_cdo/aid/2537558/jewish/13th-Day-of-Elul-5742-1982.htm
+    
+- This talk feels like it is describing the [forgivenet](https://1frgvn.com/).
+- When there is no reasoning with arrogance and evil, what can you do?
+- Maybe just supply the means for healing and make them available, and leave the rest to God.
+
 ## Thunderbolt clarity
 
 - Around the middle of this month, I suddenly become clear about who the trumpet teacher was.
@@ -59,14 +72,15 @@
 - I also give her the [PACS diagnosis](../../content/images/health-diagnosis-timeline/PACS-diagnosis.jpeg) and [kidney check result](../../content/images/health-diagnosis-timeline/kidney-check-BKK.jpeg) from BKK.
 - She listens and hears me.
 - She suggests immediately the mental health team.
-- I explain that I have no more PTSD at all and that my suicidal depression is completely healed and I have no depression at all.
+- I explain that I have no more PTSD at all and that my suicidal depression is completely healed and I have no depression at all either.
 - I explain that something happened to me while I was fighting for my life in Denia in 2023 that unleashed an inner strength I never knew I had.
 - I tell her about my Transformational Touch work with Steve Terrell and how much it has helped me heal from trauma.
 - I also explain that I have asked numerous agencies; police, embassies, etc, for help and I have been ignored by everyone.
 - I tell her I do not feel safe in North London due to this.
 
 !!! tip
-    - RA symptoms in my hands seem to be completely gone now.
+    - RA symptoms in my hands come and go.
+    - I expect a good detox will eliminate this, along with a better environment.
 
 - She tells me to give my notes to the receptionist who will scan them into my file.
 - I do that.
