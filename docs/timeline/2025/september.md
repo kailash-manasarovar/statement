@@ -130,9 +130,15 @@
     - Yes, it happened.
     - Update: [I'm handling it](../early-years/2015.md#colitis-symptoms), but there is no doubt the information, and my family's reactions to it, would have killed me outright not that long ago.
     - The betrayal is immense, incomprehensible.
+    - I was thrown to the wolves and left for dead by my own family, again and again.
+    - At any moment, my father could have told the police what was going on, and at the very least warned me about what was happening so I could stop it.
+    - At any moment, my father could have told the police what Domingo showed him in the toilet at the Casa Cultura.
+    - The emotional wound from what happened undoubtedly caused my suicidal depression from 2016-2023 and would have killed me outright.
+    - It's curious that going back to that situation in 2022 somehow healed me of it. God was with me, every second, and still is.
     - I'm reminded, yet again so no big surprises, of how evil the people closest to me are after my mother blamed me once again for apparently *choosing* to be a multiple rape-gang victim which now possibly includes my father's involvement - he has not denied it - and my brother called me a *tart* repeatedly looking at me as if I was dirt on his shoe.
     - Again, BAU for the people here whenever the unwelcome truth pops up...
     - I pray the whole truth emerges unhindered for me and other victims, and for the rape-apologists too who might be finally held to account by people they can't simply insult and silence.
     - I myself am fully done with them.
     - I've been waiting for apologies for years already.
     - There's more important stuff to be getting on with than pandering to perverts and their supporters.
+    
