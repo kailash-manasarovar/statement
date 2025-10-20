@@ -70,7 +70,7 @@
 - She looks familiar.
 - She tells me she's an accountant and her name is Hazel.
 - I ignore this. She is not Hazel Smith.
-- Thinking back, I either saw her online in June and July 2023 when I was practicing Transforming Touch over Zoom with a Dutch lady.
+- Thinking back, I either saw her online in June and July 2023 when I was practicing Transforming Touch over Zoom with a Dutch lady. They looked similar for sure.
 - Or/and, I saw her in some of the porn they flashed up at me on Google search. The older woman I saw in a porn posture (a private nude maybe) was very similar looking and was on my search results for months.
 - Or/and, she was the [woman getting her photo taken after getting married](../../2023/april.md#a-wedding-on-las-rota-beach).
 

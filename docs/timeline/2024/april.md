@@ -86,6 +86,7 @@
 ## The third time I'm convinced I'm going to be arrested
 
 - I believe I'm going to be arrested at any moment. 
+- As [in the second time the August previous](../2023/august.md#i-become-convinced-im-going-to-be-arrested), I carry my copy of A Course In Miracles, text and workbook, in my bag wherever I go, just in case, until the certainty wears off.
 
 <audio controls>
     <source src="../../../content/sounds/i-have-the-feeling-im-going-to-be-arrested.mp3" type="audio/mpeg">
