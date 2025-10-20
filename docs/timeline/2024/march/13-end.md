@@ -30,8 +30,8 @@
     - How many women and children in the region have had similarly *imagined* horrific stories of online and in-person bullying? 
     
 - We walk over to the Knowhere offices and go into the meeting room for privacy.
-- On the Guardia Civil website we read that you have to provide proof for the police of hacking before they'll investigate.
-- Whatever.
+- On the Guardia Civil website we read that you have to provide proof of hacking before the police will investigate.
+- Whatever...
 - There's a list of police-recommended experts who analyze devices for hacking for the police.
 - We look one up.
 - Sara finds one quickly and phones him.
