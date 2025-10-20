@@ -66,7 +66,7 @@
 
 ### The woman at Nowhere
 
-- In the afternoon, a woman comes in to work at Nowhere and sits diagonally away from me.
+- In the afternoon, a woman comes in to work at Nowhere and sits diagonally across from me.
 - She looks familiar.
 - She tells me she's an accountant and her name is Hazel.
 - I ignore this.
