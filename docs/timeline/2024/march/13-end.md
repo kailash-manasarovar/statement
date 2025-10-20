@@ -47,7 +47,7 @@
 
 ![jorge checks accounts](../../../content/images/jorge.JPG)
 
-- Here is the [whole WhatsApp chat with Jorge](../../../content/whatsapps/WhatsApp%20Chat%20-%20Jorge%20Esclapez%20Deckcard23.zip).
+- Here is the [whole WhatsApp chat with Jorge](../../../content/whatsapps/jorge-chat.txt).
 
 ### Choir class
 
