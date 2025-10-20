@@ -352,6 +352,7 @@ function googleTranslateElementInit() {
 - He flinches.
 - I recognize him from somewhere.
 - I believe he was [playing the guitar](september.md#gypsy-serenades) to accompany the woman belting about the frog in a box.
+- And I am now absolutely certain [he came with the fat man to move my piano out of my flat](../early-years/2016.md#leaving-denia) in Joan Fuster in June 2016.
 
 ## My car is damaged on the Montgo
 
