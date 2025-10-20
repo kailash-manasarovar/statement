@@ -59,7 +59,10 @@
 - The chat goes on over a few days and then a month later. 
 - It is very *very* informative and corroborating when you check the times against the information.
 - I lied, once, because I was beginning to have even more doubts about this man and I felt his manner had changed after I had given him certain pieces of information.
+- The response I screenshot felt like my *desperate need* for help was being shut down.
+- If I had followed his advice, I'd have been porn-mincemeat.
 - In the end, I went elsewhere with some of my devices, but I kept the best stuff back because I didn't trust anyone in the Comunidad Valenciana at that point.
+- I still have it.
 
 ### The woman at Nowhere
 
