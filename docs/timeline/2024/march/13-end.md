@@ -2,8 +2,8 @@
 
 ## Wednesday 13th March 
 
-- I wake up and leave for the [serviced offices](https://www.knowheredenia.com/) where I'm having to work due to hacking.
-- At lunchtime, I head down to the conservatory to practice, head held high.
+- I wake up and leave for the [serviced offices](https://www.knowheredenia.com/) in Dénia where I'm having to work due to hacking.
+- At lunchtime, I head down to the conservatory to practice, head held high after the previous evening's [Spanish-civil-servant super-s-show](../march/1-12.md#the-piano-concert).
 
 ### Translator
 
