@@ -54,10 +54,10 @@
 
 ![DrMuffy](../../../content/images/drmuffy.png)
 
-- The chat goes over a few days. 
-- It's very *very* informative and corroborating if you check the times against the information.
-- I lied, once, because I was beginning to have more doubts about this man as I felt his manner had changed after I gave him certain pieces of information.
-- In the end, I went elsewhere with some of my devices, but kept the best stuff back because I didn't trust anyone.
+- The chat goes on over a few days and then a month later. 
+- It is very *very* informative and corroborating when you check the times against the information.
+- I lied, once, because I was beginning to have even more doubts about this man and I felt his manner had changed after I had given him certain pieces of information.
+- In the end, I went elsewhere with some of my devices, but I kept the best stuff back because I didn't trust anyone in the Comunidad Valenciana at that point.
 
 ### The woman at Nowhere
 
