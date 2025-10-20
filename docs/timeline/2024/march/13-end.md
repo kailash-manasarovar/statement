@@ -9,7 +9,7 @@
 
 - Since [Polygon's security department found evidence of hacking](../march/1-12.md#reporting-hacking-to-polygon-labs), I intend to report it to the police.
 - After my experience with the [national police in Dénia in February](../february.md#my-first-trip-to-the-spanish-police-in-denia), I need to understand clearly what's required of me in order to report the hacking officially, and I need a translator to help me communicate it.
-- I get a recommendation, Sara Lebanon, through an Irish woman Brenda who incidentally knows Alessandra very well *and* whose sister attended the [TT module in Galway in June 2023](../../2023/june.md#ireland) right after the [12th June 2023 porn-gang music-student-funeral at the conservatory](../../2023/june.md#monday-12th-june-2023) when ridiculous childish bullying by Spanish civil servants did not remotely explain the obvious and extreme trauma I was processing.
+- I get a recommendation, Sara Lebanon, through an Irish woman Brenda who incidentally knows Alessandra very well *and* whose sister attended the [TT module in Galway in June 2023](../../2023/june.md#ireland) right after the [12th June 2023 porn-gang music-student-funeral at the conservatory](../../2023/june.md#monday-12th-june-2023) when ridiculous childish bullying by Spanish civil servants did not come near to explaining the obvious and extreme trauma I was processing.
 - I meet Sara and she says we should go to the main square outside the tunnel to talk, I'm not sure why. 
 - Was she told to take me there by someone? If so who? 
 - The square is completely empty.
