@@ -172,7 +172,7 @@ function googleTranslateElementInit() {
 - At the time of writing this section, 20th October 2025, Diwali, I have never worn these shoes, but I still have them.
 - I'm also wondering if these shoes might have indeed been intended for a wedding, mine, without my knowledge at the time I bought them.
 - Weddings were a continuous meme in the online-romance stakes, and sometimes [in real life too](#a-wedding-on-las-rota-beach).
-- I wonder if the reach of criminal porn-gangs in Spain extends to shops and businesses, and whether these shoes are part of the conspiracy.
+- I wonder if the reach of criminal honey-trapping porn-gangs in Spain extends to shops and businesses, and whether these shoes are part of the conspiracy.
 - If so, what's in these shoes, I wonder?
 - I text Sandra with a picture of them.
 - Do the gypsy gangs misuse Our Lady in their occult practices?
