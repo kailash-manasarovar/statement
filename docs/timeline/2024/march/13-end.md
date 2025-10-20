@@ -14,7 +14,7 @@
 - Was she told to take me there by someone? If so who? 
 - The square is completely empty.
 - I tell Sara everything; the child sexual abuse I suffered (she's very alarmed at this) and how it made me intolerant of children being sexualized at the conservatory (she's even more alarmed at this), and how I believed I had been targeted for [mentioning that very informally in 2015 to Joan Carles](../../early-years/2015.md#joan-carles).
-- As I tell her the story of how I have been gang-stalked and cyber-stalked by teachers and staff at the conservatory, and the [appalling spectacle of someone dressing up as Lorraine Blackbourn deceased](../march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) from the night before at the Casa de Cultura, it must be very obvious how traumatizing it all is.
+- As I tell her the story of how I have been gang-stalked and cyber-stalked by teachers and staff at the conservatory, and the [appalling spectacle of someone dressing up as Lorraine Blackbourn, deceased](../march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory), from the night before at the Casa de Cultura, it must be very obvious how traumatizing it all is.
 - My voice is shaking; I'm holding back a lot of stress.
 - She says to me, "Oh at least you know you're not imagining it". 
 - I wonder why she would say that. She says it a few times.
