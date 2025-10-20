@@ -32,9 +32,9 @@
 - We walk over to the Knowhere offices and go into the meeting room for privacy.
 - On the Guardia Civil website we read that you have to provide proof of hacking before the police will investigate.
 - Whatever...
-- There's a list of police-recommended experts who analyze devices for hacking for the police.
-- We look one up.
-- Sara finds one quickly and phones him.
+- There's a list of police-recommended experts who analyze devices for the police.
+- Sara looks one up.
+- She finds one quickly and phones him.
 - He is an expert in Alicante, [Jorge](https://www.linkedin.com/in/jorge-alejandro-esclapez-bonet-16629a1b7/) from [Deckcard23](https://deckcard23.com/). 
 - On speaker-phone he sounds totally stoned, and I sense the possibility of even more conspiracy.
 
