@@ -36,7 +36,8 @@
 - Sara looks one up.
 - She finds one quickly and phones him.
 - He is an expert in Alicante, [Jorge](https://www.linkedin.com/in/jorge-alejandro-esclapez-bonet-16629a1b7/) from [Deckcard23](https://deckcard23.com/). 
-- On speaker-phone he sounds totally stoned, and I sense the possibility of even more conspiracy.
+- On speaker-phone he sounds totally stoned, like he's putting on the voice in an exaggerated manner.
+- I sense a probability of more conspiracy to come.
 
 ### Jorge checks some stalker accounts
 
