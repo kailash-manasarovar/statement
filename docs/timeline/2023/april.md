@@ -162,6 +162,26 @@ function googleTranslateElementInit() {
 - I feel it cannot be wistful, meaningless mind dithering.
 - I'm writing it all down now; everything that comes back to me, and at the perfect moment too. It feels like something outside us, and yet within us, is orchestrating everything.
 
+## Wedding shoes
+
+- On the way back to Dénia from Lourdes, I stop at Zaragoza again.
+- In the Corte Ingles at Puerta de Venezia I see the most beautiful shoes.
+- They have yellow roses on them, just like Our Lady had on her feet when she visited Bernadette.
+- I must have them. I buy them.
+- I notice that they would be perfect wedding shoes.
+- At the time of writing this section, 20th October 2025, Diwali, I have never worn these shoes, but I still have them.
+- I'm also wondering if these shoes might have indeed been intended for a wedding, mine, without my knowledge at the time I bought them.
+- Weddings were a continuous meme in the online-romance stakes, and sometimes [in real life too](#a-wedding-on-las-rota-beach).
+- I wonder if the reach of criminal porn-gangs in Spain extends to shops and businesses, and whether these shoes are part of the conspiracy.
+- If so, what's in these shoes, I wonder?
+- I text Sandra with a picture of them.
+- Do the gypsy gangs misuse Our Lady in their occult practices?
+- She won't like that.
+
+![Our Lady of Lourdes most beautiful feet](../../content/images/our-lady-of-lourdes-feet.jpg)
+
+- I wonder what the lab is going to say about these shoes.
+
 ## Back in chamber music class
 
 - The next class I had with him on Monday 24th April he was extremely angry with me for no obvious reason at all.
@@ -283,6 +303,17 @@ function googleTranslateElementInit() {
 - I pull Strength.
 
 ![Strength](../../content/images/RWS_Tarot_08_Strength.jpg)
+
+## A wedding on Las Rota beach
+
+- Most Saturdays, I walk along Las Rotas beach.
+- I get to the end, where the chair is, and rest a while before returning.
+- A couple in their sixties is having their wedding photos done.
+- I've been thinking about marriage and weddings with regards to the trumpet teacher a lot.
+- I think, well, you don't have to be young do you.
+- I wonder about this in retrospect.
+- Another set up?
+- Did I see the woman again somewhere?
 
 ## Followed on the beach
 
