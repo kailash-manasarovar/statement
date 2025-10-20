@@ -54,6 +54,11 @@
 
 ![DrMuffy](../../../content/images/drmuffy.png)
 
+- The chat goes over a few days. 
+- It's very *very* informative and corroborating if you check the times against the information.
+- I lied, once, because I was beginning to have more doubts about this man as I felt his manner had changed after I gave him certain pieces of information.
+- In the end, I went elsewhere with some of my devices, but kept the best stuff back because I didn't trust anyone.
+
 ### The woman at Nowhere
 
 - In the afternoon, a woman comes in to work at Nowhere and sits diagonally away from me.
