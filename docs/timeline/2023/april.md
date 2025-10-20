@@ -181,6 +181,8 @@ function googleTranslateElementInit() {
 ![Our Lady of Lourdes most beautiful feet](../../content/images/our-lady-of-lourdes-feet.jpg)
 
 - I wonder what the lab is going to say about these shoes.
+- It's likely the groom (whichever of the [trumpet teachers was scheduled for that role](../../crimes/protagonists/vidal-sastre.md#four-distinct-men), definitely not the first man) would want to be married for a short as time as possible to his honey-trapped target. 
+- Maybe they run sweepstakes on that too. I bet they do.
 
 ## Back in chamber music class
 
