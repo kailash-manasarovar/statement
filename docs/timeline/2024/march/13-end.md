@@ -49,6 +49,16 @@
 
 - Here is the [whole WhatsApp chat with Jorge](../../../content/whatsapps/jorge-chat.txt).
 
+### The woman at Nowhere
+
+- In the afternoon, a woman comes in to work at Nowhere and sits diagonally away from me.
+- She looks familiar.
+- She tells me she's an accountant and her name is Hazel.
+- I ignore this.
+- Thinking back, I either saw her online in June and July 2023 when I was practicing Transforming Touch over Zoom with a Dutch lady.
+- Or/and, I saw her in some of the porn they flashed up at me on Google search. The older woman I saw in a porn posture (a private nude maybe) was very similar looking and was on my search results for months.
+- Or/and, she was the [woman getting her photo taken after getting married](../../2023/april.md#a-wedding-on-las-rota-beach).
+
 ### Choir class
 
 - I turn up to choir class that evening.
