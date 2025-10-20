@@ -141,4 +141,4 @@
     - I myself am fully done with them.
     - I've been waiting for apologies for years already.
     - There's more important stuff to be getting on with than pandering to perverts and their supporters.
-    
+    - I make ask him stuff though. That seems to be a good idea.
