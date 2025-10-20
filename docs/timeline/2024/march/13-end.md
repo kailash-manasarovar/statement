@@ -64,9 +64,9 @@
 - In the end, I went elsewhere with some of my devices, but I kept the best stuff back because I didn't trust anyone in the Comunidad Valenciana at that point.
 - I still have them.
 
-### The woman at Nowhere
+### The woman at Knowhere
 
-- In the afternoon, a woman comes in to work at Nowhere and sits diagonally across from me.
+- In the afternoon, a woman comes in to work at Knowhere and sits diagonally across from me.
 - She looks familiar.
 - She tells me she's an accountant and her name is Hazel.
 - I ignore this. She is not Hazel Smith.
@@ -164,7 +164,7 @@
 - I call the British embassy from there looking for help. They tell me they can't do anything for me and suggest I go to the police.
 - On the way out I see Gloria. She's laughing at me, and says; "finally you're leaving now".
 
-### Nowhere big blokes
+### Knowhere big blokes
 
 - I had been working at Knowhere that day before going in to practice.
 - I went back to work
