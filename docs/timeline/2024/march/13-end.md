@@ -48,7 +48,7 @@
 ![jorge checks accounts](../../../content/images/jorge.JPG)
 
 - Here is the [whole WhatsApp chat with Jorge](../../../content/whatsapps/jorge-chat.txt).
-- It's interesting how I mention the `@drmuffy` account I was using for Polygon.
+- It's interesting how I mention the `@drmuffy` account I was using for Polygon at the time.
 - I see the handle has been completely taken over now, the time of writing being 20th October 2025.
 - I guess Polygon backend engineers must have done that when [they fired me and shut down my system](../../2024/october.md#polygon-fires-the-whole-writing-team).
 
