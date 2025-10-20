@@ -29,7 +29,7 @@
     - Or, could it be that non-technical targets would not have noticed clear evidence of hacking immediately, as I did?
     - How many women and children in the region have had similarly *imagined* horrific stories of online and in-person bullying? 
     
-- We walk over to the Knowhere offices, where I am working, and go into the meeting room.
+- We walk over to the Knowhere offices and go into the meeting room for privacy.
 - On the Guardia Civil website we read that you have to provide proof for the police of hacking before they'll investigate.
 - Whatever.
 - There's a list of police-recommended experts who analyze devices for hacking for the police.
