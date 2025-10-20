@@ -2,22 +2,38 @@
 
 ## Wednesday 13th March 
 
+- I wake up and leave for the [serviced offices](https://www.knowheredenia.com/) where I'm having to work due to hacking.
+- At lunchtime, I head down to the conservatory to practice, head held high.
+
 ### Translator
 
-- It's time to go to the police again but I need a translator to help me deal with them properly.
-- After my experience with the [police in Dénia in February](../february.md#my-first-trip-to-the-spanish-police-in-denia), I believe I need firm proof of hacking before I can go to them again!
-- I get a recommendation, Sara Lebanon, through an Irish woman Brenda who incidentally knows Alessandra very well. 
-- I tell her everything, the child sexual abuse I suffered (she's very alarmed at this) and how it made me intolerant of children being sexualized at the conservatory, and how I had been targeted for basically mentioning that very informally in 2015. 
-- She says to me, "Oh at least you know you're not imagining it." I wonder why she would say that. She says it a few times.
+- I intend to go to the police about the hacking, but I need a translator to help me deal with them properly.
+- After my experience with the [police in Dénia in February](../february.md#my-first-trip-to-the-spanish-police-in-denia), I need to understand clearly what's required of me in order to report hacking, and I need a translator to help me communicate it.
+- I get a recommendation, Sara Lebanon, through an Irish woman Brenda who incidentally knows Alessandra very well *and* whose sister attended the [TT module with Steve in June 2023](../../2023/june.md#ireland) right after the [12th June 2023 porn-gang music student funeral at the conservatory](../../2023/june.md#monday-12th-june-2023) when I was clearly extremely traumatized and ridiculous and childish bullying by Spanish civil servants did not seem to remotely explain the level of trauma I was processing on the course in Galway.
+- I meet Sara and she says we should go to the main square outside the tunnel to talk, I'm not sure why. 
+- Was she told to take me there by someone? If so who? 
+- I tell Sara everything; the child sexual abuse I suffered (she's very alarmed at this) and how it made me intolerant of children being sexualized at the conservatory (she's even more alarmed at this), and how I believed I had been targeted for [mentioning that very informally in 2015 to Joan Carles](../../early-years/2015.md#joan-carles).
+- As I tell her the story of how I have been targeted by teachers and staff at the conservatory, and the Lorraine spectacle from the night before at the Casa de Cultura, it must be very obvious how traumatizing it all is.
+- My voice is shaking; I'm holding back a lot of stress.
+- She says to me, "Oh at least you know you're not imagining it". 
+- I wonder why she would say that. She says it a few times.
+- Whenever she says it, I feel an internal sort of clunk, as if I'm bumping into an object I can't see.
 
 !!! important "Gaslighting"
-    - *It must be a relief to know you're not imagining it*, and similar sentiments.
-    - This is a recurring theme that's repeated to me by Sara here, Paul, Alessandra, Chris BJ, and others.
-    - Paul says it one time I meet him, and retracts it the next time when he downplays everything.
+    - *It must be a relief to know you're not imagining it*, and similar statements and sentiments.
+    - This is a recurring theme that's repeated to me by Sara here, Paul repeatedly, Alessandra, Chris BJ, Zoe in July 2024, and others.
+    - Paul says it one of the times I meet him at the shop on my way to the Indian, and retracts it the next time I see him there when he downplays everything as if nothing is happening.
+    - I wonder if this is how they *explained away* previous targets' complaints?
+    - How many women and children have similarly *imagined* horrific stories of bullying in the region? 
     
-- On the Guardia Civil website there's a list of experts who analyze devices for hacking for the police.
-- We look one up and she phones him. 
-- He is an expert in Alicante, Jorge. He sounds like he's totally stoned.
+- We walk over to the Knowhere offices, where I am working, and go into the meeting room.
+- On the Guardia Civil website we read that you have to provide proof for the police of hacking before they'll investigate.
+- Whatever.
+- There's a list of police-recommended experts who analyze devices for hacking for the police.
+- We look one up.
+- Sara finds one quickly and phones him.
+- He is an expert in Alicante, Jorge. 
+- On speaker-phone he sounds totally stoned.
 
 ### Jorge checks some stalker accounts
 
