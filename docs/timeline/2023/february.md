@@ -117,13 +117,23 @@ function googleTranslateElementInit() {
 - Whatever drugs they were giving me made me extremely and unusually aware of hidden things going on, plots and subplots.
 - Of course, I knew about the plot with Domingo, and what was coming up (a 'funeral' of some sort which I really didn't care about) so my experience of the classes were tainted with this knowledge.
 - And, at the same time, I had such a good feeling for this man, I had only generous views of him. I felt he must be on my side.
-- In one class, the three of us are sitting close together and practicing, and the trumpet teacher announces that we will play *My Way* for the concert.
+- In one class, the [older slimmer shorter man is present](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man), the man I have very good feelings for.
+- I look at his hands; I'm delighted by his delicate artistic fingers.
+- The three of us - him, me and Pablo, are sitting close together and practicing.
+- The trumpet teacher announces, gently, that we will play *My Way* for the concert.
+- I guess this is a common *funeral* number.
 - I chuckle conspiratorially.
-- The man gets angry. He jumps up and starts interrogating me and all the answers I give him make him even more enraged.
+- I feel like I'm in his mind and that he and I are agreeing that it is, in fact, *our conspiracy*.
+- He is visibly disturbed by this turn of events, and gets up to leave the room.
+- He comes back quickly, but he is [the younger brother trumpet teacher now](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013), a man who is a lot taller than the older man, and who is conscious of this and standing bent over the piano so that the difference in height is not so obvious.
+- The trumpet teacher feigns anger.
+- From his position at the piano, he interrogates me about what I have said, and all the answers I give him make him even more enraged.
 - I tell him I was joking. It's rather funny. 
-- Pablo and I look at each other and shrug. We have no idea what got into him.
+- Pablo and I look at each other and shrug. 
 
 ![Angry trumpet teacher](../../content/images/angry-trumpet-teacher.png)
+
+- We have no idea what got into him. Except, of course, Pablo knows.
 
 ### Triggered generosity
 
