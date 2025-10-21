@@ -222,6 +222,11 @@
 
 ![Man blows in my face](../../../content/images/man-blows-in-my-face.png)
 
+#### Distraction then drugging
+
+- It is my view, the *blowing in the face* routine was a distraction technique used by criminals to drug people, and I was drugged immediately probably with a dissolving patch on any visible skin or perhaps powder in my ear.
+- I don't remember anything more about the evening until much later when I wake up in my bed in a state of terror.
+
 ### Stalker activity
 
 - The next thing I remember is waking up past midnight afraid for my life.
