@@ -30,7 +30,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - As my mind clears and my heart heals from decades of abuse at the hands of the Canos, the Smiths, and their associates in Dénia, France, and North London, clearer memories of what happened to me and by whom are returning.
 - I realize now that the *trumpet teacher* was made up of (minimum) four distinct men who came to the conservatory of Dénia under the role of teacher and using the name Vidal Sastre Sanchez Hornero.
 - As I suspected, the fact that there were so few chamber music classes that year must have been due to the unavailability of some or all of the men on certain nights, while it was *essential* they all turned up at my apartment after class while I was sedated.
-- You cannot imagine how much it blows my mind that I mistook all these men, of extremely different shapes and sizes, for one single man.
+- You cannot imagine how shocking it is to me that I mistook all these men, of extremely different shapes and sizes, for one single man.
 - It is even more disturbing to me that most of the town of Dénia, including many children, and even people I was working with knew what was going on, and thought it was something to laugh and jeer at.
 - But the most shocking thing about the *switcheroo* was that everyone who did know about it must have known my death or maiming was the inevitable end result; and they didn't care.
 
