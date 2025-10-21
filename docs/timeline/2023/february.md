@@ -126,7 +126,7 @@ function googleTranslateElementInit() {
 - I feel like I'm in his mind and that he and I are agreeing that it is, in fact, *our conspiracy*.
 - He is visibly disturbed by this turn of events, and gets up to leave the room.
 - He comes back quickly, but he is [the younger brother trumpet teacher now](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013), a man who is a lot taller than the older man, and who is conscious of this and standing bent over the piano so that the difference in height is not so obvious.
-- The trumpet teacher feigns anger.
+- The new trumpet teacher, who I think is the same man, feigns anger.
 - From his position at the piano, he interrogates me about what I have said, and all the answers I give him make him even more enraged.
 - I tell him I was joking. It's rather funny. 
 - Pablo and I look at each other and shrug. 
