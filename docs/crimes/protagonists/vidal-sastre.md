@@ -30,6 +30,9 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - As my mind clears and my heart heals from decades of abuse at the hands of the Canos, the Smiths, and their associates in Dénia, France, and North London, clearer memories of what happened to me and by whom are returning.
 - I realize now that the *trumpet teacher* was made up of (minimum) four distinct men who came to the conservatory of Dénia under the role of teacher and using the name Vidal Sastre Sanchez Hornero.
 - As I suspected, the fact that there were so few chamber music classes that year must have been due to the unavailability of some or all of the men on certain nights, while it was *essential* they all turned up at my apartment after class while I was sedated.
+- You cannot imagine how much it blows my mind that I mistook all these men, of extremely different shapes and sizes, for one single man.
+- It is even more disturbing to me that most of the town of Dénia, including many children, and even people I was working with knew what was going on, and thought it was something to laugh and jeer at.
+- But the most shocking thing about the *switcheroo* was that everyone who did know about it must have known my death or maiming was the inevitable end result; and they didn't care.
 
 ### The older, slimmer, greyer man
 
@@ -93,7 +96,8 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ![Vigas](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
 
 - The younger brother in the pic looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../../timeline/2024/march/13-end.md#wednesday-13th-march) right before I became convinced I was going to be murdered.
-- I'm not sure I have any more solid memories of this man at the conservatory.
+- I'm not sure I have any more solid memories of this man at the conservatory apart from him being the [one who met me outside the conservatory](../../timeline/2023/april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher) the class after I posted on X.
+- More may come now, of course.
 - The girl in this picture is very familiar, I don't know why yet.
 - I'm guessing everyone in Dénia and the Marina Alta region knows this man.
 
