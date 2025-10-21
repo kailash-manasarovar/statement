@@ -47,8 +47,6 @@
 
 ![jorge checks accounts](../../../content/images/jorge.JPG)
 
-- Here is our whole chat today.
-
 ??? note "Chat with Jorge 13th March"
     [13/03/2024, 19:40:50] Jorge Esclapez Deckcard23: â€ŽMessages and calls are end-to-end encrypted. No one outside of this chat, not even WhatsApp, can read or listen to them.</br>
     [13/03/2024, 19:40:50] Niramisa Weiss: Hola Jorge soy Katharine</br>
