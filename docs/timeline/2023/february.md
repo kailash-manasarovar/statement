@@ -137,8 +137,9 @@ function googleTranslateElementInit() {
 
 ### Triggered generosity
 
-- Some of my thoughts-on-loop about the slim trumpet teacher I liked were extraordinarily over-generous.
-- I wanted to help him, in any way I could.
+- Some of my thoughts-on-loop about the smaller, slimmer trumpet teacher I liked were extraordinarily over-generous.
+- And, of course, my confusion about who this man actually was and what he looked like made those thoughts filter onto the [other men pretending to be the trumpet teacher](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) in the *switcheroo* porn special I had no concept of even being a thing until more than two years later.
+- I wanted to help this man, in any way I could.
 - I thought a lot about giving him my car, from about February. 
 - It's not clear why I would think that, and think it *all the time*.
 - I'm guessing the suggestion came from online triggers and/or specific requests while sedated.
