@@ -47,6 +47,123 @@
 
 ![jorge checks accounts](../../../content/images/jorge.JPG)
 
+- Here is our whole chat today.
+
+??? note "Chat with Jorge 13th March"
+    [13/03/2024, 19:40:50] Jorge Esclapez Deckcard23: â€ŽMessages and calls are end-to-end encrypted. No one outside of this chat, not even WhatsApp, can read or listen to them.</br>
+    [13/03/2024, 19:40:50] Niramisa Weiss: Hola Jorge soy Katharine</br>
+    [13/03/2024, 19:41:18] Niramisa Weiss: La irlandesa con los problems en DÃ©nia</br>
+    [13/03/2024, 19:41:27] Jorge Esclapez Deckcard23: Hello</br>
+    [13/03/2024, 19:41:42] Jorge Esclapez Deckcard23: Nice to meet you</br>
+    [13/03/2024, 19:41:50] Niramisa Weiss: Likewise â˜ºï¸</br>
+    [13/03/2024, 19:42:20] Niramisa Weiss: So I have a very sensitive request which can be quite triggering</br>
+    [13/03/2024, 19:42:29] Niramisa Weiss: Maybe upsetting</br>
+    [13/03/2024, 19:42:55] Niramisa Weiss: Should i continue?</br>
+    [13/03/2024, 19:43:15] Jorge Esclapez Deckcard23: Yes. How can i help you?</br>
+    [13/03/2024, 19:43:35] Niramisa Weiss: Ok so when I was a child i was drugged and abused and it was filmed</br>
+    [13/03/2024, 19:43:45] Niramisa Weiss: Itâ€™s a long time ago 1989</br>
+    [13/03/2024, 19:44:19] Jorge Esclapez Deckcard23: ðŸ˜³ omg</br>
+    [13/03/2024, 19:44:23] Niramisa Weiss: I have been to the police and they arrested someone , about 8 years ago, they had a lot of evidence but they did not charge in the end</br>
+    [13/03/2024, 19:44:32] Niramisa Weiss: You know how it is</br>
+    [13/03/2024, 19:44:49] Jorge Esclapez Deckcard23: Ok. I understand.</br>
+    [13/03/2024, 19:45:20] Niramisa Weiss: Yes so I believe these videos are online somewhere</br>
+    [13/03/2024, 19:45:31] Niramisa Weiss: And they would be proof</br>
+    [13/03/2024, 19:45:52] Niramisa Weiss: Maybe if you knew someone who could help</br>
+    [13/03/2024, 19:46:10] Jorge Esclapez Deckcard23: Do you think that this person could be spy you?</br>
+    [13/03/2024, 19:46:15] Niramisa Weiss: No</br>
+    [13/03/2024, 19:46:45] Niramisa Weiss: But last year I was targeted by a man who I had turned down romantically in Denia 10 years ago</br>
+    [13/03/2024, 19:46:54] Jorge Esclapez Deckcard23: Ok. That kind of videos are in the dark web.</br>
+    [13/03/2024, 19:47:01] Niramisa Weiss: A piano teacher at the conservatory</br>
+    [13/03/2024, 19:47:41] Niramisa Weiss: I used to live here and left for 8 years . I came back 2 years ago and started my studies again</br>
+    [13/03/2024, 19:48:03] Jorge Esclapez Deckcard23: It's difficult find someone to search that kind of videos.</br>
+    [13/03/2024, 19:48:14] Niramisa Weiss: But he was not happy about this and caused me a lot of problems, including hacking my laptop and phone through the router</br>
+    [13/03/2024, 19:48:33] Niramisa Weiss: They took very private videos and recordings of me</br>
+    [13/03/2024, 19:48:48] Niramisa Weiss: And sent the around the town here in denia</br>
+    [13/03/2024, 19:48:58] Niramisa Weiss: I would like those too if possible</br>
+    [13/03/2024, 19:49:22] Niramisa Weiss: Literally everyone knows what is going on and no one helps me</br>
+    [13/03/2024, 19:49:40] Niramisa Weiss: I complained to the generalitat and they ignored me</br>
+    [13/03/2024, 19:49:49] Jorge Esclapez Deckcard23: Ok. Then you need found the videos.</br>
+    [13/03/2024, 19:49:56] Niramisa Weiss: Iâ€™m threatened on twitter and the police arenâ€™t interested</br>
+    [13/03/2024, 19:50:23] Jorge Esclapez Deckcard23: Sure.</br>
+    [13/03/2024, 19:50:54] Niramisa Weiss: I see messages on twitter about my bank balance, payments I have made, they even sent me a picture I took of myself that they stole â€¦ a bit AI but me for sure</br>
+    [13/03/2024, 19:51:03] Niramisa Weiss: Itâ€™s overwhelming</br>
+    [13/03/2024, 19:51:28] Niramisa Weiss: They have access to this phone</br>
+    [13/03/2024, 19:51:35] Niramisa Weiss: Itâ€™s a nightmare</br>
+    [13/03/2024, 19:52:13] Jorge Esclapez Deckcard23: And what is the police answer?</br>
+    [13/03/2024, 19:52:19] Niramisa Weiss: Thereâ€™s probably about 50 minimum accounts tracking me on twitter</br>
+    [13/03/2024, 19:52:39] Niramisa Weiss: Police sent me away, no crime, but they didnâ€™t want to help me at all</br>
+    [13/03/2024, 19:53:03] Niramisa Weiss: Iâ€™m worried about my family being robbed</br>
+    [13/03/2024, 19:53:18] Niramisa Weiss: Phished now because they have so much information</br>
+    [13/03/2024, 19:53:51] Jorge Esclapez Deckcard23: Well. Then the solution is discover who is the person behind the Twitter profiles?</br>
+    [13/03/2024, 19:54:05] Niramisa Weiss: The people at the conservatory know private things about me that I only ever told google</br>
+    [13/03/2024, 19:54:26] Niramisa Weiss: Can you do that?</br>
+    [13/03/2024, 19:54:40] Niramisa Weiss: I know who it is</br>
+    [13/03/2024, 19:54:47] Niramisa Weiss: Ring leader at least</br>
+    [13/03/2024, 19:55:56] Jorge Esclapez Deckcard23: I can try Discovery using social engineer and investigation.</br>
+    [13/03/2024, 19:56:29] Jorge Esclapez Deckcard23: I dont understand that expresion.ðŸ˜…</br>
+    [13/03/2024, 19:56:35] Niramisa Weiss: Thank you</br>
+    [13/03/2024, 19:56:43] Niramisa Weiss: Respect</br>
+    [13/03/2024, 19:58:24] Jorge Esclapez Deckcard23: Ok. If you send me any information i Will try found about that.</br>
+    [13/03/2024, 19:58:43] Niramisa Weiss: What do you need?</br>
+    [13/03/2024, 19:59:13] Niramisa Weiss: I have 2 twitter accounts they are manipulating</br>
+    [13/03/2024, 19:59:24] Jorge Esclapez Deckcard23: Any Twitter account for instance.</br>
+    [13/03/2024, 19:59:32] Jorge Esclapez Deckcard23: Perfect.</br>
+    [13/03/2024, 19:59:47] Niramisa Weiss: Ok I have 2 and I can send you details of the main suspect accounts</br>
+    [13/03/2024, 20:00:30] Jorge Esclapez Deckcard23: Great. I see that and after i will contact you again.</br>
+    [13/03/2024, 20:00:37] Niramisa Weiss: They seem to be a honey-trap type gang or gangs for estafa</br>
+    [13/03/2024, 20:01:05] Niramisa Weiss: How can I send without them knowing?</br>
+    [13/03/2024, 20:01:32] Niramisa Weiss: I can send in an hour or two</br>
+    [13/03/2024, 20:02:22] Jorge Esclapez Deckcard23: Take a screenshot.</br>
+    [13/03/2024, 20:02:45] Jorge Esclapez Deckcard23: When you want. No worries.</br>
+    [13/03/2024, 20:02:57] Niramisa Weiss: Ok</br>
+    [13/03/2024, 20:03:53] Niramisa Weiss: You can look at my accounts now 1FRGVN and jackchardwood</br>
+    [13/03/2024, 20:04:41] Niramisa Weiss: And even my work twitter they got hold of immediately I created it</br>
+    [13/03/2024, 20:05:03] Niramisa Weiss: Drmuffy</br>
+    [13/03/2024, 20:05:15] Niramisa Weiss: I have 2fa on all 3</br>
+    [13/03/2024, 20:05:51] Jorge Esclapez Deckcard23: ðŸ‘</br>
+    [13/03/2024, 20:06:13] Jorge Esclapez Deckcard23: ðŸ˜³</br>
+    [13/03/2024, 20:06:18] Niramisa Weiss: Yes</br>
+    [13/03/2024, 20:06:31] Niramisa Weiss: But they have access to my machines directly so</br>
+    [13/03/2024, 20:06:45] Jorge Esclapez Deckcard23: You must have any kind of stalkerware in the pc.</br>
+    [13/03/2024, 20:07:00] Niramisa Weiss: If you look at highlights in 1frgvn you see the whole story</br>
+    [13/03/2024, 20:07:06] Jorge Esclapez Deckcard23: Or in the router.</br>
+    [13/03/2024, 20:07:24] Niramisa Weiss: It was the router, they told me it was Mac spoofing</br>
+    [13/03/2024, 20:07:35] Jorge Esclapez Deckcard23: Ok. I see It ASAP.</br>
+    [13/03/2024, 20:07:59] Niramisa Weiss: If you look at August last year this was the very interesting time</br>
+    [13/03/2024, 20:08:07] Jorge Esclapez Deckcard23: They?</br>
+    [13/03/2024, 20:08:17] Niramisa Weiss: Yes</br>
+    [13/03/2024, 20:08:30] Niramisa Weiss: It will be this guy and his family and friends</br>
+    [13/03/2024, 20:08:39] Niramisa Weiss: And they may be criminals</br>
+    [13/03/2024, 20:08:41] Jorge Esclapez Deckcard23: Ok.</br>
+    [13/03/2024, 20:09:18] Niramisa Weiss: In August last year I had very few followers and no one was looking at my tweets, just them</br>
+    [13/03/2024, 20:09:46] Niramisa Weiss: I could tell because they were translating them and I only ever log in on uk VPN</br>
+    [13/03/2024, 20:10:10] Niramisa Weiss: They terrorized me with threats so I went public and got 2000 followers overnight</br>
+    [13/03/2024, 20:10:31] Niramisa Weiss: At that point the stalking got really really bad for me here</br>
+    [13/03/2024, 20:10:43] Jorge Esclapez Deckcard23: Ok. A lot of information. I start with that and in a couple of days i Will contact to you again.</br>
+    [13/03/2024, 20:10:54] Niramisa Weiss: Ok Iâ€™ll send some screenshots in a bit</br>
+    [13/03/2024, 20:11:07] Jorge Esclapez Deckcard23: Great.</br>
+    [13/03/2024, 20:11:08] Niramisa Weiss: Thank you</br>
+    [13/03/2024, 20:11:23] Jorge Esclapez Deckcard23: ðŸ‘ðŸ‘‹ðŸ‘‹</br>
+    [13/03/2024, 20:11:42] Niramisa Weiss: And if you know someone who might be able to trawl the dark web for me let me know</br>
+    [13/03/2024, 20:12:16] Niramisa Weiss: The hackers mentioned things related to those times so I wonder if they found something already because theyâ€™re obsessed with me</br>
+    [13/03/2024, 20:12:22] Jorge Esclapez Deckcard23: Of course.</br>
+    [13/03/2024, 20:12:38] Niramisa Weiss: Thank you. I appreciate this so much</br>
+    [13/03/2024, 20:12:57] Niramisa Weiss: Jctot19 is one of them</br>
+    [13/03/2024, 20:13:10] Niramisa Weiss: Also they manipulate google search</br>
+    [13/03/2024, 20:14:03] Niramisa Weiss: So if you search for â€œ1frgvn xâ€ or â€œjctot19 xâ€ the results are manipulated to send me messages</br>
+    [13/03/2024, 20:14:19] Niramisa Weiss: Thatâ€™s how they sent me the pic</br>
+    [13/03/2024, 20:14:38] Niramisa Weiss: Which I will forward but itâ€™s in highlights actually in 1frgvn</br>
+    [13/03/2024, 20:14:51] Jorge Esclapez Deckcard23: Ok. I Will be that too.</br>
+    [13/03/2024, 20:14:59] Niramisa Weiss: ðŸ™</br>
+    [13/03/2024, 20:16:29] Niramisa Weiss: Iâ€™d really like to know how they do that btw</br>
+    [13/03/2024, 20:27:09] Niramisa Weiss: They are using a lot of AI images too of mixed faces of people I know</br>
+    [13/03/2024, 20:32:31] Jorge Esclapez Deckcard23: Ok, i m going to work . I contact to you in a few days and we continue the conversation.</br>
+    [13/03/2024, 20:32:46] Jorge Esclapez Deckcard23: Best regards.</br>
+    [13/03/2024, 20:53:07] Niramisa Weiss: Thank you</br>
+    [13/03/2024, 21:14:31] Niramisa Weiss: https://drive.google.com/file/d/1EturDPGMRS2Lsd_pGxKEeCNcF_Vc1XFm/view?usp=drivesdk</br>
+    [13/03/2024, 21:14:43] Niramisa Weiss: Folder in there with screenshots</br>
+    [13/03/2024, 21:14:51] Niramisa Weiss: Let me know if you need access</br>
+
 - Here is the [whole WhatsApp chat with Jorge](../../../content/whatsapps/jorge-chat.txt).
 - It's interesting how I mention the `@drmuffy` account I was using for Polygon at the time.
 - I see the handle has been completely taken over now, the time of writing being 20th October 2025.
@@ -197,6 +314,16 @@
 - I tell her that I'm experiencing the hostile cyber-stalking flying-monkey attacks that she told me her sister was experiencing too, and I tell her what teachers and staff at the conservatory have done also.
 - She advises we go to the police the following morning.
 
+### Chat with Jorge
+
+??? note "WhatsApp with Jorge 14th March"
+    â€Ž[14/03/2024, 03:48:29] Niramisa Weiss: â€Ž<attached: 00000114-PHOTO-2024-03-14-03-48-29.jpg>
+    [14/03/2024, 03:48:48] Niramisa Weiss: Thatâ€™s my bottom half the top is AI
+    [14/03/2024, 03:48:55] Niramisa Weiss: There are lots of these
+    [14/03/2024, 03:49:04] Niramisa Weiss: I will pay you of course
+    [14/03/2024, 03:51:54] Niramisa Weiss: They may have accessed my Coinbase account. Iâ€™m blocked and I cannot contact Coinbase so I donâ€™t know if theyâ€™ve robbed me or not
+    [14/03/2024, 12:36:20] Niramisa Weiss: Looks like they robbed me 60k euros
+
 ## 15th March
 
 ### Reporting the matter to the police in Madrid
@@ -218,6 +345,29 @@
 - We find out to have this done can cost thousands.
 - We find an expert in Alicante who is reasonable, and quotes 600 euros for a laptop, phone, and two webcams.
 - My friend helps me [write a letter](../../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf) to David Piñeiro, the technical expert at D.P.R., Arzobispo Loaces, 17, Local 1 - 2, 03003 Alicante.
+
+### Chat with Jorge
+
+??? note "WhatsApp with Jorge 15th March"
+    [15/03/2024, 15:57:04] Niramisa Weiss: Hola Jorge do you have any news?
+    [15/03/2024, 17:56:35] Jorge Esclapez Deckcard23: Good morning. I'll tell you. No one I know wants to search the Deep Web for videos. It's very hard as well as illegal. On the other hand, I have seen the profiles you have sent me and they are created through servers in Russia or China, which makes it totally impossible without international cooperation to locate who is behind it. My advice is to switch internet companies, reset phones to factory state, format computers and create a new identity. Forget social media. I can't do anything else for you. Best regards.
+    [15/03/2024, 18:14:32] Niramisa Weiss: Ok can you check my android phone?
+    [15/03/2024, 18:14:40] Niramisa Weiss: With a notary?
+    [15/03/2024, 18:31:33] Jorge Esclapez Deckcard23: I can scan the terminal for malware or spyware. I would use the Cellebrite tool that is used by police and other law enforcement. The analysis in the PREMIUM version that allows better results has a cost of â‚¬1,200. They used to have the standard version but the license has run out. I take him to a specialized forensic laboratory in Alicante with which I have a very good relationship.
+    [15/03/2024, 18:32:53] Jorge Esclapez Deckcard23: As for the notary, it is only necessary if you want to keep what you find in case you later go to court to present it as evidence. If at first what you are interested in knowing is if someone is spying on you, you don't need to.
+    [15/03/2024, 18:36:07] Jorge Esclapez Deckcard23: Then there's another, more artisanal system. It consists of performing a manual examination of the mobile terminal. To do this, you would have to change everything to another mobile phone as it is a very aggressive procedure and it is possible that the device will be damaged and become insensible. I do it myself and the cost would be 400â‚¬. What I do is try to unlock the phone and get administrator permissions so that I can scan the entire terminal with malware tools and spyware detection.
+    [15/03/2024, 18:38:30] Niramisa Weiss: The third option is ok but is it admissible evidence if you find something?
+    [15/03/2024, 18:41:52] Jorge Esclapez Deckcard23: No. If you want a valid evidence you need a notary.
+    [15/03/2024, 18:42:30] Jorge Esclapez Deckcard23: The third option is only if you want to know if your mobile have malware or stalkerware.
+    [15/03/2024, 18:42:49] Niramisa Weiss: Ok
+    [15/03/2024, 18:42:51] Niramisa Weiss: Gracias
+    [15/03/2024, 20:58:35] Niramisa Weiss: Hola Jorge, Iâ€™m thinking of coming next Friday to do the android phone with a notary
+    [15/03/2024, 21:37:21] Jorge Esclapez Deckcard23: You don't need to bring a notary. We keep the withdrawal of the mobile phone as proof and deposit it with our trusted notary. We also give you a copy of the extraction along with the report.
+    [15/03/2024, 21:37:38] Niramisa Weiss: Ok
+    [15/03/2024, 21:37:55] Niramisa Weiss: How long does it take?
+    [15/03/2024, 21:38:06] Niramisa Weiss: Can I come on Friday?
+    [15/03/2024, 21:39:10] Jorge Esclapez Deckcard23: I'm going to see it and I'll tell you something as soon as I have the date. Let's see if it can be on March 22nd, next Friday.
+    [15/03/2024, 21:43:42] Niramisa Weiss: This would be the best date
 
 ## 16th March
 
@@ -377,9 +527,17 @@
 - I'm so unbelievably stressed, simple tasks like this are becoming extraordinarily difficult to complete.
 - I'm not at home, and I haven't been at home for 5 days so I wonder now what is continuing to impede my cognitive ability so much.
 
-## Continuing threats
+### Chat with Jorge
 
-### Mike Wenham
+??? note "Chat with Jorge 19th March"
+    [19/03/2024, 02:51:06] Niramisa Weiss: Is 22nd ok Jorge?
+    [19/03/2024, 02:51:14] Niramisa Weiss: In the morning
+    [19/03/2024, 03:14:24] Jorge Esclapez Deckcard23: Hi. Sorry but the people in the lab is on hollyday. I confirma you the wednesday at morning. My apologies. See you.
+    [19/03/2024, 13:03:48] Niramisa Weiss: Ok thank you
+
+### Continuing threats
+
+#### Mike Wenham
 
 - Mike Wenham was an old boss of mine at my first ever programming job with British Telecom in 2010.
 - He was a psychopath and had terrorized the one other woman at work so badly, she walked out.
@@ -428,6 +586,71 @@
 
 ![Domingo 1](../../../content/images/fake-accounts/domingo-1.png)
 ![Domingo 2](../../../content/images/fake-accounts/domingo-2.png)
+
+## Chat with Jorge
+
+??? note "Chat with Jorge 20th March"
+    [20/03/2024, 17:01:27] Jorge Esclapez Deckcard23: Hello. IÂ´m waitting an answer. At 14:00 the lab tell me if the Friday could serve you.
+    [20/03/2024, 17:06:30] Niramisa Weiss: Ok thx
+    [20/03/2024, 17:42:50] Niramisa Weiss: Hi Jorge sorry for inconvenience, I have found someone in Switzerland who will do a full and complete check so I just sent it to them via courier
+    [20/03/2024, 17:43:16] Niramisa Weiss: We could check the Linux box instead?
+    [20/03/2024, 17:43:43] Niramisa Weiss: This is where they accessed my video and took videos of me which were very private
+    [20/03/2024, 17:44:33] Niramisa Weiss: However I have reformatted a few times since then and removed the manjaro os completely so Iâ€™m not sure what you think about that?
+    [20/03/2024, 17:47:39] Jorge Esclapez Deckcard23: I donÂ´t understand that question. Linux box?
+    [20/03/2024, 17:49:04] Niramisa Weiss: My ASUS laptop on which I was running Manjaro when they had access to the camera
+    [20/03/2024, 17:56:58] Jorge Esclapez Deckcard23: Lets see if I understand. The MAC computer at some point had an installation of the Manjaro distribution. Was this distribution running at the same time as the MAC one? Did you have it as a virtual machine? Or did you format the MAC and install this version of Linux?
+    [20/03/2024, 18:00:02] Niramisa Weiss: I started to use the Mac when I realised the ASUS was hacked.
+    [20/03/2024, 18:00:28] Niramisa Weiss: I had been using the ASUS for ages with a manjaro/windows install
+    [20/03/2024, 18:00:34] Niramisa Weiss: Partitions
+    [20/03/2024, 18:01:17] Niramisa Weiss: Last August they took control of my keyboard and at that moment I knew Iâ€™d been hacked 100%
+    [20/03/2024, 18:01:43] Niramisa Weiss: So I stopped using it and used the Mac instead which I hadnâ€™t used for ages and was already reformatted
+    [20/03/2024, 18:01:56] Niramisa Weiss: They got into the Mac pretty quickly
+    [20/03/2024, 18:02:54] Niramisa Weiss: But the ASUS is where the videos were taken and since then I have blocked all my cameras except the phones
+    [20/03/2024, 18:03:30] Niramisa Weiss: However I removed the Manjaro OS although the boot record is there still
+    [20/03/2024, 18:03:37] Jorge Esclapez Deckcard23: So the ASUS computer has evidence of the hack if it has not been formatted. If it has been formatted, it depends on the type of formatting, whether or not information can be recovered. Also the type of hard drive. If the hard drive is SSD and is not mechanical, nothing can be recovered.
+    [20/03/2024, 18:04:14] Niramisa Weiss: I reformatted it
+    [20/03/2024, 18:04:39] Niramisa Weiss: Is SSD same for Mac too?
+    [20/03/2024, 18:39:45] Niramisa Weiss: Ok I think some boot records remain
+    [20/03/2024, 18:39:53] Niramisa Weiss: From before
+    [20/03/2024, 18:40:09] Niramisa Weiss: But if you think itâ€™s not possible thatâ€™s ok
+    [20/03/2024, 18:51:47] Niramisa Weiss: I can send you some logs and you can have a think about it if you like?
+    [20/03/2024, 19:03:33] Jorge Esclapez Deckcard23: SSD is a kind of hard disc.
+    [20/03/2024, 19:06:22] Niramisa Weiss: Yes I know.. so itâ€™s true for Mac also
+    [20/03/2024, 19:06:53] Niramisa Weiss: Once reformatted no possibility of proof, even though they still have access
+    [20/03/2024, 19:06:58] Niramisa Weiss: ðŸ˜”
+    [20/03/2024, 19:07:07] Niramisa Weiss: They are quite sophisticated
+
+## 21st March
+
+### Chat with Jorge
+
+??? note "WhatsApp with Jorge 21st March"
+    [21/03/2024, 17:09:53] Jorge Esclapez Deckcard23: Hi. Tomorrow when you want in San Joan DÂ´Alacant, Juan Sebastian Elcano, 24 Street.
+    [21/03/2024, 17:10:10] Jorge Esclapez Deckcard23: I am waitting you.
+    [21/03/2024, 17:10:37] Jorge Esclapez Deckcard23: Sorry but yesterday Javier was very busy with several cases.
+    [21/03/2024, 17:12:25] Niramisa Weiss: Hi so tomorrow what time?
+    [21/03/2024, 17:12:38] Niramisa Weiss: And which depositivo?
+    [21/03/2024, 17:25:51] Niramisa Weiss: The ASUS?
+    [21/03/2024, 17:26:01] Niramisa Weiss: Zenbook 13
+    [21/03/2024, 17:26:51] Jorge Esclapez Deckcard23: both. And after speak with Javier we will decided the best option.
+    [21/03/2024, 17:27:31] Niramisa Weiss: Ok what time?
+    [21/03/2024, 17:27:44] Niramisa Weiss: I need to be back at 3
+    [21/03/2024, 17:28:24] Jorge Esclapez Deckcard23: I will start to work at 9:30
+    [21/03/2024, 17:28:45] Jorge Esclapez Deckcard23: When you want.
+    [21/03/2024, 17:28:50] Niramisa Weiss: Ok I can be with you at 9.30
+    [21/03/2024, 17:29:15] Niramisa Weiss: I will bring the ASUS Zenbook 13
+    [21/03/2024, 17:29:31] Niramisa Weiss: I reformatted my MacBook and I donâ€™t have the phone
+    [21/03/2024, 17:29:55] Niramisa Weiss: I believe they got back into my iPhone even tho I reformatted it too
+    [21/03/2024, 17:39:08] Niramisa Weiss: Aqui?
+    https://maps.app.goo.gl/kkKTifiGY7Py6QQ26?g_st=iw
+    [21/03/2024, 17:58:28] Jorge Esclapez Deckcard23: Yes, here is the office and the forensic lab. See you tomorrow.
+    [21/03/2024, 17:59:13] Jorge Esclapez Deckcard23: Well, i speak english well with writting but my listening is awful. But donÂ´t worries I have google translator. ðŸ˜€
+    [21/03/2024, 17:59:37] Niramisa Weiss: My Spanish is awful in exactly the same way sorry ðŸ˜”
+    [21/03/2024, 17:59:49] Niramisa Weiss: We will manage
+    [21/03/2024, 17:59:55] Niramisa Weiss: â˜ºï¸
+    [21/03/2024, 22:05:40] Niramisa Weiss: Hola Jorge lo siento mucho pero por razones inevitables tengo k cancelar de manyana
+    [21/03/2024, 22:06:26] Niramisa Weiss: Posiblemente podriamos vernos en abril, te dire
+    [21/03/2024, 22:18:12] Jorge Esclapez Deckcard23: ðŸ‘
 
 ## 24th March
 
