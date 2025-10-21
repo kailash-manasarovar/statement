@@ -32,7 +32,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - As I suspected, the fact that there were so few chamber music classes that year must have been due to the unavailability of some or all of the men on certain nights, while it was *essential* they all turned up at my apartment after class while I was sedated.
 - You cannot imagine how shocking it is for me to learn that I mistook all these men, of extremely different shapes and sizes, for one single man.
 - It is even more disturbing to me that most of the town of Dénia and beyond, including many children, and even people I was working with, knew what was going on; and thought it was something to laugh and jeer about.
-- But the most appalling truth about the *switcheroo* porn being created by the teachers and staff at a Spanish public school, full of hundreds children of every age, was that everyone who *did* know what was going on would have been wholly expecting my death or severe maiming as the inevitable end result for me.
+- But the most appalling truth about the *switcheroo* porn being created by the teachers and staff at a Spanish public school, full of hundreds of children of every age, was that everyone who *did* know what was going on would have been wholly expecting my death or severe maiming as the inevitable end result for me.
 - And they didn't care.
 - I guess I was paying for their Ferraris. 
 
