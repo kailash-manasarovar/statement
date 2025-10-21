@@ -35,7 +35,7 @@ function googleTranslateElementInit() {
 ### Overwhelming romantic feelings
 
 - I had been experiencing these overwhelming romantic feelings for a few days.
-- A whole story is on loop in my mind.
+- A vivid story is on loop in my mind.
 - It's like I can see a scene happening, over and over again.
 - The trumpet teacher and I are at the beach and we're having a wonderful time.
 - We're playing in the sea, laughing, having fun, and rolling in the sand.
@@ -188,6 +188,7 @@ function googleTranslateElementInit() {
 
 - The next class I had with him on Monday 24th April he was extremely angry with me for no obvious reason at all.
 - His anger surprised me and I stared at him. He could not hold my eye contact and looked away.
+- This was [man two of the group of men pretending to be the trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013).
 - I knew at that moment the `@jctot` account was his. At least, that was my assumption.
 - Was the trumpet teacher angry because he knew I had fallen into a vile trap he could do nothing about?
 - Or was he angry that his intention to keep me for himself was probably scuppered?
@@ -210,6 +211,7 @@ function googleTranslateElementInit() {
 - It was a mature and innocuous message, and very honest.
 - I explained I had been sexually abused as a child and this made relationships very difficult for me.
 - At the next chamber music class, the following Monday, he was waiting for me at the door.
+- This was [hulking number three of the group of men pretending to be the trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), the largest of them all.
 - It felt like EVERYONE knew what I had written; the whole building was hushed.
 - His demeanor towards me was soft and kind in class that day and this was probably the most powerful grooming technique of all because for the first time in my life, on disclosing sexual abuse to someone I cared about:
     - I was not judged.
