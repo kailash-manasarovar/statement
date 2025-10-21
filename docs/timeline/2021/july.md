@@ -19,6 +19,7 @@ function googleTranslateElementInit() {
 
 - From time to time, a man visits and he stays in the apartment next to mine - or he has access to it because I see him coming and going from there.
 - Sometimes, when I'm coming out of my apartment, he comes out of the one beside mine at exactly the same time, and he always looks at me.
+- He makes sure I see his face. He needs me to recognize him in the future.
 - The reception staff know him to be Portuguese. 
 - He looks like the trumpet teacher, except I'm not to meet the trumpet teacher for 18-24 months still.
 - Whenever he visited, on usually a Sunday or Monday night, he got together with some of the younger men there and they had loud drinking sessions into the night with loud music.
