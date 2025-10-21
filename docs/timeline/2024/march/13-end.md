@@ -194,23 +194,26 @@
 - I turn up to choir class that evening, as normal.
 - The feeling at the conservatory is colder and frostier than it has ever been.
 - It's as if I can nearly see the hatred towards me dripping off teachers and staff, and some students too.
+- Teachers and staff are furious with me for showing up this evening.
 - Adriana, the Romanian girl, Domingo's student, has been told something about me and she is confused about it.
-- I'm *extremely* concerned about the safety of Adriana, and have been since 12th June 2023.
-- The teachers and the adult staff are extremely angry with me for showing up.
+- I'm *extremely* concerned about the safety of Adriana, and have been since at least 12th June 2023.
+- As with all the other children these people have control over, no-one cares about their safety and wellbeing at all.
 - In class, my security cam alarm goes off on my phone again, [just like the night before at the concert](1-12.md#the-piano-concert). 
 - I check it.
-- I can hear, recorded on my security camera alarm, a group of men making ghost noises; "woooo-woooo". 
-- I laugh. It's ridiculous.
+- I can hear, recorded on my security camera alarm, a group of adult men making ghost noises; "woooo-woooo". 
+- I laugh. 
+- It's ridiculous.
 - They are demonstrating total access to my network, and I still have the recording.
 - A little bit later, I text a message to Chris BJ saying something like: *I think all this aggression is probably training for my political career*.
 - (This is a curious thing for me to have said given the trajectory of the next few months.)
-- Moments later, both the choir teacher's and the woman who sits beside me's (dumpy French horn player called Vicen, I believe) WhatsApps beep.
+- Moments later, the WhatsApps of both the choir teacher, Salva, and the woman who always sits beside me (dumpy French horn player called Vicen, I believe) audibly go off.
 - They get their phones out and read the message at the same time.
 - They both look at me angrily. 
 - Vicen sneers.
 
-[![Vicen sneers at me after reading a private message from myself to Chris BJ in choir class](../../../content/tweets/march-2024/vicen-sneering.png)](https://x.com/1FRGVN/status/1773436669007380597)
+[![Vicen sneers at me after reading a private WhatsApp message from myself to Chris BJ in choir class](../../../content/tweets/march-2024/vicen-sneering.png)](https://x.com/1FRGVN/status/1773436669007380597)
 
+- They are demonstrating to me how everything private I do in my life is monitored and disseminated in seconds.
 - We sing the [horrible domestic violence song again](../february.md#domestic-violence-in-choir-class) which is obviously a *celebration of* (sexual) violence against women and girls, and how the whole community comes out for that.
 - As I leave the building, Ana is playing trumpet music on her laptop; I hear it playing softly in her classroom as I walk by.
 - On my way home, as I approach the tunnel, a longer-haired blond and stocky man of about 45 walks towards me grinning.
