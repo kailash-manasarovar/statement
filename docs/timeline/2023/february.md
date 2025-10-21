@@ -116,8 +116,8 @@ function googleTranslateElementInit() {
 
 - Whatever drugs they were giving me made me extremely and unusually aware of hidden things going on, plots and subplots.
 - Of course, I knew about the plot with Domingo, and what was coming up (a 'funeral' of some sort which I really didn't care about) so my experience of the classes were tainted with this knowledge.
-- And, at the same time, I had such a good feeling for this man, I had only generous views of him. I felt he must be on my side.
-- In one class, the [older slimmer shorter man is present](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man), the man I have very good feelings for.
+- And, at the same time, I had such a good feeling for the trumpet teacher, I had only generous views of him. I felt he must be on my side.
+- In one class, the [older slimmer shorter man is present](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man), the man I still have very good feelings for.
 - I look at his hands; I'm delighted by his delicate artistic fingers.
 - The three of us - him, me and Pablo the 14-year-old boy - are sitting close together and practicing.
 - The trumpet teacher announces, gently, that we will play *My Way* for the concert.
