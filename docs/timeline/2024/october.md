@@ -280,10 +280,15 @@
 - Over the next few weeks, accounts fly by with names like "dubious government official", and similar.
 - They know.
 - When I see my friend again, she tells me Paloma thinks we are both in danger.
+- Did Paloma or her superiors give the OK for my immediate dispatching?
+- Is that why Carmen Cano, et al, were so utterly unconcerned about being seen while they tampered with my water pipes or entered my apartment, and seemed indeed to want me to see and hear them, and know about their vile intentions. 
+- Had Paloma decided I knew too much already?
+- Are the school-board supported sex offenders and murderers protected from the very top? Well that's an obvious answer isn't it.
 
 ## Serious poisoning with intent to harm or kill
 
-- I arrive back in Dénia on 27th October, just as the DANA hits the Valencian region.
+- I arrive back in Dénia on 27th October.
+- The DANA hits the Valencian region.
 - On waking up on Monday 28th October, I have an inexplicable and excruciating headache at home which lasts a couple of days. 
 - While sitting at my desk, on the Monday morning, drinking my coffee, I experience shooting nerve pains all over my face.
 - My kidneys start to really ache over the week; the dull aching gets worse and worse, left and right and starts that screaming pain thing.
