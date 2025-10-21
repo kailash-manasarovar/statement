@@ -189,7 +189,7 @@
 - Or/and, I saw her in some of the porn they flashed up at me on Google search. The older woman I saw in a porn posture (a private nude maybe) was very similar looking and was on my search results for months.
 - Or/and, she was the [woman getting her photo taken after getting married](../../2023/april.md#a-wedding-on-las-rota-beach).
 
-### Choir class
+### Choir
 
 - I turn up to choir class that evening, as normal.
 - The feeling at the conservatory is colder and frostier than it has ever been.
