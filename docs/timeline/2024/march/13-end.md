@@ -214,7 +214,7 @@
 [![Vicen sneers at me after reading a private WhatsApp message from myself to Chris BJ in choir class](../../../content/tweets/march-2024/vicen-sneering.png)](https://x.com/1FRGVN/status/1773436669007380597)
 
 - They are demonstrating to me how everything private I do in my life is monitored and disseminated in seconds.
-- It means the lengthy texts [I send to Jorge during choir and beyond](#chat-with-jorge) are also being read in real-time.
+- It means the lengthy texts [I send to Jorge during choir and beyond](#jorge-checks-some-stalker-accounts) are also being read in real-time.
 - We sing the [horrible domestic violence song again](../february.md#domestic-violence-in-choir-class) which is obviously a *celebration of* (sexual) violence against women and girls, and how the whole community comes out for that.
 - As I leave the building, Ana is playing trumpet music on her laptop; I hear it playing softly in her classroom as I walk by.
 - On my way home, as I approach the tunnel, a longer-haired blond and stocky man of about 45 walks towards me grinning.
