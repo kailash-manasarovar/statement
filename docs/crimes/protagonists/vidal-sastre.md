@@ -56,15 +56,23 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ### The brother, or Mark from English class in 2013
 
-- Another man reminded me of [Mark from English class in 2013](../../timeline/early-years/2008.md#working-for-lorraine-blackbourn).
-- He was the larger, taller, darker, more lumbering man that looked enough like the [older, slimmer man](#the-older-slimmer-greyer-man) for me to mistake them after what I assume had been some sort of [sedated psychological mistaking-people training](#sedated-training-for-recognizing-faces).
-- He was someone I had [found attractive when I met him in 2013](../../timeline/early-years/2008.md#working-for-lorraine-blackbourn) in my English class when I worked for Lorraine Blackbourn.
+- There could be two similar looking men making up these memories.
+- They were taller, darker men that looked enough like the [older, slimmer man](#the-older-slimmer-greyer-man) for me to mistake them with him after what I assume had been some sort of [sedated psychological mistaking-people training](#sedated-training-for-recognizing-faces).
+
+#### The younger brother of the first man
+
+- He was the man [Patricia Penny *introduced* me to in Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class.
+- He was the man that [stalked me at Lourdes](../../timeline/2021/july.md#the-portuguese-man-next-door).
+- I don't have a picture of this man but would recognize him immediately.
+
+#### Mark from English class in 2013
+
+- Another man reminded me of [a student from my English class in 2013](../../timeline/early-years/2008.md#working-for-lorraine-blackbourn) who may have been called Mark.
+- He was someone I had [found attractive when I met him in 2013](../../timeline/early-years/2008.md#working-for-lorraine-blackbourn) when I worked for Lorraine Blackbourn.
 - It's likely this man is related to Lorraine Blackbourn's ex-husband and indeed was of the same size and shape, and facial features.
 - He was the man I saw most often at the conservatory, and I was always anxious around him.
 - I remember seeing this man numerous times, including but not limited to the following examples:
 
-    - He was the man [Patricia Penny *introduced* me to in Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class.
-    - He was the man that [stalked me at Lourdes](../../timeline/2021/july.md#the-portuguese-man-next-door).
     - At the first class in [November 2022](../../timeline/2022/november.md#the-trumpet-teacher) there he was hovering over Ana Requena after timing a meeting at the toilet.
     - He was the man involved in [poisoning me by overdose](../../timeline/2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice.
     - He was the man who brought the music sheets from Gloria and [handed me his phone](../../timeline/2023/march.md#the-trumpet-teacher-hands-me-his-phone).
@@ -73,7 +81,6 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     - The man who led my *funeral* on [12th June 2023](../../timeline/2023/june.md#monday-12th-june-2023).
 
 - I don't have a picture of this man but would recognize him immediately.
-- Its possible there's still two men in this section. One man who looked a lot like the first man and could have been his younger brother, and another who looked more like the darker, meaner-looking Mark character I mention here.
 
 ### An unknown man I may have a picture of
 
