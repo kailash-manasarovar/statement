@@ -199,11 +199,12 @@
 
 - I turn up to choir class that evening, as normal.
 - The feeling at the conservatory is colder and frostier than it has ever been.
-- It's as if I can nearly see the hatred towards me dripping off teachers and staff, and some students too.
-- Teachers and staff are furious with me for showing up this evening.
+- I can nearly see the hatred towards me dripping off teachers and staff, and some students too.
+- Teachers and staff are furious with me for showing up this evening after [their second failed crucifixion](1-12.md#the-piano-concert) which must have taken enormous resources and efforts to organize.
 - Adriana, the Romanian girl, Domingo's student, has been told something about me and she is confused about it.
-- I'm *extremely* concerned about the safety of Adriana, and have been since at least 12th June 2023.
-- As with all the other children these people have control over, no-one cares about their safety and wellbeing at all.
+- It's as if someone wants me to know she's a bonafide target.
+- I'm *extremely* concerned about the safety of Adriana, and have been since at least 12th June 2023. She's beautiful and looks older than 14.
+- As with all the other children these people have control over, literally no-one cares about their safety and wellbeing. It's horrifying.
 - In class, my security cam alarm goes off on my phone again, [just like the night before at the concert](1-12.md#the-piano-concert). 
 - I check it.
 - I can hear, recorded on my security camera alarm, a group of adult men making ghost noises; "woooo-woooo". 
