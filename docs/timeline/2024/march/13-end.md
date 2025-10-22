@@ -219,7 +219,7 @@
 - (This is a curious thing for me to have said given the trajectory of the next few months.)
 - Moments later, the WhatsApps of both the choir teacher, Salva, and the woman who always sits beside me (dumpy French horn player called Vicen, I believe) audibly go off.
 - They get their phones out and read the message at the same time.
-- They both look at me angrily. 
+- They look at me angrily. 
 - Vicen sneers.
 
 [![Vicen sneers at me after reading a private WhatsApp message from myself to Chris BJ in choir class](../../../content/tweets/march-2024/vicen-sneering.png)](https://x.com/1FRGVN/status/1773436669007380597)
