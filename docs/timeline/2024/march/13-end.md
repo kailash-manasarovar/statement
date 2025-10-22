@@ -231,7 +231,7 @@
 - We sing the [horrible domestic violence song again](../february.md#domestic-violence-in-choir-class) which is obviously a *celebration of* (sexual) violence against women and girls, and how the whole community comes out for that.
 - As I leave the building, Ana is playing trumpet music on her laptop; I hear it playing softly in her classroom as I walk by.
 - I'm texting with Jorge while walking as I leave to go home.
-- As I approach the tunnel, a longer-haired blond and stocky man of about 45 walks towards me grinning.
+- As I approach the tunnel, a longer-haired blond and stocky man of about 45 swaggers towards me grinning.
 - He looks like a seventies DJ.
 - He walks right up to me and blows in my face.
 
