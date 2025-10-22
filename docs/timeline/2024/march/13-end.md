@@ -236,7 +236,7 @@
 ![Man blows in my face](../../../content/images/man-blows-in-my-face.png)
 
 - I'd remember him in an instant. 
-- Everyone will know who the 70s DJ is.
+- Everyone will know who the seventies DJ is.
 
 #### Distraction then drugging
 
