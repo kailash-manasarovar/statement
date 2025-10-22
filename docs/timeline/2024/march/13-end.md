@@ -230,8 +230,8 @@
 - As I leave the building, Ana is playing trumpet music on her laptop; I hear it playing softly in her classroom as I walk by.
 - I'm texting with Jorge while walking as I leave to go home.
 - As I approach the tunnel, a longer-haired blond and stocky man of about 45 walks towards me grinning.
-- He looks a bit like a 70s DJ.
-- He blows in my face.
+- He looks like a seventies DJ.
+- He walks right up to me and blows in my face.
 
 ![Man blows in my face](../../../content/images/man-blows-in-my-face.png)
 
