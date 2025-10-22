@@ -290,7 +290,7 @@
 ### Chat with Jorge Thurs 14th
 
 - I finish texting Jorge.
-- Something had interrupted me while I was texting him on my way home from choir.
+- Something had interrupted me while I was texting him on my way home from choir the night before.
 - I hadn't got around to sending him the pic I had promised on [Wednesday 13th at 20:14](#chat-with-jorge-13th-march).
 - I also tell him I think I've been robbed.
 
