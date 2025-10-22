@@ -295,7 +295,7 @@
 - I also tell him I think I've been robbed.
 
 ??? note "WhatsApp with Jorge 14th March"
-    [14/03/2024, 03:48:29] Niramisa Weiss: <attached: 00000114-PHOTO-2024-03-14-03-48-29.jpg></br>
+    [14/03/2024, 03:48:29] Niramisa Weiss: ..attached: 00000114-PHOTO-2024-03-14-03-48-29.jpg</br>
     [14/03/2024, 03:48:48] Niramisa Weiss: That's my bottom half the top is AI</br>
     [14/03/2024, 03:48:55] Niramisa Weiss: There are lots of these</br>
     [14/03/2024, 03:49:04] Niramisa Weiss: I will pay you of course</br>
