@@ -259,7 +259,7 @@
 - One of the fake accounts posts something like: "leave her, she's had enough now", and I feel an enormous upset, like a punch in the stomach.
 - For some reason, I thought Maria the piano teacher posted this statement.
 - It sounded like her voice; I know this doesn't make sense.
-- I believe this statement is audible in one of the sedated gang-rape porn films made in 1989 which was likely quite violent.
+- I believe this statement is audible in one of the sedated-child gang-rape porn films made in 1989 which was likely quite violent.
 - Did something similar happen to me that night while I was sedated in my apartment?
 - Who was there? Did anyone see them coming in with me?
 - I wonder what the special was on Denia TV that night.
