@@ -242,7 +242,7 @@
 [![Telling everyone I won't commit suicide](../../../content/tweets/march-2024/i-wont-commit-suicide.png)](https://x.com/1FRGVN/status/1768046490272870687)
 
 - I'm certain I'm in danger, and that it is related to whatever happened to Lorraine Blackbourn.
-- I do not believe Lorraine Blackbourn commit suicide anymore.
+- I no longer believe that Lorraine Blackbourn committed suicide.
 - I text Christine BJ, Alessandra, Brenda, and Sarah Lebanon to say that I would never commit suicide and if I turn up dead it's murder.
 - I tell them that I think whatever happened to Lorraine is happening to me.
 - Online stalker activity is relentless, and I'm not posting much at all.
