@@ -280,7 +280,8 @@
 
 ![Up yours](../../../content/tweets/march-2024/up-yours.png)
 
-- I want them to know I will be going to the conservatory to practice the piano in the morning.
+- There is a sense of having become so accustomed to the daily terrorizing, I'm able to withstand it, collect myself, and continue on into battle.
+- I want them to know I *will* be going to the conservatory to practice the piano in the morning.
 
 ## Thursday 14th March
 
