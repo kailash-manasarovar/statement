@@ -162,6 +162,8 @@
     [13/03/2024, 21:14:43] Niramisa Weiss: Folder in there with screenshots</br>
     [13/03/2024, 21:14:51] Niramisa Weiss: Let me know if you need access</br>
 
+- I didn't get back to finishing this conversation until the early hours of the following morning.
+- It's as if something interrupted the flow while I was walking and texting on my way back home from choir.
 - Here is the [whole WhatsApp chat with Jorge](../../../content/whatsapps/jorge-chat.txt).
 - It's interesting how I mention the `@drmuffy` account I was using for Polygon at the time.
 - I see the handle has been completely taken over now, the time of writing being 20th October 2025.
@@ -217,41 +219,67 @@
 - It means the lengthy texts [I send to Jorge during choir and beyond](#jorge-checks-some-stalker-accounts) are also being read in real-time.
 - We sing the [horrible domestic violence song again](../february.md#domestic-violence-in-choir-class) which is obviously a *celebration of* (sexual) violence against women and girls, and how the whole community comes out for that.
 - As I leave the building, Ana is playing trumpet music on her laptop; I hear it playing softly in her classroom as I walk by.
-- On my way home, as I approach the tunnel, a longer-haired blond and stocky man of about 45 walks towards me grinning.
+- I'm texting with Jorge while walking as I leave to go home.
+- As I approach the tunnel, a longer-haired blond and stocky man of about 45 walks towards me grinning.
 - He looks a bit like a 70s DJ.
 - He blows in my face.
 
 ![Man blows in my face](../../../content/images/man-blows-in-my-face.png)
 
+- I'd remember him in an instant. 
+- Everyone will know who the 70s DJ is.
+
 #### Distraction then drugging
 
 - It is my view, the *blowing in the face* routine is a distraction technique used by criminals to drug people, and I was drugged immediately probably with a dissolving patch on any visible skin or perhaps powder in my ear.
+- Was I frog-marched back home, like [the other drugged lady](../../2023/november.md#tonya) I used to see regularly?
 - I don't remember anything more about the evening until much later when I wake up in my bed in a state of terror.
 
-### Stalker activity
+### State of terror
 
-- The next thing I remember is waking up past midnight afraid for my life.
-- I'm certain I'm in danger and it is related to whatever happened to Lorraine.
-- I text Christine BJ, Alessandra, Brenda, and Sarah Lebanon to say that I would never commit suicide and I think whatever happened to Lorraine is happening to me.
-- Online stalker activity is relentless.
-- One of the fake accounts posts something like: "leave her, she's had enough now", and I felt an enormous upset. 
-- For some reason, I thought Maria my old piano teacher posted this statement.
+- The next thing I remember is being conscious of something evil in my vicinity, to the point of being concerned that I might be murdered and they would make it look like suicide.
+
+[![Telling everyone I won't commit suicide](../../../content/tweets/march-2024/i-wont-commit-suicide.png)](https://x.com/1FRGVN/status/1768046490272870687)
+
+- I'm certain I'm in danger, and that it is related to whatever happened to Lorraine Blackbourn.
+- I do not believe Lorraine Blackbourn commit suicide anymore.
+- I text Christine BJ, Alessandra, Brenda, and Sarah Lebanon to say that I would never commit suicide and if I turn up dead it's murder.
+- I tell them that I think whatever happened to Lorraine is happening to me.
+- Online stalker activity is relentless, and I'm not posting much at all.
+- One of the fake accounts posts something like: "leave her, she's had enough now", and I feel an enormous upset, like a punch in the stomach.
+- For some reason, I thought Maria the piano teacher posted this statement.
 - It sounded like her voice; I know this doesn't make sense.
-- I believe this statement is audible in one of the rape porn films taken from 1989, probably when I was sedated, which was likely quite violent.
-- Did something similar happen to me that night sedated in my apartment?
-- I wonder what the special was on Denia TV.
-
-!!! tip "A little bird told me"
-    - They sedated me that night and put a plastic bag over my head and tied it shut and left me sedated in this state to the point of death before undoing it.
-    - That feels true and could explain the cold I was getting that evening becoming a six-week-long chest infection with a cough that made me crack a rib.
+- I believe this statement is audible in one of the sedated gang-rape porn films made in 1989 which was likely quite violent.
+- Did something similar happen to me that night while I was sedated in my apartment?
+- I wonder what the special was on Denia TV that night.
+- My arms and hands feel numb, like they've stopped working.
+- Even pressing touchscreen buttons on my phone is challenging.
 
 ### My crypto account
 
-- I lose access to my Coinbase crypto account that night.
-- I don't know if they have stolen 70K from me or not.
-- My account is completely locked.
+- I try to access my Coinbase crypto account around 2am.
+- I'm locked out.
+- I don't know if criminals have stolen 60K from me or not.
+- Could they have done this while they were in my apartment with me without my conscious awareness?
 - I'm really concerned about this.
-- I tweet about it: https://x.com/1FRGVN/status/1768093834188087798.
+
+[![Robbed on Coinbase](../../../content/tweets/march-2024/robbed-on-coinbase.png)](https://x.com/1FRGVN/status/1768093834188087798)
+
+## Thursday 14th March
+
+### Chat with Jorge Thurs 14th
+
+- I finish up my text with Jorge that I was going on while I was on my way home from choir earlier the previous evening.
+- I hadn't got round to sending him the pic I promised on Wednesday 13th at 20:14.
+- I also inform him I think I've been robbed.
+
+??? note "WhatsApp with Jorge 14th March"
+    [14/03/2024, 03:48:29] Niramisa Weiss: â€Ž<attached: 00000114-PHOTO-2024-03-14-03-48-29.jpg>
+    [14/03/2024, 03:48:48] Niramisa Weiss: Thatâ€™s my bottom half the top is AI
+    [14/03/2024, 03:48:55] Niramisa Weiss: There are lots of these
+    [14/03/2024, 03:49:04] Niramisa Weiss: I will pay you of course
+    [14/03/2024, 03:51:54] Niramisa Weiss: They may have accessed my Coinbase account. Iâ€™m blocked and I cannot contact Coinbase so I donâ€™t know if theyâ€™ve robbed me or not
+    [14/03/2024, 12:36:20] Niramisa Weiss: Looks like they robbed me 60k euros
 
 ### Chest infection
 
@@ -262,8 +290,6 @@
 - It's not before I have snapped a rib from coughing so hard.
 - Notifications on fake accounts mention the coughing.
 - The medication works and I recover in India.
-
-## Thursday 14th March
 
 ### The dose ramps up
 
@@ -334,16 +360,6 @@
 - I contact my friend I saw at [Christmas 2022](../../2022/december.md#madrid) and [Christmas 2023](../../2023/december.md#madrid).
 - I tell her that I'm experiencing the hostile cyber-stalking flying-monkey attacks that she told me her sister was experiencing too, and I tell her what teachers and staff at the conservatory have done also.
 - She advises we go to the police the following morning.
-
-### Chat with Jorge
-
-??? note "WhatsApp with Jorge 14th March"
-    â€Ž[14/03/2024, 03:48:29] Niramisa Weiss: â€Ž<attached: 00000114-PHOTO-2024-03-14-03-48-29.jpg>
-    [14/03/2024, 03:48:48] Niramisa Weiss: Thatâ€™s my bottom half the top is AI
-    [14/03/2024, 03:48:55] Niramisa Weiss: There are lots of these
-    [14/03/2024, 03:49:04] Niramisa Weiss: I will pay you of course
-    [14/03/2024, 03:51:54] Niramisa Weiss: They may have accessed my Coinbase account. Iâ€™m blocked and I cannot contact Coinbase so I donâ€™t know if theyâ€™ve robbed me or not
-    [14/03/2024, 12:36:20] Niramisa Weiss: Looks like they robbed me 60k euros
 
 ## 15th March
 
