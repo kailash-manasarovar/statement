@@ -272,7 +272,7 @@
 - I'm locked out.
 - I don't know if criminals have stolen 60K from me or not.
 - Could they have done this while they were in my apartment with me without my conscious awareness?
-- I'm really concerned about this.
+- I'm really concerned about this and send a tweet to Coinbase as I'm unable to contact them through the app.
 
 [![Robbed on Coinbase](../../../content/tweets/march-2024/robbed-on-coinbase.png)](https://x.com/1FRGVN/status/1768093834188087798)
 
