@@ -211,6 +211,10 @@
 - I laugh. 
 - It's ridiculous.
 - They are demonstrating total access to my network, and I still have the recording.
+- I tweet a message to the Spanish police at this moment, because I know they'll read it and it's *all* I can do to defend myself against these continuous assaults.
+
+[![Tweet to the Spanish police](../../../content/tweets/march-2024/tweet-after-obvious-hack.png)](https://x.com/1FRGVN/status/1768008919329198108)
+
 - A little bit later, I text a message to Chris BJ saying something like: *I think all this aggression is probably training for my political career*.
 - (This is a curious thing for me to have said given the trajectory of the next few months.)
 - Moments later, the WhatsApps of both the choir teacher, Salva, and the woman who always sits beside me (dumpy French horn player called Vicen, I believe) audibly go off.
@@ -222,10 +226,6 @@
 
 - They are demonstrating to me how everything private I do in my life is monitored and disseminated in seconds.
 - It means the lengthy texts [I send to Jorge during choir and beyond](#jorge-checks-some-stalker-accounts) are also being read in real-time.
-- I tweet a message to the Spanish police at this moment, because I know they'll read it and it's *all* I can do to help myself.
-
-[![Tweet to the Spanish police](../../../content/tweets/march-2024/tweet-after-obvious-hack.png)](https://x.com/1FRGVN/status/1768008919329198108)
-
 - We sing the [horrible domestic violence song again](../february.md#domestic-violence-in-choir-class) which is obviously a *celebration of* (sexual) violence against women and girls, and how the whole community comes out for that.
 - As I leave the building, Ana is playing trumpet music on her laptop; I hear it playing softly in her classroom as I walk by.
 - I'm texting with Jorge while walking as I leave to go home.
