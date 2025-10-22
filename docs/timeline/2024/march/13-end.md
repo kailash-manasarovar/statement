@@ -238,7 +238,7 @@
 - I'd remember him in an instant. 
 - Everyone will know who the seventies DJ is.
 
-#### Distraction then drugging
+#### Distraction, then drugging
 
 - It is my view, the *blowing in the face* routine is a distraction technique used by criminals to drug people, and I was drugged immediately by another man coming in from the side or behind me, probably with a dissolving patch on any visible skin or perhaps powder in my ear.
 - Was I frog-marched back home, like [the other drugged lady](../../2023/november.md#tonya) I used to see regularly?
