@@ -3,7 +3,11 @@
 ## Wednesday 13th March 
 
 - I wake up and leave for the [serviced offices](https://www.knowheredenia.com/) in Dénia where I'm having to work due to hacking.
-- At lunchtime, I head down to the conservatory to practice, head held high after the previous evening's [Spanish-civil-servant super-s-show](../march/1-12.md#the-piano-concert).
+- Before I go, I post my feelings about the [previous night](1-12.md#the-piano-concert) extraordinary spectacle on X.
+
+[![The truth of the matter](../../../content/tweets/march-2024/the-truth.png)](https://x.com/1FRGVN/status/1767831951627431972)
+
+- At lunchtime, I head down to the conservatory to practice, head held high after the previous evening's [Spanish-civil-servant super-s-show](1-12.md#the-piano-concert).
 
 ### Translator
 
@@ -217,6 +221,10 @@
 
 - They are demonstrating to me how everything private I do in my life is monitored and disseminated in seconds.
 - It means the lengthy texts [I send to Jorge during choir and beyond](#jorge-checks-some-stalker-accounts) are also being read in real-time.
+- I tweet a message to the Spanish police at this moment, because I know they'll read it and it's *all* I can do to help myself.
+
+[![Tweet to the Spanish police](../../../content/tweets/march-2024/tweet-after-obvious-hack.png)](https://x.com/1FRGVN/status/1768008919329198108)
+
 - We sing the [horrible domestic violence song again](../february.md#domestic-violence-in-choir-class) which is obviously a *celebration of* (sexual) violence against women and girls, and how the whole community comes out for that.
 - As I leave the building, Ana is playing trumpet music on her laptop; I hear it playing softly in her classroom as I walk by.
 - I'm texting with Jorge while walking as I leave to go home.
@@ -243,7 +251,8 @@
 
 - I'm certain I'm in danger, and that it is related to whatever happened to Lorraine Blackbourn.
 - I no longer believe that Lorraine Blackbourn committed suicide.
-- I text Christine BJ, Alessandra, Brenda, and Sarah Lebanon to say that I would never commit suicide and if I turn up dead it's murder.
+- I text Christine BJ, Alessandra, Brenda, and Sarah Lebanon to document further that I would never commit suicide and if I turn up dead it's murder.
+- None of them reply to these texts in a normal way, if they reply at all.
 - I tell them that I think whatever happened to Lorraine is happening to me.
 - Online stalker activity is relentless, and I'm not posting much at all.
 - One of the fake accounts posts something like: "leave her, she's had enough now", and I feel an enormous upset, like a punch in the stomach.
@@ -251,11 +260,12 @@
 - It sounded like her voice; I know this doesn't make sense.
 - I believe this statement is audible in one of the sedated gang-rape porn films made in 1989 which was likely quite violent.
 - Did something similar happen to me that night while I was sedated in my apartment?
+- Who was there? Did anyone see them coming in with me?
 - I wonder what the special was on Denia TV that night.
-- My arms and hands feel numb, like they've stopped working.
+- My shoulders, arms, and hands feel numb, like they've stopped working.
 - Even pressing touchscreen buttons on my phone is challenging.
 
-### My crypto account
+### Did they rob my crypto account?
 
 - I try to access my Coinbase crypto account around 2am.
 - I'm locked out.
@@ -264,6 +274,12 @@
 - I'm really concerned about this.
 
 [![Robbed on Coinbase](../../../content/tweets/march-2024/robbed-on-coinbase.png)](https://x.com/1FRGVN/status/1768093834188087798)
+
+- Even with all this going on, I tweet an "up yours" to Dénia criminals.
+
+![Up yours](../../../content/tweets/march-2024/up-yours.png)
+
+- I want them to know I will be going to the conservatory to practice the piano in the morning.
 
 ## Thursday 14th March
 
