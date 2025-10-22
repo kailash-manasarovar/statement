@@ -295,12 +295,12 @@
 - I also tell him I think I've been robbed.
 
 ??? note "WhatsApp with Jorge 14th March"
-    [14/03/2024, 03:48:29] Niramisa Weiss: â€Ž<attached: 00000114-PHOTO-2024-03-14-03-48-29.jpg>
-    [14/03/2024, 03:48:48] Niramisa Weiss: Thatâ€™s my bottom half the top is AI
-    [14/03/2024, 03:48:55] Niramisa Weiss: There are lots of these
-    [14/03/2024, 03:49:04] Niramisa Weiss: I will pay you of course
-    [14/03/2024, 03:51:54] Niramisa Weiss: They may have accessed my Coinbase account. Iâ€™m blocked and I cannot contact Coinbase so I donâ€™t know if theyâ€™ve robbed me or not
-    [14/03/2024, 12:36:20] Niramisa Weiss: Looks like they robbed me 60k euros
+    [14/03/2024, 03:48:29] Niramisa Weiss: <attached: 00000114-PHOTO-2024-03-14-03-48-29.jpg></br>
+    [14/03/2024, 03:48:48] Niramisa Weiss: That's my bottom half the top is AI</br>
+    [14/03/2024, 03:48:55] Niramisa Weiss: There are lots of these</br>
+    [14/03/2024, 03:49:04] Niramisa Weiss: I will pay you of course</br>
+    [14/03/2024, 03:51:54] Niramisa Weiss: They may have accessed my Coinbase account. I'm blocked and I cannot contact Coinbase so I don't know if they've robbed me or not</br>
+    [14/03/2024, 12:36:20] Niramisa Weiss: Looks like they robbed me 60k euros</br>
 
 ### Chest infection
 
