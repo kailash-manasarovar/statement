@@ -343,19 +343,6 @@
 - Its horrendous.
 - Am I ingesting strong anxiety-forming substances through my water now; like a stronger hallucinogen than normal, something on top of the daily mandrake dose which is exacerbating the reasonable anxiety I have?
 
-### Devastated parents 
-
-- Returning to work, I decide to take a detour to the Carmelite church on the Carrer Loreto to light a candle for myself.
-
-![Church](../../../content/images/church-narcis.jpg)
-
-- A middle-aged couple is praying together at the front of the church; they are crying softly.
-- They carry a picture of a young girl; a daughter they lost to the porn-gangs.
-
-![Devastated parents](../../../content/images/devastated-parents-2.png)
-
-- I hum the Salve from the back.
-
 ### Practicing the piano 
 
 - I leave the Knowhere offices to practice the piano at the conservatory.
@@ -374,6 +361,19 @@
 - She's laughing at me.
 - She says; *Finally, you're leaving now*.
 - I don't understand what would make her say that and be so sure of it.
+
+### Devastated parents 
+
+- Returning to work, I decide to take a detour to the Carmelite church on the Carrer Loreto to light a candle for myself.
+
+![Church](../../../content/images/church-narcis.jpg)
+
+- A middle-aged couple is praying together at the front of the church; they are crying softly.
+- They carry a picture of a young girl; a daughter they lost to the porn-gangs.
+
+![Devastated parents](../../../content/images/devastated-parents-2.png)
+
+- I hum the Salve from the back.
 
 ### Knowhere big blokes
 
