@@ -304,50 +304,56 @@
 
 ### Chest infection
 
-- I get very unwell after choir class, a cold which becomes a chest infection.
-- It doesn't get better, it gets worse and worse.
-- I'm extremely unwell for the next few weeks, and, in Madrid, I can hardly talk.
-- Eventually, in India in the first week of April, I'm prescribed hardcore antibiotics and medicine for pleurisy.
-- It's not before I have snapped a rib from coughing so hard.
-- Notifications on fake accounts mention the coughing.
+- At choir the night before, I was getting a cold.
+- The following morning, it worsens and I lose my voice.
+- The cold deteriorates into a chest infection and constant coughing fits.
+- I'm extremely unwell for the next few weeks and I can hardly talk.
+- Eventually, in India in the first week of April, three weeks later, I'm prescribed hardcore antibiotics for pneumonia and medicine for pleurisy by the hotel doctor.
+- I call the hotel doctor after [I snap the same weak rib I snapped in yoga](1-12.md#cracked-rib) from coughing so hard.
+- Notifications on fake X accounts mention the coughing in a jeering manner, sometimes right after a fit.
+- It seems they are listening to everything I do and making a lot of effort to upset me.
 - The medication works and I recover in India.
+- My lungs have always been a trauma weak point.
+- Whatever happened to me on the [night of Wednesday 13th March](#state-of-terror) shocked my whole system and I believe was likely connected to my respiratory function.
+- People in the town know what happened to me at the hands of the porn-gangs, and they delighted in it.
 
-### The dose ramps up
+### The hallucinogen dose ramps up
 
-- Given that I was not fearful after the ridiculous piano concert on the 12th, and went to choir on the 13th, it seems reasonable to suppose I was relatively unaffected by this choreographed terror, perhaps I was getting used to it.
-- However, the link to Lorraine Blackbourn was extremely sinister and got to me.
-- Eventually, I text and tweet to everyone that I would never commit suicide and, if I turn up dead and it looks like I did, it's suspicious: https://x.com/1FRGVN/status/1768046490272870687.
-- The following morning I am severely anxious. I'm bumping my head on things. I have to go to town. I am terrorized the whole way in and out. I feel horrendous.
-- I believe I was on serious drugs and poison at this point that they were putting in the water.
-
-### Spider man
-
-- I'm heading back to my apartment.
-- A man dressed as spider man is limping towards me.
-- I recognize him.
-
-### Devastated parents 
-
-- Nevertheless, I set off for the conservatory.
-- I pop into the church again just off the Carrer Loreto.
-
-![Church](../../../content/images/church-narcis.jpg)
-
-- A couple prays together at the front of the church, crying softly.
-- They carry a picture of a young girl; a daughter they lost to the sex-slave industry, maybe?
-
-![Devastated parents](../../../content/images/devastated-parents-2.png)
-
-- I hum the Salve from the back.
+- The following morning I wake and go about my business as usual.
+- I make coffee and drink water.
+- I skip breakfast.
+- I head into town with my laptop and piano books.
+- Something starts to cause me *extreme* anxiety.
+- Is it visceral memories of what happened the night before?
+- I seemed to be OK when I woke up and was getting ready in my apartment.
+- The new information I have about Lorraine Blackbourn is on my mind.
+- Did they tell me or show me something while they were in my apartment without my conscious awareness?
+- I have an errand to run before I start work.
+- As I walk through the tunnel, and along the streets of the old town, people give me dirty looks, some stand staring with their mouths open, women mumble underhand comments as I walk by them.
+- A van drives towards me screeching its wheels.
+- *VIDAL* is written in giant letters on the front bonnet, which makes me smile but is actually very threatening.
+- I bump my head.
+- I'm walking into things. 
+- My shoulders, arms, and hands feel numb.
+- I'm wobbly on my feet.
+- I feel terrorized by no-one and everyone. 
+- Its horrendous.
+- Am I ingesting strong anxiety-forming substances through my water now; like a stronger hallucinogen than normal, something which is exacerbating the reasonable anxiety I have?
 
 ### Practicing the piano 
 
-- I go into practice at the conservatory.
-- I had an errand to run in town and I felt like everyone was looking at me, staring, and the threat levels were intense.
-- A van drives towards me with "VIDAL" on the front of it, which makes me smile but is actually rather threatening.
-- I'm extremely anxious and feel really uneasy in the piano room.
-- I call the British embassy from there looking for help. They tell me they can't do anything for me and suggest I go to the police.
-- On the way out I see Gloria. She's laughing at me, and says; "finally you're leaving now".
+- I set off to practice the piano at the conservatory.
+- I'm extremely anxious and I feel really uneasy in the piano room, as if I'm being watched.
+- I can't play; my arms, hands, and fingers are not working properly.
+- I call the British embassy from the piano room asking for help. 
+- They tell me they can't do anything for me and suggest I go to the police.
+- I explain what happened with the [police in February](../february.md#my-first-trip-to-the-spanish-police-in-denia).
+- They don't seem to care.
+- I start thinking about going to the police in Madrid.
+- I leave the conservatory, Gloria is walking towards me. 
+- She's laughing at me.
+- She says; *Finally, you're leaving now*.
+- I don't understand what would make her say that and be so sure of it.
 
 ### Knowhere big blokes
 
@@ -357,6 +363,32 @@
 - I find it extremely threatening.
 - I decide to leave Dénia.
 - When I leave the offices about two hours later, they are outside at the exact the moment I step outside the door, surrounding a blond woman I've seen before in Dénia.
+- I decide I need to leave urgently and book a hotel in Madrid.
+
+### Devastated parents 
+
+- At Knowhere I ask to borrow a paper shredder.
+- I destroy stacks of my financial paperwork as I'm very concerned about my Coinbase account and believe I could be robbed in any manner.
+- At lunchtime, I set off to practice the piano at the conservatory.
+- On the way, I take a detour to the Carmelite church on the Carrer Loreto.
+
+![Church](../../../content/images/church-narcis.jpg)
+
+- A middle-aged couple is praying together at the front of the church; they are crying softly.
+- They carry a picture of a young girl; a daughter they lost to the sex-slave industry, maybe?
+
+![Devastated parents](../../../content/images/devastated-parents-2.png)
+
+- I hum the Salve from the back.
+
+### Spider man
+
+- I start to organize my belongings for an extended stay away.
+- I have wet laundry that I need to dry.
+- I go to the La Colada.
+- I'm heading back to my apartment.
+- A man dressed as spider man is limping towards me.
+- I recognize him.
 
 ### Madrid
 
