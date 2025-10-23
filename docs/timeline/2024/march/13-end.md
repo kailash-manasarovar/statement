@@ -335,7 +335,7 @@
 
 ![VIDAL van](../../../content/images/vidal-van.png)
 
-- Later, I will bump my head badly on my car boot.
+- Later, I will bump my head badly on my car boot door.
 - I'm walking into things. 
 - My shoulders, arms, and hands feel numb.
 - I'm wobbly on my feet.
