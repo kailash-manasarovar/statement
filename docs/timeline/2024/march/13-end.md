@@ -332,7 +332,10 @@
 - As I walk through the tunnel, and along the streets of the old town, people give me dirty looks, some stand staring with their mouths open, women mumble underhand comments as I walk by them.
 - A van drives towards me screeching its wheels.
 - *VIDAL* is written in giant letters on the front bonnet, which makes me smile but is actually very threatening.
-- I bump my head.
+
+![VIDAL van](../../../content/images/vidal-van.png)
+
+- I bump my head badly on my car boot.
 - I'm walking into things. 
 - My shoulders, arms, and hands feel numb.
 - I'm wobbly on my feet.
