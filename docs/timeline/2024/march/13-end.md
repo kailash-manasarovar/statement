@@ -345,7 +345,7 @@
 
 ### Practicing the piano 
 
-- I set off to practice the piano at the conservatory.
+- I leave the Knowhere offices to practice the piano at the conservatory.
 - I'm extremely anxious and I feel really uneasy in the piano room, as if I'm being watched.
 - I can't play; my arms, hands, and fingers are not working properly.
 - I call the British embassy from the piano room asking for help. 
@@ -353,7 +353,11 @@
 - I explain what happened with the [police in February](../february.md#my-first-trip-to-the-spanish-police-in-denia).
 - They don't seem to care.
 - I start thinking about going to the police in Madrid.
-- I leave the conservatory, Gloria is walking towards me. 
+- I leave the conservatory.
+- Gloria is walking towards me. 
+
+![Gloria is like a sick provincial Ghislaine](../../../content/images/gloria-jeering.png)
+
 - She's laughing at me.
 - She says; *Finally, you're leaving now*.
 - I don't understand what would make her say that and be so sure of it.
