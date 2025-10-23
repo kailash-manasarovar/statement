@@ -335,13 +335,13 @@
 
 ![VIDAL van](../../../content/images/vidal-van.png)
 
-- I bump my head badly on my car boot.
+- Late, I will bump my head badly on my car boot.
 - I'm walking into things. 
 - My shoulders, arms, and hands feel numb.
 - I'm wobbly on my feet.
-- I feel terrorized by no-one and everyone. 
+- I feel terrorized by everyone and no-one.
 - Its horrendous.
-- Am I ingesting strong anxiety-forming substances through my water now; like a stronger hallucinogen than normal, something which is exacerbating the reasonable anxiety I have?
+- Am I ingesting strong anxiety-forming substances through my water now; like a stronger hallucinogen than normal, something on top of the daily mandrake dose which is exacerbating the reasonable anxiety I have?
 
 ### Practicing the piano 
 
