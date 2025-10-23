@@ -345,15 +345,12 @@
 
 ### Devastated parents 
 
-- At Knowhere I ask to borrow a paper shredder.
-- I destroy stacks of my financial paperwork as I'm very concerned about my Coinbase account and believe I could be robbed in any manner.
-- At lunchtime, I set off to practice the piano at the conservatory.
-- On the way, I take a detour to the Carmelite church on the Carrer Loreto.
+- Returning to work, I decide to take a detour to the Carmelite church on the Carrer Loreto to light a candle for myself.
 
 ![Church](../../../content/images/church-narcis.jpg)
 
 - A middle-aged couple is praying together at the front of the church; they are crying softly.
-- They carry a picture of a young girl; a daughter they lost to the sex-slave industry, maybe?
+- They carry a picture of a young girl; a daughter they lost to the porn-gangs.
 
 ![Devastated parents](../../../content/images/devastated-parents-2.png)
 
@@ -380,6 +377,8 @@
 
 ### Knowhere big blokes
 
+- At Knowhere I ask to borrow a paper shredder.
+- I destroy stacks of my financial paperwork as I'm very concerned about my Coinbase account and believe I could be robbed in any manner.
 - I had been working at Knowhere that day before going in to practice.
 - I went back to work
 - After a while, five big Russian or Ukrainian blokes come in and stand opposite me at the desks. They are pretending to talk about the computer. They are dressed like labourers. They are extremely rough types, five of them.
