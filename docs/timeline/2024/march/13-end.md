@@ -396,6 +396,8 @@
 ### Madrid
 
 - In fear, I leave Dénia to go to Madrid and I stay from 14th-24th March at the AC Hotel Atocha by Marriot.
+- I guess my departure from the town was the main goal from this day, and even Gloria was certain I would leave.
+- Were they hoping I would crash the car I was so high and stressed?
 - I'm so stressed I bang my head really hard on the car boot.
 - As I'm driving out of Denia, the blond woman I saw with the Russian men limps across the road in front of me.
 
