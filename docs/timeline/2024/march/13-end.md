@@ -374,6 +374,7 @@
 
 ![Devastated parents](../../../content/images/devastated-parents-2.png)
 
+- I wonder if she was a musician, or a dancer.
 - I hum the Salve from the back.
 
 ### Knowhere big blokes
