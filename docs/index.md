@@ -33,7 +33,7 @@ The crimes include distribution of spy-cam footage from my apartment where I was
 
 Gang-stalking, cyber-terrorizing, constant online persecution, and poisoning (attempted murder) by criminal gangs has continued since leaving Spain in February 2025.
 
-## Mass voyeurism, cyber-stalking, gang stalking, honey-trapping, and staggering levels of violence against women
+## Mass voyeurism, cyber-stalking, gang stalking, honey-trapping, sedated and spy-cam porn, and staggering levels of violence against women
 
 The report details the following:
 
