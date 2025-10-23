@@ -343,6 +343,22 @@
 - Its horrendous.
 - Am I ingesting strong anxiety-forming substances through my water now; like a stronger hallucinogen than normal, something on top of the daily mandrake dose which is exacerbating the reasonable anxiety I have?
 
+### Devastated parents 
+
+- At Knowhere I ask to borrow a paper shredder.
+- I destroy stacks of my financial paperwork as I'm very concerned about my Coinbase account and believe I could be robbed in any manner.
+- At lunchtime, I set off to practice the piano at the conservatory.
+- On the way, I take a detour to the Carmelite church on the Carrer Loreto.
+
+![Church](../../../content/images/church-narcis.jpg)
+
+- A middle-aged couple is praying together at the front of the church; they are crying softly.
+- They carry a picture of a young girl; a daughter they lost to the sex-slave industry, maybe?
+
+![Devastated parents](../../../content/images/devastated-parents-2.png)
+
+- I hum the Salve from the back.
+
 ### Practicing the piano 
 
 - I leave the Knowhere offices to practice the piano at the conservatory.
@@ -371,22 +387,6 @@
 - I decide to leave Dénia.
 - When I leave the offices about two hours later, they are outside at the exact the moment I step outside the door, surrounding a blond woman I've seen before in Dénia.
 - I decide I need to leave urgently and book a hotel in Madrid.
-
-### Devastated parents 
-
-- At Knowhere I ask to borrow a paper shredder.
-- I destroy stacks of my financial paperwork as I'm very concerned about my Coinbase account and believe I could be robbed in any manner.
-- At lunchtime, I set off to practice the piano at the conservatory.
-- On the way, I take a detour to the Carmelite church on the Carrer Loreto.
-
-![Church](../../../content/images/church-narcis.jpg)
-
-- A middle-aged couple is praying together at the front of the church; they are crying softly.
-- They carry a picture of a young girl; a daughter they lost to the sex-slave industry, maybe?
-
-![Devastated parents](../../../content/images/devastated-parents-2.png)
-
-- I hum the Salve from the back.
 
 ### Spider man
 
