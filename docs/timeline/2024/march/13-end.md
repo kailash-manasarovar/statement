@@ -422,6 +422,7 @@
 ### Spider-man
 
 - At home, I organize my belongings and pack for an extended stay away.
+- It's hard to think straight about anything and my arms and shoulders hurt. 
 - I have wet laundry that needs drying.
 - I take it to the [La Colada laundry](../../2023/november.md#the-laundry) five minutes walk away.
 - I'm heading back to my apartment with my dry laundry.
