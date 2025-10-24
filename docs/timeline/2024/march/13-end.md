@@ -379,15 +379,39 @@
 
 ### Knowhere big blokes
 
-- At Knowhere I ask to borrow a paper shredder.
-- I destroy stacks of my financial paperwork as I'm very concerned about my Coinbase account and believe I could be robbed in any manner.
-- I had been working at Knowhere that day before going in to practice.
-- I went back to work
-- After a while, five big Russian or Ukrainian blokes come in and stand opposite me at the desks. They are pretending to talk about the computer. They are dressed like labourers. They are extremely rough types, five of them.
-- I find it extremely threatening.
-- I decide to leave Dénia.
-- When I leave the offices about two hours later, they are outside at the exact the moment I step outside the door, surrounding a blond woman I've seen before in Dénia.
-- I decide I need to leave urgently and book a hotel in Madrid.
+- At Knowhere I ask the manager to borrow a paper shredder.
+- He finds one for me.
+- I'm so worried about being robbed, I have brought stacks of my personal financial paperwork into the office to destroy.
+- I believe the honey-trappers want all my money.
+- I still have no idea what has happened to the 60K in my Coinbase account.
+- After lunch, and my attempt to practice the piano at the conservatory, I return to Knowhere to work.
+- I'm sitting there quietly.
+- A group of rough Russian or Ukrainian men come in and stand at the opposite desk to me.
+
+![Big blokes threatening me in Knowhere](../../../content/images/threatening-men.png)
+
+- They are pretending to talk about the computer. 
+- It is a totally incongruous scene. 
+- Men like this do not come into offices like this and discuss computers.
+- They are dressed like labourers. 
+- They are extremely rough types, four or five of them.
+- I find it extraordinarily threatening.
+- I decide to leave Dénia immediately and book a hotel in Madrid.
+
+#### Leaving the Knowhere offices
+
+- When I'm ready to leave the offices about two hours later, the same group is right outside the door at the exact the moment I step outside.
+- They walk past.
+- They are surrounding a blond woman I've seen before in Dénia who is walking with them.
+
+![Blokes and woman](../../../content/images/brutes-plus-woman.png)
+
+- They have timed this precisely, knowing my exact location by either my phone or someone in the office.
+
+#### Asking for CCTV of this
+
+- Later, sometime in April I believe, I will text the manager of Knowhere and ask him to save the CCTV of both these events.
+- I give him the exact times and location of these men inside and outside the office.
 
 ### Spider man
 
@@ -677,6 +701,10 @@
     - Could anyone from Dénia be involved in these events? It seems unlikely ...
 
 ## 20th March
+
+### I tell my manager at Polygon
+
+- wip
 
 ### Domingo the piano teacher
 
