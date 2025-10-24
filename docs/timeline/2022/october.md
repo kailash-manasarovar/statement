@@ -75,9 +75,11 @@ function googleTranslateElementInit() {
 ## Cindy
 
 - Another woman, Cindy, walks with us.
-- She has a heart condition which, after being extraordinarily fit and well all of her life, came on all-of-a-sudden one night, then on another night, then another before doctors would do anything about it.
-- She takes pills for it and can't walk up hills.
-- Christine highlighted Cindy to me as being a possible victim by hinting at my ["Who is this?" series](../2024/september.md#who-is-this) with reference to her.
+- She has a heart condition which, after being extraordinarily fit and well all of her life, came on all-of-a-sudden one night - panic attack style - then on another night, then another before doctors would do anything about it.
+- Doctors initially told her it was nothing.
+- She was going to go to the UK for a check up, I believe, and it happened again and they prescribed medication.
+- She takes pills for it, probably digitalis, and now she can't walk up hills.
+- Christine highlighted Cindy to me as being a possible victim of sedated sex assaults by hinting at my ["Who is this?" series](../2024/september.md#who-is-this) with reference to her.
 
 ## Patricia
 
