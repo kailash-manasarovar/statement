@@ -439,15 +439,15 @@
 ### Madrid
 
 - In fear, I leave Dénia and drive to Madrid.
-- I'm so anxious and wobbly on my feet, my arms and hands not working properly, I slam the boot door down onto my own head.
-- I wonder if Gloria and the others expected me to crash the car given how high and anxious I was.
+- I'm horribly anxious, I feel wobbly on my feet, and my arms and hands not working properly.
+- I slam the boot door down onto my own head.
+- I wonder if Gloria and the others expected me to crash the car.
 - I stay from 14th-24th March at the AC Hotel Atocha by Marriott. 
 - It's close to where I have a friend who may help me.
 - My hotel costs run into the thousands but I have no choice.
-- I guess my departure from the town was the main goal from this day, and even Gloria was certain I would leave.
-- As I'm driving out of town, the [blond woman I saw with the brutes outside work](#threatening-men-at-knowhere) limps across the road in front of me in exactly the same way [spider-man did a short while before](#spider-man).
+- As I'm driving out of town, the [blond woman I saw with the brutes outside Knowhere](#threatening-men-at-knowhere) limps across the road in front of me in exactly the same way [spider-man did a short while before](#spider-man), dragging a leg behind her in a mocking manner.
 - Threats continue online.
-- This one hints at conservatory music (Norma) and is possibly alluding to whatever happened to me after [the man blew in my face](#distraction-then-drugging).
+- This one hints at conservatory music (Norma) and is possibly alluding to whatever happened to me after [the man blew in my face](#distraction-then-drugging) with *laryngospasm is nasty*.
 
 [![Laryngoplasty](../../../content/tweets/march-2024/laryngoplasm.png)](https://x.com/1FRGVN/status/1769859075813101947)
 
@@ -455,15 +455,15 @@
 
 [![I live for revenge](../../../content/tweets/march-2024/i-live-for-revenge.png)](https://x.com/1FRGVN/status/1769860927296258167)
 
-- After checking into my hotel in Madrid, I walk to a telecom shop called Movixoz close by and buy a new Android phone for my Spanish SIM, and a small analogue phone.
-- A man in the phone shop appears to know who I am.
-- He says something threatening to me when the shopkeeper wants to know if I want a mobile wallet for the phone and he's using a word I never heard before so I don't understand.
-- A smart man in a suit and tie came in right after me.
-- He says: "cage", as the word I'm looking for.
-- It's not the right word.
-- I feel like I am being followed and tracked in Madrid apart from just online.
-- While I'm in Madrid, I reformat to factory settings both my personal Mac and iPhone.
-- It doesn't appear to make any difference at all as it's obvious to me I'm being cyber-stalked to the same extent as before.
+- After checking into my hotel in Madrid, I walk to a telecom shop called Movixoz close by to buy a new Android phone for my Spanish SIM.
+- A smart man in a suit and tie comes in right behind me and stands with me at the counter.
+- I buy a small analogue phone for emergencies.
+- The shopkeeper wants to know if I want to buy a wallet for the phone. He's using a word I never heard before so I don't understand.
+- The man standing beside me looks at me and says *cage*, in English.
+- I find this extremely threatening given I have been a caged animal for years.
+- The whole time I'm in Madrid, I feel like I am being followed.
+- Back at the hotel, I reformat both my personal Mac and iPhone to factory settings.
+- Once I'm logged in to my accounts, however, it's obvious to me I'm still being cyber-stalked to the same extent as before.
 
 #### Contacting my friend
 
