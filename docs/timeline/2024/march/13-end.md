@@ -427,7 +427,7 @@
 - I take it to the [La Colada laundry](../../2023/november.md#the-laundry) five minutes walk away.
 - As I'm heading back to my apartment with my dry laundry, a sickly-looking man dressed as spider-man is *limping* towards me.
 - His limp is sort of a mock act where he drags one leg behind him.
-- The costume is baggy, it is way too big for him.
+- The costume is baggy; it is way too big for him.
 - He passes me at the gate to my apartment building.
 - He looks at me.
 - I recognize him, but I don't know from where.
