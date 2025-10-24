@@ -377,41 +377,47 @@
 - I wonder if she was a musician, or a dancer.
 - I hum the Salve from the back.
 
-### Knowhere big blokes
+### Threatening men at Knowhere
 
-- At Knowhere I ask the manager to borrow a paper shredder.
+- At the Knowhere offices I ask the French manager to borrow a paper shredder.
 - He finds one for me.
-- I'm so worried about being robbed, I have brought stacks of my personal financial paperwork into the office to destroy.
+- I'm so worried about being robbed, I have brought stacks of my personal financial paperwork into the office from home to destroy.
 - I believe the honey-trappers want all my money.
-- I still have no idea what has happened to the 60K in my Coinbase account.
-- After lunch, and my attempt to practice the piano at the conservatory, I return to Knowhere to work.
+- I still have no idea what has happened to the [60K in my Coinbase account](#did-they-rob-my-crypto-account).
+- After lunch, and my [failed attempt to practice the piano](#practicing-the-piano) at the conservatory, I return to the Knowhere offices to work.
 - I'm sitting there quietly.
-- A group of rough Russian or Ukrainian men come in and stand at the opposite desk to me.
+- A group of very rough-looking Russian or Ukrainian men come in and stand at the opposite desk to me.
 
-![Big blokes threatening me in Knowhere](../../../content/images/threatening-men.png)
+![Big blokes threatening me in Knowhere](../../../content/images/big-russian-brutes-at-knowhere.png)
 
 - They are pretending to talk about the computer. 
 - It is a totally incongruous scene. 
-- Men like this do not come into offices like this and discuss computers.
+- Men like these do not come into serviced co-working spaces to randomly discuss computers.
 - They are dressed like labourers. 
 - They are extremely rough types, four or five of them.
+- Each of them glances at me from time to time.
 - I find it extraordinarily threatening.
-- I decide to leave Dénia immediately and book a hotel in Madrid.
+- I decide to leave Dénia immediately and I book a hotel in Madrid.
 
 #### Leaving the Knowhere offices
 
 - When I'm ready to leave the offices about two hours later, the same group is right outside the door at the exact the moment I step outside.
-- They walk past.
-- They are surrounding a blond woman I've seen before in Dénia who is walking with them.
+- They are walking by in formation.
+- They surround a blond woman I've seen before in Dénia who is walking in step with them.
 
 ![Blokes and woman](../../../content/images/brutes-plus-woman.png)
 
-- They have timed this precisely, knowing my exact location by either my phone or someone in the office.
+- They have timed this precisely; someone directing them knows my exact location by either my phone or from a conspirator in the office who has been waiting for me to leave, or both probably.
+- The woman looks like a nurse who used to [sing in Klara Sarkadi's choir back in 2013](../../../crimes/introduction-agents.md#klara-sarkadi) just before [I met Mercedes there and she suggested I study the piano at the conservatory](../../early-years/2013.md#meeting-mercedes).
 
-#### Asking for CCTV of this
+#### Asking for the CCTV of the men
 
-- Later, sometime in April I believe, I will text the manager of Knowhere and ask him to save the CCTV of both these events.
+- Later, sometime in April I believe (I will confirm with supporting documentation in due course), I text and email the manager of Knowhere and ask him to save the CCTV of both these events.
+- I tell him I'm being terrorized by people in the town.
+- He doesn't believe I am who I say I am, and he blocks me on WhatsApp.
+- I email instead.
 - I give him the exact times and location of these men inside and outside the office.
+- I gift the remaining days I paid for to an old and very dear friend who I noticed was in the pictures on the walls of people who regularly use the offices.
 
 ### Spider man
 
