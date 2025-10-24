@@ -419,14 +419,18 @@
 - I give him the exact times and location of these men inside and outside the office.
 - I gift the remaining days I paid for to an old and very dear friend who I noticed was in the pictures on the walls of people who regularly use the offices.
 
-### Spider man
+### Spider-man
 
-- I start to organize my belongings for an extended stay away.
-- I have wet laundry that I need to dry.
-- I go to the La Colada.
-- I'm heading back to my apartment.
-- A man dressed as spider man is limping towards me.
-- I recognize him.
+- At home, I organize my belongings and pack for an extended stay away.
+- I have wet laundry that needs drying.
+- I take it to the [La Colada laundry](../../2023/november.md#the-laundry) five minutes walk away.
+- I'm heading back to my apartment with my dry laundry.
+- A man dressed as spider-man is limping towards me.
+- He passes me at the gate to my apartment building.
+- He looks at me.
+- I recognize him, but I don't know from where.
+
+![Spider-man](../../../content/images/spider-man.png)
 
 ### Madrid
 
