@@ -434,6 +434,8 @@
 
 ![Spider-man](../../../content/images/spider-man.png)
 
+- He looked a little bit like [the man who bared his teeth at me in Samui](../../2025/january.md#samui), but a lot more like the man I saw at the Chinese superstore with [the toddlers dressed up as porn stars](../../2022/november.md#a-sexualized-4-year-old-at-the-chinese-bazaar).
+
 ### Madrid
 
 - In fear, I leave Dénia to go to Madrid and I stay from 14th-24th March at the AC Hotel Atocha by Marriot.
