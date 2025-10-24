@@ -332,7 +332,8 @@ function googleTranslateElementInit() {
 - I start to wonder if he works as a computer technician at the conservatory.
 - Inside the shop, the Chinese man clearly recognizes me.
 - He can hardly stop smiling and grinning at me.
-- His female counterpart keeps her head down and doesn't look at me at all.
+- His female counterpart keeps her head down and doesn't look at me at all. 
+- She looks ashamed.
 
 !!! tip "This may be nothing but..."
     - As I was searching for the address of the shop, I looked up experts, and this [name and link came up](https://www.einforma.com/informacion-empresa/lopez-moreno-juan-david).

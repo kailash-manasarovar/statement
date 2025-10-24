@@ -464,6 +464,8 @@
 - The whole time I'm in Madrid, I feel like I am being followed.
 - Back at the hotel, I reformat both my personal Mac and iPhone to factory settings.
 - Once I'm logged in to my accounts, however, it's obvious to me I'm still being cyber-stalked to the same extent as before.
+- I wonder if the Chinese telecommunications shops all over Spain are implicated in the cyber-stalking epidemic, and to what extent?
+- I remember how obvious it was the [shopkeeper in the telecommunications shop in the Calle Diana](../../2023/october.md#telecommunications-shop) knew who I was and not in a good way.
 
 #### Contacting my friend
 
