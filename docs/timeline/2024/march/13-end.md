@@ -438,29 +438,53 @@
 
 ### Madrid
 
-- In fear, I leave Dénia to go to Madrid and I stay from 14th-24th March at the AC Hotel Atocha by Marriot.
+- In fear, I leave Dénia and drive to Madrid.
+- I'm so anxious and wobbly on my feet, my arms and hands not working properly, I slam the boot door down onto my own head.
+- I wonder if Gloria and the others expected me to crash the car given how high and anxious I was.
+- I stay from 14th-24th March at the AC Hotel Atocha by Marriott. 
+- It's close to where I have a friend who may help me.
+- My hotel costs run into the thousands but I have no choice.
 - I guess my departure from the town was the main goal from this day, and even Gloria was certain I would leave.
-- Were they hoping I would crash the car I was so high and stressed?
-- I'm so stressed I bang my head really hard on the car boot.
-- As I'm driving out of Denia, the blond woman I saw with the Russian men limps across the road in front of me.
+- As I'm driving out of town, the [blond woman I saw with the brutes outside work](#threatening-men-at-knowhere) limps across the road in front of me in exactly the same way [spider-man did a short while before](#spider-man).
+- Threats continue online.
+- This one hints at conservatory music (Norma) and is possibly alluding to whatever happened to me after [the man blew in my face](#distraction-then-drugging).
 
-!!! important
-    - My hotel costs run into the thousands but I feel I have no choice.
+[![Laryngoplasty](../../../content/tweets/march-2024/laryngoplasm.png)](https://x.com/1FRGVN/status/1769859075813101947)
 
-- The threats continue: https://x.com/1FRGVN/status/1769859075813101947.
-- More threats: https://x.com/1FRGVN/status/1769860927296258167.
-- When I get to Madrid, I buy a new Android phone for my Spanish SIM and a small analogue phone at a shop called Movixoz. A man in the phone shop appears to know who I am and says something threatening to me.
-- I am followed and tracked in Madrid. 
-- Things that I say to my friend at lunch are repeated on fake account profiles later on. This happens every time I go to Madrid to see my friend.
-- I write a letter **by hand** to my parents and I date it the following morning. This is the first contact with them for nearly 3 years.
-    - [Letter to parents of 15th March](../../../content/documents/letters/letter-to-parents-march-15.pdf).
-- I explain I'm being terrorized and by whom. I try to keep it calm because my parents are elderly, and I don't know how things are with them. I don't want to upset them too much.
-- I tell them I believe that Domingo and his family are planning to murder me.
-- I remind them of what he told me all those years ago, the threat of poisoning, something that I had told them at that time.
-- While I'm in Madrid I reformat to factory settings both my Mac and iPhone. It doesn't appear to make any difference at all.
-- I contact my friend I saw at [Christmas 2022](../../2022/december.md#madrid) and [Christmas 2023](../../2023/december.md#madrid).
+- This one feels like a direct threat.
+
+[![I live for revenge](../../../content/tweets/march-2024/i-live-for-revenge.png)](https://x.com/1FRGVN/status/1769860927296258167)
+
+- After checking into my hotel in Madrid, I walk to a telecom shop called Movixoz close by and buy a new Android phone for my Spanish SIM, and a small analogue phone.
+- A man in the phone shop appears to know who I am.
+- He says something threatening to me when the shopkeeper wants to know if I want a mobile wallet for the phone and he's using a word I never heard before so I don't understand.
+- A smart man in a suit and tie came in right after me.
+- He says: "cage", as the word I'm looking for.
+- It's not the right word.
+- I feel like I am being followed and tracked in Madrid apart from just online.
+- While I'm in Madrid, I reformat to factory settings both my personal Mac and iPhone.
+- It doesn't appear to make any difference at all as it's obvious to me I'm being cyber-stalked to the same extent as before.
+
+#### Contacting my friend
+
+- I contact an old friend, Inma, and tell her everything I know.
+- I saw her at [Christmas 2022](../../2022/december.md#madrid) and at [Christmas 2023](../../2023/december.md#madrid).
+- I'm constantly coughing and I can hardly speak.
+- Things that I say to my friend whenever we meet are repeated on fake account profiles later on.
+- This happens every time I go to Madrid to see my friend.
 - I tell her that I'm experiencing the hostile cyber-stalking flying-monkey attacks that she told me her sister was experiencing too, and I tell her what teachers and staff at the conservatory have done also.
-- She advises we go to the police the following morning.
+- She suggests we go to the police the following morning.
+
+#### Writing to my parents
+
+- That night, I write a letter **by hand** to my parents (so no-one can see what I'm saying) and I date it the following morning and send it by registered mail.
+- This is the first contact I have had with them for nearly 3 years.
+    - [Letter to parents of 15th March](../../../content/documents/letters/letter-to-parents-march-15.pdf).
+- I explain I'm being terrorized and by whom.
+- I try to keep my letter calm because my parents are elderly, and I don't know how things are with them. 
+- I don't want to upset them too much.
+- I tell them I believe that Domingo and his family are planning to murder me.
+- I remind them of what he told me all those years ago, the threat of poisoning, something that I had told them both at that time, and some friends too.
 
 ## 15th March
 
