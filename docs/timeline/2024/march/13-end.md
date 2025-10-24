@@ -440,7 +440,7 @@
 
 - In fear, I leave Dénia and drive to Madrid.
 - I'm horribly anxious, I feel wobbly on my feet, and my arms and hands not working properly.
-- I slam the boot door down onto my own head.
+- I slam the boot door down hard onto my own head by accident.
 - I wonder if Gloria and the others expected me to crash the car.
 - I stay from 14th-24th March at the AC Hotel Atocha by Marriott. 
 - It's close to where I have a friend who may help me.
@@ -455,17 +455,18 @@
 
 [![I live for revenge](../../../content/tweets/march-2024/i-live-for-revenge.png)](https://x.com/1FRGVN/status/1769860927296258167)
 
-- After checking into my hotel in Madrid, I walk to a telecom shop called Movixoz close by to buy a new Android phone for my Spanish SIM.
+- After checking into my hotel in Madrid, I walk to a telecom shop called Movixoz close by.
 - A smart man in a suit and tie comes in right behind me and stands with me at the counter.
-- I buy a small analogue phone for emergencies.
+- I buy a new Android phone and a small analogue phone for emergencies.
 - The shopkeeper wants to know if I want to buy a wallet for the phone. He's using a word I never heard before so I don't understand.
-- The man standing beside me looks at me and says *cage*, in English.
-- I find this extremely threatening given I have been a caged animal for years.
+- The man standing beside me looks at me and says, **cage**, in English.
+- It's not the right word in Spanish or in English.
+- I find this event extremely threatening given I have been a caged animal for years.
 - The whole time I'm in Madrid, I feel like I am being followed.
 - Back at the hotel, I reformat both my personal Mac and iPhone to factory settings.
 - Once I'm logged in to my accounts, however, it's obvious to me I'm still being cyber-stalked to the same extent as before.
 - I wonder if the Chinese telecommunications shops all over Spain are implicated in the cyber-stalking epidemic, and to what extent?
-- I remember how obvious it was the [shopkeeper in the telecommunications shop in the Calle Diana](../../2023/october.md#telecommunications-shop) knew who I was and not in a good way.
+- I remember how obvious it was the [shopkeeper in the telecommunications shop in the Calle Diana](../../2023/october.md#telecommunications-shop) knew who I was, and also not in a good way.
 
 #### Contacting my friend
 
