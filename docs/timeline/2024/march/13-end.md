@@ -474,16 +474,19 @@
 - Are Spain’s online networks run entirely by porn-sick men supported by Chinese telecommunication shop specialists?
 - Is the end goal like trans ideology elsewhere; weaken a country's populace with sexual perversion?
 
-#### Contacting my friend
+#### Contacting my friend Inma
 
-- I contact an old friend who lives nearby, Inma.
+- I contact an old friend who lives in Madrid, Inma.
+- We've known each other for many years. 
+- We attended a trauma healing workshop together in 2005 in Barcelona run by an ex-manager of the Grateful Dead, Sat Santokh, and we mostly stayed in touch, although I had no contact while I was suicidally depressed over the years 2015-2022.
 - I tell her everything I know, in the way I understand it at that time.
-- She is the same lady I met at [Christmas 2022](../../2022/december.md#madrid) and at [Christmas 2023](../../2023/december.md#madrid).
+- I tell her that I'm experiencing the same hostile cyber-stalking flying-monkey attacks that she told me her sister was experiencing when we met for dinner in December 2022.
+- I tell her about what teachers and staff at the conservatory have done also.
+- She is the same friend I met at [Christmas 2022](../../2022/december.md#madrid) and at [Christmas 2023](../../2023/december.md#madrid), so she knows something about what's going on already.
 - I'm coughing constantly; I can hardly speak.
-- Things that I say to my friend whenever we meet are repeated on fake account profiles later on.
-- This happens every time I go to Madrid to see my friend.
-- I tell her that I'm experiencing the hostile cyber-stalking flying-monkey attacks that she told me her sister was experiencing too, and I tell her what teachers and staff at the conservatory have done also.
-- She suggests we go to the police the following morning.
+- Things we chat about whenever we meet are repeated on fake X account profiles later on in the day. 
+- This happens every time I visit my friend in Madrid.
+- She suggests we go to the gender-violence police department the following morning.
 
 #### Writing to my parents
 
@@ -501,6 +504,7 @@
 ### Reporting the matter to the police in Madrid
 
 - With the help of my friend I make a proper denuncia to the police in Madrid.
+- Inma tells me of some unusual events online at her home.
 - The report goes well, although I am finding it very difficult to think straight, and my friend's translations and the consequent additions to the denuncia documents are not quite right.
 
     - [Denuncia page 1](../../../content/documents/evidence/Madrid%201.JPG).
