@@ -471,7 +471,8 @@
 - I wonder if the Chinese telecommunications shops all over Spain are implicated in the cyber-stalking epidemic, and to what extent?
 - I remember how obvious it was the [shopkeeper in the telecommunications shop in the Calle Diana](../../2023/october.md#telecommunications-shop) knew who I was, and not in a good way.
 - Did my new Android phone come hardware-hacked off the shelf?
-- Are Spain's online networks run entirely by porn-sick men?
+- Are Spain’s online networks run entirely by porn-sick men supported by Chinese telecommunication shop specialists?
+- Is the end goal like trans ideology elsewhere; weaken a country's populace with sexual perversion?
 
 #### Contacting my friend
 
