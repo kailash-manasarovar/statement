@@ -3,7 +3,7 @@
 ## Wednesday 13th March 
 
 - I wake up and leave for the [serviced offices](https://www.knowheredenia.com/) in Dénia where I'm having to work due to hacking.
-- Before I go, I post my feelings about the [previous night](1-12.md#the-piano-concert) extraordinary spectacle on X.
+- Before I go, I post my feelings about the [previous night's](1-12.md#the-piano-concert) extraordinary spectacle on X.
 
 [![The truth of the matter](../../../content/tweets/march-2024/the-truth.png)](https://x.com/1FRGVN/status/1767831951627431972)
 
