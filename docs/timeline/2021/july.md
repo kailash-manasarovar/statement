@@ -8,40 +8,15 @@ function googleTranslateElementInit() {
 }
 </script>
 
-- I stay in Lourdes, France for the whole of 2021, in the hope I may heal my broken heart. 
-
-![Bernadette](../../content/images/bernadette.jpg)
-
-- I rent a small studio flat at the [Zenitude Acacia](https://www.zenitude-hotel-residences.com/fr_FR/residence/lourdes/121), 1 A Chemin de Lannedarré, 65100 Lourdes.
-- I move in at the beginning of January.
-
-## The Portuguese man next door 
-
-- From time to time, a man visits and he stays in the apartment next to mine - or he has access to it because I see him coming and going from there.
-- Sometimes, when I'm coming out of my apartment, he comes out of the one beside mine at exactly the same time, and he always looks at me.
-- He makes sure I see his face. He needs me to [recognize him in the future](../../crimes/protagonists/vidal-sastre.md#the-younger-brother-of-the-first-man).
-- The reception staff know him to be Portuguese. 
-- He looks like the trumpet teacher, except I'm not to meet the trumpet teacher for 18-24 months still.
-- Whenever he visited, on usually a Sunday or Monday night, he got together with some of the younger men there and they had loud drinking sessions into the night with loud music.
-- The staff at the Acacia will remember him; as will the male residents who drank with him, some of whom I will know too.
-- Was he sent by British criminal gangs to hack into my home network?
-
-!!! tip "Thoughts on this startling realization"
-    - Gypsies usually speak multiple languages fluently, and I suspect it would not be hard to convince the French staff he was Portuguese not Spanish, except for identification documents.
-    - It appears this man, or the gang he works for, have been tracking and stalking me for years; this being more proof of that.
-    - My suspicions are that he came to access my network and online activity at that time, and possibly needed to be close enough physically to do so because I was running a 4g router that pinged off a French telecommunications tower.
-    - I'm also now wondering if he managed to gain access to my room too.
-    - I'm curious about an unwell feeling I had the day I left for holiday in Spain, and the invasive bed bug problem, a situation which prompted me to change all my plans for Christmas and go to Dénia instead, where I found and rented the flat in Carrer Furs ... and the rest is history in the making.
-
 ## Dénia holiday
 
 - I go to Dénia for my summer holiday. I wonder now if that was "suggested" online to me.
 - The day I leave I feel extremely unwell in a weird way, not sick exactly but nothing is working properly. I feel heavy, tired, and unwell. My eyesight is straining and I feel a little nauseous. Thinking back, it is rather like the poisoned feeling I often had in Dénia in my apartment.
-- During my trip, I meet Christine for lunch a couple of times. She tells me her views on trans ideology and I quietly agree. 
+- During my trip, I meet Christine BJ for lunch a couple of times. She tells me her views on trans ideology and I quietly agree. 
 - I share with her that I am a child sexual abuse survivor of a grooming gang. I also tell her that I probably would be trans and removing my breasts, womb, and ovaries had I been born 30 years later.
 - I tell Christine I have been suffering from a debilitating depression after reporting child sexual abuse to the Met Police in 2016.
-- I also tell Christine that Lorraine Blackbourn just committed suicide. 
-- She pretends not to know.
+- I also tell Christine BJ that Lorraine Blackbourn just committed suicide. 
+- She pretends not to know about this.
 
 ### The tiny Ecuadorian woman
 
@@ -57,7 +32,7 @@ function googleTranslateElementInit() {
 - She wanted to tell me this; and somehow she did.
 - Maybe she also wanted to tell me the truth about Lorraine; that probably everyone knows.
 
-### Lorraine Blackbourn
+## Lorraine Blackbourn commits suicide
 
 - [Lorraine Blackbourn](../early-years/2008.md#working-for-lorraine-blackbourn) killed herself the week I visited and her funeral was on or around the day I arrived. 
 - A few days after that, I was coming back from the Las Marinas beach towards the Daniya hotel where I was staying.
