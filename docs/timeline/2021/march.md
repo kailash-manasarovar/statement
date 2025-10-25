@@ -40,7 +40,7 @@ function googleTranslateElementInit() {
 - Anita Diamond is also working as a technical write for the company.
 - This is a huge coincidence - or is it?
 - I'm very surprised to see Anita, an old and dear friend who has suffered from mental health issues ever since she was a teenager.
-- I remember her being rather unpleasant with me previously so I'm not delighted to see her. It is very weird though.
+- I remember [her being rather unpleasant with me previously](../early-years/2006.md#matthew-and-anita-say-something-i-only-mentioned-online) so I'm not delighted to see her. It is very weird though.
 - Anyway, we do reconnect, and I'm friendly and happy to see her.
 - However, she keeps mentioning things related to me being targeted by the North London rape gangs, and, as she says these things - *oh you loved the rave scene didn't you*, etc, I believe she is doing it to upset me.
 - I file it away.
