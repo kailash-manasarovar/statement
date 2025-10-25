@@ -462,7 +462,7 @@
 - A smart man in a suit and tie comes in right behind me and stands with me at the counter.
 - I buy a new Android phone and a small analogue phone for emergencies.
 - The shopkeeper wants to know if I want to buy a wallet for the phone. He's using a word I never heard before so I don't understand.
-- The man standing beside me looks at me and says, **cage**, in English.
+- The man standing beside me looks at me and says, **cage**, in English in a weirdly meaningful tone.
 - It's not the right word in Spanish or in English.
 - I find this event extremely threatening given I have been a caged animal for years in Dénia.
 - The whole time I'm in Madrid, I feel like I am being followed.
