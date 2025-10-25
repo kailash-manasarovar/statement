@@ -67,7 +67,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 #### The younger brother of the first man
 
 - He was the man [Patricia Penny *introduced* me to in Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class.
-- He was the man that [stalked me at Lourdes](../../timeline/2021/july.md#the-portuguese-man-next-door).
+- He was the man that [stalked me at Lourdes](../../timeline/2021/march.md#the-portuguese-man-next-door).
 - I don't have a picture of this man but would recognize him immediately.
 
 #### Mark from English class in 2013

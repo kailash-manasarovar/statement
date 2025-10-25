@@ -476,9 +476,10 @@
 
 #### Contacting my friend
 
-- I contact an old friend, Inma, and tell her everything I know.
-- I saw her at [Christmas 2022](../../2022/december.md#madrid) and at [Christmas 2023](../../2023/december.md#madrid).
-- I'm constantly coughing and I can hardly speak.
+- I contact an old friend who lives nearby, Inma.
+- I tell her everything I know, in the way I understand it at that time.
+- She is the same lady I met at [Christmas 2022](../../2022/december.md#madrid) and at [Christmas 2023](../../2023/december.md#madrid).
+- I'm coughing constantly; I can hardly speak.
 - Things that I say to my friend whenever we meet are repeated on fake account profiles later on.
 - This happens every time I go to Madrid to see my friend.
 - I tell her that I'm experiencing the hostile cyber-stalking flying-monkey attacks that she told me her sister was experiencing too, and I tell her what teachers and staff at the conservatory have done also.

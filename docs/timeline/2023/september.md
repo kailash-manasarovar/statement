@@ -538,7 +538,7 @@ function googleTranslateElementInit() {
 - One day I smiled at her and she got really scared, really quickly, and I knew.
 - These two were at the [piano concert](../2024/march/1-12.md#tuesday-12th-march) at the Casa de Cultura on 12th March 2024.
 - They sat right behind me.
-- The woman dressed up as [Lorraine Blackbourn](../2021/july.md#lorraine-blackbourn) in the most [outrageous and vicious psychological attack](../2024/march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) that I experienced at the hands of teachers and staff from the conservatory of Dénia.
+- The woman dressed up as [Lorraine Blackbourn](../2021/july.md#lorraine-blackbourn-commits-suicide) in the most [outrageous and vicious psychological attack](../2024/march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) that I experienced at the hands of teachers and staff from the conservatory of Dénia.
 
 ### Rape-gang reminders
 
