@@ -439,15 +439,15 @@
 ### Madrid
 
 - In fear, I leave Dénia and drive to Madrid.
-- I'm horribly anxious, I feel wobbly on my feet, and my arms and hands not working properly.
+- I'm horribly anxious; I feel wobbly on my feet, and my arms and hands ache and don't seem to work properly.
 - I slam the boot door down hard onto my own head by accident.
-- I wonder if Gloria and the others expected me to crash the car.
+- I wonder if Gloria and the others expected me to crash the car. It's a 450km drive to Madrid.
 - I stay from 14th-24th March at the AC Hotel Atocha by Marriott. 
-- It's close to where I have a friend who may help me.
+- It's close to where I have a friend; the only person I know in Spain who might be able to help me.
 - My hotel costs run into the thousands but I have no choice.
 - As I'm driving out of town, the [blond woman I saw with the brutes outside Knowhere](#threatening-men-at-knowhere) limps across the road in front of me in exactly the same way [spider-man did a short while before](#spider-man), dragging a leg behind her in a mocking manner.
 - Threats continue online.
-- This one hints at conservatory music (Norma) and is possibly alluding to whatever happened to me after [the man blew in my face](#distraction-then-drugging) with *laryngospasm is nasty*.
+- This one hints at conservatory music ([Norma](../../2023/november.md#chamber-music)) and may be alluding to whatever happened to me after [the man blew in my face](#distraction-then-drugging) with *laryngospasm is nasty*.
 
 [![Laryngoplasty](../../../content/tweets/march-2024/laryngoplasm.png)](https://x.com/1FRGVN/status/1769859075813101947)
 
@@ -461,12 +461,13 @@
 - The shopkeeper wants to know if I want to buy a wallet for the phone. He's using a word I never heard before so I don't understand.
 - The man standing beside me looks at me and says, **cage**, in English.
 - It's not the right word in Spanish or in English.
-- I find this event extremely threatening given I have been a caged animal for years.
+- I find this event extremely threatening given I have been a caged animal for years in Dénia.
 - The whole time I'm in Madrid, I feel like I am being followed.
-- Back at the hotel, I reformat both my personal Mac and iPhone to factory settings.
+- Back at the hotel, I set up the new Android and reformat both my personal Mac and iPhone to factory settings.
 - Once I'm logged in to my accounts, however, it's obvious to me I'm still being cyber-stalked to the same extent as before.
 - I wonder if the Chinese telecommunications shops all over Spain are implicated in the cyber-stalking epidemic, and to what extent?
-- I remember how obvious it was the [shopkeeper in the telecommunications shop in the Calle Diana](../../2023/october.md#telecommunications-shop) knew who I was, and also not in a good way.
+- I remember how obvious it was the [shopkeeper in the telecommunications shop in the Calle Diana](../../2023/october.md#telecommunications-shop) knew who I was, and not in a good way.
+- Did my new Android phone come hardware-hacked off the shelf?
 
 #### Contacting my friend
 
