@@ -32,7 +32,7 @@ function googleTranslateElementInit() {
 - She wanted to tell me this; and somehow she did.
 - Maybe she also wanted to tell me the truth about Lorraine; that probably everyone knows.
 
-## Lorraine Blackbourn commits suicide
+### Lorraine Blackbourn commits suicide
 
 - [Lorraine Blackbourn](../early-years/2008.md#working-for-lorraine-blackbourn) killed herself the week I visited and her funeral was on or around the day I arrived. 
 - A few days after that, I was coming back from the Las Marinas beach towards the Daniya hotel where I was staying.
