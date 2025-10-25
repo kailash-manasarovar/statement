@@ -445,7 +445,7 @@
 - I stay from 14th-24th March at the AC Hotel Atocha by Marriott. 
 - It's close to where I have a friend; the only person I know in Spain who might be able to help me.
 - My hotel costs run into the thousands but I have no choice.
-- As I'm driving out of town, the [blond woman I saw with the brutes outside Knowhere](#threatening-men-at-knowhere) limps across the road in front of me in exactly the same way [spider-man did a short while before](#spider-man), dragging a leg behind her in a mocking manner.
+- As I'm driving out of town, the [blond woman I saw with the brutes outside Knowhere](#leaving-the-knowhere-offices) limps across the road in front of me in exactly the same way [spider-man did a short while before](#spider-man), dragging a leg behind her in a mocking manner.
 
 ![Quasi-modo-lady](../../../content/images/quasi-modo-lady.png)
 
