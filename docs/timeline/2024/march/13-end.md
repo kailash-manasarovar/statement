@@ -446,7 +446,10 @@
 - It's close to where I have a friend; the only person I know in Spain who might be able to help me.
 - My hotel costs run into the thousands but I have no choice.
 - As I'm driving out of town, the [blond woman I saw with the brutes outside Knowhere](#threatening-men-at-knowhere) limps across the road in front of me in exactly the same way [spider-man did a short while before](#spider-man), dragging a leg behind her in a mocking manner.
-- Threats continue online.
+
+![Quasi-modo-lady](../../../content/images/quasi-modo-lady.png)
+
+- Threats continue online. It took a few days for me to collect myself enough to start screen-shotting these.
 - This one hints at conservatory music ([Norma](../../2023/november.md#chamber-music)) and may be alluding to whatever happened to me after [the man blew in my face](#distraction-then-drugging) with *laryngospasm is nasty*.
 
 [![Laryngoplasty](../../../content/tweets/march-2024/laryngoplasm.png)](https://x.com/1FRGVN/status/1769859075813101947)
@@ -468,6 +471,7 @@
 - I wonder if the Chinese telecommunications shops all over Spain are implicated in the cyber-stalking epidemic, and to what extent?
 - I remember how obvious it was the [shopkeeper in the telecommunications shop in the Calle Diana](../../2023/october.md#telecommunications-shop) knew who I was, and not in a good way.
 - Did my new Android phone come hardware-hacked off the shelf?
+- Are Spain's online networks run entirely by porn-sick men?
 
 #### Contacting my friend
 
