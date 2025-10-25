@@ -478,7 +478,7 @@
 
 - I contact an old friend who lives in Madrid, Inma.
 - We've known each other for many years. 
-- We attended a trauma healing workshop together in 2005 in Barcelona run by an ex-manager of the Grateful Dead, Sat Santokh, and we mostly stayed in touch, although I had no contact while I was suicidally depressed over the years 2015-2022.
+- We attended a trauma healing workshop together in 2005 in Barcelona run by an ex-manager of the Grateful Dead, Sat Santokh, and we mostly stayed in touch, although I had no contact with her while I was suicidally depressed over the years 2015-2022.
 - I tell her everything I know, in the way I understand it at that time.
 - I tell her that I'm experiencing the same hostile cyber-stalking flying-monkey attacks that she told me her sister was experiencing when we met for dinner in December 2022.
 - I tell her about what teachers and staff at the conservatory have done also.
