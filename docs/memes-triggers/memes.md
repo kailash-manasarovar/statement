@@ -20,7 +20,7 @@ function googleTranslateElementInit() {
 
 [![Garbure meme](../content/images/garbure-meme.png)](https://x.com/search?q=(from%3A1frgvn)%20garbure&src=typed_query&f=live)
 
-- I certainly felt that Mary was on my side helping me deal with these people, and undoubtedly this was Hers and Saint Bernadette's battle-cry.
+- I certainly felt that Mary was on my side helping me deal with these people, and undoubtedly this was mine, Hers, and Saint Bernadette's battle-cry.
 - Here's a poll about garbure from December 2023.
 
 [![A garbure poll from December 2023](../content/tweets/memes/garbure-in-the-morning.png)](https://x.com/1FRGVN/status/1740831827743670449)
