@@ -59,3 +59,14 @@ function googleTranslateElementInit() {
 - Later on the images morphed into actual humans.
 - I'm guessing it was either related to the hacker dealing with me directly, or..
 - It was a demo of one of the common ways they target kids online.
+
+## Coffee
+
+- This was an early days phrase repeated at the conservatory and regarding Domingo's repeated [coffee dates](../timeline/early-years/2014.md#first-piano-class-at-the-end-end-of-september) in2014, and requests for them, and my subsequent complaint about this to [Joan Carles](../timeline/early-years/2015.md#joan-carles) when I had zero idea that my apartment was spy-cammed up and men were gaining entry to it without my knowledge.
+
+## Father
+
+- *Father* was a regular repeated *meme* online and at the conservatory.
+- Alfonso, the harmony teacher in 2023-24 used it a fair bit.
+- I always assumed it was due to the trumpet teacher being the father of two daughters (as I had seen on the Facebook page of one of the men in December 2022).
+- Obviously, this is not the story that teachers and staff at the conservatory would have had about the trumpet teacher fake narrative, so it's worth considering why this *meme* was important.
