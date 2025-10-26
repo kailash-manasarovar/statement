@@ -35,7 +35,7 @@ function googleTranslateElementInit() {
 - They know this too.
 - The only explanation is a mass criminal psychopathy hysteria.
 - Unless, of course, this is a common occurrence in Spain, and everyone knows who the targets are, everyone is told about them, in fact, and I'm the only person who has put up a worthy fight.
-- This is the scary option because it means they expect it, welcome it even, and explains why no-one helped me.
+- This is the scary option because it means they expect it, welcome it even, and it explains why no-one helped me and indeed made sure I knew they all thought I deserved whatever was happening to me.
 
 ## Batman and little girl
 
