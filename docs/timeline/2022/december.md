@@ -19,8 +19,10 @@ function googleTranslateElementInit() {
 - However, it was impossible to know how to deal with it.
 - I felt I was in a situation I could do nothing about at that time, except see what happened.
 - At some point I looked the trumpet teacher up online and found his Facebook page.
-- There was a picture of him, with two young girls. The three of them looked embarrassed, as if they didn't want to be in the picture. 
-- There were some messages from people on his Facebook saying "look how much they've grown" so I assumed they were his daughters
+- The Facebook account name was *Vidal Sastre Sanchez Hornero*.
+- There was a picture of him in a dirty brown leather jacket rather like the one he wore to classes, and two young girls. The three of them looked embarrassed, as if they didn't want to be in the picture. 
+- There were some messages from people on his Facebook saying "look how much they've grown" so I assumed they were his daughters.
+- The man I saw on Facebook with the two young girls was, I think, [trumpet teacher two](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013), but with longer hair.
 - I heard him tell my classmate Pablo - and when I asked him later he also told me - he was a secondary school teacher teaching music in the outskirts of Valencia, some 8kms away from the center of the city. I can't remember the name of the town he said, but it began with B.
 - I found no record of him teaching at any secondary school online.
 - When I looked at his Facebook page again over Christmas it appeared that he had deleted it, or blocked me, I was not familiar with how Facebook works.
