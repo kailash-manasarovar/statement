@@ -16,7 +16,7 @@ function googleTranslateElementInit() {
 - Once I realized I was being full-on cyber-stalked ([12th June 2023](../timeline/2023/june.md#monday-12th-june-2023)) and was recognizing the patterns, I made every attempt to fight back. 
 - Lately I'm probably ahead.
 - *I love the smell of garbure in the morning*, is my favorite proprietary meme.
-- Garbure is a local dish from the Pyrenees and you can smell it being prepared in Lourdes every the morning. 
+- Garbure is a local dish from the Pyrenees and you can smell it being prepared in the hotel kitchens in Lourdes every morning. 
 
 [![Garbure meme](../content/images/garbure-meme.png)](https://x.com/search?q=(from%3A1frgvn)%20garbure&src=typed_query&f=live)
 
