@@ -14,7 +14,7 @@ function googleTranslateElementInit() {
 
 - I gave at least as good as I got online, certainly in the early days.
 - Once I realized I was being full-on cyber-stalked ([12th June 2023](../timeline/2023/june.md#monday-12th-june-2023)) and was recognizing the patterns, I made every attempt to fight back. 
-- Lately I'm probably ahead.
+- Lately, I'm probably ahead.
 - *I love the smell of garbure in the morning*, is my favorite proprietary meme.
 - Garbure is a local dish from the Pyrenees and you can smell it being prepared in the hotel kitchens in Lourdes every morning. 
 
