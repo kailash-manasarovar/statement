@@ -86,4 +86,4 @@ function googleTranslateElementInit() {
 - *Father* was a regular repeated *meme* online and at the conservatory.
 - Alfonso, the harmony teacher in 2023-24 used it a fair bit. I wonder if Domingo gave him a full and complete explanation of what it referred to. I suspect not.
 - I always assumed it was due to the trumpet teacher being the father of two daughters (as I had seen on the Facebook page of [one of the men calling himself Vidal Sastre Sanchez Hornero](../timeline/2022/december.md#chamber-music-classes) in December 2022).
-- Obviously, this is not the story that teachers and staff at the conservatory would have had about the trumpet-teacher fake narrative, so it's worth considering why this particular *meme* was important.
+- Obviously, this is not the story that teachers and staff at the conservatory would have had about the trumpet-teacher fake narrative, so it's worth considering why this particular *meme* was important and what it genuinely referred to.
