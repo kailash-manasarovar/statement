@@ -35,7 +35,7 @@ function googleTranslateElementInit() {
 - They know this too.
 - The only explanation is a mass criminal psychopathic hysteria.
 - Unless, of course, this is a common occurrence in Spain, and everyone knows who the targets are, everyone is told about them, in fact, and I'm the only person who has put up a worthy fight.
-- This is the scary option because it means they expect it, welcome it even, and means countless lives have been destroyed in similar circumstances.
+- This is the scary option because it means they expect it, welcome it even, and it also means countless lives have been destroyed in similar circumstances.
 - It also explains why no-one helped me and instead made sure I knew they all thought I was dirt and deserved whatever was happening to me.
 - If I had been aware that this is normal practice and foreign women are major targets, I would have avoided moving to Spain as much as I would have avoided moving to Afghanistan, and for the same reason.
 
