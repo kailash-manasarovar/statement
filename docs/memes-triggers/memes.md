@@ -29,7 +29,7 @@ function googleTranslateElementInit() {
 
 [![Biography title](../content/tweets/memes/garbure-again.png)](https://x.com/1FRGVN/status/1733764096124706962)
 
-- I wonder how it must have been for them to have gone from total certainty about my lack of humanity and the certainty of my doom at their hands, to an inkling something wasn't going the way it usually did, to their stressed states nowadays as the pit of their own making swallows them up.
+- I wonder how it must have been for them to have gone from total certainty about my lack of humanity and the inevitability of my doom at their hands, to an inkling something wasn't going the way it usually did, to their stressed states nowadays as the pit of their own making swallows them up.
 - I also wonder what it must have been like for the righteous silenced and fearful to watch these changes occur, still in marvelous progress.
 - When Mary's with you, and they knew She was with me, nothing can hurt you.
 - They know this too.
