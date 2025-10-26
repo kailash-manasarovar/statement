@@ -10,15 +10,22 @@ function googleTranslateElementInit() {
 
 ## Garbure
 
-- I love the smell of garbure in the morning.
-- Garbure is a local dish of the Pyrenees and you can smell it cooking in Lourdes in the morning. It's a very wonderful smell.
-- https://x.com/search?q=(from%3A1frgvn)%20garbure&src=typed_query&f=live
-- https://x.com/1FRGVN/status/1711312917998538845
+[![I love the smell of garbure in the morning](../content/images/garbure-in-the-morning.png)](https://x.com/1FRGVN/status/1711312917998538845)
+
+- I gave at least as good as I got online, certainly in the early days.
+- Once I realized I was being full-on cyber-stalked ([12th June 2023](../timeline/2023/june.md#monday-12th-june-2023)) and was recognizing the patterns, I made every attempt to fight back. 
+- Lately I'm probably ahead.
+- *I love the smell of garbure in the morning*, is my favorite proprietary meme.
+- Garbure is a local dish from the Pyrenees and you can smell it being prepared in Lourdes every the morning. 
+
+[![Garbure meme](../content/images/garbure-meme.png)](https://x.com/search?q=(from%3A1frgvn)%20garbure&src=typed_query&f=live)
+
+- I certainly felt that Mary was on my side helping me deal with these people, and undoubtedly this was Hers and Saint Bernadette's battle-cry.
 - Here's a poll about garbure from December 2023.
 
 [![A garbure poll from December 2023](../content/tweets/memes/garbure-in-the-morning.png)](https://x.com/1FRGVN/status/1740831827743670449)
 
-- Here's a tweet about my biography.
+- Here's a tweet about how this meme should be the title of my biography.
 
 [![Biography title](../content/tweets/memes/garbure-again.png)](https://x.com/1FRGVN/status/1733764096124706962)
 
@@ -69,4 +76,4 @@ function googleTranslateElementInit() {
 - *Father* was a regular repeated *meme* online and at the conservatory.
 - Alfonso, the harmony teacher in 2023-24 used it a fair bit.
 - I always assumed it was due to the trumpet teacher being the father of two daughters (as I had seen on the Facebook page of one of the men in December 2022).
-- Obviously, this is not the story that teachers and staff at the conservatory would have had about the trumpet teacher fake narrative, so it's worth considering why this *meme* was important.
+- Obviously, this is not the story that teachers and staff at the conservatory would have had about the trumpet-teacher fake narrative, so it's worth considering why this particular *meme* was important.
