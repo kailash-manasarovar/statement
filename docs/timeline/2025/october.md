@@ -17,3 +17,12 @@
 - Sometimes, I believe, they are so insane, they will even post pictures of previous targets in profile pics, perhaps even deceased ones.
 - It is as it is.
 - I believe this activity comes from the Smiths primarily as the language always follows their obvious patterns of communication.
+
+## FiLia
+
+- A Spanish woman sits next to me.
+- We say hello and chat briefly.
+- Her two friends sit with her.
+- The woman leans over and tells her friends, in Spanish, that I am the one they've been looking for, 100% it's me, she says.
+- I wonder if I've misheard her.
+- They leave soon after the talk finishes and do not engage with me further.
