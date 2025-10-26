@@ -14,9 +14,10 @@
 - In the profile messages, I will see related messages and names will reflect people I know from the area.
 - They will try to tempt me into believing they are the man I love, and I admit it worked for a long time - but I did have to be high on whatever was in my water or toiletries for that to happen. 
 - Nevertheless, me falling for their tricks ensured they would share their patterns and secrets with me, so I could write them down.
-- Sometimes, I believe, they are so insane, they will even post pictures of previous targets in profile pics, perhaps even deceased ones.
+- Sometimes, I believe, they are so insane and arrogant, they post pictures of previous targets in profile pics, perhaps even deceased ones.
 - It is as it is.
 - I believe this activity comes from the Smiths primarily as the language always follows their obvious patterns of communication.
+- I will be, in due course, detailing all the women I believe have been targets of the gangs, many of whom I have photos.
 
 ## FiLia
 
