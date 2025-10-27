@@ -51,7 +51,7 @@
 - This is extraordinary.
 - I've never seen anything like it on my JC account which gets no views at all usually.
 - And for this to happen on a tweet about [*strawberries*](../2023/october.md#strawberries).
-- At the time, it appeared to me that the cyber stalkers/hackers have technology that can generate this sort of intense activity on X at the drop of a hat. 
+- At the time, it appeared to me that the cyber-stalkers/hackers have technology that can generate this sort of intense activity on X at the drop of a hat. 
 - I thought about it. It must be expensive technology. 
 - Why would they be using such technology, such resources, to terrorize a lone and vulnerable foreign woman in Dénia? It didn't make any sense.
 - However, if I was actually *already* very famous on spy-cam and sedated *switcheroo* porn networks, amongst others, something even my colleagues at Polygon may have been aware of and subscribing to, this random one-off event makes a lot of sense.
