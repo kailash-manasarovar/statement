@@ -38,7 +38,7 @@
 - I'm back in Dénia on 15th July. 
 - I was not sexually aroused at all while away.
 - After a couple of days back in Dénia, the sexual arousal starts up again.
-- Moreover, communication with the hacker begins again in earnest.
+- Moreover, communication with the hackers begins again in earnest.
 - It starts in a very interesting way.
 - A post comes up on my `@JackChardwood` account referencing [*strawberries*](../2023/october.md#strawberries) on July 17th, and something about staying or leaving. 
 - Readers will remember the importance of [*strawberries*](../2023/october.md#strawberries) and the incident from [October 2023](../2023/october.md#strawberries).
