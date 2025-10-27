@@ -168,6 +168,7 @@
 - I am in Bali from 11th-19th May with work.
 - My hotel room is next to John Michael from IT support. I reported my concerns about hacking to him previously.
 - I notice constant "set up" events, just like in Denia, which mean someone is tracking mine, and other's, movements in order to create "chance" meetings.
+- I seem to have "bumping into" episodes every day; *meaningfully* set up events and situations, or literally bumping into people meaningfully.
 - The first one of these "chance meetings" is with Gabriel Silva on the first morning as I'm leaving my room.
 - Did something happen the night before in my room?
 - The second one is with Alicia a little later.
@@ -176,7 +177,9 @@
 
 ![Bali](../../content/images/bali.png)
 
-- I seem to have "bumping into" episodes every day; *meaningfully* set up events and situations, or literally bumping into people meaningfully.
+- It's clearly very easy to whip up bullies into a frenzy.
+- I wonder what they might think if they knew they were supporting a mass-pedophile baby-rape network, amongst other things, in Denia.
+- I guess they were probably excited and delighted about the sedated *switcheroo* porn; at least the men would have been.
 - I complain to my manager, Paul O'Leary about it - the American CTO who replaced David Z. - referencing an earlier complaint I had made to him.
 - Gabriel Silva, nothing to do with the writing team at that point, mentions how he is going to be sorting out the docs (my work) using other people who are not on the writing team. 
 - It's a military coup; and that's *exactly* how I describe it to my manager Paul.
