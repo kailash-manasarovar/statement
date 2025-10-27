@@ -33,7 +33,7 @@
 - I wake up and feel quite unwell.
 - I've no idea why I might be dreaming about that.
 
-## Evidence of mass cyber stalking technology, or something more sinister
+## Evidence of mass cyber-stalking technology, or something more sinister
 
 - I'm back in Dénia on 15th July. 
 - I was not sexually aroused at all while away.
