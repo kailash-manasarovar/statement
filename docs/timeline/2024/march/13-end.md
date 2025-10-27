@@ -518,6 +518,7 @@
 - I remind them of what Domingo told me all those years ago, [the threat of poisoning](../../early-years/2014.md#poisoned-aunts), something that I had told them and some friends at the time as it was so frightful. 
 - As I read this letter back today, I find that in the middle of this hell-on-earth there is something very loving and kind around and within me that I am expressing with my words.
 - It's really obvious from this letter I had no idea to what extent I had been drugged and poisoned, and for how long.
+- And I have no inkling there could have been [more than one trumpet teacher](../../../crimes/protagonists/vidal-sastre.md#four-distinct-men) either.
 
 ## 15th March
 
