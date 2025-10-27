@@ -51,7 +51,7 @@
 
 ![jorge checks accounts](../../../content/images/jorge.JPG)
 
-#### Chat with Jorge 13th March
+#### Chat with Jorge Wednesday 13th
 
 ??? note "Chat with Jorge 13th March"
     [13/03/2024, 19:40:50] Jorge Esclapez Deckcard23: â€ŽMessages and calls are end-to-end encrypted. No one outside of this chat, not even WhatsApp, can read or listen to them.</br>
@@ -291,7 +291,7 @@
 
 - I finish texting Jorge.
 - Something had interrupted me while I was texting him on my way home from choir the night before.
-- I hadn't got around to sending him the pic I had promised on [Wednesday 13th at 20:14](#chat-with-jorge-13th-march).
+- I hadn't got around to sending him the pic I had promised on [Wednesday 13th at 20:14](#chat-with-jorge-wednesday-13th).
 - I also tell him I think I've been robbed.
 
 ??? note "WhatsApp with Jorge 14th March"
@@ -522,7 +522,7 @@
 - We find an expert in Alicante who is reasonable, and quotes 600 euros for a laptop, phone, and two webcams.
 - My friend helps me [write a letter](../../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf) to David Piñeiro, the technical expert at D.P.R., Arzobispo Loaces, 17, Local 1 - 2, 03003 Alicante.
 
-### Chat with Jorge
+### Chat with Jorge Friday 14th
 
 ??? note "WhatsApp with Jorge 15th March"
     [15/03/2024, 15:57:04] Niramisa Weiss: Hola Jorge do you have any news?
@@ -699,9 +699,22 @@
 - I order a new bank card but I won't be able to use it until I get back to Dénia in April.
 - I decide to change the card PIN numbers on my bank cards in Madrid.
 - This process is extraordinarily difficult, it is as if I don't have the mental capacity to do a simple task like this.
-- It takes me three or four trips to the ATM machine at the banks to finally do it, a whole day in fact.
+- It takes me three or four trips to the ATM machine at the banks to finally complete the task, a whole day in fact.
 - I'm so unbelievably stressed, simple tasks like this are becoming extraordinarily difficult to complete.
 - I'm not at home, and I haven't been at home for 5 days so I wonder now what is continuing to impede my cognitive ability so much.
+
+#### Drugs in my toiletries
+
+- What I was not to realize until December 2024 was that criminal gang members, certainly Carmen Cano but no doubt my neighbors at Carrer Furs and others, were entering my apartment while I wasn't there - my movements being obvious to anyone looking at the spy-cam live-stream and tracking me on my phone.
+- Now I had been terrorized into leaving, they could start the maiming with the intention of blinding at a minimum (so I could be easily robbed) and then eventually murder.
+- My suspicion is low level methanol doses which affected my sight determintally but, worse, decimated my cognitive capacity.
+- This event of not being able to do the most simple task of changing two PIN numbers on bank cards at respective ATMs, was the first time I really noticed my cognitive skills in decline.
+- Prior to March 2024, I was doing detailed and complicated mental tasks at work on a daily basis with no issue.
+- From March 2024, my cognitive skills went into serious decline.
+- I found out, alarmingly, I was unable to play chess anymore in September 2024, and I had been a good player and was able to beat other good players my whole life.
+- I can only assume some deadly substance was added to my toiletries which I continued to ingest while I was away.
+- Another cognitive skill I have completely lost since March 2024 is my spatial awareness, which has been very strange for me as it was excellent prior to being attacked with the intention to maim and kill by Denia criminal porn-gangs and honey-trappers.
+- When I finally realized what was going on, and threw out all my toiletries in Bangkok in December 2024, my sight and health improved immediately. And then I knew for sure.
 
 ### Chat with Jorge
 
