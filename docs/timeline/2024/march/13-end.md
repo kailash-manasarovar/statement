@@ -543,29 +543,6 @@
 - We find an expert in Alicante who is reasonable, and quotes 600 euros for a laptop, phone, and two webcams.
 - My friend helps me [write a letter](../../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf) to David Piñeiro, the technical expert at D.P.R., Arzobispo Loaces, 17, Local 1 - 2, 03003 Alicante.
 
-### Chat with Jorge Friday 15th
-
-??? note "WhatsApp with Jorge 15th March"
-    [15/03/2024, 15:57:04] Niramisa Weiss: Hola Jorge do you have any news?
-    [15/03/2024, 17:56:35] Jorge Esclapez Deckcard23: Good morning. I'll tell you. No one I know wants to search the Deep Web for videos. It's very hard as well as illegal. On the other hand, I have seen the profiles you have sent me and they are created through servers in Russia or China, which makes it totally impossible without international cooperation to locate who is behind it. My advice is to switch internet companies, reset phones to factory state, format computers and create a new identity. Forget social media. I can't do anything else for you. Best regards.
-    [15/03/2024, 18:14:32] Niramisa Weiss: Ok can you check my android phone?
-    [15/03/2024, 18:14:40] Niramisa Weiss: With a notary?
-    [15/03/2024, 18:31:33] Jorge Esclapez Deckcard23: I can scan the terminal for malware or spyware. I would use the Cellebrite tool that is used by police and other law enforcement. The analysis in the PREMIUM version that allows better results has a cost of â‚¬1,200. They used to have the standard version but the license has run out. I take him to a specialized forensic laboratory in Alicante with which I have a very good relationship.
-    [15/03/2024, 18:32:53] Jorge Esclapez Deckcard23: As for the notary, it is only necessary if you want to keep what you find in case you later go to court to present it as evidence. If at first what you are interested in knowing is if someone is spying on you, you don't need to.
-    [15/03/2024, 18:36:07] Jorge Esclapez Deckcard23: Then there's another, more artisanal system. It consists of performing a manual examination of the mobile terminal. To do this, you would have to change everything to another mobile phone as it is a very aggressive procedure and it is possible that the device will be damaged and become insensible. I do it myself and the cost would be 400â‚¬. What I do is try to unlock the phone and get administrator permissions so that I can scan the entire terminal with malware tools and spyware detection.
-    [15/03/2024, 18:38:30] Niramisa Weiss: The third option is ok but is it admissible evidence if you find something?
-    [15/03/2024, 18:41:52] Jorge Esclapez Deckcard23: No. If you want a valid evidence you need a notary.
-    [15/03/2024, 18:42:30] Jorge Esclapez Deckcard23: The third option is only if you want to know if your mobile have malware or stalkerware.
-    [15/03/2024, 18:42:49] Niramisa Weiss: Ok
-    [15/03/2024, 18:42:51] Niramisa Weiss: Gracias
-    [15/03/2024, 20:58:35] Niramisa Weiss: Hola Jorge, Iâ€™m thinking of coming next Friday to do the android phone with a notary
-    [15/03/2024, 21:37:21] Jorge Esclapez Deckcard23: You don't need to bring a notary. We keep the withdrawal of the mobile phone as proof and deposit it with our trusted notary. We also give you a copy of the extraction along with the report.
-    [15/03/2024, 21:37:38] Niramisa Weiss: Ok
-    [15/03/2024, 21:37:55] Niramisa Weiss: How long does it take?
-    [15/03/2024, 21:38:06] Niramisa Weiss: Can I come on Friday?
-    [15/03/2024, 21:39:10] Jorge Esclapez Deckcard23: I'm going to see it and I'll tell you something as soon as I have the date. Let's see if it can be on March 22nd, next Friday.
-    [15/03/2024, 21:43:42] Niramisa Weiss: This would be the best date
-
 ### A second letter to my parents
 
 - I become scared again and firmly believe I will be murdered.
@@ -579,6 +556,32 @@
 - Unfortunately, my parents never received this letter and it was sent back to me by the postal service.
 - Consequently, I have the sealed envelope to this day and it doesn't look like anyone tampered with it.
 - The Android phone is still inside the sealed envelope.
+
+### Chat with Jorge Friday 15th
+
+??? note "WhatsApp with Jorge 15th March"
+    [15/03/2024, 15:57:04] Niramisa Weiss: Hola Jorge do you have any news?</br>
+    [15/03/2024, 17:56:35] Jorge Esclapez Deckcard23: Good morning. I'll tell you. No one I know wants to search the Deep Web for videos. It's very hard as well as illegal. On the other hand, I have seen the profiles you have sent me and they are created through servers in Russia or China, which makes it totally impossible without international cooperation to locate who is behind it. My advice is to switch internet companies, reset phones to factory state, format computers and create a new identity. Forget social media. I can't do anything else for you. Best regards.</br>
+    [15/03/2024, 18:14:32] Niramisa Weiss: Ok can you check my android phone?</br>
+    [15/03/2024, 18:14:40] Niramisa Weiss: With a notary?</br>
+    [15/03/2024, 18:31:33] Jorge Esclapez Deckcard23: I can scan the terminal for malware or spyware. I would use the Cellebrite tool that is used by police and other law enforcement. The analysis in the PREMIUM version that allows better results has a cost of â‚¬1,200. They used to have the standard version but the license has run out. I take him to a specialized forensic laboratory in Alicante with which I have a very good relationship.</br>
+    [15/03/2024, 18:32:53] Jorge Esclapez Deckcard23: As for the notary, it is only necessary if you want to keep what you find in case you later go to court to present it as evidence. If at first what you are interested in knowing is if someone is spying on you, you don't need to.</br>
+    [15/03/2024, 18:36:07] Jorge Esclapez Deckcard23: Then there's another, more artisanal system. It consists of performing a manual examination of the mobile terminal. To do this, you would have to change everything to another mobile phone as it is a very aggressive procedure and it is possible that the device will be damaged and become insensible. I do it myself and the cost would be 400â‚¬. What I do is try to unlock the phone and get administrator permissions so that I can scan the entire terminal with malware tools and spyware detection.</br>
+    [15/03/2024, 18:38:30] Niramisa Weiss: The third option is ok but is it admissible evidence if you find something?</br>
+    [15/03/2024, 18:41:52] Jorge Esclapez Deckcard23: No. If you want a valid evidence you need a notary.</br>
+    [15/03/2024, 18:42:30] Jorge Esclapez Deckcard23: The third option is only if you want to know if your mobile have malware or stalkerware.</br>
+    [15/03/2024, 18:42:49] Niramisa Weiss: Ok</br>
+    [15/03/2024, 18:42:51] Niramisa Weiss: Gracias</br>
+    [15/03/2024, 20:58:35] Niramisa Weiss: Hola Jorge, Iâ€™m thinking of coming next Friday to do the android phone with a notary</br>
+    [15/03/2024, 21:37:21] Jorge Esclapez Deckcard23: You don't need to bring a notary. We keep the withdrawal of the mobile phone as proof and deposit it with our trusted notary. We also give you a copy of the extraction along with the report.</br>
+    [15/03/2024, 21:37:38] Niramisa Weiss: Ok</br>
+    [15/03/2024, 21:37:55] Niramisa Weiss: How long does it take?</br>
+    [15/03/2024, 21:38:06] Niramisa Weiss: Can I come on Friday?</br>
+    [15/03/2024, 21:39:10] Jorge Esclapez Deckcard23: I'm going to see it and I'll tell you something as soon as I have the date. Let's see if it can be on March 22nd, next Friday.
+    [15/03/2024, 21:43:42] Niramisa Weiss: This would be the best date</br>
+
+- It's pretty clear from Jorge's advice he has no intention of helping me.
+- By telling me to shut down all my social media, he is, in fact, giving me advice which would pretty much have me a hardcore porn slave, to the delight of many thousands of porn addicts worldwide, in a matter of months.
 
 ## 16th March
 
