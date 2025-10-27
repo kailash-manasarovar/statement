@@ -168,7 +168,8 @@
 - I am in Bali from 11th-19th May with work.
 - My hotel room is next to John Michael from IT support. I reported my concerns about hacking to him previously.
 - I notice constant "set up" events, just like in Denia, which mean someone is tracking mine, and other's, movements in order to create "chance" meetings.
-- The first one of these "chance meetings" is with Gabriel Silva on the first morning as I'm leaving my room. Did something happen the night before in my room?
+- The first one of these "chance meetings" is with Gabriel Silva on the first morning as I'm leaving my room.
+- Did something happen the night before in my room?
 - During the week, numerous people come up to me to ask me, "when am I leaving?", or "I heard you're leaving".
 
 ![Bali](../../content/images/bali.png)
