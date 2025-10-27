@@ -170,6 +170,8 @@
 - I notice constant "set up" events, just like in Denia, which mean someone is tracking mine, and other's, movements in order to create "chance" meetings.
 - The first one of these "chance meetings" is with Gabriel Silva on the first morning as I'm leaving my room.
 - Did something happen the night before in my room?
+- The second one is with Alicia a little later.
+- Then the writer I worked with Jaime, Alicia again a few times, the Head of IT ... perhaps some of these were random. I hope so.
 - During the week, numerous people come up to me to ask me, "when am I leaving?", or "I heard you're leaving".
 
 ![Bali](../../content/images/bali.png)
