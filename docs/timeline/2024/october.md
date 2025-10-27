@@ -448,6 +448,7 @@ This same account had come up in March and I found the message threatening.
 Message from Hazel probably.
 | ![pic]( ../../content/images/threats/oct-24/16.png) 
 
+- At the end of the month, one of these accounts which posted previously about the *rogue government official* posts that they have been asked to behave.
 
 ## Fake accounts and tweets
 
