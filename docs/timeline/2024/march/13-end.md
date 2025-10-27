@@ -490,14 +490,32 @@
 
 #### Writing to my parents
 
-- That night, I write a letter **by hand** to my parents (so no-one can see what I'm saying) and I date it the following morning and send it by registered mail.
-- This is the first contact I have had with them for nearly 3 years.
+- That night, I write a letter **by hand** to my parents.
+- Pen and paper is the only way I can communicate securely, although I'm not confident the envelope will not be intercepted within Spain.
+- Nevertheless, writing to my family to explain what's happening in case I'm murdered is something I'm obliged to do.
+- However, reigniting communication with my family is, sadly, the very last thing I want to do but I feel I have no choice anymore. I even mention why this is the case in the letter.
+- Furthermore, I have become concerned that the hackers have been trying to get information about my family in order to rob them too.
+- Little did I know my *whole* family had all been targeted by North London criminal gangs with Spanish connected from the moment we received the [Lockerbie compensation](../../early-years/2006.md#lockerbie), if not before.
+- I date the handwritten letter the following day and the next morning I send it by registered mail to London from the post office near to my hotel.
+- This is the first contact I have had with my family for nearly 3 years.
     - [Letter to parents of 15th March](../../../content/documents/letters/letter-to-parents-march-15.pdf).
+
+![Letter 1](../../../content/documents/letters/march-15-2024-to-parents/page-1.png){width=30%}
+![Letter 2](../../../content/documents/letters/march-15-2024-to-parents/page-2.png){width=30%}
+![Letter 3](../../../content/documents/letters/march-15-2024-to-parents/page-3.png){width=30%}
+![Letter 4](../../../content/documents/letters/march-15-2024-to-parents/page-4.png){width=30%}
+![Letter 5](../../../content/documents/letters/march-15-2024-to-parents/page-5.png){width=30%}
+![Letter 6](../../../content/documents/letters/march-15-2024-to-parents/page-6.png){width=30%}
+![Letter 7](../../../content/documents/letters/march-15-2024-to-parents/page-7.png){width=30%}
+![Letter 8](../../../content/documents/letters/march-15-2024-to-parents/page-8.png){width=30%}
+![Letter 9](../../../content/documents/letters/march-15-2024-to-parents/page-9.png){width=30%}
+
 - I explain I'm being terrorized and by whom.
-- I try to keep my letter calm because my parents are elderly, and I don't know how things are with them. 
-- I don't want to upset them too much.
+- I try to keep my letter as calm as possible because my parents are elderly, and I don't know how things are with them. 
+- I don't want to upset them too much, but I'm very scared and someone needs to know what's going on in case something happens to me.
 - I tell them I believe that Domingo and his family are planning to murder me.
-- I remind them of what he told me all those years ago, the threat of poisoning, something that I had told them both at that time, and some friends too.
+- I explain that I am no longer depressed, and why, and that I would NOT commit suicide.
+- I remind them of what Domingo told me all those years ago, [the threat of poisoning](../../early-years/2014.md#poisoned-aunts), something that I had told them and some friends at the time as it was so frightful. 
 
 ## 15th March
 
