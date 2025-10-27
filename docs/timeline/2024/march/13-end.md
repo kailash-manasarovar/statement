@@ -492,10 +492,10 @@
 
 - That night, I write a letter **by hand** to my parents.
 - Pen and paper is the only way I can communicate securely, although I'm not confident the envelope will not be intercepted within Spain.
-- Nevertheless, writing to my family to explain what's happening in case I'm murdered is something I'm obliged to do.
-- However, reigniting communication with my family is, sadly, the very last thing I want to do but I feel I have no choice anymore. I even mention why this is the case in the letter.
-- Furthermore, I have become concerned that the hackers have been trying to get information about my family in order to rob them too.
-- Little did I know my *whole* family had all been targeted by North London criminal gangs with Spanish connected from the moment we received the [Lockerbie compensation](../../early-years/2006.md#lockerbie), if not before.
+- Reigniting communication with my family is, sadly, the very last thing I want to do but I feel I have no choice anymore. I even mention why this is the case in the letter.
+- Nevertheless, I have to explain what's happening to them in case I'm murdered or something horrible happens to me.
+- I have also become concerned that Dénia hackers have been trying to get personal information about my family in order to rob them too.
+- Little did I know my *whole* family had all been targeted by North London criminal gangs with Spanish connections from the moment we received the [Lockerbie compensation](../../early-years/2006.md#lockerbie), if not before.
 - I date the handwritten letter the following day and the next morning I send it by registered mail to London from the post office near to my hotel.
 - This is the first contact I have had with my family for nearly 3 years.
     - [Letter to parents of 15th March](../../../content/documents/letters/letter-to-parents-march-15.pdf).
