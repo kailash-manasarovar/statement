@@ -167,6 +167,7 @@
 
 - I am in Bali from 11th-19th May with work.
 - My hotel room is next to John Michael from IT support. I reported my concerns about hacking to him previously.
+- I notice constant "set up" events, just like in Denia, which mean someone is tracking mine, and other's, movements in order to create "chance" meetings.
 - During the week, numerous people come up to me to ask me, "when am I leaving?", or "I heard you're leaving".
 
 ![Bali](../../content/images/bali.png)
