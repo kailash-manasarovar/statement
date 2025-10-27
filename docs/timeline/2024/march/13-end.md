@@ -541,7 +541,7 @@
 - We find an expert in Alicante who is reasonable, and quotes 600 euros for a laptop, phone, and two webcams.
 - My friend helps me [write a letter](../../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf) to David Piñeiro, the technical expert at D.P.R., Arzobispo Loaces, 17, Local 1 - 2, 03003 Alicante.
 
-### Chat with Jorge Friday 14th
+### Chat with Jorge Friday 15th
 
 ??? note "WhatsApp with Jorge 15th March"
     [15/03/2024, 15:57:04] Niramisa Weiss: Hola Jorge do you have any news?
@@ -563,6 +563,20 @@
     [15/03/2024, 21:38:06] Niramisa Weiss: Can I come on Friday?
     [15/03/2024, 21:39:10] Jorge Esclapez Deckcard23: I'm going to see it and I'll tell you something as soon as I have the date. Let's see if it can be on March 22nd, next Friday.
     [15/03/2024, 21:43:42] Niramisa Weiss: This would be the best date
+
+### A second letter to my parents
+
+- I become scared again and firmly believe I will be murdered.
+- I realize my [letter of the day before to my parents](#writing-to-my-parents) probably didn't have enough sense of urgency as I had been more concerned about their feelings.
+- I write another letter stating very clearly I believe I'm going to be murdered, perhaps disappear.
+- I detail all my finances; how much money I have (which is considerable) and where.
+- I give details of all my bank accounts, savings, and crypto accounts, and the amounts in them.
+- I would *NEVER* do this if I wasn't really really scared and certain something bad was going to happen to me.
+- I also detail *all* my hacked devices and add a memory stick with my Twitter archives.
+- I post the handwritten letter in the same way as before, registered from the post office, and in the envelope I enclose my hacked Android phone, the parking ticket from outside the police station, and some other documentary evidence.
+- Unfortunately, my parents never received this letter and it was sent back to me by the postal service.
+- Consequently, I have the sealed envelope to this day and it doesn't look like anyone tampered with it.
+- The Android phone is still inside the sealed envelope.
 
 ## 16th March
 
