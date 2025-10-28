@@ -525,14 +525,14 @@
 ### Reporting the crimes to the police in Madrid
 
 - With the help of my friend Inma, I report the crimes to the police in Madrid.
-- When I meet her in the morning, she tells she noticed some unusual events online at her home.
-- Every time I see her until I travel back to the UK in January 2025 she reports strange events online in her home; random words popping up on her screen, the TV turning itself off and on, other things I have forgotten.
+- When I meet her in the morning, she tells me about some unusual online events at her home.
+- Every time I see or speak to her until I travel back to the UK in January 2025, she reports strange events online in her home; random words popping up on her screen, the TV turning itself off and on, other things I have forgotten.
 - I'm not surprised.
 - We walk to the gender-violence office of the Policia Nacional in Madrid at C. de las Huertas, 76-78, Centro, 28014 Madrid, Spain.
 - After waiting a short while we are ushered into a reporting booth where a female police officer is taking notes as I detail what has been happening.
 - My lack of Spanish is a barrier but Inma is helping me as much as possible.
 - It all seems to be going well, although I am extremely stressed and I am finding it very difficult to think straight.
-- The report is supposed to detail the crimes I am reporting, but it ends up just a sketch of what I tell her.
+- The report is supposed to detail the crimes I am reporting, but it ends up being just a simple sketch of what I tell her, with mix ups.
 
     - [Denuncia page 1](../../../content/documents/evidence/Madrid%201.JPG).
     - [Denuncia page 2](../../../content/documents/evidence/Madrid%202.JPG).
@@ -547,18 +547,19 @@
     - She also neglected to add specific dates which I did supply, such as [12th June 2023](../../2023/june.md#monday-12th-june-2023) for the conservatory *funeral*.
     - She correctly recounts some of the abuses I experienced in the street, such as [stones thrown at me from a car](../../2023/september.md#the-stoning); a lot of the other stuff, like the [gang rape replays](../../2023/september.md#rape-gang-reminders) for example, I didn't understand the reasoning behind, but I did explain these to her as threatening events.
     - She does not detail them.
-    - She does recount my experience of a photograph of me in my underwear being posted back to me.
+    - She does recount my experience of a private photograph of me in my underwear being stolen by hackers and [posted back to me](../../2023/december.md#picture-of-me-in-my-pants-on-google-search).
     - She adequately describes how I receive constant messages of private matters no-one should know about.
     - She did not mention that teachers and staff at the conservatory would do the same thing in person, and I absolutely made sure to tell her this; specifically that [Ana Girbes knew about a private health matter](../../2024/january.md#ana-and-ana-and-paqui) that I had only told Google.
+    - I detail the connection with Lorraine Blackbourn and my concerns she was also targeted and may be dead as a result. The officer neglects to add the information about Lorraine to the report.
 
 - When I read this back, I find the police notes do nothing to capture the intense horror I have been suffering for nearly two years.
-- Now I'm aware of so much more they were doing without my knowledge, I find this report horrifying; a detailed document for the criminals to read and be very assured that they can continue to make money from me in porn, set up a honey-trap romance, drug me to render me incompetent while they rob me, and eventually do away with me.
-- At the time, I'm not convinced the police taking me seriously at all, or have any intention of investigating.
-- As I start to show the police officer some of the screenshots I have, including the picture of me in my underwear, my friend notices the officer making the decision to shut me down.
-- Has she seen a warning on her screen about something?
-- Is there a wider investigation going on about foreign women reporting crimes who eventually turn up dead or maimed?
+- Now that I'm aware of so much more they were doing without my knowledge, I find this report even more horrifying. It's a formal document that will assure well-connected criminals that they are safe to continue making money from me in spy-cam and sedated rape porn; that they are free to set up a honey-trap romance and drug me to render me incompetent, while they rob me and eventually do away with me like so many others.
+- At the time, I'm not convinced the police are taking me seriously at all, or have any intention of investigating.
+- As I start to show the police officer some of the screenshots I have, including the picture of me in my underwear, my friend notices the officer taking the decision to shut things down.
+- Did she see a warning on her screen about something?
+- Is there a wider investigation going on about foreign women reporting crimes in the Las Marinas area who eventually turn up dead or maimed?
 - She tells us that before they will investigate I need to pay a cyber expert to examine my devices in order to prove I've been hacked.
-- Then, and only then, will they investigate, she says.
+- Then, and only then, will they investigate, the officer says.
 - I'm astonished.
 - At least we got the name down: Vidal SASTRE SANCHEZ HORNERO.
 
@@ -566,8 +567,8 @@
 
 - We can only guess at why they didn't have a cursory look at the [L'Amistat band](../../../crimes/protagonists/vidal-sastre.md#email-address) which this man apparently directed.
 - They might have noticed a whole bunch of historical complaints.
-- It makes me even more curious why the [Spanish government official](../../2024/october.md#madrid-and-paloma) would insist this man was *not* in the Generalitat systems, on or around the same day he was picking up his government prize.
-- Are women and girls expected to be porn-gang fodder in Spain? 
+- It makes me even more curious why the [Spanish government official](../../2024/october.md#madrid-and-paloma) would insist this man was *not* in the Generalitat systems, on or around the same day he was picking up his government prize at the Palau de Arts in Valencia.
+- Are women and girls born and raised to be porn-gang fodder in Spain? 
 
 ### Cyber expert
 

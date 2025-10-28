@@ -526,6 +526,8 @@
 - They say, what did he say?
 - I know they don't care and they are not going to help me.
 - I don't tell them what Domingo said.
+- I try to get them to take my name and address information, and my NIE number.
+- The officer shrugs and ignores me.
 - I leave.
 - While I was there talking to the officer, a woman police officer stands behind him and holds up her mobile phone as if she is filming me.
 - I believe they knew exactly who I am and what was happening to me due to countless similar complaints over the years.
