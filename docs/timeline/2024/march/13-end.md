@@ -623,7 +623,7 @@
 - I add a memory stick with my Twitter archives from `@jackchardwood` and `@1frgvn`.
 - I post the handwritten letter in the same way as before - registered from the post office.
 - In the envelope I enclose my hacked Android phone, [the parking ticket from outside the police station in Dénia on 20th February](../february.md#my-first-trip-to-the-spanish-police-in-denia), and some other documentary evidence.
-- Unfortunately, or perhaps fortunately, my parents never received this letter and it was sent back to me by the postal service.
+- Unfortunately, or perhaps fortunately, my parents never received this letter and it was sent back to me by the postal service some time in April or May.
 - Consequently, I have the sealed envelope to this day, and it doesn't look like anyone tampered with it.
 - The Android phone is still inside.
 
