@@ -653,7 +653,7 @@
 - By telling me to shut down all my social media, [Jorge](#jorge-checks-some-stalker-accounts) is, in fact, giving me advice which would have me a permanently drugged, hardcore-porn slave or worse, at my home in Carrer Furs, to the delight of many thousands of paying porn addicts worldwide, all in a matter of months.
 - This is close to the actual trajectory of what did happen to me, criminals emboldened by my departure from the conservatory and apparent isolation.
 - Did Jorge know what was *really* going on?
-- Did every Spaniard working in tech know?
+- Does every Spaniard working in tech know?
 - It's disgusting that I had to run around to find someone to help me *prove* what was really obvious to me already before Spanish police would even consider the case for hacking.
 - It's even more disgusting that this pre-requisite for the Spanish police costs 1000s of euros.
 - I can only assume that many 1000s of women and children, *all over Spain*, are being hacked by Spanish porn-addict engineers, and no-one cares.
