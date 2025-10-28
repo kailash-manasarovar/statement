@@ -263,11 +263,15 @@
 - At that moment, her eyes light up and she says, oh we can do something with that.
 - I'm dismayed.
 - A woman can go through years of torture and no-one cares, and the minute a man, someone essentially involved in creating this hell is in trouble, they'll spring into action.
-- It feels like rampant misogyny.
+- It feels like industrial woman-hating and accepted sexual grooming of minors.
 - Her words suggest thousands of ignored complaints.
 - She looks at her phone and says, oh, yes, Rocio Vidal was hacked.
 - I then tell her about Hazel and Sandra Smith and how I have known who and what they are since 2006, about how they've been free to target the ex-pat elderly, and how they targeted me at that time.
 - My friend remembers me mentioning them in 2007. I told her that I had seen British criminals in the Marina Alta, Las Marinas to be precise.
+
+!!! tip "A curiousity"
+    - Isn't it curious I never told anyone about Hazel. Or other extraordinary things I knew about too. And they managed to get me run out of town with the lie that I'm a grass. Most marvelous karma kicking in, isn't it...
+
 - I tell her about the [innocent lady groomed into porn](august.md#photos-of-abused-women-and-girls) and the [sedated woman in the car](september.md#another-upsetting-targeted-woman), and the many pictures I received that I believe are targeted women, including [a picture of one of Domingo's students](../2023/october.md#choir) Elsa.
 - Paloma looks briefly at my friend and says my story sounds like devil worship.
 - I'm even more dismayed. I know what this means.
@@ -280,7 +284,9 @@
 - Over the next few weeks, accounts fly by with names like "dubious government official", and similar.
 - They know.
 - When I see my friend again, she tells me Paloma thinks we are both in danger.
-- Did Paloma or her superiors give the OK for my immediate dispatching?
+- She also tells me that Paloma had looked Vidal SASTRE SANCHEZ HORNERO in the Generalitat systems and found not record of a man with that name.
+- Curiously, at the same time, someone called Vidal SASTRE SANCHEZ HORNERO is [picking up a prize at the Palau de Arts in Valencia](../../crimes/protagonists/vidal-sastre.md#the-lamistat-quart-band).
+- I have to wonder if Paloma or her superiors gave the OK for my immediate dispatching, Denia poisoners informed immediately they can do what they want to me?
 - Is that why Carmen Cano, et al, were so utterly unconcerned about being seen while they tampered with my water pipes or entered my apartment, and seemed indeed to want me to see and hear them, and know about their vile intentions. 
 - Had Paloma decided I knew too much already?
 - Are the school-board supported sex offenders and murderers protected from the very top? Well that's an obvious answer isn't it.

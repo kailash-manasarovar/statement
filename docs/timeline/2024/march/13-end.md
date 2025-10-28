@@ -530,19 +530,44 @@
 - I'm not surprised.
 - We walk to the gender-violence office of the Policia Nacional in Madrid at C. de las Huertas, 76-78, Centro, 28014 Madrid, Spain.
 - After waiting a short while we are ushered into a reporting booth where a female police officer is taking notes as I detail what has been happening.
+- My lack of Spanish is a barrier but Inma is helping me as much as possible.
 - It all seems to be going well, although I am extremely stressed and I am finding it very difficult to think straight.
-- My friend's translations and the consequent additions to the denuncia documents are not quite right.
+- The report is supposed to detail the crimes I am reporting, but it ends up just a sketch of what I tell her.
 
     - [Denuncia page 1](../../../content/documents/evidence/Madrid%201.JPG).
     - [Denuncia page 2](../../../content/documents/evidence/Madrid%202.JPG).
     - [Denuncia page 3](../../../content/documents/evidence/Madrid%203.JPG).
 
-- When I read this back, I find the notes do nothing to capture the intense horror I have been suffering for nearly two years.
-- I'm not convinced they're taking me seriously, or have any intention of investigating.
-- As I start to show the police officer some of the screenshots I have, including the picture of me in my underwear, the office starts to shut me down.
+- I explain the following:
+    - How it all began in [2014 with Domingo's unwanted attention](../../early-years/2014.md#first-piano-class-at-the-end-end-of-september).
+    - The officer neglects to mention the [threat of poisoning](../../early-years/2014.md#poisoned-aunts) I told her about.
+    - How Domingo's sexualized attitude to the little girls was extremely concerning.
+    - How a man calling himself Vidal SASTRE SANCHEZ HORNERO turned up in the role of trumpet teacher in November 2022.
+    - The officer has skimmed through everything I said about the cyber-stalking on page two of the report, and she has mixed stories up and consequently makes a lot of errors.
+    - She also neglected to add specific dates which I did supply, such as [12th June 2023](../../2023/june.md#monday-12th-june-2023) for the conservatory *funeral*.
+    - She correctly recounts some of the abuses I experienced in the street, such as [stones thrown at me from a car](../../2023/september.md#the-stoning); a lot of the other stuff, like the [gang rape replays](../../2023/september.md#rape-gang-reminders) for example, I didn't understand the reasoning behind, but I did explain these to her as threatening events.
+    - She does not detail them.
+    - She does recount my experience of a photograph of me in my underwear being posted back to me.
+    - She adequately describes how I receive constant messages of private matters no-one should know about.
+    - She did not mention that teachers and staff at the conservatory would do the same thing in person, and I absolutely made sure to tell her this; specifically that [Ana Girbes knew about a private health matter](../../2024/january.md#ana-and-ana-and-paqui) that I had only told Google.
+
+- When I read this back, I find the police notes do nothing to capture the intense horror I have been suffering for nearly two years.
+- Now I'm aware of so much more they were doing without my knowledge, I find this report horrifying; a detailed document for the criminals to read and be very assured that they can continue to make money from me in porn, set up a honey-trap romance, drug me to render me incompetent while they rob me, and eventually do away with me.
+- At the time, I'm not convinced the police taking me seriously at all, or have any intention of investigating.
+- As I start to show the police officer some of the screenshots I have, including the picture of me in my underwear, my friend notices the officer making the decision to shut me down.
+- Has she seen a warning on her screen about something?
+- Is there a wider investigation going on about foreign women reporting crimes who eventually turn up dead or maimed?
 - She tells us that before they will investigate I need to pay a cyber expert to examine my devices in order to prove I've been hacked.
 - Then, and only then, will they investigate, she says.
 - I'm astonished.
+- At least we got the name down: Vidal SASTRE SANCHEZ HORNERO.
+
+![First denuncia](../../../content/images/first-denuncia.png)
+
+- We can only guess at why they didn't have a cursory look at the [L'Amistat band](../../../crimes/protagonists/vidal-sastre.md#email-address) which this man apparently directed.
+- They might have noticed a whole bunch of historical complaints.
+- It makes me even more curious why the [Spanish government official](../../2024/october.md#madrid-and-paloma) would insist this man was *not* in the Generalitat systems, on or around the same day he was picking up his government prize.
+- Are women and girls expected to be porn-gang fodder in Spain? 
 
 ### Cyber expert
 
@@ -726,7 +751,7 @@
 
 ### Lorraine threats 
 
-- Another account appeared to be a trigger to remind me of Lorraine Blackbourn who had hung herself in July 2021 in Dénia. 
+- Another account appeared to be a trigger to remind me of Lorraine Blackbourn who had hung herself in July 2021 in . 
 - This account had been following me since January but the threat level ramped up in March.
 
 ![Lorraine](../../../content/images/threats/lorraine/lorraine%20account.png)
