@@ -650,7 +650,7 @@
     [15/03/2024, 21:39:10] Jorge Esclapez Deckcard23: I'm going to see it and I'll tell you something as soon as I have the date. Let's see if it can be on March 22nd, next Friday.</br>
     [15/03/2024, 21:43:42] Niramisa Weiss: This would be the best date</br>
 
-- By telling me to shut down all my social media, [Jorge](#jorge-checks-some-stalker-accounts) is, in fact, giving me advice which would have me a permanently drugged, hardcore-porn slave at my home in Carrer Furs, or worse, to the delight of many thousands of paying porn addicts worldwide, all in a matter of months.
+- By telling me to shut down all my social media, [Jorge](#jorge-checks-some-stalker-accounts) is, in fact, giving me advice which would have me a permanently drugged, hardcore-porn slave or worse, at my home in Carrer Furs, to the delight of many thousands of paying porn addicts worldwide, all in a matter of months.
 - This is close to the actual trajectory of what did happen to me, criminals emboldened by my departure from the conservatory and apparent isolation.
 - Did Jorge know what was *really* going on?
 - Did every Spaniard working in tech know?
