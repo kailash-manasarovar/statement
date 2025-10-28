@@ -609,8 +609,8 @@
 
 - That night, I become frightened again.
 - I'm convinced I'm going to be murdered.
-- Online stalker activity is relentless over this time. 
-- Do my fears comes from online manipulation?
+- Online stalker activity is relentless. 
+- Do my fears come from online manipulation?
 - I realize that my [letter of the day before to my parents](#writing-to-my-parents) probably didn't have enough sense of urgency.
 - I had been more concerned about their feelings over my own safety.
 - I decide to write again.
