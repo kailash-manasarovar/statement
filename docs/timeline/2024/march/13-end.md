@@ -607,18 +607,25 @@
 
 ### A second letter to my parents
 
-- That night, I become frightened again, and I firmly believe I will be murdered.
-- Do these fears comes from online manipulation?
-- I realize my [letter of the day before to my parents](#writing-to-my-parents) probably didn't have enough sense of urgency as I had been more concerned about their feelings.
-- I write another letter stating very clearly I believe I'm going to be murdered, perhaps disappear.
-- I detail all my finances; how much money I have (which is considerable) and where.
-- I give details of all my bank accounts, savings, and crypto accounts, and the amounts in them.
+- That night, I become frightened again.
+- I'm convinced I'm going to be murdered.
+- Online stalker activity is relentless over this time. 
+- Do my fears comes from online manipulation?
+- I realize that my [letter of the day before to my parents](#writing-to-my-parents) probably didn't have enough sense of urgency.
+- I had been more concerned about their feelings over my own safety.
+- I decide to write again.
+- I write another letter **by hand** stating very clearly I believe I'm going to be murdered, perhaps disappear.
+- I'm so concerned the intention is to rob me of my considerable wealth, I detail my finances.
+- I list exactly how much money I have and where it is.
+- I give detailed info of all my bank accounts, savings, and crypto accounts, and the amounts in them.
 - I would *NEVER* do this if I wasn't really really scared and certain something bad was going to happen to me.
-- I also detail *all* my hacked devices and add a memory stick with my Twitter archives.
-- I post the handwritten letter in the same way as before, registered from the post office, and in the envelope I enclose my hacked Android phone, the parking ticket from outside the police station, and some other documentary evidence.
-- Unfortunately, my parents never received this letter and it was sent back to me by the postal service.
-- Consequently, I have the sealed envelope to this day and it doesn't look like anyone tampered with it.
-- The Android phone is still inside the sealed envelope.
+- I also detail *all* my hacked devices.
+- I add a memory stick with my Twitter archives from `@jackchardwood` and `@1frgvn`.
+- I post the handwritten letter in the same way as before - registered from the post office.
+- In the envelope I enclose my hacked Android phone, [the parking ticket from outside the police station in Dénia on 20th February](../february.md#my-first-trip-to-the-spanish-police-in-denia), and some other documentary evidence.
+- Unfortunately, or perhaps fortunately, my parents never received this letter and it was sent back to me by the postal service.
+- Consequently, I have the sealed envelope to this day, and it doesn't look like anyone tampered with it.
+- The Android phone is still inside.
 
 ### Chat with Jorge Friday 15th
 
