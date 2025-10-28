@@ -572,14 +572,43 @@
 
 ### Cyber expert
 
-- We do some research into getting my devices examined for hacking so that I can amplify my report to the police.
-- We find out to have this done can cost thousands.
-- We find an expert in Alicante who is reasonable, and quotes 600 euros for a laptop, phone, and two webcams.
-- My friend helps me [write a letter](../../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf) to David Piñeiro, the technical expert at D.P.R., Arzobispo Loaces, 17, Local 1 - 2, 03003 Alicante.
+- Later that afternoon and over the next days, my friend and I do some research into getting my devices examined for hacking so that I can amplify my report to the police, and maybe then they'll investigate.
+- We find out that to have this done properly can cost thousands.
+- We get a quote in Madrid for 4000 euros.
+- I say no.
+- Eventually we find an expert in Alicante who quotes us 600 euros to analyze a laptop, phone, and two webcams.
+- I'm not happy about the location, but my friend speaks to David at the office and is impressed by his professional manner.
+- Over the next week, my friend helps me [write a letter](../../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf) to David Piñeiro, the technical expert at [D.P.R.](https://dprrecovery.com/), Arzobispo Loaces, 17, Local 1 - 2, 03003 Alicante.
+
+![Letter to David P](../../../content/images/letter-to-david-p.png)
+
+- We include matters I forgot to mention or that were ignored by the [Madrid police's gender-violence department](#reporting-the-crimes-to-the-police-in-madrid).
+- My friend advises we do not include my suspicions about Lorraine Blackbourn as it is tangential to the hacking and device analysis.
+- We take our time preparing the letter.
+- I send the letter by registered mail on the 21st March.
+
+??? tip "Translation of my letter to the device analyst in Alicante"
+    Dear Sirs:</br>
+    Sincerely, David Piñeiro</br>
+    Madrid, March 21, 2024</br>
+    Following the telephone conversation I had with you today, I am attaching the Police Report I filed last Friday, March 15, 2024, in Madrid, detailing the facts I need to prove for a future expansion of the report.</br>
+    To this end, I would like to expand on the information that the National Police did not include, and which I consider important:</br>
+    - I forgot to indicate the X account (formerly Twitter) of one of the people involved in the harassment, Vidal Sastre Sánchez Hornero, which is: `@jctot19`.</br>
+    - That they have access to all my personal, financial, and work information, knowing how much I earn, what I buy, how much I spend, who I have paid...</br>
+    - That they have also hacked my work computer, which I have reported to the IT Security Department, and they have confirmed the hack. For this reason, I have to travel to a co-working office near my place of residence in order to work, with the added danger of the constant threats I face on my commute to and from home, which I also mention in the aforementioned police report.</br>
+    - They have attempted to access the "Cryptocurrency" account I maintain with the company "Coinbase," blocking it (possibly due to its security controls), and which I have not yet been able to access. Therefore, to this day, I do not know if they have managed to steal a significant amount of money from me. I am still trying to re-identify myself to gain access to it.</br>
+    - That the two people I mention in the Police Report, both civil servants in the Public Administration, have created a WhatsApp group with many members, including teachers from the aforementioned Music Conservatory, as well as residents of the town of Denia, sharing in said group my original Twitter messages and other false and offensive messages attributed to me, as well as my private WhatsApp messages, photos, recordings, and videos stolen from my devices. The proof of this is that many people in the town know private things that I have never told anyone.</br> 
+    - That I have written up to four times to the Department of Education of the Generalitat Valenciana, complaining about the attacks by the teachers I mention in the Report, and finally, when they dispatched an Education Inspector from Alicante, she addressed me in a threatening tone, suggesting that I was the cause of the problems.</br> 
+    - The digital security camera I connect to my apartment every time I leave the house has been hacked. I have received alerts from the app and threatening noises have been recorded on the data card, which I can also test. I have mentioned this to my company's security team and they have recommended that I turn it off completely, as if they control it, they can easily access my home without being seen.</br> 
+    - In short, the entire hacking I've described—which likely began two years ago—as well as the daily threats I receive, have put me in grave danger, fearing for my physical safety, not only from the individuals I mention in the Complaint, but also from the other criminals who abound on the Levantine coast and around the world.</br> 
+    - Unfortunately, the National Police in Denia, which I visited last February, ignored me, denying me the right to file a Complaint, which is why I had to travel to Madrid to do so. I mentioned this fact to the police officer who took my statement, but it has not been included in the Complaint I attach.</br> 
+    Dr. Katharine Murphy</br> 
+    Carrer dels Furs, 15, Block 1, Building 2, 3rd Floor, Door 17, 03700 Denia</br> 
 
 ### A second letter to my parents
 
-- I become scared again and firmly believe I will be murdered.
+- That night, I become frightened again, and I firmly believe I will be murdered.
+- Do these fears comes from online manipulation?
 - I realize my [letter of the day before to my parents](#writing-to-my-parents) probably didn't have enough sense of urgency as I had been more concerned about their feelings.
 - I write another letter stating very clearly I believe I'm going to be murdered, perhaps disappear.
 - I detail all my finances; how much money I have (which is considerable) and where.
