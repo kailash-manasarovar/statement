@@ -522,18 +522,26 @@
 
 ## 15th March
 
-### Reporting the matter to the police in Madrid
+### Reporting the crimes to the police in Madrid
 
-- With the help of my friend I make a proper denuncia to the police in Madrid.
-- Inma tells me of some unusual events online at her home.
-- The report goes well, although I am finding it very difficult to think straight, and my friend's translations and the consequent additions to the denuncia documents are not quite right.
+- With the help of my friend Inma, I report the crimes to the police in Madrid.
+- When I meet her in the morning, she tells she noticed some unusual events online at her home.
+- Every time I see her until I travel back to the UK in January 2025 she reports strange events online in her home; random words popping up on her screen, the TV turning itself off and on, other things I have forgotten.
+- I'm not surprised.
+- We walk to the gender-violence office of the Policia Nacional in Madrid at C. de las Huertas, 76-78, Centro, 28014 Madrid, Spain.
+- After waiting a short while we are ushered into a reporting booth where a female police officer is taking notes as I detail what has been happening.
+- It all seems to be going well, although I am extremely stressed and I am finding it very difficult to think straight.
+- My friend's translations and the consequent additions to the denuncia documents are not quite right.
 
     - [Denuncia page 1](../../../content/documents/evidence/Madrid%201.JPG).
     - [Denuncia page 2](../../../content/documents/evidence/Madrid%202.JPG).
     - [Denuncia page 3](../../../content/documents/evidence/Madrid%203.JPG).
 
-- I start to show the police officer some of the screenshots I have, including the picture of me in my pants they put on Google search.
-- At that moment, the conversation is somewhat shutdown and she tells us that before they can investigate I need to get a cyber expert to examine my devices in order to prove I've been hacked.
+- When I read this back, I find the notes do nothing to capture the intense horror I have been suffering for nearly two years.
+- I'm not convinced they're taking me seriously, or have any intention of investigating.
+- As I start to show the police officer some of the screenshots I have, including the picture of me in my underwear, the office starts to shut me down.
+- She tells us that before they will investigate I need to pay a cyber expert to examine my devices in order to prove I've been hacked.
+- Then, and only then, will they investigate, she says.
 - I'm astonished.
 
 ### Cyber expert
@@ -564,24 +572,29 @@
     [15/03/2024, 17:56:35] Jorge Esclapez Deckcard23: Good morning. I'll tell you. No one I know wants to search the Deep Web for videos. It's very hard as well as illegal. On the other hand, I have seen the profiles you have sent me and they are created through servers in Russia or China, which makes it totally impossible without international cooperation to locate who is behind it. My advice is to switch internet companies, reset phones to factory state, format computers and create a new identity. Forget social media. I can't do anything else for you. Best regards.</br>
     [15/03/2024, 18:14:32] Niramisa Weiss: Ok can you check my android phone?</br>
     [15/03/2024, 18:14:40] Niramisa Weiss: With a notary?</br>
-    [15/03/2024, 18:31:33] Jorge Esclapez Deckcard23: I can scan the terminal for malware or spyware. I would use the Cellebrite tool that is used by police and other law enforcement. The analysis in the PREMIUM version that allows better results has a cost of â‚¬1,200. They used to have the standard version but the license has run out. I take him to a specialized forensic laboratory in Alicante with which I have a very good relationship.</br>
+    [15/03/2024, 18:31:33] Jorge Esclapez Deckcard23: I can scan the terminal for malware or spyware. I would use the Cellebrite tool that is used by police and other law enforcement. The analysis in the PREMIUM version that allows better results has a cost of EUR1,200. They used to have the standard version but the license has run out. I take him to a specialized forensic laboratory in Alicante with which I have a very good relationship.</br>
     [15/03/2024, 18:32:53] Jorge Esclapez Deckcard23: As for the notary, it is only necessary if you want to keep what you find in case you later go to court to present it as evidence. If at first what you are interested in knowing is if someone is spying on you, you don't need to.</br>
-    [15/03/2024, 18:36:07] Jorge Esclapez Deckcard23: Then there's another, more artisanal system. It consists of performing a manual examination of the mobile terminal. To do this, you would have to change everything to another mobile phone as it is a very aggressive procedure and it is possible that the device will be damaged and become insensible. I do it myself and the cost would be 400â‚¬. What I do is try to unlock the phone and get administrator permissions so that I can scan the entire terminal with malware tools and spyware detection.</br>
+    [15/03/2024, 18:36:07] Jorge Esclapez Deckcard23: Then there's another, more artisanal system. It consists of performing a manual examination of the mobile terminal. To do this, you would have to change everything to another mobile phone as it is a very aggressive procedure and it is possible that the device will be damaged and become insensible. I do it myself and the cost would be 400 EUR. What I do is try to unlock the phone and get administrator permissions so that I can scan the entire terminal with malware tools and spyware detection.</br>
     [15/03/2024, 18:38:30] Niramisa Weiss: The third option is ok but is it admissible evidence if you find something?</br>
     [15/03/2024, 18:41:52] Jorge Esclapez Deckcard23: No. If you want a valid evidence you need a notary.</br>
     [15/03/2024, 18:42:30] Jorge Esclapez Deckcard23: The third option is only if you want to know if your mobile have malware or stalkerware.</br>
     [15/03/2024, 18:42:49] Niramisa Weiss: Ok</br>
     [15/03/2024, 18:42:51] Niramisa Weiss: Gracias</br>
-    [15/03/2024, 20:58:35] Niramisa Weiss: Hola Jorge, Iâ€™m thinking of coming next Friday to do the android phone with a notary</br>
+    [15/03/2024, 20:58:35] Niramisa Weiss: Hola Jorge, I'm thinking of coming next Friday to do the android phone with a notary</br>
     [15/03/2024, 21:37:21] Jorge Esclapez Deckcard23: You don't need to bring a notary. We keep the withdrawal of the mobile phone as proof and deposit it with our trusted notary. We also give you a copy of the extraction along with the report.</br>
     [15/03/2024, 21:37:38] Niramisa Weiss: Ok</br>
     [15/03/2024, 21:37:55] Niramisa Weiss: How long does it take?</br>
     [15/03/2024, 21:38:06] Niramisa Weiss: Can I come on Friday?</br>
-    [15/03/2024, 21:39:10] Jorge Esclapez Deckcard23: I'm going to see it and I'll tell you something as soon as I have the date. Let's see if it can be on March 22nd, next Friday.
+    [15/03/2024, 21:39:10] Jorge Esclapez Deckcard23: I'm going to see it and I'll tell you something as soon as I have the date. Let's see if it can be on March 22nd, next Friday.</br>
     [15/03/2024, 21:43:42] Niramisa Weiss: This would be the best date</br>
 
-- It's pretty clear from Jorge's advice he has no intention of helping me.
-- By telling me to shut down all my social media, he is, in fact, giving me advice which would pretty much have me a hardcore porn slave, to the delight of many thousands of porn addicts worldwide, in a matter of months.
+- By telling me to shut down all my social media, Jorge is, in fact, giving me advice which would have me a permanently drugged, hardcore-porn slave at my home in Carrer Furs, or worse, to the delight of many thousands of paying porn addicts worldwide, all in a matter of months.
+- This is close to the actual trajectory of what did happen to me, criminals emboldened by my departure from the conservatory and apparent isolation.
+- Did Jorge know what was *really* going on?
+- Did every Spaniard working in tech know?
+- It's disgusting that I had to run around to find someone to help me *prove* what was really obvious to me already before Spanish police would even consider the case for hacking.
+- It's even more disgusting that this pre-requisite for the Spanish police costs 1000s of euros.
+- I can only assume that many 1000s of women and children, *all over Spain*, are being hacked by Spanish porn-addict engineers, and no-one cares.
 
 ## 16th March
 
