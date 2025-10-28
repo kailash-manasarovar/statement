@@ -671,6 +671,7 @@
 - Her tone was always dismissive and given I knew she was obviously involved somehow, as I found out in January when I got such a weird reaction to talking about the trumpet teacher and was consequently uninvited from walking, I never trusted her fully, but she was useful.
 - At the time of writing, I wonder if the English ladies have been involved in the terrorizing on Twitter too. It would not surprise me at all. It seems the whole region has been involved.
 - I wonder if they're aware they were mobilized solely for the protection of pedophiles, and misogynist porn-gang fun incidentally.
+- Are they conspiring because of the risk or murder, or because they enjoy it? It was never clear to me.
 
 ## 17th March 
 
