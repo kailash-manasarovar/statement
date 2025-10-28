@@ -1,6 +1,47 @@
+# March 2025
+
 ## Researching the book
 
 - It's time to knuckle down and finish editing this statement in preparation for publishing it as a novel.
+
+## Reaching out to journalists
+
+- I reach out to multiple journalists with my story; none gets back to me.
+- I found out that Deborah Davies made a [documentary film about the black Caribbean rape-gangs in 1998](https://en.wikipedia.org/wiki/List_of_Dispatches_episodes).
+
+!!! quote "Teenage Gang Rape, a film by Deborah Davies"
+    12 November Teenage Gang Rape, a documentary about teenage gang rape, finds that most cases of gang rape in UK are committed by black youths; some perpetrators were aged no more than 11; reported by Deborah Davies; on 19 November 1998, there was a protest outside the headquarters of Channel 4 by the National Assembly Against Racism.
+
+- The film sparked a huge row and protest which Diane Abbot and others attended and so the matter was successfully suppressed just like the Pakistani rape-gang phenomena has been.
+- Here's the Independent [making light of it all](https://www.independent.co.uk/arts-entertainment/rape-race-and-fragments-of-truth-1186539.html) at the time.
+- I thought Deborah might be interested in my story.
+- I sent her an email.
+
+![Deborah Davies email](../../content/documents/emails/deborah-davies.png)
+
+- This is the kind of email I have sent to scores of journalists and interested parties.
+
+??? tip "Email to Deborah Davies"
+    Hi,
+
+    Massive news tip https://statement-bhw.pages.dev/
+
+    Report contains details of (non exhaustive list) 
+
+    1. What happens to the victims of black rape gangs (sedating porn mainly) in 1980s/90s who survive and keep going to the police who ignore them but instead inform criminal gangs about them who then stalk and target them endlessly ...
+    2. The frenzy when said victim stands for general election in the UK
+    3. The bigger frenzy when said victim uncovers massive crime networks in Spain that target expats for their inheritance on death and/or via sexploitation and have been operational for decades
+    4. How British criminal gangs infiltrated these networks and introduced poisoning and sedating tactics (see the reference to Hazel and Sandra Smith from another channel 4 documentary shown in 1998)
+    5. How parts of Spain are now mass spycam porn studios
+    6. How these criminal gangs have infiltrated schools and learning establishments to target minors either for preparation for porn etc or worse now.
+
+    Feel free to get in touch anytime. I have just moved back to uk and believe my things have been sprayed in pesticides as I am suffering a sudden onset rheumatoid arthritis of some variety and it is their MO ...
+
+    I'm updating this statement constantly as I remember things. Obviously police are keen to discredit and ignore me for obvious reasons.
+
+    Thanks
+
+    Katharine 
 
 ## Let Women Speak Aberdeen
 
