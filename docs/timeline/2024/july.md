@@ -12,7 +12,7 @@
 
 ### Mushroom man says sorry
 
-- At the Belgian crypto conference mushroom man apologizes to me for saying something out of order in Bali.
+- At the [Belgian crypto conference](https://ethglobal.com/events/brussels) mushroom man apologizes to me for saying something out of order in Bali.
 - It must have been when he [met me in the morning to distract me before the Indian guy could introduce himself](may.md#the-pakistani-yorkshire-man).
 - Or, I wonder if he was apologizing for when he, Ajay, and Alicia and their respective teams were instructed to perform a military coup on my role in March.
 - He's left mushroom man cards all over the conference, they're everywhere.
