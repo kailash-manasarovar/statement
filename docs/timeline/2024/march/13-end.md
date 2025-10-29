@@ -687,9 +687,51 @@
 
 ### Email to Paqui
 
-- I [email Paqui](../../../content/documents/emails/Letter%20to%20Paqui%2017-3.pdf) about the concert and subsequent events. I want her to clarify why I should feel fearful about going to the conservatory. She does not reply.
+- I [email Paqui](../../../content/documents/emails/Letter-to-Paqui-17-3-24.pdf) about the concert and subsequent events. 
+
+[![Email to Paqui](../../../content/documents/emails/email-to-paqui-17-03-2024.png)](../../../content/documents/emails/Letter-to-Paqui-17-3-24.pdf)
+
+- I want her to clarify why I should feel fearful about going to the conservatory. 
+- I write to her under the assumption she is a normal, sane human being.
+
+??? tip "Email to Paqui translated"
+    Dear Paqui,</br>
+    Sunday, March 17, 2024 at 4:22 AM</br>
+    Tuesday's concert was truly brutal, as you know, even though I probably played better than ever until the very last bit.</br>
+    Wednesday's choir class was even more horrendous.</br>
+    Then, on Thursday, I felt very afraid for my life in the city.</br>
+    My Twitter feed, which they manipulate, has been filled with violent images, knives, real-life murders, pornography, suggestions that I am in danger, along with constant harassment, very specific messages about my finances, and it has gotten much worse in the last few weeks, exactly the same way as last August just before I went public on Twitter because they suggested I was going to be arrested for something to do with my belief about "trans" children.</br>
+    It is very clear to me that I am hated by everyone, and this must be entirely because of the group. from WhatsApp that is spreading my Twitter messages... and also private messages, videos, recordings (which have been hacked) to the whole world.</br>
+    The question is, this hatred and the desire to destroy me only make sense if it's pure brutality and sexism, and in reality, it doesn't make sense when it comes from normal people, like you, for example.</br>
+    Therefore, I can only assume that they are also "editing" things to make it seem like I'm saying things to the public that I'm not saying, in fact, and have never said. I have never said anything that isn't true, and Nor did I accuse anyone of anything.</br>
+    The fact that Ana G was so angry with me makes me assume that the words of another person or people have been attributed to me.</br>
+    If you want to read from the source, without the sexist filter, go to https://twitter.com/1frgvn and to the highlights. I put all the related tweets there. I truly regret hurting Ana R's feelings as well, but it wasn't over something trivial and immature.</br>
+    I'm fighting for my life here, and I'm one woman against countless faceless, psychopathic men.</br>
+    The fact that everyone knows extremely private health matters about me, which no one else in the world knows, is very worrying, don't you think? You don't think it's just me, do you? I fear for the online safety of everyone at the conservatory, and the town, but especially the children. And after I leave, who will be next for their sport?</br>
+    So I think you're hearing a lot of lies about me, and there's a huge manipulation of my words taking place.</br>
+    That's the only explanation. That's what I believe has been happening since Vidal/Domingo developed the WhatsApp group last April, and the terror began for me. I would like to go back to studying, at least until the end of my fourth year, but the bullying in Salva's class is triggering and I feel extremely unsafe there. I don't care if you let me down. It's still a privilege to have the opportunity to play piano and it's all I've ever wanted to do.
+    It seems the only way he could have left me alone to study piano was if I had a romantic relationship with an extremely rude, offensive, and sexist man more than 10 years ago! Do students at the Dénia Conservatory have to follow this or a similar rule?</br>
+    I know they want me to leave, and they're surprised I didn't leave last June. Now I'm afraid for my life, but it's not so easy to leave quickly. I have a lot of work complications (I know they want me to lose my job again—it would be the third time in two years!—because I guess women aren't allowed to be more successful than them), but I have a lot of trips booked and I also don't have anywhere else to go.</br>
+    It is extremely difficult for me, and my health is suffering from this immense stress. I haven't slept well and without anxiety in over a year.</br>
+    Even so, I love playing the piano. For me, it's therapy. My only therapy. I love the conservatory too, and I love the vast majority of people there.</br>
+    I have been stalked and hacked online for almost two years with the sole purpose of shaming me, and now probably stealing from me or causing physical harm. It seems I lost almost €70,000 online last week.</br>
+    I filed a complaint in Madrid about the harassment because the police in Dénia refused to take one.</br>
+    However, it is very difficult to prove without access to the group chat, the private content, and the lies they have sent to everyone.</br>
+    I know everyone is horrified that I wrote the letters to the Generalitat, but what else could I do? Everyone is against me. I know they're seeing all my tweets, and worse, so who exactly am I supposed to trust when no one talks to me? And every time I ask for help, and no one answers, and they get worse, I become more terrified.</br>
+    What would you do if this happened to you and you were a foreigner? It's obvious I had no idea who to ask for help.</br>
+    They've put me in an impossible situation, one where nobody wins. All I want is to play the piano and study music. Nothing more. Nothing. I'm not a bad person, and what happened to me at the hands of these brutes is outrageous and unbelievable.</br>
+    Please, Paqui, let me know if I should go back to class after Easter and if I'll be safe, or in danger, if I do.</br>
+    And if you think I shouldn't go back, please explain why.</br>
+
+- She does not reply.
 - Her silence speaks a thousand words.
-- I realize I am indeed not safe so I excuse myself from classes following the week of Fallas which means public holidays in the Valencia region.
+- Over the next weeks, numerous fake accounts follow me or like my posts that have Paqui's face in the profile picture in what I find to be a threatening pose.
+
+![Paqui](../../../content/images/fake-accounts/paqui1.png)
+
+- I find this extremely threatening, but believe that Hazel Smith and the Canos are more likely behind it.
+- My email also tips off criminals and colleagues that I won't be leaving my apartment immediately; and that [Bali](../may.md#bali) is still on.
+- Eventually, I realize I am indeed not safe at the conservatory, and likely at any Generalitat establishment, so I excuse myself from classes on 26th March stating that I am not going to be attending classes because I am afraid for my life.
 
 ![Excusing myself from class](../../../content/documents/papeles-conservatorio/excusing-myself-from-class.png)
 
