@@ -1,3 +1,5 @@
+# July 2025
+
 ## UK and Belgium
 
 - I do not come last in the election on the 4th July, second to last. I can't wait to run again.
@@ -7,6 +9,14 @@
     - [Receipt of sending from European Commission website](../../content/documents/evidence/eu-complaint.png).
     - [Response from ECHR to letter written in Brussels on 8th July](../../content/documents/evidence/ARES%202024_5484609.pdf).
 - I return back to London and get the boat from Portsmouth back to Spain with the car.
+
+### Mushroom man says sorry
+
+- At the Belgian crypto conference mushroom man apologizes to me for saying something out of order in Bali.
+- It must have been when he [met me in the morning to distract me before the Indian guy could introduce himself](may.md#the-pakistani-yorkshire-man).
+- Or, I wonder if it was when he and Alicia and their teams were instructed to perform a military coup on my role in March.
+- He's left mushroom man cards all over the conference, they're everywhere.
+- I laugh with him about his cards.
 
 ### Gabriel Silva is given my role at Polygon
 
