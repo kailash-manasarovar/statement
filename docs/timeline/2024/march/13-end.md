@@ -746,7 +746,9 @@
 - I meet Gabriel on one of our regular meet ups to discuss the Polygon docs for his particular product.
 - I'm so stressed and anxious after the last week's activities, I tell Gabriel everything.
 - I tell him I'm being stalked and hacked by criminal gangs in the town I live in in Spain.
-- I don't remember his response.
+- I explain that the IT security department has found [evidence of hacking](1-12.md#reporting-hacking-to-polygon-labs) on my home network and that is why I had to work away from home.
+- I tell him I'm in a hotel because I've been terrorized so badly I'm afraid for my life at home.
+- I don't remember his response to this information.
 - He never mentions it again.
 
 ## Online threats over this period
