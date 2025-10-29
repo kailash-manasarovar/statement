@@ -14,9 +14,12 @@
 
 - At the Belgian crypto conference mushroom man apologizes to me for saying something out of order in Bali.
 - It must have been when he [met me in the morning to distract me before the Indian guy could introduce himself](may.md#the-pakistani-yorkshire-man).
-- Or, I wonder if it was when he and Alicia and their teams were instructed to perform a military coup on my role in March.
+- Or, I wonder if he was apologizing for when he, Ajay, and Alicia and their respective teams were instructed to perform a military coup on my role in March.
 - He's left mushroom man cards all over the conference, they're everywhere.
 - I laugh with him about his cards.
+- He's a fat boy and in his profile pic at Polygon he's dressed as a mushroom.
+- When he a Jaime Lalinde met in March 2024 while the military coup on my job was going on, I was making tea and they spoke endlessly about mushrooms and hallucinogens which, frankly, I thought was a little inappropriate.
+- Did mushroom man know I was being drugged at home?
 
 ### Gabriel Silva is given my role at Polygon
 
