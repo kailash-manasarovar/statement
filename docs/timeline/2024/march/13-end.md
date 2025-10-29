@@ -670,7 +670,7 @@
 - Her WhatsApp states something like, *Oh, by the way, we do like you.*
 - This message, and many more, are on [my Android phone in the sealed envelope](#a-second-letter-to-my-parents).
 - When I ask her about it, she denies it.
-- I wasn't referring to the English ladies anyway, I had suspicions but no clear idea about their involvement until later.
+- I wasn't referring to the English ladies anyway; I had suspicions but no clear idea about their involvement until later.
 - Whilst being perma-drugged, I was not clear about anything much.
 - Was Chris BJ's response a confession of some sort?
 - Throughout most of my communication with Chris BJ about the whole business there was a high level of gaslighting.
