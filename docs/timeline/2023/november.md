@@ -383,7 +383,8 @@ function googleTranslateElementInit() {
 - Grace loses her job in seconds; was she starting to suspect something? I had told her just a few days previously that Nadim was an actor.
 - Did she recognize a pattern of sexually-deviant behavior from the founders that she was close to that she had seen before, and didn't like?
 - I move up to team lead so I am really busy and Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not gone up, he would have effectively made me a candidate for redundancy very quickly.
-- Instead, my team (who are not really tech writers, and don't know the job well - one is an exceptional copy writer, the other an academic-writing-style mathematician) starts to mutiny.
+- Interestingly, I am on the filmed management meeting that takes place regularly. Grace was doing it prior to me. I find my presence a bit unnecessary to be honest. No-one cares about documentation. Why am I there? Is it so everyone who knows what's going on will know who I am? Will they be able to compare my real-life likeness to the sedated rape and *switcheroo* porn they've seen? Does it delight them?
+- My team (who are not really tech writers, and don't know the job well - one is an exceptional copy writer, the other an academic-writing-style mathematician) starts to mutiny.
 - One of the team in particular, Hans Bodani, starts to shout at me in team meetings, gets angry with me, complains about things I did not say to my boss, who supports him, and then refuses to communicate with me at all.
 - Curiously, a new HR head starts around same time, James Dawes, who has worked with Hans previously.
 - I ask for help from my managers. 

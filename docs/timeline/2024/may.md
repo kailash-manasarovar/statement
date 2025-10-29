@@ -195,6 +195,8 @@
 - I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
 - Curiously, the film I watch on the plane is [The Sound of Freedom](https://en.wikipedia.org/wiki/Sound_of_Freedom_(film)); a true story about child sex trafficking, and more curiously the film's picture came up as a result on my `@jctot19 x` searches around December 2023.
 - I find the whole thing very significant, obviously, and I am 100% convinced the person I'm talking to on Signal is the trumpet teacher.
+- Bullying just got worse and worse for me after Bali with the intention, I believe, of me leaving, which I didn't.
+- The reason there are nearly 3000 issues in the [GitHub repo](https://github.com/0xPolygon/polygon-docs/issues) is because my job was hacked by my colleagues around the time they had had enough of whatever they were doing with me and were ready to get rid of me. Did they know I was about to be murdered?
 
 ### The security guy knows something
 
@@ -211,10 +213,16 @@
 ### The Pakistani Yorkshire-man
 
 - On the first morning of sessions, I'm stressed and anxious as people have been making sly comments to me continuously.
-- Everyone has left the hall, and I see an Indian-looking fellow grinning at me.
-- He walks over.
-- He has long black hair and enormous grinning white teeth. 
-- He looks like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life). No exaggeration. 
+- Maybe something happened to me the night before in my hotel room too. It's not clear. I'm overly anxious and there's not really a good reason for the level of stress I'm feeling.
+- At the end of the morning session, someone comes over to talk to me.
+- He says concerning things in a sinister way, like oh I hear you're leaving, and some other unpleasant stuff. He is the fat man with the mushroom hat on his profile pics. I can't remember his name just now, but he was pals with Jaime, and part of a concerted bullying attack in March with Alicia and her team.
+- He's waiting for everyone to leave. Once they're gone, and I'm reasonably more upset than I already was, he walks away down the aisle, giving an Indian man on the other side the nod as he goes by.
+- I see the Indian-looking fellow grinning at me at that moment.
+- He walks over. No-one else is around.
+- There is a handful of people at the back of the conference hall.
+- Are they watching?
+- The man has long black hair and enormous grinning white teeth. 
+- He looks like, and reminds me of, [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life). No exaggeration. 
 - In July 2025, I wonder whether he was supposed to look like Jitendra Das!
 - He tells me he's Pakistani, from Rochdale, Yorkshire; rape-gang territory.
 - His Oxford-English accent says otherwise.
