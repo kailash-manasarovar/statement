@@ -273,6 +273,12 @@
 - Very curious, a good choker-seed for when my life is truly threatened after I'm caught up in some honey-trap relationship, probably with [number 3 trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of)?
 - Or something closer to the divine?
 
+### Hans
+
+- Dinner with Hans.
+- Oh they're really gonna go for you, he says.
+- Keeping look out.
+
 ### Chess with the Head of IT
 
 - I play chess at dinner with the Head of IT.
