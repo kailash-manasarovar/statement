@@ -164,6 +164,13 @@ function googleTranslateElementInit() {
 
 - When I managed to get out of bed, the weird communication with the trumpet teacher continued on Twitter.
 
+### Covid
+
+- How did I get Covid?
+- No-one else had it, and I so rarely left the house!
+- Joan Carles said he had it, but perhaps he was pretending.
+- Curious.
+
 ## Conservatory choir concert
 
 - The conservatory performed a summer choir and orchestra concert which was also a graduation celebration for the 6th year students passing out.
