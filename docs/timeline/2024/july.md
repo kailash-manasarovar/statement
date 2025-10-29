@@ -18,8 +18,10 @@
 - He's left mushroom man cards all over the conference, they're everywhere.
 - I laugh with him about his cards.
 - He's a fat boy and in his profile pic at Polygon he's dressed as a mushroom.
-- When he a Jaime Lalinde met in March 2024 while the military coup on my job was going on, I was making tea and they spoke endlessly about mushrooms and hallucinogens which, frankly, I thought was a little inappropriate.
+- When he and Jaime Lalinde met in March 2024 while the military coup on my job was going on, I was making tea and listening while they spoke endlessly about mushrooms and hallucinogens which, frankly, I thought was a little inappropriate at work.
 - Did mushroom man know I was being drugged at home?
+- I told him in Belgium that I was open to hallucinogenic plants, but for healing purposes only.
+- I explained that I believe it is not a good idea to misuse a powerful living being such as a healing plant for any reason at all, and the karma can be immense.
 
 ### Gabriel Silva is given my role at Polygon
 
