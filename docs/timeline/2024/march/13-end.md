@@ -735,6 +735,10 @@
 
 ![Excusing myself from class](../../../content/documents/papeles-conservatorio/excusing-myself-from-class.png)
 
+- Salva responds in a brusque manner stating that if I have a problem I should go to the police.
+- Esteve responds to say he's only at the conservatory to teach.
+- Alfonso's response is extremely alarmed.
+
 ## 18th March
 
 ### I tell Gabriel Silva 
