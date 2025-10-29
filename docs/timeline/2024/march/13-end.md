@@ -972,6 +972,14 @@
 - I was extremely paranoid in Valencia and I was constantly stalked by fake accounts on Twitter.
 - I also believe there are quite solid misogynist networks in the region which can be relied upon to inflict extra terror on a target whenever necessary.
 
+#### Management team meeting at Polygon
+
+- I'm scheduled to attend the management team meeting.
+- I log in from my hotel room at the Holiday Inn Exress near Valencia airport.
+- I believe I will be clearly disheveled and stressed.
+- There will be videos saved of these meetings.
+- I wonder now if the porn-subscribers, perhaps men I was working with, will have had video footage of the [piano concert](1-12.md#the-piano-concert) as well as spy-cam footage from my apartment, and hacked work activity and meetings.
+
 ## 31st March
 
 ### Letter to the Guardia Civil
