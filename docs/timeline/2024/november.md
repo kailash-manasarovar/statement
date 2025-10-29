@@ -83,6 +83,7 @@
 - He would turn up really late, or not at all, leaving her waiting around all day for him.
 - On a couple of occasions this tactic meant my mother was so exasperated she left him alone in the house for long periods while she went out to do the shopping.
 - Was he also employed to [install spy-cams](../2025/may.md#spy-cams-in-london-n2-also)?
+- Starting to realize how comforting this is.
 
 ## I'm banned for life on LinkedIn
 
