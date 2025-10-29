@@ -672,7 +672,7 @@
 - When I ask her about it, she denies it.
 - I wasn't referring to the English ladies anyway; I had suspicions but no clear idea about their involvement until later.
 - Whilst being perma-drugged, I was not clear about anything much.
-- Was Chris BJ's response a confession of some sort?
+- Was Chris BJ's text a confession of some sort, or was she somehow trying to tell me I had support somehow?
 - Throughout most of my communication with Chris BJ about the whole business there was a high level of gaslighting.
 - This is notable considering I shared with her all the documentation I sent to the Generalitat and other things too.
 - Her tone was always dismissive and, given I knew she and Trish at least were involved somehow, as I found out [in January 2023 when I got such a weird reaction to talking about the trumpet teacher and was consequently uninvited from walking](../../2023/january.md#hiking-with-the-english-ladies), I never trusted her fully, but she was definitely useful.
