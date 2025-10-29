@@ -660,18 +660,26 @@
 
 ## 16th March
 
-### Gaslight by Chris BJ
+### Chris BJ by gaslight
+#### Or.. gaslit by Chris BJ
 
-- Chris BJ gaslights me on WhatsApp by obviously and weirdly referring to a tweet I sent after the piano concert.
+- Chris BJ gaslights me on WhatsApp by obviously and weirdly referring to a tweet I sent in the early morning after [the piano concert spectacle that the English ladies had been required to attend](1-12.md#the-piano-concert).
 
 ![I do love you](../../../content/tweets/i-do-love-you.png)
 
+- Her WhatsApp states something like, *Oh, by the way, we do like you.*
+- This message, and many more, are on [my Android phone in the envelope](#a-second-letter-to-my-parents).
 - When I ask her about it, she denies it.
-- Throughout most of my communication with Chris BJ about the whole business there has been a high level of gaslighting coming from her, even though I shared all my documentation I sent to the Generalitat and other things.
-- Her tone was always dismissive and given I knew she was obviously involved somehow, as I found out in January when I got such a weird reaction to talking about the trumpet teacher and was consequently uninvited from walking, I never trusted her fully, but she was useful.
+- I wasn't referring to the English ladies anyway, I had suspicions but no clear idea about their involvement until later.
+- Whilst being perma-drugged, I was not clear about anything much.
+- Was Chris BJ's response a confession of some sort?
+- Throughout most of my communication with Chris BJ about the whole business there was a high level of gaslighting.
+- This is notable considering I shared with her all the documentation I sent to the Generalitat and other things too.
+- Her tone was always dismissive and, given I knew she and Trish at least were involved somehow, as I found out [in January 2023 when I got such a weird reaction to talking about the trumpet teacher and was consequently uninvited from walking](../../2023/january.md#hiking-with-the-english-ladies), I never trusted her fully, but she was useful.
 - At the time of writing, I wonder if the English ladies have been involved in the terrorizing on Twitter too. It would not surprise me at all. It seems the whole region has been involved.
-- I wonder if they're aware they were mobilized solely for the protection of pedophiles, and misogynist porn-gang fun incidentally.
-- Are they conspiring because of the risk or murder, or because they enjoy it? It was never clear to me.
+- I wonder if they're aware they were mobilized solely for the protection of pedophiles and rapists, and misogynist porn-gang fun incidentally.
+- Are they conspiring because of the real risk of murder? Or because they enjoy it? It was never clear to me.
+- If there is a real risk of murder, and many British people they know have disappeared or died in suspicious circumstances after standing up to local criminals, do they reluctantly submit to the porn-gangs in fear, then sort of go a little crazy and start to enjoy the malevolent power they have been given?
 
 ## 17th March 
 
