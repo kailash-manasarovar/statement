@@ -749,7 +749,7 @@
 - I don't remember his response.
 - He never mentions it again.
 
-## Online threats during this period
+## Online threats over this period
 
 ### Google search
 
