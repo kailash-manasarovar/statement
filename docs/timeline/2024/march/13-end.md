@@ -674,7 +674,7 @@
 - Whilst being perma-drugged, I was not clear about anything much.
 - Was Chris BJ's text a confession of some sort, or was she somehow trying to tell me I had support somehow?
 - Throughout most of my communication with Chris BJ about the whole business, there was a high level of gaslighting.
-- This is notable considering I shared with her all the documentation I sent to the Generalitat and other things too.
+- This is notable considering I shared with her all the electronic documentation I sent to the Generalitat, and other evidence too.
 - Her tone was always dismissive and, given I knew she and Trish at least were involved somehow, as I found out [in January 2023 when I got such a weird reaction to talking about the trumpet teacher and was consequently uninvited from walking](../../2023/january.md#hiking-with-the-english-ladies), I never trusted her fully, but she was definitely useful.
 - When I challenged her once again on the gaslighting, she claimed she was playing devil's advocate, which I guess was an honest statement of some sort. I wonder who the devil requiring advocates was, for Chris BJ?
 - At the time of writing, I wonder if the English ladies have been involved in the terrorizing on Twitter too. It would not surprise me at all. It seems the whole region has been involved.
