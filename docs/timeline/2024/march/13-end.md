@@ -743,7 +743,11 @@
 
 ### I tell Gabriel Silva 
 
-- wip.
+- I meet Gabriel on one of our regular meet ups to discuss the Polygon docs for his particular product.
+- I'm so stressed and anxious after the last week's activities, I tell Gabriel everything.
+- I tell him I'm being stalked and hacked by criminal gangs in the town I live in in Spain.
+- I don't remember his response.
+- He never mentions it again.
 
 ## Online threats during this period
 
@@ -782,7 +786,7 @@
 
 - A very threatening message. This whole tweet conversation with this account was extremely threatening and phosphorous poisoning was mentioned.
 
-![march threats](../../../content/images/threats/march-threats-14.png)
+[![march threats](../../../content/images/threats/march-threats-14.png)](https://x.com/HEncore49002/status/1771292132571005427)
 
 - I wondered if this account was the technician guy at the conservatory or the owner of the mobile phone shop.
 
