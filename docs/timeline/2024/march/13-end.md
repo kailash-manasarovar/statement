@@ -677,7 +677,8 @@
 - This is notable considering I shared with her all the electronic documentation I sent to the Generalitat, and other evidence too.
 - Her tone was always dismissive and, given I knew she and Trish at least knew something evil was happening to me, as I found out [in January 2023 when I got such a weird reaction to talking about the trumpet teacher and was consequently uninvited from walking](../../2023/january.md#hiking-with-the-english-ladies), I never trusted her fully, but she was definitely useful.
 - When I challenged her once again on the gaslighting, she claimed she was playing devil's advocate, which I guess was an honest statement of some sort. I wonder who the devil requiring advocates was, for Chris BJ?
-- At the time of writing, I wonder if the English ladies have been involved in the terrorizing on Twitter too. It would not surprise me at all. It seems the whole region has been involved.
+- At the time of writing, I wonder if the English ladies were involved in the terrorizing on Twitter too, taking fake accounts for themselves with the sole intention of gang-stalking me.
+- It would not surprise me at all. It seems the whole region has been involved.
 - I wonder if they're aware they were mobilized solely for the protection of pedophiles and rapists, and misogynist porn-gang fun incidentally.
 - Are they conspiring because of the real risk of murder? Or because they enjoy it? It was never clear to me.
 - If there is a real risk of murder, and many British people they know have disappeared or died in suspicious circumstances after standing up to local criminals, do they reluctantly submit to the porn-gangs in fear, then sort of go a little crazy and start to enjoy the malevolent power they have been given?
