@@ -681,7 +681,7 @@
 - It would not surprise me at all. It seems the whole region has been involved.
 - I wonder if they're aware they were mobilized solely for the protection of pedophiles and rapists, and misogynist porn-gang fun incidentally.
 - Are they conspiring because of the real risk of murder? Or because they enjoy it? It was never clear to me.
-- If there is a real risk of murder, and many British people they know have disappeared or died in suspicious circumstances after standing up to local criminals, do they reluctantly submit to the porn-gangs in fear, then sort of go a little crazy and start to enjoy the malevolent power they have been given?
+- If there is a real risk of murder, and many British people they know have disappeared or died in suspicious circumstances after standing up to local criminals, do they reluctantly submit to the porn-gangs in fear, then sort of go a little crazy and start to enjoy the nugget of malevolent power they have been given?
 
 ## 17th March 
 
