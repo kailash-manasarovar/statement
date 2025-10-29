@@ -267,6 +267,20 @@
 - John Michael is indeed a lovely man.
 - Are they laughing at me?
 
+### Anthony
+
+- You don't have to die: https://www.amazon.co.uk/Dont-Have-Anthony-Mpho-Matlala-ebook/dp/B00H2JPKRK/.
+- Very curious, a good choker-seed for when my life is truly threatened after I'm caught up in some honey-trap relationship, probably with [number 3 trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of)?
+- Or something closer to the divine?
+
+### Chess with the Head of IT
+
+- I play chess at dinner with the Head of IT.
+- This is the first time I notice my chess playing is appalling; I'm rubbish, below average.
+- This is not like me at all.
+- At the time, I just put it down to a *one off* scenario.
+- In September, when I join Chess.com, I find out that my cognitive left-brain skills required to be a good chess player are all but disappeared.
+
 ## Lourdes
 
 - I leave for Lourdes at the end of the month.
