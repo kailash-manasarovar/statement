@@ -663,7 +663,7 @@
 ### Chris BJ by gaslight
 #### Or.. gaslit by Chris BJ
 
-- Chris BJ gaslights me on WhatsApp by obviously and weirdly referring to a tweet I sent in the early morning after [the piano concert spectacle that the English ladies had been required to attend](1-12.md#the-piano-concert).
+- Chris BJ gaslights me on WhatsApp by obviously and weirdly referring to a tweet I sent in the early morning after [the piano concert spectacle that the English ladies had been required to attend](1-12.md#the-piano-concert) in order to deny anything I might have said about it afterwards.
 
 ![I do love you](../../../content/tweets/i-do-love-you.png)
 
