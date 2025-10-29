@@ -668,7 +668,7 @@
 ![I do love you](../../../content/tweets/i-do-love-you.png)
 
 - Her WhatsApp states something like, *Oh, by the way, we do like you.*
-- This message, and many more, are on [my Android phone in the envelope](#a-second-letter-to-my-parents).
+- This message, and many more, are on [my Android phone in the sealed envelope](#a-second-letter-to-my-parents).
 - When I ask her about it, she denies it.
 - I wasn't referring to the English ladies anyway, I had suspicions but no clear idea about their involvement until later.
 - Whilst being perma-drugged, I was not clear about anything much.
