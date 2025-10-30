@@ -138,6 +138,13 @@
 - He explains it's a place he often goes to with [Lucy](#pauls-friend-lucy).
 - I'm certain he has been instructed to take me there so I can be "viewed".
 
+### Harassment in UK
+
+- I'm targeted a fair bit when I'm back in UK as you will read across these next months.
+- Just like in Denia, it seemed that every time I left the house some rare event occurred.
+- I'm certain it was criminal gang activity, especially considering Paul's sudden "popping up".
+- Was the frenetic activity from criminal gangs in London... even getting a junkie involved - the most disloyal people in the universe - and all the harassment at that time early in the year, and during the general election the year before… is it because they know my dad, and my family in fact, would see me dead before helping me?
+
 ## Madrid policia 
 
 - TBC

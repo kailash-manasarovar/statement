@@ -112,6 +112,10 @@
 ![Valentine](../../content/images/valentine/valentine-relics.jpeg)
 ![Valentine](../../content/images/valentine/valentine-crying.jpeg)
 
+- Like the mandrake, which looks like it was working for God and very much on my side, Valentine stood behind and beside me too, supporting me, on God's side, and very much against his misuse, and healing plant misuse by evil lost  minds … it’s kind of a divine comedy … imagine him looking like that… it’s as if it was all written hundreds of years ago.
+- I keep a picture close by my heart, especially when I do my ACIM study.
+- I believe my heart is finally healing now. Thank God in Heaven.
+
 ### Healing process
 
 - On the TT table I have been extremely still for the five full years I have been doing the therapy practice. 

@@ -128,7 +128,7 @@ function googleTranslateElementInit() {
 
 ## A strange meeting with Gabriel Silva
 
-- Polygon is about to sack 20% of the workforce, including my boss Grace.
+- Polygon is about to sack 20% of the workforce, including my boss Grace Torrellas.
 - A week or so before, I meet Gabriel Silva to chat about work.
 - Something strange happens in this meeting.
 - I become very upset for some reason.

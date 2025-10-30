@@ -362,7 +362,7 @@ function googleTranslateElementInit() {
 - From that moment, his demeanor towards me changes.
 - He starts to bully me outrageously.
 - It is so bad, he is fired about two weeks later, but not before he has spread the word around the business, including to my boss and managers I have to work with very closely, that I am a *transphobe*.
-- About a week before he gets fired, Grace insists I go on a trip to Barcelona with her and Nadim at the weekend. It's out of the blue and feels like bullying.
+- About a week before he gets fired, Grace Torrellas insists I go on a trip to Barcelona with her and Nadim at the weekend. It's out of the blue and feels like bullying.
 - I wonder what their intention was for the trip to Barcelona?
 - When I spoke to engineers on the team about him later on, they couldn't believe the guy had got the job. They said he was totally ineffective and impossible to work with and any work he had done they couldn't believe he had done it, it was so poor quality, as if he had no idea what he was doing.
 - He did, however, have root level access to all systems for the short time he was on the engineering team.
@@ -372,7 +372,7 @@ function googleTranslateElementInit() {
 - Or did they know I had found out he was an actor because they were watching my every move online along with everyone else in Spain it seems?
 - I wonder how much damage he was able to do in the engineering department in such a short space of time. The tech failed and faltered again and again in early 2024. I think this is probably a red-herring now.
 - He, or other parties, certainly added a lot of malicious code to our backend set up which broke our SEO for months before we could figure it out, but this was probably an inside job.
-- In any case, from the moment I gave Nadim my Twitter account details and looked him up online in private, everything changed for me at Polygon. My boss Grace starts to treat me badly. I am no longer given work by Gabriel Silva who I am supposed to be working with closely. 
+- In any case, from the moment I gave Nadim my Twitter account details and looked him up online in private, everything changed for me at Polygon. My boss Grace Torrellas starts to treat me badly. I am no longer given work by Gabriel Silva who I am supposed to be working with closely. 
 
 ![John 3 8](../../content/images/John-3-8.PNG)
 
@@ -380,10 +380,10 @@ function googleTranslateElementInit() {
 
 - Gabriel starts complaining about my work to me, and others; he doesn't like my writing style, he continually puts me down in meetings, he calls me a single point of failure with other team members.
 - It doesn't matter so much because in early 2024, while the zk system is continually failing, 20% of the workforce is made redundant.
-- Grace loses her job in seconds; was she starting to suspect something? I had told her just a few days previously that Nadim was an actor.
+- Grace Torrellas loses her job in seconds; was she starting to suspect something? I had told her just a few days previously that Nadim was an actor.
 - Did she recognize a pattern of sexually-deviant behavior from the founders that she was close to that she had seen before, and didn't like?
 - I move up to team lead so I am really busy and Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not gone up, he would have effectively made me a candidate for redundancy very quickly.
-- Interestingly, I am on the filmed management meeting that takes place regularly. Grace was doing it prior to me. I find my presence a bit unnecessary to be honest. No-one cares about documentation. Why am I there? Is it so everyone who knows what's going on will know who I am? Will they be able to compare my real-life likeness to the sedated rape and *switcheroo* porn they've seen? Does it delight them?
+- Interestingly, I am on the filmed management meeting that takes place regularly. Grace Torrellas was doing it prior to me. I find my presence a bit unnecessary to be honest. No-one cares about documentation. Why am I there? Is it so everyone who knows what's going on will know who I am? Will they be able to compare my real-life likeness to the sedated rape and *switcheroo* porn they've seen? Does it delight them?
 - My team (who are not really tech writers, and don't know the job well - one is an exceptional copy writer, the other an academic-writing-style mathematician) starts to mutiny.
 - One of the team in particular, Hans Bodani, starts to shout at me in team meetings, gets angry with me, complains about things I did not say to my boss, who supports him, and then refuses to communicate with me at all.
 - Curiously, a new HR head starts around same time, James Dawes, who has worked with Hans previously.

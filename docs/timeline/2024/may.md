@@ -186,7 +186,7 @@
 - When I speak to Paul O'Leary about this in Bali, he sort of [groans with familiarity](october.md#madrid-and-paloma), in exactly the same way Spanish government official Paloma groans when I tell her about the porn-gangs and pedophilia going on at the conservatory of Denia.
 - The bullying continues over the following month where another employee, on Gabriel's orders, tries to pretend my systems are unusable, but he can't really and he just looks stupid. It's all in the Git records.
 - The implication, however, is that I am incompetent. And mud sticks.
-- This has been Gabriel's outward view of me since January after hearing from Grace about my women's rights activities, and why, I assume, he stopped giving me any work at that time.
+- This has been Gabriel's outward view of me since January after hearing from Grace Torrellas about my women's rights activities, and why, I assume, he stopped giving me any work at that time.
 - However, there is something much more sinister going on at Polygon.
 - Polygon Spanish male founders and developers know exactly what is going on for me in Denia, and are involved in the conspiracy; at least from [12th June 2023](../2023/june.md#monday-12th-june-2023) when whatever was supposed to happen didn't, but possibly before.
 - I believe this is why I was [re-programmed into feeling extraordinarily sexually aroused by the gypsies](april.md#the-trumpet-teacher-in-denia) just before traveling to Bali.
