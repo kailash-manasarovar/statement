@@ -137,6 +137,7 @@ function googleTranslateElementInit() {
 - I remember being extremely upset.
 - I wonder about this event now, I didn't see Gabriel for a long time after that.
 - I wonder whether it could have been a porn-gang sedating tech demo.
+- If so, us good guys have so much evidence.
 
 ## I see my naked 16-year-old body on X again
 
