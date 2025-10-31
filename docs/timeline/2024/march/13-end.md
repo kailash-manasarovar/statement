@@ -769,7 +769,7 @@
 
 #### B A Feldman
 
-- The B.A. Feldman account was pretending to be the trumpet teacher for a while, at least since October 2023. 
+- The B.A. Feldman account pretends to be the trumpet teacher for a while, at least since October 2023 when the cyber-stalking ramped up exponentially. 
 - Trump (play on words with trumpet) often features in accounts I'm supposed to believe are the trumpet teacher's.
 
 [![ba feldman account](../../../content/images/fake-accounts/ba-feldman-1.png)](https://x.com/AIinAmerica)
@@ -778,18 +778,19 @@
 
 [![ba feldman account](../../../content/images/fake-accounts/ba-feldman-2.png)](https://x.com/AIinAmerica/status/1767668324442284540)
 
-- And, even calling out the situation as it was at the time, and still is to this day.
-- Posts like this would make me wonder if it really was the trumpet teacher I loved looking out for me.
+- The account even called out the situation as it was at the time; and still is to this day, albeit not to the same frenetic extent.
 
 [![march threats](../../../content/images/threats/march-threats-1.png)](https://x.com/AIinAmerica/status/1767325622928327041)
 
+- Posts like this would make me wonder if it really was the trumpet teacher I loved, looking out for me.
 - There was a lot of back-and-forth between us, many tweets now deleted.
 
 ![AI in America convo deleted](../../../content/tweets/march-2024/ai-in-america-convo-1.png)
 
 - Again, I believe this to be yet another multi-delegate account run by criminal gangs.
 - Posts from this account would have that grainy effect I remember which meant me having to look closely at the screen.
-- Posts would pop up, then disappear.
+- Grainy posts would pop up, then disappear.
+- It's possible the [rape-gang porn from 1989](../january.md#i-see-my-naked-16-year-old-body-on-x-again) was flashed up by this account.
 
 ### Threats of violence
 
