@@ -216,7 +216,7 @@
 
 ## More threats
 
-- I also see threatening pics on my mobile device which remind me very much of [the violent threats I received on X in March 2024](../2024/march/13-end.md#twitter-screenshots).
+- I also see threatening pics on my mobile device which remind me very much of [the violent threats I received on X in March 2024](../2024/march/13-end.md#online-stalking-and-threats-over-this-period).
 
 ![Violent images](../../content/images/violent-images.png)
 

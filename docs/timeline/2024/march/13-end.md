@@ -765,9 +765,7 @@
 
 - It's extremely important to remember that this private health matter that I have told *no-one* about to this day cleared up immediately I stopped being poisoned, and returns whenever they manage to get close to me again such as they did in [July 2025](../../2025/july.md#eyes-and-kidneys-again-and-heart-now-too).
 
-### Twitter screenshots
-
-#### B A Feldman
+### B A Feldman
 
 - The B.A. Feldman account pretends to be the trumpet teacher for a while, at least since October 2023 when the cyber-stalking ramped up exponentially. 
 - Trump (play on words with trumpet) often features in accounts I'm supposed to believe are the trumpet teacher's.
