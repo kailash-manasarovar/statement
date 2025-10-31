@@ -790,6 +790,26 @@
 - Grainy posts would pop up, then disappear.
 - It's possible the [rape-gang porn from 1989](../january.md#i-see-my-naked-16-year-old-body-on-x-again) was flashed up by this account.
 
+### Lorraine threats 
+
+- Another account appeared to be a trigger to remind me of Lorraine Blackbourn who had hung herself in July 2021 in . 
+- This account tag teamed with the [Aniloviator](1-12.md#aniloviator) account mentioned before.
+- This account had been following me since January but the threat level ramped up in March.
+
+![Lorraine](../../../content/images/threats/lorraine/lorraine%20account.png)
+![Lorraine](../../../content/images/threats/lorraine/lorraine-2.png)
+
+- I thought `@kiwipally` was also a stalker account as they were very active at this time.
+
+![Lorraine](../../../content/images/threats/lorraine/lorraine%20again.png)
+![Lorraine](../../../content/images/threats/lorraine/lorraine-5.png)
+![Lorraine](../../../content/images/threats/lorraine/lorraine-4.png)
+![Lorraine](../../../content/images/threats/lorraine/lorraine-3.png)
+
+- The account no longer exists.
+
+![Lorraine](../../../content/images/threats/lorraine/lorraine-6.png)
+
 ### Threats of violence
 
 - The following account is an example of a few which had pure violence as content around this time. 
@@ -847,53 +867,6 @@
 
 - I believe this account, like many others, is manned by either Hazel or Sandra Smith together with Domingo and Carmen Cano by delegation. 
 - The reason I say that is because the English is extremely fluent, very vernacular for some messages, and then not at all.
-
-### Ana account 
-
-- I wonder if this was Ana Girbes by delegation or otherwise. 
-- Whoever it was, the account interacted with me a lot and in a most unpleasant manner at times. 
-- I guess it's entirely possible this is just a random account which happened to find itself in the middle of a professional cyber stalking attack, but I doubt it.
-- Note she is calling herself `@loviatar` which is a bit of a play on words for avatar, and reminds me of the transformer figure I see on the `@jctot19` account every day, a figure which is drawn to look exactly like Ana Girbes, the musical language teacher at the conservatory.
-
-![Ana Girbes](../../../content/images/fake-accounts/ani-lovi/ana.png)
-
-- The evening after the following interaction, [Ana Girbes barks](../january.md#ana-and-ana-and-paqui), literally, at me about my very private health matter that no one *could possibly* know about unless they had access to my Google search activity.
-
-![Ana Girbes](../../../content/images/fake-accounts/ani-lovi/ana-1.png)
-
-- I can see them all laughing and giggling together after terrorizing me in this way at the conservatory.
-
-!!! danger
-    - Another reminder that these people are responsible for other people's children.
-
-- The account seems to be priming me to believe it is Ana Requena, and she is talking about her boyfriend the trumpet teacher. 
-- A lot of posts from her make these suggestions.
-- The account would go from being extremely mean to suddenly caring and kind. Here's the account being reasonable at one point.
-
-![Ana Girbes](../../../content/images/fake-accounts/ani-lovi/ana-2.png)
-
-- And this is an example of the sort of gaslighting I would get after having been terrorized, as if I was imagining it. 
-
-![Ana Girbes](../../../content/images/fake-accounts/ani-lovi/ana-3.png)
-
-### Lorraine threats 
-
-- Another account appeared to be a trigger to remind me of Lorraine Blackbourn who had hung herself in July 2021 in . 
-- This account had been following me since January but the threat level ramped up in March.
-
-![Lorraine](../../../content/images/threats/lorraine/lorraine%20account.png)
-![Lorraine](../../../content/images/threats/lorraine/lorraine-2.png)
-
-- I thought `@kiwipally` was also a stalker account as they were very active at this time.
-
-![Lorraine](../../../content/images/threats/lorraine/lorraine%20again.png)
-![Lorraine](../../../content/images/threats/lorraine/lorraine-5.png)
-![Lorraine](../../../content/images/threats/lorraine/lorraine-4.png)
-![Lorraine](../../../content/images/threats/lorraine/lorraine-3.png)
-
-- The account no longer exists.
-
-![Lorraine](../../../content/images/threats/lorraine/lorraine-6.png)
 
 ## 19th March
 
