@@ -792,14 +792,17 @@
 
 ### Lorraine Tortured Whistleblower
 
-- Another account appeared to be a trigger to remind me of Lorraine Blackbourn who had hung herself in July 2021 in . 
-- This account tag teamed with the [Aniloviator](1-12.md#aniloviator) account mentioned before.
-- This account had been following me since January but the threat level ramped up in March.
+- Another fake account reminded me of Lorraine Blackbourn, I believe intentionally.
+- Lorraine Blackbourn, if you remember, was [my friend who hung herself in July 2021](../../2021/july.md#lorraine-blackbourn-commits-suicide) in very unusual circumstances as this police statement has documented extensively. 
+- The account tag teamed with the [`@Aniloviator`](1-12.md#aniloviator) account and the [`@SeonaidDawn`](1-12.md#seonaiddawn) account which is extraordinary considering [I ran in the general election with Seonaid](../june.md#election-campaign) just a few months later.
+- The account had been following me since January but the threat level ramped up in March.
 
 ![Lorraine](../../../content/images/threats/lorraine/lorraine%20account.png)
 ![Lorraine](../../../content/images/threats/lorraine/lorraine-2.png)
 
-- I thought `@kiwipally` was also a stalker account as they were very active at this time.
+- I thought `@kiwipally` was also a stalker account as they were very active at this time, although it does seem that `@kiwipally`, and perhaps others, were on my side without my knowledge at the time.
+- Nevertheless, it would not surprise me if `@kiwipally` was run by an ex-pat from the Marina Alta region as a common feature of the stalking was a push-pull, now-friend-now-enemy activity.
+- The reply from `@kiwipally` is referring to me complaining about being stalked by this account on X.
 
 ![Lorraine](../../../content/images/threats/lorraine/lorraine%20again.png)
 ![Lorraine](../../../content/images/threats/lorraine/lorraine-5.png)
@@ -810,9 +813,11 @@
 
 ![Lorraine](../../../content/images/threats/lorraine/lorraine-6.png)
 
-- I believe this account was manned entirely by Hazel Smith who was now certain of my doom since I had been threatened so badly I would never return to the conservatory.
-- That meant I was alone in my apartment with only my work colleagues at Polygon to interact with, some of whom were also complicit in whatever was going on for me at that time.
-- The nature of the cyber-stalking, and the bold confessions from accounts like, makes me certain the whole region expected me to be murdered, or die somehow, or disappear perhaps, or be maimed and/or become sick and never recover.
+- I now believe this account was manned entirely by Hazel Smith, who must have been certain of my doom since I had been threatened so badly I would never return to the conservatory.
+- This certainty meant she told me everything, and I'm writing it down.
+- Stalkers knew now that I was alone in my apartment with only my work colleagues at Polygon to interact with, some of whom were also complicit in whatever was going on for me at that time which I was unaware of.
+- The nature of the cyber-stalking, and the bold confessions from accounts like this one and others ongoing, which I will be detailing soon, makes me certain that the whole region expected me to be murdered, or die somehow, or disappear perhaps, or be maimed and/or become sick and never recover.
+- And that *no-one* would be blamed for it but myself, and God maybe.
 
 ### Threats of violence
 
