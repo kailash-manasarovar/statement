@@ -793,6 +793,9 @@
 ### Lorraine Tortured Whistleblower
 
 - Another fake account reminded me of Lorraine Blackbourn, I believe intentionally.
+
+![Lorraine](../../../content/images/threats/lorraine/lorraine-4.png)
+
 - Lorraine Blackbourn, if you remember, was [my friend who hung herself in July 2021](../../2021/july.md#lorraine-blackbourn-commits-suicide) in very unusual circumstances as this police statement has documented extensively. 
 - The account tag teamed with the [`@Aniloviator`](1-12.md#aniloviator) account and the [`@SeonaidDawn`](1-12.md#seonaiddawn) account which is extraordinary considering [I ran in the general election with Seonaid](../june.md#election-campaign) just a few months later.
 - The account had been following me since January but the threat level ramped up in March.
@@ -805,8 +808,10 @@
 - The reply from `@kiwipally` is referring to me complaining about being stalked by this account on X.
 
 ![Lorraine](../../../content/images/threats/lorraine/lorraine%20again.png)
+
+- This is the hidden tweet.
+
 ![Lorraine](../../../content/images/threats/lorraine/lorraine-5.png)
-![Lorraine](../../../content/images/threats/lorraine/lorraine-4.png)
 ![Lorraine](../../../content/images/threats/lorraine/lorraine-3.png)
 
 - The `@lorra75766` account no longer exists.
