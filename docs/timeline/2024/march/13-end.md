@@ -810,7 +810,9 @@
 
 ![Lorraine](../../../content/images/threats/lorraine/lorraine-6.png)
 
-- I believe this account was manned entirely by Hazel Smith.
+- I believe this account was manned entirely by Hazel Smith who was now certain of my doom since I had been threatened so badly I would never return to the conservatory.
+- That meant I was alone in my apartment with only my work colleagues at Polygon to interact with, some of whom were also complicit in whatever was going on for me at that time.
+- The nature of the cyber-stalking, and the bold confessions from accounts like, makes me certain the whole region expected me to be murdered, or die somehow, or disappear perhaps, or be maimed and/or become sick and never recover.
 
 ### Threats of violence
 
