@@ -815,7 +815,7 @@
 
 - I now believe this account was manned entirely by Hazel Smith, who must have been certain of my doom since I had been threatened so badly I would never return to the conservatory.
 - She felt totally safe.
-- Stalkers knew now that I was alone in my apartment with only my work colleagues at Polygon to interact with, some of whom were also complicit in whatever was going on for me at that time.
+- Stalkers now knew that I was alone in my apartment with only my work colleagues at Polygon to interact with, some of whom were also complicit in whatever was going on for me at that time.
 - The nature of the cyber-stalking, and the bold confessions from accounts like this one and others ongoing, which I will be detailing soon, makes me certain that the whole region expected me to be murdered, or die somehow, or disappear perhaps, or be maimed and/or become sick and never recover.
 - And that *no-one* would be blamed for it but myself, and God maybe.
 - What a story!
