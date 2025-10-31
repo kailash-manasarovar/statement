@@ -758,7 +758,7 @@
 
 - On a search with `@1frgvn x`, I see an entry about urology which I never accessed.
 - This references [the private health matter which I told no one about except Google](../january.md#ana-and-ana-and-paqui), and I told Google about four months previously, or even earlier, nowhere near close to the date I saw this pic and screenshot it.
-- I never read anything from this publication either; any sites I looked at were the *Dr Mercola* variety rather than research based.
+- I never read anything from this publication either; any sites I looked at were the *Dr Mercola* variety rather than research-based.
 - For teachers and staff at the conservatory to have known about the private health matter affecting me, they would have to have been aware of the Google searches I made with regards to it the summer before, and/or been visually monitoring my activities in my private bathroom at home, or perhaps even in the toilets at the conservatory.
 
 ![private health matter](../../../content/images/threats/march-threats.png)
