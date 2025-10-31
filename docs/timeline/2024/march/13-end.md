@@ -790,7 +790,7 @@
 - Grainy posts would pop up, then disappear.
 - It's possible the [rape-gang porn from 1989](../january.md#i-see-my-naked-16-year-old-body-on-x-again) was flashed up by this account.
 
-### Lorraine threats 
+### Lorraine Tortured Whistleblower
 
 - Another account appeared to be a trigger to remind me of Lorraine Blackbourn who had hung herself in July 2021 in . 
 - This account tag teamed with the [Aniloviator](1-12.md#aniloviator) account mentioned before.
@@ -809,6 +809,8 @@
 - The account no longer exists.
 
 ![Lorraine](../../../content/images/threats/lorraine/lorraine-6.png)
+
+- I believe this account was manned entirely by Hazel Smith.
 
 ### Threats of violence
 
