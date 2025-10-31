@@ -818,6 +818,7 @@
 - Stalkers knew now that I was alone in my apartment with only my work colleagues at Polygon to interact with, some of whom were also complicit in whatever was going on for me at that time which I was unaware of.
 - The nature of the cyber-stalking, and the bold confessions from accounts like this one and others ongoing, which I will be detailing soon, makes me certain that the whole region expected me to be murdered, or die somehow, or disappear perhaps, or be maimed and/or become sick and never recover.
 - And that *no-one* would be blamed for it but myself, and God maybe.
+- What a story!
 
 ### Threats of violence
 
