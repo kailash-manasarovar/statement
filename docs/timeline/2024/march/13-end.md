@@ -800,19 +800,18 @@
 - The account tag teamed with the [`@Aniloviator`](1-12.md#aniloviator) account and the [`@SeonaidDawn`](1-12.md#seonaiddawn) account which is extraordinary considering [I ran in the general election with Seonaid](../june.md#election-campaign) just a few months later.
 - The account had been following me since January but the threat level ramped up in March.
 
-![Lorraine](../../../content/images/threats/lorraine/lorraine%20account.png)
+![Lorraine](../../../content/images/threats/lorraine/lorraine-account.png)
 ![Lorraine](../../../content/images/threats/lorraine/lorraine-2.png)
 
 - I thought `@kiwipally` was also a stalker account as they were very active at this time, although it does seem that `@kiwipally`, and perhaps others, were on my side without my knowledge at the time.
 - Nevertheless, it would not surprise me if `@kiwipally` was run by an ex-pat from the Marina Alta region as a common feature of the stalking was a push-pull, now-friend-now-enemy activity.
 - The reply from `@kiwipally` is referring to me complaining about being stalked by this account on X.
 
-![Lorraine](../../../content/images/threats/lorraine/lorraine%20again.png)
+![Lorraine](../../../content/images/threats/lorraine/lorraine-again.png)
 
 - This is the hidden tweet.
 
 ![Lorraine](../../../content/images/threats/lorraine/lorraine-5.png)
-![Lorraine](../../../content/images/threats/lorraine/lorraine-3.png)
 
 - The `@lorra75766` account no longer exists.
 
@@ -882,6 +881,12 @@
 
 - I believe this account, like many others, is manned by either Hazel or Sandra Smith together with Domingo and Carmen Cano by delegation. 
 - The reason I say that is because the English is extremely fluent, very vernacular for some messages, and then not at all.
+
+#### Spaces
+
+- Quite often, I'd see X spaces set up and a whole bunch of fake accounts attending.
+- Interestingly, in the [Lorraine Tortured Whistleblower](#lorraine-tortured-whistleblower) pics, we see another account I believe was run by Hazel, or her Northern Ireland associates, [`@BelfastBeatnik`](https://x.com/BelfastBeatnik) running a space.
+- I'm curious about the Northern Ireland connection now, and the horrible experience I had in 2020 as I left my toxic environment in London and sought a new and better life, and seemed to be attacked by swarms of sinister people and events wherever I went from that moment onwards...
 
 ## 19th March
 
