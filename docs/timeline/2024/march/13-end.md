@@ -774,9 +774,12 @@
 
 [![ba feldman account](../../../content/images/fake-accounts/ba-feldman-1.png)](https://x.com/AIinAmerica)
 
-- The account was right in there responding to posts referencing extreme harassment at the conservatory and elsewhere.
+- The account was right in there at the right moment, responding to posts referencing extreme harassment at the conservatory and elsewhere.
 
 [![ba feldman account](../../../content/images/fake-accounts/ba-feldman-2.png)](https://x.com/AIinAmerica/status/1767668324442284540)
+
+- And, even calling out the situation as it was at the time, and still is to this day.
+- Posts like this would make me wonder if it really was the trumpet teacher I loved looking out for me.
 
 [![march threats](../../../content/images/threats/march-threats-1.png)](https://x.com/AIinAmerica/status/1767325622928327041)
 
@@ -788,7 +791,7 @@
 - Posts from this account would have that grainy effect I remember which meant me having to look closely at the screen.
 - Posts would pop up, then disappear.
 
-#### Threats of violence
+### Threats of violence
 
 - The following account is an example of a few which had pure violence as content around this time. 
 
@@ -799,7 +802,9 @@
 ![march threats](../../../content/images/threats/march-threats-6.png)
 ![march threats](../../../content/images/threats/march-threats-7.png)
 
-### Random threats of violence
+- Here's a mention of stabbing, now deleted.
+
+![Threat of stabbing](../../../content/tweets/march-2024/deleted-mention-of-stabbing.png)
 
 - Norma relates to chamber music class and the bullying there.
 
