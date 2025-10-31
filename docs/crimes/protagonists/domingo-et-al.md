@@ -13,6 +13,7 @@
 - The woman on the far left ends up [stalking me in person in July 2025 at my hotel in Lourdes](../../timeline/2025/july.md#lourdes).
 - Is this article from the [local online newspaper](https://www.denia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-denia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
 - Is this the first obvious admission that the *whole town* is aware of what these people are doing, and to whom?
+- I bet there are a million more evidential-snippets, just like this one.
 - The name "Cano" relates to all things canine and "Lopez" to all things wolverine. While I was being stalked and terrorized online, there were a lot of references to these animals, and particularly when the stalking took a more seriously threatening or abusive turn.
 - Indeed, dogs featured constantly in the online harassment and threats.
 - Here's a fake X account pic that communicated with me during the [March 2024 intensive online psychological abuse](../../timeline/2024/march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) of him as an older person.
