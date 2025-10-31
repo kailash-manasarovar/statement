@@ -752,21 +752,42 @@
 - I don't remember his response to this information.
 - He never mentions it again.
 
-## Online threats over this period
+## Online stalking and threats over this period
 
 ### Google search
 
-- This one references my private health matter which I told no one about except Google, but they all knew about it. 
+- On a search with `@1frgvn x`, I see an entry about urology which I never accessed.
+- This references [the private health matter which I told no one about except Google](../january.md#ana-and-ana-and-paqui), and I told Google about four months previously, nowhere near close to the date I saw it and screenshot it.
+- For teachers and staff at the conservatory to have known about the private health matter affecting me, they would have to have been aware of the Google searches I made with regards to it the summer before, and/or been visually monitoring my activities in my private bathroom at home, or perhaps even in the toilets at the conservatory.
 
 ![private health matter](../../../content/images/threats/march-threats.png)
 
+- It's extremely important to remember that this private health matter that I told *no-one* about to this day cleared up immediately I stopped being poisoned.
+
 ### Twitter screenshots
 
-- The B.A. Feldman account has been pretending to be the trumpet teacher for a while. Quite often, Trump features in accounts I'm supposed to believe are the trumpet teacher's.
+#### B A Feldman
 
-![ba feldman account](../../../content/images/fake-accounts/ba-feldman-1.png)
-![ba feldman account](../../../content/images/fake-accounts/ba-feldman-2.png)
-![march threats](../../../content/images/threats/march-threats-1.png)
+- The B.A. Feldman account was pretending to be the trumpet teacher for a while, at least since October 2023. 
+- Trump (play on words with trumpet) often features in accounts I'm supposed to believe are the trumpet teacher's.
+
+[![ba feldman account](../../../content/images/fake-accounts/ba-feldman-1.png)](https://x.com/AIinAmerica)
+
+- The account was right in there responding to posts referencing extreme harassment at the conservatory and elsewhere.
+
+[![ba feldman account](../../../content/images/fake-accounts/ba-feldman-2.png)](https://x.com/AIinAmerica/status/1767668324442284540)
+
+[![march threats](../../../content/images/threats/march-threats-1.png)](https://x.com/AIinAmerica/status/1767325622928327041)
+
+- There was a lot of back-and-forth between us, many tweets now deleted.
+
+![AI in America convo deleted](../../../content/tweets/march-2024/ai-in-america-convo-1.png)
+
+- Again, I believe this to be yet another multi-delegate account run by criminal gangs.
+- Posts from this account would have that grainy effect I remember which meant me having to look closely at the screen.
+- Posts would pop up, then disappear.
+
+#### Threats of violence
 
 - The following account is an example of a few which had pure violence as content around this time. 
 
