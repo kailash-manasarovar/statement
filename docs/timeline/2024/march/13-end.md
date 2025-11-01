@@ -930,7 +930,7 @@
 
 - I'm really worried I'm going to be robbed.
 - I order a new bank card but I won't be able to use it until I get back to my apartment in Dénia in April.
-- I decide to change the card PIN numbers on my bank cards in Madrid.
+- I decide to change the PIN numbers on my bank cards in Madrid.
 - The process I have done a hundred times is unusually and extraordinarily difficult.
 - It is as if I don't have the mental capacity to perform this simple task.
 - It takes me three or four trips to the ATM machine at the relevant banks to finally complete the task, a whole day for one card.
