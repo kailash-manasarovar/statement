@@ -386,6 +386,18 @@
 - I get a response from Dénia police who were [decidedly unhelpful in February](february.md#my-first-trip-to-the-spanish-police-in-denia).
 - I do not respond.
 
+## Mercadona
+
+- The last time I visit Mercadona, probably the last week of October just before I leave, I am mass-harassed.
+- A woman is pointing and laughing at me.
+- People are giving me weird looks.
+- The checkout lady looks like the sister of [the second and a half man, Mark](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013).
+- As I leave the store, the door is shut and won't open.
+- I'm pressing the button and they've put the word "pervert" on the LED.
+- I hear laughing.
+- I find it ridiculous. It's supposed to terrify me.
+- Could the whole of Denia know I was a switcheroo porn target, and need to be rid of me because the next batch of targets needs attending to?
+
 ## Silvia
 
 - The hackers imply that Silvia is the trumpet teacher's daughter and post pictures of a child who is supposed to be her.
