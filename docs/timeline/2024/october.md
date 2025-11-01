@@ -392,6 +392,7 @@
 - A woman is pointing and laughing at me.
 - People are giving me weird looks.
 - The checkout lady looks like the sister of [the second and a half man, Mark](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013).
+- She's ashamed and won't look at me.
 - As I leave the store, the door is shut and won't open.
 - I'm pressing the button and they've put the word "pervert" on the LED.
 - I hear laughing.
