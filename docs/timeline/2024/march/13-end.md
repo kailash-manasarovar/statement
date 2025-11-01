@@ -936,23 +936,22 @@
 - It takes me three or four trips to the ATM machine at the relevant banks to finally complete the task, a whole day for one card.
 - For another card, I have to come back the next day to finish the task.
 - I wonder what was impeding my cognitive ability at the time.
-- Whatever it was, they continued to dose me up on it, and now there are many common tasks I used to do without issue that I cannot do easily.
-- My spatial awareness is non-existent, and I cannot play chess anymore and I was really quite good at chess.
+- Whatever it was, they continued to dose me up on it, and now I have trouble with many common tasks I used to do without issue.
 - I have to wonder if teachers and staff at the conservatory and their criminal associates have given me a permanent brain injury.
-- Certainly in November 2025 I am still unable to play chess and I have zero spatial awareness (something I never had a problem with before).
+- Certainly in November 2025 I am still unable to play chess - I was actually rather good at chess - and I have zero spatial awareness, something I never had a problem with pre-2023.
 
-#### Drugs in my toiletries
-
-- What I was not to realize until December 2024 was that criminal gang members, certainly Carmen Cano but no doubt my neighbors at Carrer Furs and others, were entering my apartment while I wasn't there - my movements being obvious to anyone looking at the spy-cam live-stream and tracking me on my phone.
-- Now I had been terrorized into leaving, they could start the maiming with the intention of blinding at a minimum (so I could be easily robbed) and then eventually murder.
-- My suspicion is low level methanol doses which affected my sight determintally but, worse, decimated my cognitive capacity.
-- This event of not being able to do the most simple task of changing two PIN numbers on bank cards at respective ATMs, was the first time I really noticed my cognitive skills in decline.
-- Prior to March 2024, I was doing detailed and complicated mental tasks at work on a daily basis with no issue.
-- From March 2024, my cognitive skills went into serious decline.
-- I found out, alarmingly, I was unable to play chess anymore in September 2024, and I had been a good player and was able to beat other good players my whole life.
-- I can only assume some deadly substance was added to my toiletries which I continued to ingest while I was away.
-- Another cognitive skill I have completely lost since March 2024 is my spatial awareness, which has been very strange for me as it was excellent prior to being attacked with the intention to maim and kill by Denia criminal porn-gangs and honey-trappers.
-- When I finally realized what was going on, and threw out all my toiletries in Bangkok in December 2024, my sight and health improved immediately. And then I knew for sure.
+!!! danger "Drugs and poisons in my toiletries"
+    - It took until December 2024 before I was certain that criminal gang members - certainly Carmen Cano but no doubt my neighbors at Carrer Furs and others - were entering my apartment while I wasn't there to add substances to my toiletries.
+    - This meant they could continue to dose me up long term, even when I was away for long periods of time.
+    - Given I had been sufficiently terrorized into leaving my conservatory studies, they could safely begin the maiming with the intention of blinding at a minimum (so I could be more easily robbed I guess) and then eventually murder, perhaps by some illness caused by constant poisoning like perhaps [Vipassana Maria the Buddhist was experiencing](../../early-years/2015.md#vipasana-maria); her doctors and the hospitals claiming there was no problem with this huge abdominal growth near her liver area.
+    - My suspicion is low-level methanol doses which affected my sight determintally (I now have a pre-glaucoma condition) but, worse, *decimated* my cognitive capacity.
+    - Not being able to do the most simple task of changing a PIN number on a bank card at an ATM machine was the first time I really noticed my cognitive skills in decline.
+    - Prior to March 2024, I was doing detailed and complicated mental tasks at work on a daily basis with no issue.
+    - From March 2024, my cognitive skills went into serious decline.
+    - I found out, alarmingly, I was unable to play chess anymore in September 2024, and I had been a good player and was able to beat other good players my whole life.
+    - I can only assume some deadly substance was added to my toiletries which I continued to ingest while I was away.
+    - Another cognitive skill I have completely lost since March 2024 is my spatial awareness, which has been very strange for me as it was excellent prior to being attacked with the intention to maim and kill by criminal porn-gangs and honey-trappers.
+    - When I finally realized what was going on, and threw out all my toiletries in Bangkok in December 2024, my sight and health improved immediately; and then I knew for sure.
 
 ### Chat with Jorge
 
