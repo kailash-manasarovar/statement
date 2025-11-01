@@ -398,6 +398,7 @@
 - I hear laughing.
 - I find it ridiculous. It's supposed to terrify me.
 - Could the whole of Denia know I was a switcheroo porn target, and need to be rid of me because the next batch of targets needs attending to?
+- It seems likely, or worse even, perhaps many of the Denia men attended in person.
 
 ## Silvia
 
