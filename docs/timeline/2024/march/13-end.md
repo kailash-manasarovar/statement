@@ -902,18 +902,21 @@
 
 ![hier encore threatening chat](../../../content/images/threats/hier-2.png)
 
-- I must have had a sense of triangulation at this time; i.e. people who had my back who were also trapped in hell by the Smiths. The *cutting loose* reference refers to this.
-- The *here and now* reference is refering to `@jctot19` of course; the trumpet teacher I was in love with and believe loved me back (I had no idea there were at least four trumpet teachers). What to do!
+- I must have had a sense of triangulation at this time; i.e. people who had my back who were also trapped in hell by the Smiths; *cutting loose* refers to this. 
+- The answer suggests they expect to go to jail together.
+- The *here and now* statement refers to `@jctot19` of course; the trumpet teacher I was in love with and believe loved me back (I had no idea there were at least four trumpet teachers). What to do!
 
 ![hier encore threatening chat](../../../content/images/threats/hier-3.png)
 
 - Interesting deleted reference. 
 - I remembered it was regarding the fact I had gone *no contact* with my family. Definitely something they would have wanted to delete.
+- Note the quick revert back to jail imagery. I find this fascinating.
 
 ![hier encore threatening chat](../../../content/images/threats/hier-4.png)
 
-- I was definitely chatting with Sandra, but like the other delegated accounts, this one could be taken over at any moment and I believe Domingo and Carmen would have done so frequently.
-- Outside of when I was speaking with Sandra in extremely fluent and vernacular British English, suddenly it will stop and be broken and obviously a non-native speaker. You can probably see this in the conversations, if they haven't deleted them.
+- I was definitely chatting with Sandra, but like the other delegated accounts, this one could be taken over at any moment and I believe Domingo and Carmen and other Spanish-speakers did so, frequently.
+- Outside of when I was speaking with Sandra in extremely fluent and vernacular British English, suddenly the flow might stop and be broken by an obvious non-native speaker.
+- You can probably see this in the conversations, if they haven't deleted them.
 
 #### Spaces
 
