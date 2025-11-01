@@ -953,13 +953,13 @@
     - Another cognitive skill I have completely lost since March 2024 is my spatial awareness, which has been very strange for me as it was excellent prior to being attacked with the intention to maim and kill by criminal porn-gangs and honey-trappers.
     - When I finally realized what was going on, and threw out all my toiletries in Bangkok in December 2024, my sight and health improved immediately; and then I knew for sure.
 
-### Chat with Jorge
+### Chat with Jorge Tuesday 19th
 
 ??? note "Chat with Jorge 19th March"
-    [19/03/2024, 02:51:06] Niramisa Weiss: Is 22nd ok Jorge?
-    [19/03/2024, 02:51:14] Niramisa Weiss: In the morning
-    [19/03/2024, 03:14:24] Jorge Esclapez Deckcard23: Hi. Sorry but the people in the lab is on hollyday. I confirma you the wednesday at morning. My apologies. See you.
-    [19/03/2024, 13:03:48] Niramisa Weiss: Ok thank you
+    [19/03/2024, 02:51:06] Niramisa Weiss: Is 22nd ok Jorge?</br>
+    [19/03/2024, 02:51:14] Niramisa Weiss: In the morning</br>
+    [19/03/2024, 03:14:24] Jorge Esclapez Deckcard23: Hi. Sorry but the people in the lab is on hollyday. I confirma you the wednesday at morning. My apologies. See you.</br>
+    [19/03/2024, 13:03:48] Niramisa Weiss: Ok thank you</br>
 
 ### Continuing threats
 
