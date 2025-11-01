@@ -938,7 +938,7 @@
 - I wonder what was impeding my cognitive ability at the time.
 - Whatever it was, they continued to dose me up on it, and now I have trouble with many common tasks I used to do without issue.
 - I have to wonder if teachers and staff at the conservatory and their criminal associates have given me a permanent brain injury.
-- Certainly in November 2025 I am still unable to play chess - I was actually rather good at chess - and I have zero spatial awareness, something I never had a problem with pre-2023.
+- Certainly in November 2025 I am still unable to play chess - I was actually rather good at chess - and I have zero spatial awareness, something I never had a problem with pre-March 2024.
 
 !!! danger "Drugs and poisons in my toiletries"
     - It took until December 2024 before I was certain that criminal gang members - certainly Carmen Cano but no doubt my neighbors at Carrer Furs and others - were entering my apartment while I wasn't there to add substances to my toiletries.
