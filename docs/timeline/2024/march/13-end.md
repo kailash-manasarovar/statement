@@ -922,7 +922,7 @@
 
 - Quite often, I'd see X spaces set up with a whole bunch of familiar fake accounts attending.
 - Interestingly, in the [Lorraine Tortured Whistleblower](#lorraine-tortured-whistleblower) pics, we see another account I believe was run by Hazel, or her Northern Ireland associates, [`@BelfastBeatnik`](https://x.com/BelfastBeatnik) running a space.
-- I'm curious about the Northern Ireland connection now, and the horrible experience I had in 2020 as I left my toxic environment in London and sought a new and better life, and seemed to be attacked by swarms of sinister people and events wherever I went from that moment onwards...
+- I'm curious about the Northern Ireland connection now, and [the horrible experience I had in 2020](../../early-years/interim.md#targeted-by-online-scammers) as I left my toxic environment in London and sought a new and better life, and seemed to be attacked by swarms of sinister people and events wherever I went from that moment onwards...
 
 ## 19th March
 
