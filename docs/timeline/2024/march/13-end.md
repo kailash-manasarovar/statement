@@ -454,6 +454,7 @@
 
 [![Laryngoplasty](../../../content/tweets/march-2024/laryngoplasm.png)](https://x.com/1FRGVN/status/1769859075813101947)
 
+- You can see at the top of the screenshot above a function of the cyber-stalking I wasn't clear about at the time. This is that the stalker accounts like my posts and that's how they are able to send messages to me as I go through who has liked something I have said and read the profile messages.
 - This one feels like a direct threat.
 
 [![I live for revenge](../../../content/tweets/march-2024/i-live-for-revenge.png)](https://x.com/1FRGVN/status/1769860927296258167)
@@ -826,7 +827,11 @@
 
 ### Threats of violence
 
-- The following account is an example of a few which had pure violence as content around this time. 
+- You cannot imagine the continuous online threats I was subjected to on X over this period.
+- It was a bombardment of violent imagery and messaging, subtle and not so sublte, and of course nothing that could, on its own, be reported.
+- In this section, I list a small sample of the threatening content I was seeing.
+- Again, much of it from accounts that no longer exist.
+- Here's a particularly unpleasant example with imagery which will "pop up" yet again in [July 2025 when the criminal gangs stalked and poisoned me during my trip to Lourdes](../../2025/july.md#more-threats) - I wasn't even using the X app on my phone then.
 
 ![march threats](../../../content/images/threats/march-threats-2.png)
 ![march threats](../../../content/images/threats/march-threats-3.png)
@@ -839,23 +844,28 @@
 
 ![Threat of stabbing](../../../content/tweets/march-2024/deleted-mention-of-stabbing.png)
 
-- Norma relates to chamber music class and the bullying there.
-
-![march threats](../../../content/images/threats/march-threats-8.png)
-
-- Khadidjatu sounds like Ka did you too. Africas is related to a song at choir and my personal life.
+- Khadidjatu sounds like *Ka did you too*.
+- Is that a direct reference to someone "do-ing" me?
+- Africas is related to a song at choir and my personal life.
 
 ![march threats](../../../content/images/threats/march-threats-9.png)
 
-- A very threatening message. This whole tweet conversation with this account was extremely threatening and phosphorous poisoning was mentioned.
+- A very threatening message below.
+- The whole tweet conversation with this account was extremely threatening; even phosphorous poisoning was mentioned.
 
 [![march threats](../../../content/images/threats/march-threats-14.png)](https://x.com/HEncore49002/status/1771292132571005427)
 
-- I wondered if this account was the technician guy at the conservatory or the owner of the mobile phone shop.
+- I'm pretty certain the content coming from the `@hierencore` account was Sandra Smith. I could practically hear her voice. Apparently, her ridiculous diatribe was supposed to be smart and funny, as well as threatening. It was only threatening.
+- I wondered if the account below was the technician guy at the conservatory, or the owner of the mobile phone shop.
+- It was always active during intense threats and the English is very British-vernacular.
+- The profile pic saying *Ssh, be quiet*, is another common theme.
+- I expect it is probably Hazel putting on her *normal*.
 
 ![march threats](../../../content/images/threats/march-threats-12.png)
 
-- Tyburski I took to mean they were going to tamper with my car. The comment is derogatory of course. Note this profile pic looks like the [nurse again](../../2021/december.md#semen-stains-on-the-sofa).
+- *Tyburski* I took to mean they were going to tamper with my car; another common theme. 
+- The comment is derogatory of course; *clowns* being a common threat-meme.
+- Note this profile pic looks like the [nurse again](../../2021/december.md#semen-stains-on-the-sofa) with the very threatening message.
 
 ![march threats](../../../content/images/threats/march-threats-13.png)
 
