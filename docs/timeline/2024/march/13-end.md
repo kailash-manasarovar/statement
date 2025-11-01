@@ -855,7 +855,10 @@
 
 [![march threats](../../../content/images/threats/march-threats-14.png)](https://x.com/HEncore49002/status/1771292132571005427)
 
-- I'm pretty certain the content coming from the `@hierencore` account was Sandra Smith. I could practically hear her voice. Apparently, her ridiculous diatribe was supposed to be smart and funny, as well as threatening. It was only threatening.
+- I'm pretty certain the content coming from the `@hierencore` account was Sandra Smith.
+- I could practically hear her voice. 
+- Apparently, her ridiculous diatribe was supposed to be smart and funny, as well as threatening. It was only threatening.
+- Our chats were so good, she even gets [her own section below](#hierencore49002).
 - I wondered if the account below was the technician guy at the conservatory, or the owner of the mobile phone shop.
 - It was always active during intense threats and the English is very British-vernacular.
 - The profile pic saying *Ssh, be quiet*, is another common theme.
@@ -869,28 +872,48 @@
 
 ![march threats](../../../content/images/threats/march-threats-13.png)
 
-- The message translates to: "TERF I live for revenge."
+- Another stalker account message translates to: "TERF I live for revenge."
 
 ![march threats](../../../content/images/threats/march-threats-11.png)
 ![march threats](../../../content/images/threats/march-threats-15.png)
 
-- Gone fission I took to refer to a conversation I had with Christine BJ at lunch where I was explaining how being stalked like this felt. This was back in probably November 2023 sometime. 
-- I had said that I believe the trumpet teacher was going to be the man I married and that he was doing the "if he likes you he treats you badly" thing to nuclear fission levels.
+- It's probably worth re-translating a lot of these messages because hackers were able to manipulate translation results into whatever they wanted.
+- I just did that with the above pic and got a completely different message.
+
+![New translation](../../../content/tweets/march-2024/new-translation.png)
+
+- *Gone fission* I took to refer to a conversation I had with Christine BJ at lunch where I was explaining how being stalked to this extent felt. This was back in probably November 2023 sometime. 
+- Things I said to people were often posted back to me on X like this; I assumed because someone was listening to everything I said via my hacked mobile.
+- I had said that I believed the trumpet teacher was going to be the man I married, and that he was doing the *if he likes you he treats you badly* thing to nuclear fission levels.
 
 ![march threats](../../../content/images/threats/march-threats-10.png)
 
-- An account called `@HierEncore49002` converses with me on Twitter. Peppered throughout the chat are threats and references to jail, drugs, and poisoning. Here's the search: https://x.com/search?q=%20%20(from%3AHEncore49002)%20(to%3A1frgvn)&src=typed_query&f=live and following are some examples.
+#### `@HierEncore49002`
+
+- An account called `@HierEncore49002` converses with me on Twitter. 
+- I'm certain its Sandra Smith, I can practically hear her voice.
+- Peppered throughout the chat are threats and references to jail, drugs, my personal life, other stalkers and criminals, and poisoning. 
+- Here's the search: https://x.com/search?q=%20%20(from%3AHEncore49002)%20(to%3A1frgvn)&src=typed_query&f=live and following are some examples.
 
 ![hier encore threatening chat](../../../content/images/threats/hier-1.png)
+
+- I've got to wonder who *Amy* is. The name rings a very strong alarm bell.
+- I inform the account holder I'm on to them with the *pothead* reference alluding to Hazel. Note the reply.
+
 ![hier encore threatening chat](../../../content/images/threats/hier-2.png)
+
+- I must have had a sense of triangulation at this time; i.e. people who had my back who were also trapped in hell by the Smiths. The *cutting loose* reference refers to this.
+- The *here and now* reference is refering to `@jctot19` of course; the trumpet teacher I was in love with and believe loved me back (I had no idea there were at least four trumpet teachers). What to do!
+
 ![hier encore threatening chat](../../../content/images/threats/hier-3.png)
 
-- Interesting deleted reference. I'll try and remember what it was. I think it was in reference to me going no contact with my family.
+- Interesting deleted reference. 
+- I remembered it was regarding the fact I had gone *no contact* with my family. Definitely something they would have wanted to delete.
 
 ![hier encore threatening chat](../../../content/images/threats/hier-4.png)
 
-- I believe this account, like many others, is manned by either Hazel or Sandra Smith together with Domingo and Carmen Cano by delegation. 
-- The reason I say that is because the English is extremely fluent, very vernacular for some messages, and then not at all.
+- I was definitely chatting with Sandra, but like the other delegated accounts, this one could be taken over at any moment and I believe Domingo and Carmen would have done so frequently.
+- Outside of when I was speaking with Sandra in extremely fluent and vernacular British English, suddenly it will stop and be broken and obviously a non-native speaker. You can probably see this in the conversations, if they haven't deleted them.
 
 #### Spaces
 
