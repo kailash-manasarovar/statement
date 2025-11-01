@@ -926,14 +926,20 @@
 
 ## 19th March
 
-### Changing card PIN numbers
+### Changing my bankcard PIN numbers
 
-- I order a new bank card but I won't be able to use it until I get back to Dénia in April.
+- I'm really worried I'm going to be robbed.
+- I order a new bank card but I won't be able to use it until I get back to my apartment in Dénia in April.
 - I decide to change the card PIN numbers on my bank cards in Madrid.
-- This process is extraordinarily difficult, it is as if I don't have the mental capacity to do a simple task like this.
-- It takes me three or four trips to the ATM machine at the banks to finally complete the task, a whole day in fact.
-- I'm so unbelievably stressed, simple tasks like this are becoming extraordinarily difficult to complete.
-- I'm not at home, and I haven't been at home for 5 days so I wonder now what is continuing to impede my cognitive ability so much.
+- The process I have done a hundred times is unusually and extraordinarily difficult.
+- It is as if I don't have the mental capacity to perform this simple task.
+- It takes me three or four trips to the ATM machine at the relevant banks to finally complete the task, a whole day for one card.
+- For another card, I have to come back the next day to finish the task.
+- I wonder what was impeding my cognitive ability at the time.
+- Whatever it was, they continued to dose me up on it, and now there are many common tasks I used to do without issue that I cannot do easily.
+- My spatial awareness is non-existent, and I cannot play chess anymore and I was really quite good at chess.
+- I have to wonder if teachers and staff at the conservatory and their criminal associates have given me a permanent brain injury.
+- Certainly in November 2025 I am still unable to play chess and I have zero spatial awareness (something I never had a problem with before).
 
 #### Drugs in my toiletries
 
