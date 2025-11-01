@@ -955,6 +955,9 @@
 
 ### Chat with Jorge Tuesday 19th
 
+- I'm still not clear about what to do about getting my devices analyzed for the police.
+- We will make a decision on [21st March](#cyber-expert) about who to go with.
+
 ??? note "Chat with Jorge 19th March"
     [19/03/2024, 02:51:06] Niramisa Weiss: Is 22nd ok Jorge?</br>
     [19/03/2024, 02:51:14] Niramisa Weiss: In the morning</br>
