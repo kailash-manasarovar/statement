@@ -948,7 +948,7 @@
     - Not being able to do the most simple task of changing a PIN number on a bank card at an ATM machine was the first time I really noticed my cognitive skills in decline.
     - Prior to March 2024, I was doing detailed and complicated mental tasks at work on a daily basis with no issue.
     - From March 2024, my cognitive skills went into serious decline.
-    - I found out, alarmingly, I was unable to play chess anymore in May (at dinner in Bali with the Head of IT) and more obviously in September 2024 on Chess.com, and I had been a good player and was able to beat other good players my whole life.
+    - I found out, alarmingly, I was unable to play chess anymore in May (at dinner in Bali with the Polygon Head of IT) and more obviously in September 2024 on Chess.com, and I had been a good player and was able to beat other good players my whole life.
     - I can only assume some deadly substance was added to my toiletries which I continued to ingest while I was away.
     - Another cognitive skill I have completely lost since March 2024 is my spatial awareness, which has been very strange for me as it was excellent prior to being attacked with the intention to maim and kill by criminal porn-gangs and honey-trappers.
     - When I finally realized what was going on, and threw out all my toiletries in Bangkok in December 2024, my sight and health improved immediately; and then I knew for sure.
