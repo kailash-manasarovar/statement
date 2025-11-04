@@ -1,5 +1,13 @@
 # March 13th to end
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Wednesday 13th March 
 
 - I wake up and leave for the [serviced offices](https://www.knowheredenia.com/) in Dénia where I'm having to work due to hacking.
@@ -1053,8 +1061,8 @@
 ### I tell my manager at Polygon
 
 - I tell David Schwarz I'm being hacked and harassed.
-- He is concerned.
-- He never speaks of it again.
+- He seems concerned and tells me to keep him informed.
+- He never mentions it again.
 
 ### Domingo the piano teacher
 

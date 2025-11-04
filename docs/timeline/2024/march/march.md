@@ -1,5 +1,13 @@
 # March 2024
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 - I'm splitting out this chapter into two parts as the events of March 2024 were *extremely* significant and an awful lot happened.
 - It felt like I was experiencing terror and psychological assault minute-by-minute, online or in the town whenever I left my house. I describe the constant surveillance and gang-stalking.
 - The porn-gangs together with teachers and staff at the conservatory were determined to get me to leave my piano studies, and they did achieve their goal.

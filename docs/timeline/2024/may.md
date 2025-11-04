@@ -1,5 +1,13 @@
 # May 2024
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Hazel Smith on Twitter
 
 - This account was likely Hazel, or her mum, as we had a long chat: https://x.com/1FRGVN/status/1785410648802734485.
