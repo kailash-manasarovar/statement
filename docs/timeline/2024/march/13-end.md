@@ -1005,7 +1005,7 @@
 [![Karolina again](../../../content/tweets/march-2024/karolina-2.png)](https://x.com/1FRGVN/status/1566353197878362114)
 
 - In March 2024, having never mentioned Mike's name, I am DM'ed by a fake account that has been lurking around for some weeks.
-- They randomly asks me about him.
+- They randomly ask me about him.
 
 ![Mike](../../../content/images/threats/mike-wenham/march-threats-mike-wenham-1.png)
 
