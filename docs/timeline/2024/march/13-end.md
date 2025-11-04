@@ -1046,7 +1046,7 @@
     - The similarities were extraordinary.
     - Was all of his murderousness egged on via online manipulation and fake communications?
 
-- I have to surmise that this account was run by Hazel and Sandra Smith, or their British honey-trapping gang connections.
+- I have to surmise that this account was run by Hazel and Sandra Smith, or their British honey-trapping gang counterparts.
 
 ## 20th March
 
