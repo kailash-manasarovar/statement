@@ -143,6 +143,14 @@
 
 - By my current inability to walk uphill, it appears they went for my heart this time around, and I certainly saw a couple of fake accounts flying by with names or messages containing the words; "finger injections", i.e. injecting digitalis into my bathroom products or water.
 
+#### Why now?
+
+- Is whatever sedating rape-gangs use to drug women a powerful hallucinogenic plant, like ayahuasca which, also like ayahuasca, has a full come-back-down-to-normal duration of around six-to-eight months.
+- This is what I noticed about the effects of the plant when I tried ayahuasca around 2005 to help me access blocked memories from sedated experiences in 1989.
+- Did criminal gangs *have* to dose me up again, or finish me off, so I wouldn't remember, or get clear about, the [four distinct men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) posing as one man, the trumpet teacher, *Vidal Sastre Sanchez Hornero*?
+- When I look over this statement, I realize that I have been looking a photos of these men since June 2023 and believing them to be one man all this time.
+- It wore off, didn't it.
+
 #### Moorfields
 
 - I write to Moorfields extremely concerned about the sudden onset vision loss in my left peripheral.
