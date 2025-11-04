@@ -1,3 +1,14 @@
+# July 2025
+
+## Delivery man sniggers at me
+
+- A delivery man brings a package for a family member.
+- I answer the door.
+- He's holding his phone in one hand and the package in the other, which he hands to me.
+- He looks at me, grinning and sniggering in a perverted way.
+- It's as if he knows who I am.
+- Does he have a dark-web porn subscription to live target action genres?
+
 ## ChatGPT
 
 - ChatGPT breaks for me whenever I'm drawing something explosive.
