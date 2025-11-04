@@ -92,6 +92,7 @@
 - There's something going on though.
 - These two men are a bit snickery and giggly with each other, like they're winking and grinning at me.
 - Something's happening that they're not telling me about, and it's important I should know.
+- Do they both have dark-web porn subscriptions to live target action genres?
 - They remind me of countless situations I've been in over the last few years where people seem to know more about me than I do, and none of it is good.
 - Have they seen the porn I'm in? The snickering would suggest so.
 - When I do the peripheral test, I notice I can hardly see any dots in the left peripheral.
