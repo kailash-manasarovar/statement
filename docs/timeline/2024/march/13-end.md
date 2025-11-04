@@ -1027,7 +1027,7 @@
 
 - My cousin Leah (also a target for honey-trappers) had found me somehow a while back (was she led to me by British criminals that control her?).
 - I believe she told my mum I was on X and gave her my details. 
-- I saw my mother following me around that time, and thought it was someone pretending to be her.
+- I saw my mother following me around that time, and thought it was just another stalker pretending to be her.
 - I subsequently found out, in April when we communicated directly, that it really was her. 
 - The hackers were more sure of the truth than myself at that time!
 
