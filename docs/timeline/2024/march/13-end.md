@@ -968,24 +968,60 @@
 
 #### Mike Wenham
 
-- Mike Wenham was an old boss of mine at my first ever programming job with British Telecom in 2010.
-- He was a psychopath and had terrorized the one other woman at work so badly, she walked out.
-- When she left, they turned on me. It was horrible; rape jokes, porn on my screen. 
-- I was forced to leave before 6 months was done on my first ever job in tech after gaining my PhD. It was devastating.
-- In 2014 his wife emailed everyone to tell us Mike had murdered a woman and would we be able to help with character references for the police as she thought he'd had temporary insanity.
-- Turned out he had had a penis enlargement operation which had gone horribly wrong and he lost a few inches, and after that had become obsessed with murdering a woman; it all came out in court.
-- He ended up found guilt of murder and imprisoned, even though some of his colleagues took the stand and said what a good bloke he was.
-- I wrote about this on Twitter when I was anonymous, in 2021 and 2022:
-    - https://x.com/1FRGVN/status/1434110111895654402
-    - https://x.com/1FRGVN/status/1566353197878362114
-- I never once mentioned Mike Wenham, the name of the murderer, and yet, I am DM'ed by an account that asks me about him.
+- Mike Wenham was my boss at my first ever programming job with British Telecom in 2010 in High Wycombe.
+- It had been my sole ambition to be a software engineer and build systems and services to help make the world a better place.
+- I had found it very hard to get a break into software development, even with a PhD, so I had done professional Java certifications in India in 2010, the same time I "bumped into" [Jitendra Das](../../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life).
+- When I returned to the UK, I got a job pretty much immediately.
+- Mike told me that my tech interview test had been the best anyone had ever done on it, and he also liked me so gave me the job.
+- We got on.
+- However, Mike was a woman-hating psychopath and had already terrorized the one other woman at work so badly, she walked out about five months after I started.
+- In our totally chaotic code base, I'd often come across pieces of beautifully clear code. Mindy had always authored those.
+- The whole team sang *ding dong the witch is dead* the day after she walked out.
+- Another man walked out the following day in support of her.
+- I told Mike about my view on her code. He told me they had helped her with everything she did. I did not believe him.
+- It was my first ever tech job, I was on probation, I didn't know what to do.
+- With Mindy gone, they turned on me immediately.
+- It was horrible; rape jokes, porn on my screen. 
+- At my six-month review, Mike told me he didn't know if I was any good, and I would have to write a list of everything I had done while I was there so he could think about whether I was good enough, or not.
+- I went back to my desk, opened a text editor, and start to write the list.
+- At that moment, I heard a voice.
+- It said quietly: *You don't have to do that.*
+- Now I very rarely hear voices, just a few times in my life. But they have *always* said really rather amazing and positive things.
+- A few days after that I went away for Christmas. While I was away, detoxing in Samui, I realized I had no choice but to leave my job.
+- I emailed Mike to tell him. He was really angry and sent a(n Irish) million emails trying to get me to stay; *I want you to love your job*, he said. I had.
+- It was devastating.
+- Anyway...
+- Cut to March 2014, the [first day of my service with Our Lady at Lourdes](../../early-years/2014.md#mike-wenham-murders-a-woman): Mike's wife emails everyone to tell us Mike has murdered a woman and would we be able to help with character references for the police as everyone thought he'd gone temporarily insane.
+- Turned out he had had a penis enlargement operation which had gone horribly wrong, and instead of gaining a huge penis, he lost a few inches of what he already had, and after that he had become obsessed with murdering a woman.
+- All of this came out in court and was reported in the media, the [Mirror](https://www.mirror.co.uk/news/uk-news/michael-wenham-dad-who-decapitated-5069212) mainly.
+- Some of his colleagues took the stand to say what a good bloke he was.
+- Mike was found guilty of murder, and imprisoned for life.
+- I wrote about this on X when I was anonymous, in 2021:
+
+[![Karolina](../../../content/tweets/march-2024/karolina.png)](https://x.com/1FRGVN/status/1434110111895654402)
+
+- And again in 2022:
+
+[![Karolina again](../../../content/tweets/march-2024/karolina-2.png)](https://x.com/1FRGVN/status/1566353197878362114)
+
+- I never mentioned Mike's name, and yet, I am DM'ed by a fake account, in March 2024 during intense online harassment, that randomly asks me about him.
 
 ![Mike](../../../content/images/threats/mike-wenham/march-threats-mike-wenham-1.png)
+
+- I find the statement: *From the perspective of someone who worked with him and unfortunately had to see him on a regular basis* very interesting.
+- I wonder, now, if Dénia criminals were indeed working with Mike, and, if so, for what purpose.
+- After I say *trying to scare me* the account makes no more response.
+
 ![Mike](../../../content/images/threats/mike-wenham/march-threats-mike-wenham-2.png)
 
-- I looked at the profile of the account and it was a typical fake account used by stalkers, just a few messages and followers.
-- The message on the timeline was very suggestive because I had just found my mum's Twitter account. My cousin Leah had found me somehow a while back and I believe she told my mum I was on Twitter and gave her my details. 
-- I saw her following me and subsequently found out it really was her. Curiously, the hackers were more sure of that than me at that time! Initially, I had thought it was another fake account.
+- I looked at the profile of the account.
+- It was a typical fake account used by stalkers, just a few messages and followers.
+- The message on the timeline was also suggestive because I had just found my mother's X account.
+- My cousin Leah had found me somehow a while back (was she led to me by British criminals that control her?).
+- I believe she told my mum I was on X and gave her my details. 
+- I saw my mother following me and subsequently found out it really was her. 
+- Curiously, the hackers were more sure of the truth of that than myself at that time!
+- Initially, I had thought it was just another fake account.
 
 ![mum](../../../content/images/mummy.png)
 
@@ -994,16 +1030,20 @@
 ![Mike](../../../content/images/threats/mike-wenham/mike-2.png)
 ![Mike](../../../content/images/threats/mike-wenham/mike-3.png)
 
-- Whoever it was had done a fair bit of research on my Twitter activity and background to it.
+- Whoever it was had done a fair bit of research on my Twitter activity and background, or more likely knew me personally for a long time already.
 - Again, the English is extremely vernacular so it has to be a native.
 
 !!! danger "Did Mike Wenham have murderous intent towards me personally?"
-    - It turned out, around 2 weeks before Mike Wenham murdered Karolina, he had invited me out to drink ayahuasca, which I found rather strange, and I had refused.
-    - After Karoline was murdered, I remembered that while I was working for Mike in 2010, December time, he had also been doing part time building in a house in Leslie Road just up from my road. He had insisted I come and see him at this house on a Saturday morning in mid-December 2010. I went. 
-    - He had plastic all over the floors. It was a top floor maisonette and I was climbing the stairs. I noticed he had a stanley knife in his hand. Something didn't feel right and I left. He urged me to come up but I said I didn't have time.
+    - Around two weeks before Mike Wenham murdered Karolina, he invited me out to drink ayahuasca, which I found rather strange, and I had refused.
+    - After Karoline was murdered, I remembered that while I was working for Mike in 2010, December time, he had also been doing part-time building in a house in Leslie Road just up from my road. He had insisted I come and see him at this house on a Saturday morning in mid-December 2010. I went. 
+    - He had plastic all over the floors. It was a top floor maisonette and I was climbing the stairs. I noticed he had a stanley knife in his hand. Something didn't feel right and I left. 
+    - He urged me to come up but I said I didn't have time.
     - I didn't think about it again until after the murder.
     - The similarities were extraordinary.
-    - Could anyone from Dénia be involved in these events? It seems unlikely ...
+
+##### Dénia involvement
+
+- Could anyone from  be involved in these events? 
 
 ## 20th March
 
