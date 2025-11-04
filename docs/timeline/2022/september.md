@@ -105,6 +105,7 @@ function googleTranslateElementInit() {
     - Samuel creates tension between myself and his girlfriend by telling her something that upsets her about me.
     - I notice this at the [choir concert in December](december.md#choir-concert) where she is very obviously not happy with me.
 
+- Samuel lives with his parents in suicide tower, Dénia. I wonder about this now.
 - Samuel had been studying singing at the Javea conservatory but moved to study piano in Dénia instead. It's not clear why. He doesn't have a good reason for it and his singing voice is amazing. 
 - Samuel makes a huge effort to help me throughout this year with translation and explaining things the fast-speaking teacher says. He walks home with me a little way after every class.
 - After the end of the course, in [June 2023](../2023/june.md), Samuel rarely speaks to me at all and never walks with me. 
