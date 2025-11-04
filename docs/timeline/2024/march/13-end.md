@@ -1014,7 +1014,7 @@
 - I know from experience how everything they do online is about manipulation and controlling people's minds.
 - I wonder if they had been tasked to persuade him to undergo a genital enhancement operation that has 100% risk.
 - I wonder if, at the same time, they thought they might use him for their porn-specials starring yours truly. Would murder have been the inevitable end there too?
-- Did Mike film the murder of Karolina in 2014?
+- Did Mike film the murder of Karolina in 2014 and did he send it to his online accomplices who then uploaded it to dark-web porn networks?
 - After I say *trying to scare me are you?* the account makes no more response.
 
 ![Mike](../../../content/images/threats/mike-wenham/march-threats-mike-wenham-2.png)
