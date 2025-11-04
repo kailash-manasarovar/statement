@@ -208,7 +208,7 @@ function googleTranslateElementInit() {
 - More product.
 - When I see the daughter, she is in suggestive poses, post sex wearing the man's shirt, that sort of thing.
 - There were also a bunch of photos of her where she is *clearly* underage.
-- Are they trying to say - along with the sexual arousal and constant porn bombardment - look, this is what people do, you could do it too?
+- Are they trying to say - along with the sexual arousal and constant porn bombardment - look, this is what women we know do, you could do it too?
 
 ## Irene, the plate lady
 
