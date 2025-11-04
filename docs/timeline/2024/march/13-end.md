@@ -974,6 +974,7 @@
 - When I returned to the UK, I got a job pretty much immediately.
 - Mike told me that my tech interview test had been the best anyone had ever done on it, and he also liked me so gave me the job.
 - We got on.
+- Mike had obviously asked the cleaning lady to interrogate me about my romantic life. It was as if he knew about Jitendra already but couldn't come out with it himself or I'd know I'd been hacked, or worse that something more sinister was going on.
 - However, Mike was a woman-hating psychopath and had already terrorized the one other woman at work so badly, she walked out about five months after I started.
 - In our totally chaotic codebase, I'd often come across pieces of beautifully crafted, clear code. Mindy was always the author of them.
 - The whole team sang *ding dong the witch is dead* the day after she walked out.
