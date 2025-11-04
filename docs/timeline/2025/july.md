@@ -150,6 +150,7 @@
 - Did criminal gangs *have* to dose me up again, or finish me off, so I wouldn't remember, or get clear about, the [four distinct men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) posing as one man, the trumpet teacher, *Vidal Sastre Sanchez Hornero*?
 - When I look over this statement, I realize that I have been looking a photos of these men since June 2023 and believing them to be one man all this time.
 - It wore off, didn't it.
+- I guess targets rarely get free for long enough for it to wear off.
 
 #### Moorfields
 
