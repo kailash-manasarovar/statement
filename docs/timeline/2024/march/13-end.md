@@ -970,12 +970,12 @@
 
 - Mike Wenham was my boss at my first ever programming job with British Telecom in 2010 in High Wycombe.
 - It had been my sole ambition to be a software engineer and build systems and services to help make the world a better place.
-- I had found it very hard to get a break into software development, even with a PhD, so I had done professional Java certifications in India in 2010, the same time I "bumped into" [Jitendra Das](../../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life).
+- I had found it very hard to get a break into software development, even with a PhD in computer science, so I had done professional Java certifications in India in 2010, the same time I "bumped into" [Jitendra Das](../../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life).
 - When I returned to the UK, I got a job pretty much immediately.
 - Mike told me that my tech interview test had been the best anyone had ever done on it, and he also liked me so gave me the job.
 - We got on.
 - However, Mike was a woman-hating psychopath and had already terrorized the one other woman at work so badly, she walked out about five months after I started.
-- In our totally chaotic code base, I'd often come across pieces of beautifully clear code. Mindy had always authored those.
+- In our totally chaotic codebase, I'd often come across pieces of beautifully crafted, clear code. Mindy was always the author of them.
 - The whole team sang *ding dong the witch is dead* the day after she walked out.
 - Another man walked out the following day in support of her.
 - I told Mike about my view on her code. He told me they had helped her with everything she did. I did not believe him.
@@ -1004,33 +1004,37 @@
 
 [![Karolina again](../../../content/tweets/march-2024/karolina-2.png)](https://x.com/1FRGVN/status/1566353197878362114)
 
-- I never mentioned Mike's name, and yet, I am DM'ed by a fake account, in March 2024 during intense online harassment, that randomly asks me about him.
+- In March 2024, having never mentioned Mike's name, I am DM'ed by a fake account that has been lurking around for some weeks.
+- They randomly asks me about him.
 
 ![Mike](../../../content/images/threats/mike-wenham/march-threats-mike-wenham-1.png)
 
 - I find the statement: *From the perspective of someone who worked with him and unfortunately had to see him on a regular basis* very interesting.
-- I wonder, now, if Dénia criminals were indeed working with Mike, and, if so, for what purpose.
-- After I say *trying to scare me* the account makes no more response.
+- I wonder, now, if Dénia criminals were indeed working with Mike, and, if so, how and for what purpose.
+- I know from experience how everything they do is about manipulation and controlling people's minds.
+- I wonder if they had been tasked to persuade him to undergo a genital enhancement operation that has 100% risk.
+- I wonder if, at the same time, they thought they might use him for their porn-specials starring yours truly. Would murder have been the intention there?
+- Did Mike film the murder of Karolina in 2014?
+- After I say *trying to scare me are you?* the account makes no more response.
 
 ![Mike](../../../content/images/threats/mike-wenham/march-threats-mike-wenham-2.png)
 
-- I looked at the profile of the account.
-- It was a typical fake account used by stalkers, just a few messages and followers.
-- The message on the timeline was also suggestive because I had just found my mother's X account.
-- My cousin Leah had found me somehow a while back (was she led to me by British criminals that control her?).
-- I believe she told my mum I was on X and gave her my details. 
-- I saw my mother following me and subsequently found out it really was her. 
-- Curiously, the hackers were more sure of the truth of that than myself at that time!
-- Initially, I had thought it was just another fake account.
-
-![mum](../../../content/images/mummy.png)
-
-- Anyway, the whole interaction with this account was extremely threatening.
+- The `@blueskies19761` account was a typical fake account used by stalkers, just a few messages and followers.
+- The message I read on the timeline was very triggering because I had just found my mother's X account.
 
 ![Mike](../../../content/images/threats/mike-wenham/mike-2.png)
 ![Mike](../../../content/images/threats/mike-wenham/mike-3.png)
 
-- Whoever it was had done a fair bit of research on my Twitter activity and background, or more likely knew me personally for a long time already.
+- My cousin Leah (also a target for honey-trappers) had found me somehow a while back (was she led to me by British criminals that control her?).
+- I believe she told my mum I was on X and gave her my details. 
+- I saw my mother following me around that time, and thought it was someone pretending to be her.
+- I subsequently found out, in April when we communicated directly, that it really was her. 
+- The hackers were more sure of the truth than myself at that time!
+
+![mum](../../../content/images/mummy.png)
+
+- Anyway, the whole interaction with the `@blueskies19761` account was extremely threatening.
+- Whoever was managing the account had done a fair bit of research on my X activity and background, or more likely knew me personally for a long time already.
 - Again, the English is extremely vernacular so it has to be a native.
 
 !!! danger "Did Mike Wenham have murderous intent towards me personally?"
@@ -1040,10 +1044,9 @@
     - He urged me to come up but I said I didn't have time.
     - I didn't think about it again until after the murder.
     - The similarities were extraordinary.
+    - Was all of his murderousness egged on via online manipulation and fake communications?
 
-##### Dénia involvement
-
-- Could anyone from  be involved in these events? 
+- I have to surmise that this account was run by Hazel and Sandra Smith, or their British honey-trapping gang connections.
 
 ## 20th March
 
