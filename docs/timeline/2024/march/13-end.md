@@ -1020,7 +1020,7 @@
 ![Mike](../../../content/images/threats/mike-wenham/march-threats-mike-wenham-2.png)
 
 - The `@blueskies19761` account is a typical fake account used by stalkers, just a few messages and followers.
-- The message I read on the timeline was very triggering because I had just found my mother's X account.
+- The message I read on the timeline was very triggering because I had just come across an account which looked to be my mother's X account.
 
 ![Mike](../../../content/images/threats/mike-wenham/mike-2.png)
 ![Mike](../../../content/images/threats/mike-wenham/mike-3.png)
@@ -1037,7 +1037,7 @@
 - Whoever was managing the account had done a fair bit of research on my X activity and background, or more likely knew me personally for a long time already.
 - Again, the English is extremely vernacular so it has to be a native.
 
-!!! danger "Did Mike Wenham have murderous intent towards me personally?"
+!!! danger "Was Mike Wenham planning on murdering me?"
     - Around two weeks before Mike Wenham murdered Karolina, he invited me out to drink ayahuasca, which I found rather strange, and I had refused.
     - After Karoline was murdered, I remembered that while I was working for Mike in 2010, December time, he had also been doing part-time building in a house in Leslie Road just up from my road. He had insisted I come and see him at this house on a Saturday morning in mid-December 2010. I went. 
     - He had plastic all over the floors. It was a top floor maisonette and I was climbing the stairs. I noticed he had a stanley knife in his hand. Something didn't feel right and I left. 
