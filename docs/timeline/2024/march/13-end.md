@@ -1052,7 +1052,9 @@
 
 ### I tell my manager at Polygon
 
-- wip
+- I tell David Schwarz I'm being hacked and harassed.
+- He is concerned.
+- He never speaks of it again.
 
 ### Domingo the piano teacher
 
