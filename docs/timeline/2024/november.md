@@ -1,5 +1,9 @@
 # November 2024
 
+!!! note
+    - This section is a bit disordered. 
+    - Please be patient as I carefully edit previous sections.
+
 ## Going to the night shop
 
 - I go down to the Open 24 Market for some wine in the evening of 2nd November.
