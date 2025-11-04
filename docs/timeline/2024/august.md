@@ -196,6 +196,19 @@ function googleTranslateElementInit() {
 - They all look either that they believe they are in private, or they are drugged and in situations it is not clear they would agree to if they were in their right minds. 
 - Many of the pics he sends via fake accounts appear to be a moment of shocked realization at having been filmed without consent or worse.
 
+### The woman's daughter
+
+- Pictures of this woman are posted to me every day, relentlessly.
+- After a few weeks of this (although the first time I saw the woman was June 2023 most likely) another woman starts popping up.
+- She looks about 18 and has exactly the same facial features.
+- It is her daughter.
+- Whoever the father is, looks a little bit like [number three trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) and of all the men who I remember this would be the only possible father due to skin color.
+- I realize that it is likely the original pics of the woman were taken maybe twenty years ago.
+- They got a baby from her.
+- More product.
+- When I see the daughter, she is in suggestive poses, post sex wearing the man's shirt, that sort of thing.
+- There were also a bunch of photos of her where she is *clearly* underage.
+
 ## Irene, the plate lady
 
 - We're clearly having a very intimate conversation about some very dark matters.
