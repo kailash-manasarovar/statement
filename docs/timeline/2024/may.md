@@ -287,6 +287,18 @@
 - At the time, I just put it down to a *one off* scenario.
 - In September, when I join Chess.com, I find out that my cognitive left-brain skills required to be a good chess player are all but disappeared.
 
+### Eye troubles
+
+- I meet people, or they are pointed out to me, but I'm struggling to remember them when I meet them again.
+- It's like everyone's face is a bit blurry and the same.
+- The founder Sandeep is annoyed that I don't know who he is, and I met him only the day before.
+- The following day I do not recognize him again.
+- Everyone talks to me like I'm the antichrist, and any tiny defect is proof of it, this included.
+
+### Investigatory suggestions
+
+- I would check with the conference team what special requirements were made for certain people's rooms, such as mine and JTs, and Alicia's.
+
 ## Lourdes
 
 - I leave for Lourdes at the end of the month.
