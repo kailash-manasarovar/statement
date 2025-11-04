@@ -986,7 +986,7 @@
 - I went back to my desk, opened a text editor, and start to write the list.
 - At that moment, I heard a voice.
 - It said quietly: *You don't have to do that.* So I didn't.
-- Now I very rarely hear voices, just a few times in my life. But they have *always* said really rather amazing and positive things.
+- For the record, I very rarely hear voices, just a few times in my life. But they have *always* said really rather amazing and positive things.
 - A few days after that I went away for Christmas. While I was away, detoxing in Samui, I realized I had no choice but to leave my job.
 - I emailed Mike to tell him. He was really angry and sent a(n Irish) million emails trying to get me to stay; *I want you to love your job*, he said. I had.
 - It was devastating.
