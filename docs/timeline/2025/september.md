@@ -41,7 +41,7 @@
 - My eyes remain blurry and painful since [July's poison attack](july.md#eyes-and-kidneys-again-and-heart-now-too) and I'm having a lot of headaches.
 - I can feel my eye pressure is high.
 - I go in for a reading to Vision Express in Tesco's Colney Hatch Lane and indeed my eye pressure is high.
-- I'm worried about sudden onset glaucoma after the diagnosis of [PACS from Rutnin last November](../2024/november.md#pre-glaucoma-eye-condition).
+- I'm worried about sudden onset glaucoma after the diagnosis of [PACS from Rutnin last November](../2024/november.md#pre-glaucoma-diagnosis).
 - Moorfields has [not got back to me](july.md#moorfields) since I noticed severe deterioration in my left peripheral and asked for help.
 - I book an eye test at Colney Hatch on 17th September.
 - I explain I'm concerned about glaucoma.

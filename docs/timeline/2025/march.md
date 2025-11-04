@@ -78,7 +78,7 @@
 
 ## Moorfields Eye Hospital
 
-- Given I've had a diagnosis of pre-glaucoma from [Rutnin Eye Hospital in Bangkok](../2024/november.md#pre-glaucoma-eye-condition), I need the same in the UK so it's on my NHS record.
+- Given I've had a diagnosis of pre-glaucoma from [Rutnin Eye Hospital in Bangkok](../2024/november.md#pre-glaucoma-diagnosis), I need the same in the UK so it's on my NHS record.
 - I arrange an appointment at Moorfields in Brent Cross.
 - Something weird is going on at the appointment.
 - I'm met by a male clinician who talks to me in an extremely strange way, like he's acting.

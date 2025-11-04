@@ -161,7 +161,7 @@
 - When I compare my sight to a year before in September when I was doing the same thing, it's obvious my eyes have suffered some serious harm.
 - I believe this eye problem comes from [poisoning in my apartment by my neighbors at Carrer Furs, and Carmen Cano and her associates in October 2024](../2024/october.md#serious-poisoning-with-intent-to-harm-or-kill).
 - I mention the [appointment with Moorfields in March](march.md#moorfields-eye-hospital) and that I felt unconvinced by the results.
-- I mention the [diagnosis at Rutnin from November 2024](../2024/november.md#pre-glaucoma-eye-condition).
+- I mention the [diagnosis at Rutnin from November 2024](../2024/november.md#pre-glaucoma-diagnosis).
 - They are giving me the run around; they can't find my files now.
 - Does the global spy-cam porn conspiracy extend so far that even the British government are prepared to cover up the systematic targeting of women and children for porn and worse for decades in Spain?
 - Do they think that, perhaps, once society is totally immoral no-one will care anyway and they won't have to worry about ignoring 1000s of complaints, probably [Lorraine Blackbourn's too](../2021/july.md#lorraine-blackbourn-commits-suicide).

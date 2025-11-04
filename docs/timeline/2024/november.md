@@ -1,5 +1,13 @@
 # November 2024
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 !!! note
     - This section is a bit disordered. 
     - Please be patient as I carefully edit previous sections.
@@ -110,6 +118,22 @@
 - I ask the test center for the second sample so I can get another lab to retest.
 - They don't have it.
 - I take a huge sample of hair immediately and keep it safe.
+
+### An inexplicably bad haircut
+
+- I go to get my haircut.
+- I tell the hairdresser I am growing my hair so not to take too much off.
+- I also explain that my hair is really fine and I would like some extra body on top so layers are helpful.
+- The woman hacks my hair off in no uncertain terms.
+- She gives me a very short hair cut.
+- She even uses the clippers to remove hair at the back on my hair line.
+- And she uses the thinning technique to remove great chunks of my hair and thin it out.
+- I am devastated but do not complain because it is obviously an attack and they'll be ready to fight me.
+- Why would she do this? 
+- Was she told to do this by someone lying about me? The way they do.
+- I wonder if it could be so I do not have enough hair to get a decent sample when I get my drugs test and find out it is negative.
+- Fortunately, I already got a sample.
+- The hairdresser notices where I was hacking away and makes a comment about it.
 
 ### The blind man
 
