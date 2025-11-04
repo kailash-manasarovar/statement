@@ -128,6 +128,11 @@ function googleTranslateElementInit() {
 - I tell her that her profile image is a bit psychedelic and really rather sinister.
 - She removes it at some point and there is no replacement.
 
+### A walker who passed away
+
+- The English ladies often talk about a woman who died suddenly of a heart attack.
+- I had walked with her back in 2008. I remembered her vaguely.
+
 ## Halloween
 
 - On the run up to Halloween I notice that, outside my flat and in full view from the window, an effigy is hanging from a lamppost. 
