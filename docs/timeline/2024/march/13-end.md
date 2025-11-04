@@ -1013,7 +1013,7 @@
 - I wonder, now, if Dénia criminals were indeed working with Mike, and, if so, how and for what purpose.
 - I know from experience how everything they do online is about manipulation and controlling people's minds.
 - I wonder if they had been tasked to persuade him to undergo a genital enhancement operation that has 100% risk.
-- I wonder if, at the same time, they thought they might use him for their porn-specials starring yours truly. Would murder have been the intention there?
+- I wonder if, at the same time, they thought they might use him for their porn-specials starring yours truly. Would murder have been the inevitable end there too?
 - Did Mike film the murder of Karolina in 2014?
 - After I say *trying to scare me are you?* the account makes no more response.
 
