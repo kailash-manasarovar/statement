@@ -1019,7 +1019,7 @@
 
 ![Mike](../../../content/images/threats/mike-wenham/march-threats-mike-wenham-2.png)
 
-- The `@blueskies19761` account was a typical fake account used by stalkers, just a few messages and followers.
+- The `@blueskies19761` account is a typical fake account used by stalkers, just a few messages and followers.
 - The message I read on the timeline was very triggering because I had just found my mother's X account.
 
 ![Mike](../../../content/images/threats/mike-wenham/mike-2.png)
