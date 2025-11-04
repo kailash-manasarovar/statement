@@ -54,6 +54,14 @@
 - She also advises I tell my GP.
 - I'm reluctant but I make an appointment in any case.
 
+#### Reform UK conference
+
+- I attended the Reform UK conference early this month.
+- This was when I really noticed I could not at all look at bright lights.
+- I'd be in the audience, watching the show and listening to the speakers, and in between each person the lights would roll around the conference hall and I literally had to cover my eyes and close them till it was finished.
+- This is another thing that sparked my further concern.
+- I was reminded of the [first time I went to the optician about this weird and inexplicable problem](../early-years/2013.md#boots-opticians-north-finchley), probably sometime in 2013.
+
 ### Rutland House Surgery Muswell Hill
 
 - On 18th September I visit my GP.
