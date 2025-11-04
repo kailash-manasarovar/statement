@@ -151,6 +151,7 @@
 - When I look over this statement, I realize that I have been looking a photos of these men since June 2023 and believing them to be one man until I [got suddenly clear-headed in September 2025](september.md#thunderbolt-clarity).
 - It wore off, didn't it.
 - I guess targets rarely get free for long enough for it to wear off.
+- Is that why targets end up long-term on something from their GP which is, perhaps, not what it says it is on the label?
 
 #### Moorfields
 
