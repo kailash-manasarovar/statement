@@ -1125,35 +1125,38 @@ function googleTranslateElementInit() {
 
 ## 21st March
 
-### Chat with Jorge
+### Chat with Jorge Thursday 21st
 
 ??? note "WhatsApp with Jorge 21st March"
-    [21/03/2024, 17:09:53] Jorge Esclapez Deckcard23: Hi. Tomorrow when you want in San Joan DÂ´Alacant, Juan Sebastian Elcano, 24 Street.
-    [21/03/2024, 17:10:10] Jorge Esclapez Deckcard23: I am waitting you.
-    [21/03/2024, 17:10:37] Jorge Esclapez Deckcard23: Sorry but yesterday Javier was very busy with several cases.
-    [21/03/2024, 17:12:25] Niramisa Weiss: Hi so tomorrow what time?
-    [21/03/2024, 17:12:38] Niramisa Weiss: And which depositivo?
-    [21/03/2024, 17:25:51] Niramisa Weiss: The ASUS?
-    [21/03/2024, 17:26:01] Niramisa Weiss: Zenbook 13
-    [21/03/2024, 17:26:51] Jorge Esclapez Deckcard23: both. And after speak with Javier we will decided the best option.
-    [21/03/2024, 17:27:31] Niramisa Weiss: Ok what time?
-    [21/03/2024, 17:27:44] Niramisa Weiss: I need to be back at 3
-    [21/03/2024, 17:28:24] Jorge Esclapez Deckcard23: I will start to work at 9:30
-    [21/03/2024, 17:28:45] Jorge Esclapez Deckcard23: When you want.
-    [21/03/2024, 17:28:50] Niramisa Weiss: Ok I can be with you at 9.30
-    [21/03/2024, 17:29:15] Niramisa Weiss: I will bring the ASUS Zenbook 13
-    [21/03/2024, 17:29:31] Niramisa Weiss: I reformatted my MacBook and I donâ€™t have the phone
-    [21/03/2024, 17:29:55] Niramisa Weiss: I believe they got back into my iPhone even tho I reformatted it too
-    [21/03/2024, 17:39:08] Niramisa Weiss: Aqui?
+    [21/03/2024, 17:09:53] Jorge Esclapez Deckcard23: Hi. Tomorrow when you want in San Joan DÂ´Alacant, Juan Sebastian Elcano, 24 Street.</br>
+    [21/03/2024, 17:10:10] Jorge Esclapez Deckcard23: I am waitting you.</br>
+    [21/03/2024, 17:10:37] Jorge Esclapez Deckcard23: Sorry but yesterday Javier was very busy with several cases.</br>
+    [21/03/2024, 17:12:25] Niramisa Weiss: Hi so tomorrow what time?</br>
+    [21/03/2024, 17:12:38] Niramisa Weiss: And which depositivo?</br>
+    [21/03/2024, 17:25:51] Niramisa Weiss: The ASUS?</br>
+    [21/03/2024, 17:26:01] Niramisa Weiss: Zenbook 13</br>
+    [21/03/2024, 17:26:51] Jorge Esclapez Deckcard23: both. And after speak with Javier we will decided the best option.</br>
+    [21/03/2024, 17:27:31] Niramisa Weiss: Ok what time?</br>
+    [21/03/2024, 17:27:44] Niramisa Weiss: I need to be back at 3</br>
+    [21/03/2024, 17:28:24] Jorge Esclapez Deckcard23: I will start to work at 9:30</br>
+    [21/03/2024, 17:28:45] Jorge Esclapez Deckcard23: When you want.</br>
+    [21/03/2024, 17:28:50] Niramisa Weiss: Ok I can be with you at 9.30</br>
+    [21/03/2024, 17:29:15] Niramisa Weiss: I will bring the ASUS Zenbook 13</br>
+    [21/03/2024, 17:29:31] Niramisa Weiss: I reformatted my MacBook and I donâ€™t have the phone</br>
+    [21/03/2024, 17:29:55] Niramisa Weiss: I believe they got back into my iPhone even tho I reformatted it too</br>
+    [21/03/2024, 17:39:08] Niramisa Weiss: Aqui?</br>
     https://maps.app.goo.gl/kkKTifiGY7Py6QQ26?g_st=iw
-    [21/03/2024, 17:58:28] Jorge Esclapez Deckcard23: Yes, here is the office and the forensic lab. See you tomorrow.
-    [21/03/2024, 17:59:13] Jorge Esclapez Deckcard23: Well, i speak english well with writting but my listening is awful. But donÂ´t worries I have google translator. ðŸ˜€
-    [21/03/2024, 17:59:37] Niramisa Weiss: My Spanish is awful in exactly the same way sorry ðŸ˜”
-    [21/03/2024, 17:59:49] Niramisa Weiss: We will manage
-    [21/03/2024, 17:59:55] Niramisa Weiss: â˜ºï¸
-    [21/03/2024, 22:05:40] Niramisa Weiss: Hola Jorge lo siento mucho pero por razones inevitables tengo k cancelar de manyana
-    [21/03/2024, 22:06:26] Niramisa Weiss: Posiblemente podriamos vernos en abril, te dire
-    [21/03/2024, 22:18:12] Jorge Esclapez Deckcard23: ðŸ‘
+    [21/03/2024, 17:58:28] Jorge Esclapez Deckcard23: Yes, here is the office and the forensic lab. See you tomorrow.</br>
+    [21/03/2024, 17:59:13] Jorge Esclapez Deckcard23: Well, i speak english well with writting but my listening is awful. But donÂ´t worries I have google translator. ðŸ˜€</br>
+    [21/03/2024, 17:59:37] Niramisa Weiss: My Spanish is awful in exactly the same way sorry ðŸ˜”</br>
+    [21/03/2024, 17:59:49] Niramisa Weiss: We will manage</br>
+    [21/03/2024, 17:59:55] Niramisa Weiss: â˜ºï¸</br>
+    [21/03/2024, 22:05:40] Niramisa Weiss: Hola Jorge lo siento mucho pero por razones inevitables tengo k cancelar de manyana</br>
+    [21/03/2024, 22:06:26] Niramisa Weiss: Posiblemente podriamos vernos en abril, te dire</br>
+    [21/03/2024, 22:18:12] Jorge Esclapez Deckcard23: ðŸ‘</br>
+
+- After visiting my friend and preparing the [letter for the other expert in Alicante](#cyber-expert), I cancel the appointment with Jorge.
+- I will give neither of these experts the hacked Macbook, iPhone, or new Android I'm currently using, the Android phone I sent to London, or the security cams with activity from March 2024.
 
 ## 24th March
 
