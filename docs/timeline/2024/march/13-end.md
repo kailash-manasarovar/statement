@@ -1083,6 +1083,8 @@ function googleTranslateElementInit() {
 - [*Anna; lovi*](1-12.md#aniloviator), [*Yes, homo*](#an-account-i-believe-is-run-by-domingo-cano-the-piano-teacher), and *Skylar Gwynn* are accounts I believe were stalking me and so likely run by the same person or persons.
 - A flurry of *concerned* stalker accounts sending me messages says more about mass gender-violence techniques than anything else.
 - I'm sure there's heaps more of these.
+- Notice the `@belfastbeatnik` account running a space again. Quite often this account would pair up with an account called *Towel*, or something like that, in Spaces.
+- Whenever I saw these two together, I would report the Space for child endangerment.
 - I'll have a good look at the DM list at some point.
 
 ## Chat with Jorge
