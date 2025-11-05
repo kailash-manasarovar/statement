@@ -380,6 +380,14 @@ function googleTranslateElementInit() {
 
 - I had no sexual feelings at all while I was in Thailand.
 
+### Little red elephant
+
+- I buy my love, the trumpet teacher, a little red elephant from Thailand.
+- Of course, I can never give it to him because he doesn't really exist; he is, at best, one of four or more distinct men.
+- I'm so in love I'm compelled to say and do nice things for this man.
+- It is excruciating that I receive no communication back.
+- Eventually, I'm so distressed, I leave the little red elephant on top of the Montgo and ask the mountain to bless us.
+
 ### My first request for help
 
 - I meet a woman on holiday with her family in Thailand, Hala; and I told her everything that had happened, the whole story as I saw it.
