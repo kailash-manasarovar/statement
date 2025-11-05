@@ -260,6 +260,12 @@ function googleTranslateElementInit() {
 
 ![Garbure](../../content/tweets/garbure-april.png)
 
+## Gorilla loses a hand
+
+- On my handbag, the little gorilla that hangs off one side has lost a hand.
+- I believe one of the trumpet teachers who turned up for class ripped it off while I was drugged or sedated at home.
+- I used X to message hackers about this in the summer of 2024 and I received some kind of confirmation back.
+
 ## Maria Hontanilla
 
 - Maria my piano teacher is anxious and distressed, all the time. It seems to be her natural state. 
