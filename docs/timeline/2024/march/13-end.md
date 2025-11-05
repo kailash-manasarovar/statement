@@ -1058,11 +1058,13 @@ function googleTranslateElementInit() {
 
 ## 20th March
 
-### I tell my manager at Polygon
+### I tell my manager at Polygon what's going on
 
-- I tell David Schwarz I'm being hacked and harassed.
-- He seems concerned and tells me to keep him informed.
-- He never mentions it again.
+- I tell David Schwarz, my manager at Polygon Labs, that I'm being hacked and harassed by people from Dénia.
+- I explain I have had to leave my conservatory studies because of threats to my life.
+- He seems like he is listening, a little bit at least.
+- He shows concern and tells me to keep him informed.
+- He never mentions the matter again.
 
 ### Domingo the piano teacher
 
