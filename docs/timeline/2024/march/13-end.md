@@ -966,7 +966,7 @@ function googleTranslateElementInit() {
 - I'm still not clear about what to do about getting my devices analyzed for the police.
 - We will make a decision on [21st March](#cyber-expert) about who to go with.
 
-??? note "Chat with Jorge 19th March"
+??? note "WhatsApp with Jorge 19th March"
     [19/03/2024, 02:51:06] Niramisa Weiss: Is 22nd ok Jorge?</br>
     [19/03/2024, 02:51:14] Niramisa Weiss: In the morning</br>
     [19/03/2024, 03:14:24] Jorge Esclapez Deckcard23: Hi. Sorry but the people in the lab is on hollyday. I confirma you the wednesday at morning. My apologies. See you.</br>
@@ -1075,7 +1075,7 @@ function googleTranslateElementInit() {
 - ***Yes, homo*** reads like an answer to my realization, which I made public on X in the summer of 2023, that Domingo is gay.
 - In response to this, I received confirmations back from stalkers' fake accounts that yes, indeed, Domingo is gay, and that he had even confessed it to Mercedes at one point.
 - At the close of March 2024, I'm so stressed that I start communicating with accounts directly as if they are who I they think they are.
-- Note the ratio of people who have possibly translated this tweet.
+- Note the ratio of people who have translated this tweet.
 
 ![Domingo 1](../../../content/images/fake-accounts/domingo-1.png)
 ![Domingo 2](../../../content/images/fake-accounts/domingo-2.png)
@@ -1092,36 +1092,36 @@ function googleTranslateElementInit() {
 
 ## Chat with Jorge Wednesday 20th
 
-??? note "Chat with Jorge 20th March"
-    [20/03/2024, 17:01:27] Jorge Esclapez Deckcard23: Hello. IÂ´m waitting an answer. At 14:00 the lab tell me if the Friday could serve you.
-    [20/03/2024, 17:06:30] Niramisa Weiss: Ok thx
-    [20/03/2024, 17:42:50] Niramisa Weiss: Hi Jorge sorry for inconvenience, I have found someone in Switzerland who will do a full and complete check so I just sent it to them via courier
-    [20/03/2024, 17:43:16] Niramisa Weiss: We could check the Linux box instead?
-    [20/03/2024, 17:43:43] Niramisa Weiss: This is where they accessed my video and took videos of me which were very private
-    [20/03/2024, 17:44:33] Niramisa Weiss: However I have reformatted a few times since then and removed the manjaro os completely so Iâ€™m not sure what you think about that?
-    [20/03/2024, 17:47:39] Jorge Esclapez Deckcard23: I donÂ´t understand that question. Linux box?
-    [20/03/2024, 17:49:04] Niramisa Weiss: My ASUS laptop on which I was running Manjaro when they had access to the camera
-    [20/03/2024, 17:56:58] Jorge Esclapez Deckcard23: Lets see if I understand. The MAC computer at some point had an installation of the Manjaro distribution. Was this distribution running at the same time as the MAC one? Did you have it as a virtual machine? Or did you format the MAC and install this version of Linux?
-    [20/03/2024, 18:00:02] Niramisa Weiss: I started to use the Mac when I realised the ASUS was hacked.
-    [20/03/2024, 18:00:28] Niramisa Weiss: I had been using the ASUS for ages with a manjaro/windows install
-    [20/03/2024, 18:00:34] Niramisa Weiss: Partitions
-    [20/03/2024, 18:01:17] Niramisa Weiss: Last August they took control of my keyboard and at that moment I knew Iâ€™d been hacked 100%
-    [20/03/2024, 18:01:43] Niramisa Weiss: So I stopped using it and used the Mac instead which I hadnâ€™t used for ages and was already reformatted
-    [20/03/2024, 18:01:56] Niramisa Weiss: They got into the Mac pretty quickly
-    [20/03/2024, 18:02:54] Niramisa Weiss: But the ASUS is where the videos were taken and since then I have blocked all my cameras except the phones
-    [20/03/2024, 18:03:30] Niramisa Weiss: However I removed the Manjaro OS although the boot record is there still
-    [20/03/2024, 18:03:37] Jorge Esclapez Deckcard23: So the ASUS computer has evidence of the hack if it has not been formatted. If it has been formatted, it depends on the type of formatting, whether or not information can be recovered. Also the type of hard drive. If the hard drive is SSD and is not mechanical, nothing can be recovered.
-    [20/03/2024, 18:04:14] Niramisa Weiss: I reformatted it
-    [20/03/2024, 18:04:39] Niramisa Weiss: Is SSD same for Mac too?
-    [20/03/2024, 18:39:45] Niramisa Weiss: Ok I think some boot records remain
-    [20/03/2024, 18:39:53] Niramisa Weiss: From before
-    [20/03/2024, 18:40:09] Niramisa Weiss: But if you think itâ€™s not possible thatâ€™s ok
-    [20/03/2024, 18:51:47] Niramisa Weiss: I can send you some logs and you can have a think about it if you like?
-    [20/03/2024, 19:03:33] Jorge Esclapez Deckcard23: SSD is a kind of hard disc.
-    [20/03/2024, 19:06:22] Niramisa Weiss: Yes I know.. so itâ€™s true for Mac also
-    [20/03/2024, 19:06:53] Niramisa Weiss: Once reformatted no possibility of proof, even though they still have access
-    [20/03/2024, 19:06:58] Niramisa Weiss: ðŸ˜”
-    [20/03/2024, 19:07:07] Niramisa Weiss: They are quite sophisticated
+??? note "WhatsApp with Jorge 20th March"
+    [20/03/2024, 17:01:27] Jorge Esclapez Deckcard23: Hello. IÂ´m waitting an answer. At 14:00 the lab tell me if the Friday could serve you.</br>
+    [20/03/2024, 17:06:30] Niramisa Weiss: Ok thx</br>
+    [20/03/2024, 17:42:50] Niramisa Weiss: Hi Jorge sorry for inconvenience, I have found someone in Switzerland who will do a full and complete check so I just sent it to them via courier</br>
+    [20/03/2024, 17:43:16] Niramisa Weiss: We could check the Linux box instead?</br>
+    [20/03/2024, 17:43:43] Niramisa Weiss: This is where they accessed my video and took videos of me which were very private</br>
+    [20/03/2024, 17:44:33] Niramisa Weiss: However I have reformatted a few times since then and removed the manjaro os completely so Iâ€™m not sure what you think about that?</br>
+    [20/03/2024, 17:47:39] Jorge Esclapez Deckcard23: I donÂ´t understand that question. Linux box?</br>
+    [20/03/2024, 17:49:04] Niramisa Weiss: My ASUS laptop on which I was running Manjaro when they had access to the camera</br>
+    [20/03/2024, 17:56:58] Jorge Esclapez Deckcard23: Lets see if I understand. The MAC computer at some point had an installation of the Manjaro distribution. Was this distribution running at the same time as the MAC one? Did you have it as a virtual machine? Or did you format the MAC and install this version of Linux?</br>
+    [20/03/2024, 18:00:02] Niramisa Weiss: I started to use the Mac when I realised the ASUS was hacked.</br>
+    [20/03/2024, 18:00:28] Niramisa Weiss: I had been using the ASUS for ages with a manjaro/windows install</br>
+    [20/03/2024, 18:00:34] Niramisa Weiss: Partitions</br>
+    [20/03/2024, 18:01:17] Niramisa Weiss: Last August they took control of my keyboard and at that moment I knew Iâ€™d been hacked 100%</br>
+    [20/03/2024, 18:01:43] Niramisa Weiss: So I stopped using it and used the Mac instead which I hadnâ€™t used for ages and was already reformatted</br>
+    [20/03/2024, 18:01:56] Niramisa Weiss: They got into the Mac pretty quickly</br>
+    [20/03/2024, 18:02:54] Niramisa Weiss: But the ASUS is where the videos were taken and since then I have blocked all my cameras except the phones</br>
+    [20/03/2024, 18:03:30] Niramisa Weiss: However I removed the Manjaro OS although the boot record is there still</br>
+    [20/03/2024, 18:03:37] Jorge Esclapez Deckcard23: So the ASUS computer has evidence of the hack if it has not been formatted. If it has been formatted, it depends on the type of formatting, whether or not information can be recovered. Also the type of hard drive. If the hard drive is SSD and is not mechanical, nothing can be recovered.</br>
+    [20/03/2024, 18:04:14] Niramisa Weiss: I reformatted it</br>
+    [20/03/2024, 18:04:39] Niramisa Weiss: Is SSD same for Mac too?</br>
+    [20/03/2024, 18:39:45] Niramisa Weiss: Ok I think some boot records remain</br>
+    [20/03/2024, 18:39:53] Niramisa Weiss: From before</br>
+    [20/03/2024, 18:40:09] Niramisa Weiss: But if you think itâ€™s not possible thatâ€™s ok</br>
+    [20/03/2024, 18:51:47] Niramisa Weiss: I can send you some logs and you can have a think about it if you like?</br>
+    [20/03/2024, 19:03:33] Jorge Esclapez Deckcard23: SSD is a kind of hard disc.</br>
+    [20/03/2024, 19:06:22] Niramisa Weiss: Yes I know.. so itâ€™s true for Mac also</br>
+    [20/03/2024, 19:06:53] Niramisa Weiss: Once reformatted no possibility of proof, even though they still have access</br>
+    [20/03/2024, 19:06:58] Niramisa Weiss: ðŸ˜”</br>
+    [20/03/2024, 19:07:07] Niramisa Weiss: They are quite sophisticated</br>
 
 ## 21st March
 
