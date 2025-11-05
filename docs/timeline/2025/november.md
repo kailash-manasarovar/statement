@@ -20,6 +20,7 @@
     - Cat posts with messages that read like a true romance; with 5% of those posts having a random threat towards a female user.
     - Violent porn with aggression and threat towards a viewer we assume is female.
     - Subtle sexual grooming content for [add gender and age] who likes animals.
+    - Show target biblical posts only. (I rather like this one).
     - Etc.
 - Once prompted, the target's timeline changes completely. 
 - It's very clever, quite obvious too, unless you're a kid, I guess.
@@ -28,7 +29,10 @@
 - If you happen to be able to drug a target at the same time, or perhaps know that they're a pothead or similar, then this triggering mechanism will have even more potency.
 - So, why am I mentioning this here?
 - Well, since I remembered the [anal fissure I noticed when my dad visited me in 2015](../early-years/2015.md#colitis-symptoms) about two weeks ago, my `@JackChardwood` account has undergone another of these transformation.
-- Suicide content. A whole bunch of it.
+- Suicide content. A bunch of tweets about suicide hiding in among everything else. Something I've never seen before.
+
+![Suicide content](../../content/tweets/november-2025/suicides.png)
+
 - I take this as confirmation from the criminal porn gangs of Dénia that, just like [Alicia said about Bali](../2024/may.md#alicia), the *worst thing ever* happened.
 - The townsfolk and one other were the *only* ones who knew the real reason I became suicidally depressed in 2015; perhaps they're hoping for a bit of that again.
 - Sorry not sorry folks. Not going to happen.
