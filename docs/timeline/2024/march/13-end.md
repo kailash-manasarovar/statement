@@ -1065,7 +1065,7 @@ function googleTranslateElementInit() {
 - He seems like he is listening, a little bit at least.
 - He shows concern and tells me to keep him informed.
 - He never mentions the matter again.
-- I have now told my whole team, Gabriel Silva, the Security Department, and David Schwarz about the serious abuse I have been suffering.
+- I have now told [my whole team](1-12.md#i-tell-my-team-at-polygon-im-being-stalked-and-hacked-by-my-neighbors), [Gabriel Silva](#i-tell-gabriel-silva), the [Security Department](1-12.md#reporting-hacking-to-polygon-labs), and David Schwarz about the serious abuse I have been suffering.
 
 ### An account I believe is run by Domingo Cano the piano teacher
 
