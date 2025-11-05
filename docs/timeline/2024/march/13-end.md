@@ -1067,14 +1067,23 @@ function googleTranslateElementInit() {
 - He never mentions the matter again.
 - I have now told my whole team, Gabriel Silva, and David Schwarz about the abuse I have been suffering.
 
-### Domingo the piano teacher
+### An account I believe is run by Domingo Cano the piano teacher
 
 - The account `@AllyBrisket` had always seemed suspicious to me.
-- Samuel from harmony class back in [May 2023 when the cyber stalking really got going](../../2023/may.md#harmony-class-the-week-after-my-first-explosive-tweet) may have signalled this account out to me during a weird chat.
-- At this point I'm so stressed I start communicating with accounts directly as if they are who I they think they are.
+- Samuel from harmony class back in [May 2023 when the cyber-stalking really got going](../../2023/may.md#harmony-class-the-week-after-my-first-explosive-tweet) may have signalled this account to me during our weird chat on the way up to the tunnel.
+- I guessed at that time that Domingo had instructed him to do that, so my suspicions about this account started there.
+- *Yes, homo* reads like an answer to my realization, which I made public on X in the summer of 2023, that Domingo is gay.
+- In response to these messages, I got confirmations back from stalking accounts that yes, indeed, Domingo is gay, and that he had even confessed it to Mercedes at one point.
+- At the close of March 2024, I'm so stressed that I start communicating with accounts directly as if they are who I they think they are.
 
 ![Domingo 1](../../../content/images/fake-accounts/domingo-1.png)
 ![Domingo 2](../../../content/images/fake-accounts/domingo-2.png)
+
+- The message summary on the left is interesting too. 
+- [*Anna; lovi*](1-12.md#aniloviator), [*Yes, homo*](#an-account-i-believe-is-run-by-domingo-cano-the-piano-teacher), and *Skylar Gwynn* are accounts I believe were stalking me and so likely run by the same person or persons.
+- A flurry of *concerned* stalker accounts sending me messages says more about mass gender-violence techniques than anything else.
+- I'm sure there's heaps more of these.
+- I'll have a good look at the DM list at some point.
 
 ## Chat with Jorge
 
