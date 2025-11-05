@@ -1065,7 +1065,7 @@ function googleTranslateElementInit() {
 - He seems like he is listening, a little bit at least.
 - He shows concern and tells me to keep him informed.
 - He never mentions the matter again.
-- I have now told my whole team, Gabriel Silva, and David Schwarz about the abuse I have been suffering.
+- I have now told my whole team, Gabriel Silva, and David Schwarz about the serious abuse I have been suffering.
 
 ### An account I believe is run by Domingo Cano the piano teacher
 
