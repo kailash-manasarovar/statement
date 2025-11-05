@@ -1075,7 +1075,7 @@ function googleTranslateElementInit() {
 - ***Yes, homo*** reads like an answer to my realization, which I made public on X in the summer of 2023, that Domingo is gay.
 - In response to this, I received confirmations back from stalkers' fake accounts that yes, indeed, Domingo is gay, and that he had even confessed it to Mercedes at one point.
 - At the close of March 2024, I'm so stressed that I start communicating with accounts directly as if they are who I they think they are.
-- Note the ratio of people who have translated this tweet.
+- Note the ratio of people who have translated this tweet. (I think they probably did this on purpose at this stage to wind me up.)
 
 ![Domingo 1](../../../content/images/fake-accounts/domingo-1.png)
 ![Domingo 2](../../../content/images/fake-accounts/domingo-2.png)
