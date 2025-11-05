@@ -184,3 +184,7 @@ The report is set out into different sections.
     - Contact me for any further information you may require on query@fearandloathinginlasmarinas.com.
     - This may include copies of any correspondence, emails, call logs, WhatsApp message, poison/drug samples for testing, etc.
     - Agent and publisher details coming soon.
+
+## The Ark Project Trilogy
+
+- This is the third and final part of The Ark Project Trilogy, I believe.
