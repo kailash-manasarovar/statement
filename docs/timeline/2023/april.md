@@ -211,27 +211,31 @@ function googleTranslateElementInit() {
 - It was a mature and innocuous message, and very honest.
 - I explained I had been sexually abused as a child and this made relationships very difficult for me.
 - At the next chamber music class, the following Monday, he was waiting for me at the door.
-- This was [hulking number three of the group of men pretending to be the trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), the largest of them all.
-- It felt like EVERYONE knew what I had written; the whole building was hushed.
+- This was [hulking number three of the group of men pretending to be the trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), the largest of them all, of course I didn't notice he wasn't the one I actually did like.
+- It felt like *EVERYONE* knew what I had written; the whole conservatory building was hushed.
+- We went up to the classroom and I babbled something about whether he was surprised or not.
+- Ana was standing at her classroom as we went past looking at us.
+- We went into the trumpet classroom and he kind of waited for me to say something to him. He was expecting me to say something to him. I didn't. And after a few moments, he shrugged and we went on with the class.
 - His demeanor towards me was soft and kind in class that day and this was probably the most powerful grooming technique of all because for the first time in my life, on disclosing sexual abuse to someone I cared about:
     - I was not judged.
     - I was not hated or attacked (although ironically that was exactly what was happening).
 - When I got home that evening, his Twitter account posted a beautiful picture which felt like it was a response to me.
-- The account `@jctot19` has now deleted most posts from that period, but this is what the account posted and I saw it after that class.
+- The account `@jctot19` has now deleted most posts from that period, but this is what the account posted and I saw it right after that class.
 
 ![Studio Ghibli](../../content/images/ghibli.png)
 
-- I was extremely high that day, my whole body vibrating in class as usual, something I thought was to do with chemistry between us, and my kidneys were aching as usual after class, and I had to lie down.
-- The picture was like opium to my mind and heart. 
+- While I was looking at this picture right after arriving home, Sandra WhatsApp'ed me and I told her the trumpet teacher was sending me beautiful pictures.
+- I was extremely high that day, my whole body vibrating in class as usual, something I thought was to do with chemistry between us.
+- My kidneys were aching as usual after class, and I had to lie down.
+- The Studio Ghibli picture was like opium to my mind and heart. 
 - I was 100% caught in the trap at that moment.
-- I texted my friend Sandra Rita Diaz from Lourdes about all this.
 
 !!! tip "The Studio Ghibli tweet"
     - As the cyber-terrorism continued into late 2023 and on into 2024, numerous fake accounts followed me pretending to be the trumpet teacher.
     - I never knew if they were really him or not, but I played along in any case.
-    - A few of these accounts mentioned Studio Ghibli and, whenever they did, it was like they were teasing me about me this bear trap snapping shut on me. 
-    - Cyber-terrorists were well aware this picture, coupled with drugging and my disclosure, were the key to fully binding my mind into believing the trumpet teacher cared about me back.
-    - It was very powerful sorcery and I can't imagine young inexperienced girls would be able to escape once targeted.
+    - A few of these accounts mentioned Studio Ghibli and, whenever they did, it was like they were teasing me about me this bear trap snapping shut on me, or perhaps trying again. 
+    - Cyber-terrorists were well aware this picture, coupled with drugging and my disclosure, were the key to fully binding my mind into believing the trumpet teacher cared about me.
+    - It was very powerful sorcery and I can't imagine any young inexperienced girls have been able to escape once targeted.
     - An example fake account here:
 
     ![Studio ghibli account](../../content/images/fake-accounts/giltrap-1.png)
