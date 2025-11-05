@@ -19,6 +19,7 @@
     - Wild out-there hallucinogen-type content from space bros.
     - Cat posts with messages that read like a true romance; with 5% of those posts having a random threat towards a female user.
     - Violent porn with aggression and threat towards a viewer we assume is female.
+    - Subtle sexual grooming content for [add gender and age] who likes animals.
     - Etc.
 - Once prompted, the target's timeline changes completely. 
 - It's very clever, quite obvious too, unless you're a kid, I guess.
