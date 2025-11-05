@@ -1070,8 +1070,8 @@ function googleTranslateElementInit() {
 ### An account I believe is run by Domingo Cano the piano teacher
 
 - The account `@AllyBrisket` had always seemed suspicious to me.
-- Samuel from harmony class back in [May 2023 when the cyber-stalking really got going](../../2023/may.md#harmony-class-the-week-after-my-first-explosive-tweet) may have signalled this account to me during our weird chat on the way up to the tunnel one evening.
-- I guessed at that time that Domingo had instructed him to do that, so my suspicions about this account started there.
+- Samuel from harmony class back in [May 2023 when the cyber-stalking really got going](../../2023/may.md#harmony-class-the-week-after-my-first-explosive-tweet) may have signalled this account to me during our weird chat on the way up to the tunnel one evening when it looked like he was taking direct instructions off WhatsApp about what to say to me.
+- I guessed at that time that Domingo had instructed him to make the hint, so my suspicions about this account started there.
 - ***Yes, homo*** reads like an answer to my realization, which I made public on X in the summer of 2023, that Domingo is gay.
 - In response to this, I received confirmations back from stalkers' fake accounts that yes, indeed, Domingo is gay, and that he had even confessed it to Mercedes at one point.
 - At the close of March 2024, I'm so stressed that I start communicating with accounts directly as if they are who I they think they are.
