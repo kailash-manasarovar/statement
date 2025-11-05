@@ -1072,8 +1072,8 @@ function googleTranslateElementInit() {
 - The account `@AllyBrisket` had always seemed suspicious to me.
 - Samuel from harmony class back in [May 2023 when the cyber-stalking really got going](../../2023/may.md#harmony-class-the-week-after-my-first-explosive-tweet) may have signalled this account to me during our weird chat on the way up to the tunnel one evening.
 - I guessed at that time that Domingo had instructed him to do that, so my suspicions about this account started there.
-- *Yes, homo* reads like an answer to my realization, which I made public on X in the summer of 2023, that Domingo is gay.
-- In response to these messages, I got confirmations back from stalking accounts that yes, indeed, Domingo is gay, and that he had even confessed it to Mercedes at one point.
+- ***Yes, homo*** reads like an answer to my realization, which I made public on X in the summer of 2023, that Domingo is gay.
+- In response to this, I received confirmations back from stalkers' fake accounts that yes, indeed, Domingo is gay, and that he had even confessed it to Mercedes at one point.
 - At the close of March 2024, I'm so stressed that I start communicating with accounts directly as if they are who I they think they are.
 - Note the ratio of people who have possibly translated this tweet.
 
@@ -1085,6 +1085,7 @@ function googleTranslateElementInit() {
 - I wonder if they use punctuation and symbols in their names for technical reasons their online personas would likely not be aware of.
 - A flurry of *concerned* stalker accounts sending me messages says more about mass gender-violence techniques than anything else.
 - I'm sure there's heaps more of these.
+- From March onwards I was bombarded with DM requests from fake accounts.
 - Notice the `@belfastbeatnik` account running a space again. Quite often this account would pair up with an account called *Towel*, or something like that, in Spaces.
 - Whenever I saw these two together, I would report the Space for child endangerment.
 - I'll have a good look at the DM list at some point.
@@ -1191,6 +1192,6 @@ function googleTranslateElementInit() {
 
 - What I find very interesting is how the women in this sick history are as equally evil as the men.
 - What's unsurprising is how the men are happy to remain hidden while they push the women out in front, to eventually take the blame when it all goes tits-up for them, which is inevitable of course.
-- I wonder if, nowadays, girls with parents in the know get jobs as make-up artists, set designers, poisoners, rape victim shepherdesses, and similar, in the burgeoning local rape-spy-cam porn industry while their parents pray fervently that their daughters will not be targeted, but I guess even they become a coward's worthy challenge.
+- I wonder if, nowadays, girls with parents in the know get jobs as make-up artists, set designers, poisoners, rape victim shepherdesses, and similar, in the burgeoning local rape-spy-cam porn industry while their parents pray fervently that their daughters will not be targeted, but I guess even they become a coward's worthy challenge; perhaps especially so once they get bored with foreign women.
 
 ![Murderous bands of women](../../../content/images/women-as-bad.png)
