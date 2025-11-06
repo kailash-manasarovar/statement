@@ -35,6 +35,10 @@
 - 7th October, a date in the 70s related to an Irish terrorist attack, and a date related to puppy love.
 - I'll extrapolate later but I believe she is trying to remind me of the [puppy love and romance](../2023/april.md#overwhelming-romantic-feelings) from before, and keep me hooked in.
 
+## So wants me to do an X Space
+
+- So, Janet, my election volunteer presses me to run a Space describing X hacking.
+
 ## Threats
 
 - I continue to get online threats from fake accounts.
