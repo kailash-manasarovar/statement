@@ -218,6 +218,11 @@ function googleTranslateElementInit() {
     - Given the next week's experience with my health, and the ongoing health problems over the next months, including declining eyesight and a diagnosis of PACS, I believe it is highly likely Domingo the piano teacher's family or associates accessed my home and were able to apply poison to food and even toiletries that I have taken with me.
 
 - Here is the [WhatsApp chat with Movistar](../../content/whatsapps/WhatsApp%20Chat%20with%20Movistar.zip) where I explain I have been hacked and ask them to investigate.
+- I also send them a video of what it's doing.
+
+<video width="320" height="240" controls>
+    <source src="./../../content/vids/router-malfunction.mp4" type="video/mp4">
+</video>
 
 ## Intense online stalking and hacking
 
