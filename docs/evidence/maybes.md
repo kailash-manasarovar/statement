@@ -68,6 +68,9 @@ This man looks like the man with the women and tiny girl who [followed me, distr
 
 ## Someone we know?
 
+- Do the gangs create birth porn too?
+- Nothing would surprise me anymore. Simple sedating in your apartment is pretty old-fashioned now isn't it.
+
 ![Maybe maybe](../content/images/maybes/maybes-nat-2.png)
 
 ![Maybe maybe](../content/images/maybes/maybes-nat.jpg)
