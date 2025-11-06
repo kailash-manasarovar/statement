@@ -1275,7 +1275,7 @@ function googleTranslateElementInit() {
 ## Cowards hiding behind the women
 
 - The women in this sick history are as evil as the men.
-- What's unsurprising is how the men remain hidden, in the backgrounds, while the women do all the dirty work out in front.
+- What's unsurprising is how the men remain hidden, in the backgrounds, while the women do all the dirty work out in front; sometimes with great pride and arrogance too.
 - Eventually, the women will take the blame when it all goes tits-up, which is inevitable of course.
 - I expect that the burgeoning Dénia porn industry is a big employer these days; girls with parents in the know getting jobs as make-up artists, set designers, poisoners, rape victim shepherdesses, and similar, while their parents pray fervently that their daughters will not be targeted, but I guess even they become a coward's worthy challenge; perhaps especially so once they get bored with the foreign women.
 
