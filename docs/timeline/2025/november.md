@@ -2,7 +2,7 @@
 
 ## Suicide content on my `@JackChardwood` account
 
-- You may remember in [January 2024](../2024/january.md#jackchardwood), my `@JackChardwood` X feed went from one content type to another, literally over night.
+- You may remember in [January 2024](../2024/january.md#the-jackchardwood-x-feed-changes-completely), my `@JackChardwood` X feed went from one content type to another, literally over night.
 - This also happened with my `@1frgvn` account repeatedly, but not so starkly; the account has much more activity anyway.
 - Nevertheless, I would notice sudden [excessive and inexplicable porn content](../2023/june.md#the-excessive-porn-on-x-begins) on both timelines on a regular basis, often during the evenings.
 - On these occasions, the *only* accounts posting anything else on my timeline seemed to be aggressive stalker fake-accounts; her [flying monkeys](../2024/march/1-12.md#online-stalkers), as it were.
@@ -33,7 +33,7 @@
 
 ![Suicide content](../../content/tweets/november-2025/suicides.png)
 
-- I take this as confirmation from the criminal porn gangs of Dénia that, just like [Alicia said about Bali](../2024/may.md#alicia), the *worst thing ever* happened.
+- I take this as confirmation from the criminal porn gangs of Dénia that, just like [Alicia said about Bali](../2024/may.md#alicia), the *worst thing in the world* happened.
 - The townsfolk and one other were the *only* ones who knew the real reason I became suicidally depressed in 2015; perhaps they're hoping for a bit of that again.
 - Sorry-not-sorry folks. Not going to happen.
 - Furthermore, this suicide content on my feed I have never seen before supports my suspicion that Lorraine Blackbourn, and others in the area and at the conservatory, may have been manipulated online into committing suicide.
