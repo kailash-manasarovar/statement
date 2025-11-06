@@ -44,6 +44,7 @@ function googleTranslateElementInit() {
 
 ![Text Pedro about the leak](../../content/whatsapps/chat-about-the-leak-with%20pedro.jpg)
 
+- Here's the [WhatsApp](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20CONSERJE%20VILLAMAR.zip).
 - The friend Pedro had mentioned back in September comes to check my car but doesn't see anything and tells me I have to bring it to the workshop.
 - I don't want to leave my car with someone I don't know, and I don't know how I will travel there and back.
 - Pedro tells me he will take me himself in his car.
@@ -160,7 +161,17 @@ function googleTranslateElementInit() {
     - Two security cameras: There was no storage card in one of the webcams so he could not check anything here. I don't know what happened to the card.
 - When I go to collect my devices, I pay 150 euros and he says he can check all my Twitter activity instead, so I give him both my account details and send Twitter archives too.
 - I have never heard back from him on any of it.
+- Here is my [WhatsApp](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20DPR%20Recovery%20Alicante%20-%20GoldenPhone%20informática.zip) messages to him.
+
+## Roberto Rodriguez, lawyer
+
 - The same day a man has been removed from political office in Toledo after spy cam porn was released of him. I find this very similar to what's going on for me and say it's epidemic to the lawyer. He basically tells me to be quiet.
+- The Roberto Rodriguez thing is a very dodgy business.
+- I am so stressed in the DPR office, it seems he is with me, but I don't think he ever came.
+- Roberto gives me the Technofix details and insists I call them, but I have already gone with DPR.
+- Here's the [WhatsApp with Roberto](../../content/whatsapps/WhatsApp%20Chat%20with%20Robert%20Rodriguez.zip).
+- I contact them but they do not reply.
+- In October, I call them apparently by accident, a man is rather strange on the phone to me, and I receive a very weird [WhatsApp message](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20Tecnofix%20Informatica.zip) where he calls me by name but I have no recollection of ever speaking with this man.
 
 ## I get an Orange SIM
 

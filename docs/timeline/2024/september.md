@@ -56,6 +56,11 @@ function googleTranslateElementInit() {
 - I wonder what it was.
 - Whatever it was [rears its ugly head](../2025/august.md#haircut) in August 2025.
 
+### Random messages
+
+- I get a bunch of random messages on Signal, Telegram, and WhatsApp.
+- Here's one from a [random Peruvian](../../content/whatsapps/WhatsApp%20Chat%20with%20random%20Peruvian%20+51%20943%20801%20768.zip) who is asking for lodgings for the night.
+
 ## Who Is This?
 
 - I start a Twitter hashtag [#WhoIsThisSeries](https://x.com/hashtag/WhoIsThisSeries?src=hashtag_click&f=live) and post some of the pics I've been seeing of women who look like they're being abused.

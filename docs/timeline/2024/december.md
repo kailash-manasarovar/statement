@@ -72,6 +72,12 @@
 - And a first point of call should be Lorraine Blackbourn's family, and anyone that knew her, and to have a look at any police complaints she may have made prior to her untimely death by suicide.
 - Furthermore, if I was an investigator, I'd make sure to check every single student that Domingo the piano teacher has taught over the years to see how many of them ended up in porn or prostitution and/or were exploited financially in some way.
 
+## Pedro sends a Christmas greeting
+
+- Pedro the caretaker from Carrer Furs sends a Christmas greeting.
+- I [message](../../content/whatsapps/WhatsApp%20Chat%20with%20PEDRO.zip) him asking him if he knows anything or if any other women in the building are being targeted.
+- He does not reply.
+
 ## Fake accounts and targets
 
 - Every day I see fake accounts with another couple of women on a regular basis, one of whom appears to be extremely anorexic in one example but not others.
