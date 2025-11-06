@@ -20,6 +20,19 @@ function googleTranslateElementInit() {
 
 ![DCI Lydia Cleaves](../../content/images/lydia-cleaves-x-profile.jpg)
 
+## Dodgy lorry, van, and car registrations
+
+- I had noticing some odd-looking vans and cars outside Carrer Furs for quite some time, probably since early 2023.
+- It didn't seem to be anything I had to be concerned with until September 2023, at which time I started to write down registration numbers whenever I had the wit to remember to do so.
+- I remember a very weird van with blacked-out windows, and a big aerial right, maybe even a satellite dish, right outside my window every day.
+- There were also similarly bizarre looking vans along the back road too.
+- Given I live in a seaside town, and the beach is at the bottom of the road, I just assumed that the vehicles belongs to regular people living in vans by the sea with Internet access.
+- When the cars started to [beep outside my apartment every day as they drove past](may.md#cars-beeping-outside) in a threatening manner, I began to more assiduously take registration numbers.
+- I had them on notes in the apartment, which I misplaced eventually, and sometimes I added them to my phone.
+- Here's a small list from April 2024 I found on the Android phone I bought in the [Chinese telecom store in Madrid](march/13-end.md#madrid).
+
+![List of dodgy registrations](../../content/images/car-regs.jpg)
+
 ## Lunch with Christine
 
 - When I return to Spain, Christine arranges a hurried lunch. She wants to know who my friend is, what he does, where he lives.

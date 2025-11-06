@@ -40,6 +40,7 @@ function googleTranslateElementInit() {
 
 ![Interview details](../../content/images/sebastian-romano-interview.jpg)
 
+- Here's our [WhatsApp chats](../../content/whatsapps/WhatsApp%20Chat%20with%20Joel%20Barden.zip).
 - I have to move our chat to later on in the week and end up talking to him while I'm waiting for my flight to Bangkok from Madrid airport again on the 7th or so.
 - We have a great chat and he tells me I will be getting a task to complete as the next step.
 - He sends the task immediately.

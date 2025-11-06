@@ -17,7 +17,11 @@ function googleTranslateElementInit() {
 - On December 8th, however, a very significant day for me spiritually, while I was in Dénia, an apartment came up for rent which was perfect; too good to be true even.
 - Carrer Furs 15, Bloque 1 Escalera 2 Piso 3 Apartamento 17, Dénia 03700 Alicante.
 - I contacted the landlady, Beatriz Garcia Morales, and signed the agreement.
-- The landlady, Beatriz, was angry and disagreeable. Hackers recently mentioned her grumpy demeanor online to me over the summer in 2024.
+- Beatriz and her husband run a local architects company: [QB arquitectos](https://qbarquitectos.com/). 
+- The landlady, Beatriz, was angry with me, and disagreeable.
+- She barked at me when I said; *I hope I'm not going to regret this*, as I signed the lease, having reservations based on her demeanor.
+- Hackers recently mentioned her grumpy demeanor online to me over the summer in 2024 in a, as usual, derogatory manner.
+- Was she angry about having to essentially be involved in murdering a woman? Had it happened before in her apartment? What happened to the previous tenant, the nurse, she was constantly talking about? Are all the properties her company is involved with fitted with high-res spy-cam systems streaming directly to porn-networks?
 - I signed the [rental contract](../../content/documents/contracto/rental-contract.pdf) and moved in on December 15th.
 
 ### Death clause
