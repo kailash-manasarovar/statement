@@ -12,6 +12,13 @@ function googleTranslateElementInit() {
 
 - I am away from Spain for the first week of April.
 - I travel to India with a friend for a short tour.
+
+![Me in Mumbai](../../content/images/me-in-mumbai.jpg)
+
+- I contact my mother directly when I'm in India.
+
+## Lunch with Christine
+
 - When I return to Spain, Christine arranges a hurried lunch. She wants to know who my friend is, what he does, where he lives.
 - She asks me these questions over and over.
 - I wonder why she is so interested when the hell I'm enduring in Denia seems to be a bit more important.
