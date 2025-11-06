@@ -1186,12 +1186,88 @@ function googleTranslateElementInit() {
 
 ### Letter to the Guardia Civil
 
-- I write to the Guardia Civil from my hotel room in Mumbai.
+- I'm finally able to write to the Guardia Civil from my hotel room in Mumbai.
 
     - [Letter in English](../../../content/documents/evidence/civil-guard.pdf).
     - [Letter in Spanish](../../../content/documents/evidence/civil-guard-spain.pdf).
 
-- I print and send it registered from my Mumbai hotel.
+??? tip "Letter to the Guardia Civil"
+    Please forward to:</br>
+    El Grupo de Delitos Telemáticos (GDT)</br>
+    Unidad Central Operativa de la Guardia Civil</br>
+    C/ SALINAS DEL ROSIO, 33</br>
+    28042 MADRID</br>
+    SPAIN</br>
+    Dear sirs,</br>
+    I am reporting an organized crime gang in Denia, Alicante who are terrorizing the townsfolk 
+    by singling out people to target for intimidation and abuse and possibly financial crime too.
+    </br>
+    I have experienced gender violence from them, including cyber bullying, and they have 
+    hacked into my computers and phones and webcams too. I have evidence for this on my laptop, phone, and webcams, but the I am in the position where I have to gather it myself, including pay high prices for tech analysis.</br>
+    When the gang tried to chase me away from Denia in June last year, I refused to flee and 
+    the intimidation got worse. They made it very clear to me they had access to my technology 
+    in August 2023 and as I am an IT professional myself, and the attack was so professional, I 
+    assumed they must have paid someone to hack me. I did not realize at the time they had 
+    been quietly watching me for over a year already, maybe more.</br>
+    I understand that the police have little interest in pursuing such intimidation cases, as 
+    historically it is impossible to gather evidence against gangs like this who target women, and 
+    the townsfolk are too scared to talk.</br>
+    However, this particular gang in Denia Alicante has recently become technologically 
+    advanced, and they are now pursing their victims via social media. They are also hacking 
+    their victims’ home networks and phones, initially by entering through vulnerable routers 
+    from handheld devices outside, or maybe even through friends working at the IPs, and 
+    thereby gaining full access to people’s online activity. Their victims appear to be no longer 
+    just women either.</br>
+    Gathering evidence for this organized criminal activity should be easy, and should not be left 
+    to a single victim who dares speak up. I have been to the police twice now about the 
+    bullying. Denia police sent me away and did not record my visit after a violent threat on 
+    Twitter. Madrid police took a statement but will not be investigating. I have to take my laptop and phone to a perito for a professional analysis which will cost me upwards of EUR 1000 at which point I will amplify my complaint.</br>
+    This gang has targeted me probably since at least June 2022 when I moved back to Denia 
+    and signed up for piano study at the conservatory again, and by doing so insulted the piano 
+    teacher Domingo Lopez Cano who threatened to poison me for refusing his advances in 
+    2014.</br>
+    Extremely private photos, videos, and recordings of me have been disseminated throughout 
+    the town, and people I don’t know either laugh at me when they see me, or look away 
+    uneasily.</br>
+    They have suggested online that they are also behind recent suicides in the town, of which, 
+    in recent times, there are far too many for such a small area, and one of these includes an 
+    old friend of mine Lorraine Blackbourn who was apparently terrorized by macho male 
+    violence which led her to kill herself.</br>
+    I have been very clear with people that I will never kill myself so if anything happens to me it is suspicious.</br>
+    These people are out of control now and something needs to be done.</br>
+    It should be easy to gather online evidence from this gang once you have ascertained who 
+    the technology advanced members of it are. I expect a quick scan of databases should help.
+    The people I am aware of are: Domingo Lopez Cano and his sister Carmen, their family and associates -> who appear to be well-known criminals in the area. Vidal Sastre Sanchez Hornero and his associates. The technician at the conservatory David.</br>
+    They have implicated many more (teachers, staff, and students) at the conservatory by 
+    being bold enough to share extremely private health information with them about me that I 
+    have told no one at all, only Google.</br>
+    Everyone knows everything about me, including how much I am paid, who I make donations 
+    to, how much those donations are, and when I make them. No-one should know these 
+    things.</br>
+    I have been unable to access my Coinbase account are(sic should be "after") an extremely horrible attack by the conservatory and the people of Denia a few weeks ago. I believe they have access. I have over 70K EUR in there that they may have access to. I am trying to get access again.</br>
+    As I said, it was clear by the fact that everyone knows what is happening to me and is either 
+    enjoying it or unable to reach out to help me, that this is a sadly common event in Denia, and 
+    perhaps further afield too.</br>
+    However, this gang are now totally out of control, and need to be stopped, I am in the 
+    process of contacting the Europol criminal cyber gang investigators.</br>
+    I enclose some information; the denunciation I made in Madrid, and the amplification I will be 
+    making once I get some evidence from my laptop. </br>
+    I have numerous letters I wrote to the Generalitat which catalog my experiences and 
+    complain about the treatment coming from one of a macho teacher and my concerns about 
+    his closeness with young girls and the access he has to their phones. These letters were 
+    totally ignored and sending them put me in more danger at the conservatory and in the 
+    streets of Denia.</br>
+    I won’t stop trying to do the right thing. You have to help me stop technology-advanced 
+    misogynist gangs terrorizing the good people of Spain and forcing victims to flee from our 
+    homes in fear of our lives.</br>
+    Faithfully,</br>
+    Dra Katharine Murphy</br>
+    Doctorado en informatica UPM 2009</br>
+    +34-622-900-327</br>
+    Carrer Furs 15, B1, Esc2, Piso3, Pta17</br>
+    03700 DENIA, Alicante</br>
+
+- I print and send it registered.
 - I don't know if anyone received it.
 
 ## Cowards hiding behind the women
