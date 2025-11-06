@@ -15,7 +15,10 @@ function googleTranslateElementInit() {
 
 ![Me in Mumbai](../../content/images/me-in-mumbai.jpg)
 
-- I contact my mother directly when I'm in India.
+- I contact my mother directly when I'm in India from a mock email I've created on my phone.
+- I also use the name on my X profile for a short while.
+
+![DCI Lydia Cleaves](../../content/images/lydia-cleaves-x-profile.jpg)
 
 ## Lunch with Christine
 
