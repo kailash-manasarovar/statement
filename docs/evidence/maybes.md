@@ -51,8 +51,8 @@ Here she is after hair-and-makeup.
 
 Could she be the grown up version of this girl?
 
-![Car woman](../content/images/targeted-women/5.png)
-![Car woman](../content/images/targeted-women/6.png)
+![Car woman](../content/images/targeted-women/car-woman/5.png)
+![Car woman](../content/images/targeted-women/car-woman/6.png)
 
 ## Big nose
 
