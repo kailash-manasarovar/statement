@@ -52,6 +52,14 @@ function googleTranslateElementInit() {
 - I sense whoever I'm talking to wants out of this dreadful life.
 - I ask "How many more like me?". The answer is two more.
 
+## Signal and Telegram
+
+- I get messaged on various chat applications by weird account.
+- Here's one I added to the [Signal page](../../evidence/signal.md#signal)
+- I did enjoy winding them up, but it was relentless; missed calls, X profiles with Spanish mobile numbers in... 
+- At least I kept them busy. 
+- Did they know I was writing scores of letters by hand, I wonder?
+
 ## Carmen Cano
 
 - The conversation continues even when I'm out hiking.
