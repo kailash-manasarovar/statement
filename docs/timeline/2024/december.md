@@ -38,6 +38,7 @@
 ## So wants me to do an X Space
 
 - So, Janet, my election volunteer presses me to run a Space describing X hacking.
+- I wonder who asked her to do that.
 
 ## Threats
 
