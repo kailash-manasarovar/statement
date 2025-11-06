@@ -30,6 +30,24 @@ function googleTranslateElementInit() {
 - On Friday 1 November, as I come back from the taking the bin out, I bump into two women coming out of the apartment building, one of whom I recognize as Carmen Cano.
 - Two weeks later in Thailand and I do feel better, my kidneys are not constantly aching and my mind is getting slowly clearer.
 
+## I start writing this statement
+
+- As suggested by [Paloma in Madrid](october.md#madrid-and-paloma), I begin writing my police statement at the end of October when I get back from Fatima.
+- I start locally without uploading to Git.
+- I will not create the Git repo until 11th November.
+- No one should know what I'm doing, except of course they know because they are monitoring everything I do online.
+- A recruitment consultant, Joel Barden contacts me with a job. We arrange an initial chat for the 4th November.
+
+![Interview details](../../content/images/sebastian-romano-interview.jpg)
+
+- I have to move our chat to later on in the week and end up talking to him while I'm waiting for my flight to Bangkok from Madrid airport again on the 7th or so.
+- We have a great chat and he tells me I will be getting a task to complete as the next step.
+- He sends the task immediately.
+- It's a week long intense task.
+- I believe they're trying to distract me from my police statement.
+- I tell them I cannot complete the task for at least a few weeks because I have a more pressing writing project at hand.
+- They drop me from the interview process.
+
 ## My father falls down the stairs
 
 - On Friday 1st November, my father falls down the stairs and breaks 21 ribs.
