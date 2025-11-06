@@ -1177,7 +1177,7 @@ function googleTranslateElementInit() {
 - I log in from my hotel room at the Holiday Inn Exress near Valencia airport.
 - I am clearly disheveled and stressed. I probably sound nervous and disorganized.
 - These videos were always saved by the business.
-- I wonder now if the porn-subscribers, perhaps men I was working with, linked into the live video footage of all my work meetings - especially the ones in which Hans had been instructed to sabotage - and may even the [piano concerts](1-12.md#the-piano-concert) as well as spy-cam footage from my apartment.
+- I wonder now if the porn-subscribers, perhaps including men I was working with, linked into the live video footage of all my work meetings - especially the ones which Hans sabotaged in an outrageous manner - and maybe even the [piano concerts](1-12.md#the-piano-concert) as well as spy-cam footage from my apartment.
 - They must have loved it.
 - No wonder I'm infamous.
 
