@@ -1156,28 +1156,30 @@ function googleTranslateElementInit() {
     [21/03/2024, 22:18:12] Jorge Esclapez Deckcard23: ðŸ‘</br>
 
 - After visiting my friend and preparing the [letter for the other expert in Alicante](#cyber-expert), I cancel the appointment with Jorge.
-- I will give neither of these experts the hacked Macbook, iPhone, or new Android I'm currently using, the Android phone I sent to London, or the security cams with activity from March 2024.
+- I will give neither of these experts the hacked MacBook, iPhone, or new Android I'm currently using, the Android phone I sent to London, or the security cams with abusive hacked activity from March 2024.
 
 ## 24th March
 
 ### Valencia
 
-- I return to Valencia on the 24th March and stay in the Barcelo from 24th-27th, and then the Holiday Inn Express near the airport from 27th-29th March.
-- I have a flight scheduled from Valencia to India on 29th March returning on Saturday 6th April so I need to be back in Valencia.
-- In Valencia I feel like I am being constantly watched, that people know who I am, and everything is extremely unfriendly and unpleasant. 
-- I did not have the intensity of this experience in Madrid, although it seemed I was being stalked there too.
-- I believe now this is to do with whatever drug they gave me prior to me leaving, which was a high dose, and it has made me very paranoid.
-- I wonder also if they managed to re-dose me somehow, or whether it was added to the car and so I got a dose after a long drive, or was the damage done at that point.
-- I was extremely paranoid in Valencia and I was constantly stalked by fake accounts on Twitter.
-- I also believe there are quite solid misogynist networks in the region which can be relied upon to inflict extra terror on a target whenever necessary.
+- I return to Valencia on the 24th March and stay in the Barcelo in the centre of town from 24th-27th, and then the Holiday Inn Express near the airport from 27th-29th March.
+- I have a flight scheduled from Valencia to India on 29th March returning on Saturday 6th April so I had to leave Madrid and return to Valencia.
+- In Valencia I feel like I am being constantly watched and followed, that people know who I am, even in the Corte Ingles.
+- Everywhere I go, and everything that happens has an air of extreme unfriendliness and threat. 
+- I did not have the intensity of this experience in Madrid, although I certainly felt I was being stalked there too.
+- I wonder if whatever they put in my toiletries before I left for Madrid - they knew I was going and when I was out of my apartment - made me very paranoid as well as stressed and unable to perform simple tasks efficiently.
+- Twitter harassment was fever-pitched while I was in Valencia.
+- I do believe there are vast woman-hating networks in the region, indeed in the whole of Spain, which can be relied upon to inflict extra terror on a target whenever necessary.
 
 #### Management team meeting at Polygon
 
-- I'm scheduled to attend the management team meeting.
+- I'm scheduled to attend the Polygon management team meeting.
 - I log in from my hotel room at the Holiday Inn Exress near Valencia airport.
-- I believe I will be clearly disheveled and stressed.
-- There will be videos saved of these meetings.
-- I wonder now if the porn-subscribers, perhaps men I was working with, will have had video footage of the [piano concert](1-12.md#the-piano-concert) as well as spy-cam footage from my apartment, and hacked work activity and meetings.
+- I am clearly disheveled and stressed. I probably sound nervous and disorganized.
+- These videos were always saved by the business.
+- I wonder now if the porn-subscribers, perhaps men I was working with, linked into the live video footage of all my work meetings - especially the ones in which Hans had been instructed to sabotage - and may even the [piano concerts](1-12.md#the-piano-concert) as well as spy-cam footage from my apartment.
+- They must have loved it.
+- No wonder I'm infamous.
 
 ## 31st March
 
