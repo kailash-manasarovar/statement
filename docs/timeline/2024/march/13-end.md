@@ -1191,6 +1191,8 @@ function googleTranslateElementInit() {
     - [Letter in English](../../../content/documents/evidence/civil-guard.pdf).
     - [Letter in Spanish](../../../content/documents/evidence/civil-guard-spain.pdf).
 
+![Letter from Mumbai](../../../content/images/letter-from-mumbai.png)
+
 ??? tip "Letter to the Guardia Civil"
     Please forward to:</br>
     El Grupo de Delitos Telemáticos (GDT)</br>
