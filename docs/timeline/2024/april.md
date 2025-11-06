@@ -194,7 +194,8 @@ function googleTranslateElementInit() {
 - Roberto gives me the Technofix details and insists I call them, but I have already gone with DPR.
 - Here's the [WhatsApp with Roberto](../../content/whatsapps/WhatsApp%20Chat%20with%20Robert%20Rodriguez.zip).
 - I contact them but they do not reply.
-- In October, I call them apparently by accident, a man is rather strange on the phone to me, and I receive a very weird [WhatsApp message](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20Tecnofix%20Informatica.zip) where he calls me by name but I have no recollection of ever speaking with this man.
+- In October, I call them apparently by accident, a man is rather strange on the phone to me, and I receive a very weird [WhatsApp message](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20Tecnofix%20Informatica.zip) where he calls me by name, *Katterin* (sic), but I have no recollection of ever speaking with this man.
+- The name he used *Katterin* was how [Salva used to refer to me in choir](../2023/october.md#choir) and is likely sexually suggestive in colloquial Spanish and is probably why Adriana and the other kids were a bit concerned about his use of it.
 - Move WhatsApps content into here: todo:
 - Here's a couple of pics, all content to be organized shortly.
 
