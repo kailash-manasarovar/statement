@@ -1269,7 +1269,7 @@ function googleTranslateElementInit() {
     Carrer Furs 15, B1, Esc2, Piso3, Pta17</br>
     03700 DENIA, Alicante</br>
 
-- I print and send it registered.
+- I print and send it registered from India.
 - I don't know if anyone received it.
 
 ## Cowards hiding behind the women
