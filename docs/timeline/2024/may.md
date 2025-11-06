@@ -174,6 +174,29 @@ function googleTranslateElementInit() {
 ## Bali
 
 - I am in Bali from 11th-19th May with work.
+
+### Flight to Bali
+
+- I fly Turkish airways from Madrid via Istanbul.
+- Previous DM from "Elon's brother" ...
+- On the flight, I write an enormous text.
+- I take some pics and send them.
+
+![Bali flight 1](../../content/images/bali-flight/1.jpg)
+![Bali flight 2](../../content/images/bali-flight/2.jpg)
+![Bali flight 3](../../content/images/bali-flight/3.jpg)
+![Bali flight 4](../../content/images/bali-flight/4.jpg)
+
+- I'm also amazed they're showing a film which was posted on the `@jctot19` Google search results around Christmas. 
+- It's about child sex trafficking.
+- I take a pic and send it.
+
+![Bali flight film](../../content/images/bali-flight/film-about-child-trafficking.jpg)
+
+- On arrival I meet some colleagues. Everyone seems happy to see me, chatty and friendly.
+
+### Arriving at the hotel
+
 - My hotel room is next to John Michael from IT support. I reported my concerns about hacking to him previously.
 - I notice constant "set up" events, just like in Denia, which mean someone is tracking mine, and other's, movements in order to create "chance" meetings.
 - I seem to have "bumping into" episodes every day; *meaningfully* set up events and situations, or literally bumping into people meaningfully.
