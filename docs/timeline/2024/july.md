@@ -88,6 +88,11 @@ function googleTranslateElementInit() {
 - I never hear anything back from the expert in Alicante about this, or anything else.
 - My friend phones him repeatedly for updates while the receptionist fobs her off.
 
+## Texting Knowhere about the Russian or Ukrainian brutes
+
+- I WhatsApp Knowhere.
+- I added the info [here](../../evidence/whatsapps.md#asking-knowhere-if-they-have-security-cameras) but will edit back into here.
+
 ## Texting with Sandra Diaz
 
 - I text Sandra Diaz during this time.
