@@ -172,6 +172,11 @@ function googleTranslateElementInit() {
 - Here's the [WhatsApp with Roberto](../../content/whatsapps/WhatsApp%20Chat%20with%20Robert%20Rodriguez.zip).
 - I contact them but they do not reply.
 - In October, I call them apparently by accident, a man is rather strange on the phone to me, and I receive a very weird [WhatsApp message](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20Tecnofix%20Informatica.zip) where he calls me by name but I have no recollection of ever speaking with this man.
+- Move WhatsApps content into here: todo:
+- Here's a couple of pics, all content to be organized shortly.
+
+![Roberto R 1](../../content/images/roberto-rodriguez/roberto-rodriguez-1.jpg)
+![Roberto R 2](../../content/images/roberto-rodriguez/roberto-rodriguez-2.jpg)
 
 ## I get an Orange SIM
 
