@@ -1276,7 +1276,12 @@ function googleTranslateElementInit() {
 
 - The women in this sick history are as evil as the men.
 - What's unsurprising is how the men remain hidden, in the backgrounds, while the women do all the dirty work out in front; sometimes with great pride and arrogance too.
-- Eventually, the women will take the blame when it all goes tits-up, which is inevitable of course.
-- I expect that the burgeoning Dénia porn industry is a big employer these days; girls with parents in the know getting jobs as make-up artists, set designers, poisoners, rape victim shepherdesses, and similar, while their parents pray fervently that their daughters will not be targeted, but I guess even they become a coward's worthy challenge; perhaps especially so once they get bored with the foreign women.
+- The women know that if they complain they might end up in cherry-pie porn, something that that they probably did to the lovely laundry lady, Maria.
+- Did she have a rare good word to say about me?
+- Do they all end up a little crazy in an environment like this?
+- Eventually, the women will be forced to take the blame when it all goes tits-up, which is inevitable of course.
+- But we will know better.
+- Even so, I expect that the burgeoning Dénia porn industry is a big employer these days; girls with parents in the know getting jobs as make-up artists, set designers, poisoners, rape victim shepherdesses, and similar, while their parents pray fervently that their daughters will not be targeted, but I guess even they become a coward's worthy challenge; perhaps especially so once they get bored with the foreign women.
+- No-one wants to lose their livelihoods, or their Ferraris.
 
 ![Murderous bands of women](../../../content/images/women-as-bad.png)
