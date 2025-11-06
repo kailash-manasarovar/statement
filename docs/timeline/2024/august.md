@@ -213,6 +213,10 @@ function googleTranslateElementInit() {
 - Whoever the father is, looks a little bit like [number three trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) and of all the men who I remember this would be the only possible father due to skin color.
 - I realize that it is likely the original pics of the woman were taken maybe twenty years ago.
 - They got a baby from her.
+- Here she is:
+
+![The baby](../../content/images/fake-accounts/nov-24/daughter-of-innocent-lady.png)
+
 - More product.
 - When I see the daughter, she is in suggestive poses, post sex wearing the man's shirt, that sort of thing.
 - There were also a bunch of photos of her where she is *clearly* underage.

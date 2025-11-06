@@ -739,6 +739,10 @@ function googleTranslateElementInit() {
 ![Paqui](../../../content/images/fake-accounts/paqui1.png)
 
 - I find this extremely threatening, but believe that Hazel Smith and the Canos are more likely behind it.
+- One of the accounts which had this photo of Paqui posted as a profile was this one, altered at the time of screenshotting:
+
+![Paqui account](../../../content/images/fake-accounts/the-paqui-account.png)
+
 - My email also tips off criminals and colleagues that I won't be leaving my apartment immediately; and that [Bali](../may.md#bali) is still on.
 - Eventually, I realize I am indeed not safe at the conservatory, and likely at any Generalitat establishment, so I excuse myself from classes on 26th March stating that I am not going to be attending classes because I am afraid for my life.
 

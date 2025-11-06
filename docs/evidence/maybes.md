@@ -45,9 +45,14 @@ This woman looks *a lot* like the woman at coffee with the trumpet teacher in Be
 
 The account seems legit but you never know: https://x.com/VirgisViews.
 
+Here she is after hair-and-makeup.
+
+![Missus](../content/images/fake-accounts/missus.png)
+
 Could she be the grown up version of this girl?
 
-<!-- add here -->
+![Car woman](../content/images/targeted-women/5.png)
+![Car woman](../content/images/targeted-women/6.png)
 
 ## Big nose
 
