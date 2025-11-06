@@ -220,8 +220,8 @@ function googleTranslateElementInit() {
 - Here is the [WhatsApp chat with Movistar](../../content/whatsapps/WhatsApp%20Chat%20with%20Movistar.zip) where I explain I have been hacked and ask them to investigate.
 - I also send them a video of what it's doing.
 
-<video width="320" height="240" controls>
-    <source src="./../../content/vids/router-malfunction.mp4" type="video/mp4">
+<video controls>
+    <source src="/content/vids/router-malfunction.mp4" type="video/mp4">
 </video>
 
 ## Intense online stalking and hacking
