@@ -1179,7 +1179,8 @@ function googleTranslateElementInit() {
 - These videos were always saved by the business.
 - I wonder now if the porn-subscribers, perhaps including men I was working with, linked into the live video footage of all my work meetings - especially the ones which Hans sabotaged in an outrageous manner - and maybe even the [piano concerts](1-12.md#the-piano-concert) as well as spy-cam footage from my apartment.
 - They must have loved it.
-- No wonder I'm infamous.
+- No wonder I'm infamous. 
+- The unwitting porn-star that everyone loathed.
 
 ## 31st March
 
