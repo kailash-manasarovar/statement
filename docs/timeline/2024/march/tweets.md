@@ -2,22 +2,6 @@
 
 ## `@1frgvn`
 
-- https://x.com/january_myth/status/1772034747775992249 -> the Taru Ann account, which may be sometimes run by Patricia retweets a post from 29th August 2023, around the time the hackers are revealing themselves. I don't remember seeing it at that time but I may have and it just didn't register as connected.
-
-![Love poem](../../../content/tweets/taru-ann-poem-2.png)
-
-- At the same time, she retweets a pic from 12th June 2023, which I have been unable to locate so [asked the account owner about it directly](../../../content/tweets/long-long-way-to-go.png) and she has posted the pic: https://x.com/january_myth/status/1860955287672213591/photo/1 but not the poem that went with it. I remember seeing that one but, again, I made no connection to this account.
-- I ask her about the poem.
-
-![taru ann poem and pic posted on 12th june 2023](../../../content/images/taru-ann-poem.png)
-
-- It's curious that she deleted the tweet from 12th June 2023.
-- She just deleted a tweet replied to me today (Friday 29th November) in a way to **call out** the fact that she deletes tweets from time to time, except she never did it before today (Friday 29th November).
-- I begin to suspect that whoever is managing the Taru Ann account could be well known to me.
-- On September 22nd, after weird communication from Patricia all summer, I wonder if Taru Ann is Patricia from time to time by delegation: https://x.com/1FRGVN/status/1837596563557831058. The account likes my question in response. It could be anyone I guess but certainly someone involved somehow.
-
-![Could Patricia be Taru Ann sometimes](../../../content/tweets/trish-is-taru-ann.png)
-
 - https://x.com/1FRGVN/status/1764211138269422006
 - https://x.com/1FRGVN/status/1764210826007728603
 - https://x.com/1FRGVN/status/1764554104469180450

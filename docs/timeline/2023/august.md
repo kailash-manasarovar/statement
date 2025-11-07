@@ -736,9 +736,9 @@ function googleTranslateElementInit() {
 - If you look at the accounts that have followed the Sumithra account in the [August twitter doc](../../content/tweets/august-2023-twitter.pdf), you will see they are all dog-related.
 - The `@january_myth` account (who I suspect is probably [Patricia](../2022/october.md#patricia), at least some of the time) who had posted triggering content on the day of 'my funeral' at the conservatory on [12th June 2023](june.md#monday-12th-june-2023), posts again.
 
-![Love poem](../../content/tweets/taru-ann-poem-2.png)
+![Love poem](../../content/tweets/march-2024/pilgrim-soul.png)
 
-- I miss the significance of this and will only figure out the connection in [March 2024](../2024/march/13-end.md#24th-march) when I'm afraid for my life in Valencia and the account retweets this.
+- I miss the significance of this and will only figure out the connection in [March 2024](../2024/march/13-end.md#24th-march) when I'm afraid for my life and the account retweets this.
 - The two `@january_myth` posts are trigger-posts, published at the very moment I'm being terrorized online.
 - Was the trumpet teacher continuing to harbor hopes of drawing me into an abusive relationship where he could control me and defraud me of my wealth?
 - Would these posts be retweeted back to me once I was entrapped and could not escape, and only then I would know the full extent of the conspiracy, and someone, somewhere would get an extraordinary kick of delight out of my sudden awareness.
