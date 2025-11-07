@@ -93,7 +93,7 @@ function googleTranslateElementInit() {
 | ![pic]( ../../content/images/targeted-women/car-woman/1.png ) |
 | ![pic]( ../../content/images/targeted-women/car-woman/1.5.png ) |
 | ![pic]( ../../content/images/targeted-women/car-woman/2.png ) |
-| ![pic]( ../../content/images/targeted-women/car-woman/2.2.png ) |
+| ![pic]( ../../content/images/targeted-women/car-woman/2.2%20-%20ballet%20pose.png ) |
 | ![pic]( ../../content/images/targeted-women/car-woman/2.5.png ) |
 | ![pic]( ../../content/images/targeted-women/car-woman/2.9.png ) |
 | ![pic]( ../../content/images/targeted-women/car-woman/3.png ) |

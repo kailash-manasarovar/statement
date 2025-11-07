@@ -90,7 +90,8 @@
 | ![pic]( ../../content/images/fake-accounts/nov-24/Screenshot%202024-12-01%20at%208.20.59 PM.png)  |
 | ![pic]( ../../content/images/fake-accounts/nov-24/Screenshot%202024-12-02%20at%204.12.56 PM.png)  
 This pic is one of a series of a woman photographed without her consent. |
-| ![pic]( ../../content/images/fake-accounts/nov-24/Screenshot%202024-12-02%20at%208.40.13 AM.png)  
+| ![pic]( ../../content/images/fake-accounts/nov-24/daughter-of-innocent-lady.png)
+
 This woman in this pic could be related to the [innocent lady groomed into porn](august.md#photos-of-abused-women-and-girls). They look very alike and I have seen her in countless pics. |
 
 ## Ongoing torment and terrorizing
