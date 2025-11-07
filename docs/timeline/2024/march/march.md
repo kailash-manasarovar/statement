@@ -21,6 +21,8 @@ function googleTranslateElementInit() {
 
 ## First half of the month
 
+![Is true love really a thing anymore, it'd be cool if it was](../../../content/images/is-true-love-really-a-thing.png)
+
 - This section details all the activity leading up to the piano concert that took place on 12th March that I have remembered so far.
 - It includes the company I was working for, Polygon, finding evidence of hacking which forced me to work from serviced offices.
 - It includes trying to find out how to report hacking to the police and hiring a translator to explain the process.
