@@ -44,3 +44,11 @@ function googleTranslateElementInit() {
 - There's so much of this psychological triggering and signposting stuff, I could write a book on it alone.
 - In time, I'll get this section organized and point out to the timeline.
 - I notice I'm duplicating screenshots so there will have to be a bit of a tidy up at some point.
+
+## One every eight hours
+
+- One can only guess at what was meant by this.
+- One what?
+- One sedated target that porn-subscribers know in gang-rape filmed in her apartment, hotel room, or friend's house?
+
+![One every 8 hours](../content/images/one-every-8-hours.jpg)
