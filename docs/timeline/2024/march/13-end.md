@@ -830,6 +830,10 @@ function googleTranslateElementInit() {
 
 ![Lorraine](../../../content/images/threats/lorraine/lorraine-6.png)
 
+- At the time, I felt everyone at the conservatory were complicit in Lorraine's death somehow, and I tweeted to that affect.
+
+[![Message to the bullies](../../../content/tweets/march-2024/message-to-bullies.jpg)](https://x.com/1FRGVN/status/1765679070510026786)
+
 - I now believe this account was manned entirely by Hazel Smith, who must have been certain of my doom since I had been threatened so badly I would never return to the conservatory.
 - She felt totally safe.
 - Stalkers now knew that I was alone in my apartment with only my work colleagues at Polygon to interact with, some of whom were also complicit in whatever was going on for me at that time.

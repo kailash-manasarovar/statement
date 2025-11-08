@@ -2,12 +2,6 @@
 
 ## `@1frgvn`
 
-- https://x.com/1FRGVN/status/1764211138269422006
-- https://x.com/1FRGVN/status/1764210826007728603
-- https://x.com/1FRGVN/status/1764554104469180450
-- https://x.com/1FRGVN/status/1764557706151538997
-- https://x.com/1FRGVN/status/1764555858963222694
-- https://x.com/1FRGVN/status/1765679070510026786
 - https://x.com/1FRGVN/status/1766020478387306801
 - https://x.com/1FRGVN/status/1766020032608227754
 - https://x.com/1FRGVN/status/1766018992202813506
