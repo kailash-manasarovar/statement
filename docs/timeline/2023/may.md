@@ -130,6 +130,7 @@ function googleTranslateElementInit() {
 - All the teachers are there as it is assessment day, or something like this.
 - On my way in, I notice the trumpet teacher driving past me just after I have walked outside of my building.
 - He looks at me and looks away.
+- This is [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man).
 - His car is small and grey but I notice nothing more about it.
 - When I get into class, I realize he was at the meeting and probably had to leave early.
 - I get a very bad feeling from some of the teachers including [the choir master Filibert](https://filibertmira.com/) who stands and glares at me without moving while I walk past him down the stairs.
