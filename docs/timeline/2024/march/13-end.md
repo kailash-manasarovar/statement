@@ -275,11 +275,32 @@ function googleTranslateElementInit() {
 - I wonder what the special was on Denia TV that night.
 - My shoulders, arms, and hands feel numb, like they've stopped working.
 - Even pressing touchscreen buttons on my phone is challenging.
-- A few days later, and marginally calmer, and after considering my horrific experiences at the conservatory in wider terms, I ask for opinions on the elevated rate of suicide in the town and what's behind the unusual deaths of healthy young people.
+
+#### After calming a little
+
+- A few days later, and marginally calmer, and after considering my horrific experiences at the conservatory in wider terms, I ask for opinions on the elevated rate of suicide in the town and what's behind the unusual deaths of healthy young people, and whether that's what they were hoping for me.
+- I have assumed since Summer 2023 that using polls to gauge sentiment is a safe way for terrified people to tell me what they think.
 
 [![Suicide rate](../../../content/tweets/march-2024/suicide-rate-anomaly.jpg)](https://x.com/1FRGVN/status/1770308212945834336)
 
 [![Unusual deaths of young people](../../../content/tweets/march-2024/suicide-rate-anomaly-1.jpg)](https://x.com/1FRGVN/status/1772072527218504061)
+
+[![How many more victims do you know of](../../../content/tweets/march-2024/suicide-rate-anomaly-2.jpg)](https://x.com/1FRGVN/status/1772071779210498481)
+
+[![Expecting me to commit suicide](../../../content/tweets/march-2024/suicide-rate-anomaly-3.jpg)](https://x.com/1FRGVN/status/1772059637384151485)
+
+- I make a healer's assessment of the situation.
+
+[![Healer's assessment](../../../content/tweets/march-2024/healers-assessment.jpg)](https://x.com/1FRGVN/status/1772075005066568065)
+
+- What do I mean? See my reply for an idea.
+- I'm wondering if there's a bet on. Of course there must be, but what I don't realize is it's probably an online international porn-network bet.
+
+[![Is there a bet on](../../../content/tweets/march-2024/is-there-a-bet-on.jpg)](https://x.com/1FRGVN/status/1772074205938319624)
+
+- I ask the town how they put up with it.
+
+[![How do you put up with it](../../../content/tweets/march-2024/how-do-they-put-up-with-it.jpg)](https://x.com/1FRGVN/status/1772070689496830409)
 
 ### Did they rob my crypto account?
 
@@ -759,6 +780,9 @@ function googleTranslateElementInit() {
 - Salva responds in a brusque manner stating that if I have a problem I should go to the police.
 - Esteve responds to say he's only at the conservatory to teach.
 - Alfonso's response is extremely alarmed.
+- I do not trust the Generalitat systems, so a little later I tweet confirmation that I have done this.
+
+[![Fear for my life](../../../content/tweets/march-2024/fear-for-my-life-at-conservatory-classes.jpg)](https://x.com/1FRGVN/status/1772602721276751926)
 
 ## 18th March
 

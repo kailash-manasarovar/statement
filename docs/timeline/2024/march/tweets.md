@@ -3,17 +3,6 @@
 ## `@1frgvn`
 
 
-- https://x.com/1FRGVN/status/1772072527218504061
-- https://x.com/1FRGVN/status/1772071779210498481
-- https://x.com/1FRGVN/status/1772075005066568065
-- https://x.com/1FRGVN/status/1772074205938319624 -> pretty sure there is some sort of bet on.
-- https://x.com/1FRGVN/status/1772059637384151485
-- https://x.com/1FRGVN/status/1772071533839597976
-- https://x.com/1FRGVN/status/1772070689496830409
-- https://x.com/1FRGVN/status/1772062320069398540
-- https://x.com/1FRGVN/status/1772060317524070527
-- https://x.com/1FRGVN/status/1772080804933357870
-- https://x.com/1FRGVN/status/1772255398801576139
 - https://x.com/1FRGVN/status/1772602721276751926 -> apologizing for not being able to go to choir because I am in fear for my life.
 - https://x.com/1FRGVN/status/1773059705549508827 -> Paqui on a fake account. She looks like she wants to kill herself.
 - https://x.com/1FRGVN/status/1773450210930270351

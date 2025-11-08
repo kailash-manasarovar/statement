@@ -346,6 +346,10 @@ function googleTranslateElementInit() {
 ![Man with headphones](../../content/tweets/man-with-headphones.JPG)
 
 - [The Lives of Others](https://en.wikipedia.org/wiki/The_Lives_of_Others) is about the secret police listening into residents' lives in East Germany during the Cold War. The irony was lost on me at the time.
+- After [intense stalking and harassment in March 2024](../../timeline/2024/march/13-end.md#distraction-then-drugging), and possible serious physical assault while sedated, I post a poll with this film as the winning option that describes the mood over the last year.
+
+[![Lives of others](../../content/tweets/march-2024/the-lives-of-others.jpg)](https://x.com/1FRGVN/status/1772062320069398540)
+
 - The tweets below were part of the screenshot I took and didn't bother to edit. They were not related to the Lives of Others tweet.
 
 ### Translated threats
