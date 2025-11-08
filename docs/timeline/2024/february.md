@@ -670,6 +670,14 @@ function googleTranslateElementInit() {
 
 [![Me and Hazey-wazey](../../content/tweets/february-2024/hazel.png)](https://x.com/1FRGVN/status/1763160058647429141)
 
+- Over just a few short days, I start seeing pets that are clearly stoned and high. I post my concerns.
+
+[![Drugged pets](../../content/tweets/february-2024/drugged-pets.jpg)](https://x.com/1FRGVN/status/1763113154802745678)
+
+- Of course, I stop seeing pets that are clearly stoned and high immediately; they were part of the criminal algorithm manipulation, triggering me with content related to exactly what is happening to me.
+- An account `@lucyinbetween` which I believe is run by Domingo Cano can't help itself and tweets something ridiculous back: *Thats the most bizarre thing youve said yet*.
+- The post reply is deleted.
+
 ### `JackChardwood`
 
 - I'd forgotten about this tweet. 

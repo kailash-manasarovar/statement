@@ -2,13 +2,6 @@
 
 ## `@1frgvn`
 
-
-- https://x.com/1FRGVN/status/1772602721276751926 -> apologizing for not being able to go to choir because I am in fear for my life.
-- https://x.com/1FRGVN/status/1773059705549508827 -> Paqui on a fake account. She looks like she wants to kill herself.
-- https://x.com/1FRGVN/status/1773450210930270351
-- https://x.com/1FRGVN/status/1773459307423568301
-- https://x.com/1FRGVN/status/1773488720185798746
-- https://x.com/1FRGVN/status/1773488467281936384
 - https://x.com/1FRGVN/status/1763113154802745678 - Lucyinbetween thread, very interesting. I suspect it's Domingo and the comment relates to actually what is happening to me, not pets.
 
 ## `@JackChardwood`

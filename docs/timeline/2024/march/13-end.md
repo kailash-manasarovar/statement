@@ -765,7 +765,7 @@ function googleTranslateElementInit() {
 - Her silence speaks a thousand words.
 - Over the next weeks, numerous fake accounts follow me or like my posts that have Paqui's face in the profile picture in what I find to be a threatening pose.
 
-![Paqui](../../../content/images/fake-accounts/paqui1.png)
+[![Paqui](../../../content/images/fake-accounts/paqui1.png)](https://x.com/1FRGVN/status/1773059705549508827)
 
 - I find this extremely threatening, but believe that Hazel Smith and the Canos are more likely behind it.
 - One of the accounts which had this photo of Paqui posted as a profile was this one, altered at the time of screenshotting:
@@ -1238,6 +1238,15 @@ function googleTranslateElementInit() {
 - They must have loved it.
 - No wonder I'm infamous. 
 - The unwitting porn-star that everyone loathed.
+
+## 29th March
+
+- I ask X if I should go back to study at the conservatory when term starts again.
+
+[![Should I go back](../../../content/tweets/march-2024/should-i-go-back-to-class.jpg)](https://x.com/1FRGVN/status/1773450210930270351)
+
+- I'm guessing this sort of post meant that the gangs had to step up the terror.
+- In April, when I return from India, I find myself in another [state of terror](./../april.md#the-third-time-im-convinced-im-going-to-be-arrested); convinced, yet again, I'm about to be arrested.
 
 ## 31st March
 
