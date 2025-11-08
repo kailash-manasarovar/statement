@@ -1414,3 +1414,8 @@ function googleTranslateElementInit() {
 - Or a massive error on the part of a nation of sex-and-violence-obsessed criminals?
 - The last post I saw from her before I muted and blocked her had a picture of the *sister* who looked very much like a Pan Am stewardess. She has since deleted it.
 - Another account run by same support collective: `@this_is_peebs`.
+
+### My `@JackChardwood` account
+
+- Content for this period is mostly related to romance and relationship, i.e. keeping the lie going.
+- Here's a link to the [search results for March 2024](https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2024-03-31%20since%3A2024-03-01&src=typed_query&f=live)
