@@ -275,6 +275,11 @@ function googleTranslateElementInit() {
 - I wonder what the special was on Denia TV that night.
 - My shoulders, arms, and hands feel numb, like they've stopped working.
 - Even pressing touchscreen buttons on my phone is challenging.
+- A few days later, and marginally calmer, and after considering my horrific experiences at the conservatory in wider terms, I ask for opinions on the elevated rate of suicide in the town and what's behind the unusual deaths of healthy young people.
+
+[![Suicide rate](../../../content/tweets/march-2024/suicide-rate-anomaly.jpg)](https://x.com/1FRGVN/status/1770308212945834336)
+
+[![Unusual deaths of young people](../../../content/tweets/march-2024/suicide-rate-anomaly-1.jpg)](https://x.com/1FRGVN/status/1772072527218504061)
 
 ### Did they rob my crypto account?
 
@@ -292,6 +297,9 @@ function googleTranslateElementInit() {
 
 - There is a sense of having become so accustomed to the daily terrorizing, I'm able to withstand it, collect myself, and continue on into battle.
 - I want them to know I *will* be going to the conservatory to practice the piano in the morning.
+- I also include the police in a tweet about it.
+
+[![Robbery in progress](../../../content/tweets/march-2024/robbery-in-progress.jpg)](https://x.com/1FRGVN/status/1768008919329198108)
 
 ## Thursday 14th March
 
@@ -874,6 +882,10 @@ function googleTranslateElementInit() {
 - I'm pretty certain the content coming from the `@hierencore` account was Sandra Smith.
 - I could practically hear her voice. 
 - Apparently, her ridiculous diatribe was supposed to be smart and funny, as well as threatening. It was only threatening.
+- Here's the top of her rant-graph.
+
+[![Interview with the stalker](../../../content/tweets/march-2024/interview-with-the-stalker.jpg)](https://x.com/1FRGVN/status/1771830853091422337)
+
 - Our chats were so good, she even gets [her own section below](#hierencore49002).
 - I wondered if the account below was the technician guy at the conservatory, or the owner of the mobile phone shop.
 - It was always active during intense threats and the English is very British-vernacular.
@@ -933,6 +945,13 @@ function googleTranslateElementInit() {
 - I was definitely chatting with Sandra, but like the other delegated accounts, this one could be taken over at any moment and I believe Domingo and Carmen and other Spanish-speakers did so, frequently.
 - Outside of when I was speaking with Sandra in extremely fluent and vernacular British English, suddenly the flow might stop and be broken by an obvious non-native speaker.
 - You can probably see this in the conversations, if they haven't deleted them.
+
+#### My own posts
+
+- Stalkers would have threatening statements I myself had posted historically, and then like or retweet them so they would pop up in my notifications like another threat.
+- I liked to call them out on it when I could.
+
+[![Posting threatening statements back](../../../content/tweets/march-2024/posting-threatening-statements-back.jpg)](https://x.com/1FRGVN/status/1770385824359608528)
 
 #### Spaces
 
@@ -1090,7 +1109,13 @@ function googleTranslateElementInit() {
 
 - The message summary on the left is interesting too. 
 - [*Anna; lovi*](1-12.md#aniloviator), [*Yes, homo*](#an-account-i-believe-is-run-by-domingo-cano-the-piano-teacher), and *Skylar Gwynn* are accounts I believe were stalking me and so likely run by the same person or persons.
-- I wonder if they use punctuation and symbols in their names for technical reasons their online personas would likely not be aware of.
+- Did they manipulate my feed to make `@AllyBrisket` look like it was Domingo?
+- Something made me very certain it was him since May 2023, and intensely so during those stressed days in March 2024. Perhaps I made a mistake.
+
+[![Early stage kidney failure](../../../content/tweets/march-2024/early-stage-kidney-failure.jpg)](https://x.com/1FRGVN/status/1770013466180387194)
+
+- The truth will certainly be coming out in the rinse.
+- I wonder if the fake account use punctuation and symbols in their names for technical reasons their online personas would likely not be aware of.
 - A flurry of *concerned* stalker accounts sending me messages says more about mass gender-violence techniques than anything else.
 - I'm sure there's heaps more of these.
 - From March onwards I was bombarded with DM requests from fake accounts.

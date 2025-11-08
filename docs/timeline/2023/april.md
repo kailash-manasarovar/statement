@@ -145,7 +145,12 @@ function googleTranslateElementInit() {
 - While I'm in Lourdes, I expect to see the trumpet teacher at any moment.
 - I imagine he will be there with his secondary school class.
 - I believe this because of the time he [handed me his phone](march.md#the-trumpet-teacher-hands-me-his-phone) and I saw he was making travel plans for a large group of people going to France.
-- I also believe this because I'm out of my mind on some psychoactive substance I'm unaware is probably in my shampoo; and most likely I'm being fed constant online reinforcement of this idea.
+- I tweeted about this the following March.
+
+[![He handed me his phone](../../content/tweets/march-2024/handing-me-his-phone.jpg)](https://x.com/1FRGVN/status/1766412512306618714)
+
+- The man who handed me his phone was [number two trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013).
+- I also believe all this because I'm out of my mind on some psychoactive substance I'm unaware is probably in my shampoo; and most likely I'm being fed constant online reinforcement of this idea.
 - I have a vision of the trumpet teacher with a large group of people; he himself rising up to be seen above the figures who surround him.
 - I'm reminded of this vision when I see Sandra Rita Diaz in Lourdes again, sometime in 2024, and she gives me a bunch of Psalms of David to read for protection against the evil people in Dénia who plan to do me harm.
 

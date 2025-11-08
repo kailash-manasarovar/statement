@@ -2,17 +2,7 @@
 
 ## `@1frgvn`
 
-- https://x.com/1FRGVN/status/1766020478387306801
-- https://x.com/1FRGVN/status/1766020032608227754
-- https://x.com/1FRGVN/status/1766018992202813506
-- https://x.com/1FRGVN/status/1766412512306618714
-- https://x.com/1FRGVN/status/1768008919329198108
-- https://x.com/1FRGVN/status/1768046490272870687
-- https://x.com/1FRGVN/status/1770013466180387194
-- https://x.com/1FRGVN/status/1770385824359608528 -> this was another tactic the stalkers used, posting my own tweets back at me, or liking them so that I would see the messages in order to terrorize me further.
-- https://x.com/1FRGVN/status/1771830853091422337
-- https://x.com/HEncore49002/status/1771577638932328955
-- https://x.com/1FRGVN/status/1770308212945834336
+
 - https://x.com/1FRGVN/status/1772072527218504061
 - https://x.com/1FRGVN/status/1772071779210498481
 - https://x.com/1FRGVN/status/1772075005066568065
