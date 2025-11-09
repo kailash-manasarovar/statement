@@ -300,7 +300,7 @@ function googleTranslateElementInit() {
 - I have never spent more than 10 minutes with Maria outside of class and never for socializing so it was a bit odd.
 - Nevertheless, I thought it was just a thing she said for no particular reason; perhaps one coffee was not enough.
 - Now, I realize she was referring to the *coffee* meme from 2014, and the implication of *or two, or three*, or four.
-- Maria was 100% involved, as was *everyone* else.
+- Maria was 100% involved, as was everyone else at the conservatory. She knew exactly what was happening to me at my apartment in Joan Fuster, and what was happening to me in my apartment in Carrer Furs. Did she visit without my knowledge while I was there too?
 - The world will vomit collectively when they find out.
 - The town will empty of foreigner in months.
 - And the longer they leave dealing with these people, and the more victims, particularly minors or near-minors, the bulk of the victims I would say, who fall foul of them (it’s been over two years since I first complained) the worse it will be for everyone.
