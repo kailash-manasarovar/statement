@@ -292,7 +292,7 @@ function googleTranslateElementInit() {
     - She was overly concerned about this, and brought it up every week until I got my SIP card.
     - Before that, I tell her not to worry, I have private medical insurance but she is hugely concerned about a possible future situation in which I would have no cover and need medical assistance.
     - She seems relieved when I tell her I have received my medical card.
-    - I wonder why she would be so concerned about this.
+    - I wonder why she would be so concerned about this, and who might be prompting her concern.
 
 - From the minute I saw Maria for the first time again in June 2022 when I was coming into the conservatory to rehearse for the audition - Jaume had given the trumpet teaching room to practice in, by-the-way - she would say something strange to me.
 - She would say; *we can maybe go for a coffee, or two, or three*, I felt she was prompting me to say *or four* back, I may have.
