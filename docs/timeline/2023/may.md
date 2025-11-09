@@ -216,6 +216,13 @@ function googleTranslateElementInit() {
 
 ![Threat levels](../../content/tweets/threat-levels-against-women.png)
 
+## Respect for privacy
+
+- Interestingly, until 12th June 2023 I was very respectful of the privacy of this man the trumpet teacher.
+- I didn't phone or text him at all.
+- I knew nothing about him.
+- I wonder if this was triggered so I wouldn't start delving, or was my attitude unexpected and stalled the industrial-scale cyber-stalking until August.
+
 ## Possums
 
 - It was around this time I started to see X posts related to possums. All. The. Time.
