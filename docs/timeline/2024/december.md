@@ -177,6 +177,7 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
 - This is peculiar because I haven't eaten anything for 6 days and I have been doing colonics daily.
 - Well.
 - I am on the toilet for about 2 hours.
+- There are at least three separate sittings as I think I've finished, get off, and then have to rush back quickly.
 - It's as if the whole nasty Denia business, every second of it, is being released into the toilet bowl.
 - I feel like I've been holding onto some serious poison for a long time, and here it is disappearing, down the toilet.
 - On the last go, as I said about two hours after I started, I pretty much felt that was it, I could get going to my massage after I flush the toilet and wash my hands.
