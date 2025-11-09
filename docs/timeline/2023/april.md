@@ -294,15 +294,16 @@ function googleTranslateElementInit() {
     - She seems relieved when I tell her I have received my medical card.
     - I wonder why she would be so concerned about this, and who might be prompting her concern.
 
-- From the minute I saw Maria for the first time again in June 2022 when I was coming into the conservatory to rehearse for the audition - Jaume had given the trumpet teaching room to practice in, by-the-way - she would say something strange to me.
+- From the minute I saw Maria for the first time again in June 2022 when I was coming into the conservatory to rehearse for the audition - Jaume had given me the trumpet teaching room to practice in, by-the-way - she would say something strange to me.
 - She would say; *we can maybe go for a coffee, or two, or three*, I felt she was prompting me to say *or four* back, I may have.
 - She took awful pains to say this to me near enough any time we met.
-- I thought it was just a thing she said for no particular reason; perhaps one coffee was not enough.
+- I have never spent more than 10 minutes with Maria outside of class and never for socializing so it was a bit odd.
+- Nevertheless, I thought it was just a thing she said for no particular reason; perhaps one coffee was not enough.
 - Now, I realize she was referring to the *coffee* meme from 2014, and the implication of *or two, or three*, or four.
 - Maria was 100% involved, as was *everyone* else.
 - The world will vomit collectively when they find out.
 - The town will empty of foreigner in months.
-- The longer they leave dealing with these people, and the more victims fall foul of them (it's been 2.5 years since me) the worse it will be for everyone.
+- The longer they leave dealing with these people, and the more victims, particularly minors or near-minors, who fall foul of them (it's been over two years since I first complained) the worse it will be for everyone.
 
 ## Flying in choir class
 
