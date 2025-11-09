@@ -341,9 +341,10 @@ function googleTranslateElementInit() {
 - The following day I do not recognize him again.
 - Everyone talks to me like I'm the antichrist, and any tiny defect is proof of it, this included.
 
-### Investigatory suggestions
+### Tips for investigators
 
-- I would check with the conference team what special requirements were made for certain people's rooms, such as mine and JTs, and Alicia's.
+- Check with the conference team and hotel what special requirements were made for certain people's rooms, such as mine and JTs, and Alicia's, perhaps all the women attendees (about 5% of total attendees).
+- Also check the guest list and attendees for any Spaniard, male or female, who may be linked to poisoning and sedating tech as this would have had to have been done by experts; it is ridiculously unlikely that porn-addict crypto tech-workers would have the knowledge and skill to sedate a target in the same way as they have been doing for decades (see also the McCann sedating and kidnap); someone who knows how to add sedating substances to cooling systems, for example.
 
 ## Lourdes
 
