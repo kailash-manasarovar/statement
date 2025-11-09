@@ -303,7 +303,7 @@ function googleTranslateElementInit() {
 - Maria was 100% involved, as was *everyone* else.
 - The world will vomit collectively when they find out.
 - The town will empty of foreigner in months.
-- The longer they leave dealing with these people, and the more victims, particularly minors or near-minors, who fall foul of them (it's been over two years since I first complained) the worse it will be for everyone.
+- And the longer they leave dealing with these people, and the more victims, particularly minors or near-minors, the bulk of the victims I would say, who fall foul of them (it’s been over two years since I first complained) the worse it will be for everyone.
 
 ## Flying in choir class
 
