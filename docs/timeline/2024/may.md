@@ -346,6 +346,13 @@ function googleTranslateElementInit() {
 - Check with the conference team and hotel what special requirements were made for certain people's rooms, such as mine and JTs, and Alicia's, perhaps all the women attendees (about 5% of total attendees).
 - Also check the guest list and attendees for any Spaniard, male or female, who may be linked to poisoning and sedating tech as this would have had to have been done by experts; it is ridiculously unlikely that porn-addict crypto tech-workers would have the knowledge and skill to sedate a target in the same way as the criminal honey-trappers and porn-gangs have been doing for decades (see also the highly professional McCann sedating and kidnap); someone who knows how to add sedating substances to cooling systems, for example.
 
+### Elon visits Bali the same week
+
+- Of course, Elon is in Bali that week.
+- One of my Spanish colleagues tells me, I look it up and it's true.
+- He's not that far from us either?
+- Coincidence?
+
 ## Lourdes
 
 - I leave for Lourdes at the end of the month.
