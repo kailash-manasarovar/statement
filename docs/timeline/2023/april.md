@@ -276,12 +276,12 @@ function googleTranslateElementInit() {
 - Maria my piano teacher is anxious and distressed, all the time. It seems to be her natural state. 
 - She gets obsessed over small things and talks incessantly about them.
 - She is always wearing a mask and plastic surgical gloves.
-- I guess most people think this is due to ongoing covid fears. I'm not so sure now.
+- I guess most people think this is due to ongoing covid fears. I'm not so sure.
 
 ![Maria Hontanilla](../../content/images/maria-h.png)
 
 - One of my classmates thought she was the cleaner.
-- Maria constantly complains about Paqui Fornet Pastor. She says she is a "bicho raro" and describes how Paqui is always terrorizing her in some way.
+- Maria constantly complains about Paqui Fornet Pastor. She says she is a *bicho raro* and describes how Paqui is always terrorizing her in some way. I believe this is a set up, a lie.
 - I wonder if Paqui is being abused by her husband who seemed like a very unpleasant man [when he came into the boat club and glared at everyone](march.md#choir-rehearsal-at-the-boat-club).
 - Maria is extremely stressed about her assigned classes for the next school year from the Generalitat.
 - She keeps telling me how she is probably going to get a job at the superior conservatory in Valencia, and work just a few hours in the mornings.
@@ -293,6 +293,16 @@ function googleTranslateElementInit() {
     - Before that, I tell her not to worry, I have private medical insurance but she is hugely concerned about a possible future situation in which I would have no cover and need medical assistance.
     - She seems relieved when I tell her I have received my medical card.
     - I wonder why she would be so concerned about this.
+
+- From the minute I saw Maria for the first time again in June 2022 when I was coming into the conservatory to rehearse for the audition - Jaume had given the trumpet teaching room to practice in, by-the-way - she would say something strange to me.
+- She would say; *we can maybe go for a coffee, or two, or three*, I felt she was prompting me to say *or four* back, I may have.
+- She took awful pains to say this to me near enough any time we met.
+- I thought it was just a thing she said for no particular reason; perhaps one coffee was not enough.
+- Now, I realize she was referring to the *coffee* meme from 2014, and the implication of *or two, or three*, or four.
+- Maria was 100% involved, as was *everyone* else.
+- The world will vomit collectively when they find out.
+- The town will empty of foreigner in months.
+- The longer they leave dealing with these people, and the more victims fall foul of them (it's been 2.5 years since me) the worse it will be for everyone.
 
 ## Flying in choir class
 
