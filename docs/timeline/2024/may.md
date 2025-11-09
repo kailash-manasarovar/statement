@@ -174,6 +174,7 @@ function googleTranslateElementInit() {
 ## Bali
 
 - I am in Bali from 11th-19th May with work.
+- We stay at the [Grand Hyatt](https://www.hyatt.com/grand-hyatt/en-US/balgh-grand-hyatt-bali).
 
 ### Flight to Bali
 
@@ -324,6 +325,8 @@ function googleTranslateElementInit() {
 - He hates me.
 - Oh they're really gonna go for you, he says, when we talk about Hinduism and other things.
 - Keeping look out.
+- Hans is *always* hanging out on the path towards the rooms with one of two other men, Chinese men.
+- I see him every time I'm walking back to my room at night.
 
 ### Chess with the Head of IT
 
@@ -350,7 +353,7 @@ function googleTranslateElementInit() {
 
 - Of course, Elon is in Bali that week.
 - One of my Spanish colleagues tells me, I look it up and it's true.
-- He's not that far from us either?
+- He's not that far from us either, apparently.
 - Coincidence?
 
 ## Lourdes
