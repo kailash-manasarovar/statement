@@ -167,3 +167,24 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
 - An account flies by a lot over December 2024 while I'm in Thailand.
 - The account name is "Lucyfer Adams"
 - I note it.
+
+## Detoxing in Samui, an unusual poo
+
+- It is day 5 or 6 of the fast and cleanse.
+- I go, as usual, to pick up my last detox drink at 7 o'clock.
+- As I'm downing the wallpaper paste, I feel a strange rumbling in my belly, and a cramp beginning.
+- I need the toilet!
+- This is peculiar because I haven't eaten anything for 6 days and I have been doing colonics daily.
+- Well.
+- I am on the toilet for about 2 hours.
+- It's as if the whole nasty Denia business, every second of it, is being released into the toilet bowl.
+- I feel like I've been holding onto some serious poison for a long time, and here it is disappearing, down the toilet.
+- On the last go, as I said about two hours after I started, I pretty much felt that was it, I could get going to my massage after I flush the toilet and wash my hands.
+- I looked into the toilet bowl.
+- The poo had formed into an X.
+- Yes, X.
+- It was a wow moment for me, I must say.
+- I wondered what it could mean? It was very specific, very clear.
+- Was it an instruction?
+- Is X going down the toilet?
+- I thought a lot about that poo, and never came up with anything particularly solid.
