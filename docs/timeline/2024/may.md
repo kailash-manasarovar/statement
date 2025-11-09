@@ -356,6 +356,17 @@ function googleTranslateElementInit() {
 - He's not that far from us either, apparently.
 - Coincidence?
 
+### My work with Polygon after Bali
+
+- The intense bullying from my team begins.
+- It is clear they are done with me post-Bali and now want rid of me.
+- The behavior of Hans in particular (who did no work at all so I'm wondering if he was another actor, like Nadim and Aziz, brought in especially for one purpose) was outrageous.
+- Anthony, HR, and my managers supported Hans; and ignored me completely.
+- He would have been fired on the spot in any normal situation.
+- I believe they were trying to get me to leave as quickly as possible; they were done with me now. 
+- They must have known what was coming up next for me, and the decent into being a permanently-drugged hardcore porn actress/slave, or marrying a violent male/pimp who intended on taking my money, while I was at work and able to tell people what was going on would not have been helpful for the porn-gangs.
+- Except, what they were expecting to happen didn't happen, did it.
+
 ## Lourdes
 
 - I leave for Lourdes at the end of the month.
