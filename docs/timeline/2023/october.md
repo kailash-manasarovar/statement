@@ -407,9 +407,13 @@ function googleTranslateElementInit() {
     suffered:
     
     ● Gangstalking on social media
+
     ● Cyberbullying
+    
     ● In-person bullying from teachers and staff at the conservatory
+    
     ● Criminal damage to my personal properly from teachers and staff at the conservatory
+    
     ● Bullying in the street from people in Denia I don’t know (aggressive interactions with
     gipsies mainly)
     
