@@ -220,7 +220,7 @@ function googleTranslateElementInit() {
 
 - Interestingly, until 12th June 2023 I was very respectful of the privacy of this man the trumpet teacher.
 - I didn't phone or text him at all.
-- I knew nothing about him.
+- Although my whole body was screaming that I was having a real sexual relationship, and was very much in love with someone, my conscious awareness knew nothing about the man and that was normal and fine.
 - I wonder if this was triggered so I wouldn't start delving, or was my attitude unexpected and stalled the industrial-scale cyber-stalking until August.
 
 ## Possums
