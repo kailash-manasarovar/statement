@@ -58,7 +58,7 @@ function googleTranslateElementInit() {
 - Who he is, how I know him, how old he is, what he does for a living, where he lives, what his parents do, and repeat.
 - She asks me these questions over and over.
 - I think it bizarre, and I'm perplexed that a random man in my life is way more interesting to her than the hell I'm enduring at home in Dénia.
-- Was she sent to gather urgent intel on him and report back?
+- Was she sent to gather urgent intel on Yan and report back?
 - Was it because I have a friend who the criminal gangs were previously unaware of?
 - Did they do a bit of research on him and find something out something that caused a bit of anxiety?
 - Of course, the most worrying thing for a brave and bold criminal gang terrorizing a single woman living alone is if she is not, after all, alone. 
