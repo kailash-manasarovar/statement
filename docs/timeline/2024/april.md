@@ -10,10 +10,11 @@ function googleTranslateElementInit() {
 
 ## Jyotirlinga trip to India
 
-- I leave Spain on 29th March and spend the first week of April on a tour in India.
-- I stay a couple of days at a posh hotel near the airport in Mumbai for some time by myself in safety.
+- I leave Spain on 29th March and spend the first week of April on a tour in India with a friend.
+- I stay at a posh hotel near the airport in Mumbai for a couple of days by myself in safety.
 - I feel like I'm getting pneumonia I'm coughing so much.
-- I crack the same rib I cracked at yoga class in my hotel room.
+- I crack the same rib I cracked at yoga class from coughing in my hotel room.
+- I'm coughing up blood now.
 - I call the hotel doctor. He prescribes serious antibiotics and pleurisy medicine and says to call him in a day to let him know how I'm doing.
 - I'm meeting my friend Yan from Singapore and we are going on a tour to visit the five jyotirlinga temples in Maharashtra with a driver.
 - I invite Yan for breakfast the day before we take the tour. I tell him what's been happening to me, what I know. I'm coughing so hard I can hardly speak.
@@ -31,6 +32,7 @@ function googleTranslateElementInit() {
 - I can't stop thinking about the trumpet teacher. 
 - I think every 30 seconds I have a thought about him. It's never ending.
 - In retrospect, I'm definitely high on something. That coupled with the elevated divinity on our tour may explain my experience at Bhimashankar.
+- The Malabar Giant Squirrel can be found at Bhimashankar.
 - Nandi, the little bull that Shiva uses for transport, always sits outside the Shiva temple looking in.
 - If you whisper your wishes in Nandi's ear, he will grant them.
 - I've done this a few times, here and there; notably in Haridwar, another story for another time.
