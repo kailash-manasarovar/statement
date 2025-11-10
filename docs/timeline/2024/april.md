@@ -87,10 +87,13 @@ function googleTranslateElementInit() {
 
 ## Response from the Generalitat
 
-- On my return, I receive a letter from the Generalitat dated the 2nd April 2024.
+- On my return, I receive a letter from the Generalitat dated the 2nd April 2024, and signed on 3rd April 2024.
 - It is in response to my numerous complaints.
 - They basically say they investigated and found nothing untoward going on.
-- The investigation they refer to having done was the [inspector ambushing me at piano lesson on 5th March](march/1-12.md#an-inspector-calls) and bullying me even more.
+- It's not clear what reports they requested or what's in them.
+- The investigation they are referring to having done was the [inspector ambushing me at piano lesson on 5th March](march/1-12.md#an-inspector-calls) and bullying me even more for about five minutes.
+- I'm not sure what they are referring to when they mention "former students". As far as I'm aware, I mentioned nothing about any former students.
+- I did, in fact, state repeatedly I was concerned for the safety of *current* students as I have also stated in this police statement numerous times.
 
     - [Page 1 of GV response](../../content/documents/gv/Response%20from%20the%20Generalitat%203%20April%2024%202.JPG).
     - [Page 2 of GV response](../../content/documents/gv/Response%20from%20the%20Generalitat%203%20April%2024%201.JPG).
@@ -98,7 +101,7 @@ function googleTranslateElementInit() {
 ??? tip "Translation of the Generalitat's response into English"
     Alicante, April 2, 2024
 
-    On October 22, 2023, she sent a letter to the Ministry of Education, in which she stated that she was being harassed by the teachers and staff of the Professional Conservatory of Music Mestre Tenor *Curtis de Dénia, specifically indicating that she had suffered: harassment by gangs on social networks, cyberbullying, personal harassment by teachers and staff of the conservatory, damage to her personal property by teachers and staff; and harassment on the street by strangers. She also referred to Mr. Domingo Cano who was her piano teacher during the 14/15 academic year. Subsequently, she has sent different emails in which she exposes the same facts in which former students of the center would also be involved.
+    On October 22, 2023, she sent a letter to the Ministry of Education, in which she stated that she was being harassed by the teachers and staff of the Professional Conservatory of Music Mestre Tenor Cortis de Dénia, specifically indicating that she had suffered: harassment by gangs on social networks, cyberbullying, personal harassment by teachers and staff of the conservatory, damage to her personal property by teachers and staff; and harassment on the street by strangers. She also referred to Mr. Domingo Cano who was her piano teacher during the 14/15 academic year. Subsequently, she has sent different emails in which she exposes the same facts in which former students of the center would also be involved.
 
     The Education Inspectorate has carried out several actions in order to clarify the reported facts. Reports have been requested from the management team and an interview was held with the interested party herself, in which, among other things, she was informed that the Inspectorate had sent her a letter of reply dated 19/12/23, however, since the postal address she had provided was incomplete, it was returned by the postal service.
 
