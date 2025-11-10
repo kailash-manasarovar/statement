@@ -13,36 +13,53 @@ function googleTranslateElementInit() {
 - I leave Spain on 29th March and spend the first week of April on a tour in India with a friend.
 - I stay at a posh hotel near the airport in Mumbai for a couple of days by myself in safety.
 - I feel like I'm getting pneumonia I'm coughing so much.
-- I crack the same rib I cracked at yoga class from coughing in my hotel room.
+- I crack the same rib [I cracked at yoga class](march/1-12.md#cracked-rib) from coughing in my hotel room.
 - I'm coughing up blood now.
 - I call the hotel doctor. He prescribes serious antibiotics and pleurisy medicine and says to call him in a day to let him know how I'm doing.
-- I'm meeting my friend Yan from Singapore and we are going on a tour to visit the five jyotirlinga temples in Maharashtra with a driver.
+- I'm meeting my friend Yan from Singapore.
+- We are going to visit the five jyotirlinga temples in Maharashtra with a driver.
 - I invite Yan for breakfast the day before we take the tour. I tell him what's been happening to me, what I know. I'm coughing so hard I can hardly speak.
 - Later that evening, feeling a little better, I contact my mother directly from a mock email I've created on my phone.
 - I send her a picture.
 
 ![Me in Mumbai](../../content/images/me-in-mumbai.jpg)
 
+- This is the first time she has seen me in three-and-a-half years.
 - I use the name of my mock email on my X profile for a short while.
 
 ![DCI Lydia Cleaves](../../content/images/lydia-cleaves-x-profile.jpg)
 
+- Hackers have been more recently bombarding me with references to Elon Musk, hence the location reference.
+
 ### Bring him to Me
 
 - I can't stop thinking about the trumpet teacher. 
-- I think every 30 seconds I have a thought about him. It's never ending.
-- In retrospect, I'm definitely high on something. That coupled with the elevated divinity on our tour may explain my experience at Bhimashankar.
-- The Malabar Giant Squirrel can be found at Bhimashankar.
+- I think about him every thirty seconds or so. It's never ending, and inexplicable. 
+- I deal with it as best I can.
+- In retrospect, I'm definitely high on something. 
+- That, coupled with the elevated divine energy on our tour may explain the following experience I had at Bhimashankar.
 - Nandi, the little bull that Shiva uses for transport, always sits outside the Shiva temple looking in.
-- If you whisper your wishes in Nandi's ear, he will grant them.
-- I've done this a few times, here and there; notably in Haridwar, another story for another time.
+- They say if you whisper your wishes in Nandi's ear, he will grant them.
 - At the first jyotirlinga temple we visit, [Bhimashankar](https://www.bhimashankar.in/), I whisper in Nandi's ear my wishes concerning the trumpet teacher.
 
 ![Bring him to Me](../../content/images/whispering-in-nandis-ear.png)
 
-- I think I have the sentence ready, but when I go to speak, it's like something takes over me and my wish becomes: *Bring him to me*.
-- And, at the same time, I hear a booming voice coming from inside the temple saying, "Bring him to Me!" at *exactly* the same time I say it too.
-- I have no non-God explanation for this apart from the mandrake that I must have been ingesting unawares from my toiletries.
+- In the queue I have been preparing what I want to ask for, the sentence is ready, but when I go to whisper in Nandi's ear, it's like something takes over me.
+- My whispered wish becomes: *Bring him to me!*.
+- And, at *exactly* the same time, matching every word of mine, I hear a booming voice coming from inside the temple saying, "Bring him to Me!".
+- I have no non-God explanation for this - apart from the mandrake that I must have been ingesting unawares from my toiletries, and that's also a God-explanation depending on who you talk to.
+
+## Lunch with Christine
+
+- When I return to Spain, Christine arranges a hurried lunch. She wants to know who my friend is, what he does, where he lives.
+- She asks me these questions over and over.
+- I wonder why she is so interested when the hell I'm enduring in Denia seems to be a bit more important.
+- Was she sent to urgently report back because I happen to be communicating with someone the criminal gangs are unaware of?
+- Of course, the most worrying thing for a brave criminal gang terrorizing a single woman is if she is not, after all, alone. 
+- Little did they know... although I did keep telling them.
+- The inherent cowardice in this sort of thing is off the scale.
+- I wonder if this prompted them to [wheel him out again](#the-trumpet-teacher-in-denia) and up the doses of euphoria, but I suspect that was more to do with prepping me for [Bali](may.md#bali).
+- There must be something in my bathroom products while I'm in India, as I'm still high.
 
 ## Dodgy lorry, van, and car registrations
 
@@ -56,18 +73,6 @@ function googleTranslateElementInit() {
 - Here's a small list from April 2024 I found on the Android phone I bought in the [Chinese telecom store in Madrid](march/13-end.md#madrid).
 
 ![List of dodgy registrations](../../content/images/car-regs.jpg)
-
-## Lunch with Christine
-
-- When I return to Spain, Christine arranges a hurried lunch. She wants to know who my friend is, what he does, where he lives.
-- She asks me these questions over and over.
-- I wonder why she is so interested when the hell I'm enduring in Denia seems to be a bit more important.
-- Was she sent to urgently report back because I happen to be communicating with someone the criminal gangs are unaware of?
-- Of course, the most worrying thing for a brave criminal gang terrorizing a single woman is if she is not, after all, alone. 
-- Little did they know... although I did keep telling them.
-- The inherent cowardice in this sort of thing is off the scale.
-- I wonder if this prompted them to [wheel him out again](#the-trumpet-teacher-in-denia) and up the doses of euphoria, but I suspect that was more to do with prepping me for [Bali](may.md#bali).
-- There must be something in my bathroom products while I'm in India, as I'm still high.
 
 ## Response from Generalitat
 
