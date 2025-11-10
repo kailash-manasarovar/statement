@@ -64,8 +64,8 @@ function googleTranslateElementInit() {
 - Of course, the most worrying thing for a brave and bold criminal gang terrorizing a single woman living alone is if she is not, after all, alone. 
 - Little did they know... although I did keep telling them.
 - The inherent cowardice is off the scale.
-- Whenever I get a chance to change the subject I explain what's been happening to me at the hands of Dénia criminals.
-- Chris BJ manuevers the conversation into generalities.
+- Whenever I get a chance to change the subject I explain to Christine what's been happening to me at the hands of Dénia criminals.
+- Chris BJ manuevers the conversation back into generalities.
 - We speak about bullying.
 - She tells me she was a bully at boarding school.
 - I express the sane and world-saving idea that it is far better to be bullied than to be a bully.
