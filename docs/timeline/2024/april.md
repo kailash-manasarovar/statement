@@ -60,7 +60,7 @@ function googleTranslateElementInit() {
 - I think it bizarre, and I'm perplexed that a random man in my life is way more interesting to her than the hell I'm enduring at home in Dénia.
 - Was she sent to gather urgent intel on Yan and report back?
 - Was it because I have a friend who the criminal gangs were previously unaware of?
-- Did they do a bit of research on him and find something out something that caused a bit of anxiety?
+- Did they do a bit of research on him and find something out something that caused them anxiety?
 - Of course, the most worrying thing for a brave and bold criminal gang terrorizing a single woman living alone is if she is not, after all, alone. 
 - Little did they know... although I did keep telling them.
 - The inherent cowardice in this sort of thing is off the scale.
