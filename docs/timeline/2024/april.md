@@ -54,7 +54,7 @@ function googleTranslateElementInit() {
 
 - I return to Spain.
 - Christine BJ arranges a hurried lunch. 
-- She wants to know about my friend Yan I traveled with in India.
+- She wants to know about my friend Yan, the man I traveled with in India.
 - Who he is, how I know him, how old he is, what he does for a living, where he lives, what his parents do, and repeat.
 - She asks me these questions over and over.
 - I think it bizarre, and I'm perplexed that a random man in my life is way more interesting to her than the hell I'm enduring at home in Dénia.
