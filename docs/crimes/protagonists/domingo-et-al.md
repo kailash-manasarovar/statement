@@ -37,6 +37,7 @@
     - It appears even 2g/3g phones are trackable by these people.
 
 - On 1st November, the same woman is leaving my apartment building with another dark haired lady; a woman I have often seen going in and out of apartment number 18 next door to me since I got back to Dénia from France at the end of September 2024. It could have been the older woman in the picture above from 2016, except with darker hair.
+- I believe she also starred in the [switcheroo (pre-)porn special episode chamber music concert](./vidal-sastre.md#four-distinct-men) filmed live from the conservatory with [number three trumpet teacher](./vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) in the lead role.
 
 ## Accomplices
 
