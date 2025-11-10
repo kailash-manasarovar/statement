@@ -527,7 +527,7 @@ function googleTranslateElementInit() {
 
 ![Song about me by Yan](../../content/tweets/july-comms/song-about-me.png)
 
-- I'm adding this info because there was some concern about [my friend Yan](../2024/april.md#away-from-spain) and my lack of total isolation the following year.
+- I'm adding this info because there was some concern about [my friend Yan](../2024/april.md#jyotirlinga-trip-to-india) and my lack of *total* isolation the following year.
 
 ## Lourdes
 

@@ -8,14 +8,14 @@ function googleTranslateElementInit() {
 }
 </script>
 
-## Away from Spain
+## Jyotirlinga trip to India
 
 - I am away from Spain for the first week of April.
-- I travel to India with a friend for a short tour.
+- I travel to India to visit the five jyotirlinga temples in Maharastra with a dear friend for a short tour.
+- I contact my mother directly when I'm in India from a mock email I've created on my phone.
 
 ![Me in Mumbai](../../content/images/me-in-mumbai.jpg)
 
-- I contact my mother directly when I'm in India from a mock email I've created on my phone.
 - I also use the name on my X profile for a short while.
 
 ![DCI Lydia Cleaves](../../content/images/lydia-cleaves-x-profile.jpg)
