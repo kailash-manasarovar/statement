@@ -53,6 +53,7 @@ function googleTranslateElementInit() {
 | ![ fake ]( ../content/images/fake-accounts/list/21.png ){width=50%} |  Possibly legit and/or duplicated/leached. |
 | ![ fake ]( ../content/images/fake-accounts/list/24.png ){width=50%} |  Possibly legit and/or duplicated/leached. |
 | ![ fake ]( ../content/images/fake-accounts/list/25.png ){width=50%} |  Stalker. |
+| ![ fake ]( ../content/images/fake-accounts/list/25.2.png ){width=50%} |  Same as above but profile. |
 | ![ fake ]( ../content/images/fake-accounts/list/27.png ){width=50%} |  Stalker. |
 | ![ fake ]( ../content/images/fake-accounts/list/28.png ){width=50%} |  Possibly legit and/or duplicated/leached. |
 | ![ fake ]( ../content/images/fake-accounts/list/31.png ){width=50%} |  Stalker. @chipshoptony |

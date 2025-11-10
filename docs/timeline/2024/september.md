@@ -162,6 +162,9 @@ New profile pic of this one posted January 2025 |
 Curious pic, it's not clear what/where the camera is that the woman is looking at |
 | ![pic]( ../../content/images/targeted-women/39-ai-mix-now.png ) 
 This view of her looks like a face that has been AI'ed into other stalker accounts |
+| ![pic]( ../../content/images/targeted-women/40.png )  |
+| ![pic]( ../../content/images/targeted-women/41.png ) 
+Feels like a red herring or AI mix. |
 
 - I must mention that I also saw a woman crying in her bedroom, crouched down against the wall. I wish I'd screenshot this pic as it looked like it came from a secret camera probably around the air vents, maybe in a screw?
 
