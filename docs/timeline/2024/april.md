@@ -90,7 +90,7 @@ function googleTranslateElementInit() {
 - On my return, I receive a letter from the Generalitat dated the 2nd April 2024, and signed on 3rd April 2024.
 - It is in response to my numerous complaints.
 - They basically say they investigated and found nothing untoward going on.
-- It's not clear what reports they requested or what's in them.
+- It's not clear what reports they requested, or from whom, or what's in them.
 - The investigation they are referring to having done was the [inspector ambushing me at piano lesson on 5th March](march/1-12.md#an-inspector-calls) and bullying me even more for about five minutes.
 - I'm not sure what they are referring to when they mention "former students". As far as I'm aware, I mentioned nothing about any former students.
 - I did, in fact, state repeatedly I was concerned for the safety of *current* students as I have also stated in this police statement numerous times.
