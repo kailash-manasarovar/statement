@@ -19,6 +19,10 @@ function googleTranslateElementInit() {
 ![Hazel](../../content/images/threats/hazel/choral-symphony-thread-1.png)
 ![Hazel](../../content/images/threats/hazel/choral-symphony-thread-2.png)
 
+- There was a lot of talk about how *I* had *f*cked up*, which was curious.
+
+![You f*cked up](../../content/tweets/may-2024/ludwig-van-h-smith.png)
+
 - More recently (27th November), another account has popped-up as significant, Granny Smith. 
 - This account has been targeting people close to me who thought they met them in person, but in the end we discovered they never had.
 

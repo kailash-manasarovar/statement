@@ -107,6 +107,7 @@ function googleTranslateElementInit() {
 
 ![Paqui](../../content/images/fake-accounts/paqui1.png)
 
+- I believe this, and whatever caused the trigger in the next section, happened to *ensure* I didn't return to the conservatory after Easter break.
 - I believe the original account profile was: https://x.com/lane_deangelis but it could have been from other accounts too. Note the dogs on this one.
 
 ![Paqui profile account maybe](../../content/images/fake-accounts/the-paqui-account.png)
