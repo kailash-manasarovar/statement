@@ -14,6 +14,7 @@ function googleTranslateElementInit() {
 - A snap election is called in the UK.
 - An email comes round from the [Party of women](https://www.partyofwomen.org/) asking members to run for election.
 - Something tells me I should run for election in the UK and I go for it.
+- The criminals of Denia and the wider porn-gang-controlled region take a massive collective gulp, except they didn't at all.
 
 ### Transvestite nun
 
