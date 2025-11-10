@@ -85,7 +85,7 @@ function googleTranslateElementInit() {
 
 ![List of dodgy registrations](../../content/images/car-regs.jpg)
 
-## Response from Generalitat
+## Response from the Generalitat
 
 - On my return, I receive a letter from the Generalitat in response to my complaints dated the 3rd April 2024.
 - It basically says they investigated and found nothing at all.
