@@ -10,15 +10,37 @@ function googleTranslateElementInit() {
 
 ## Jyotirlinga trip to India
 
-- I am away from Spain for the first week of April.
-- I travel to India to visit the five jyotirlinga temples in Maharastra with a dear friend for a short tour.
-- I contact my mother directly when I'm in India from a mock email I've created on my phone.
+- I leave Spain on 29th March and spend the first week of April on a tour in India.
+- I stay a couple of days at a posh hotel near the airport in Mumbai for some time by myself in safety.
+- I feel like I'm getting pneumonia I'm coughing so much.
+- I crack the same rib I cracked at yoga class in my hotel room.
+- I call the hotel doctor. He prescribes serious antibiotics and pleurisy medicine and says to call him in a day to let him know how I'm doing.
+- I'm meeting my friend Yan from Singapore and we are going on a tour to visit the five jyotirlinga temples in Maharashtra with a driver.
+- I invite Yan for breakfast the day before we take the tour. I tell him what's been happening to me, what I know. I'm coughing so hard I can hardly speak.
+- Later that evening, feeling a little better, I contact my mother directly from a mock email I've created on my phone.
+- I send her a picture.
 
 ![Me in Mumbai](../../content/images/me-in-mumbai.jpg)
 
-- I also use the name on my X profile for a short while.
+- I use the name of my mock email on my X profile for a short while.
 
 ![DCI Lydia Cleaves](../../content/images/lydia-cleaves-x-profile.jpg)
+
+### Bring him to Me
+
+- I can't stop thinking about the trumpet teacher. 
+- I think every 30 seconds I have a thought about him. It's never ending.
+- In retrospect, I'm definitely high on something. That coupled with the elevated divinity on our tour may explain my experience at Bhimashankar.
+- Nandi, the little bull that Shiva uses for transport, always sits outside the Shiva temple looking in.
+- If you whisper your wishes in Nandi's ear, he will grant them.
+- I've done this a few times, here and there; notably in Haridwar, another story for another time.
+- At the first jyotirlinga temple we visit, [Bhimashankar](https://www.bhimashankar.in/), I whisper in Nandi's ear my wishes concerning the trumpet teacher.
+
+![Bring him to Me](../../content/images/whispering-in-nandis-ear.png)
+
+- I think I have the sentence ready, but when I go to speak, it's like something takes over me and my wish becomes: *Bring him to me*.
+- And, at the same time, I hear a booming voice coming from inside the temple saying, "Bring him to Me!" at *exactly* the same time I say it too.
+- I have no non-God explanation for this apart from the mandrake that I must have been ingesting unawares from my toiletries.
 
 ## Dodgy lorry, van, and car registrations
 
@@ -44,15 +66,6 @@ function googleTranslateElementInit() {
 - The inherent cowardice in this sort of thing is off the scale.
 - I wonder if this prompted them to [wheel him out again](#the-trumpet-teacher-in-denia) and up the doses of euphoria, but I suspect that was more to do with prepping me for [Bali](may.md#bali).
 - There must be something in my bathroom products while I'm in India, as I'm still high.
-
-### Bring him to Me
-
-- At one of the jyotirlingum temples, I whisper in Nandi's ear my romantic wishes about the trumpet teacher.
-- As I whisper, I hear a booming voice coming from inside the temple saying, "Bring him to Me!"
-- Were these the Instructions?
-- How am I doing so far?
-- The truth is, I wished the same thing that I heard.
-- Is that alignment?
 
 ## Response from Generalitat
 
