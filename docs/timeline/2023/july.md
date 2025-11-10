@@ -384,9 +384,16 @@ function googleTranslateElementInit() {
 
 - I buy my love, the trumpet teacher, a little red elephant from Thailand.
 - Of course, I can never give it to him because he doesn't really exist; he is, at best, one of four or more distinct men.
-- I'm so in love I'm compelled to say and do nice things for this man.
+- I'm so in love, I'm compelled to say and do nice things for this man.
 - It is excruciating that I receive no communication back.
+- I believe there was an intense romantic liaison between us, except I was sedated.
+- The body *always* knows.
 - Eventually, I'm so distressed, I leave the little red elephant on top of the Montgo and ask the mountain to bless us.
+- The elephant was a little bit like this one and made by the same company:
+
+![Little red elephant](../../content/images/little-red-elephant.jpg)
+
+- They don't make the single plain color elephants anymore.
 
 ### My first request for help
 
