@@ -368,7 +368,7 @@ function googleTranslateElementInit() {
 - Anthony, HR, and my managers supported Hans; and ignored me completely.
 - He would have been fired on the spot in any normal situation.
 - I believe they were trying to get me to leave as quickly as possible; they were done with me now. 
-- They must have known what was coming up next for me, and the decent into being a permanently-drugged hardcore porn actress/slave, or marrying a violent male/pimp who intended on taking my money, while I was at work and able to tell people what was going on would not have been helpful for the porn-gangs.
+- They must have known what was coming up next for me, and my expected descent into being a permanently-drugged hardcore porn actress/slave, or marrying a violent male/pimp who intended on taking my money, while I was at work and able to tell people what was going on, would not have been helpful for the porn-gangs.
 - Except, what they were expecting to happen didn't happen, did it.
 
 ## Lourdes
