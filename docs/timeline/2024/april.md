@@ -52,15 +52,24 @@ function googleTranslateElementInit() {
 
 ## Lunch with Christine
 
-- When I return to Spain, Christine arranges a hurried lunch. She wants to know who my friend is, what he does, where he lives.
+- I return to Spain.
+- Christine BJ arranges a hurried lunch. 
+- She wants to know about my friend Yan I traveled with in India.
+- Who he is, how I know him, how old he is, what he does for a living, where he lives, what his parents do, and repeat.
 - She asks me these questions over and over.
-- I wonder why she is so interested when the hell I'm enduring in Denia seems to be a bit more important.
-- Was she sent to urgently report back because I happen to be communicating with someone the criminal gangs are unaware of?
-- Of course, the most worrying thing for a brave criminal gang terrorizing a single woman is if she is not, after all, alone. 
+- I think it bizarre, and I'm perplexed that a random man in my life is way more interesting to her than the hell I'm enduring at home in Dénia.
+- Was she sent to gather urgent intel on him and report back?
+- Was it because I have a friend who the criminal gangs were previously unaware of?
+- Did they do a bit of research on him and find something out something that caused a bit of anxiety?
+- Of course, the most worrying thing for a brave and bold criminal gang terrorizing a single woman living alone is if she is not, after all, alone. 
 - Little did they know... although I did keep telling them.
 - The inherent cowardice in this sort of thing is off the scale.
-- I wonder if this prompted them to [wheel him out again](#the-trumpet-teacher-in-denia) and up the doses of euphoria, but I suspect that was more to do with prepping me for [Bali](may.md#bali).
-- There must be something in my bathroom products while I'm in India, as I'm still high.
+- Whenever I get a chance to change the subject I explain what's been happening to me at the hands of Dénia criminals.
+- Chris BJ manuevers the conversation into generalities.
+- We speak about bullying.
+- She tells me she was a bully at boarding school.
+- I express the sane opinion that it is better to be bullied than to be a bully.
+- Her face flashes surprise.
 
 ## Dodgy lorry, van, and car registrations
 
