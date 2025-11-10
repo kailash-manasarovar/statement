@@ -77,6 +77,15 @@ function googleTranslateElementInit() {
 - I'm guessing it was either related to the hacker dealing with me directly, or..
 - It was a demo of one of the common ways they target kids online.
 
+## Ssh
+
+- Obviously, *VSSH* is a rendition of "Ssh", be quiet, but many fake accounts use this meme pictorially.
+
+![Shh 1](../content/images/shh1.jpg)
+![Shh 2](../content/images/fake-accounts/list/23.png)
+
+- I wonder if this sort of thing is very effective on the children, mimicking teachers maybe.
+
 ## Coffee
 
 - This was an early days phrase repeated at the conservatory and regarding Domingo's repeated [coffee dates](../timeline/early-years/2014.md#first-piano-class-at-the-end-end-of-september) in2014, and requests for them, and my subsequent complaint about this to [Joan Carles](../timeline/early-years/2015.md#joan-carles) when I had zero idea that my apartment was spy-cammed up and men were gaining entry to it without my knowledge.
