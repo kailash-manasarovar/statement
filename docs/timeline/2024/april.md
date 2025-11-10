@@ -87,10 +87,34 @@ function googleTranslateElementInit() {
 
 ## Response from the Generalitat
 
-- On my return, I receive a letter from the Generalitat in response to my complaints dated the 3rd April 2024.
-- It basically says they investigated and found nothing at all.
+- On my return, I receive a letter from the Generalitat dated the 2nd April 2024.
+- It is in response to my numerous complaints.
+- They basically say they investigated and found nothing untoward going on.
+- The investigation they refer to having done was the [inspector ambushing me at piano lesson on 5th March](march/1-12.md#an-inspector-calls) and bullying me even more.
+
     - [Page 1 of GV response](../../content/documents/gv/Response%20from%20the%20Generalitat%203%20April%2024%202.JPG).
     - [Page 2 of GV response](../../content/documents/gv/Response%20from%20the%20Generalitat%203%20April%2024%201.JPG).
+
+??? tip "Translation of the Generalitat's response into English"
+    Alicante, April 2, 2024
+
+    On October 22, 2023, she sent a letter to the Ministry of Education, in which she stated that she was being harassed by the teachers and staff of the Professional Conservatory of Music Mestre Tenor *Curtis de Dénia, specifically indicating that she had suffered: harassment by gangs on social networks, cyberbullying, personal harassment by teachers and staff of the conservatory, damage to her personal property by teachers and staff; and harassment on the street by strangers. She also referred to Mr. Domingo Cano who was her piano teacher during the 14/15 academic year. Subsequently, she has sent different emails in which she exposes the same facts in which former students of the center would also be involved.
+
+    The Education Inspectorate has carried out several actions in order to clarify the reported facts. Reports have been requested from the management team and an interview was held with the interested party herself, in which, among other things, she was informed that the Inspectorate had sent her a letter of reply dated 19/12/23, however, since the postal address she had provided was incomplete, it was returned by the postal service.
+
+    Regarding the facts referred to, it should be noted that you have been enrolled in the Professional Conservatory of Music Tenor "Cortis" in the 2014/2015, 2015/2016. 2022/2023 and the current 2023/2024 years in the piano specialty, having received classes from about twelve different teachers and that you only received classes from Mr. Domingo Cano at the beginning of the 2014/15 school year, because the teacher was changed at your request.
+
+    For all this, the investigations carried out show that there has been no evidence that any teacher has behaved inappropriately towards students at the centre and there are no complaints regarding any type of personal harassment or damage to their property, or towards any other student, in which conservatory staff may have participated. Likewise, the Inspectorate has not received any complaint from any parent or student on this issue.
+
+    For all this, given that most of what you are referring to has occurred outside the scope of the conservatory, if you consider that there are facts that could constitute a criminal offense, you must contact the competent judicial authority to proceed with the corresponding complaint.
+
+    In any case, the educational inspection will continuously monitor the activity of the center, advising the educational agents who are intervening in order to guarantee correct attention to the students and promote their well-being and academic development.
+
+    The Territorial Director
+
+    GENERALITAT
+
+    Signed by Juan Antonio Castaño Diaz on 03/04/2024 08:36:08 N Position: Territorial Director
 
 ## Leak resumes
 
