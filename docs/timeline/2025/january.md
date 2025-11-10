@@ -165,7 +165,7 @@
 
 ## I call the police
 
-- On my return to London, I call the police to report the numerous crimes that have happened to me while living in Spain at the pleasure of British criminal gangs, and others, there, as advised by my contacts in the Met.
+- On my return to London, I call the police to report the numerous crimes I'm aware of that have been committed on my person while living in Spain at the pleasure of British and Spanish criminal gangs, and others, as advised by my contacts in the Met.
 
 ![Call reference](../../content/images/met-police-reference.jpg)
 
