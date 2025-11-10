@@ -16,6 +16,7 @@ function googleTranslateElementInit() {
 - I crack the same rib [I cracked at yoga class](march/1-12.md#cracked-rib) from coughing in my hotel room.
 - I'm coughing up blood now.
 - I call the hotel doctor. He prescribes serious antibiotics and pleurisy medicine and says to call him in a day to let him know how I'm doing.
+- I manage to [write to the Guardia Civil](march/13-end.md#letter-to-the-guardia-civil) and send the letter registered from the hotel.
 - I'm meeting my friend Yan from Singapore.
 - We are going to visit the five jyotirlinga temples in Maharashtra with a driver.
 - I invite Yan for breakfast the day before we take the tour. I tell him what's been happening to me, what I know. I'm coughing so hard I can hardly speak.
