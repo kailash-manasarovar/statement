@@ -45,8 +45,8 @@ function googleTranslateElementInit() {
 
 ![Bring him to Me](../../content/images/whispering-in-nandis-ear.png)
 
-- In the queue I have been preparing what I want to ask for, the sentence is ready, but when I go to whisper in Nandi's ear, it's like something takes over me.
-- My whispered wish becomes: *Bring him to me!*.
+- In the queue I have been preparing what I want to ask for, the sentence is ready, but when I go to whisper my waffly request into Nandi's ear, something takes over.
+- My whispered wish becomes a bold statement: *Bring him to me!*.
 - And, at *exactly* the same time, matching every word of mine, I hear a booming voice coming from inside the temple saying, "Bring him to Me!".
 - I have no non-God explanation for this - apart from the mandrake that I must have been ingesting unawares from my toiletries, and that's also a God-explanation depending on who you talk to.
 
