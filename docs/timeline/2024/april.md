@@ -68,7 +68,8 @@ function googleTranslateElementInit() {
 - Chris BJ manuevers the conversation into generalities.
 - We speak about bullying.
 - She tells me she was a bully at boarding school.
-- I express the sane opinion that it is better to be bullied than to be a bully.
+- I express the sane and world-saving idea that it is far better to be bullied than to be a bully.
+- *Who in their right mind would want to be a bully?*, I announce with some passion.
 - Her face flashes surprise.
 
 ## Dodgy lorry, van, and car registrations
