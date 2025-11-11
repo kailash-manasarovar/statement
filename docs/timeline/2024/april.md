@@ -135,7 +135,7 @@ function googleTranslateElementInit() {
 - It feels like a set up, maybe to get me alone with Pedro. 
 - I say no and walk away.
 - Pedro looks ashamed.
-- Pedro is a bit pervy, you see.
+- Pedro is [a bit pervy](../2023/september.md#pedro-ogles-a-tourist), you see.
 - After this, the leaks stops and/or is intermittent.
 - In June when I'm in the UK, I take the car to my garage in North London to have a look.
 - They fix a broken motor in the window washer function of my car and tell me there's no leak at all.
@@ -144,7 +144,8 @@ function googleTranslateElementInit() {
 - I wondered if criminals managed to add something to come through the air vents, or something I could touch on the door handles, wheel, or gear stick maybe.
 - I eventually told Pedro that I had been filmed sexually and I would pay 500 euros for any recordings.
 - He was fired very soon after that and replaced by a surly man.
-- Pedro sends me a text at Christmas saying he is back visiting people at the building.
+- Pedro [sends me a text at Christmas](december.md#pedro-sends-a-christmas-greeting).
+- He tells me is just back from visiting a family at Carrer Furs.
 - Did they hire him back once they were done with me?
 
 ## Resign from the conservatory
