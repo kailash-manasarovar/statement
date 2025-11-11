@@ -152,13 +152,52 @@ function googleTranslateElementInit() {
     - Reading this back reminds me that one of the targeted women the criminals sent multiple pictures of ended up in a car garage somewhere, clearly sedated, in increasing states of undress in the front seat and the back seat of a [grey sports car](september.md#another-upsetting-targeted-woman).
     - In one of the photos, you can see a small Hispanic man crouching down in the foot of the drivers side of the car, giving a sense of many people being around while these photos were taken.
 
-## Resign from the conservatory
+## Resigning from the conservatory
 
 - I send resignation letters to Paqui via email on Monday 8th April.
     - [Resignation letter in English](../../content/documents/emails/12.%20Resign%20from%20conservatory%20letter%20-%20EN.pdf).
     - [Resignation letter in Spanish](../../content/documents/emails/12.%20Resign%20from%20conservatory%20letter%20-%20ES.pdf).
     - [Email receipt of sending](../../content/documents/emails/12.%20Email%20receipt%20of%20resigation%20letter.png).
-- I tweet the letter also.
+
+??? info "Resignation letter to Paqui Fornet"
+    Carrer Furs 15</br>
+    Portal 1, ESC2, Piso 3, Apt 17</br>
+    Denia</br>
+    03700 Alicante</br>
+    Monday 8th April 2024</br>
+    </br>
+    To whom it may concern,</br>
+    After a two-year campaign of gender violence in the form of bullying, aggression, and 
+    psychological intimidation by teachers and staff at the Tenor Cortis conservatory in Denia, I now have sufficient fear for my personal safety that I will no longer be coming to classes.</br>
+    </br>
+    The latest flurry of violent imagery and messages on Twitter, and the psychological bullying at the piano concert on Tuesday 12th March - in which a woman dressed up to look exactly like a friend, Lorraine Blackbourn, who tragically committed suicide in Denia after gender-based bullying and intimidation - I consider to signify a genuine threat to my life.</br>
+    </br>
+    I previously understood the bullying to come from a small number of teachers and staff, and their families/friends on the streets of Denia, as I mentioned many times in my private letters of complaint I wrote to the Generalitat. As you know, these letters were ignored completely. I 
+    received no reply at all. They were, instead, shared with teachers and staff at the conservatory.</br>
+    </br>
+    Sharing these letters was obviously going to put me in even more danger at the school, online, 
+    and in the streets of Denia.</br>
+    </br>
+    I believe there are also private and stolen photos, recordings, and videos of me; hacked with the sole intention of shaming and silencing me, perhaps blackmailing too, and it concerns me that other students, especially young women and children, may be suffering in the same way. I have informed numerous authorities about this.</br>
+    </br>
+    I now realize, albeit belatedly, that literally everyone at the school, teachers, staff, and students, and even the Generalitat itself - whether intentionally or because they are too scared to do otherwise - are firmly in support of me having to leave the school due to gender violence.</br>
+    </br>
+    It is very shocking to me that a public institution funded by taxpayers could so easily treat a 
+    student in this way. And it is not a unique event.</br>
+    </br>
+    It remains to be said that at the conservatory in Denia, with the support of the Generalitat, there appears to be zero concern for the safety and wellbeing of students at the school who complain about inappropriate behavior from teachers and staff.</br>
+    </br>
+    As I mentioned many times, the campaign of terror relates to me refusing a piano teacher who 
+    had sought a romantic relationship with me 10 years ago.</br>
+    </br>
+    There is also some suggestion that the collective hatred towards me has been further incited with reference to my political views on Twitter.</br>
+    </br>
+    I myself have only ever wanted to play the piano in peace.</br>
+    </br>
+    With the very best,</br>
+    Dra Katharine Murphy
+
+- I tweet the letter also, for good measure.
 
 ![1](../../content/tweets/tweet-letter-1.JPG){width=28%}
 ![2](../../content/tweets/tweet-letter-2.JPG){width=28%}
@@ -167,11 +206,28 @@ function googleTranslateElementInit() {
 ### Paqui's response
 
 - Paqui responds via email on Tuesday 9th April.
-    - [Paqui's response](../../content/documents/emails/14.%20Paqui's%20reply%20to%209%20April%20email.png).
-- She says they have gone to the police that morning to "explain my situation", she also says she is "at my disposal for anything I might need".
-- I ask her to confirm what they went to the police about.
-- She ignores me.
-- This triggers a PTSD reaction from the cyber stalking because I become convinced again I'm going to be arrested for some undisclosed matter; my friend suggests defamation.
+
+![Paqui's response](../../content/documents/emails/paquis-response-to-my-resignation-letter.jpg)
+
+??? info "Translation of Paqui's response"
+    Hello Katharine
+
+    I'm sorry to read the letter you sent me.
+
+    First of all, I want you to know that no private letters have been shared; in fact, I haven't seen them either. However, I am aware that the letters haven't been ignored.
+
+    We went to the police this morning to explain your situation. You need to report this to law enforcement, providing some kind of proof to verify your statement, so they can investigate.
+
+    I am available for anything you need
+
+    Paqui Fornet
+
+- I respond, asking her to confirm what they went to the police about.
+- She ignores my question. 
+- I never knowingly hear from her again.
+- The mention of the police, together with the [suggestion from the Generalitat's inspector that she was going to the police about my behavior](march/1-12.md#an-inspector-calls), and my friend in Madrid's suggestion I could be arrested for defamation, triggers a PTSD reaction.
+- I become convinced, yet again, I'm going to be arrested for some undisclosed matter.
+- I believe this was being heavily reinforced by online manipulation during this period.
 
 ### Paqui account
 
