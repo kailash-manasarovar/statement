@@ -439,7 +439,7 @@ function googleTranslateElementInit() {
 - It is also interesting to note that they have managed to make a lament sound like a funeral march which, I believe, is very intentional.
 - At the time I saw this in June 2023 I didn't really understand what I was looking at as nothing made any sense other than Domingo was "getting me back" for me not allowing him to control me in 2014.
 
-!!! info "Interestingly"
+!!! info "More evidence of mass sex abuse of women and girls by musicians in Spain?"
     - There are many other YouTube videos with the trumpet teacher in musical scenarios.
     - Many of these gave me concern that a girl, or girls, maybe being targeted.
 
