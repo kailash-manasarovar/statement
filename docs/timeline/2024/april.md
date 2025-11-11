@@ -133,12 +133,11 @@ function googleTranslateElementInit() {
 - His workshop is quite far away in the industrial polygon.
 - I don't want to leave my car with someone I don't know, and I don't know how I will travel there and back.
 - Pedro, excited, tells me not to worry he will take me there and back himself, in his car.
-- My body says it's a set up, maybe to get me alone with Pedro. 
+- My body says it's a set up, maybe to get me alone with Pedro. Pedro is [a bit pervy](../2023/september.md#pedro-ogles-a-tourist), you see.
 - I say no and walk away.
 - Pedro looks ashamed.
-- Pedro is [a bit pervy](../2023/september.md#pedro-ogles-a-tourist), you see.
 - After this, the leaks stops and/or is intermittent.
-- In June when I'm in the UK, I take the car to my garage in North London to have a look.
+- In June when I'm in the UK, I take the car to Kwik Fit in London N12 to have a look.
 - They fix a broken motor in the window washer function of my car and tell me there's no leak at all.
 - I believe Pedro may be involved in adding narcotics to my car in some way, or knows something. 
 - I believe he, or others known to him, were able to access my car engine and cause what looked like a leak, but wasn't.
