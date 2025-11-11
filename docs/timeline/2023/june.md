@@ -457,7 +457,7 @@ function googleTranslateElementInit() {
     - Until January 2025, I was being regularly drugged by the gangs in Dénia in my home without my knowledge, and whenever I traveled via items I brought with me from home.
     - This is just part of a solid explanation for this.
     - Does the statement *Unconditional support in their entirety* about the women of the band signify mass drugging of women, young girls, and children by groups of porn-addicted men all over Spain?
-    - And the involvement of non-targeted women too?
+    - And the full support of the non-targeted women too?
 
 ### Who is grassing up the trumpet teacher like this?
 
