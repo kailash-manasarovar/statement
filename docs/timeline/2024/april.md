@@ -127,7 +127,7 @@ function googleTranslateElementInit() {
 ![Text Pedro about the leak](../../content/whatsapps/chat-about-the-leak-with%20pedro.jpg)
 
 - Here's the downloaded [WhatsApp](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20CONSERJE%20VILLAMAR.zip) chat.
-- Eventually, we talk in person and I agree to Pedro's suggestion that his friend comes to have a look at the problem.
+- Eventually, we talk in person and I agree to Pedro's suggestion that his friend the mechanic comes to have a look at the problem.
 - Pedro's friend comes to check my car the following day but can't find any problem.
 - He tells me I will have to bring the car to the workshop.
 - His workshop is quite far away in the industrial polygon.
