@@ -140,7 +140,7 @@ function googleTranslateElementInit() {
 - In June when I'm in the UK, I take the car to Kwik Fit in London N12.
 - They fix a broken motor in the window washer function of my car and tell me there's no leak at all.
 - I believe Pedro, or others known to him, were able to access my car engine and cause what looked like a leak, but wasn't.
-- I wondered if, by the same methods, criminals added something that could come through the air vents, or something I could touch on the door handles, wheel, or gearstick maybe.
+- I wondered if, by the same methods, criminals added some mind-altering substance that could come in through the air vents, or something I could touch on the door handles, wheel, or gearstick maybe.
 - Could this be what caused [overwhelming sexual arousal on Hanuman Jayanti in 2023](../2023/april.md#hanuman-jayanti)?
 - I eventually told Pedro that I had been filmed sexually without my knowledge, and that I would pay 500 euros for any recordings.
 - He was fired very soon after that and replaced by an unusually surly man.
