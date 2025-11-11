@@ -253,7 +253,7 @@ function googleTranslateElementInit() {
 
 - The picture of Paqui continues to appear on Google search results.
 - There was a bunch of accounts like this at the time, and I see them pop up once again in September 2024, perhaps to ensure I didn't try and return to my studies again!
-- I had been safely handed-over by the conservatory to the porn-gangs for their pleasure and Ferrari payments.
+- No, by that time, I had been safely handed-over by the conservatory to the porn-gangs for their pleasure and Ferrari payments.
 
 ## The third time I'm convinced I'm going to be arrested
 
