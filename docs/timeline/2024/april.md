@@ -277,6 +277,11 @@ function googleTranslateElementInit() {
 - I attach the videos of the call below. 
 - I'm obviously extremely stressed and scared. 
 
+<video width="320" height="240" controls>
+  <source src="https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing" type="video/mp4">
+Your browser does not support the video tag.
+</video>
+
     - [Video of me speaking about this at this time - part 1](https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing).
     - [Video of me speaking about this at this time - part 2](https://drive.google.com/file/d/1kT-BFILgBWnVTBALHepboNzpGCxBoi4f/view?usp=drive_link).
 

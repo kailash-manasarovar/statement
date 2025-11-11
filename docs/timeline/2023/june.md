@@ -412,7 +412,12 @@ function googleTranslateElementInit() {
 
 - In Ireland, I do a search for *"Vidal Sastre Sanchez Hornero"* on YouTube.
 - A number of results come up, one of which is particularly interesting.
-- He is a soloist playing at the [Banda Sinfónica L'Amistat - Quart de Poblet](https://www.lamistatquart.com/sociedad/). The website makes for interesting reading. 
+- He is a soloist playing at the [Banda Sinfónica L'Amistat - Quart de Poblet](https://www.lamistatquart.com/sociedad/). 
+- The website makes for interesting reading, particularly concerning the unconditional support of the female members.
+
+![Unconditional support in their entirety](../../content/images/unconditional-support-in-their-entirety-EN.jpg)
+![Unconditional support in their entirety](../../content/images/unconditional-support-in-their-entirety-ES.jpg)
+
 - In the video, there is a young woman behind the trumpet teacher who is clearly nervous and agitated.
 - Whoever is filming zooms in on him, and her, repeatedly.
 - She constantly looks up at him and then away, troubled. 
@@ -431,8 +436,8 @@ function googleTranslateElementInit() {
     - Click here if the YouTube entry isn't working for any reason: [https://www.youtube.com/watch?v=Td74vBNPrW0](https://drive.google.com/file/d/1AsGYbEVufI1pATGd1y0k4bAZ5Om_2gLg/view?usp=drive_link)
 
 - It may also be interesting to know who some of the other people in the group are, especially one particular woman in glasses on the left which could possibly be Carmen Cano, Domingo's sister; someone who looks very much like a woman I believe to be Carmen Cano that I saw outside my apartment on Friday 1st November 2024.
-- It is also interesting to note that they have managed to make a lament sound like a funeral march which, I believe, is intentional.
-- At the time I saw this in June 2023 I didn't really understand what I was looking at as nothing made any sense other than Domingo was "getting me back" for not allowing him to control me in 2014.
+- It is also interesting to note that they have managed to make a lament sound like a funeral march which, I believe, is very intentional.
+- At the time I saw this in June 2023 I didn't really understand what I was looking at as nothing made any sense other than Domingo was "getting me back" for me not allowing him to control me in 2014.
 
 !!! info "Interestingly"
     - There are many other YouTube videos with the trumpet teacher in musical scenarios.
@@ -442,6 +447,16 @@ function googleTranslateElementInit() {
 
     - Some videos have comments which suggest girls are being targeted by musician predators.
     - The names of the songs are also suggestive: My Way, Hole, .. Orgy, etc.
+
+!!! danger "Which trumpet teacher?"
+    - I have been seeing the man in this video since June 2023.
+    - To me, he was *always* the trumpet teacher who came to the conservatory to take classes.
+    - Except, he's only one of them, [number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man).
+    - His appearance is not even slightly similar to [any of the others](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
+    - You cannot imagine how shocked and horrified I am to learn that for over two-and-a-half years I mistook at least four very different looking men for the same one man.
+    - Until January 2025, I was being regularly drugged by the gangs in Dénia in my home without my knowledge, and whenever I traveled too.
+    - This is just part of an explanation for this.
+    - Does the statement *Unconditional support in their entirety* about the women of the band signify the possibility of mass drugging of women, young girls, and children, by groups of men all over Spain?
 
 ### Who is grassing up the trumpet teacher like this?
 
