@@ -148,6 +148,10 @@ function googleTranslateElementInit() {
 - He tells me is just back from visiting a family at Carrer Furs.
 - Did they hire him back once they were done with me?
 
+!!! danger "Connections"
+    - Reading this back reminds me that one of the targeted women the criminals sent multiple pictures of ended up in a car garage somewhere, clearly sedated, in increasing states of undress in the front seat and the back seat of a [grey sports car](september.md#another-upsetting-targeted-woman).
+    - In one of the photos, you can see a small hispanic man crouching down in the foot of the drivers side of the car.
+
 ## Resign from the conservatory
 
 - I send resignation letters to Paqui via email on Monday 8th April.
