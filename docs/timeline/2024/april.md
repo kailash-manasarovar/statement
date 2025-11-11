@@ -155,6 +155,8 @@ function googleTranslateElementInit() {
 ## Resigning from the conservatory
 
 - I send resignation letters to Paqui via email on Monday 8th April.
+- I explain to her how I am genuinely afraid for my life, and how whatever is happening concerns Lorraine Blackbourn's untimely death.
+
     - [Resignation letter in English](../../content/documents/emails/12.%20Resign%20from%20conservatory%20letter%20-%20EN.pdf).
     - [Resignation letter in Spanish](../../content/documents/emails/12.%20Resign%20from%20conservatory%20letter%20-%20ES.pdf).
     - [Email receipt of sending](../../content/documents/emails/12.%20Email%20receipt%20of%20resigation%20letter.png).
@@ -167,6 +169,7 @@ function googleTranslateElementInit() {
     Monday 8th April 2024</br>
     </br>
     To whom it may concern,</br>
+    </br>
     After a two-year campaign of gender violence in the form of bullying, aggression, and 
     psychological intimidation by teachers and staff at the Tenor Cortis conservatory in Denia, I now have sufficient fear for my personal safety that I will no longer be coming to classes.</br>
     </br>
@@ -230,24 +233,27 @@ function googleTranslateElementInit() {
 - I never knowingly hear from her again.
 - Here's the [full resignation email thread with Paqui](../../content/documents/emails/Full-resignation-email-thread.pdf).
 - I carbon-copy the UK embassy and the Irish embassy into the email in case I'm arrested by the police.
-- The mention of the police, together with the [suggestion from the Generalitat's inspector that she was going to the police about my behavior](march/1-12.md#an-inspector-calls), and my friend in Madrid's suggestion I could be arrested for defamation, triggers another strong PTSD reaction.
+- The mention of the police, together with the [suggestion from the Generalitat's inspector that she was going to report *me* to the police](march/1-12.md#an-inspector-calls), and my friend in Madrid's suggestion I could be arrested for defamation, triggers another strong PTSD reaction.
 - I become convinced, yet again, I'm going to be arrested for some undisclosed matter.
-- I believe this was being heavily reinforced by online manipulation during this period.
-- I believe this is something that was triggered in my mind in 1989 by the Tottenham rape gangs and how they very effectively silence children who have some respect for law enforcement.
+- I believe this belief was being heavily reinforced by online manipulation during this period.
+- I believe this is something that was triggered first in my mind in 1989 by the Tottenham rape gangs and how they very effectively silence children who have some respect for law enforcement.
 - You could ask Winston May or Colin Dale about that, I guess.
+- Certainly, the Generalitat and Paqui Fornet also, somehow, seemed to be aware that this was an effective manner of frightening and silencing me.
 
 ### Paqui account
 
-- The fake account with a very threatening picture of Paqui (as a younger person) appears again on Twitter.
+- The fake account with a (what I find now to be even more) threatening picture of Paqui (as a younger person) appears again on my X account notifications.
 
 ![Paqui](../../content/images/fake-accounts/paqui1.png)
 
-- I believe this, and whatever caused the trigger in the next section, happened to *ensure* I didn't return to the conservatory after Easter break.
-- This is a screenshot from the end of March of one of the other accounts that had her picture on: https://x.com/Zingley2. There was a bunch of accounts.
+- I believe this, and whatever caused the trigger in the next section, happened to *ensure* I didn't think about returning to the conservatory.
+- This is a screenshot from the end of March of one of the other accounts that had her picture: https://x.com/Zingley2. 
 
 ![Paqui on 28th March](../../content/images/threats/paqui2-zingley.png)
 
 - This picture continues to appear on Google search results.
+- There was a bunch of accounts like this at the time, and once again in September 2024, perhaps to ensure I didn't try and return to my studies!
+- No, I was safely handed-over by the conservatory to the porn-gangs for their pleasure and Ferrari payments.
 
 ## The third time I'm convinced I'm going to be arrested
 
