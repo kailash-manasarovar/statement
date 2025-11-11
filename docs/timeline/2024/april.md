@@ -164,7 +164,7 @@ function googleTranslateElementInit() {
 ![2](../../content/tweets/tweet-letter-2.JPG){width=28%}
 ![3](../../content/tweets/tweet-letter-3.JPG){width=28%}
 
-## Paqui's response
+### Paqui's response
 
 - Paqui responds via email on Tuesday 9th April.
     - [Paqui's response](../../content/documents/emails/14.%20Paqui's%20reply%20to%209%20April%20email.png).
@@ -173,18 +173,14 @@ function googleTranslateElementInit() {
 - She ignores me.
 - This triggers a PTSD reaction from the cyber stalking because I become convinced again I'm going to be arrested for some undisclosed matter; my friend suggests defamation.
 
-## Paqui account
+### Paqui account
 
 - The fake account with a very threatening picture of Paqui (as a younger person) appears again on Twitter.
 
 ![Paqui](../../content/images/fake-accounts/paqui1.png)
 
 - I believe this, and whatever caused the trigger in the next section, happened to *ensure* I didn't return to the conservatory after Easter break.
-- I believe the original account profile was: https://x.com/lane_deangelis but it could have been from other accounts too. Note the dogs on this one.
-
-![Paqui profile account maybe](../../content/images/fake-accounts/the-paqui-account.png)
-
-- This is a screenshot from the end of March of one of the accounts that had her picture on: https://x.com/Zingley2.
+- This is a screenshot from the end of March of one of the other accounts that had her picture on: https://x.com/Zingley2. There was a bunch of accounts.
 
 ![Paqui on 28th March](../../content/images/threats/paqui2-zingley.png)
 
