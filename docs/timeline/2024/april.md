@@ -121,23 +121,31 @@ function googleTranslateElementInit() {
 
 ## Leak resumes
 
-- The [leak from my car window washing fluid tank](../2023/september.md#problem-with-my-car) has started again.
+- One morning when I go to the garage to collect the car, I notice the [leak from windscreen washing fluid tank](../2023/september.md#problem-with-my-car) has started again.
 - I text Pedro the caretaker about it.
 
 ![Text Pedro about the leak](../../content/whatsapps/chat-about-the-leak-with%20pedro.jpg)
 
-- Here's the [WhatsApp](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20CONSERJE%20VILLAMAR.zip).
-- The friend Pedro had mentioned back in September comes to check my car but doesn't see anything and tells me I have to bring it to the workshop.
+- Here's the downloaded [WhatsApp](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20CONSERJE%20VILLAMAR.zip) chat.
+- Eventually, we talk in person and I agree to Pedro's suggestion that his friend comes to have a look at the problem.
+- Pedro's friend comes to check my car the following day but can't find any problem.
+- He tells me I will have to bring the car to the workshop.
 - I don't want to leave my car with someone I don't know, and I don't know how I will travel there and back.
-- Pedro tells me he will take me himself in his car.
-- It all feels like a set up to get me alone with Pedro and I say no.
+- Pedro, excited, tells me not to worry he will take me to the industrial polygon where his friend's garage is himself in his car.
+- It feels like a set up, maybe to get me alone with Pedro. 
+- I say no and walk away.
+- Pedro looks ashamed.
 - Pedro is a bit pervy, you see.
-- The leaks stops and/or is intermittent.
-- The following June, my garage in North London fix a broken motor in the window washer function of my car and tell me there's no leak at all.
-- I believe Pedro may be involved in adding narcotics to my car in some way, or knows something. If anyone tampered with my car in the garage, he would know.
-- I wondered if they managed to add something to come through the air vents, or something I could touch on the door handles maybe.
-- I told Pedro that I had been filmed sexually and I would pay 500 euros for any recordings.
-- He was fired soon after that.
+- After this, the leaks stops and/or is intermittent.
+- In June when I'm in the UK, I take the car to my garage in North London to have a look.
+- They fix a broken motor in the window washer function of my car and tell me there's no leak at all.
+- I believe Pedro may be involved in adding narcotics to my car in some way, or knows something. 
+- I believe he, or others known to him, were able to access my car engine and cause what looked like a leak, but wasn't.
+- I wondered if criminals managed to add something to come through the air vents, or something I could touch on the door handles, wheel, or gear stick maybe.
+- I eventually told Pedro that I had been filmed sexually and I would pay 500 euros for any recordings.
+- He was fired very soon after that and replaced by a surly man.
+- Pedro sends me a text at Christmas saying he is back visiting people at the building.
+- Did they hire him back once they were done with me?
 
 ## Resign from the conservatory
 
