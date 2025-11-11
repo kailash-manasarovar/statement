@@ -277,14 +277,28 @@ function googleTranslateElementInit() {
 - I attach the videos of the call below. 
 - I'm obviously extremely stressed and scared. 
 
+### Video part 1
+
+<iframe src="https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing" allow="autoplay"></iframe>
+
 <video width="320" height="240" controls>
-  <source src="https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing" type="video/mp4">
+  <source src="https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view" type="video/mp4">
+Your browser does not support the video tag.
+</video>
+
+### Video part 2
+
+<iframe src="https://drive.google.com/file/d/1kT-BFILgBWnVTBALHepboNzpGCxBoi4f/view?usp=sharing" allow="autoplay"></iframe>
+
+<video width="320" height="240" controls>
+  <source src="https://drive.google.com/file/d/1kT-BFILgBWnVTBALHepboNzpGCxBoi4f/view" type="video/mp4">
 Your browser does not support the video tag.
 </video>
 
     - [Video of me speaking about this at this time - part 1](https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing).
     - [Video of me speaking about this at this time - part 2](https://drive.google.com/file/d/1kT-BFILgBWnVTBALHepboNzpGCxBoi4f/view?usp=drive_link).
 
+    
 - (I can't watch this actually, it's too triggering. I wonder if this is the key to the manipulation; playing back a person's own voice in particular situations such as intense fear, or orgasm).
 - I contacted so many lawyers, I'm not sure why I didn't go ahead with some of them. 
 - I'm not even sure who Lisa in the video was now I was so stressed at the time. I'll add her details here if and when I find them. I guess she could have been someone connected to the criminal gangs.
