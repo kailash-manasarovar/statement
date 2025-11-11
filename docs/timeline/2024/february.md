@@ -473,13 +473,30 @@ function googleTranslateElementInit() {
 - They know I am a writer; it is one of my *actual* jobs. What did they think I was going to do?
 - Looking back I remember a state of mind that was always hoping the nightmare would end, but it never did.
 - Let's have a closer look at what I knew in February 2024.
-
-    - Part one - collecting my thoughts (the story): https://x.com/1FRGVN/status/1759737292472627532
-    - Part two - the trumpet teacher: https://x.com/1FRGVN/status/1759770318409695275 
-    - Part three - hacking: https://x.com/1FRGVN/status/1759837709365817828
-    - Part four - manipulating and involving the children: https://x.com/1FRGVN/status/1759864483244089476 -> I stopped writing here as sudden threatening posts popped up which made me decided to postpone this section. Anything I would have written here is now in this statement.
-
 - Reading these back is so interesting for me. I had no idea what was really going on, except everything I do say is always consistent and points firmly to the truth.
+
+#### Part one - collecting my thoughts (the story)
+
+- https://x.com/1FRGVN/status/1759737292472627532
+
+??? info ""
+
+#### Part two - the trumpet teacher
+
+- https://x.com/1FRGVN/status/1759770318409695275 
+
+??? info ""
+
+#### Part three - hacking
+
+- https://x.com/1FRGVN/status/1759837709365817828
+
+??? info ""
+
+#### Part four - manipulating and involving the children
+
+- https://x.com/1FRGVN/status/1759864483244089476 
+- I stopped writing here as sudden threatening posts popped up which made me decided to postpone this section. Anything I would have written here is now in this statement.
 
 ## Guardia Civil
 
