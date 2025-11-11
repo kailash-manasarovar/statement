@@ -150,7 +150,7 @@ function googleTranslateElementInit() {
 
 !!! danger "Connections"
     - Reading this back reminds me that one of the targeted women the criminals sent multiple pictures of ended up in a car garage somewhere, clearly sedated, in increasing states of undress in the front seat and the back seat of a [grey sports car](september.md#another-upsetting-targeted-woman).
-    - In one of the photos, you can see a small hispanic man crouching down in the foot of the drivers side of the car, giving a sense of many people being around while these photos were taken.
+    - In one of the photos, you can see a small Hispanic man crouching down in the foot of the drivers side of the car, giving a sense of many people being around while these photos were taken.
 
 ## Resign from the conservatory
 
