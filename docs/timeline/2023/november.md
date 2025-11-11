@@ -591,14 +591,20 @@ function googleTranslateElementInit() {
 
 #### Elon's violinist
 
-- Most curiously, in early November, Elon Musk posts an animation with a beautiful violinist playing in space, and the music is honky-tonk piano: https://x.com/elonmusk/status/1720720258095341916?lang=en.
-- Of course, the references to Ana Requena and myself are not lost on anyone.
+- Most curiously, in early November, Elon Musk posts an animation with a beautiful violinist playing in space, and the music accompanying her is *not a violin*, it is, instead, honky-tonk piano.
+
+[![Elon's violinist](../../content/images/elons-violinist.jpg)](https://x.com/elonmusk/status/1720720258095341916?lang=en)
+
+- Of course, the references to Ana Requena, trumpet teacher, and myself and our mythical-switcheroo-porn-love-triangle are not lost on anyone.
 
 [![Elon's violinist](../../content/tweets/october-2023/elons-violinist.png)](https://x.com/1FRGVN/status/1716247635181326437)
 
-- He must have mentioned violins before as this is pre-the-tweet.
+- Given the scale of the tech-bro porn-conspiracy we're uncovering, does this suggest Elon's involvement?
+- He mentioned violins before too.
 
 [![Spooky Elon](../../content/tweets/november-2023/spooky-elon.png)](https://x.com/1FRGVN/status/1720741073004245379)
+
+- Does this explain how some men seem to recognize me everywhere I go in the world?
 
 #### Mary G Lamarche account
 
