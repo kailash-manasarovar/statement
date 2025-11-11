@@ -237,7 +237,7 @@ function googleTranslateElementInit() {
 - I become convinced, yet again, I'm going to be arrested for some undisclosed matter.
 - I believe this belief was being heavily reinforced by online manipulation during this period.
 - I believe this is an irrational terror that was first triggered in my mind in 1989 by the Tottenham rape gangs, and how they very effectively silence children who have some respect for law enforcement.
-- You could ask Winston May or Colin Dale about that, I guess.
+- You could ask Winston May or Colin Day about that, I guess.
 - Certainly, the Generalitat and Paqui Fornet also, somehow, seemed to be aware that this was an effective manner of frightening and silencing me.
 
 ### Paqui account
