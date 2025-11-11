@@ -53,7 +53,8 @@ function googleTranslateElementInit() {
 
 !!! note "Who was she?"
     - I assumed this woman was the man's wife or girlfriend and I wondered why she looked so unhappy.
-    - Curiously, she looked a lot like the [girl in the video](../2023/june.md#youtube) I saw the following June 2023, but not as young.
+    - Curiously, she looked a bit like the [girl in the video](../2023/june.md#another-young-girls-funeral) I saw the following June 2023, but not as young.
+    - I don't think these are the same women though, but perhaps they go for a certain *type*.
 
 - Patricia had her back to me, and she was showing this guy the map and asking questions about it but it was as if, outside of my view, she was pointing to me, because he kept looking up at me and grinning. 
 - His look reminded me of a look on one of the grooming gangs faces when I was 16. A man who had looked at me with delight before he raped me. A look of evil.

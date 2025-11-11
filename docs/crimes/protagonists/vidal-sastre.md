@@ -116,7 +116,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - You'll notice Carmen Cano was in attendance here too. She gets around doesn't she.
 
-[![Youtube](../../content/images/youtube-video.png)](../../timeline/2023/june.md#youtube)
+[![Youtube](../../content/images/youtube-video.png)](../../timeline/2023/june.md#another-young-girls-funeral)
 
 - I'm pretty sure these films they're so happy and safe to publish are the porn-genre adverts.
 - Could this be him as a young man?

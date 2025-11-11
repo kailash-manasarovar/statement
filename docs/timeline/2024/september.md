@@ -111,7 +111,7 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 - I send as many letters as I can while I'm in France to as many people as possible.
 - The reason I do this is because this is the only way I can communicate with anyone without the hackers and the whole criminal gang being aware of it.
 - I add photos that he has sent to me too, even thought I'm not sure if they are legit or not.
-- Certainly the screenshot of the concert I see in [June 2023 on Youtube](../2023/june.md#youtube) is legit and I send a copy of that in the pack.
+- Certainly the screenshot of the concert I see in [June 2023 on Youtube](../2023/june.md#another-young-girls-funeral) is legit and I send a copy of that in the pack.
 - At some point back in Dénia, I see a giant message come up on my screen "thank you", and then it's gone.
 
 ### Rocio Vidal
