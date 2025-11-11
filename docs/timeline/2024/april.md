@@ -142,7 +142,7 @@ function googleTranslateElementInit() {
 - I believe Pedro, or others known to him, were able to access my car engine and cause what looked like a leak, but wasn't.
 - I wondered if, by the same methods, criminals added something that could come through the air vents, or something I could touch on the door handles, wheel, or gearstick maybe.
 - Could this be what caused [overwhelming sexual arousal on Hanuman Jayanti in 2023](../2023/april.md#hanuman-jayanti)?
-- I eventually told Pedro that I had been filmed sexually and I would pay 500 euros for any recordings.
+- I eventually told Pedro that I had been filmed sexually without my knowledge, and that I would pay 500 euros for any recordings.
 - He was fired very soon after that and replaced by an unusually surly man.
 - Pedro [sends me a text at Christmas](december.md#pedro-sends-a-christmas-greeting).
 - He tells me is just back from visiting a family at Carrer Furs.
