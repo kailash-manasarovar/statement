@@ -479,24 +479,202 @@ function googleTranslateElementInit() {
 
 - https://x.com/1FRGVN/status/1759737292472627532
 
-??? info ""
+??? info "Part one"
+    Collecting my thoughts - a (the) story
+
+    10 years ago, the most wonderful thing happened to me. I managed to pass the exams and audition to get a place studying piano at the stellar and exemplary music school in Denia.
+
+    Curiously, at the audition, one of the piano teachers introduced himself to me in a friendly way and spoke excellent English and was very kind and charming. I found him a bit odd at the time and it turned out he would be my teacher when I started the course.
+
+    After our first class he invited me out for coffee. I said no. The second class he did the same. I said no. The third class, worn down a little, I agreed.
+
+    I found this man to be extremely sexist which is always deeply offensive to me. His comments about women and girls were insulting. It was like meeting a vulgar man from the 50s. He insulted women drivers, and made mock surprise about women being good at anything, and insisted women could not be politicians.
+
+    I found him ignorant and vulgar but he was my piano teacher and I had no choice but to continue with him.
+
+    Now, some of you may know I am a #csa survivor. This has meant that men have always been able to push their way into my life as I never had any boundaries. The men I actually liked, I wasn’t able to communicate with as I became anxious about it. The #csa I experienced was the girlfriend model where a boy pretends to be in love with you, which was like a drop of water after a 10 year drought where I’m from, but it’s all a nasty trick and your life is never the same afterwards if you manage to keep it to any extent.
+
+    I liked a lot of men over the years and I was always terrified to speak to them, even when they liked me back, which they often did. It’s kind of tragic.
+
+    I had one true relationship and that was because we drank and so I had false confidence. It was a very beautiful relationship, but doomed, of course.
+
+    Anyway. The rest of my few boyfriends just pushed their way into my life as I had no boundaries and they often knew that. The piano teacher was one such as this. I didn’t find him attractive and I also felt that he didn’t find me attractive either. There wasn’t that predatory feeling of a man wanting sex. Being with him was more like being with gay men who aren’t interested.
+
+    So I didn't feel unsafe with him for that reason and we were friends. And yet I was observing his appalling behaviour. Just observing. And then one afternoon after class we were having coffee and a group of schoolgirls walked by and he salivated and leered over them, even whistling at them, and I felt sick to my stomach, as you might imagine.
+
+    But he was my piano teacher so I couldn’t get away. And I had to go home to visit parents and my brother was there and he’d just spent 10 years listening to Alex Jones and the like and had turned into an MRA. I didn’t want to be near him so I asked the piano teacher to come with me. We were friends after all but I had very little respect for him, zero in fact.
+
+    Crazy isn’t it. I took one vile misogynist with me to protect me from another vile misogynist.
+
+    Anyway, he visited and I took him to concerts and we went to wonderful restaurants. I’m a great host and I like to treat people well. He love-bombed my mentally unwell mother, which was extremely weird and made me very uncomfortable, and that makes me wonder what his intentions really were. I never met anyone from his family.
+
+    But the worst of it was he was unbelievably rude the whole time. He eyed up and flirted with women constantly. It was embarrassing to be with him.
+
+    Unsurprisingly, our relationship after that became extremely strained. He realised I wasn’t interested and started telling the other teachers at the conservatory I was frigid, he made a particularly violent threat to me related to his family, and goodness knows what else he said and to who, and eventually I could take no more of it and asked for a new teacher.
+
+    I stayed another year and was cold-shouldered by everyone and went back to the UK for work.
+
+    Then a few years ago I returned here, and took the exams again and got back in to study the piano. I was delighted. That was June 2022. The piano teacher saw me at that time and was obviously furious that I had dared return.
+
+    And he had the whole summer to plan how he was going to “get me” … for what is anyone’s guess, not wanting anything to do with him in 2014? Daring to return? Not being a willing participant in his abusiveness? Who knows.
+
+    The bullying and harassment started pretty much immediately I began the course in September 2022; people making weird comments, a bad bad feeling all the time, an effigy hanging in the wasteland at Halloween that felt personally threatening, other stuff, but it all ramped up when the trumpet teacher entered … stage left.
+
+    Suffice to say the evil intentions the piano teacher had towards me did not quite work out as planned. In fact, I grew a bunch and surprised everyone, but not before they had seriously upset me, hacked into my phone and laptop, taken pictures and sound recordings, tracked my movements, bullied me into going public on Twitter, grassed me up to the traffic police, caused criminal damage to my property, set up a WhatsApp group to monitor my tweets and disseminated it amongst many many people who probably thought it was quite fun and are now implicated in something rather serious, and subjected to me what can only be called an organised, emotional (physical once) assault, harassment and bullying, and yes, I am a student at a school being bullied, stalked, and harassed by a teacher and his supporters.
+
+    And the person who threatened me tonight is one of this lot because they knew things only they could know.
+
+    To be continued …
 
 #### Part two - the trumpet teacher
 
 - https://x.com/1FRGVN/status/1759770318409695275 
 
-??? info ""
+??? info "Part two"
+    A (the) story - part two - the trumpet teacher
+
+    The trumpet teacher turned up at the conservatory at the end of November 2022 to teach my chamber music class. It was weird because I realised I had seen him just the week before when I was out walking with my English friends in Benijembla. He had been talking with one of our group at the cafe, and had her point me out to him. He had looked at me at that moment in a strange way, a way that I wouldn’t forget. Unable to maintain his attention on whatever my friend was talking about, he kept glancing up at me, grinning. His smile reminded me of how an ancient pedophile had looked at me once when I was 16. Like I was some sort of delicious food that he was going to consume and swallow and destroy.
+
+    The slim, long-haired woman he was with at the time, sitting with her coffee, looked upset about things, and I never forgot her look either.
+
+    So it was a surprise to see him turn up as the teacher a week later - late 2 months for some reason - and the fact we had met in that strange way just the week before felt somewhat sinister.
+
+    I fancied him. He’s an attractive man. And I felt dismayed too because I knew my PTSD would kick in and I probably wouldn’t be able to relate to him normally; but that was OK, I was used to that, I would just get on with that like I always did. But when we did speak, he was shy of me. He couldn’t look me in the eye. He liked me back.
+
+    There were sparks.
+
+    And then he started flirting, but it was a weird kind of gruesome, tacky flirting, as if he was acting a part because he clearly wasn't that ignorant, and the words he said were symbolic of my experience with the piano teacher and so I knew it was all connected. But I couldn’t help flirting back, even under those circumstances, and then things became fever-pitched.
+
+    The other male teachers started to behave in a crazy manner whenever I was around. They came to peer at me at another’s invitation; who I was, what I looked like. I could practically hear the conversations they were having about me and knew it was all related to the piano teacher. It was very stressful and my kidneys were overworking cortisol.
+
+    And at the same time, bizarrely, after 8 years of fairly severe depression and emotional numbness, these feelings of attraction I was having started to become very strong. I couldn’t ignore them, but my PTSD reaction made me go into freeze and speak rudely and abruptly when he tried to talk to me kindly, just like always happened in those situations. And, also, the backdrop of lies and ill-will made the whole thing fairly intolerable.
+
+    Although maybe even due to all that, the attraction grew. It was electric. Every week I told myself I would ask him if he felt it too, and I never could. I wussed out every time.
+
+    And then I found his Twitter account online in a kind of miraculous way, and I followed it. He blocked me immediately so first I thought it wasn’t his, but when I went to class again, he was so angry with me I knew it was his account.
+
+    I thought he had blocked me because I was a #terf and he was (apparently, not so sure now) a secondary school teacher and didn't want to be associated with me. Fair enough.
+
+    A few days later, for reasons I can only guess at, something dragged me out of bed at a ridiculous hour to write a tweet thread, in Spanish, saying what I would have said to him had I not suffered from PTSD. It went something like this:
+
+    I couldn’t say what I wanted to say to you when you tried to speak to me because I have been suffering from extreme anxiety for most of my life but more intensely these last 8 years and it is worse around men I like.
+
+    And that was more or less it, nothing major, although I did also say:
+
+    And due to my anxiety, in these situations, I never know what’s true or not.
+
+    …which might have been a red rag to a Spaniard.
+
+    In any case, it was a profoundly honest, vulnerable, and heartfelt tweet, and I could never be ashamed of saying something like that. Au contraire: It was empowering.
+
+    The next time I went to class, the energy in the whole conservatory had shifted. People were looking at me differently. The trumpet teacher treated me kindly (this overwhelmed me actually) and I, naively, thought he had told everyone what I had said and they cared.
+
+    But no-one said a word to me. Not a single word. Which upset me. So I got irreverent and tweeted things like.
+
+    You’re even more sexy when you’re angry.
+
+    and the like, which made me laugh. But I was annoyed because no-one was talking to me. It was very weird. I could feel the piano teacher’s energy all over it, like he was controlling everything. And then the trumpet teacher started tweeting messages that suggested he liked me.
+
+    I knew it was a trick. The fact it was a trick made my PTSD sky-rocket. It was a reenactment of #csa. But this time, I was older and wiser enough to have some resources to be able to deal with it. I was no longer afraid.
+
+    And, besides that, even though I knew it was a trick, and he never said a word to me, there was this electricity between us and it could not be denied.
+
+    One time, it was so intense, and there were many other people around, we could hardly look at each other cos we just went to inappropriate places when we did. He had to go stand at the back of the room to collect himself, with his back to everyone. He was there some time. In retrospect, that was very funny.
+
+    [And, for those in the know, there were the strawberries of course, but I didn't know the significance of that at the time because no-one was speaking to me ... by design.]
+
+    So back and forth I went to class, no-one said a word to me, and I could feel the lies and trickery, and the piano teacher’s energy was so obvious, so I tweeted a few home truths about him from time-to-time, just to piss him off and to let him know I was onto him, at least a little (he probably missed that completely).
+
+    And every time I did something like that, the energy at the conservatory shifted again. They were all suddenly furious at me, frowning, or even making dismissive hand gestures at me, and I couldn’t understand why no-one was talking to me, but everyone seemed to know everything I was saying on Twitter.
+
+    That was naive I guess, but I’ve been so uninteresting for so long that the very idea I would be of some interest to more than one or two people for any reason at all was just too far outside of my worldview.
+
+    That was also why it was so easy to hack my laptop and phone, and they had probably hacked it even way back in January, and not just in August when they revealed it to me.
+
+    So the trick went on, and I didn’t believe it because it was obvious, and I did believe it because I could feel something very, very real, and this went on and on ... and it was extraordinarily stressful, and I could feel something evil was coming, probably at the end of term. The expectation of delightful wickedness on certain faces was the telltale sign and, indeed, not unexpectedly they did a Carrie reenactment - where I was Carrie of course - on the last class. The class where I was supposed to get the boy, but the boy made it clear he hated me, and everyone laughed at me, and he blew his trumpet extremely loudly in my ear in a gesture of pure evil, and they all recorded it to sneeringly play back to their families probably (look what could happen to you if you don't play nice), and I said goodbye and gave him a present, and he didn’t look at me or acknowledge my leaving, and I walked out of the conservatory door, and some of the other teachers dropped dirty liquid (hopefully water) on me from an upstairs window which ruined a beautiful and expensive t-shirt.
+
+    And one of the piano teacher's most favourites “bumped” into me while I was on my way home. She had been expecting me to go in a different direction, and so she had been running, she could hardly breathe, she was gasping for words. And there she was, checking to see how upset I was.
+
+    Comedy gold.
+
+    I got home that evening, quite shocked by the attack, and I tweeted something irreverent, and a hundred people popped up on my timeline as I suddenly found out I was on a list which had been watching me since April. 
+
+    That was a serious shock to my system, and it took me weeks to centre myself again ...
+
+    But, it also meant ... GAME ON!
+
+    To be continued ...
 
 #### Part three - hacking
 
 - https://x.com/1FRGVN/status/1759837709365817828
 
-??? info ""
+??? info "Part three"
+    The story - part 3 - hacking
+
+    I was extremely traumatised by the events of the last chamber music class at the end of June last year, my “crucifixion” of sorts, but more so my realization that everyone was stalking me via my Twitter account, and people I knew and respected in fact really rather hated me and wanted to destroy me.
+
+    It was deeply painful and their intentions were very clear: I would leave and never return.
+
+    So the first opportunity I got, I went to practice the piano, and I continued to go every day over the summer while the conservatory was open and I was in Denia. They didn’t expect that at all.
+
+    One of the first days I went back to practice after the end of term and my “crucifixion”, the piano teacher opened the door of the room I was in and looked in on me, just to say, you know, I got you … because he’s smart like that.
+
+    I started to get bot account messages in my Twitter account around that time and there were messages for me on the trumpet teacher’s Twitter account. Things like, aren’t you embarrassed and we’re embarrassed for you, you know, nice comforting words like that.
+
+    Then Elon shut down being able to look at people’s accounts without your own account so I started to google search the trumpet teacher’s account, and then my own, and they started to manipulated the google search results somehow to send me messages that way.
+
+    One day at the end of June or early July I went to practice and there were a lot of teachers there and I was waiting in the queue for a practice room key and one of the piano teacher’s main supporters was standing in front of me talking to a parent who had a very young child with her, a girl of about 7 or 8 years old, and he looked and me and started to caress her face and head, overtly, directly in front of me so that I would see it.
+
+    Now that was embarrassing. I was totally embarrassed for him, and I am totally embarrassed for everyone who supports these people.
+
+    I started watching my Twitter activity with a lot of interest. I started to tweet things I felt would interest the stalkers to get some sense of what was going on. I opened a few fake accounts to play with to see if I could see some patterns. Could I see who was stalking me in the list of suggestions maybe, that sort of thing. What I did notice was that any Tweet that might be interesting to the Spanish was translated. I could see that was going on because uninteresting Tweets and pre-stalker activity tweets were never detail-expanded, which you have to do if you’re going to translate a tweet. That has been the manner in which I know if any local people are mass reading my tweets and still is.
+
+    As the summer progressed there was more stalker activity on my account and I started to converse with the stalkers directly through tweets. You can see a lot of these one-sided conversations over July/August in my highlights section https://x.com/1frgvn/highlig/1FRGVN/highlights where I have been collating the important information.
+
+    I started to receive more and more followers on my other account too, which never gets any activity normally. These bot accounts would have messages for me in the profile or in followers profiles that made it clear who they were.
+
+    For example, I bought one of the main bullies a present from my Thailand trip in July, a bag of Durian (which smells like poo if you didn’t know). Durian was a common theme for the bots. Durian, Carmen, Silvia, Ana, Anna and all varieties of names like KaKa these were very common themes. 
+
+    He's just a baby, was also a common theme.
+
+    A communication of sorts started up and it was very obvious there was a great deal of interest in my online activity but it was not clear who exactly was behind it all; the piano teacher, the trumpet teacher, their friends, or both? I assumed all of them were involved somehow. Whoever they were, they liked porn. 
+
+    I tweeted some long threads explaining how I knew everything that had been going on because it had been so obvious and I believe it kind of bothered them. I guess the big smart men don’t realise how obvious they are because no-one ever complains about them. The activity got more intense over August and there were threatening tweets and one night they took hold of my mouse and keyboard, and I realised they had full access to my laptop.
+
+    I was in a hotel in France at that time with my Linux machine which I had not secured at all and the network was completely open. It must have been very easy for them to get access to my laptop. From there, or maybe first, they got into my phone and I believe there is still tracking on my Android phone and a sound recording app because I might receive a bot account with a message for me right after I had a conversation with someone and the bot repeats words from the conversation.
+
+    Some of the most concerning of these eavesdropping events is related to conversations I might be having with work colleagues. And astonishingly they seemed to get immediate access to a work twitter account I opened on my work laptop, as a flurry of bots with curious and symbolic messages followed me. I guess this means they have hacked my router - which I thought I'd locked down very strongly.
+
+    It was very threatening and it was getting more and more threatening until it became really intense and I eventually got scared. There was some suggestion they were going to report me to the police for something to do with my gender critical beliefs when I got back to Spain so I went public on Twitter. They really left me no alternative and it was something I did not want to do.
+
+    I went public and tweeted under my own name that I was concerned for my safety and I believed I was going to be arrested in Spain and I got thousands of supporters overnight, people really really concerned about me. It was all pretty amazing really, totally unexpected.
+
+    The following morning a new bot account arrived with a message, for an immature boy, bad companions play a much greater role than good teachers.
+
+    When I got back to Denia, the stalking really ramped up and spilled over into the physical world too. They took access of my phone in my house and started making random calls and making the keyboard impossible to use until I turned off the wifi router. When I looked into the street I saw a man with a handheld device hovering around.
+
+    I started to notice people following me, eavesdropping on conversations I was having with pals in cafes, Twitter messages repeating things I had said in person … and I was even serenaded a few times in Denia by buskers in the tunnel with songs related to everything that had happened. There were a few moments I felt extremely unsafe.
+
+    Stones were thrown at me from a car passing by. They always knew exactly where I was.
+
+    And then I remembered that wasn’t the first time I had felt unsafe; even back in September 2022 I had noticed aggressive males making threatening stances towards me in the street. I had never experienced anything like that in Denia before, ever. I realized those experiences were related.
+
+    Around the same time, my car was vandalised and I believe there is cctv of that, and that’s when I first complained to the Generalitat who manage the conservatories about what had been going on. I wrote a long letter explaining everything and no-one responded and they still haven’t. That was in early October.
+
+    I wrote again, twice, and no-one responded. I was told a different office was dealing with the complaint so I wrote to them. No-one has responded.
+
+    Everything dies down for a bit after I write letters but then it starts up again.
+
+    It seems like nothing I do works, and the monsters are emboldened by the inaction, and so they get back to doing what they do best.
+
+    All this abuse because I refused to have anything to do with a horrible man in 2014!
 
 #### Part four - manipulating and involving the children
 
 - https://x.com/1FRGVN/status/1759864483244089476 
-- I stopped writing here as sudden threatening posts popped up which made me decided to postpone this section. Anything I would have written here is now in this statement.
+- I stopped writing here as sudden threatening posts popped up which made me decided to postpone this section. 
+- Anything I would have written here is now in this police statement.
 
 ## Guardia Civil
 
