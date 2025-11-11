@@ -121,7 +121,8 @@ function googleTranslateElementInit() {
 
 ## Leak resumes
 
-- The leak from my car washer has started again. I text Pedro the caretaker about it.
+- The [leak from my car window washing fluid tank](../2023/september.md#problem-with-my-car) has started again.
+- I text Pedro the caretaker about it.
 
 ![Text Pedro about the leak](../../content/whatsapps/chat-about-the-leak-with%20pedro.jpg)
 
