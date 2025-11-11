@@ -147,7 +147,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Interestingly, the URL and the name of the band plus the location suggest **four friends**, a reference not lost on me now.
 - Vidal Sastre Sanchez Hornero is listed as the director of the band.
 - The band is supported by numerous government organizations - at least the website says so - including the Generalitat.
-- This is the band where we see [a young girl's *funeral* taking place](../../timeline/2023/june.md#youtube), just like [mine](../../timeline/2023/june.md#monday-12th-june-2023) and, just like me, the experience will have been utterly life changing and not in a good way.
+- This is the band where we see [a young girl's *funeral* taking place](../../timeline/2023/june.md#another-young-girls-funeral), just like [mine](../../timeline/2023/june.md#monday-12th-june-2023) and, just like me, the experience will have been utterly life changing and not in a good way.
 - Remember; I use the word *funeral* as this is the word Domingo used.
 - There are other significant creepy videos of this band performing.
 - Here's another reference to a "funeral" or "sale" of a groomed young woman from the band in Valencia.
