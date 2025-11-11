@@ -250,7 +250,10 @@ function googleTranslateElementInit() {
 
 - On the first morning of sessions, I'm stressed and anxious as people have been making sly comments to me continuously.
 - Maybe something happened to me the night before in my hotel room too. It's not clear. I'm overly anxious and there's not really a good reason for the level of stress I'm feeling.
-- At the end of the morning session, someone comes over to talk to me.
+- At the end of the morning session in the main hall, someone comes over to talk to me.
+
+![Main ballroom](../../content/images/grand-ballroom.jpg)
+
 - It's the mushroom man guy who has been involved in a military coup on my job over the last couple of months.
 - The mushroom man (I'll remember his name, everyone knows who he is) says concerning things in a sinister way, like oh I hear you're leaving, and some other unpleasant stuff. He is the fat man with the mushroom hat on his profile pics. I can't remember his name just now, but he was pals with Jaime, and part of a concerted bullying attack in March with Alicia and her team.
 - He's waiting for everyone to leave. Once they're gone, and I'm reasonably more upset than I already was, he walks away down the aisle, giving an Indian man on the other side the nod as he goes by.
