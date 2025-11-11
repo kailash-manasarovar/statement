@@ -93,14 +93,11 @@ function googleTranslateElementInit() {
 | ![pic]( ../../content/images/targeted-women/car-woman/1.png ) |
 | ![pic]( ../../content/images/targeted-women/car-woman/1.5.png ) |
 | ![pic]( ../../content/images/targeted-women/car-woman/2.png ) |
-| ![pic]( ../../content/images/targeted-women/car-woman/2.2%20-%20ballet%20pose.png ) |
+| ![pic]( ../../content/images/targeted-women/car-woman/2.2%20-%20ballet%20pose.png ) She looks like she is doing a ballet pose and I wonder if she was a dancer in the Generalitat's conservatory systems. |
 | ![pic]( ../../content/images/targeted-women/car-woman/2.5.png ) |
 | ![pic]( ../../content/images/targeted-women/car-woman/2.9.png ) |
 | ![pic]( ../../content/images/targeted-women/car-woman/3.png ) |
 | ![pic]( ../../content/images/targeted-women/car-woman/4.png ) |
-| ![pic]( ../../content/images/targeted-women/car-woman/5.png ) |
-| ![pic]( ../../content/images/targeted-women/car-woman/6.png ) 
-I wondered if the above two pictures are the same woman as a child. |
 | ![pic]( ../../content/images/targeted-women/car-woman/7.png ) 
 This picture has the bananas and reminds me of the nude the woman sends while eating a banana. This fake account was sent to me at the beginning of October and references "home made poison". |
 
