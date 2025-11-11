@@ -223,11 +223,16 @@ function googleTranslateElementInit() {
     Paqui Fornet
 
 - I respond, asking her to confirm what they went to the police about.
-- She ignores my question. 
+
+![Asking what they went to the police about](../../content/documents/emails/ask-to-know-what-she-went-to-the-police-about.jpg)
+
+- She ignores my email. 
 - I never knowingly hear from her again.
-- The mention of the police, together with the [suggestion from the Generalitat's inspector that she was going to the police about my behavior](march/1-12.md#an-inspector-calls), and my friend in Madrid's suggestion I could be arrested for defamation, triggers a PTSD reaction.
+- I carbon-copy the UK embassy and the Irish embassy into the email in case I'm arrested by the police.
+- The mention of the police, together with the [suggestion from the Generalitat's inspector that she was going to the police about my behavior](march/1-12.md#an-inspector-calls), and my friend in Madrid's suggestion I could be arrested for defamation, triggers another strong PTSD reaction.
 - I become convinced, yet again, I'm going to be arrested for some undisclosed matter.
 - I believe this was being heavily reinforced by online manipulation during this period.
+- I believe this is something that was triggered in my mind in 1989 by the Tottenham rape gangs and how they very effectively silence children who have some respect for law enforcement.
 
 ### Paqui account
 
