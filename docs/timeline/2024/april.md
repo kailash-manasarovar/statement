@@ -228,6 +228,7 @@ function googleTranslateElementInit() {
 
 - She ignores my email. 
 - I never knowingly hear from her again.
+- Here's the [full resignation email thread with Paqui](../../content/documents/emails/Full-resignation-email-thread.pdf).
 - I carbon-copy the UK embassy and the Irish embassy into the email in case I'm arrested by the police.
 - The mention of the police, together with the [suggestion from the Generalitat's inspector that she was going to the police about my behavior](march/1-12.md#an-inspector-calls), and my friend in Madrid's suggestion I could be arrested for defamation, triggers another strong PTSD reaction.
 - I become convinced, yet again, I'm going to be arrested for some undisclosed matter.
