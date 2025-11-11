@@ -78,6 +78,41 @@
 - I [message](../../content/whatsapps/WhatsApp%20Chat%20with%20PEDRO.zip) him asking him if he knows anything or if any other women in the building are being targeted.
 - He does not reply.
 
+## Sketching the novel
+
+- I sketch some novel themes given there hasn't been a sudden rush to arrest any criminals or safeguard any children, an ongoing disappointment.
+- I am visualizing and continually manifesting a three-season Netflix documentary special, but I am also seeing a true fiction series with Margot Robbie as me and Jake Gyllenhaal as Domingo (I always had him playing the role).
+
+[![Jake Gyllenhaal](../../content/images/jake-gyllenhaal.jpg)](https://x.com/1FRGVN/status/1697691210301755536)
+
+- Here's my notes from around this time:
+
+??? info "Novel and documentary theme sketch"
+    Novel documentary themes</br>
+    Summary</br>
+    - Traditional gang stalking of Women in Spain, and how everyone knew, and from when</br>
+    - Modern gang stalking, mass voyeurism, close links with porn and sexual violence</br>
+    - Hacking and access to everyone’s networks</br>
+    - Cyber stalking and mobbing by the conservatory, fantastical choreographed events by teachers and staff, when it didn’t work it spread into the town, and townsfolk</br>
+    - Poisoning and drugging, where and when</br>
+    Back story</br>
+    - Who was involved and to what extent</br>
+    - Expat community</br>
+    - Neighbors in the building</br>
+    - The caretaker in the building</br>
+    - Teachers and staff at the conservatory</br>
+    - Kids at the conservatory</br>
+    - National misogynist networks (Madrid)</br>
+    - Townsfolk all</br>
+    - Reporting, GV, police, perito, multiple handwritten letters in desperation to everyone</br> 
+    - Honey trapping</br>
+    Back story</br>
+    - Pedophilia, sexualization of children</br>
+    Back story</br>
+    - Damage to me personally: loss of jobs, constant stress and anxiety, racing mind, feeling intense sexual arousal, fear for my life, constant fear in Denia, actual kidney damage from poisoning</br>
+    - Tecnofix Alicante Padre Marina</br>
+    - Finish girl and boyfriend in the car with me January 24 breathing in whatever</br>
+
 ## Fake accounts and targets
 
 - Every day I see fake accounts with another couple of women on a regular basis, one of whom appears to be extremely anorexic in one example but not others.
