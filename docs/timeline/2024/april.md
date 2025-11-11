@@ -269,30 +269,28 @@ function googleTranslateElementInit() {
 - It was a very strong fearfulness, actually.
 - Given the outrageous behavior of teachers and staff at the conservatory, and the total disinterest of the police, and the seriousness of what's happening to me, I'm quite sure that anything is possible.
 - I'm convinced that online triggering from hackers and stalkers was exacerbating this feeling.
-- I search for a lawyer and send an [email to a number of lawyers in the region asking for help](../../content/documents/emails/worried-the-conservatory-will-accuse-me-of-defamation.png).
-- I get a response from someone and I video a call with them. The following videos are me talking to a lawyer looking for help. 
-- I'm obviously extremely stressed and scared.
+- I search for a lawyer and send an email to a number of lawyers in the region asking for help.
+
+![Email asking for help](../../content/documents/emails/worried-the-conservatory-will-accuse-me-of-defamation.png)
+
+- I get a response from someone and I video a call with them.
+- I attach the videos of the call below. 
+- I'm obviously extremely stressed and scared. (I can't watch this actually, it's too triggering).
 
     - [Video of me speaking about this at this time - part 1](https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing).
     - [Video of me speaking about this at this time - part 2](https://drive.google.com/file/d/1kT-BFILgBWnVTBALHepboNzpGCxBoi4f/view?usp=drive_link).
 
-- I contacted so many lawyers, I'm not sure why I didn't go ahead with any of the others. 
-- I'm not even sure who Lisa was now I was so stressed at the time. I'll add her details here when I find them. I guess she could have been someone connected to the criminal gangs.
-- In response to one email I sent, I received a notification that my message had been blocked by the server. This was: https://carbrayinternational.com/.
-- Eventually, I find a lawyer who can help me if I'm arrested who speaks English. He can also help me with any translating.
-- I believe now he is likely connected to the criminal gangs and it was easy to direct me to him because, as we have seen, they have full access to my devices and online use in real time.
+- I contacted so many lawyers, I'm not sure why I didn't go ahead with some of them. 
+- I'm not even sure who Lisa in the video was now I was so stressed at the time. I'll add her details here if and when I find them. I guess she could have been someone connected to the criminal gangs.
+- In response to one email I sent to https://carbrayinternational.com/, I received a notification that my message had been blocked by the server. 
+- Eventually, I find a lawyer who can help me if I'm arrested who speaks English.
+- He says he can also help me with any translating at the cyber-expert and other places.
+- I believe now that I may have been shepherded towards this person online, as usual.
 
-![Roberto the lawyer, apparently](../../content/whatsapps/roberto-laywer.jpg)
+![Roberto the lawyer](../../content/whatsapps/roberto-laywer.jpg)
 
-- I have a feeling something sinister happened in Alicante with Roberto the lawyer.
-
-!!! info
-    - It's very weird but I cannot remember if I met him in person or not in Alicante at [DPR](../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf).
-    - I was extremely stressed and had a long conversation with him, I can't remember when now.
-    - My mind was clearly overwhelmed at this time. I felt then, and now to a lesser extent, extremely absent-minded and forgetful, as if there is literally no space for any more information.
-    - Was I close to cracking and having a nervous breakdown? I believe this is possible. 
-    - Although the anxiety I experienced this year never approached the intense anxiety I had experienced as PTSD from sexual violence, I do remember shaking, and not being able to perform simple tasks, and I couldn't think or speak clearly at all.
-    - I also wonder if they were drugging me again through the water at home or some other way?
+- Here's the [initial email conversation](../../content/documents/emails/roberto-rodriguez-email.pdf) I had with Roberto.
+- From this point forward, he called me, or we only communicated on WhatsApp.
 
 ## Search for Vidal Sastre
 
@@ -343,6 +341,32 @@ function googleTranslateElementInit() {
 
 ![Roberto R 1](../../content/images/roberto-rodriguez/roberto-rodriguez-1.jpg)
 ![Roberto R 2](../../content/images/roberto-rodriguez/roberto-rodriguez-2.jpg)
+
+!!! info
+    - It's very weird but I cannot remember if I met him in person or not in Alicante at [DPR](../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf).
+    - I was extremely stressed and had a long conversation with him, I can't remember when now.
+    - My mind was clearly overwhelmed at this time. I felt then, and now to a lesser extent, extremely absent-minded and forgetful, as if there is literally no space for any more information.
+    - Was I close to cracking and having a nervous breakdown? I believe this is possible. 
+    - Although the anxiety I experienced this year never approached the intense anxiety I had experienced as PTSD from sexual violence, I do remember shaking, and not being able to perform simple tasks, and I couldn't think or speak clearly at all.
+    - I also wonder if they were drugging me again through the water at home or some other way?
+
+### WhatsApp with Roberto the English-speaking lawyer
+
+- WhatsApp thread from my Spanish phone: [link](../../content/whatsapps/WhatsApp%20Chat%20with%20Robert%20Rodriguez.zip)
+
+![Robert the lawyer](../../content/whatsapps/roberto-laywer.jpg)
+
+- I feel like he was there. I was out of my mind at DPR offices that morning.
+- I wonder what else happened.
+
+### Technofix
+
+- Roberto recommends these in his WhatsApp.
+- I have no idea who these are. I phoned this company in April so I believe it is the cyber expert from Alicante, but they have a different name.
+- I made a call to them without realizing it, in Dénia in October 2024.
+- It was extremely weird. I think hackers took control of my phone and made this call.
+
+![Technofix](../../content/whatsapps/technofix-1.jpg){width=50%}![](../../content/whatsapps/technofix-2.jpg){width=50%}
 
 ## I get an Orange SIM
 
