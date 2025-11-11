@@ -242,7 +242,7 @@ function googleTranslateElementInit() {
 
 ### Paqui account
 
-- The fake account with a (what I find at this moment to be an even more) threatening picture of Paqui appears again on my X account notifications.
+- Fake accounts with a (what I find at this moment to be an even more) threatening picture of Paqui appear again on my X account notifications.
 
 ![Paqui](../../content/images/fake-accounts/paqui1.png)
 
