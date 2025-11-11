@@ -282,15 +282,15 @@ function googleTranslateElementInit() {
 
 - I contacted so many lawyers, I'm not sure why I didn't go ahead with some of them. 
 - I'm not even sure who Lisa in the video was now I was so stressed at the time. I'll add her details here if and when I find them. I guess she could have been someone connected to the criminal gangs.
-- In response to one email I sent to https://carbrayinternational.com/, I received a notification that my message had been blocked by the server. 
-- Eventually, I find a lawyer who can help me if I'm arrested who speaks English.
-- He says he can also help me with any translating at the cyber-expert and other places.
+- In response to the email I sent to https://carbrayinternational.com/, I receive a notification that my message was blocked by the server. 
+- Eventually, I find a lawyer who can help me if I'm arrested who speaks English, Roberto Rodriguez based in Alicante.
+- He also says he can also help me with any translating I need done with the cyber-expert.
 - I believe now that I may have been shepherded towards this person online, as usual.
 
 ![Roberto the lawyer](../../content/whatsapps/roberto-laywer.jpg)
 
 - Here's the [initial email conversation](../../content/documents/emails/roberto-rodriguez-email.pdf) I had with Roberto.
-- From this point forward, he called me, or we only communicated on WhatsApp.
+- From this point forward, he called me or we communicated on WhatsApp.
 
 ## Search for Vidal Sastre
 
