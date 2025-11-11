@@ -121,7 +121,7 @@ function googleTranslateElementInit() {
 
 ## Leak resumes
 
-- One morning when I go to the garage to collect the car, I notice the [leak from windscreen washing fluid tank](../2023/september.md#problem-with-my-car) has started again.
+- One morning when I go to the garage to collect the car, I notice the [leak from the windscreen washing fluid tank](../2023/september.md#problem-with-my-car) has started again.
 - I text Pedro the caretaker about it.
 
 ![Text Pedro about the leak](../../content/whatsapps/chat-about-the-leak-with%20pedro.jpg)
@@ -130,9 +130,10 @@ function googleTranslateElementInit() {
 - Eventually, we talk in person and I agree to Pedro's suggestion that his friend comes to have a look at the problem.
 - Pedro's friend comes to check my car the following day but can't find any problem.
 - He tells me I will have to bring the car to the workshop.
+- His workshop is quite far away in the industrial polygon.
 - I don't want to leave my car with someone I don't know, and I don't know how I will travel there and back.
-- Pedro, excited, tells me not to worry he will take me to the industrial polygon where his friend's garage is himself in his car.
-- It feels like a set up, maybe to get me alone with Pedro. 
+- Pedro, excited, tells me not to worry he will take me there and back himself, in his car.
+- My body says it's a set up, maybe to get me alone with Pedro. 
 - I say no and walk away.
 - Pedro looks ashamed.
 - Pedro is [a bit pervy](../2023/september.md#pedro-ogles-a-tourist), you see.
