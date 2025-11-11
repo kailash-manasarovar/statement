@@ -251,9 +251,9 @@ function googleTranslateElementInit() {
 
 ![Paqui on 28th March](../../content/images/threats/paqui2-zingley.png)
 
-- This picture continues to appear on Google search results.
-- There was a bunch of accounts like this at the time, and once again in September 2024, perhaps to ensure I didn't try and return to my studies!
-- No, I was safely handed-over by the conservatory to the porn-gangs for their pleasure and Ferrari payments.
+- The picture of Paqui continues to appear on Google search results.
+- There was a bunch of accounts like this at the time, and I see them pop up once again in September 2024, perhaps to ensure I didn't try and return to my studies again!
+- I had been safely handed-over by the conservatory to the porn-gangs for their pleasure and Ferrari payments.
 
 ## The third time I'm convinced I'm going to be arrested
 
