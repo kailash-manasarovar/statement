@@ -258,15 +258,17 @@ function googleTranslateElementInit() {
 ## The third time I'm convinced I'm going to be arrested
 
 - I believe I'm going to be arrested at any moment. 
-- As [in the second time the August previous](../2023/august.md#i-become-convinced-im-going-to-be-arrested), I carry my copy of A Course In Miracles, text and workbook, in my bag wherever I go, just in case, until the certainty wears off.
+- Like [the second time the August previous](../2023/august.md#i-become-convinced-im-going-to-be-arrested), I carry my copy of A Course In Miracles, text and workbook, in my bag wherever I go, just in case I am arrested, and until the certainty wears off.
 
 <audio controls>
     <source src="../../../content/sounds/i-have-the-feeling-im-going-to-be-arrested.mp3" type="audio/mpeg">
     Your browser does not support the audio element.
 </audio>
 
-- Given the outrageous behavior of teachers and staff at the conservatory, and the police's disinterest, and the seriousness of what's been happening to me, I'm quite sure that anything is possible.
-- I guess a lot of these fears are also being triggered by hackers and stalkers online.
+- It's interesting I state it as a *feeling*.
+- It was a very strong fearfulness, actually.
+- Given the outrageous behavior of teachers and staff at the conservatory, and the total disinterest of the police, and the seriousness of what's happening to me, I'm quite sure that anything is possible.
+- I'm convinced that online triggering from hackers and stalkers was exacerbating this feeling.
 - I search for a lawyer and send an [email to a number of lawyers in the region asking for help](../../content/documents/emails/worried-the-conservatory-will-accuse-me-of-defamation.png).
 - I get a response from someone and I video a call with them. The following videos are me talking to a lawyer looking for help. 
 - I'm obviously extremely stressed and scared.
@@ -274,13 +276,15 @@ function googleTranslateElementInit() {
     - [Video of me speaking about this at this time - part 1](https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing).
     - [Video of me speaking about this at this time - part 2](https://drive.google.com/file/d/1kT-BFILgBWnVTBALHepboNzpGCxBoi4f/view?usp=drive_link).
 
-- I contacted so many lawyers, I'm not sure why I didn't go ahead with any of them. 
+- I contacted so many lawyers, I'm not sure why I didn't go ahead with any of the others. 
 - I'm not even sure who Lisa was now I was so stressed at the time. I'll add her details here when I find them. I guess she could have been someone connected to the criminal gangs.
 - In response to one email I sent, I received a notification that my message had been blocked by the server. This was: https://carbrayinternational.com/.
 - Eventually, I find a lawyer who can help me if I'm arrested who speaks English. He can also help me with any translating.
 - I believe now he is likely connected to the criminal gangs and it was easy to direct me to him because, as we have seen, they have full access to my devices and online use in real time.
 
 ![Roberto the lawyer, apparently](../../content/whatsapps/roberto-laywer.jpg)
+
+- I have a feeling something sinister happened in Alicante with Roberto the lawyer.
 
 !!! info
     - It's very weird but I cannot remember if I met him in person or not in Alicante at [DPR](../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf).
