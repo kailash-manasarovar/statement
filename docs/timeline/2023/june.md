@@ -456,7 +456,8 @@ function googleTranslateElementInit() {
     - You cannot imagine how shocked and horrified I am to learn that, until [September 2025](../2025/september.md#thunderbolt-clarity), for over two-and-a-half years, I mistook at least four very different looking men for the same one man.
     - Until January 2025, I was being regularly drugged by the gangs in Dénia in my home without my knowledge, and whenever I traveled too via items I brought with me from home.
     - This is just part of a solid explanation for this.
-    - Does the statement *Unconditional support in their entirety* about the women of the band signify the possibility of mass drugging of women, young girls, and children, by groups of men all over Spain?
+    - Does the statement *Unconditional support in their entirety* about the women of the band signify mass drugging of women, young girls, and children by groups of porn-addicted men all over Spain?
+    - And the involvement of non-targeted women too?
 
 ### Who is grassing up the trumpet teacher like this?
 
