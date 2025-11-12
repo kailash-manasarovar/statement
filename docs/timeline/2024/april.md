@@ -323,7 +323,7 @@ function googleTranslateElementInit() {
 ## Roberto Rodriguez, lawyer
 
 - I am communicating with Roberto Rodriguez about visiting Alicante this week.
-- Essentially, I need a lawyer to represent me at the police station with evidence of hacking, and that's why I have hired him.
+- I need a lawyer to represent me at the police station with evidence of hacking before they will investigate the crimes against me, and that's why I have hired him.
 - We have spoken on the phone multiple times.
 - He asks me to send him the information about the expert I intend to visit.
 - I WhatsApp him for the first time with the details on the evening of Thursday 18th April.
