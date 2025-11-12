@@ -639,7 +639,7 @@ function googleTranslateElementInit() {
 - Cars start beeping as they pass my apartment on Carrer Furs which is not a busy street.
 - Every night, someone runs their car engine outside my apartment as I'm trying to get to sleep.
 - The engine low-level runs, then spits and growls, sometimes for hours, and often after midnight.
-- It is a red rally-type sports car which always drives away eventually as if it is owned by a non-resident.
+- It is a red rally-type hatchback which always drives away eventually as if it is owned by a non-resident.
 - Everything that happens to me is a threat now.
 - I'm overwhelmed with sexual arousal in my apartment yet again, normally at lunchtimes between 13:00-16:00.
 - Am I starring in the spy-cam masturbating lunchtime special?
