@@ -328,13 +328,13 @@ function googleTranslateElementInit() {
 - He asks me to send him the information about the expert I intend to visit.
 - I WhatsApp him for the first time with the details of [DPR Recovery](https://dprrecovery.com/) on the evening of Thursday 18th April.
 - We have agreed to meet at the DPR offices at 13:00 the following day and I confirm this with him.
-- Roberto has been talking about another company he is keen I use instead called [Technofix](#technofix).
+- Roberto has been talking about another company he is keen I use instead called [Tecnofix](#tecnofix).
 - He tells me to contact them.
 - In one voice recording during our WhatsApp chat he tells me he is at the company and they are expecting my call: `PTT-20240418-WA0002.opus`.
 - I guess he knows these guys personally.
 - I have no recollection of communicating with this company although I do seem to have made a 9 minute call to them on 18th April.
 - Whatever was said, as far as I know, I had no further communication with them that day and decided to continue with DPR.
-- Curiously, I have a [somewhat concerning communication with them](#technofix) on 28th October 2024, the week that criminal gangs try to murder me in my own home by poisoning.
+- Curiously, I have a [somewhat concerning communication with them](#tecnofix) on 28th October 2024, the week that criminal gangs try to murder me in my own home by poisoning.
 - Here's my WhatsApp communication with Roberto up to Thursday 18th, the night before I visit the cyber expert DPR.
 
 ??? tip "WhatsApp with Roberto"
@@ -514,9 +514,9 @@ function googleTranslateElementInit() {
 - Curiously, I made a call to them without meaning to from Dénia on 28th October 2024 at the same time [I was being seriously poisoned in my own home](october.md#serious-poisoning-with-intent-to-harm-or-kill).
 - I think hackers took control of my phone at that moment and made this call.
 
-![Technofix](../../content/whatsapps/technofix-1.jpg){width=50%}![](../../content/whatsapps/technofix-2.jpg){width=50%}
+![Tecnofix](../../content/whatsapps/technofix-1.jpg){width=50%}![](../../content/whatsapps/technofix-2.jpg){width=50%}
 
-- Here's the [WhatsApp file](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20Tecnofix%20Informatica.zip) of my communication with Technofix.
+- Here's the [WhatsApp file](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20Tecnofix%20Informatica.zip) of my communication with Tecnofix.
 
 - I find the man I speak to in October rather strange, but, after all, I am on high-dosage hallucinogenic substances at this time.
 - Although maybe even a little weirdness they'd usually get away with got exaggerated.
@@ -526,7 +526,7 @@ function googleTranslateElementInit() {
 ## DPR cyber-expert Alicante
 
 - Roberto the lawyer cancels our meeting at the DPR offices the following morning, but tells me he can translate over the phone.
-- I have very confused recollections of this morning except for feeling stressed and anxious, and out-of-my-mind for no particular reason.
+- I have very confused recollections of this morning except for feeling extraordinarily stressed and anxious, and out-of-my-mind for no particular reason I can ascertain.
 - I put it down to everything that is happening, but it's not just that.
 - When I speak to Roberto, I mention the news report of the politician on spy-cam porn that I saw. I tell him this is what has been happening to me and I say it's epidemic.
 - Roberto shuts the conversation theme down.
@@ -544,28 +544,32 @@ function googleTranslateElementInit() {
 - Mostly, I pass the phone to them and Roberto does the talking.
 
 !!! info "My state of mind that morning"
-    - It's very weird but I have a feeling Roberto was there in person that morning.
+    - It's very weird but I have a feeling Roberto was there in person that morning, in his brown raincoat.
+    - Does he have an extremely messy old-banger of a car? Did I get in this car at some point?
     - I was extremely stressed.
-    - My mind was clearly overwhelmed at this time. I felt then, and now to a lesser extent, extremely absent-minded and forgetful, as if there is literally no space for any more information.
+    - My mind was clearly overwhelmed at this time. 
+    - I felt then, and now to a lesser extent, extremely absent-minded and forgetful, as if there was literally no space for any more information.
     - Was I close to cracking and having a nervous breakdown? 
-    - I believe this is possible. 
+    - I believe this is highly likely. 
     - Although the anxiety I experienced this year never approached the intense anxiety I had experienced as PTSD from sexual violence, I do remember shaking, and not being able to perform simple tasks, and I couldn't think or speak clearly at all.
     - I also wonder if they were drugging me again through the water at home or some other way?
     - I wonder if another *distraction* event happened on my way to the offices.
 
-- I take the Asus Zenbook 13 that they took over in France the summer previous, the Yoigo router, and two webcams which I believe they accessed to the expert at DPR in Alicante.
-- I meet David and his assistant.
-- The lawyer helps with translating over the phone, I believe. It might be good to get some clarification from DPR.
-- I tell them about how they have sexual films of me. I'm clearly very upset.
-- The lady in the shop is bound to remember me as she looked very alarmed when I was telling her how I had been filmed sexually without my knowledge.
-- However, I feel that I probably can't trust anyone here, so I only give them a few devices, and not the devices I am certain will come up positive for hacking.
-- I give them the following:
-    - My Asus Zenbook 13 laptop: He finds nothing on here so I ask him to reformat the device for me. This device could be rechecked now as it was connected again to my new Movistar router which was accessed by hackers immediately it was installed.
-    - The Yoigo router: He asks for the password to the router. I give it to him. He then says that he can't analyze routers. Why did he need the password then? I kept the router so we can check again.
-    - Two security cameras: There was no storage card in one of the webcams so he could not check anything here. I don't know what happened to the card.
-- When I go to collect my devices in May, I pay 150 euros and he says he can check all my Twitter activity instead, so I give him both my account details and send Twitter archives too.
+- I meet David and his assistant and hand over my devices.
+- I take the Asus Zenbook 13 that hacker [took over in France the summer previous](../2023/august.md#the-hackers-reveal-themselves), the Yoigo router, and two webcams.
+- The lawyer helps with translating over the phone, I believe. It might be good to get some clarification from DPR on what he said.
+- I tell them that they have sexual films of me. I'm clearly very upset.
+- The lady assistant in the shop is bound to remember me as she looked very alarmed when I was telling her how I had been filmed sexually without my knowledge.
+- Nevertheless, I feel that I probably can't trust anyone here, so I only give them a few devices, and not the devices I am certain will come up positive for hacking.
+- I give David the following devices:
+    - My Asus Zenbook 13 laptop: He finds nothing on here so I ask him to reformat the device for me. This device could be rechecked now as it was connected again to my new Movistar router which was accessed by hackers immediately. On another reformat of this device in [December 2024](../2024/december.md#new-years-eve), they're in again in seconds. I have this device stored safely and believe the hardware is probably hacked.
+    - The Yoigo router: David asks for the password to the router over WhatsApp after some time. I give it to him. He subsequently says that he can't analyze routers. What did he need the password for then? I kept the router so we can check again.
+    - Two security cameras: There was no storage card in one of the webcams so he could not check anything here. The other one gave no results. I don't know what happened to the card. I kept the security cam with the men making scary ghost noises on it secured safely for future analysis.
+- When I go to collect my devices in May, I pay 150 euros.
+- He's found nothing.
+- He says he can check all my Twitter activity instead, so I give him both my account details and send the Twitter archives too.
 - I have never heard back from him on any of it.
-- Here is my [WhatsApp](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20DPR%20Recovery%20Alicante%20-%20GoldenPhone%20informática.zip) messages to him.
+- Here is the [WhatsApp](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20DPR%20Recovery%20Alicante%20-%20GoldenPhone%20informática.zip) chat to DPR.
 
 ## I get an Orange SIM
 
