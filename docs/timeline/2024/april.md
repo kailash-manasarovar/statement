@@ -509,7 +509,7 @@ function googleTranslateElementInit() {
 
 ### Technofix
 
-- Roberto recommended I use this company instead of DPR Recovery.
+- Roberto recommended I use [this company](https://www.tecnofixinformatica.com/) instead of DPR Recovery.
 - I speak to them, and decide not to use them, and then I forget about them completely.
 - Curiously, I made a call to them without meaning to from Dénia on 28th October 2024 at the same time I [was being seriously poisoned in my own home](october.md#serious-poisoning-with-intent-to-harm-or-kill).
 - I think hackers took control of my phone at that moment and made this call.
