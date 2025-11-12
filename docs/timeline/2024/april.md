@@ -305,14 +305,20 @@ function googleTranslateElementInit() {
 - Was he an anomaly amongst men, unusually worried for his own children? 
 - Am I the last hope for the dwindling sane in Spain?
 
-## Final chat with Jorge
+## Final chat with Jorge Tuesday 16th
+
+- I'm still vacillating on who I want to analyze my devices.
+- I trust my friend in Madrid but I believe, from things she has told me, that she could also be hacked.
+- I'm planning on visiting Alicante on Thursday and Friday of this week.
+- I check in with Jorge.
+- He is busy so I forget about him and decide to go with DPR, the company that [my friend helped me write to](march/13-end.md#cyber-expert).
 
 ??? note "WhatsApp with Jorge 16th April"
-    [16/04/2024, 23:11:36] Niramisa Weiss: Hola a que hora cerran ustedes los jueves?
-    [16/04/2024, 23:18:26] Jorge Esclapez Deckcard23: Hi. I m sorry but i am working in other company. If you need other thing you must contact with the lab.
-    [16/04/2024, 23:18:48] Jorge Esclapez Deckcard23: Now i will send you the telephone.
-    [16/04/2024, 23:26:53] Niramisa Weiss: Ok
-    [16/04/2024, 23:36:26] Jorge Esclapez Deckcard23: 607349256
+    [16/04/2024, 23:11:36] Niramisa Weiss: Hola a que hora cerran ustedes los jueves?</br>
+    [16/04/2024, 23:18:26] Jorge Esclapez Deckcard23: Hi. I m sorry but i am working in other company. If you need other thing you must contact with the lab.</br>
+    [16/04/2024, 23:18:48] Jorge Esclapez Deckcard23: Now i will send you the telephone.</br>
+    [16/04/2024, 23:26:53] Niramisa Weiss: Ok</br>
+    [16/04/2024, 23:36:26] Jorge Esclapez Deckcard23: 607349256</br>
 
 ## Hacking expert
 
