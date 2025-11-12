@@ -631,7 +631,7 @@ function googleTranslateElementInit() {
 
 - Even though I have left the conservatory, the stalking continues online and in person.
 - It's maybe even worse than before.
-- Perhaps my attendance at a government educational organization afforded me some safety which was now removed and so the porn-gang feeding-frenzy could really begin.
+- Perhaps my attendance at a government-run educational organization afforded me some safety which was now removed and so the porn-gang feeding-frenzy could really begin.
 - Bali was coming up too, and I needed prepping for that. 
 - The Bali trip also probably afforded me a little bit of safety; some delay before they came in for the kill I expect.
 - One Saturday in April, I'm followed on a shopping trip to Iceland by a small wirey longish-black-haired Spaniard who is hopping and dancing around as he tracks me around the isles.
