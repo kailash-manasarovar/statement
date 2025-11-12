@@ -704,7 +704,7 @@ function googleTranslateElementInit() {
 - I have even checked results on other people's devices, and I see the same thing.
 - I don't understand how they do it, unless whoever is behind it has access to my Google accounts and are able to manipulate the Google search algorithm itself.
 - If so, that means insider porn-gang activity at tech-bro central Google, which, let's face it, would not be that suprising.
-- It was never clear to me without this suspicion why they would want to torment me like this apart from to somehow keep the game/con/fraud going, so that I will continue to believe there is a reciprocal relationship going on in some weird way, and eventually hand over all my money to a brute.
+- It was never clear to me without this suspicion why they would want to torment me like this apart from to somehow keep the game/con/fraud going, so that I will continue to believe there is a reciprocal relationship going on in some weird way, and eventually hand over all my money to a brute as part of the deal.
 
 ## Counting Omer
 
