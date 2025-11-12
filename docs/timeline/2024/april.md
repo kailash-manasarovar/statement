@@ -650,27 +650,31 @@ function googleTranslateElementInit() {
 
 ### Let that sink in
 
-- Google search shows pictures of sinks, i.e. let that sink in.
+- Google search shows multiple pictures of sinks, i.e. *let that sink in*.
 
 ![let that sink in](../../content/images/let-that-sink-in.jpg)
 
-- The message, which took me ages to get, was a kind of middle finger to me after having to leave my piano studies.
-- Someone posts about witches owning conservatories on Google search results, see below.
+- The message was a kind of middle finger to me after having to leave my piano studies.
 
 ### Owns conservatory
 
-- There is something going on regarding Helen Joyce and the fact she owns a conservatory makes her unable to know anything about trans people, or something like this: https://x.com/mcdonnelljp/status/1777747038832136465.
-- It comes up top, and alone, on my Google searches on mobile. I don't even remember it very well but I notice the message which is quite amazing.
+- There is a lot of content on X about Helen Joyce and the fact she owns a conservatory.
+- Something like this: https://x.com/mcdonnelljp/status/1777747038832136465.
+- The post comes up top, and alone, on my Google searches on mobile. 
+- I don't even remember it very well but I notice the message which I find amazing and makes me think someone is on my side.
 
 ![owns conservatory](../../content/images/conservatory-1.JPG)
 ![owns conservatory](../../content/images/conservatory-2.JPG)
+
+- Is this manipulated post supposed to make me feel slightly secure against the barrage of abuse?
 
 ### The boys
 
 - You can see the two boys in the conservatory pic above.
 - The B.A. Feldman account and another account close to this one posted pictures of (apparently) themselves as boys back sometime in November 2023.
-- I'm supposed to think these are [the trumpet teacher and his brother](../2023/december.md#the-trumpet-teacher-has-a-brother), although they don't look very much like twins so I'm not convinced.
-- These pics remain to this day on my Google search and I only ever looked at them one time.
+- I'm supposed to think these are [the trumpet teacher and his brother](../2023/december.md#the-trumpet-teacher-has-a-brother) who I thought must be twins! - but were in fact [the first and second (two) men of the switcheroo set](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
+- I wasn't too convinced because these two don't look at all like twins.
+- The pics remain to this day on my Google search and I only ever looked at them once.
 
 ![Two boys pictures](../../content/images/google-searches/two-boys.png)
 
@@ -682,20 +686,21 @@ function googleTranslateElementInit() {
 
 ![Bigger boy](../../content/images/google-searches/google-search-young-man.png)
 
-- The two boys even today.
+- The two boys even today (time of writing November 2024).
 
 ![Two boys even today](../../content/images/google-searches/two-boys-today.png)
 
 !!! important
-    - As a reminder, these tweets were posted way back in November or December, and those posts have consequently been deleted or I cannot find them.
+    - As a reminder, these tweets were posted way back in November or December 2023, and those posts have consequently been deleted or I cannot find them.
     - I looked at them once, and never again.
-    - There is no reason for these two pics to keep on coming up unless they have some sticky cookie element, but they come up even after a reset to factory settings, so I don't understand how they do it, unless they have access to my Google accounts.
+    - There is no reason for these two pics to keep on coming up unless they have some sticky cookie element, but they come up even after a reset to factory settings, so I don't understand how they do it, unless they have access to my Google accounts and are able to manipulate the Google search algorithm itself.
+    - If so, these means insider porn-gang activity at Google.
     - It's never clear why they would do this apart from to somehow keep the game/con/fraud going, so that I will continue to believe there is a reciprocal relationship going on in some weird way.
     - They are long-game honey-trappers, after all.
 
 ## Counting Omer
 
-- I start counting the Omer on X: https://x.com/1FRGVN/status/1782868597125095773.
+- I start counting the Omer on X: https://x.com/1FRGVN/status/1782868597125095773 which gives me some comfort over this period.
 
 ## Let Women Speak
 
