@@ -334,7 +334,7 @@ function googleTranslateElementInit() {
 - I guess he knows these guys personally.
 - I have no recollection of communicating with this company although I do seem to have made a 9 minute call to them on 18th April.
 - Whatever was said, as far as I know, I had no further communication with them and decided to continue with DPR.
-- Here's our WhatsApp communication up to Thursday 18th, the night before I visit the cyber expert DPR.
+- Here's my WhatsApp communication with Roberto up to Thursday 18th, the night before I visit the cyber expert DPR.
 
 ??? tip "WhatsApp with Roberto"
     18/04/2024, 17:43 - det sgt lydia cleaves: Hola Roberto this is the company https://dprrecovery.com/contacto/
