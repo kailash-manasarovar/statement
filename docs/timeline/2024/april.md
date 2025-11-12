@@ -301,7 +301,7 @@ function googleTranslateElementInit() {
 
 - In October, a Spanish government official will tell my friend from Madrid to tell me there is no record of anyone with this name in the Generalitat systems, a lie.
 - Someone, somewhere, with sufficient access to my devices was helping me with my investigation into what was going on.
-- Could it have been [number one trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man); a sole individual who saw exactly what the men of Spain have become, their self-made hellscape protected at the highest level, with seemingly nothing anyone can do about it?
+- Could it have been [number one trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man); a sole individual who saw exactly what the porn-addicted men of Spain have become, their self-made hellscape protected at the highest level, with seemingly nothing anyone can do about it?
 - Was he an anomaly amongst men, unusually worried for his own children? 
 - Am I the last hope for the dwindling sane in Spain?
 
