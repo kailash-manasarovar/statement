@@ -507,7 +507,7 @@ function googleTranslateElementInit() {
 - Are all sedated rape and multiple porn-gang cases out of legal ethical jurisdiction because it is assumed, due to sky-high corruption, that they'll never succeed?
 - Has Spain sacrificed its women and children to the porn-gangs that control the country?
 
-### Technofix
+### Tecnofix
 
 - Roberto recommended I use [this company](https://www.tecnofixinformatica.com/) instead of DPR Recovery.
 - I speak to them, and decide not to use them, and then I forget about them completely.
@@ -518,7 +518,7 @@ function googleTranslateElementInit() {
 
 - Here's the [WhatsApp file](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20Tecnofix%20Informatica.zip) of my communication with Technofix.
 
-- I find the man I speak to in October rather strange, but I am on high-dosage hallucinogenic substances at this time.
+- I find the man I speak to in October rather strange, but, after all, I am on high-dosage hallucinogenic substances at this time.
 - Although maybe even a little weirdness they'd usually get away with got exaggerated.
 - He calls me by name, *Katterin* (sic).
 - The spelling he used *Katterin* was how [Salva used to refer to me in choir](../2023/october.md#choir) and is likely sexually suggestive in colloquial Spanish/Valenciano, and is probably why Adriana and the other kids showed concern about his use of it.
