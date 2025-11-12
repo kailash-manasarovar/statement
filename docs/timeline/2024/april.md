@@ -640,7 +640,7 @@ function googleTranslateElementInit() {
 
 - A direct message springs up asking: "Why are your bank cards inaccessible?"
 
-## Let that sink in
+### Let that sink in
 
 - Google search shows pictures of sinks, i.e. let that sink in.
 
@@ -649,7 +649,7 @@ function googleTranslateElementInit() {
 - The message, which took me ages to get, was a kind of middle finger to me after having to leave my piano studies.
 - Someone posts about witches owning conservatories on Google search results, see below.
 
-## Owns conservatory
+### Owns conservatory
 
 - There is something going on regarding Helen Joyce and the fact she owns a conservatory makes her unable to know anything about trans people, or something like this: https://x.com/mcdonnelljp/status/1777747038832136465.
 - It comes up top, and alone, on my Google searches on mobile. I don't even remember it very well but I notice the message which is quite amazing.
@@ -657,7 +657,7 @@ function googleTranslateElementInit() {
 ![owns conservatory](../../content/images/conservatory-1.JPG)
 ![owns conservatory](../../content/images/conservatory-2.JPG)
 
-## The boys
+### The boys
 
 - You can see the two boys in the conservatory pic above.
 - The B.A. Feldman account and another account close to this one posted pictures of (apparently) themselves as boys back sometime in November 2023.
@@ -689,7 +689,7 @@ function googleTranslateElementInit() {
 
 - I start counting the Omer on X: https://x.com/1FRGVN/status/1782868597125095773.
 
-## Let women Speak
+## Let Women Speak
 
 - Posey Parker (Kelly Jay Keen) is coming to do a Let women Speak event in Madrid in May.
 - I apply to volunteer and be a steward.
