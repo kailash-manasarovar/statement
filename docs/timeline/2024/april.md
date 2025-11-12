@@ -630,6 +630,7 @@ function googleTranslateElementInit() {
 ## Constant stalking
 
 - Even though I have left the conservatory, the stalking continues online and in person.
+- It's maybe even worse than before.
 - I'm followed on a shopping trip to Iceland by a small wirey black-haired man who is hopping and dancing around as he tracks me around the isles.
 - I'm followed on walks to Las Rotas and random people say disparaging things about me as they walk past, laugh and jeer, point and take photos.
 - Every night, a car runs its engine outside my flats (and everyone else can hear it also of course), but it's just threatening the way whoever it is makes the car engine growl low, sometimes for hours, and often after midnight. 
