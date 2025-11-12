@@ -443,7 +443,6 @@ function googleTranslateElementInit() {
 - One wonders what he found out and whether his updated WhatsApp pic suggests he knew *exactly* what was happening to me.
 
 ![Roberto R 1](../../content/images/roberto-rodriguez/roberto-rodriguez-1.jpg)
-![Roberto R 2](../../content/images/roberto-rodriguez/roberto-rodriguez-2.jpg)
 
 ??? info "Final chats on WhatsApp over May and beginning of June"
     01/05/2024, 00:51 - det sgt lydia cleaves: Hi Robert I have had no news from anyone.</br>
@@ -505,6 +504,7 @@ function googleTranslateElementInit() {
     10/06/2024, 02:08 - Robert Rodriguez: Thanks a lot Kate 😀😀😀😍</br>
 
 - Are all sedated rape and multiple porn-gang cases out of legal ethical jurisdiction because it is assumed, due to sky-high corruption, that they'll never succeed?
+- Has Spain sacrificed its women and children to the porn-gangs that control the country?
 
 ### Technofix
 
