@@ -706,7 +706,8 @@ function googleTranslateElementInit() {
 
 - Posey Parker (Kelly Jay Keen) is coming to do a Let women Speak event in Madrid in May.
 - I apply to volunteer and be a steward.
-- I'm also planning to speak too.
+- I'm accepted.
+- I'm also planning to speak.
 
 ## The trumpet teacher in Dénia
 
