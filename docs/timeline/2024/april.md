@@ -680,33 +680,31 @@ function googleTranslateElementInit() {
 
 ### The boys
 
-- You can see the two boys in the conservatory pic above.
-- The B.A. Feldman account and another account close to this one posted pictures of (apparently) themselves as boys back sometime in November 2023.
-- I'm supposed to think these are [the trumpet teacher and his brother](../2023/december.md#the-trumpet-teacher-has-a-brother) who I thought must be twins! - but were in fact [the first and second (two) men of the switcheroo set](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
-- I wasn't too convinced because these two don't look at all like twins.
-- The pics remain to this day on my Google search and I only ever looked at them once.
+- You can see the two boys in the most recent pic above.
+- The B.A. Feldman account and another account named Andrew posted pictures of (apparently) themselves as boys sometime back in November 2023.
+- I'm supposed to think these are [the trumpet teacher and his brother](../2023/december.md#the-trumpet-teacher-has-a-brother) who I thought must be twins but were in fact [the first and second of the switcheroo set](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
+- I wasn't too convinced at the time because these two don't look at all like twins.
+- The pics of these boys remain to this day (Sunday 21st April 2024) on my Google search and I only ever looked at them once in November 2023.
 
 ![Two boys pictures](../../content/images/google-searches/two-boys.png)
 
-- Both boys are in this screenshot from my mobile.
-
-![Littler boy](../../content/images/google-searches/littler-boy.JPG)
-
-- The young man coming up in search since November 2023.
+- The young man came up first in search since November 2023 and long into 2025.
 
 ![Bigger boy](../../content/images/google-searches/google-search-young-man.png)
 
-- The two boys even today (time of writing November 2024).
+- The two boys again in November 2024.
 
 ![Two boys even today](../../content/images/google-searches/two-boys-today.png)
 
-!!! important
-    - As a reminder, these tweets were posted way back in November or December 2023, and those posts have consequently been deleted or I cannot find them.
-    - I looked at them once, and never again.
-    - There is no reason for these two pics to keep on coming up unless they have some sticky cookie element, but they come up even after a reset to factory settings, so I don't understand how they do it, unless they have access to my Google accounts and are able to manipulate the Google search algorithm itself.
-    - If so, these means insider porn-gang activity at Google.
-    - It's never clear why they would do this apart from to somehow keep the game/con/fraud going, so that I will continue to believe there is a reciprocal relationship going on in some weird way.
-    - They are long-game honey-trappers, after all.
+#### Backend Google engineer involvement in global porn-gang conspiracies?
+
+- The original tweets were posted way back in November or December 2023, and the posts have consequently been deleted or I cannot find them.
+- I looked at them once, and never again.
+- There is zero reason for these two pics to keep on coming up unless they have some sticky cookie element, but they come up again even after a reset to factory settings.
+- I have even checked results on other people's devices, and I see the same thing.
+- I don't understand how they do it, unless whoever is behind it has access to my Google accounts and are able to manipulate the Google search algorithm itself.
+- If so, that means insider porn-gang activity at tech-bro central Google, which, let's face it, would not be that suprising.
+- It was never clear to me without this suspicion why they would want to torment me like this apart from to somehow keep the game/con/fraud going, so that I will continue to believe there is a reciprocal relationship going on in some weird way, and eventually hand over all my money to a brute.
 
 ## Counting Omer
 
