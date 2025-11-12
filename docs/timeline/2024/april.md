@@ -320,25 +320,209 @@ function googleTranslateElementInit() {
     [16/04/2024, 23:26:53] Niramisa Weiss: Ok</br>
     [16/04/2024, 23:36:26] Jorge Esclapez Deckcard23: 607349256</br>
 
-## Hacking expert
-
-- I take the Asus Zenbook 13 that they took over in France the summer previous, the Yoigo router, and two webcams which I believe they accessed to the expert at DPR in Alicante.
-- I meet David and his assistant.
-- The lawyer helps with translating, I believe over the phone, but he may have been present.
-- I tell them about how they have sexual films of me. I'm clearly very upset.
-- The lady in the shop is bound to remember me as she looked very alarmed when I was telling her how I had been filmed sexually without my knowledge.
-- However, I feel that I probably can't trust anyone here, so I only give them a few devices, and not the devices I am certain will come up positive for hacking.
-- I give them the following:
-    - My Asus Zenbook 13 laptop: He finds nothing on here so I ask him to reformat the device for me. This device could be rechecked now as it was connected again to my new Movistar router which was accessed by hackers immediately it was installed.
-    - The Yoigo router: He asks for the password to the router. I give it to him. He then says that he can't analyze routers. Why did he need the password then? I kept the router so we can check again.
-    - Two security cameras: There was no storage card in one of the webcams so he could not check anything here. I don't know what happened to the card.
-- When I go to collect my devices, I pay 150 euros and he says he can check all my Twitter activity instead, so I give him both my account details and send Twitter archives too.
-- I have never heard back from him on any of it.
-- Here is my [WhatsApp](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20DPR%20Recovery%20Alicante%20-%20GoldenPhone%20informática.zip) messages to him.
-
 ## Roberto Rodriguez, lawyer
 
-- The same day a man has been removed from political office in Toledo after spy cam porn was released of him. I find this very similar to what's going on for me and say it's epidemic to the lawyer. He basically tells me to be quiet.
+- I am communicating with Roberto Rodriguez about visiting Alicante this week.
+- Essentially, I need a lawyer to represent me at the police station with evidence of hacking, and that's why I have hired him.
+- We have spoken on the phone multiple times.
+- He asks me to send him the information about the expert I intend to visit.
+- I WhatsApp him for the first time with the details on the evening of Thursday 18th April.
+- We have agreed to meet at the DPR offices at 13:00 the following day and I confirm this with him.
+- Roberto has been talking about another company he is keen I use instead called [Technofix](#technofix).
+- He tells me to contact them.
+- In one voice recording during our WhatsApp chat he tells me he is at the company and they are expecting my call: PTT-20240418-WA0002.opus
+- I guess he knows these guys personally.
+- I have no recollection of communicating with this company although I do seem to have made a 9 minute call to them on 18th April.
+- Whatever was said, as far as I know, I had no further communication with them and decided to continue with DPR.
+- Here's our WhatsApp communication up to Thursday 18th, the night before I visit the cyber expert DPR.
+
+??? tip "WhatsApp with Roberto"
+    18/04/2024, 17:43 - det sgt lydia cleaves: Hola Roberto this is the company https://dprrecovery.com/contacto/
+    18/04/2024, 17:43 - det sgt lydia cleaves: And the address is ...
+    18/04/2024, 17:45 - det sgt lydia cleaves: You can see it on there..
+    18/04/2024, 17:46 - det sgt lydia cleaves: I think the Chinese perito in Denia is involved in this too so I just don't know who to trust 😞
+    18/04/2024, 17:46 - det sgt lydia cleaves: See you tomorrow at 13:00
+    18/04/2024, 17:46 - det sgt lydia cleaves: I am Katharine Murphy
+    18/04/2024, 17:47 - det sgt lydia cleaves: I had to buy new phones and make new accounts on everything,that is why you see a funny name
+    18/04/2024, 18:02 - det sgt lydia cleaves: Calle Arzobispo Loaces 17 Local 03003 Alicante
+    18/04/2024, 19:24 - Robert Rodriguez: Ok It IS in the centre yes
+    18/04/2024, 19:25 - det sgt lydia cleaves: Ok
+    18/04/2024, 19:25 - Robert Rodriguez: Let me see if I fi now to the other shop and try to call them this evening
+    18/04/2024, 19:25 - det sgt lydia cleaves: Ok thank you much appreciated
+    18/04/2024, 19:25 - Robert Rodriguez: What IS exactly what you need and in what devices??
+    18/04/2024, 19:25 - det sgt lydia cleaves: I have 2 security cams, 1 laptop, and a router
+    18/04/2024, 19:26 - Robert Rodriguez: PTT-20240418-WA0000.opus (file attached - this is where he asks me where are the security cams)
+    18/04/2024, 19:26 - det sgt lydia cleaves: I need analysis for intrusion through the router, Mac spoofing, spyware, man in the middle attack, DNS spoofing,
+    18/04/2024, 19:26 - det sgt lydia cleaves: Anything weird
+    18/04/2024, 19:27 - det sgt lydia cleaves: The security cameras watch the house when I was away
+    18/04/2024, 19:27 - det sgt lydia cleaves: They connect to the router and are very easy to attack
+    18/04/2024, 19:27 - Robert Rodriguez: Ok
+    18/04/2024, 19:28 - Robert Rodriguez: PTT-20240418-WA0001.opus (file attached - this is where he asks me what company I work for)
+    18/04/2024, 19:28 - det sgt lydia cleaves: I work for a company called polygon but I'm not bringing any of their devices
+    18/04/2024, 19:28 - det sgt lydia cleaves: And they have taken steps on their side
+    18/04/2024, 19:29 - Robert Rodriguez: Ok no idea of the company
+    18/04/2024, 19:29 - det sgt lydia cleaves: Because they noticed the router breach when I asked them to check it
+    18/04/2024, 19:29 - det sgt lydia cleaves: Their security team found evidence of a breach at the router about 4/6 weeks ago
+    18/04/2024, 19:29 - det sgt lydia cleaves: I had to stop working from home
+    18/04/2024, 19:30 - det sgt lydia cleaves: At the same time there was a very big psychological attack by the conservatory at the piano concert
+    18/04/2024, 19:30 - det sgt lydia cleaves: My webcam was accessed at that time and the day after
+    18/04/2024, 19:30 - det sgt lydia cleaves: That day and following day there was serious threatening activity in the street
+    18/04/2024, 19:31 - det sgt lydia cleaves: So I left for Madrid and lived in hotels for 2 weeks
+    18/04/2024, 19:31 - det sgt lydia cleaves: I didn't feel safe at all
+    18/04/2024, 19:31 - det sgt lydia cleaves: Men made scary "ghost" noises on the webcam
+    18/04/2024, 19:32 - det sgt lydia cleaves: It's related to a friend who committed suicide here 3 years ago who they were suggesting they did the same thing to and drove her to it, or worse
+    18/04/2024, 19:32 - det sgt lydia cleaves: That was my assessment of the threats, and I took it seriously, and still do
+    18/04/2024, 19:34 - Robert Rodriguez: Ok the most relevant thing of It all IS obviously the evidence . Use your phone to record weird things
+    18/04/2024, 19:34 - det sgt lydia cleaves: Yes I could have so many things but I haven't been recording anything
+    18/04/2024, 19:34 - det sgt lydia cleaves: I believe they will stop now because they know I am leaving
+    18/04/2024, 19:35 - det sgt lydia cleaves: And they have gone to the police about me... When I asked for details they didn't answer
+    18/04/2024, 19:35 - Robert Rodriguez: Thats a problem of course but if in the future It happens again...
+    18/04/2024, 19:35 - det sgt lydia cleaves: I think they will have denounced me falsely
+    18/04/2024, 19:36 - Robert Rodriguez: In what basis? Cant be a Big deal at all
+    18/04/2024, 19:36 - det sgt lydia cleaves: So I would like to defend this robustly if it comes to pass
+    18/04/2024, 19:36 - det sgt lydia cleaves: Defamation maybe
+    18/04/2024, 19:36 - det sgt lydia cleaves: Because I complained to the generalitat in private in letters about what was happening
+    18/04/2024, 19:37 - det sgt lydia cleaves: As it all relates to me turning down a piano teacher romantically 10 years ago
+    18/04/2024, 19:37 - det sgt lydia cleaves: And behaves extremely inappropriately with young girls
+    18/04/2024, 19:37 - det sgt lydia cleaves: And I voiced my concernd
+    18/04/2024, 19:37 - det sgt lydia cleaves: Concerns
+    18/04/2024, 19:37 - det sgt lydia cleaves: I did not accuse anyone of anything
+    18/04/2024, 19:38 - det sgt lydia cleaves: This man threatened me with violence at that time too
+    18/04/2024, 19:38 - det sgt lydia cleaves: They have been gang stalking me on twitter also
+    18/04/2024, 19:38 - Robert Rodriguez: PTT-20240418-WA0002.opus (file attached - he is at the Technofix shop now and tells me to call them)
+    18/04/2024, 19:38 - det sgt lydia cleaves: And I said a lot of things on twitter but no accusations
+    18/04/2024, 19:39 - det sgt lydia cleaves: Ok what's the number
+    18/04/2024, 19:39 - det sgt lydia cleaves: Do they speak English
+    18/04/2024, 19:39 - Robert Rodriguez: Tecnofix Informatica.vcf (file attached)
+    18/04/2024, 19:40 - Robert Rodriguez: Yes
+    18/04/2024, 19:40 - det sgt lydia cleaves: Ok
+    18/04/2024, 19:40 - Robert Rodriguez: Call them now pls
+    18/04/2024, 19:49 - Robert Rodriguez: null
+    18/04/2024, 20:19 - det sgt lydia cleaves: Just one other thing is that I believe (know actually) that they have extremely private videos and recordings of me, of a sexual nature, and i expect planned to blackmail me with them at some point but I would be happy if they became public because then there would be excellent evidence .
+    18/04/2024, 20:20 - det sgt lydia cleaves: My question is .. given that many many people here in Denia will have seen these, it cannot be too hard to find them, do you have any idea of how we could get copies, ie private detective services maybe??
+    18/04/2024, 20:41 - Robert Rodriguez: The Police should be able to do It better than anyone Kate
+    18/04/2024, 20:41 - det sgt lydia cleaves: But they want me to prove it exists to them first before they investigate! I know it exists
+    18/04/2024, 20:42 - det sgt lydia cleaves: It's very frustrating
+    18/04/2024, 20:42 - Robert Rodriguez: No, if you report It they should investigate it
+    18/04/2024, 20:42 - det sgt lydia cleaves: Ok
+    18/04/2024, 20:43 - Robert Rodriguez: This is why may be It IS better to use a lawyer, cos It sounds weird and they may think you are exagerating
+    18/04/2024, 20:43 - det sgt lydia cleaves: Exactly
+    18/04/2024, 20:43 - det sgt lydia cleaves: See you manyana
+    18/04/2024, 20:43 - Robert Rodriguez: Ok
+    18/04/2024, 22:16 - det sgt lydia cleaves: Remind me to tell you about the CCTV there probably is..
+
+- Later, I read online that a man [has been removed from political office in Toledo](https://www.timesnownews.com/world/europe/spanish-politician-daniel-gmez-del-barrio-resigns-after-photos-reveal-he-offered-himself-as-sex-slave-article-109256687) after spy cam porn was released of him.
+- I find this very similar to what's going on for me.
+- Roberto texts me again, very late, with what sounds like a made up excuse and cancels our meeting and says he is unavailable all day.
+- It's disappointing.
+- He says I can call him for help translating instead.
+
+??? info "WhatsApp with Roberto"
+    19/04/2024, 00:43 - Robert Rodriguez: Hola. Sorry but I have not had enough time to do my taxes and they expire very soon. Do you mind if we meet Up  in Tuesday or Wednesday? Sorry about this
+    19/04/2024, 00:43 - Robert Rodriguez: Cant Talk as I am in a meeting til 21:30 pm
+    19/04/2024, 00:56 - det sgt lydia cleaves: Ok
+    19/04/2024, 00:56 - Robert Rodriguez: Thanks and sorry
+    19/04/2024, 00:57 - det sgt lydia cleaves: Do you know someone who can translate maybe? It's ok I have a letter in Spanish for them
+    19/04/2024, 00:58 - det sgt lydia cleaves: I have to return next week to collect my equipment I believe, they keep it you see
+    19/04/2024, 01:18 - Robert Rodriguez: For tomorrow? No, sorry
+    19/04/2024, 01:18 - Robert Rodriguez: Return to Spain? Who keeps It?
+    19/04/2024, 01:19 - det sgt lydia cleaves: They keep the machines for some days
+    19/04/2024, 01:19 - det sgt lydia cleaves: DPR
+    19/04/2024, 01:19 - det sgt lydia cleaves: I will come and collect them we can meet then
+    19/04/2024, 01:19 - Robert Rodriguez: Ok
+    19/04/2024, 01:20 - Robert Rodriguez: What I could do IS if you go by yourself you could call me for me to explain them whatever you want
+    19/04/2024, 01:21 - det sgt lydia cleaves: Ok thank you, I appreciate it 😊
+
+### WhatsApp with Roberto the English-speaking lawyer
+
+- Here's the rest of our communication on [WhatsApp content with Roberto](../../content/whatsapps/WhatsApp%20Chat%20with%20Robert%20Rodriguez.zip) over the next months.
+
+??? info "Final chats on WhatsApp over May and beginning of June"
+    01/05/2024, 00:51 - det sgt lydia cleaves: Hi Robert I have had no news from anyone.
+    01/05/2024, 00:51 - det sgt lydia cleaves: Maybe that's a good thing.
+    01/05/2024, 00:52 - det sgt lydia cleaves: I'm going to be away for a few months over the summer. I wonder if I could set up a redirection service to you in case the police write to me and you could answer on my behalf?
+    01/05/2024, 02:38 - Robert Rodriguez: Sorry for my late response. My mum IS very ill in hospital and I am a bit disconnected
+    01/05/2024, 02:39 - det sgt lydia cleaves: I'm so sorry to hear it
+    01/05/2024, 02:39 - Robert Rodriguez: If you have reported It to the Police then you would need to sign a power of attorney for me to be able to represent you if any Court papers are sent to you
+    01/05/2024, 02:40 - Robert Rodriguez: If not then nothing would happen most probably
+    01/05/2024, 02:40 - det sgt lydia cleaves: I didn't report anything but if the conservatory denounced me and I was not here to receive some mail what would I do?
+    01/05/2024, 02:42 - det sgt lydia cleaves: They definitely suggested thats what they were doing so I would like to be able to answer anything they might say, if they did
+    01/05/2024, 02:43 - Robert Rodriguez: Are you leaving by yourself ? If not you could provide them your address
+    01/05/2024, 02:43 - det sgt lydia cleaves: I'm going to be away for maybe 3 months only June to September
+    01/05/2024, 02:43 - det sgt lydia cleaves: 3.5 months
+    01/05/2024, 02:44 - det sgt lydia cleaves: I might be back for a couple of weeks but not sure about it
+    01/05/2024, 02:44 - det sgt lydia cleaves: I keep my address here although I have to move eventually because of the threatening atmosphere
+    01/05/2024, 02:44 - det sgt lydia cleaves: I will have a few different addresses over the summer
+    01/05/2024, 02:54 - Robert Rodriguez: Most probably the Court wiuld not be able to deal with the case unless you receive the denuncia and if you are abroad you wont
+    01/05/2024, 02:54 - det sgt lydia cleaves: Oh I heard they go ahead anyway
+    01/05/2024, 02:55 - det sgt lydia cleaves: Anyway I'll do a forward to my mum in that case for a few months and she can tell me
+    01/05/2024, 02:55 - det sgt lydia cleaves: I guess the court is closed over summer
+    01/05/2024, 02:55 - det sgt lydia cleaves: I'm looking forward to meeting you soon when I come to pick up my tech
+    01/05/2024, 02:56 - det sgt lydia cleaves: I will be happy to talk to you and pay you for your time we already had and an hour or two chat
+    01/05/2024, 02:56 - det sgt lydia cleaves: All the best and love to mum 🫂I hope she is soon better
+    03/05/2024, 01:23 - Robert Rodriguez: Hola Kate. I am sorry for my late response. Very hard times.
+    03/05/2024, 01:24 - Robert Rodriguez: But do you live with your mum? If so and if she said that she knows you and collects It then yes
+    03/05/2024, 01:26 - Robert Rodriguez: You do not pay for a service, specially if It  IS so small, unless you are told un advance and I have not given you any budget cos I have not dine Nothing.. you are like me and I do appreciate ur wassup 😀
+    03/05/2024, 01:33 - det sgt lydia cleaves: Bless you, thank you,but we should definitely meet, I'm going to be away for 2 weeks then I'm back on 20th so hopefully the perito has some news and I can collect my equipment and nos vemos 😊
+    03/05/2024, 01:33 - det sgt lydia cleaves: And wishing you all well
+    03/05/2024, 01:34 - Robert Rodriguez: Ok cool
+    03/06/2024, 00:59 - det sgt lydia cleaves: Roberto I want to take the Generalitat to court for knowingly putting students in danger. They made me fear for my life, and I can prove it. They terrorised me on twitter and elsewhere and I can prove it. I don't care if I win or lose, I want the media attention.
+    03/06/2024, 00:59 - det sgt lydia cleaves: Can you help?
+    03/06/2024, 01:00 - det sgt lydia cleaves: I know my experience is a common thing in Spain. I want to help it stop, especially now they are technically advanced.
+    03/06/2024, 01:00 - det sgt lydia cleaves: Let me know what you think.
+    03/06/2024, 01:01 - det sgt lydia cleaves: Maybe u know someone who can help.
+    03/06/2024, 01:03 - det sgt lydia cleaves: I think they will offer to settle to avoid the publicity. But I don't want to settle, unless it's millions, which it won't be.
+    03/06/2024, 01:03 - det sgt lydia cleaves: They will be very keen to avoid the publicity.
+    03/06/2024, 01:03 - det sgt lydia cleaves: I complained about the dodgy teacher 10 years ago.
+    03/06/2024, 01:04 - det sgt lydia cleaves: They have just implemented a RULE that no mobiles are allowed in the conservatory, after I have no option but to leave due to fearing for my life.
+    03/06/2024, 01:04 - det sgt lydia cleaves: Think about it.
+    03/06/2024, 01:04 - det sgt lydia cleaves: Could make u v famous.
+    03/06/2024, 01:10 - det sgt lydia cleaves: I'm in Lourdes for 2 weeks let me know if I can light you any candles 💖
+    03/06/2024, 01:26 - Robert Rodriguez: Hola Kate. I could but I would need to see some evidence before I could give you a budget in case that I consider that you do not have a case so that you do not waste miney
+    03/06/2024, 01:27 - det sgt lydia cleaves: I don't care about the money
+    03/06/2024, 01:28 - det sgt lydia cleaves: Not the best thing to say to a lawyer I know
+    03/06/2024, 01:28 - det sgt lydia cleaves: 😅
+    03/06/2024, 01:28 - det sgt lydia cleaves: Think about it
+    03/06/2024, 01:28 - det sgt lydia cleaves: I've some really good evidence, we can make a decent case I'm sure of it
+    03/06/2024, 01:28 - Robert Rodriguez: Haha. Yes but I would not take a case if I consider that you have no prospectos if success as It would be unfair on you and on my ethics
+    03/06/2024, 01:29 - Robert Rodriguez: Ok if you can make a very brief resume and send me the best evidence that you have I Will check it
+    03/06/2024, 01:49 - det sgt lydia cleaves: I expect them to defend it robustly.. and I am one lone vulnerable female against the Spanish system essentially.. I don't care if I lose, I want the publicity
+    03/06/2024, 01:49 - det sgt lydia cleaves: I will send you a summary
+    03/06/2024, 01:49 - Robert Rodriguez: Ok
+    03/06/2024, 01:50 - det sgt lydia cleaves: Next few days or week, I have to travel , can I light a candle for your mum?
+    03/06/2024, 02:02 - Robert Rodriguez: Of.course! That would be fantastic , I always aks my Friends to pray or send her nice wishes
+    03/06/2024, 04:31 - det sgt lydia cleaves: I will do it 🥰
+    10/06/2024, 01:10 - det sgt lydia cleaves: IMG-20240609-WA0001.jpg (file attached)
+    For your mum
+    10/06/2024, 02:08 - Robert Rodriguez: Thanks a lot Kate 😀😀😀😍
+
+### Technofix
+
+- Roberto recommends I use this company.
+- I speak to them, and decide not to use them, and forget about them completely.
+- Curiously, I made a call to them without realizing it, in Dénia in October 2024.
+- It was extremely weird and I think hackers took control of my phone and made this call.
+
+![Technofix](../../content/whatsapps/technofix-1.jpg){width=50%}![](../../content/whatsapps/technofix-2.jpg){width=50%}
+
+- [WhatsApp with Technofix](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20Tecnofix%20Informatica.zip).
+
+## DPR cyber-expert Alicante
+
+- Robert Rodriguez cancels our meeting at the DPR offices the following morning, but tells me he can translate over the phone.
+- I feel like Roberto was there. I was out of my mind at DPR offices that morning.
+- I wonder what else happened.
+- When we speak, I mention the news report of the politician on spy-cam porn. I tell him this is what has been happening to me and I say it's epidemic to the lawyer.
+- Roberto shuts the conversation down.
+
+??? info "WhatsApp with Roberto Rodriguez"
+    19/04/2024, 18:47 - det sgt lydia cleaves: Done. Thanks for the help today :)
+    19/04/2024, 18:48 - det sgt lydia cleaves: They're gonna let me know when they're finished and I'll come and collect these things
+    19/04/2024, 18:48 - Robert Rodriguez: Cool
+    19/04/2024, 23:36 - det sgt lydia cleaves: Thanks for the help this week Robert. I'm confident we will get some results that will mean the police will take us seriously... The politician I was mentioning, I don't think he was hacked in the end, I think he wanted to be humiliated but Im certain that the hacking I'm suffering is epidemic .. anyway wishing you a wonderful weekend and I'll ping you as soon as there is any news 😊
+    19/04/2024, 23:53 - Robert Rodriguez: Ok but you need to be concerned only about your on case and about getting evidence now and after reporting It to make progress and stop the harassment. BEST weekenk
+
+
 - The Roberto Rodriguez thing is a very dodgy business.
 - I am so stressed in the DPR office, it seems he is with me, but I don't think he ever came.
 - Roberto gives me the Technofix details and insists I call them, but I have already gone with DPR.
@@ -360,23 +544,19 @@ function googleTranslateElementInit() {
     - Although the anxiety I experienced this year never approached the intense anxiety I had experienced as PTSD from sexual violence, I do remember shaking, and not being able to perform simple tasks, and I couldn't think or speak clearly at all.
     - I also wonder if they were drugging me again through the water at home or some other way?
 
-### WhatsApp with Roberto the English-speaking lawyer
-
-- WhatsApp thread from my Spanish phone: [link](../../content/whatsapps/WhatsApp%20Chat%20with%20Robert%20Rodriguez.zip)
-
-![Robert the lawyer](../../content/whatsapps/roberto-laywer.jpg)
-
-- I feel like he was there. I was out of my mind at DPR offices that morning.
-- I wonder what else happened.
-
-### Technofix
-
-- Roberto recommends these in his WhatsApp.
-- I have no idea who these are. I phoned this company in April so I believe it is the cyber expert from Alicante, but they have a different name.
-- I made a call to them without realizing it, in Dénia in October 2024.
-- It was extremely weird. I think hackers took control of my phone and made this call.
-
-![Technofix](../../content/whatsapps/technofix-1.jpg){width=50%}![](../../content/whatsapps/technofix-2.jpg){width=50%}
+- I take the Asus Zenbook 13 that they took over in France the summer previous, the Yoigo router, and two webcams which I believe they accessed to the expert at DPR in Alicante.
+- I meet David and his assistant.
+- The lawyer helps with translating, I believe over the phone, but he may have been present.
+- I tell them about how they have sexual films of me. I'm clearly very upset.
+- The lady in the shop is bound to remember me as she looked very alarmed when I was telling her how I had been filmed sexually without my knowledge.
+- However, I feel that I probably can't trust anyone here, so I only give them a few devices, and not the devices I am certain will come up positive for hacking.
+- I give them the following:
+    - My Asus Zenbook 13 laptop: He finds nothing on here so I ask him to reformat the device for me. This device could be rechecked now as it was connected again to my new Movistar router which was accessed by hackers immediately it was installed.
+    - The Yoigo router: He asks for the password to the router. I give it to him. He then says that he can't analyze routers. Why did he need the password then? I kept the router so we can check again.
+    - Two security cameras: There was no storage card in one of the webcams so he could not check anything here. I don't know what happened to the card.
+- When I go to collect my devices, I pay 150 euros and he says he can check all my Twitter activity instead, so I give him both my account details and send Twitter archives too.
+- I have never heard back from him on any of it.
+- Here is my [WhatsApp](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20DPR%20Recovery%20Alicante%20-%20GoldenPhone%20informática.zip) messages to him.
 
 ## I get an Orange SIM
 

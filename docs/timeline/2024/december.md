@@ -176,7 +176,7 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
 
 ### New Year's Eve
 
-- I decided to try to use the Linux laptop again which the [technician](../2024/april.md#hacking-expert) reset to factory settings.
+- I decided to try to use the Linux laptop again which the [technician](../2024/april.md#dpr-cyber-expert-alicante) reset to factory settings.
 - I move my Google account over and change the password without connection to the MacOS.
 - They're in immediately by knowing a password they shouldn't know from the MacOS which is not online.
 - An account pops up on twitter which is a piss take.
