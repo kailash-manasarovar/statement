@@ -552,7 +552,7 @@ function googleTranslateElementInit() {
     - I felt then, and now to a lesser extent, extremely absent-minded and forgetful, as if there was literally no space for any more information.
     - Was I close to cracking and having a nervous breakdown? 
     - I believe this is highly likely. 
-    - Although the anxiety I experienced never approached the intense PTSD I had experienced as a child after sexual violence, and after the 2016 report to the Met which ironically was also to do with more recent sedated rape I didn't know about, I do remember shaking, and not being able to perform simple tasks, and I couldn't think or speak clearly at all.
+    - Although the anxiety I experienced never approached the intense PTSD I had experienced as a child after sexual violence, or after the 2016 report to the Met which ironically was also to do with more recent sedated rape I didn't know about, I do remember shaking, and not being able to perform simple tasks, and I couldn't think or speak clearly at all.
     - My shoulders, arms, and hands ached.
     - I wonder if another [*distraction* event](../../crimes/poisoning.md#distraction-techniques-before-application) happened on my way to the Alicante offices.
 
@@ -570,7 +570,7 @@ function googleTranslateElementInit() {
 - He's found nothing.
 - He says he can check all my Twitter activity instead, so I give him both my account details and send full archives too.
 - I have never heard back from him on any of it.
-- Why?
+- Why not?
 - Here is the [WhatsApp](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20DPR%20Recovery%20Alicante%20-%20GoldenPhone%20informática.zip) chat to DPR:
 
 ??? tip "WhatsApp with DPR Recovery"
