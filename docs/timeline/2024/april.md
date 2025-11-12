@@ -411,27 +411,27 @@ function googleTranslateElementInit() {
     18/04/2024, 20:43 - Robert Rodriguez: Ok</br>
     18/04/2024, 22:16 - det sgt lydia cleaves: Remind me to tell you about the CCTV there probably is..</br>
 
-- Later, I read online that a man [has been removed from political office in Toledo](https://www.timesnownews.com/world/europe/spanish-politician-daniel-gmez-del-barrio-resigns-after-photos-reveal-he-offered-himself-as-sex-slave-article-109256687) after spy cam porn was released of him.
+- Later, I read online that a man [has been removed from political office in Toledo](https://www.timesnownews.com/world/europe/spanish-politician-daniel-gmez-del-barrio-resigns-after-photos-reveal-he-offered-himself-as-sex-slave-article-109256687) after spy-cam porn was released of him.
 - I find this very similar to what's going on for me.
 - Roberto texts me again, very late, with what sounds like a made up excuse and cancels our meeting and says he is unavailable all day.
 - It's disappointing.
 - He says I can call him for help translating instead.
 
 ??? info "WhatsApp with Roberto"
-    19/04/2024, 00:43 - Robert Rodriguez: Hola. Sorry but I have not had enough time to do my taxes and they expire very soon. Do you mind if we meet Up  in Tuesday or Wednesday? Sorry about this
-    19/04/2024, 00:43 - Robert Rodriguez: Cant Talk as I am in a meeting til 21:30 pm
-    19/04/2024, 00:56 - det sgt lydia cleaves: Ok
-    19/04/2024, 00:56 - Robert Rodriguez: Thanks and sorry
-    19/04/2024, 00:57 - det sgt lydia cleaves: Do you know someone who can translate maybe? It's ok I have a letter in Spanish for them
-    19/04/2024, 00:58 - det sgt lydia cleaves: I have to return next week to collect my equipment I believe, they keep it you see
-    19/04/2024, 01:18 - Robert Rodriguez: For tomorrow? No, sorry
-    19/04/2024, 01:18 - Robert Rodriguez: Return to Spain? Who keeps It?
-    19/04/2024, 01:19 - det sgt lydia cleaves: They keep the machines for some days
-    19/04/2024, 01:19 - det sgt lydia cleaves: DPR
-    19/04/2024, 01:19 - det sgt lydia cleaves: I will come and collect them we can meet then
-    19/04/2024, 01:19 - Robert Rodriguez: Ok
-    19/04/2024, 01:20 - Robert Rodriguez: What I could do IS if you go by yourself you could call me for me to explain them whatever you want
-    19/04/2024, 01:21 - det sgt lydia cleaves: Ok thank you, I appreciate it 😊
+    19/04/2024, 00:43 - Robert Rodriguez: Hola. Sorry but I have not had enough time to do my taxes and they expire very soon. Do you mind if we meet Up  in Tuesday or Wednesday? Sorry about this</br>
+    19/04/2024, 00:43 - Robert Rodriguez: Cant Talk as I am in a meeting til 21:30 pm</br>
+    19/04/2024, 00:56 - det sgt lydia cleaves: Ok</br>
+    19/04/2024, 00:56 - Robert Rodriguez: Thanks and sorry</br>
+    19/04/2024, 00:57 - det sgt lydia cleaves: Do you know someone who can translate maybe? It's ok I have a letter in Spanish for them</br>
+    19/04/2024, 00:58 - det sgt lydia cleaves: I have to return next week to collect my equipment I believe, they keep it you see</br>
+    19/04/2024, 01:18 - Robert Rodriguez: For tomorrow? No, sorry</br>
+    19/04/2024, 01:18 - Robert Rodriguez: Return to Spain? Who keeps It?</br>
+    19/04/2024, 01:19 - det sgt lydia cleaves: They keep the machines for some days</br>
+    19/04/2024, 01:19 - det sgt lydia cleaves: DPR</br>
+    19/04/2024, 01:19 - det sgt lydia cleaves: I will come and collect them we can meet then</br>
+    19/04/2024, 01:19 - Robert Rodriguez: Ok</br>
+    19/04/2024, 01:20 - Robert Rodriguez: What I could do IS if you go by yourself you could call me for me to explain them whatever you want</br>
+    19/04/2024, 01:21 - det sgt lydia cleaves: Ok thank you, I appreciate it 😊</br>
 
 ### WhatsApp with Roberto the English-speaking lawyer
 
