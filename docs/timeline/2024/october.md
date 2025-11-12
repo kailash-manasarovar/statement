@@ -174,6 +174,20 @@ function googleTranslateElementInit() {
 - I now wonder about the [upstairs neighbor and what I thought was his daughter in the lift](../2022/march.md#upstairs-neighbor-at-carrer-furs); a meeting obviously timed as they knew where I was every second.
 - I guess it could have been another porn "actress" come to star with me in the weekly specials on Denia TV or wherever they were being shown to literally everyone and anyone in the world.
 
+### English teacher outside my house with a woman
+
+- Another afternoon I'm walking back to my house up Carrer Furs.
+- Outside on the same bench is a man I know with a woman I recognize.
+- He is one of the British casual-work teachers that would come and work for LinguaLogic at their summer school and I met him in 2008 or so.
+- An unsavory person, something off about him, reminded me of Matthew Diamond.
+- Anyway, there he was on the bench with this woman who reminded me a little bit of Marie Carmen from the TLC academy.
+- She's holding a clipboard and he's answering questions.
+- It sounds like he's detailing a crime or some nuisance, like he's making a complaint, and she's making notes.
+- It was extremely weird and appeared to be totally fake.
+- I have never seen him in the vicinity of my building before.
+- Did he come into my apartment after that? 
+- He'll be in the LinguaLogic records and I'd recognize him in an instant.
+
 ## VSSH collects his aware at the Palau d'Arts
 
 - The L'Amistat band are awarded the *best band in the Valencian region*.
