@@ -433,6 +433,9 @@ function googleTranslateElementInit() {
     19/04/2024, 01:20 - Robert Rodriguez: What I could do IS if you go by yourself you could call me for me to explain them whatever you want</br>
     19/04/2024, 01:21 - det sgt lydia cleaves: Ok thank you, I appreciate it 😊</br>
 
+- Who did he talk to?
+- What did he find out that made him back off hurriedly?
+
 ### WhatsApp with Roberto the English-speaking lawyer
 
 - Here's the rest of our communication on [WhatsApp content with Roberto](../../content/whatsapps/WhatsApp%20Chat%20with%20Robert%20Rodriguez.zip) over the next months.
