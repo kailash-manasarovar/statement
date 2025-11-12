@@ -625,7 +625,6 @@ function googleTranslateElementInit() {
 - I want a basic SIM that does not connect to the Internet.
 - I'm hoping that I can use it in emergencies, and that I can't be followed using it in the way that I have been.
 - The number they give me ends in `007`.
-- I buy another simple phone without Internet access on Amazon to use it with.
 - When I take this phone out on [5th October in Dénia](october.md#saturday-5th-october), I'm tracked and followed.
 
 ## Constant stalking
