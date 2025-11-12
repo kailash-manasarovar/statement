@@ -326,7 +326,7 @@ function googleTranslateElementInit() {
 - I need a lawyer to represent me at the police station with evidence of hacking before they will investigate the crimes against me, and that's why I have hired him.
 - We have spoken on the phone multiple times.
 - He asks me to send him the information about the expert I intend to visit.
-- I WhatsApp him for the first time with the details on the evening of Thursday 18th April.
+- I WhatsApp him for the first time with the details of [DPR Recovery](https://dprrecovery.com/) on the evening of Thursday 18th April.
 - We have agreed to meet at the DPR offices at 13:00 the following day and I confirm this with him.
 - Roberto has been talking about another company he is keen I use instead called [Technofix](#technofix).
 - He tells me to contact them.
