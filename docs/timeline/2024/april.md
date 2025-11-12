@@ -276,8 +276,8 @@ function googleTranslateElementInit() {
 - I attach the videos and transcripts of the call below. 
 - I'm obviously extremely stressed and scared. 
 
-    - [Video of me speaking about this at this time - part 1](https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing) and [transcript](../../content/vids/scared%20and%20stressed%201_transcript.txt).
-    - [Video of me speaking about this at this time - part 2](https://drive.google.com/file/d/1kT-BFILgBWnVTBALHepboNzpGCxBoi4f/view?usp=drive_link) and [transcript](../../content/vids/scared%20and%20stressed%202_transcript.txt).
+    - [Video of me speaking with the British Foreign Office - part 1](https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing) and [transcript](../../content/vids/scared%20and%20stressed%201_transcript.txt).
+    - [Video of me speaking with the British Foreign Office - part 2](https://drive.google.com/file/d/1kT-BFILgBWnVTBALHepboNzpGCxBoi4f/view?usp=drive_link) and [transcript](../../content/vids/scared%20and%20stressed%202_transcript.txt).
 
 - The British FO weren't able to help me at that time.
 - In response to an email I sent to https://carbrayinternational.com/, I receive a notification that my message was blocked by the server. 
