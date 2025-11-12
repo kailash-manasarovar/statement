@@ -631,11 +631,18 @@ function googleTranslateElementInit() {
 
 - Even though I have left the conservatory, the stalking continues online and in person.
 - It's maybe even worse than before.
-- I'm followed on a shopping trip to Iceland by a small wirey black-haired man who is hopping and dancing around as he tracks me around the isles.
-- I'm followed on walks to Las Rotas and random people say disparaging things about me as they walk past, laugh and jeer, point and take photos.
-- Every night, a car runs its engine outside my flats (and everyone else can hear it also of course), but it's just threatening the way whoever it is makes the car engine growl low, sometimes for hours, and often after midnight. 
-- Everything is threatening to me now.
-- I'm overwhelmed with sexual arousal yet again.
+- Perhaps my attendance at a government educational organization afforded me some safety which was now removed and so the porn-gang feeding-frenzy could really begin.
+- Bali was coming up too, and I needed prepping for that. 
+- The Bali trip also probably afforded me a little bit of safety; some delay before they came in for the kill I expect.
+- One Saturday in April, I'm followed on a shopping trip to Iceland by a small wirey longish black-haired Spaniard who is hopping and dancing around as he tracks me around the isles.
+- I'm followed on walks to Las Rotas, and random people say disparaging things about me as they walk past, laughing and jeering; they point and take photos of me.
+- Cars start beeping as they pass my apartment on Carrer Furs which is not a busy street.
+- Every night, someone runs their car engine outside my apartment as I'm trying to get to sleep.
+- The engine low-level runs, then spits and growls, sometimes for hours, and often after midnight.
+- It is a red rally-type sports car which always drives away eventually as if it is owned by a non-resident.
+- Everything that happens to me is a threat now.
+- I'm overwhelmed with sexual arousal in my apartment yet again, normally at lunchtimes between 13:00-16:00.
+- Am I starring in the spy-cam masturbating lunchtime special?
 
 ### Hackers seem to be annoyed
 
