@@ -438,7 +438,7 @@ function googleTranslateElementInit() {
 
 ### WhatsApp with Roberto the English-speaking lawyer
 
-- Here's the rest of our communication on [WhatsApp content with Roberto](../../content/whatsapps/WhatsApp%20Chat%20with%20Robert%20Rodriguez.zip) over the next months.
+- Here's the rest of my communication on [WhatsApp with Roberto](../../content/whatsapps/WhatsApp%20Chat%20with%20Robert%20Rodriguez.zip) over the next months.
 - He clearly doesn't want anything to do with me.
 - One wonders what he found out and whether his updated WhatsApp pic suggests he knew *exactly* what was happening to me.
 
