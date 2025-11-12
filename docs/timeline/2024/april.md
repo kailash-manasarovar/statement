@@ -258,7 +258,6 @@ function googleTranslateElementInit() {
 ## The third time I'm convinced I'm going to be arrested
 
 - I believe I'm going to be arrested at any moment. 
-- Like [the second time the August previous](../2023/august.md#i-become-convinced-im-going-to-be-arrested), I carry my copy of A Course In Miracles, text and workbook, in my bag wherever I go, just in case I am arrested, and until the certainty wears off.
 
 <audio controls>
     <source src="../../../content/sounds/i-have-the-feeling-im-going-to-be-arrested.mp3" type="audio/mpeg">
@@ -273,18 +272,17 @@ function googleTranslateElementInit() {
 
 ![Email asking for help](../../content/documents/emails/worried-the-conservatory-will-accuse-me-of-defamation.png)
 
-- I get a response from someone and I video a call with them.
-- I attach the videos of the call below. 
+- I also call the British Foreign Office in Spain and speak to a lady called Lisa.
+- I attach the videos and transcripts of the call below. 
 - I'm obviously extremely stressed and scared. 
 
-    - [Video of me speaking about this at this time - part 1](https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing).
-    - [Video of me speaking about this at this time - part 2](https://drive.google.com/file/d/1kT-BFILgBWnVTBALHepboNzpGCxBoi4f/view?usp=drive_link).
+    - [Video of me speaking about this at this time - part 1](https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing) and [transcript](../../content/vids/scared%20and%20stressed%201_transcript.txt).
+    - [Video of me speaking about this at this time - part 2](https://drive.google.com/file/d/1kT-BFILgBWnVTBALHepboNzpGCxBoi4f/view?usp=drive_link) and [transcript](../../content/vids/scared%20and%20stressed%202_transcript.txt).
 
-- (I can't watch this actually, it's too triggering. I wonder if this is the key to the manipulation; playing back a person's own voice in particular situations such as intense fear, or orgasm).
-- I contacted so many lawyers, I'm not sure why I didn't go ahead with some of them. 
-- I'm not even sure who Lisa in the video was now I was so stressed at the time. I'll add her details here if and when I find them. I guess she could have been someone connected to the criminal gangs.
-- In response to the email I sent to https://carbrayinternational.com/, I receive a notification that my message was blocked by the server. 
-- Eventually, I find a lawyer who can help me if I'm arrested who speaks English, Roberto Rodriguez based in Alicante.
+- The British FO weren't able to help me at that time.
+- In response to an email I sent to https://carbrayinternational.com/, I receive a notification that my message was blocked by the server. 
+- All the other lawyers, apart from a couple of them, say they cannot help me, or don't have someone who can deal with me in English.
+- Eventually, I find a lawyer who can help me if I'm arrested who speaks English and is registered with a British legal authority; Roberto Rodriguez based in Alicante.
 - He also says he can also help me with any translating I need done with the cyber-expert.
 - I believe now that I may have been shepherded towards this person online, as usual.
 
