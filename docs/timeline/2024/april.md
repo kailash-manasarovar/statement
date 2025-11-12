@@ -267,7 +267,7 @@ function googleTranslateElementInit() {
 - It's interesting I state it as a *feeling*.
 - It was a very strong fearfulness, actually.
 - Given the outrageous behavior of teachers and staff at the conservatory, and the total disinterest of the police, and the seriousness of what's happening to me, I'm quite sure that anything is possible.
-- I'm convinced that online triggering from hackers and stalkers was exacerbating this feeling.
+- I'm convinced that online triggering from hackers and online-stalkers was exacerbating this feeling.
 - I search for a lawyer and send an email to a number of lawyers in the region asking for help.
 
 ![Email asking for help](../../content/documents/emails/worried-the-conservatory-will-accuse-me-of-defamation.png)
@@ -282,7 +282,7 @@ function googleTranslateElementInit() {
 - The British FO weren't able to help me at that time.
 - In response to an email I sent to https://carbrayinternational.com/, I receive a notification that my message was blocked by the server. 
 - All the other lawyers, apart from a couple of them, say they cannot help me, or don't have someone who can deal with me in English.
-- Eventually, I find a lawyer who can help me if I'm arrested who speaks English and is registered with a British legal authority; Roberto Rodriguez based in Alicante.
+- Eventually, I find a lawyer who can help me if I'm arrested who speaks English and is registered with a British legal authority; [Roberto Rodriguez](#roberto-rodriguez-lawyer) based in Alicante.
 - He also says he can also help me with any translating I need done with the cyber-expert.
 - I believe now that I may have been shepherded towards this person online, as usual.
 
