@@ -333,7 +333,8 @@ function googleTranslateElementInit() {
 - In one voice recording during our WhatsApp chat he tells me he is at the company and they are expecting my call: `PTT-20240418-WA0002.opus`.
 - I guess he knows these guys personally.
 - I have no recollection of communicating with this company although I do seem to have made a 9 minute call to them on 18th April.
-- Whatever was said, as far as I know, I had no further communication with them and decided to continue with DPR.
+- Whatever was said, as far as I know, I had no further communication with them that day and decided to continue with DPR.
+- Curiously, I have a [somewhat concerning communication with them](#technofix) on 28th October 2024, the week they try to murder me in my own home by poisoning.
 - Here's my WhatsApp communication with Roberto up to Thursday 18th, the night before I visit the cyber expert DPR.
 
 ??? tip "WhatsApp with Roberto"
