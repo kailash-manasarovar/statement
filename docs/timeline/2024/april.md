@@ -564,7 +564,7 @@ function googleTranslateElementInit() {
 - Nevertheless, I feel that I probably can't trust anyone here either, so I only give them a few devices, and not the devices I am certain will come up positive for hacking.
 - I give David the following devices:
     - My Asus Zenbook 13 laptop: He finds nothing on here so I ask him to reformat the device for me. This device could be rechecked now as it was connected again to my new Movistar router which was accessed by hackers immediately. On another reformat of this device in [December 2024](../2024/december.md#new-years-eve), they were in again in seconds. I have this device stored safely and believe the hardware is probably hacked.
-    - The Yoigo router: David asks for the password to the router over WhatsApp after a long duration of inactivity. I give it to him. He subsequently says that he can't analyze routers. What did he need the password for then? I kept the router so we can check again.
+    - The Yoigo router: David asks for the password to the router over WhatsApp after a long period of inactivity in which myself and my friend from Madrid are surprised we have had no communication from them. I give it to him. He subsequently says that he can't analyze routers. What did he need the password for then? I kept the router so we can check again.
     - Two security cameras: There was no storage card in one of the webcams so he could not check anything here. The other one gave no results. I don't know what happened to the card. I kept the security cam with the men making scary ghost noises on it secured safely for future analysis and never gave it to David.
 - When I go to collect my devices in May, I pay 150 euros of the quoted 600.
 - He's found nothing.
