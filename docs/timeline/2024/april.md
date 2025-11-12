@@ -337,79 +337,79 @@ function googleTranslateElementInit() {
 - Here's my WhatsApp communication with Roberto up to Thursday 18th, the night before I visit the cyber expert DPR.
 
 ??? tip "WhatsApp with Roberto"
-    18/04/2024, 17:43 - det sgt lydia cleaves: Hola Roberto this is the company https://dprrecovery.com/contacto/
-    18/04/2024, 17:43 - det sgt lydia cleaves: And the address is ...
-    18/04/2024, 17:45 - det sgt lydia cleaves: You can see it on there..
-    18/04/2024, 17:46 - det sgt lydia cleaves: I think the Chinese perito in Denia is involved in this too so I just don't know who to trust 😞
-    18/04/2024, 17:46 - det sgt lydia cleaves: See you tomorrow at 13:00
-    18/04/2024, 17:46 - det sgt lydia cleaves: I am Katharine Murphy
-    18/04/2024, 17:47 - det sgt lydia cleaves: I had to buy new phones and make new accounts on everything,that is why you see a funny name
-    18/04/2024, 18:02 - det sgt lydia cleaves: Calle Arzobispo Loaces 17 Local 03003 Alicante
-    18/04/2024, 19:24 - Robert Rodriguez: Ok It IS in the centre yes
-    18/04/2024, 19:25 - det sgt lydia cleaves: Ok
-    18/04/2024, 19:25 - Robert Rodriguez: Let me see if I fi now to the other shop and try to call them this evening
-    18/04/2024, 19:25 - det sgt lydia cleaves: Ok thank you much appreciated
-    18/04/2024, 19:25 - Robert Rodriguez: What IS exactly what you need and in what devices??
-    18/04/2024, 19:25 - det sgt lydia cleaves: I have 2 security cams, 1 laptop, and a router
-    18/04/2024, 19:26 - Robert Rodriguez: PTT-20240418-WA0000.opus (file attached - this is where he asks me where are the security cams)
-    18/04/2024, 19:26 - det sgt lydia cleaves: I need analysis for intrusion through the router, Mac spoofing, spyware, man in the middle attack, DNS spoofing,
-    18/04/2024, 19:26 - det sgt lydia cleaves: Anything weird
-    18/04/2024, 19:27 - det sgt lydia cleaves: The security cameras watch the house when I was away
-    18/04/2024, 19:27 - det sgt lydia cleaves: They connect to the router and are very easy to attack
-    18/04/2024, 19:27 - Robert Rodriguez: Ok
-    18/04/2024, 19:28 - Robert Rodriguez: PTT-20240418-WA0001.opus (file attached - this is where he asks me what company I work for)
-    18/04/2024, 19:28 - det sgt lydia cleaves: I work for a company called polygon but I'm not bringing any of their devices
-    18/04/2024, 19:28 - det sgt lydia cleaves: And they have taken steps on their side
-    18/04/2024, 19:29 - Robert Rodriguez: Ok no idea of the company
-    18/04/2024, 19:29 - det sgt lydia cleaves: Because they noticed the router breach when I asked them to check it
-    18/04/2024, 19:29 - det sgt lydia cleaves: Their security team found evidence of a breach at the router about 4/6 weeks ago
-    18/04/2024, 19:29 - det sgt lydia cleaves: I had to stop working from home
-    18/04/2024, 19:30 - det sgt lydia cleaves: At the same time there was a very big psychological attack by the conservatory at the piano concert
-    18/04/2024, 19:30 - det sgt lydia cleaves: My webcam was accessed at that time and the day after
-    18/04/2024, 19:30 - det sgt lydia cleaves: That day and following day there was serious threatening activity in the street
-    18/04/2024, 19:31 - det sgt lydia cleaves: So I left for Madrid and lived in hotels for 2 weeks
-    18/04/2024, 19:31 - det sgt lydia cleaves: I didn't feel safe at all
-    18/04/2024, 19:31 - det sgt lydia cleaves: Men made scary "ghost" noises on the webcam
-    18/04/2024, 19:32 - det sgt lydia cleaves: It's related to a friend who committed suicide here 3 years ago who they were suggesting they did the same thing to and drove her to it, or worse
-    18/04/2024, 19:32 - det sgt lydia cleaves: That was my assessment of the threats, and I took it seriously, and still do
-    18/04/2024, 19:34 - Robert Rodriguez: Ok the most relevant thing of It all IS obviously the evidence . Use your phone to record weird things
-    18/04/2024, 19:34 - det sgt lydia cleaves: Yes I could have so many things but I haven't been recording anything
-    18/04/2024, 19:34 - det sgt lydia cleaves: I believe they will stop now because they know I am leaving
-    18/04/2024, 19:35 - det sgt lydia cleaves: And they have gone to the police about me... When I asked for details they didn't answer
-    18/04/2024, 19:35 - Robert Rodriguez: Thats a problem of course but if in the future It happens again...
-    18/04/2024, 19:35 - det sgt lydia cleaves: I think they will have denounced me falsely
-    18/04/2024, 19:36 - Robert Rodriguez: In what basis? Cant be a Big deal at all
-    18/04/2024, 19:36 - det sgt lydia cleaves: So I would like to defend this robustly if it comes to pass
-    18/04/2024, 19:36 - det sgt lydia cleaves: Defamation maybe
-    18/04/2024, 19:36 - det sgt lydia cleaves: Because I complained to the generalitat in private in letters about what was happening
-    18/04/2024, 19:37 - det sgt lydia cleaves: As it all relates to me turning down a piano teacher romantically 10 years ago
-    18/04/2024, 19:37 - det sgt lydia cleaves: And behaves extremely inappropriately with young girls
-    18/04/2024, 19:37 - det sgt lydia cleaves: And I voiced my concernd
-    18/04/2024, 19:37 - det sgt lydia cleaves: Concerns
-    18/04/2024, 19:37 - det sgt lydia cleaves: I did not accuse anyone of anything
-    18/04/2024, 19:38 - det sgt lydia cleaves: This man threatened me with violence at that time too
-    18/04/2024, 19:38 - det sgt lydia cleaves: They have been gang stalking me on twitter also
-    18/04/2024, 19:38 - Robert Rodriguez: PTT-20240418-WA0002.opus (file attached - he is at the Technofix shop now and tells me to call them)
-    18/04/2024, 19:38 - det sgt lydia cleaves: And I said a lot of things on twitter but no accusations
-    18/04/2024, 19:39 - det sgt lydia cleaves: Ok what's the number
-    18/04/2024, 19:39 - det sgt lydia cleaves: Do they speak English
-    18/04/2024, 19:39 - Robert Rodriguez: Tecnofix Informatica.vcf (file attached)
-    18/04/2024, 19:40 - Robert Rodriguez: Yes
-    18/04/2024, 19:40 - det sgt lydia cleaves: Ok
-    18/04/2024, 19:40 - Robert Rodriguez: Call them now pls
-    18/04/2024, 19:49 - Robert Rodriguez: null
-    18/04/2024, 20:19 - det sgt lydia cleaves: Just one other thing is that I believe (know actually) that they have extremely private videos and recordings of me, of a sexual nature, and i expect planned to blackmail me with them at some point but I would be happy if they became public because then there would be excellent evidence .
-    18/04/2024, 20:20 - det sgt lydia cleaves: My question is .. given that many many people here in Denia will have seen these, it cannot be too hard to find them, do you have any idea of how we could get copies, ie private detective services maybe??
-    18/04/2024, 20:41 - Robert Rodriguez: The Police should be able to do It better than anyone Kate
-    18/04/2024, 20:41 - det sgt lydia cleaves: But they want me to prove it exists to them first before they investigate! I know it exists
-    18/04/2024, 20:42 - det sgt lydia cleaves: It's very frustrating
-    18/04/2024, 20:42 - Robert Rodriguez: No, if you report It they should investigate it
-    18/04/2024, 20:42 - det sgt lydia cleaves: Ok
-    18/04/2024, 20:43 - Robert Rodriguez: This is why may be It IS better to use a lawyer, cos It sounds weird and they may think you are exagerating
-    18/04/2024, 20:43 - det sgt lydia cleaves: Exactly
-    18/04/2024, 20:43 - det sgt lydia cleaves: See you manyana
-    18/04/2024, 20:43 - Robert Rodriguez: Ok
-    18/04/2024, 22:16 - det sgt lydia cleaves: Remind me to tell you about the CCTV there probably is..
+    18/04/2024, 17:43 - det sgt lydia cleaves: Hola Roberto this is the company https://dprrecovery.com/contacto/</br>
+    18/04/2024, 17:43 - det sgt lydia cleaves: And the address is ...</br>
+    18/04/2024, 17:45 - det sgt lydia cleaves: You can see it on there..</br>
+    18/04/2024, 17:46 - det sgt lydia cleaves: I think the Chinese perito in Denia is involved in this too so I just don't know who to trust 😞</br>
+    18/04/2024, 17:46 - det sgt lydia cleaves: See you tomorrow at 13:00</br>
+    18/04/2024, 17:46 - det sgt lydia cleaves: I am Katharine Murphy</br>
+    18/04/2024, 17:47 - det sgt lydia cleaves: I had to buy new phones and make new accounts on everything,that is why you see a funny name</br>
+    18/04/2024, 18:02 - det sgt lydia cleaves: Calle Arzobispo Loaces 17 Local 03003 Alicante</br>
+    18/04/2024, 19:24 - Robert Rodriguez: Ok It IS in the centre yes</br>
+    18/04/2024, 19:25 - det sgt lydia cleaves: Ok</br>
+    18/04/2024, 19:25 - Robert Rodriguez: Let me see if I fi now to the other shop and try to call them this evening</br>
+    18/04/2024, 19:25 - det sgt lydia cleaves: Ok thank you much appreciated</br>
+    18/04/2024, 19:25 - Robert Rodriguez: What IS exactly what you need and in what devices??</br>
+    18/04/2024, 19:25 - det sgt lydia cleaves: I have 2 security cams, 1 laptop, and a router</br>
+    18/04/2024, 19:26 - Robert Rodriguez: PTT-20240418-WA0000.opus (file attached - this is where he asks me where are the security cams)</br>
+    18/04/2024, 19:26 - det sgt lydia cleaves: I need analysis for intrusion through the router, Mac spoofing, spyware, man in the middle attack, DNS spoofing,</br>
+    18/04/2024, 19:26 - det sgt lydia cleaves: Anything weird</br>
+    18/04/2024, 19:27 - det sgt lydia cleaves: The security cameras watch the house when I was away</br>
+    18/04/2024, 19:27 - det sgt lydia cleaves: They connect to the router and are very easy to attack</br>
+    18/04/2024, 19:27 - Robert Rodriguez: Ok</br>
+    18/04/2024, 19:28 - Robert Rodriguez: PTT-20240418-WA0001.opus (file attached - this is where he asks me what company I work for)</br>
+    18/04/2024, 19:28 - det sgt lydia cleaves: I work for a company called polygon but I'm not bringing any of their devices</br>
+    18/04/2024, 19:28 - det sgt lydia cleaves: And they have taken steps on their side</br>
+    18/04/2024, 19:29 - Robert Rodriguez: Ok no idea of the company</br>
+    18/04/2024, 19:29 - det sgt lydia cleaves: Because they noticed the router breach when I asked them to check it</br>
+    18/04/2024, 19:29 - det sgt lydia cleaves: Their security team found evidence of a breach at the router about 4/6 weeks ago</br>
+    18/04/2024, 19:29 - det sgt lydia cleaves: I had to stop working from home</br>
+    18/04/2024, 19:30 - det sgt lydia cleaves: At the same time there was a very big psychological attack by the conservatory at the piano concert</br>
+    18/04/2024, 19:30 - det sgt lydia cleaves: My webcam was accessed at that time and the day after</br>
+    18/04/2024, 19:30 - det sgt lydia cleaves: That day and following day there was serious threatening activity in the street</br>
+    18/04/2024, 19:31 - det sgt lydia cleaves: So I left for Madrid and lived in hotels for 2 weeks</br>
+    18/04/2024, 19:31 - det sgt lydia cleaves: I didn't feel safe at all</br>
+    18/04/2024, 19:31 - det sgt lydia cleaves: Men made scary "ghost" noises on the webcam</br>
+    18/04/2024, 19:32 - det sgt lydia cleaves: It's related to a friend who committed suicide here 3 years ago who they were suggesting they did the same thing to and drove her to it, or worse</br>
+    18/04/2024, 19:32 - det sgt lydia cleaves: That was my assessment of the threats, and I took it seriously, and still do</br>
+    18/04/2024, 19:34 - Robert Rodriguez: Ok the most relevant thing of It all IS obviously the evidence . Use your phone to record weird things</br>
+    18/04/2024, 19:34 - det sgt lydia cleaves: Yes I could have so many things but I haven't been recording anything</br>
+    18/04/2024, 19:34 - det sgt lydia cleaves: I believe they will stop now because they know I am leaving</br>
+    18/04/2024, 19:35 - det sgt lydia cleaves: And they have gone to the police about me... When I asked for details they didn't answer</br>
+    18/04/2024, 19:35 - Robert Rodriguez: Thats a problem of course but if in the future It happens again...</br>
+    18/04/2024, 19:35 - det sgt lydia cleaves: I think they will have denounced me falsely</br>
+    18/04/2024, 19:36 - Robert Rodriguez: In what basis? Cant be a Big deal at all</br>
+    18/04/2024, 19:36 - det sgt lydia cleaves: So I would like to defend this robustly if it comes to pass</br>
+    18/04/2024, 19:36 - det sgt lydia cleaves: Defamation maybe</br>
+    18/04/2024, 19:36 - det sgt lydia cleaves: Because I complained to the generalitat in private in letters about what was happening</br>
+    18/04/2024, 19:37 - det sgt lydia cleaves: As it all relates to me turning down a piano teacher romantically 10 years ago</br>
+    18/04/2024, 19:37 - det sgt lydia cleaves: And behaves extremely inappropriately with young girls</br>
+    18/04/2024, 19:37 - det sgt lydia cleaves: And I voiced my concernd</br>
+    18/04/2024, 19:37 - det sgt lydia cleaves: Concerns</br>
+    18/04/2024, 19:37 - det sgt lydia cleaves: I did not accuse anyone of anything</br>
+    18/04/2024, 19:38 - det sgt lydia cleaves: This man threatened me with violence at that time too</br>
+    18/04/2024, 19:38 - det sgt lydia cleaves: They have been gang stalking me on twitter also</br>
+    18/04/2024, 19:38 - Robert Rodriguez: PTT-20240418-WA0002.opus (file attached - he is at the Technofix shop now and tells me to call them)</br>
+    18/04/2024, 19:38 - det sgt lydia cleaves: And I said a lot of things on twitter but no accusations</br>
+    18/04/2024, 19:39 - det sgt lydia cleaves: Ok what's the number</br>
+    18/04/2024, 19:39 - det sgt lydia cleaves: Do they speak English</br>
+    18/04/2024, 19:39 - Robert Rodriguez: Tecnofix Informatica.vcf (file attached)</br>
+    18/04/2024, 19:40 - Robert Rodriguez: Yes</br>
+    18/04/2024, 19:40 - det sgt lydia cleaves: Ok</br>
+    18/04/2024, 19:40 - Robert Rodriguez: Call them now pls</br>
+    18/04/2024, 19:49 - Robert Rodriguez: null (I call them)</br>
+    18/04/2024, 20:19 - det sgt lydia cleaves: Just one other thing is that I believe (know actually) that they have extremely private videos and recordings of me, of a sexual nature, and i expect planned to blackmail me with them at some point but I would be happy if they became public because then there would be excellent evidence .</br>
+    18/04/2024, 20:20 - det sgt lydia cleaves: My question is .. given that many many people here in Denia will have seen these, it cannot be too hard to find them, do you have any idea of how we could get copies, ie private detective services maybe??</br>
+    18/04/2024, 20:41 - Robert Rodriguez: The Police should be able to do It better than anyone Kate</br>
+    18/04/2024, 20:41 - det sgt lydia cleaves: But they want me to prove it exists to them first before they investigate! I know it exists</br>
+    18/04/2024, 20:42 - det sgt lydia cleaves: It's very frustrating</br>
+    18/04/2024, 20:42 - Robert Rodriguez: No, if you report It they should investigate it</br>
+    18/04/2024, 20:42 - det sgt lydia cleaves: Ok</br>
+    18/04/2024, 20:43 - Robert Rodriguez: This is why may be It IS better to use a lawyer, cos It sounds weird and they may think you are exagerating</br>
+    18/04/2024, 20:43 - det sgt lydia cleaves: Exactly</br>
+    18/04/2024, 20:43 - det sgt lydia cleaves: See you manyana</br>
+    18/04/2024, 20:43 - Robert Rodriguez: Ok</br>
+    18/04/2024, 22:16 - det sgt lydia cleaves: Remind me to tell you about the CCTV there probably is..</br>
 
 - Later, I read online that a man [has been removed from political office in Toledo](https://www.timesnownews.com/world/europe/spanish-politician-daniel-gmez-del-barrio-resigns-after-photos-reveal-he-offered-himself-as-sex-slave-article-109256687) after spy cam porn was released of him.
 - I find this very similar to what's going on for me.
