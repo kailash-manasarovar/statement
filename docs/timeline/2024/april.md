@@ -571,7 +571,53 @@ function googleTranslateElementInit() {
 - He says he can check all my Twitter activity instead, so I give him both my account details and send full archives too.
 - I have never heard back from him on any of it.
 - Why?
-- Here is the [WhatsApp](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20DPR%20Recovery%20Alicante%20-%20GoldenPhone%20informática.zip) chat to DPR.
+- Here is the [WhatsApp](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20DPR%20Recovery%20Alicante%20-%20GoldenPhone%20informática.zip) chat to DPR:
+
+??? tip "WhatsApp with DPR Recovery"
+    29/04/2024, 15:53 - Messages and calls are end-to-end encrypted. Only people in this chat can read, listen to, or share them. Learn more.
+    29/04/2024, 15:53 - DPR Recovery Alicante - GoldenPhone informática is a contact
+    29/04/2024, 15:53 - DPR Recovery Alicante - GoldenPhone informática: Buenos dias Katherine, soy Nuria del Laboratorio de recuperación DPR Recovery, Sobre el análisis de los dispositivos, no tardaremos en darte noticias
+    Hemos tenido retraso porque el compañero ha estado con unos juicios anteriores  y no ha podido terminar el tuyo pero lo antes posible volvemos a informarte
+    Disculpa la tardanza
+    29/04/2024, 15:54 - det sgt lydia cleaves: Ok gracias 😊
+    29/04/2024, 15:54 - DPR Recovery Alicante - GoldenPhone informática: cuando puedas dime un correo electrónico porque el que tengo apuntado me dice que no es correcto, este es el que tengo : katherinejchardwood@gmail.com
+    29/04/2024, 15:55 - det sgt lydia cleaves: Si es corecto y acabo de enviarle un mensaje
+    29/04/2024, 15:56 - det sgt lydia cleaves: Para informales estou aqui en Denia hasta fin de semana y desoues estoy fuera 2 semanas regresando el dia 20
+    29/04/2024, 15:56 - det sgt lydia cleaves: De mayo
+    29/04/2024, 15:57 - det sgt lydia cleaves: Espero qué podemos reunir esta semana
+    29/04/2024, 15:57 - det sgt lydia cleaves: El dia 19 de mayo de hecho
+    29/04/2024, 15:59 - DPR Recovery Alicante - GoldenPhone informática: ok, cualquier cosa te informamos
+    29/04/2024, 15:59 - det sgt lydia cleaves: Gracias
+    07/05/2024, 16:02 - det sgt lydia cleaves: Hola hay una actualizacion por favor?
+    07/05/2024, 16:56 - det sgt lydia cleaves: Le envio un email ...
+    07/05/2024, 17:02 - DPR Recovery Alicante - GoldenPhone informática: Hola, le he pasado nota al compañero y me dice que tiene que terminar el analisis para poder decirte como esta todo, te informaremos pronto
+    07/05/2024, 17:03 - det sgt lydia cleaves: Gracias
+    07/05/2024, 17:03 - det sgt lydia cleaves: Por email mejor katharinejchardwood@gmail.com
+    07/05/2024, 17:07 - DPR Recovery Alicante - GoldenPhone informática: si, te lo envia por mail cuando lo tenga todo claro
+    23/05/2024, 13:36 - DPR Recovery Alicante - GoldenPhone informática: Buenos dias, me ha comentado el compañero que quieres formatear el ordenador
+    23/05/2024, 13:36 - DPR Recovery Alicante - GoldenPhone informática: se borran todos los datos
+    23/05/2024, 13:37 - DPR Recovery Alicante - GoldenPhone informática: es eso lo que quieres??
+    23/05/2024, 13:55 - DPR Recovery Alicante - GoldenPhone informática: y aparte necesitamos la clave del router
+    23/05/2024, 14:10 - det sgt lydia cleaves: Si borrar todo
+    23/05/2024, 14:10 - det sgt lydia cleaves: Clave =
+    23/05/2024, 14:12 - det sgt lydia cleaves: Saturday-healthy-grommet-tranche
+    23/05/2024, 14:12 - det sgt lydia cleaves: Vengo esta tarde a las 5.30
+    23/05/2024, 14:13 - DPR Recovery Alicante - GoldenPhone informática: ok, y solo ponemos ubuntu ??
+    23/05/2024, 14:13 - det sgt lydia cleaves: Si clean installation
+    23/05/2024, 14:13 - det sgt lydia cleaves: Porfa
+    23/05/2024, 14:13 - DPR Recovery Alicante - GoldenPhone informática: ok
+    23/05/2024, 14:14 - det sgt lydia cleaves: Dime si no funciona el password
+    23/05/2024, 14:14 - DPR Recovery Alicante - GoldenPhone informática: y el usuario??
+    23/05/2024, 14:16 - det sgt lydia cleaves: No se lo de normal.. the default
+    23/05/2024, 14:23 - DPR Recovery Alicante - GoldenPhone informática: me dice el compañero que esa no funciona la clave, necesitamos la de entrada al router (no wifi)
+    23/05/2024, 15:35 - det sgt lydia cleaves: Intenta la misma con miniscule s ... saturday..
+    23/05/2024, 15:36 - DPR Recovery Alicante - GoldenPhone informática: ya lo ha probado y no entra
+    23/05/2024, 15:38 - det sgt lydia cleaves: Ok one moment
+    23/05/2024, 15:41 - det sgt lydia cleaves: Try..
+    23/05/2024, 15:41 - det sgt lydia cleaves: saturdayhealthygrommettranche
+    23/05/2024, 16:25 - DPR Recovery Alicante - GoldenPhone informática: ok, esa si
+    23/05/2024, 16:27 - det sgt lydia cleaves: 😅
+    06/11/2025, 10:13 - det sgt lydia cleaves: https://fearandloathinginlasmarinas.com/
 
 ## I get an Orange SIM
 
