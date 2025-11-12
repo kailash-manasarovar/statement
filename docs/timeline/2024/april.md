@@ -619,12 +619,14 @@ function googleTranslateElementInit() {
     23/05/2024, 16:27 - det sgt lydia cleaves: 😅
     06/11/2025, 10:13 - det sgt lydia cleaves: https://fearandloathinginlasmarinas.com/
 
-## I get an Orange SIM
+## I buy an Orange SIM
 
-- I go to Orange in Dénia to get a SIM for my analog phone that cannot connect to Internet.
-- I'm hoping that I can use it in emergencies and that I can't be followed using it in the way that I have been.
-- The number they give me ends in 007.
-- I buy another simple phone which won't have access to Internet on Amazon: https://www.amazon.co.uk/gp/your-account/order-details?ie=UTF8&orderID=203-8343216-4317911&ref=ppx_yo2ov_dt_b_fed_order_details
+- I go to the Orange shop in Dénia to get a SIM for my analog phone.
+- I want a basic SIM that does not connect to the Internet.
+- I'm hoping that I can use it in emergencies, and that I can't be followed using it in the way that I have been.
+- The number they give me ends in `007`.
+- I buy another simple phone without Internet access on Amazon to use it with.
+- When I take this phone out on [5th October in Dénia](october.md#saturday-5th-october), I'm tracked and followed.
 
 ## Constant stalking
 
