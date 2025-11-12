@@ -525,36 +525,37 @@ function googleTranslateElementInit() {
 
 ## DPR cyber-expert Alicante
 
-- Robert Rodriguez cancels our meeting at the DPR offices the following morning, but tells me he can translate over the phone.
-- I feel like Roberto was there. I was out of my mind at DPR offices that morning.
-- I wonder what else happened.
-- When we speak, I mention the news report of the politician on spy-cam porn. I tell him this is what has been happening to me and I say it's epidemic to the lawyer.
-- Roberto shuts the conversation down.
+- Roberto the lawyer cancels our meeting at the DPR offices the following morning, but tells me he can translate over the phone.
+- I have very confused recollections of this morning except for feeling stressed and anxious, and out-of-my-mind for no particular reason.
+- I put it down to everything that is happening, but it's not just that.
+- When I speak to Roberto, I mention the news report of the politician on spy-cam porn that I saw. I tell him this is what has been happening to me and I say it's epidemic.
+- Roberto shuts the conversation theme down.
+- I explain later on WhatsApp what I was trying to say.
 
 ??? info "WhatsApp with Roberto Rodriguez"
-    19/04/2024, 18:47 - det sgt lydia cleaves: Done. Thanks for the help today :)
-    19/04/2024, 18:48 - det sgt lydia cleaves: They're gonna let me know when they're finished and I'll come and collect these things
-    19/04/2024, 18:48 - Robert Rodriguez: Cool
-    19/04/2024, 23:36 - det sgt lydia cleaves: Thanks for the help this week Robert. I'm confident we will get some results that will mean the police will take us seriously... The politician I was mentioning, I don't think he was hacked in the end, I think he wanted to be humiliated but Im certain that the hacking I'm suffering is epidemic .. anyway wishing you a wonderful weekend and I'll ping you as soon as there is any news 😊
-    19/04/2024, 23:53 - Robert Rodriguez: Ok but you need to be concerned only about your on case and about getting evidence now and after reporting It to make progress and stop the harassment. BEST weekenk
+    19/04/2024, 18:47 - det sgt lydia cleaves: Done. Thanks for the help today :)</br>
+    19/04/2024, 18:48 - det sgt lydia cleaves: They're gonna let me know when they're finished and I'll come and collect these things</br>
+    19/04/2024, 18:48 - Robert Rodriguez: Cool</br>
+    19/04/2024, 23:36 - det sgt lydia cleaves: Thanks for the help this week Robert. I'm confident we will get some results that will mean the police will take us seriously... The politician I was mentioning, I don't think he was hacked in the end, I think he wanted to be humiliated but Im certain that the hacking I'm suffering is epidemic .. anyway wishing you a wonderful weekend and I'll ping you as soon as there is any news 😊</br>
+    19/04/2024, 23:53 - Robert Rodriguez: Ok but you need to be concerned only about your on case and about getting evidence now and after reporting It to make progress and stop the harassment. BEST weekenk</br>
 
+- I am so stressed in the DPR office. 
+- I explain a little bit about what's happening and that I have been filmed sexually without my knowledge.
+- Mostly, I pass the phone to them and Roberto does the talking.
 
-- The Roberto Rodriguez thing is a very dodgy business.
-- I am so stressed in the DPR office, it seems he is with me, but I don't think he ever came.
-- Move WhatsApps content into here: todo:
-- Here's a couple of pics, all content to be organized shortly.
-
-!!! info
-    - It's very weird but I cannot remember if I met him in person or not in Alicante at [DPR](../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf).
-    - I was extremely stressed and had a long conversation with him, I can't remember when now.
+!!! info "My state of mind that morning"
+    - It's very weird but I have a feeling Roberto was there in person that morning.
+    - I was extremely stressed.
     - My mind was clearly overwhelmed at this time. I felt then, and now to a lesser extent, extremely absent-minded and forgetful, as if there is literally no space for any more information.
-    - Was I close to cracking and having a nervous breakdown? I believe this is possible. 
+    - Was I close to cracking and having a nervous breakdown? 
+    - I believe this is possible. 
     - Although the anxiety I experienced this year never approached the intense anxiety I had experienced as PTSD from sexual violence, I do remember shaking, and not being able to perform simple tasks, and I couldn't think or speak clearly at all.
     - I also wonder if they were drugging me again through the water at home or some other way?
+    - I wonder if another *distraction* event happened on my way to the offices.
 
 - I take the Asus Zenbook 13 that they took over in France the summer previous, the Yoigo router, and two webcams which I believe they accessed to the expert at DPR in Alicante.
 - I meet David and his assistant.
-- The lawyer helps with translating, I believe over the phone, but he may have been present.
+- The lawyer helps with translating over the phone, I believe. It might be good to get some clarification from DPR.
 - I tell them about how they have sexual films of me. I'm clearly very upset.
 - The lady in the shop is bound to remember me as she looked very alarmed when I was telling her how I had been filmed sexually without my knowledge.
 - However, I feel that I probably can't trust anyone here, so I only give them a few devices, and not the devices I am certain will come up positive for hacking.
@@ -562,7 +563,7 @@ function googleTranslateElementInit() {
     - My Asus Zenbook 13 laptop: He finds nothing on here so I ask him to reformat the device for me. This device could be rechecked now as it was connected again to my new Movistar router which was accessed by hackers immediately it was installed.
     - The Yoigo router: He asks for the password to the router. I give it to him. He then says that he can't analyze routers. Why did he need the password then? I kept the router so we can check again.
     - Two security cameras: There was no storage card in one of the webcams so he could not check anything here. I don't know what happened to the card.
-- When I go to collect my devices, I pay 150 euros and he says he can check all my Twitter activity instead, so I give him both my account details and send Twitter archives too.
+- When I go to collect my devices in May, I pay 150 euros and he says he can check all my Twitter activity instead, so I give him both my account details and send Twitter archives too.
 - I have never heard back from him on any of it.
 - Here is my [WhatsApp](../../content/whatsapps/April%202024/WhatsApp%20Chat%20with%20DPR%20Recovery%20Alicante%20-%20GoldenPhone%20informática.zip) messages to him.
 
