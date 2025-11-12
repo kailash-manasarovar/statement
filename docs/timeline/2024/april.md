@@ -708,7 +708,9 @@ function googleTranslateElementInit() {
 
 ## Counting Omer
 
-- I start counting the Omer on X: https://x.com/1FRGVN/status/1782868597125095773 which gives me some comfort over this period.
+- I start counting the Omer on X which gives me some comfort over this dreadful period.
+
+[![First day of the Omer](../../content/tweets/april-2024/first-day-of-the-omer.jpg)](https://x.com/1FRGVN/status/1782868597125095773)
 
 ## Let Women Speak
 
