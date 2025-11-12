@@ -632,11 +632,11 @@ function googleTranslateElementInit() {
 - Even though I have left the conservatory, the stalking continues online and in person.
 - It's maybe even worse than before.
 - Perhaps my attendance at a government-run educational organization afforded me some safety which was now removed and so the porn-gang feeding-frenzy could really begin.
-- Bali was coming up too, and I needed prepping for that. 
-- The Bali trip also probably afforded me a little bit of safety; some delay before they came in for the kill I expect.
+- My work trip to [Bali](may.md#bali) was coming up too, and I needed porn-prepping for that. 
+- The Bali trip probably afforded me a little bit of safety; some delay before they came in for the kill I expect.
 - One Saturday in April, I'm followed on a shopping trip to Iceland by a small wirey longish-black-haired Spaniard who is hopping and dancing around as he tracks me around the isles.
-- I'm followed on walks to Las Rotas, and random people say disparaging things about me as they walk past, laughing and jeering; they point and take photos of me.
-- Cars start beeping as they pass my apartment on Carrer Furs which is not a busy street.
+- I'm followed on walks to Las Rotas; random people saying disparaging things about me as they walk past laughing; a lot of jeering, pointing, and people taking photos of me.
+- Cars start beeping as they pass my apartment on Carrer Furs, which is not a busy street.
 - Every night, someone runs their car engine outside my apartment as I'm trying to get to sleep.
 - The engine low-level runs, then spits and growls, sometimes for hours, and often after midnight.
 - It is a red rally-type hatchback which always drives away eventually as if it is owned by a non-resident.
@@ -646,27 +646,37 @@ function googleTranslateElementInit() {
 
 ### Hackers seem to be annoyed
 
-- A direct message springs up asking: "Why are your bank cards inaccessible?"
+- A direct message springs up asking: *Why are your bank cards inaccessible?"*
+- Did they actually try to rob me at some point?
+- I guess banking systems will have recorded any weird activity on the backend.
 
 ### Let that sink in
 
-- Google search shows multiple pictures of sinks, i.e. *let that sink in*.
+- Google search shows multiple pictures of sinks in the same way as it has done [tables](../2023/september.md#table) and [fridges](../2025/april.md#fridges) and [boyfriends](../2024/january.md#google-search-results-reinforce-the-idea-of-boyfriends).
+- I take it to mean *let that sink in*.
 
 ![let that sink in](../../content/images/let-that-sink-in.jpg)
 
-- The message was a kind of middle finger to me after having to leave my piano studies.
+- The message, I felt, was a kind of middle finger to me after having to leave my piano studies.
 
 ### Owns conservatory
 
-- There is a lot of content on X about Helen Joyce and the fact she owns a conservatory.
-- Something like this: https://x.com/mcdonnelljp/status/1777747038832136465.
-- The post comes up top, and alone, on my Google searches on mobile. 
-- I don't even remember it very well but I notice the message which I find amazing and makes me think someone is on my side.
+- India Willyboy complains about Helen Joyce and the fact she owns a conservatory.
 
-![owns conservatory](../../content/images/conservatory-1.JPG)
 ![owns conservatory](../../content/images/conservatory-2.JPG)
 
+- A post flies by that I do like.
+
+[![Owns conservatory](../../content/tweets/april-2024/owns-conservatory.jpg)](https://x.com/mcdonnelljp/status/1777747038832136465)
+
+- When I check Google search on my mobile, the post comes up top, and alone.
+- I notice the message *owns conservatory* which I find amazing and makes me think someone is on my side.
+
+![owns conservatory](../../content/images/conservatory-1.JPG)
+
 - Is this manipulated post supposed to make me feel slightly secure against the barrage of abuse?
+- Or is someone really on my side?
+- I guess we're about to find out, aren't we.
 
 ### The boys
 
