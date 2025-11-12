@@ -436,65 +436,72 @@ function googleTranslateElementInit() {
 ### WhatsApp with Roberto the English-speaking lawyer
 
 - Here's the rest of our communication on [WhatsApp content with Roberto](../../content/whatsapps/WhatsApp%20Chat%20with%20Robert%20Rodriguez.zip) over the next months.
+- He clearly doesn't want anything to do with me.
+- One wonders what he found out and whether his updated WhatsApp pic suggests he knew *exactly* what was happening to me.
+
+![Roberto R 1](../../content/images/roberto-rodriguez/roberto-rodriguez-1.jpg)
+![Roberto R 2](../../content/images/roberto-rodriguez/roberto-rodriguez-2.jpg)
 
 ??? info "Final chats on WhatsApp over May and beginning of June"
-    01/05/2024, 00:51 - det sgt lydia cleaves: Hi Robert I have had no news from anyone.
-    01/05/2024, 00:51 - det sgt lydia cleaves: Maybe that's a good thing.
-    01/05/2024, 00:52 - det sgt lydia cleaves: I'm going to be away for a few months over the summer. I wonder if I could set up a redirection service to you in case the police write to me and you could answer on my behalf?
-    01/05/2024, 02:38 - Robert Rodriguez: Sorry for my late response. My mum IS very ill in hospital and I am a bit disconnected
-    01/05/2024, 02:39 - det sgt lydia cleaves: I'm so sorry to hear it
-    01/05/2024, 02:39 - Robert Rodriguez: If you have reported It to the Police then you would need to sign a power of attorney for me to be able to represent you if any Court papers are sent to you
-    01/05/2024, 02:40 - Robert Rodriguez: If not then nothing would happen most probably
-    01/05/2024, 02:40 - det sgt lydia cleaves: I didn't report anything but if the conservatory denounced me and I was not here to receive some mail what would I do?
-    01/05/2024, 02:42 - det sgt lydia cleaves: They definitely suggested thats what they were doing so I would like to be able to answer anything they might say, if they did
-    01/05/2024, 02:43 - Robert Rodriguez: Are you leaving by yourself ? If not you could provide them your address
-    01/05/2024, 02:43 - det sgt lydia cleaves: I'm going to be away for maybe 3 months only June to September
-    01/05/2024, 02:43 - det sgt lydia cleaves: 3.5 months
-    01/05/2024, 02:44 - det sgt lydia cleaves: I might be back for a couple of weeks but not sure about it
-    01/05/2024, 02:44 - det sgt lydia cleaves: I keep my address here although I have to move eventually because of the threatening atmosphere
-    01/05/2024, 02:44 - det sgt lydia cleaves: I will have a few different addresses over the summer
-    01/05/2024, 02:54 - Robert Rodriguez: Most probably the Court wiuld not be able to deal with the case unless you receive the denuncia and if you are abroad you wont
-    01/05/2024, 02:54 - det sgt lydia cleaves: Oh I heard they go ahead anyway
-    01/05/2024, 02:55 - det sgt lydia cleaves: Anyway I'll do a forward to my mum in that case for a few months and she can tell me
-    01/05/2024, 02:55 - det sgt lydia cleaves: I guess the court is closed over summer
-    01/05/2024, 02:55 - det sgt lydia cleaves: I'm looking forward to meeting you soon when I come to pick up my tech
-    01/05/2024, 02:56 - det sgt lydia cleaves: I will be happy to talk to you and pay you for your time we already had and an hour or two chat
-    01/05/2024, 02:56 - det sgt lydia cleaves: All the best and love to mum 🫂I hope she is soon better
-    03/05/2024, 01:23 - Robert Rodriguez: Hola Kate. I am sorry for my late response. Very hard times.
-    03/05/2024, 01:24 - Robert Rodriguez: But do you live with your mum? If so and if she said that she knows you and collects It then yes
-    03/05/2024, 01:26 - Robert Rodriguez: You do not pay for a service, specially if It  IS so small, unless you are told un advance and I have not given you any budget cos I have not dine Nothing.. you are like me and I do appreciate ur wassup 😀
-    03/05/2024, 01:33 - det sgt lydia cleaves: Bless you, thank you,but we should definitely meet, I'm going to be away for 2 weeks then I'm back on 20th so hopefully the perito has some news and I can collect my equipment and nos vemos 😊
-    03/05/2024, 01:33 - det sgt lydia cleaves: And wishing you all well
-    03/05/2024, 01:34 - Robert Rodriguez: Ok cool
-    03/06/2024, 00:59 - det sgt lydia cleaves: Roberto I want to take the Generalitat to court for knowingly putting students in danger. They made me fear for my life, and I can prove it. They terrorised me on twitter and elsewhere and I can prove it. I don't care if I win or lose, I want the media attention.
-    03/06/2024, 00:59 - det sgt lydia cleaves: Can you help?
-    03/06/2024, 01:00 - det sgt lydia cleaves: I know my experience is a common thing in Spain. I want to help it stop, especially now they are technically advanced.
-    03/06/2024, 01:00 - det sgt lydia cleaves: Let me know what you think.
-    03/06/2024, 01:01 - det sgt lydia cleaves: Maybe u know someone who can help.
-    03/06/2024, 01:03 - det sgt lydia cleaves: I think they will offer to settle to avoid the publicity. But I don't want to settle, unless it's millions, which it won't be.
-    03/06/2024, 01:03 - det sgt lydia cleaves: They will be very keen to avoid the publicity.
-    03/06/2024, 01:03 - det sgt lydia cleaves: I complained about the dodgy teacher 10 years ago.
-    03/06/2024, 01:04 - det sgt lydia cleaves: They have just implemented a RULE that no mobiles are allowed in the conservatory, after I have no option but to leave due to fearing for my life.
-    03/06/2024, 01:04 - det sgt lydia cleaves: Think about it.
-    03/06/2024, 01:04 - det sgt lydia cleaves: Could make u v famous.
-    03/06/2024, 01:10 - det sgt lydia cleaves: I'm in Lourdes for 2 weeks let me know if I can light you any candles 💖
-    03/06/2024, 01:26 - Robert Rodriguez: Hola Kate. I could but I would need to see some evidence before I could give you a budget in case that I consider that you do not have a case so that you do not waste miney
-    03/06/2024, 01:27 - det sgt lydia cleaves: I don't care about the money
-    03/06/2024, 01:28 - det sgt lydia cleaves: Not the best thing to say to a lawyer I know
-    03/06/2024, 01:28 - det sgt lydia cleaves: 😅
-    03/06/2024, 01:28 - det sgt lydia cleaves: Think about it
-    03/06/2024, 01:28 - det sgt lydia cleaves: I've some really good evidence, we can make a decent case I'm sure of it
-    03/06/2024, 01:28 - Robert Rodriguez: Haha. Yes but I would not take a case if I consider that you have no prospectos if success as It would be unfair on you and on my ethics
-    03/06/2024, 01:29 - Robert Rodriguez: Ok if you can make a very brief resume and send me the best evidence that you have I Will check it
-    03/06/2024, 01:49 - det sgt lydia cleaves: I expect them to defend it robustly.. and I am one lone vulnerable female against the Spanish system essentially.. I don't care if I lose, I want the publicity
-    03/06/2024, 01:49 - det sgt lydia cleaves: I will send you a summary
-    03/06/2024, 01:49 - Robert Rodriguez: Ok
-    03/06/2024, 01:50 - det sgt lydia cleaves: Next few days or week, I have to travel , can I light a candle for your mum?
-    03/06/2024, 02:02 - Robert Rodriguez: Of.course! That would be fantastic , I always aks my Friends to pray or send her nice wishes
-    03/06/2024, 04:31 - det sgt lydia cleaves: I will do it 🥰
+    01/05/2024, 00:51 - det sgt lydia cleaves: Hi Robert I have had no news from anyone.</br>
+    01/05/2024, 00:51 - det sgt lydia cleaves: Maybe that's a good thing.</br>
+    01/05/2024, 00:52 - det sgt lydia cleaves: I'm going to be away for a few months over the summer. I wonder if I could set up a redirection service to you in case the police write to me and you could answer on my behalf?</br>
+    01/05/2024, 02:38 - Robert Rodriguez: Sorry for my late response. My mum IS very ill in hospital and I am a bit disconnected</br>
+    01/05/2024, 02:39 - det sgt lydia cleaves: I'm so sorry to hear it</br>
+    01/05/2024, 02:39 - Robert Rodriguez: If you have reported It to the Police then you would need to sign a power of attorney for me to be able to represent you if any Court papers are sent to you</br>
+    01/05/2024, 02:40 - Robert Rodriguez: If not then nothing would happen most probably</br>
+    01/05/2024, 02:40 - det sgt lydia cleaves: I didn't report anything but if the conservatory denounced me and I was not here to receive some mail what would I do?</br>
+    01/05/2024, 02:42 - det sgt lydia cleaves: They definitely suggested thats what they were doing so I would like to be able to answer anything they might say, if they did</br>
+    01/05/2024, 02:43 - Robert Rodriguez: Are you leaving by yourself ? If not you could provide them your address</br>
+    01/05/2024, 02:43 - det sgt lydia cleaves: I'm going to be away for maybe 3 months only June to September</br>
+    01/05/2024, 02:43 - det sgt lydia cleaves: 3.5 months</br>
+    01/05/2024, 02:44 - det sgt lydia cleaves: I might be back for a couple of weeks but not sure about it</br>
+    01/05/2024, 02:44 - det sgt lydia cleaves: I keep my address here although I have to move eventually because of the threatening atmosphere</br>
+    01/05/2024, 02:44 - det sgt lydia cleaves: I will have a few different addresses over the summer</br>
+    01/05/2024, 02:54 - Robert Rodriguez: Most probably the Court wiuld not be able to deal with the case unless you receive the denuncia and if you are abroad you wont</br>
+    01/05/2024, 02:54 - det sgt lydia cleaves: Oh I heard they go ahead anyway</br>
+    01/05/2024, 02:55 - det sgt lydia cleaves: Anyway I'll do a forward to my mum in that case for a few months and she can tell me</br>
+    01/05/2024, 02:55 - det sgt lydia cleaves: I guess the court is closed over summer</br>
+    01/05/2024, 02:55 - det sgt lydia cleaves: I'm looking forward to meeting you soon when I come to pick up my tech</br>
+    01/05/2024, 02:56 - det sgt lydia cleaves: I will be happy to talk to you and pay you for your time we already had and an hour or two chat</br>
+    01/05/2024, 02:56 - det sgt lydia cleaves: All the best and love to mum 🫂I hope she is soon better</br>
+    03/05/2024, 01:23 - Robert Rodriguez: Hola Kate. I am sorry for my late response. Very hard times.</br>
+    03/05/2024, 01:24 - Robert Rodriguez: But do you live with your mum? If so and if she said that she knows you and collects It then yes</br>
+    03/05/2024, 01:26 - Robert Rodriguez: You do not pay for a service, specially if It  IS so small, unless you are told un advance and I have not given you any budget cos I have not dine Nothing.. you are like me and I do appreciate ur wassup 😀</br>
+    03/05/2024, 01:33 - det sgt lydia cleaves: Bless you, thank you,but we should definitely meet, I'm going to be away for 2 weeks then I'm back on 20th so hopefully the perito has some news and I can collect my equipment and nos vemos 😊</br>
+    03/05/2024, 01:33 - det sgt lydia cleaves: And wishing you all well</br>
+    03/05/2024, 01:34 - Robert Rodriguez: Ok cool</br>
+    03/06/2024, 00:59 - det sgt lydia cleaves: Roberto I want to take the Generalitat to court for knowingly putting students in danger. They made me fear for my life, and I can prove it. They terrorised me on twitter and elsewhere and I can prove it. I don't care if I win or lose, I want the media attention.</br>
+    03/06/2024, 00:59 - det sgt lydia cleaves: Can you help?</br>
+    03/06/2024, 01:00 - det sgt lydia cleaves: I know my experience is a common thing in Spain. I want to help it stop, especially now they are technically advanced.</br>
+    03/06/2024, 01:00 - det sgt lydia cleaves: Let me know what you think.</br>
+    03/06/2024, 01:01 - det sgt lydia cleaves: Maybe u know someone who can help.</br>
+    03/06/2024, 01:03 - det sgt lydia cleaves: I think they will offer to settle to avoid the publicity. But I don't want to settle, unless it's millions, which it won't be.</br>
+    03/06/2024, 01:03 - det sgt lydia cleaves: They will be very keen to avoid the publicity.</br>
+    03/06/2024, 01:03 - det sgt lydia cleaves: I complained about the dodgy teacher 10 years ago.</br>
+    03/06/2024, 01:04 - det sgt lydia cleaves: They have just implemented a RULE that no mobiles are allowed in the conservatory, after I have no option but to leave due to fearing for my life.</br>
+    03/06/2024, 01:04 - det sgt lydia cleaves: Think about it.</br>
+    03/06/2024, 01:04 - det sgt lydia cleaves: Could make u v famous.</br>
+    03/06/2024, 01:10 - det sgt lydia cleaves: I'm in Lourdes for 2 weeks let me know if I can light you any candles 💖</br>
+    03/06/2024, 01:26 - Robert Rodriguez: Hola Kate. I could but I would need to see some evidence before I could give you a budget in case that I consider that you do not have a case so that you do not waste miney</br>
+    03/06/2024, 01:27 - det sgt lydia cleaves: I don't care about the money</br>
+    03/06/2024, 01:28 - det sgt lydia cleaves: Not the best thing to say to a lawyer I know</br>
+    03/06/2024, 01:28 - det sgt lydia cleaves: 😅</br>
+    03/06/2024, 01:28 - det sgt lydia cleaves: Think about it</br>
+    03/06/2024, 01:28 - det sgt lydia cleaves: I've some really good evidence, we can make a decent case I'm sure of it</br>
+    03/06/2024, 01:28 - Robert Rodriguez: Haha. Yes but I would not take a case if I consider that you have no prospectos if success as It would be unfair on you and on my ethics</br>
+    03/06/2024, 01:29 - Robert Rodriguez: Ok if you can make a very brief resume and send me the best evidence that you have I Will check it</br>
+    03/06/2024, 01:49 - det sgt lydia cleaves: I expect them to defend it robustly.. and I am one lone vulnerable female against the Spanish system essentially.. I don't care if I lose, I want the publicity</br>
+    03/06/2024, 01:49 - det sgt lydia cleaves: I will send you a summary</br>
+    03/06/2024, 01:49 - Robert Rodriguez: Ok</br>
+    03/06/2024, 01:50 - det sgt lydia cleaves: Next few days or week, I have to travel , can I light a candle for your mum?</br>
+    03/06/2024, 02:02 - Robert Rodriguez: Of.course! That would be fantastic , I always aks my Friends to pray or send her nice wishes</br>
+    03/06/2024, 04:31 - det sgt lydia cleaves: I will do it 🥰</br>
     10/06/2024, 01:10 - det sgt lydia cleaves: IMG-20240609-WA0001.jpg (file attached)
-    For your mum
-    10/06/2024, 02:08 - Robert Rodriguez: Thanks a lot Kate 😀😀😀😍
+    For your mum</br>
+    10/06/2024, 02:08 - Robert Rodriguez: Thanks a lot Kate 😀😀😀😍</br>
+
+- Are all sedated rape and multiple porn-gang cases out of legal ethical jurisdiction because it is assumed, due to sky-high corruption, that they'll never succeed?
 
 ### Technofix
 
@@ -532,9 +539,6 @@ function googleTranslateElementInit() {
 - The name he used *Katterin* was how [Salva used to refer to me in choir](../2023/october.md#choir) and is likely sexually suggestive in colloquial Spanish and is probably why Adriana and the other kids were a bit concerned about his use of it.
 - Move WhatsApps content into here: todo:
 - Here's a couple of pics, all content to be organized shortly.
-
-![Roberto R 1](../../content/images/roberto-rodriguez/roberto-rodriguez-1.jpg)
-![Roberto R 2](../../content/images/roberto-rodriguez/roberto-rodriguez-2.jpg)
 
 !!! info
     - It's very weird but I cannot remember if I met him in person or not in Alicante at [DPR](../../content/documents/letters/Ampliacion%20Denuncia_Katharine.pdf).
