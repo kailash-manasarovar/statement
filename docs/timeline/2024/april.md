@@ -915,4 +915,4 @@ function googleTranslateElementInit() {
 ![](../../content/images/google-searches/april-24/josep-l-2.png)
 
 - I guess sedating women in their own homes is a branch of sado-masochistic sex.
-
+- The online suggestion was always that I was *caged*.
