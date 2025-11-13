@@ -430,7 +430,7 @@ function googleTranslateElementInit() {
     - The implication is a conspiracy within the management team or amongst the founders at Polygon, specifically the Spanish ones.
     - And then, when James Dawes (Hans Bodani's ex-colleague) joins, finds out that I'm a target and does his research in UK male porn-addict networks, he finds out about all the other times I was targeted with sexual harassment and decides to use triggering words from those times at the [HR meeting in October 2024 just before I'm sacked](../2024/october.md#bullying-at-polygon) which felt like severe mental/emotional violence to me.
     - Was the Aziv sexual threat just more fun for them? Or were they hoping I would have violent sex with him.
-    - Remember, I had been primed by the [gypsy sex drug ring right before leaving and the drugs had been put in my toiletries too](../2024/april.md#the-trumpet-teacher-in-denia).
+    - Remember, I had been primed by the [gypsy sex drug ring right before leaving and the drugs had been put in my toiletries too](../2024/april.md#drugged-in-the-street-by-denia-gypsies).
     - I wonder what these two actors might tell the police if questioned.
 
 ### X with Polygon
