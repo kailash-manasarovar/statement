@@ -54,18 +54,6 @@ Could she be the grown up version of this girl?
 ![Car woman](../content/images/targeted-women/car-woman/5.png)
 ![Car woman](../content/images/targeted-women/car-woman/6.png)
 
-## Big nose
-
-And who is this? He certainly has a big nose. Remember how they went on about big noses for months?
-
-Of course, big nose is *trompa* in Spanish.
-
-![Big nose](../content/images/fake-accounts/bignose.png)
-
-Another one with an apparently normal account, but who knows: https://www.facebook.com/profile.php?id=100087276017749.
-
-This man looks like the man with the women and tiny girl who [followed me, distracted me, and drugged me](../timeline/2024/april.md#drugged-in-the-street-by-denia-gypsies), my guess is to prime me sexually prior to the Polygon trip to [Bali](../timeline/2024/may.md#bali) in May 2024.
-
 ## Someone we know?
 
 - Do the gangs create birth porn too?
