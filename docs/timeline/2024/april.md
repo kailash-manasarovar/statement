@@ -741,9 +741,9 @@ function googleTranslateElementInit() {
 - The man and the women are small in stature, I am taller than all of them.
 - The child is tiny, about three or four years old, with long, blond, curly hair. She's beautiful.
 - The man has a grandfather look about him with long grey-white curling hair.
-- He looks a lot like this guy who *popped up* on fake accounts.
+- He looks a lot like this guy who *popped up* on fake Facebook accounts.
 
-![Big nose](../../content/images/fake-accounts/bignose.png)
+[![Big nose](../../content/images/fake-accounts/bignose.png)](https://www.facebook.com/abdelhadi.titan/)
 
 - They are walking slowly, I suppose they're out for a stroll on a balmy evening.
 - I pass the group just after the crossroads with the Marquis de Campo, opposite Deutsche Bank,  although it's difficult to be precise on this and it could have been further back.
