@@ -804,7 +804,7 @@ function googleTranslateElementInit() {
 
     ![hidden cameras](../../content/images/fake-accounts/hidden-cameras.png)
 
-    - In August, I respond to this terrible tweet thread that I have just read: https://x.com/1FRGVN/status/1823957507728896499.
+    - In August, I respond to this terrible tweet thread that I have just read: https://x.com/1FRGVN/status/1823957507728896499 and at that time I start to think seriously about the possibility of hidden cameras in my apartment. But not until then.
 
 ## Body cam
 
