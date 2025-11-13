@@ -724,9 +724,19 @@ function googleTranslateElementInit() {
 
 ## Drugged in the street by Dénia gypsies
 
-- I believe it's Sunday 28th April.
-- I go to the Pekin restaurant for dinner.
-- As I'm walking back home, I see a small group of gypsies in front walking up the Calle Diana.
+- It's Sunday 28th April (or potentially the Sunday before or after...).
+
+!!! tip "Checking on X for clues on this evening's true date"
+    - I am up all night on 28th and way into Monday 29th's early hours, up to 6am, tweeting.
+    - I don't understand these tweet timings as I'm due to start work.
+    - Why didn't I go to sleep?
+    - Here's the [tweet search](https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-04-29%20since%3A2024-04-28&src=typed_query).
+    - I mention smelling toast, and I remember that as it was very unusual.
+    - Why am I up all night tweeting exuberantly?
+
+- I go to the Pekin Chinese restaurant for dinner.
+- As I'm walking back home, I see a small group of gypsies in front of me.
+- They're walking in the same direction as me, up the Calle Diana.
 - There is an older man with three adult women and a small girl.
 - The man and the women are small in stature, I am taller than all of them.
 - The child is tiny, about three or four years old, with long, blond, curly hair. She's beautiful.
@@ -736,26 +746,26 @@ function googleTranslateElementInit() {
 ![Big nose](../../content/images/fake-accounts/bignose.png)
 
 - They are walking slowly, I suppose they're out for a stroll on a balmy evening.
-- I pass the group just pass the crossroad with the Marquis de Campo although it's difficult to be precise on this.
+- I pass the group just after the crossroads with the Marquis de Campo, opposite Deutsche Bank,  although it's difficult to be precise on this and it could have been further back.
 - As I get to about two metres in front of the sauntering group, the small girl is told to run up beside me on the right, which she does.
-- I look down at her, she looks up, seems to get shy, smiles and runs back.
-- While this is happening, someone is doing something on my left side which I don't notice; powder in my ear or neck, dissolving patch on some bare skin, some psychoactive substance is applied somehow.
+- I look down at her; she looks up, seems to get shy, smiles and runs back.
+- While this is happening, someone is doing something on my left side which I am not aware of; powder in my ear or neck, dissolving patch on some bare skin, some psychoactive substance is applied somehow.
 - I keep walking, the gypsies behind me.
 - I'm getting close to the top of the Calle Diana where the tunnel is.
 - There is a tapas bar on the corner, Lizarran.
-- I can see a man and a girl sitting at a table outside.
+- I see a man and a girl sitting at a table outside.
 
 ![Lizarran](../../content/images/lizarran.jpg)
 
-- The man has the same build as [the trumpet teacher number two](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013) and Lorraine's ex-husband.
-- He's wearing the same dirty brown leather jacket and his back is to me.
+- The man has the same build as [trumpet teacher number two](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013) and Lorraine's ex-husband.
+- He's wearing the same dirty brown leather jacket he wore to class, and his back is to me.
 - Beside him is a very young blond woman.
-- I'm reminded of the [choir concert set up from December 2022](../2022/december.md#choir-concert) such as at the choir concert and other occasions. 
+- He looks exactly like he did at the [choir concert set up in December 2022](../2022/december.md#choir-concert) and other occasions. 
 - I immediately see the trap and decide to ignore them completely.
 - I walk past them.
-- I'm nearly at the tunnel when the drugs kick in and I start to think differently and feel spaced out.
-- I nearly stop and turn to look, but I don't.
-- In the tunnel, set up on the left side, is a guitarist busker. I leave a euro.
+- I'm nearly at the tunnel when the drugs kick in and I start to think differently about everything, and feel spaced out.
+- I nearly stop and turn to look, but I don't, I keep going towards the tunnel.
+- Just inside the tunnel, set up on the left side, is a guitarist busker. I leave him a euro.
 - I don't remember getting home.
 - The guitarist is someone I've never seen before but one of the [Spanish engineers in Bali](may.md#bali) will remind me of him.
 - From now until I leave for Madrid, I'm high a lot at home and I find myself playing along more with the online stalking such as with the [Beams account](may.md#beams), with fake accounts on [Telegram](may.md#telegramsignal) which I genuinely believe to be the trumpet teacher, and so on.
