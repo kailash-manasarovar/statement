@@ -834,8 +834,6 @@ function googleTranslateElementInit() {
 
 ## Twitter
 
-- Tweets of interest to follow.
-
 ### `@1frgvn`
 
 - I tweet a poll about how the story ends.
@@ -893,6 +891,10 @@ function googleTranslateElementInit() {
 
 ### `@JackChardwood`
 
+- This is a good one.
+
+[![Why do people like snakes](../../content/tweets/april-2024/snakes.jpg)](https://x.com/JackChardwood/status/1785034043110662463)
+
 - Here's the [search URL for this month](https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2024-04-30%20since%3A2024-04-01&src=typed_query&f=live).
 - If anyone sees anything interesting, you could raise a PR once I open the repo.
 
@@ -903,7 +905,7 @@ function googleTranslateElementInit() {
 ![](../../content/images/google-searches/april-24/Screenshot%202024-04-21%20at%2005.34.20.png)
 ![](../../content/images/google-searches/april-24/Screenshot%202024-04-21%20at%2006.05.48.png)
 
-- This guy showed up on `@jctot19` results for a long time. Sometimes just him and Carmen or Rocio Vidal. He is into sado-masochism.
+- This guy showed up on `@jctot19` results for a long time. Sometimes just him and Carmen or Rocio Vidal. He is into sado-masochism and I believe I saw him [coming out of my apartment building](../2023/september.md#a-man-i-recognize) in September 2023.
 
 ![](../../content/images/google-searches/april-24/josep-l.JPG)
 ![](../../content/images/google-searches/april-24/image_123655411%20(1).JPG)
