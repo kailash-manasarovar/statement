@@ -716,7 +716,7 @@ function googleTranslateElementInit() {
 
 ## Let Women Speak
 
-- Posey Parker (Kelly Jay Keen) is coming to do a [Let women Speak](https://www.letwomenspeak.org/) event in Madrid in May.
+- Posey Parker (Kelly Jay Keen) is coming to do a [Let Women Speak](https://www.letwomenspeak.org/) event in Madrid in May.
 - I apply to volunteer and be a steward at the event.
 - I'm accepted.
 - I'm also planning to speak about what's happening to me and how it relates to my views on gender ideology.
