@@ -743,16 +743,16 @@ function googleTranslateElementInit() {
 - There is an older man with three adult women and a small girl.
 - The man and the women are small in stature, I am taller than all of them and I'm short.
 - The child is tiny, about three or four years old, with long, blond, curly hair. She's beautiful.
-- The man has a grandfather look about him with long grey-white curling hair.
+- The man has a grandfatherly look about him with long grey-white curling hair.
 - He looks a lot like this guy who *popped up* on fake Facebook accounts.
 
 [![Big nose](../../content/images/fake-accounts/bignose.png)](https://www.facebook.com/abdelhadi.titan/)
 
-- They are walking slowly, I suppose they're out for a stroll on a balmy evening.
+- They are walking slowly; I suppose they're out for a stroll on a balmy evening.
 - I pass the group just after the crossroads with the Marquis de Campo, opposite Deutsche Bank,  although it's difficult to be precise on this and it could have been further back.
 - As I get to about two metres in front of the sauntering group, the small girl is told to run up beside me on the right, which she does.
 - I look down at her; she looks up, seems to get shy, smiles and runs back.
-- While this is happening, someone is doing something on my left side which I am not aware of; powder in my ear or neck, dissolving patch on some bare skin, some psychoactive substance is applied somehow.
+- While this is happening, someone is doing something on my left side which I am not aware of; powder in my ear or neck, dissolving patch on some bare skin, some psychoactive substance is applied somehow; a [distraction technique and drug application](../../crimes/poisoning.md#crowd-on-the-conservatory-stairs)
 - I keep walking, the gypsies behind me.
 - I'm getting close to the top of the Calle Diana where the tunnel is.
 - There is a tapas bar on the corner, Lizarran.
