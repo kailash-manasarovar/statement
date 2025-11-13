@@ -8,7 +8,20 @@ function googleTranslateElementInit() {
 }
 </script>
 
-## Hazel Smith on Twitter
+## Post-conservatory, pre-Bali
+
+- I left my conservatory studies in fear for my life.
+- I'm doing my best to get some legal help so I can return to the police in Madrid and they will investigate.
+- Everything I try to do to help my situation, however, seems to falter.
+- I have no idea what has really been going on for over two-years in my apartment; I still think I have been the victim of gang-stalking and bullying, and my devices hacked. 
+- The idea that I was lured to my apartment online in 2021, and that it is set up with spy-cams, and that I'm an online porn sensation internationally and that everyone in Denia, man woman and child, is aware of this, is something utterly incomprehensible to me.
+- The porn-gangs are now preparing for Bali, after which, I assume the intention is that I am completely destroyed; psychologically, emotionally, sexually, and of course financially.
+- To that end, online stalking ramps up and the theme was constant threats and abusive put downs in what I assume is an attempt to weaken me so I don't make *such a fuss* when the time comes.
+- They only had a few weeks before Bali.
+- [I had just been porn-prepped after being drugged by the gypsies](april.md#drugged-in-the-street-by-denia-gypsies) on my way home from dinner, and I remember this whole period and on into June and beyond as being a time when I was *constantly* high.
+- Consequently, Hazel Smith doesn't even bother trying to hide anymore.
+
+## Hazel Smith pretends to be Esteve online
 
 - This account was likely Hazel, or her mum, as we had a long chat: https://x.com/1FRGVN/status/1785410648802734485.
 - The English on many of the stalker accounts was native. It could have been anyone in the region I suppose, except this account knew things that only myself and Hazel (or people who know her intimately) would know.
@@ -170,6 +183,13 @@ function googleTranslateElementInit() {
 
 - I am in Bali from 11th-19th May with work.
 - We stay at the [Grand Hyatt](https://www.hyatt.com/grand-hyatt/en-US/balgh-grand-hyatt-bali).
+
+### Pre-Bali shenanigans
+
+#### Ajay, Alicia, and mushroom-man perform a military coup on my job
+
+- I think they must have started this in late February or early March.
+- It'll be in the records somewhere. Alicia can confirm it.
 
 ### Flight to Bali
 

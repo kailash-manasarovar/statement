@@ -157,7 +157,7 @@
 
 ## Seonaid Dawn and Granny Smith
 
-- Both suspect accounts, mentioned in [fake account list](../../evidence/twitter-account.md#fake-accounts), [Hazel Smith references from May 2024](../2024/may.md#hazel-smith-on-twitter), and elsewhere.
+- Both suspect accounts, mentioned in [fake account list](../../evidence/twitter-account.md#fake-accounts), [Hazel Smith references from May 2024](../2024/may.md#hazel-smith-pretends-to-be-esteve-online), and elsewhere.
 
 ![curious](../../content/tweets/granny-smith-seonaid-barber.png)
 
