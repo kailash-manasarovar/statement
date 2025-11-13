@@ -187,6 +187,7 @@ function googleTranslateElementInit() {
 - I have never seen him in the vicinity of my building before.
 - Did he come into my apartment after that? 
 - He'll be in the LinguaLogic records and I'd recognize him in an instant.
+- I'm guessing at this stage everyone in the town expected me to be dead within weeks.
 
 ## VSSH collects his aware at the Palau d'Arts
 
@@ -207,8 +208,11 @@ function googleTranslateElementInit() {
 - There is a man in the driver's seat of a car staring at me angrily. 
 - His wife is embarrassed and looking down in the passenger seat. 
 - They look familiar, and I think they might be part of the Denia TV crowd I've seen online.
-- I remain amazed that anyone could be angry at the person they have been terrorizing relentlessly. I guess it's guilt. I tweet about it and suggest the man, if he didn't like the porn of me masturbating that everyone has seen, he should take it up with the local porn technicians.
+- They also remind me of people that attended the [June 2023 piano concert](../2023/june.md#june-9th-piano-concert) and sat in the row in front of us.
+- I remain amazed that anyone could be angry at the person they have been terrorizing relentlessly.
+- I guess it's guilt. I tweet about it and suggest the man, if he didn't like the porn of me masturbating that everyone has seen, he should take it up with the local porn technicians.
 - I tweet about it: https://x.com/1FRGVN/status/1847579824128139602.
+- I guess the truth was he expected me to be dead in weeks, and he was concerned about there being an unpleasant investigation, and if he was the TV Denia guy... well I wouldn't blame him.
 - As I'm driving to the hotel I've booked in Madrid, all of a sudden, the volume disappears on Google maps so I'm lost on the busy M30/M40 junctions.
 - When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back. Nothing works.
 - When I arrive in Fatima the following evening, even though my iPhone camera is blocked, I get notifications on fake accounts of items in my hotel room. Of course, only the camera facing me is blocked, not the one looking out.
