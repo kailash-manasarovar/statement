@@ -791,6 +791,8 @@ function googleTranslateElementInit() {
 
 ![Peeping at preschoolers](../../content/images/fake-accounts/voyeurism-minors/3.jpg)
 
+- I believe it is the trumpet teacher I love trying to tell me something about Domingo.
+
 ### Same account in August 
 
 - In August, a similar account likes something I've posted.
