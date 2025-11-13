@@ -14,7 +14,7 @@ function googleTranslateElementInit() {
 - I'm doing my best to [get some technical and legal help](april.md#dpr-cyber-expert-alicante) so I can return to [the police in Madrid](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid) and they will investigate.
 - Everything I try to do to help my situation, however, seems to falter.
 - I have no idea what has really been going on for over two-years in my apartment; I still think I have just been the victim of gang-stalking and bullying, and my devices hacked. 
-- The idea that I was lured to my apartment online in 2021, and that it is set up with spy-cams, and that I'm an online porn sensation internationally, and that everyone in Denia, man woman and child, is aware of this, is something utterly incomprehensible to me.
+- The idea that I was lured to my apartment online in 2021, and that it is set up with spy-cams, and that I'm an online porn sensation internationally, and that everyone in Dénia, man woman and child, is aware of this, is something utterly incomprehensible to me.
 - The porn-gangs are now preparing for Bali, after which, I assume the intention is that I am completely destroyed by porn world; psychologically, emotionally, sexually, and of course financially.
 - To that end, online stalking ramps up with constant threats, suggestions of violent relationships, and abusive put downs in what I assume is an attempt to weaken me so I don't make *such a fuss* when the time comes.
 - Is this what [Zoe was trying to do](../early-years/2008.md#lauding-male-violence) whenever she spoke to me relentlessly about violent relationships?
