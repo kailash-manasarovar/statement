@@ -725,15 +725,6 @@ function googleTranslateElementInit() {
 ## Drugged in the street by Dénia gypsies
 
 - It's Sunday 28th April (or potentially the Sunday before or after...).
-
-!!! tip "Checking on X for clues on this evening's true date"
-    - I am up all night on 28th and way into Monday 29th's early hours, up to 6am, tweeting.
-    - I don't understand these tweet timings as I'm due to start work.
-    - Why didn't I go to sleep?
-    - Here's the [tweet search](https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-04-29%20since%3A2024-04-28&src=typed_query).
-    - I mention smelling toast, and I remember that as it was very unusual.
-    - Why am I up all night tweeting exuberantly?
-
 - I go to the Pekin Chinese restaurant for dinner.
 - As I'm walking back home, I see a small group of gypsies in front of me.
 
@@ -775,6 +766,14 @@ function googleTranslateElementInit() {
 - I find myself playing along more with the online stalking such as with the [Beams account](may.md#beams), and with fake accounts on [Telegram](may.md#telegramsignal) which I genuinely believe to be the trumpet teacher.
 - I believe the gypsies were instructed to drug me at this time, and organize something to happen back at my apartment while I was sedated, as preparation for the [Bali trip](may.md#bali) where I paying tech-bro porn-addicts were laying in wait.
 - I guess there could be some CCTV of all that, there are countless cameras along the Carrer Diana.
+
+!!! tip "Checking on X for clues on this evening's true date"
+    - I am up all night on 28th and way into Monday 29th's early hours, up to 6am, tweeting.
+    - I don't understand these tweet timings as I'm due to start work.
+    - Why didn't I go to sleep?
+    - Here's the [tweet search](https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-04-29%20since%3A2024-04-28&src=typed_query).
+    - I mention smelling toast, and I remember that as it was very unusual.
+    - Why am I up all night tweeting exuberantly?
 
 ## Fake account posts about "peeping at pre-schoolers"
 
