@@ -31,11 +31,6 @@ function googleTranslateElementInit() {
 - Except, the person who told me that was one of my dodgy [election volunteers](june.md#election-campaign), So or Janet who eventually appeared to be tag teaming online with the Smiths *and* the Denia porn-gangs.
 - This account was deleted over the last two days. The timing on that is interesting.
 
-## Targeting kids
-
-- Online games.
-- Cartoons.
-
 ## The laundry
 
 - I go to the laundry to dry my clothes.
@@ -166,14 +161,10 @@ function googleTranslateElementInit() {
     - It seemed preposterous to me.
     - More likely, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police) and had become obsessed by it for some reason.
 
-## Perito - technical expert DPR
+### Targeting kids
 
-- There are a bunch of emails over this time with the [perito in Alicante](../../content/documents/evidence/comms-with-perito.pdf).
-- I collect my equipment and pay 150 eur on 23rd May.
-- I receive an invoice document at that time.
-
-    - [Invoice and receipt first page and payment](../../content/documents/evidence/DPR-1.JPG).
-    - [Invoice and receipt second page](../../content/documents/evidence/DPR-2.JPG).
+- Online games.
+- Cartoons.
 
 ## Bali
 
@@ -386,6 +377,15 @@ function googleTranslateElementInit() {
 - I believe they were trying to get me to leave as quickly as possible; they were done with me now. 
 - They must have known what was coming up next for me, and my expected descent into being a permanently-drugged hardcore porn actress/slave, or marrying a violent male/pimp who intended on taking my money, while I was at work and able to tell people what was going on, would not have been helpful for the porn-gangs.
 - Except, what they were expecting to happen didn't happen, did it.
+
+## Perito - technical expert DPR
+
+- There are a bunch of emails over this time with the [perito in Alicante](../../content/documents/evidence/comms-with-perito.pdf).
+- I collect my equipment and pay 150 eur on 23rd May.
+- I receive an invoice document at that time.
+
+    - [Invoice and receipt first page and payment](../../content/documents/evidence/DPR-1.JPG).
+    - [Invoice and receipt second page](../../content/documents/evidence/DPR-2.JPG).
 
 ## Lourdes
 
