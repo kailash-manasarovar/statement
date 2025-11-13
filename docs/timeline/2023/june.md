@@ -578,6 +578,7 @@ function googleTranslateElementInit() {
 
 ![June 2023 conservatory results](../../content/images/june-2023-conservatory-results.png)
 
+- You can see where *Vidal Sastre Sanchez Hornero* has made a comment on my achievements.
 - I'm still under the impression that only Domingo Cano plus his willing helpers had my destruction in mind.
 - I'm hoping it's all over now and we can get on with playing music without any drama.
 - One morning while I'm practicing, Domingo opens the door and pokes his head through and looks at me meaningfully and menacingly, as if to say; "So you're still here!".
