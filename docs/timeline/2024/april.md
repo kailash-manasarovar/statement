@@ -799,6 +799,7 @@ function googleTranslateElementInit() {
 - I detail this [in the August section of this police statement](august.md#hidden-camera-account).
 - The account has the same eagle trigger and Hebrew language as the one just mentioned.
 - I'm not sure if it is the same account. It could be.
+- I believe it to be the trumpet teacher I love, yet again.
 - The pinned thread on the account's timeline references a person targeted by someone who he had trusted, and had sex with, and was consequently stalked and filmed with secret cameras.
 - This suggested to me that the trumpet teacher was targeted by Domingo, a civil servant with connections to government officials, who has been blackmailing him since then.
     - The account is here: https://x.com/Cr7Rival3711.
