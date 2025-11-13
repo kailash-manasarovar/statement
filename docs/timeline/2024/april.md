@@ -779,11 +779,11 @@ function googleTranslateElementInit() {
 
 - A fake account catches my eye.
 - The eagle triggers my interest.
-- *Eagle* is a meme that has been running throughout the cyber stalking since I saw [five of them together at the Vignamale](../2023/august.md#eagles) the previous summer.
+- *Eagle* is a meme that has been running throughout the cyber stalking since I saw [five of them together at the Vignemale](../2023/august.md#eagles) the previous summer.
 
 ![Initial trigger](../../content/images/fake-accounts/voyeurism-minors/peeping-at-pre-schoolers.jpg)
 
-- I read "Peeking at adults is no..." in the translation, so I open the image to see the whole meesage as there is a clear reference to voyeurism.
+- I read "Peeking at adults is no..." in the translation, so I open the image to see the whole message as there is a clear reference to voyeurism.
 
 ![Initial trigger opened](../../content/images/fake-accounts/voyeurism-minors/2.jpg)
 
