@@ -201,7 +201,14 @@
 ## Seeking asylum in another country
 
 - I am clearly unsafe in the United Kingdom as well as in Spain and France, and especially in North London where my family live.
+- I was followed in Thailand also.
+- I'm not safe at home, it's an extraordinarily toxic environment and totally unsupportive.
 - I've spent my whole life being gaslit by people pretending nothing has ever happened to me and my mother's attitude towards me is especially upsetting.
+- My dad was aware of everything that was going on, I had explained everything to him in September 2024 in Lourdes and he appeared to understand the nature of my situation and how much danger I was in.
+- As I told him my story, he kept saying: *heavy*, *heavy*,; I thought it was just him taking the piss, as he usually does. He then told me to be careful as I could be beaten by a man and made to be a prostitute.
+- Did he pretend to be supportive to me and then tell my mother and brother I was not to be believed?
+- I had told my brother everything I knew in June 2024 about what was going on for me and how much danger I was in. We were tracked in the pub at that time by *operatives*, police I expect.
+- He speaks to me like he thinks I'm a little fool imagining things. Is that what dad told him too?
 - I access the Israel website for asylum seekers and try to make an application.
 - My web access is continuously blocked.
 - I give up.
