@@ -771,8 +771,9 @@ function googleTranslateElementInit() {
 - Just inside the tunnel, set up on the left side, is a guitarist busker. I leave him a euro.
 - I don't remember getting home.
 - The guitarist is someone I've never seen before but one of the [Spanish engineers in Bali](may.md#bali) will remind me of him.
-- From now until I leave for Madrid, I'm high a lot at home and I find myself playing along more with the online stalking such as with the [Beams account](may.md#beams), with fake accounts on [Telegram](may.md#telegramsignal) which I genuinely believe to be the trumpet teacher, and so on.
-- I believe the gypsies were instructed to drug me at this time, and organize something to happen back at my apartment while I was sedated, as preparation for the [Bali trip](may.md#bali) where I believe many paying tech-bro porn-addicts were laying in wait for me.
+- From now until I leave for Madrid, I'm higher than usual at home.
+- I find myself playing along more with the online stalking such as with the [Beams account](may.md#beams), and with fake accounts on [Telegram](may.md#telegramsignal) which I genuinely believe to be the trumpet teacher.
+- I believe the gypsies were instructed to drug me at this time, and organize something to happen back at my apartment while I was sedated, as preparation for the [Bali trip](may.md#bali) where I paying tech-bro porn-addicts were laying in wait.
 - I guess there could be some CCTV of all that, there are countless cameras along the Carrer Diana.
 
 ## Fake account posts about "peeping at pre-schoolers"
