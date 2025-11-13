@@ -724,12 +724,42 @@ function googleTranslateElementInit() {
 
 ## Drugged in the street by Dénia gypsies
 
-- It must be the 28th April, a Sunday, I go to the Chinese restaurant.
-- As I'm walking back home, I pass by a group of gypsies, a small girl running up beside me who I smile at and who gets shy and runs back to the group.
-- They're following along behind me.
-- I'm walking up the Calle Diana and I'm nearly at the end where the tunnel is, and sitting outside the tapas place is a man with the same build as the trumpet teacher, who is sitting with his back to me next to a small girl with blond hair.
-- I believe this is now a trigger to kick off more romance feelings in myself.
-- I believe the drugging with aphrodisiacs in the water at my flat is ramped up at this time.
+- I believe it's Sunday 28th April.
+- I go to the Pekin restaurant for dinner.
+- As I'm walking back home, I see a small group of gypsies in front walking up the Calle Diana.
+- There is an older man with three adult women and a small girl.
+- The man and the women are small in stature, I am taller than all of them.
+- The child is tiny, about three or four years old, with long, blond, curly hair. She's beautiful.
+- The man has a grandfather look about him with long grey-white curling hair.
+- He looks a lot like this guy who *popped up* on fake accounts.
+
+![Big nose](../../content/images/fake-accounts/bignose.png)
+
+- They are walking slowly, I suppose they're out for a stroll on a balmy evening.
+- I pass the group just pass the crossroad with the Marquis de Campo although it's difficult to be precise on this.
+- As I get to about two metres in front of the sauntering group, the small girl is told to run up beside me on the right, which she does.
+- I look down at her, she looks up, seems to get shy, smiles and runs back.
+- While this is happening, someone is doing something on my left side which I don't notice; powder in my ear or neck, dissolving patch on some bare skin, some psychoactive substance is applied somehow.
+- I keep walking, the gypsies behind me.
+- I'm getting close to the top of the Calle Diana where the tunnel is.
+- There is a tapas bar on the corner, Lizarran.
+- I can see a man and a girl sitting at a table outside.
+
+![Lizarran](../../content/images/lizarran.jpg)
+
+- The man has the same build as [the trumpet teacher number two](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013) and Lorraine's ex-husband.
+- He's wearing the same dirty brown leather jacket and his back is to me.
+- Beside him is a very young blond woman.
+- I'm reminded of the [choir concert set up from December 2022](../2022/december.md#choir-concert) such as at the choir concert and other occasions. 
+- I immediately see the trap and decide to ignore them completely.
+- I walk past them.
+- I'm nearly at the tunnel when the drugs kick in and I start to think differently and feel spaced out.
+- I nearly stop and turn to look, but I don't.
+- In the tunnel, set up on the left side, is a guitarist busker. I leave a euro.
+- I don't remember getting home.
+- The guitarist is someone I've never seen before but one of the [Spanish engineers in Bali](may.md#bali) will remind me of him.
+- From now until I leave for Madrid, I'm high a lot at home and I find myself playing along more with the online stalking such as with the [Beams account](may.md#beams), with fake accounts on [Telegram](may.md#telegramsignal) which I genuinely believe to be the trumpet teacher, and so on.
+- I believe the gypsies were instructed to drug me at this time, and organize something to happen back at my apartment while I was sedated, as preparation for the [Bali trip](may.md#bali) where I believe many paying tech-bro porn-addicts were laying in wait for me.
 
 ## Fake account posts about "peeping at pre-schoolers"
 
