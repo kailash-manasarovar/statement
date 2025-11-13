@@ -762,7 +762,7 @@ function googleTranslateElementInit() {
 
 - The man has the same build as [trumpet teacher number two](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013) and Lorraine's ex-husband.
 - He's wearing the same dirty brown leather jacket he wore to class, and his back is to me.
-- Beside him is a very young blond woman (Carmen Cano maybe).
+- Beside him is a very young-looking blond woman (Carmen Cano maybe).
 - He looks exactly like he did at the [choir concert set up in December 2022](../2022/december.md#choir-concert) and other occasions. 
 - I immediately see the trap and decide to ignore them completely.
 - I walk past them.
