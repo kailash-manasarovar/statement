@@ -903,7 +903,6 @@ function googleTranslateElementInit() {
 ![](../../content/images/google-searches/april-24/Screenshot%202024-04-21%20at%2005.32.48.png)
 
 ![](../../content/images/google-searches/april-24/Screenshot%202024-04-21%20at%2005.34.20.png)
-![](../../content/images/google-searches/april-24/Screenshot%202024-04-21%20at%2006.05.48.png)
 
 - This guy showed up on `@jctot19` results for a long time. Sometimes just him and Carmen or Rocio Vidal. He is into sado-masochism and I believe I saw him [coming out of my apartment building](../2023/september.md#a-man-i-recognize) in September 2023.
 
