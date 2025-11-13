@@ -904,8 +904,15 @@ function googleTranslateElementInit() {
 
 ![](../../content/images/google-searches/april-24/Screenshot%202024-04-21%20at%2005.34.20.png)
 
-- This guy showed up on `@jctot19` results for a long time. Sometimes just him and Carmen or Rocio Vidal. He is into sado-masochism and I believe I saw him [coming out of my apartment building](../2023/september.md#a-man-i-recognize) in September 2023.
+- This guy showed up on `@jctot19` results for a long time. 
 
 ![](../../content/images/google-searches/april-24/josep-l.JPG)
+
+- Sometimes just him and Carmen or Rocio Vidal showed up here.
+- He is into sado-masochism and I believe I saw him [coming out of my apartment building](../2023/september.md#a-man-i-recognize) in September 2023.
+
 ![](../../content/images/google-searches/april-24/image_123655411%20(1).JPG)
 ![](../../content/images/google-searches/april-24/josep-l-2.png)
+
+- I guess sedating women in their own homes is a branch of sado-masochistic sex.
+
