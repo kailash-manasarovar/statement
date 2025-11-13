@@ -741,7 +741,7 @@ function googleTranslateElementInit() {
 
 - They're walking in the same direction as me, up the Calle Diana.
 - There is an older man with three adult women and a small girl.
-- The man and the women are small in stature, I am taller than all of them.
+- The man and the women are small in stature, I am taller than all of them and I'm short.
 - The child is tiny, about three or four years old, with long, blond, curly hair. She's beautiful.
 - The man has a grandfather look about him with long grey-white curling hair.
 - He looks a lot like this guy who *popped up* on fake Facebook accounts.
