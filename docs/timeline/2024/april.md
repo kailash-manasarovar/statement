@@ -779,7 +779,7 @@ function googleTranslateElementInit() {
 
 - A fake account catches my eye.
 - The eagle triggers my interest.
-- *Eagle* is a meme that has been running throughout the cyber stalking since I saw [five of them at the Vignamale](../2023/august.md#eagles) the previous summer.
+- *Eagle* is a meme that has been running throughout the cyber stalking since I saw [five of them together at the Vignamale](../2023/august.md#eagles) the previous summer.
 
 ![Initial trigger](../../content/images/fake-accounts/voyeurism-minors/peeping-at-pre-schoolers.jpg)
 
