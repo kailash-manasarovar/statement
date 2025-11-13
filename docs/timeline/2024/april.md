@@ -722,7 +722,7 @@ function googleTranslateElementInit() {
 - I'm also planning to speak about what's happening to me and how it relates to my views on gender ideology.
 - I meet the team online over zoom a couple of times before the event.
 
-## The trumpet teacher in Dénia
+## Drugged in the street by Dénia gypsies
 
 - It must be the 28th April, a Sunday, I go to the Chinese restaurant.
 - As I'm walking back home, I pass by a group of gypsies, a small girl running up beside me who I smile at and who gets shy and runs back to the group.

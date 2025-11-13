@@ -100,7 +100,7 @@ function googleTranslateElementInit() {
 - I was loop-thinking about the trumpet teacher and stressing about the chamber music class coming up the next day.
 - Sunday night was always when I felt particularly unwell at home.
 - I wasn't able to do [my homework properly](may.md#did-the-harmony-teacher-know-i-was-being-poisoned-at-home) on those evenings with a giant cup of tea, and I always felt unstable and tired. I often napped on those evenings.
-- It was on Sunday evenings also that I might [walk into town](september.md#gypsy-serenades) and maybe [bump into someone](september.md#rosa-vidal-follows-me-around) or experience some other [menacing situation](../2024/april.md#the-trumpet-teacher-in-denia).
+- It was on Sunday evenings also that I might [walk into town](september.md#gypsy-serenades) and maybe [bump into someone](september.md#rosa-vidal-follows-me-around) or experience some other [menacing situation](../2024/april.md#drugged-in-the-street-by-denia-gypsies).
 - I often chatted with the lovely man who worked at the laundry, but sometimes even he said things to me which suggested he knew exactly who I was and what I was experiencing.
 - One particular time was in [October 2024](../2024/october.md#sunday-6th-october) when I saw the possum-man at the beach and was [offered a job working for this `Caesar`](../2024/october.md#job-offer), as they called him online when I got home.
 - Remember I had inexplicably been seeing [possums online for over a year](may.md#possums) by that time.

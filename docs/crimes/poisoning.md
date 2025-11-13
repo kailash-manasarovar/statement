@@ -20,7 +20,7 @@ function googleTranslateElementInit() {
 
 ### A small beautiful child
 
-- In [April 2024](../timeline/2024/april.md#the-trumpet-teacher-in-denia), I am targeted by a small gypsy family as I leave the Chinese restaurant.
+- In [April 2024](../timeline/2024/april.md#drugged-in-the-street-by-denia-gypsies), I am targeted by a small gypsy family as I leave the Chinese restaurant.
 - As I'm walking towards the tunnel, they are in front of me walking slowly.
 - There are three or four adults and a small child; one older male with long grey hair and a beard and two or three younger women.
 - The child is about three with long blond curly hair and blue eyes. She's startlingly beautiful.
