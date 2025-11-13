@@ -777,29 +777,28 @@ function googleTranslateElementInit() {
 
 ## Fake account posts about "peeping at pre-schoolers"
 
-- I notice a fake account that's interesting.
-- I'm triggered to become interested and translate the message because of the picture of an eagle which is a meme that has been running throughout the cyber stalking.
+- A fake account catches my eye.
+- The eagle triggers my interest.
+- *Eagle* is a meme that has been running throughout the cyber stalking since I saw [five of them at the Vignamale](../2023/august.md#eagles) the previous summer.
 
-![Initial trigger](../../content/images/fake-accounts/voyeurism-minors/1.jpg)
+![Initial trigger](../../content/images/fake-accounts/voyeurism-minors/peeping-at-pre-schoolers.jpg)
 
-!!! warning
-    - The photo of a the person with glasses here looks remarkably like an AI mix with me in it.
-
-- I see "Peeking at adults is no..." translated so I open the image as it is clearly references voyeurism.
+- I read "Peeking at adults is no..." in the translation, so I open the image to see the whole meesage as there is a clear reference to voyeurism.
 
 ![Initial trigger opened](../../content/images/fake-accounts/voyeurism-minors/2.jpg)
 
-- The translation read ""Peeping at adults is terrible but peeping at preschoolers is...". 
+- The translation read "Peeping at adults is terrible but peeping at preschoolers is...". 
 
 ![Peeping at preschoolers](../../content/images/fake-accounts/voyeurism-minors/3.jpg)
 
-!!! tip "August account with same triggers"
-    - In August, a similar account likes something I've posted.
-    - I describe this [here](august.md#hidden-camera-account).
-    - It has the same eagle trigger, and Hebrew language as the one just mentioned.
-    - I'm not sure if it is the same account. It could be.
-    - The pinned thread on the timeline references a person targeted by someone who he had trusted, and had sex with, and was consequently stalked and filmed by secret cameras.
-    - I assume this is to suggest the trumpet teacher was targeted by Domingo who has been blackmailing him in some way since then.
+### Same account in August 
+
+- In August, a similar account likes something I've posted.
+- I detail this [in the August section of this police statement](august.md#hidden-camera-account).
+- The account has the same eagle trigger and Hebrew language as the one just mentioned.
+- I'm not sure if it is the same account. It could be.
+- The pinned thread on the account's timeline references a person targeted by someone who he had trusted, and had sex with, and was consequently stalked and filmed with secret cameras.
+- This suggested to me that the trumpet teacher was targeted by Domingo, a civil servant with connections to government officials, who has been blackmailing him since then.
     - The account is here: https://x.com/Cr7Rival3711.
     - The pinned message is translated here:
 
