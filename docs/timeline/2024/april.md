@@ -322,6 +322,14 @@ function googleTranslateElementInit() {
     [16/04/2024, 23:26:53] Niramisa Weiss: Ok</br>
     [16/04/2024, 23:36:26] Jorge Esclapez Deckcard23: 607349256</br>
 
+## Reporting hacking to my previous jobs
+
+- It's my obligation to report hacking to the jobs I worked at prior to Polygon Labs: [zkSync](../../content/documents/emails/zkSync.pdf) and [Digital Asset](../../content/documents/emails/DigitalAsset.pdf).
+- I write emails to them both.
+- I also tweet about it in an attempt to take back some control over my day-to-day life.
+
+[![Reporting hacking to the American bank](../../content/tweets/april-2024/informing-the-american-bank.jpg)](https://x.com/1FRGVN/status/1784565249028284779)
+
 ## Roberto Rodriguez, lawyer
 
 - I am communicating with Roberto Rodriguez about visiting Alicante this week.
@@ -645,6 +653,9 @@ function googleTranslateElementInit() {
 - Everything that happens to me is a threat now.
 - I'm overwhelmed with sexual arousal in my apartment yet again, normally at lunchtimes between 13:00-16:00.
 - Am I starring in the spy-cam masturbating lunchtime special?
+- I tweet a reference to this.
+
+[![Beltane](../../content/tweets/april-2024/beltane.jpg)](https://x.com/1FRGVN/status/1784229315430768709)
 
 ### Hackers seem to be annoyed
 
@@ -720,6 +731,10 @@ function googleTranslateElementInit() {
 - I apply to volunteer and be a steward at the event.
 - I'm accepted.
 - I'm also planning to speak about what's happening to me and how it relates to my views on gender ideology.
+- I tweet my first thoughts.
+
+[![Speech drafts](../../content/tweets/april-2024/preparing-my-speech.jpg)](https://x.com/1FRGVN/status/1784677373998207117)
+
 - I meet the team online over zoom a couple of times before the event.
 
 ## Drugged in the street by Dénia gypsies
@@ -773,7 +788,10 @@ function googleTranslateElementInit() {
     - Why didn't I go to sleep?
     - Here's the [tweet search](https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-04-29%20since%3A2024-04-28&src=typed_query).
     - I mention smelling toast, and I remember that as it was very unusual.
-    - Why am I up all night tweeting exuberantly?
+
+    [![Smelling toast](../../content/tweets/april-2024/smelling-toast.jpg)](https://x.com/1FRGVN/status/1784719295261384849)
+
+    - Why am I up all night tweeting exuberantly? It doesn't make any sense.
 
 ## Fake account posts about "peeping at pre-schoolers"
 
@@ -820,35 +838,63 @@ function googleTranslateElementInit() {
 
 ### `@1frgvn`
 
-- https://x.com/1FRGVN/status/1784719295261384849 -> smelling toast.
-- https://x.com/1FRGVN/status/1784677373998207117 -> speech snippets for Madrid Let women Speak.
-- https://x.com/1FRGVN/status/1784565249028284779 -> I informed my old workplaces that I had been hacked while working for them.
-- https://x.com/1FRGVN/status/1784542558862918107
-- https://x.com/1FRGVN/status/1784540203220074912 -> mentioning remembering the face-pack thing from [2014](../early-years/2016.md#may).
-- https://x.com/1FRGVN/status/1784528919112106410 -> I had told my friend it felt like all these witches were sitting round knitting and casting evil spells on me.
-- https://x.com/1FRGVN/status/1784521239114953166 -> reference to hacking.
-- https://x.com/1FRGVN/status/1784264538151370833
-- https://x.com/1FRGVN/status/1784229315430768709 -> reference to sexual feelings.
-- https://x.com/1FRGVN/status/1784109158037389456
-- https://x.com/1FRGVN/status/1783619334906036671
-- https://x.com/1FRGVN/status/1783616160992276606
-- https://x.com/1FRGVN/status/1783615253118394766
-- https://x.com/1FRGVN/status/1783194049417007494
-- https://x.com/1FRGVN/status/1783193112896065859
-- https://x.com/1FRGVN/status/1782487919497797676 -> strawberries
-- https://x.com/1FRGVN/status/1782374466820968905
-- https://x.com/1FRGVN/status/1782166832113144050
-- https://x.com/1FRGVN/status/1782156422110650665
-- https://x.com/1FRGVN/status/1782150606909563340
-- https://x.com/1FRGVN/status/1781975115900584378
-- https://x.com/1FRGVN/status/1781969760395166111
-- https://x.com/1FRGVN/status/1781892021164109890
-- https://x.com/1FRGVN/status/1781839580821397692
-- Here's the search URL: https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-04-30%20since%3A2024-03-31&src=typed_query&f=live
+- I tweet a poll about how the story ends.
+
+[![How does the story end](../../content/tweets/april-2024/how-does-the-story-end.jpg)](https://x.com/1FRGVN/status/1784542558862918107)
+
+- I could see these women sitting in a circle knitting, or embroidering, and it felt like they were evil witches doing sorcery on me. I even told Alex about this strong idea I kept having.
+
+[![Geriatric knitters](../../content/tweets/april-2024/geriatric-knitting-group.jpg)](https://x.com/1FRGVN/status/1784528919112106410)
+
+- I expect I was not too far off the truth on this.
+- I quite enjoyed the geriatric knitter meme and wondered what they would do if they got technologically advanced.
+
+[![Geriatric knitting hackers](../../content/tweets/april-2024/geriatric-knitting-group-1.jpg)](https://x.com/1FRGVN/status/1784521239114953166)
+
+- I tweet a poll about why privacy laws might be criminal.
+
+[![Privacy laws](../../content/tweets/april-2024/privacy-laws.jpg)](https://x.com/1FRGVN/status/1784109158037389456)
+
+- I often mentioned how they never saw me coming. They ignored these warnings, and still are ignoring them, which is amusing.
+
+[![Never saw me coming](../../content/tweets/april-2024/they-never-saw-me-coming.jpg)](https://x.com/1FRGVN/status/1783616160992276606)
+
+- I think they did use "transphobia" to drum up hatred towards me, but in the end it wasn't nearly enough to explain a whole town on a murderous rampage. No, there was more, much more. I believe they went mad because I had been repeatedly sexually assaulted as a child by black men and that made me something detestable which needed to be destroyed. Prove me wrong.
+
+[![Transphobic](../../content/tweets/april-2024/transphobic.jpg)](https://x.com/1FRGVN/status/1783194049417007494)
+
+- If I'm right, then Dénia really is a pedo's dream because anyone attacked is deemed worthless. How do they manage to protect anyone? They don't. It's bedlam.
+- Someone knew the date.
+
+[![Strawberry eve](../../content/tweets/april-2024/strawberry-eve.jpg)](https://x.com/1FRGVN/status/1782487919497797676)
+
+- I loved winding them up.
+
+[![Controlling women poll](../../content/tweets/april-2024/wind-ups.jpg)](https://x.com/1FRGVN/status/1782374466820968905)
+
+- I was curious how much these people make from women they honey-trap.
+
+[![Honey trapper poll](../../content/tweets/april-2024/honey-trapper-poll.jpg)](https://x.com/1FRGVN/status/1782150606909563340)
+
+- Little did I know they had made, and were still making, millions on my suffering alone.
+- I thought of all sorts of possible scenarios these people had forced on the innocent.
+
+[![Possible scenarios](../../content/tweets/april-2024/things-that-may-have-happened.jpg)](https://x.com/1FRGVN/status/1781975115900584378)
+
+- I posted a massive underestimation of my situation.
+
+[![My situation, underestimated](../../content/tweets/april-2024/my-situation.jpg)](https://x.com/1FRGVN/status/1781969760395166111)
+
+- I remain mindblown at the Generalitat's total protection of something utterly despicable and repellant putting all minors in harms way.
+
+[![Generalitat's total lack of duty of care](../../content/tweets/april-2024/how-schools-should-behave.jpg)](https://x.com/1FRGVN/status/1781892021164109890)
+
+- Here's the [search URL for this month](https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-04-30%20since%3A2024-03-31&src=typed_query&f=live). Maybe I'll come back and review them again one day. Hopefully not.
 
 ### `@JackChardwood`
 
-- https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2024-04-30%20since%3A2024-04-01&src=typed_query&f=live
+- Here's the [search URL for this month](https://x.com/search?q=(from%3Ajackchardwood)%20until%3A2024-04-30%20since%3A2024-04-01&src=typed_query&f=live).
+- If anyone sees anything interesting, you could raise a PR once I open the repo.
 
 ### Google searches
 

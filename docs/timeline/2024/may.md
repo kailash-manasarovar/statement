@@ -307,6 +307,10 @@ function googleTranslateElementInit() {
 - He reminds me of the busker in the tunnel at the [end of April](april.md#drugged-in-the-street-by-denia-gypsies) just after the gypsies drugged me.
 - Is he the guy they brought over to Bali to do the sedating?
 
+### Telling people about the forgivenet
+
+- wip
+
 ### Alicia
 
 - Alicia Katz worked at Polygon and was part of the bullying I described to my manager (the CTO at the time that took over from David Schwartz) as a military coup operation.

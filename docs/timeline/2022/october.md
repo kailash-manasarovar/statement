@@ -31,6 +31,16 @@ function googleTranslateElementInit() {
 - Sam says, oh no, she's really scatty.
 - I wonder why he would say this about a 14-year old girl who is an obvious target.
 
+## Samuel goes to Paris with his girlfriend
+
+- Samuel is going to be away for one harmony class.
+- I ask him where he's going.
+- He says he is going to Paris with his girlfriend.
+- I say, *Oh, how romantic*.
+- He very defiantly says, *No! Not romantic at all!*.
+- He made it sound like the trip, for him, was an obligation.
+- What was his real purpose in taking his Venezuelan girlfriend to Paris, then?
+
 ## Vomiting and sickness in the flat
 
 - When I arrived back from holiday in September, I noticed horrible brown streaks along the inside of the fridge and on the floor.
