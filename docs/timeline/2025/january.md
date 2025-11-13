@@ -200,7 +200,8 @@
 
 ## Seeking asylum in another country
 
-- I am clearly unsafe in the United Kingdom as well as Spain and France, and especially in North London where my family live.
+- I am clearly unsafe in the United Kingdom as well as in Spain and France, and especially in North London where my family live.
+- I've spent my whole life being gaslit by people pretending nothing has ever happened to me and my mother's attitude towards me is especially upsetting.
 - I access the Israel website for asylum seekers and try to make an application.
 - My web access is continuously blocked.
 - I give up.

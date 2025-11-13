@@ -190,6 +190,9 @@ function googleTranslateElementInit() {
 
 - I think they must have started this in late February or early March.
 - It'll be in the records somewhere. Alicia can confirm it.
+- Did David Schwartz and the Spanish founders suggest this happen in a sort of parallel terrorizing to go along with what was happening at the conservatory?
+- It certainly came from up high and multiple teams were involved in singling me and my job out.
+- I assumed it was because of my TERFing online, but it wasn't really that at all, although it's possible that's how they justified it to, at least the women involved I hope.
 
 ### Flight to Bali
 
