@@ -484,6 +484,7 @@ function googleTranslateElementInit() {
 
 ![Alicante arrivals hall](../../content/images/alicante.png)
 
+- In November 2025, I know that this man was the [third of the set of trumpet teachers](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) that came to the conservatory to teach.
 - I can't believe it could be him; I'm horrified actually.
 - I pull my hat down over my eyes and rush through.
 - I forget about this, thinking I must have made a mistake because it's so weird. 
@@ -573,6 +574,10 @@ function googleTranslateElementInit() {
 ## Rest of June
 
 - In direct defiance of the criminal gang that has targeted me, I go in to practice the piano every day at the conservatory.
+- Here are my results: 
+
+![June 2023 conservatory results](../../content/images/june-2023-conservatory-results.png)
+
 - I'm still under the impression that only Domingo Cano plus his willing helpers had my destruction in mind.
 - I'm hoping it's all over now and we can get on with playing music without any drama.
 - One morning while I'm practicing, Domingo opens the door and pokes his head through and looks at me meaningfully and menacingly, as if to say; "So you're still here!".
