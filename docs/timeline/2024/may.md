@@ -298,6 +298,15 @@ function googleTranslateElementInit() {
 - If I'm in porn again, filmed at the Polygon Bali conference, you'll see me masturbating in tree pose.
 - Bit embarrassing, I hope you find it.
 
+### Spanish engineer I recognize
+
+- I meet a lot of the Spanish engineers.
+- One of them seems out of place, embarrassed. 
+- Nobody introduces him and he never speaks.
+- He can't look me in the eye.
+- He reminds me of the busker in the tunnel at the [end of April](april.md#drugged-in-the-street-by-denia-gypsies) just after the gypsies drugged me.
+- Is he the guy they brought over to Bali to do the sedating?
+
 ### Alicia
 
 - Alicia Katz worked at Polygon and was part of the bullying I described to my manager (the CTO at the time that took over from David Schwartz) as a military coup operation.
