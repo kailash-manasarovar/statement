@@ -736,6 +736,9 @@ function googleTranslateElementInit() {
 
 - I go to the Pekin Chinese restaurant for dinner.
 - As I'm walking back home, I see a small group of gypsies in front of me.
+
+![Carrer Diana gypsies](../../content/images/carrer-diana-gypsies.png)
+
 - They're walking in the same direction as me, up the Calle Diana.
 - There is an older man with three adult women and a small girl.
 - The man and the women are small in stature, I am taller than all of them.
