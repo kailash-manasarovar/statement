@@ -78,6 +78,9 @@ function googleTranslateElementInit() {
 ![Followers Ludwig B 1](../../content/tweets/may-2024/shared-followers-1.jpg)
 ![Followers Ludwig B 2](../../content/tweets/may-2024/shared-followers-2.jpg)
 
+- After these interactions, I would see this account's posts on my timeline frequently.
+- It was as if she was on an AI auto-rant about a man who had been obsessed with her, who'd followed her to Scotland, etc etc: relentless drivel with, I expect, truths thrown in.
+
 ## The laundry
 
 - I go to the laundry to dry my clothes.
