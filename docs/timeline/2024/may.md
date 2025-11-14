@@ -179,7 +179,7 @@ function googleTranslateElementInit() {
 - Do they have public conversations like these with targets, and stream them into a porn channel somewhere, while playing the sedated rape footage on the same screen?
 - The account originally liked all my replies, always exactly when I posted. Was deleting them a means of letting me know I no longer served any purpose?
 - I know the communication is related and non-random, just like the other stalker accounts that have interacted with me previously.
-- He talks about a female *friend* coming in from time to time and indeed another account starts playing the same game for a short while.
+- He talks about a female *friend* coming in from time to time and indeed another account starts playing the same game for a short while: `@karisuesaxe`.
 
 [![The other account](../../content/tweets/may-2024/the-other-account.jpg)](https://x.com/karisuesaxe)
 
