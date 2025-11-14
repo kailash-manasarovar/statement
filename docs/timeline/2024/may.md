@@ -149,24 +149,56 @@ function googleTranslateElementInit() {
 
 ## Beams
 
-- An account has been interact with my @JackChardwood account in an usual way: https://x.com/search?q=%20(to%3Ajackchardwood)(from%3Abeams_game)&src=typed_query&f=live
+- An account interacts with my `@JackChardwood` account [in an usual way](https://x.com/search?q=%20(to%3Ajackchardwood)(from%3Abeams_game)&src=typed_query&f=live).
 - The interaction runs from 26th April to 31st May.
 - The account's name is `@Beams_Game`.
 
 ![Beams](../../content/images/beams-games.png)
 
-- I believe this is the Smiths again but I become convinced very quickly that it's the trumpet teacher, although I drop in and out of having this belief.
+- The account starts the conversation by replying to a reply.
+
+[![Here to save the world](../../content/tweets/may-2024/here-to-save-the-world.jpg)](https://x.com/Beams_Game/status/1783564782487961739)
+
+- And immediately goes into a long and rather irritating rant.
+- I wonder if it is someone I know.
+- I can't be bothered to go into all this because it was dull. There may well be snippets in here.
+- Certainly he mentioned a ketosis diet at one point and I thought, oh, it's Domingo.
+- At the time, I become convinced very quickly that it's the trumpet teacher, although I drop in and out of having this belief.
 - There's no question I'm on strong hallucinogenic substances at home.
-- There is some tweetage and we DM too.
-- He talks candidly about his extremely violent father. Much of this content is deleted now.
-- On 8th May he posts "Watching you shifting through your ups and downs, gives me the feeling, i know you better then your self do." sic.
+- He talks candidly about his extremely violent father, sharing intimately, yet another predator grooming mechanism.
+- Much of this content is deleted now.
+- One tweet I can't find anymore was on 8th May when he posts *Watching you shifting through your ups and downs, gives me the feeling, i know you better then your self do.* sic.
 
 ![Beams ups and downs](../../content/tweets/beams-ups-and-downs.png)
 
 - He originally liked all my replies.
-- I know it's related and non-random, just like the other accounts that have interacted with me previously.
-- I look up "beams" in Spanish. It is "Vigas". I'm nearly sure that's the trumpet teacher's nickname because he has big legs.
-- There are sinister references from this account too, suggestions of violence. The "impulses are waiting in line" sentence is very suggestive.
+- I know the communication is related and non-random, just like the other accounts that have interacted with me previously.
+- He talks about a female *friend* coming in from time to time and indeed another account start playing the game too for a short while.
+
+[![The other account](../../content/tweets/may-2024/the-other-account.jpg)](https://x.com/karisuesaxe)
+
+- I guess it's likely this is Domingo and Carmen, but it could be any of them.
+- I find myself eager for communication; the trick is working.
+- I look up *beams* in Spanish.
+- It is "Vigas". 
+- I become convinced that this is the trumpet teacher's nickname because he has big legs.
+- At least, three of the set of trumpet teachers have big legs; not the [first man](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man), although they might be thickish they're not big and muscular like the [fourth muscle man](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man), or like the other two (or three) who were tall men.
+- There are sinister references from this account too, suggestions of violence.
+- The *impulses are waiting in line* sentence is very suggestive of men perhaps taking turns.
+- Another post talks about just having had *coffee and pork crusts*.
+
+[![Coffee and pork crusts](../../content/tweets/may-2024/pork-crusts-and-coffee.jpg)](https://x.com/Beams_Game/status/1788480057519869978)
+
+- My responses back to this person are even more telling. 
+- I appear to be totally out of my mind and ready to jump into bed with this person and throw away my whole life to be with him.
+
+[![Out of my mind](../../content/tweets/may-2024/out-of-my-mind.jpg)](https://x.com/JackChardwood/status/1788488769592590732)
+
+- Was that exactly what they had in mind? I expect so.
+- I, interestingly, told this person a story about my father; the answers to which are interesting.
+
+[![Dad](../../content/tweets/may-2024/dad-stories.jpg)](https://x.com/JackChardwood/status/1790973553765929153)
+
 - Close to the end of our interaction he posts an extremely sinister picture.
 
 ![Beams clown](../../content/tweets/beams-clown.png)
