@@ -538,6 +538,9 @@ function googleTranslateElementInit() {
 
 - There are two men sitting in the front.
 - They glare at me angrily.
+
+![Grey Mercedes coupe](../../content/images/grey-mercedes-coupe.png)
+
 - As I approach them, crossing the street, they make the engine scream and howl before speeding off, the tyres screeching.
 - I become frightened and tweet about it.
 
@@ -550,7 +553,7 @@ function googleTranslateElementInit() {
 - At that time, from April or May 2025, fast cars will growl outside my apartment and often I hear them beeping their horns loudly as they pass.
 - Carrer Furs is an extremely quite road.
 - One time, I ran to see what the car beeping looked like.
-- It was [the same grey coupe I had seen in January](may.md#threatening-cars-outside-my-apartment).
+- It was the same car.
 
 ## Constant threat
 
