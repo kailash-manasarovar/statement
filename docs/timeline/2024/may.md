@@ -154,7 +154,7 @@ function googleTranslateElementInit() {
 - The interaction runs from 26th April to 31st May when I leave for Lourdes, and then they're done with this.
 - The account's name is `@Beams_Game`.
 
-![Beams](../../content/images/beams-games.png)
+[![Beams](../../content/images/beams-games.png)](https://x.com/Beams_Game)
 
 - The account starts the conversation by replying to a reply.
 
@@ -164,10 +164,10 @@ function googleTranslateElementInit() {
 - The rant has echoes of [`@hierencore48002`](march/13-end.md#hierencore49002); a way of keeping a conversation going without saying anything much at all.
 - I do immediately wonder if it is someone I know. 
 - I suspect my cousin because of the psychotic nature of the rant.
-- Certainly the account mentioned a ketosis diet at one point and I thought, oh, it's Domingo.
+- The account mentioned they were on a ketosis diet at one point and I thought, oh, it's Domingo.
 - At the time, I become convinced *extremely quickly* that it's the trumpet teacher, although I drop in and out of having this belief.
 - It's not at all clear why I would think this.
-- My replies, I believe, are proof I'm being dosed up on aphrodisiacs at home, and there's no question I'm on something hallucinogenic.
+- My replies, at least to me, are proof I'm being dosed up on aphrodisiacs at home, and there's no question I'm on something hallucinogenic.
 - He talks candidly about his extremely violent father, sharing intimately; yet another predator grooming mechanism.
 - Much of this content is deleted now.
 - One tweet I can't find anymore was posted on 8th May when he posts *Watching you shifting through your ups and downs, gives me the feeling, i know you better then your self do.* sic.
