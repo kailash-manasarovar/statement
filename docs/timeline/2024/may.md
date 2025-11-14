@@ -127,6 +127,20 @@ function googleTranslateElementInit() {
 - I expect so.
 - I can tell I was on high-potency hallucinogens at this stage because in that altered state of mind I barely recognized Ana due to increasingly blurry vision, for one, and [I was also trying to see if she was pregnant!](march/1-12.md#ana-dresses-up-pregnant)
 
+## Dreaming of the pedophile
+
+- I dream of Winston M.
+- I don't think I have ever dreamed of Winston M, apart from a few months after the [child sex attacks occurred in 1989](../early-years/2015.md#statement-to-the-metropolitan-police). 
+- At that time, I dreamed he and I were in the same house in Plevna Crescent, and I asked him if I could go to the toilet, like a child asks an adult, and when I went to the toilet in the dream, I wet the bed in real life.
+- I think this was a memory of something that had happened just after an extraordinarily traumatic event.
+- I hadn't wet the bed since I was very small.
+- In my dream in May 2024, he is wearing a yellow and grey checked jumper and a white chimney-sweep hat.
+- We are in a kind of makeshift wooden room, like an external annex or temporary building.
+- There are fold up tables with people sitting at them. There are piles of papers on the tables, leaflets maybe.
+- He looks at me.
+- I walk over to him to talk to him.
+- He turns his head away and doesn't speak.
+
 ## Beams
 
 - An account has been interact with my @JackChardwood account in an usual way: https://x.com/search?q=%20(to%3Ajackchardwood)(from%3Abeams_game)&src=typed_query&f=live
@@ -161,19 +175,36 @@ function googleTranslateElementInit() {
 !!! danger
     - Whatever is going on is showing no signs of stopping, even though I have been terrorized sufficiently to stop my studies at the conservatory.
 
-## Dreaming of the pedophile
+## Telegram/Signal
 
-- I dream of Winston M.
-- I don't think I have ever dreamed of Winston M, apart from a few months after the [child sex attacks occurred in 1989](../early-years/2015.md#statement-to-the-metropolitan-police). 
-- At that time, I dreamed he and I were in the same house in Plevna Crescent, and I asked him if I could go to the toilet, like a child asks an adult, and when I went to the toilet in the dream, I wet the bed in real life.
-- I think this was a memory of something that had happened just after an extraordinarily traumatic event.
-- I hadn't wet the bed since I was very small.
-- In my dream in May 2024, he is wearing a yellow and grey checked jumper and a white chimney-sweep hat.
-- We are in a kind of makeshift wooden room, like an external annex or temporary building.
-- There are fold up tables with people sitting at them. There are piles of papers on the tables, leaflets maybe.
-- He looks at me.
-- I walk over to him to talk to him.
-- He turns his head away and doesn't speak.
+- I believe the hackers/stalkers had started to drug me seriously again at home since getting back to Dénia in April.
+- A Telegram chat on my Spanish phone invited me to play a game which I downloaded, probably how they so easily got access again, and it was just endless boredom.
+
+!!! danger
+    - I wonder now if this is how they target children.
+    - Get them hooked into a game and then communicate online with them, hack their webcams like mine was, and manipulate them into something pedophilic. 
+
+- Then, in May, I was contacted on Twitter by an Elon Musk's brother, a fake account obviously, who told me Elon wanted to talk to me, and gave me the Signal details.
+- Weirdly, I'm hooked.
+- One of the first things this account says is "send pics". 
+- I am angry, and tell them I'm not interested in pics, and I don't want to see any male genitals, but I still continue to talk.
+- It's not clear why although something in my mind believes it is the trumpet teacher again. It's very strange.
+- It was extremely weird in fact. I sent an extraordinarily long rant to this person's account while I was flying to Bali in May.
+- In it, I mentioned one image seen on `@jctot19` Google search throughout December which was a film directed by Mel Gibson about child sex trafficking, a true story: https://www.imdb.com/title/tt7599146/.
+- The film is playing on Turkish Airlines at the time and I watch it.
+- It is a true story and the protagonist's wife is called Katharine.
+- It's all so "meaningful".
+- I wonder why they would have put that in Google search results for me to see, and I think the worst.
+
+!!! info
+    - Was the trumpet teacher alerting me to child sex trafficking going on in Dénia, with the conservatory somehow the training or recruitment ground?
+    - It seemed preposterous to me.
+    - More likely, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police) and had become obsessed by it for some reason.
+
+### Targeting kids
+
+- Online games.
+- Cartoons.
 
 ## Madrid
 
@@ -208,37 +239,6 @@ function googleTranslateElementInit() {
 - What I don't know is that I'm being drugged so I'm not at all clear about what's going on, and when I think about the trumpet teacher I get giggly because of the triggered sexual arousal.
 - Later, in January 2025, someone posts me a picture of the woman who was organizing the Spanish feminists at this event as the face in the Sphinx.
 - I take this to mean the woman has gitano connections and was told to discredit me whatever way she could; and she could not refuse the request.
-
-## Telegram/Signal
-
-- I believe the hackers/stalkers had started to drug me seriously again at home since getting back to Dénia in April.
-- A Telegram chat on my Spanish phone invited me to play a game which I downloaded, probably how they so easily got access again, and it was just endless boredom.
-
-!!! danger
-    - I wonder now if this is how they target children.
-    - Get them hooked into a game and then communicate online with them, hack their webcams like mine was, and manipulate them into something pedophilic. 
-
-- Then, in May, I was contacted on Twitter by an Elon Musk's brother, a fake account obviously, who told me Elon wanted to talk to me, and gave me the Signal details.
-- Weirdly, I'm hooked.
-- One of the first things this account says is "send pics". 
-- I am angry, and tell them I'm not interested in pics, and I don't want to see any male genitals, but I still continue to talk.
-- It's not clear why although something in my mind believes it is the trumpet teacher again. It's very strange.
-- It was extremely weird in fact. I sent an extraordinarily long rant to this person's account while I was flying to Bali in May.
-- In it, I mentioned one image seen on `@jctot19` Google search throughout December which was a film directed by Mel Gibson about child sex trafficking, a true story: https://www.imdb.com/title/tt7599146/.
-- The film is playing on Turkish Airlines at the time and I watch it.
-- It is a true story and the protagonist's wife is called Katharine.
-- It's all so "meaningful".
-- I wonder why they would have put that in Google search results for me to see, and I think the worst.
-
-!!! info
-    - Was the trumpet teacher alerting me to child sex trafficking going on in Dénia, with the conservatory somehow the training or recruitment ground?
-    - It seemed preposterous to me.
-    - More likely, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police) and had become obsessed by it for some reason.
-
-### Targeting kids
-
-- Online games.
-- Cartoons.
 
 ## Bali
 
