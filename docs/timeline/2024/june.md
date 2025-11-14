@@ -203,3 +203,9 @@ function googleTranslateElementInit() {
 - This may change as I have no choice but to move back to London in 2025.
 
 [![Spy cams in London in 2025](../../content/tweets/spy-cams-in-london.png)](https://x.com/1FRGVN/status/1926266246925795504)
+
+## Telling my brother at the White Lion
+
+- I take my brother out to dinner at the White Lion in N2 and tell him everything.
+- I had told my brother everything I knew in June 2024 about what was going on for me and how much danger I was in. 
+- We were tracked in the pub at that time by *operatives*, police I expect.
