@@ -125,7 +125,7 @@ function googleTranslateElementInit() {
 - What happens if they refuse the order? Or are they happy to shepherd porn-gang targets to their demise?
 - Is the idea that, if the worst came to the worst and the police did decide to get their finger out, Ana and the rest of them go to prison instead of the real criminals?
 - I expect so.
-- I can tell I was on high-potency hallucinogens at this stage because in that altered state of mind I barely recognized Ana, for one, and [I was also trying to see if she was pregnant!](march/1-12.md#ana-dresses-up-pregnant)
+- I can tell I was on high-potency hallucinogens at this stage because in that altered state of mind I barely recognized Ana due to increasingly blurry vision, for one, and [I was also trying to see if she was pregnant!](march/1-12.md#ana-dresses-up-pregnant)
 
 ## Beams
 
