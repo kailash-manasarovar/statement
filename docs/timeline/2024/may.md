@@ -50,6 +50,7 @@ function googleTranslateElementInit() {
 
 [![DS Lc](../../content/tweets/may-2024/ds-lc.jpg)](https://x.com/ChoralSymphony/status/1785407850715464027)
 
+- Oh yeah, it's me, Lydia Cleaves... except I'm a DCI. Mistake?
 - There was a lot of talk about how *I* had *f*ed up*, which was curious.
 - Indeed, she spent a lot of energy telling me how I had *f-ed up* which was an interesting projection, but as I mentioned probably intentionally meant to whittle away at my inner resources so I would be more easily inclined to give up my life to the porn-gangs post-Bali.
 
