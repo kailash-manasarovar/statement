@@ -174,6 +174,7 @@ function googleTranslateElementInit() {
 
 ![Beams ups and downs](../../content/tweets/beams-ups-and-downs.png)
 
+- The *impulses are waiting in line* sentence is suggestive of men perhaps waiting to take turns on me.
 - It's hard for me to understand why I was so utterly convinced I was talking to the trumpet teacher I loved, especially when there was a whole bunch of them.
 - Do they have public conversations like these and stream them into a porn channel somewhere, while playing the sedated rape footage on the same screen?
 - The account originally liked all my replies.
@@ -190,7 +191,6 @@ function googleTranslateElementInit() {
 - At least, three of the set of trumpet teachers have big legs; not the [first man](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man), although they might be thickish they're not big and muscular like the [fourth muscle man](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man), or like the other two (or three) who were tall men.
 - Could this indeed be one of their nicknames?
 - There are sinister references from this account too, suggestions of violence.
-- The *impulses are waiting in line* sentence is suggestive of men perhaps taking turns.
 - Another post talks about just having had *coffee and pork crusts*.
 
 [![Coffee and pork crusts](../../content/tweets/may-2024/pork-crusts-and-coffee.jpg)](https://x.com/Beams_Game/status/1788480057519869978)
