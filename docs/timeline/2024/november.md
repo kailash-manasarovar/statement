@@ -78,6 +78,8 @@ function googleTranslateElementInit() {
 ## Bangkok
 
 - On 7th or so of this month, I return to Madrid to fly to Thailand, a trip I had arranged for some time.
+- I stay at the Citadines Sukkumvit Soi 8 hotel.
+- The cleaner looks like she has been crying, every morning.
 
 ### Writing my police statement
 

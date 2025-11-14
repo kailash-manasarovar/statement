@@ -161,7 +161,7 @@ function googleTranslateElementInit() {
 [![Here to save the world](../../content/tweets/may-2024/here-to-save-the-world.jpg)](https://x.com/Beams_Game/status/1783564782487961739)
 
 - And immediately goes into a long and, what I find now to be a rather irritating rant.
-- The rant has echoes of [`@hierencore48002`](march/13-end.md#hierencore49002); a way of keeping a conversation going without saying anything much at all.
+- The rant has echoes of [`@hierencore49002`](march/13-end.md#hierencore49002); a way of keeping a conversation going without saying anything much at all.
 - I do immediately wonder if it is someone I know. 
 - I suspect my cousin because of the psychotic nature of the rant.
 - The account mentioned they were on a ketosis diet at one point and I thought, oh, it's Domingo, except it could be any muscle man obviously.
