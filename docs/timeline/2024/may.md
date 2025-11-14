@@ -174,7 +174,7 @@ function googleTranslateElementInit() {
 
 ![Beams ups and downs](../../content/tweets/beams-ups-and-downs.png)
 
-- The *impulses are waiting in line* sentence is suggestive of men perhaps waiting to take turns on me.
+- The watching me through ups and downs, and *impulses are waiting in line* sentences are suggestive of men taking turns on me.
 - It's hard for me to understand why I was so utterly convinced I was talking to the trumpet teacher I loved, especially when there was a whole bunch of them.
 - Do they have public conversations like these with targets, and stream them into a porn channel somewhere, while playing the sedated rape footage on the same screen?
 - The account originally liked all my replies, always exactly when I posted. Was deleting them a means of letting me know I no longer served any purpose?
