@@ -135,6 +135,8 @@ function googleTranslateElementInit() {
 
 ![Beams](../../content/images/beams-games.png)
 
+- I believe this is the Smiths again but I become convinced very quickly that it's the trumpet teacher, although I drop in and out of having this belief.
+- There's no question I'm on strong hallucinogenic substances at home.
 - There is some tweetage and we DM too.
 - He talks candidly about his extremely violent father. Much of this content is deleted now.
 - On 8th May he posts "Watching you shifting through your ups and downs, gives me the feeling, i know you better then your self do." sic.
