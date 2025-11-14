@@ -149,7 +149,7 @@ function googleTranslateElementInit() {
 !!! quote
     Erroll Garner was inspired to write "Misty" on a flight from San Francisco to Chicago which passed through a thunderstorm: as the plane descended into O'Hare, Garner (was thinking about his wife) and he looked through the window to see a rainbow glowing through a haze and (the word Misty and the tune popped into his head). Erroll was moved to begin composing "Misty" on the spot.
     
-    - https://en.wikipedia.org/wiki/Misty_(song)
+    - [https://en.wikipedia.org/wiki/Misty_(song)](https://en.wikipedia.org/wiki/Misty_(song))
     - https://www.steynonline.com/11411/misty
 
 - I'm playing it one day at class with Maria, who was busy with something else as usual.
