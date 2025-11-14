@@ -171,7 +171,9 @@ function googleTranslateElementInit() {
 
 ![Beams ups and downs](../../content/tweets/beams-ups-and-downs.png)
 
-- He originally liked all my replies.
+- It's hard for me to understand why I was so utterly convinced I was talking to the trumpet teacher I loved, especially when there was a whole bunch of them.
+- Do they have public conversations like these and stream them into a porn channel somewhere, while playing the sedated rape footage on the same screen?
+- The account originally liked all my replies.
 - I know the communication is related and non-random, just like the other accounts that have interacted with me previously.
 - He talks about a female *friend* coming in from time to time and indeed another account start playing the game too for a short while.
 
