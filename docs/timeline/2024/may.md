@@ -151,7 +151,7 @@ function googleTranslateElementInit() {
 
 - Grooming via social media, and unknown substances I'm ingesting without realizing it, continues apace on the run up to the Bali trip.
 - An account interacts with my `@JackChardwood` account [in an usual way](https://x.com/search?q=%20(to%3Ajackchardwood)(from%3Abeams_game)&src=typed_query&f=live).
-- The interaction runs from 26th April to 31st May when I leave for Lourdes, and then they're done with this.
+- The interaction runs from 26th April to 31st May when I leave for Lourdes and away from the spy-cams at home and in Bali, and then they're done.
 - The account's name is `@Beams_Game`.
 
 [![Beams](../../content/images/beams-games.png)](https://x.com/Beams_Game)
