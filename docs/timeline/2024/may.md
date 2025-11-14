@@ -129,14 +129,19 @@ function googleTranslateElementInit() {
 
 ## Dreaming of the pedophile
 
-- I dream of Winston M.
-- I don't think I have ever dreamed of Winston M, apart from a few months after the [child sex attacks occurred in 1989](../early-years/2015.md#statement-to-the-metropolitan-police). 
-- At that time, I dreamed he and I were in the same house in Plevna Crescent, and I asked him if I could go to the toilet, like a child asks an adult, and when I went to the toilet in the dream, I wet the bed in real life.
-- I think this was a memory of something that had happened just after an extraordinarily traumatic event.
+- I dream of Winston May.
+
+![Dreaming of the pedophile](../../content/images/dreaming-of-the-pedophile.png)
+
+- I don't think I have ever dreamed of Winston May, apart from once; a few months after the [child sex attacks occurred in 1989](../early-years/2015.md#statement-to-the-metropolitan-police). 
+- At that time, I dreamed he and I were in the same house in Plevna Crescent, and I asked him if I could go to the toilet, like a child asks an adult.
+- He gave me permission, and when I went to the toilet in the dream, I wet the bed in real life.
+- I was 16.
+- I think this dream was a true memory of something that had actually happened just after an extraordinarily traumatic event.
 - I hadn't wet the bed since I was very small.
 - In my dream in May 2024, he is wearing a yellow and grey checked jumper and a white chimney-sweep hat.
 - We are in a kind of makeshift wooden room, like an external annex or temporary building.
-- There are fold up tables with people sitting at them. There are piles of papers on the tables, leaflets maybe.
+- There are fold up tables with people sitting at them. There are piles of papers on the tables.
 - He looks at me.
 - I walk over to him to talk to him.
 - He turns his head away and doesn't speak.
