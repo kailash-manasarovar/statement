@@ -90,7 +90,7 @@ function googleTranslateElementInit() {
 
 ![Man in laundry looks at me and snickers](../../content/images/laundry-man.png)
 
-- My mother has some excuse for it, as usual.
+- My mother has some pre-baked excuse for it, as usual.
 - The [La Colada laundry](../2023/november.md#the-laundry) has CCTV, by the way.
 
 ## Cars beeping outside
