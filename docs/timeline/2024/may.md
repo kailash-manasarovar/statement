@@ -164,7 +164,7 @@ function googleTranslateElementInit() {
 - The rant has echoes of [`@hierencore48002`](march/13-end.md#hierencore49002); a way of keeping a conversation going without saying anything much at all.
 - I do immediately wonder if it is someone I know. 
 - I suspect my cousin because of the psychotic nature of the rant.
-- The account mentioned they were on a ketosis diet at one point and I thought, oh, it's Domingo.
+- The account mentioned they were on a ketosis diet at one point and I thought, oh, it's Domingo, except it could be any muscle man obviously.
 - At the time, I become convinced *extremely quickly* that it's the trumpet teacher, although I drop in and out of having this belief.
 - It's not at all clear why I would think this.
 - My replies, at least to me, are proof I'm being dosed up on aphrodisiacs at home, and there's no question I'm on something hallucinogenic.
