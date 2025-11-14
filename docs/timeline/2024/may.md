@@ -206,6 +206,7 @@ function googleTranslateElementInit() {
 
 [![Dad](../../content/tweets/may-2024/dad-stories.jpg)](https://x.com/JackChardwood/status/1790973553765929153)
 
+- At the time, I wondered about these odd replies.
 - Close to the end of our interaction, post-Bali, he posts an extremely sinister picture, I believe with the intention of shutting things down.
 
 ![Beams clown](../../content/tweets/beams-clown.png)
