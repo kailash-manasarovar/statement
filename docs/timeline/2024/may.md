@@ -105,12 +105,26 @@ function googleTranslateElementInit() {
 ## Climbing the Montgo
 
 - I climb the Montgo one Saturday afternoon.
-- Close to the top, I "bump" into Ana Requena, the violin teacher. She is with a husky dog and a short, slightly built man.
-- I realize it was this man in the [blue car incident](../2023/november.md#ana-in-the-blue-van), ducking down so he wouldn't be seen.
-- I also remember him from meeting [Paul and Alessandra back in September 2023](../2023/september.md#alex-and-paul) in a cafe as one of the people who suddenly sat down beside us.
-- She says hello in an angry way. 
-- I find it utterly ironic and wonder if all Spanish people are psychopaths.
-- Or was Ana now concerned she might be implicated in an actual murder and she was trying to cover her tracks in a confused way?
+- Close to the top, I "bump" into Ana Requena, the violin teacher. She is with a husky dog and a short, black curly-haired man.
+
+![Ana on the Montgo](../../content/images/ana-on-the-montgo.png)
+
+- I realize this was the man driving in the [blue car incident](../2023/november.md#ana-in-the-blue-van); ducking down so he wouldn't be seen and the myth of the [trumpet teacher's new car and relationship with Ana](../2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car) could continue.
+- He is small enough to not be seen if he ducked down.
+- I also remember this man from when I met [Paul and Alessandra back in September 2023](../2023/september.md#alex-and-paul) in a cafe as one of the people who suddenly sat down beside us.
+- And I realized even later that this man [told me everyone got used to the yoga teacher's relaxing music](../early-years/2015.md#nati-de-prati-yoga) back in 2015.
+- Ana barks *Hola* to me. 
+- I find this event utterly ironic, and I wonder if all Spanish people are psychopaths.
+- I tweet about this event at in July in response to a tweet from, you know who, [`@january_myth`](march/13-end.md#january_myth).
+
+[![Husky event](../../content/tweets/may-2024/husky.jpg)](https://x.com/1FRGVN/status/1817284269238014428)
+
+- Is this how criminals hiding behind fake accounts use real people to avoid capture? 
+- Do Ana and her boyfriend, and everyone else, have to obey orders to perform a certain choreographed events which can then be used later as evidence of their involvement?
+- What happens if they refuse the order? Or are they happy to shepherd porn-gang targets to their demise?
+- Is the idea that, if the worst came to the worst and the police did decide to get their finger out, Ana and the rest of them go to prison instead of the real criminals?
+- I expect so.
+- I can tell I was on high-potency hallucinogens at this stage because in that altered state of mind I barely recognized Ana, for one, and [I was also trying to see if she was pregnant!](march/1-12.md#ana-dresses-up-pregnant)
 
 ## Beams
 

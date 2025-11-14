@@ -1354,7 +1354,9 @@ function googleTranslateElementInit() {
 
 ## Online stalkers
 
-### `@january_myth` - Taru Ann
+### `@january_myth`
+
+#### Taru Ann
 
 - The following information supports my suspicion that *enormous* communities of occultists are involved in targeting women and children online for criminal porn-gangs internationally.
 - I believe my personal experience of this insidious manipulation is just a small task on a massive todo list for these (I expect mostly) women (the men are busy with the sedating and raping and filming, right?).
