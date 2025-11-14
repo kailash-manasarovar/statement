@@ -138,7 +138,7 @@ function googleTranslateElementInit() {
 - He gave me permission, and when I went to the toilet in the dream, I wet the bed in real life.
 - I was 16.
 - I think this dream was a true memory of something that had actually happened just after an extraordinarily traumatic event.
-- I hadn't wet the bed since I was very small.
+- I hadn't wet the bed since I was very small. I haven't wet the bed since.
 - In my dream in May 2024, he is wearing a yellow and grey checked jumper and a white chimney-sweep hat.
 - We are in a kind of makeshift wooden room, like an external annex or temporary building.
 - There are fold up tables with people sitting at them. There are piles of papers on the tables.
