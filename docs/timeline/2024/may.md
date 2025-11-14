@@ -149,8 +149,9 @@ function googleTranslateElementInit() {
 
 ## Beams
 
+- Grooming via social media continues apace on the run up to the Bali trip.
 - An account interacts with my `@JackChardwood` account [in an usual way](https://x.com/search?q=%20(to%3Ajackchardwood)(from%3Abeams_game)&src=typed_query&f=live).
-- The interaction runs from 26th April to 31st May.
+- The interaction runs from 26th April to 31st May when I leave for Lourdes, and then they're done with this.
 - The account's name is `@Beams_Game`.
 
 ![Beams](../../content/images/beams-games.png)
@@ -159,15 +160,17 @@ function googleTranslateElementInit() {
 
 [![Here to save the world](../../content/tweets/may-2024/here-to-save-the-world.jpg)](https://x.com/Beams_Game/status/1783564782487961739)
 
-- And immediately goes into a long and rather irritating rant.
-- I wonder if it is someone I know.
-- I can't be bothered to go into all this because it was dull. There may well be snippets in here.
-- Certainly he mentioned a ketosis diet at one point and I thought, oh, it's Domingo.
-- At the time, I become convinced very quickly that it's the trumpet teacher, although I drop in and out of having this belief.
-- There's no question I'm on strong hallucinogenic substances at home.
-- He talks candidly about his extremely violent father, sharing intimately, yet another predator grooming mechanism.
+- And immediately goes into a long and, what I find now to be a rather irritating rant.
+- The rant has echoes of [`@hierencore48002`](march/13-end.md#hierencore49002); a way of keeping a conversation going without saying anything much at all.
+- I do immediately wonder if it is someone I know. 
+- I suspect my cousin because of the psychotic nature of the rant.
+- Certainly the account mentioned a ketosis diet at one point and I thought, oh, it's Domingo.
+- At the time, I become convinced *extremely quickly* that it's the trumpet teacher, although I drop in and out of having this belief.
+- It's not at all clear why I would think this.
+- My replies, I believe, are proof I'm being dosed up on aphrodisiacs at home, and there's no question I'm on something hallucinogenic.
+- He talks candidly about his extremely violent father, sharing intimately; yet another predator grooming mechanism.
 - Much of this content is deleted now.
-- One tweet I can't find anymore was on 8th May when he posts *Watching you shifting through your ups and downs, gives me the feeling, i know you better then your self do.* sic.
+- One tweet I can't find anymore was posted on 8th May when he posts *Watching you shifting through your ups and downs, gives me the feeling, i know you better then your self do.* sic.
 
 ![Beams ups and downs](../../content/tweets/beams-ups-and-downs.png)
 
@@ -175,7 +178,7 @@ function googleTranslateElementInit() {
 - Do they have public conversations like these and stream them into a porn channel somewhere, while playing the sedated rape footage on the same screen?
 - The account originally liked all my replies.
 - I know the communication is related and non-random, just like the other accounts that have interacted with me previously.
-- He talks about a female *friend* coming in from time to time and indeed another account start playing the game too for a short while.
+- He talks about a female *friend* coming in from time to time and indeed another account starts playing the same game for a short while.
 
 [![The other account](../../content/tweets/may-2024/the-other-account.jpg)](https://x.com/karisuesaxe)
 
@@ -185,8 +188,9 @@ function googleTranslateElementInit() {
 - It is "Vigas". 
 - I become convinced that this is the trumpet teacher's nickname because he has big legs.
 - At least, three of the set of trumpet teachers have big legs; not the [first man](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man), although they might be thickish they're not big and muscular like the [fourth muscle man](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man), or like the other two (or three) who were tall men.
+- Could this indeed be one of their nicknames?
 - There are sinister references from this account too, suggestions of violence.
-- The *impulses are waiting in line* sentence is very suggestive of men perhaps taking turns.
+- The *impulses are waiting in line* sentence is suggestive of men perhaps taking turns.
 - Another post talks about just having had *coffee and pork crusts*.
 
 [![Coffee and pork crusts](../../content/tweets/may-2024/pork-crusts-and-coffee.jpg)](https://x.com/Beams_Game/status/1788480057519869978)
@@ -196,24 +200,25 @@ function googleTranslateElementInit() {
 
 [![Out of my mind](../../content/tweets/may-2024/out-of-my-mind.jpg)](https://x.com/JackChardwood/status/1788488769592590732)
 
-- Was that exactly what they had in mind? I expect so.
-- I, interestingly, told this person a story about my father; the answers to which are interesting.
+- Is that exactly what they have in mind for targets? I expect so.
+- I, interestingly, told this person a story about my father; the answers are telling maybe, carefully worded.
 
 [![Dad](../../content/tweets/may-2024/dad-stories.jpg)](https://x.com/JackChardwood/status/1790973553765929153)
 
-- Close to the end of our interaction he posts an extremely sinister picture.
+- Close to the end of our interaction, post-Bali, he posts an extremely sinister picture, I believe with the intention of shutting things down.
 
 ![Beams clown](../../content/tweets/beams-clown.png)
 
-- This is a good example of the pattern of content coming from the various anonymous accounts that have interacted with me, which I know are related to the trumpet teacher and Domingo:
+- The Beams interaction is a good example of the pattern of content coming from the various anonymous accounts that have interacted with me:
+
     - Subtle threats of violence.
     - Subtle mentions of knowledge we share.
     - Trigger words and symbols, memes.
     - Content peppered with romance and kindness, normal communication apparently, then a shock of some sort like the clown pic.
-- I remain extraordinarily highly sexually aroused during this month.
 
-!!! danger
-    - Whatever is going on is showing no signs of stopping, even though I have been terrorized sufficiently to stop my studies at the conservatory.
+- If it wasn't obvious from the threads, I remain extraordinarily highly sexually aroused throughout this month.
+- Do the porn gangs find that without an *object of interest*, a target is not so responsive, let's say.
+- I expect so.
 
 ## Telegram/Signal
 
