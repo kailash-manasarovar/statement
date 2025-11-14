@@ -20,24 +20,43 @@ function googleTranslateElementInit() {
 - Is this what [Zoe was trying to do](../early-years/2008.md#lauding-male-violence) whenever she spoke to me relentlessly about violent relationships?
 - The criminal gangs only had a few weeks before Bali.
 - [I had just been porn-prepped after being drugged by the gypsies](april.md#drugged-in-the-street-by-denia-gypsies) on my way home from dinner, and I remember this whole period and on into June and beyond as being a time when I was *constantly* high.
+- Everyone involved is certain that no-one is going to help me.
 - Consequently, [Hazel Smith](../early-years/2007.md#hazel-smith) doesn't even bother trying to hide anymore.
 
 ## Hazel Smith pretends to be Esteve online
 
-- This account was likely Hazel, or her mum, as we had a long chat: https://x.com/1FRGVN/status/1785410648802734485.
-- The English on many of the stalker accounts was native. It could have been anyone in the region I suppose, except this account knew things that only myself and Hazel (or people who know her intimately) would know.
-- The account profile pic is the face of my chamber music teacher that year, Esteve, which means that Hazel must be connected to Domingo in some way.
-- Esteve was a genuinely nice man in my opinion.
+- The fake account below has the face of [Esteve the chamber music teacher](../2023/september.md#chamber-music) in the profile pic but no-one is expecting me to think he's running it.
+
+[![Esteve's pic](../../content/tweets/may-2024/hazel-posing-as-esteve.jpg)](https://x.com/ChoralSymphony)
+
+- It *pops up* as usual on my timeline and berates me incessantly for weeks.
+- I know it's Hazel immediately and tell her.
+
+[![I know it's Hazel](../../content/tweets/may-2024/i-know-its-hazel.jpg)](https://x.com/ChoralSymphony/status/1785410232778121660)
+
+- She is not holding back.
+- I suggest she not *want to M people*.
+
+[![Don't M people Hazel](../../content/tweets/may-2024/not-want-to-M-people.jpg)](https://x.com/1FRGVN/status/1785410648802734485)
+
+- Of course, I'm referring to what [happened between us in 2007](../early-years/2007.md#hazel-smith), something *no one else* knows about.
+- She doesn't like me saying this.
+
+[![I like you Haze, I really do](../../content/tweets/may-2024/i-like-you-haze.jpg)](https://x.com/1FRGVN/status/1785411297124732950)
+
+- You can go through this tweet graph at your leisure. It's quite fun.
+- At the time, I thought it could have been anyone in the region with excellent English, except this account knew things that only myself and Hazel (or people who know her intimately) could have known.
 
 ![Hazel](../../content/images/threats/hazel/choral-symphony.png)
 ![Hazel](../../content/images/threats/hazel/choral-symphony-thread-1.png)
 ![Hazel](../../content/images/threats/hazel/choral-symphony-thread-2.png)
 
-- There was a lot of talk about how *I* had *f*cked up*, which was curious.
+- There was a lot of talk about how *I* had *f*ed up*, which was curious.
+- Indeed, she spent a lot of energy telling me I had *f-ed up* which was an interesting projection, but as I mentioned probably intentionally meant to whittle away at my inner resources so I would be more easily inclined to give my life to the porn-gangs post-Bali.
 
 ![You f*cked up](../../content/tweets/may-2024/ludwig-van-h-smith.png)
 
-- More recently (27th November), another account has popped-up as significant, Granny Smith. 
+- More recently (27th November 2024), another account has popped-up as significant, Granny Smith. 
 - This account has been targeting people close to me who thought they met them in person, but in the end we discovered they never had.
 
 ![Granny Smith](../../content/images/fake-accounts/lard-shugga.png)

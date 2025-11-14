@@ -912,6 +912,8 @@ function googleTranslateElementInit() {
 
 - There is an online meeting before school starts to decide which pianists will play with which soloists.
 - It's obviously arranged prior that I will accompany two singers on the piano; one of whom, Katia, is apparently [Ana Requena's](february.md#ana-the-violin-teacher) good friend.
+- The chamber music teacher is Esteve, an oboist. I like him. He doesn't seem to be particularly involved in the bullying but you never know.
+- The following May 2024, criminal gangs use his picture in a [fake account spun up for terrorizing me](../2024/may.md#hazel-smith-pretends-to-be-esteve-online).
 
 ### Katia
 
