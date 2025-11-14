@@ -85,9 +85,13 @@ function googleTranslateElementInit() {
 
 - I go to the laundry to dry my clothes.
 - A man comes in who recognizes me. I have no idea who he is.
+- He seems surprised to see me and snickers in that way they do.
 - I email my mother and tell her.
 
-![](../../content/images/laundry-man.png)
+![Man in laundry looks at me and snickers](../../content/images/laundry-man.png)
+
+- My mother has some excuse for it, as usual.
+- The [La Colada laundry](../2023/november.md#the-laundry) has CCTV, by the way.
 
 ## Cars beeping outside
 
