@@ -141,7 +141,8 @@ function googleTranslateElementInit() {
 - I hadn't wet the bed since I was very small. I haven't wet the bed since.
 - In my dream in May 2024, he is wearing a yellow and grey checked jumper and a white chimney-sweep hat.
 - We are in a kind of makeshift wooden room, like an external annex or temporary building.
-- There are fold up tables with people sitting at them. There are piles of papers on the tables.
+- There are fold up tables with people sitting at them. 
+- There are piles of papers on the tables.
 - He looks at me.
 - I walk over to him to talk to him.
 - He turns his head away and doesn't speak.
