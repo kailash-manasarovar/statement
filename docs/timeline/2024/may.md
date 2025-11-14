@@ -39,30 +39,43 @@ function googleTranslateElementInit() {
 
 [![Don't M people Hazel](../../content/tweets/may-2024/not-want-to-M-people.jpg)](https://x.com/1FRGVN/status/1785410648802734485)
 
-- Of course, I'm referring to what [happened between us in 2007](../early-years/2007.md#hazel-smith), something *no one else* knows about.
+- Of course, I'm referring to [what happened between us in 2007](../early-years/2007.md#hazel-smith), something *no one else* knows about.
 - She doesn't like me saying this.
 
 [![I like you Haze, I really do](../../content/tweets/may-2024/i-like-you-haze.jpg)](https://x.com/1FRGVN/status/1785411297124732950)
 
 - You can go through this tweet graph at your leisure. It's quite fun.
 - At the time, I thought it could have been anyone in the region with excellent English, except this account knew things that only myself and Hazel (or people who know her intimately) could have known.
+- I wonder who *DS Lc* is?
 
-![Hazel](../../content/images/threats/hazel/choral-symphony.png)
-![Hazel](../../content/images/threats/hazel/choral-symphony-thread-1.png)
-![Hazel](../../content/images/threats/hazel/choral-symphony-thread-2.png)
+[![DS Lc](../../content/tweets/may-2024/ds-lc.jpg)](https://x.com/ChoralSymphony/status/1785407850715464027)
 
 - There was a lot of talk about how *I* had *f*ed up*, which was curious.
-- Indeed, she spent a lot of energy telling me I had *f-ed up* which was an interesting projection, but as I mentioned probably intentionally meant to whittle away at my inner resources so I would be more easily inclined to give my life to the porn-gangs post-Bali.
+- Indeed, she spent a lot of energy telling me how I had *f-ed up* which was an interesting projection, but as I mentioned probably intentionally meant to whittle away at my inner resources so I would be more easily inclined to give up my life to the porn-gangs post-Bali.
 
 ![You f*cked up](../../content/tweets/may-2024/ludwig-van-h-smith.png)
 
-- More recently (27th November 2024), another account has popped-up as significant, Granny Smith. 
-- This account has been targeting people close to me who thought they met them in person, but in the end we discovered they never had.
+- She didn't really know what I was doing, or why, which was nice.
+
+[![Hopeless at getting her onside](../../content/tweets/may-2024/getting-h-onside.jpg)](https://x.com/ChoralSymphony/status/1785415875979350273)
+
+- But she had some small concerns, and made sure to tell me who was in charge.
+
+[![Suggesting she can't lose](../../content/tweets/may-2024/suggesting-she-cant-lose.jpg)](https://x.com/ChoralSymphony/status/1785417287840694490)
+
+- It took them over a year more before they started wondering if they might have made a gargantuan mistake targeting me.
+- More recently (27th November 2024), another account *popped-up* in the same significant way, Granny Smith. 
 
 ![Granny Smith](../../content/images/fake-accounts/lard-shugga.png)
 
-- Except, the person who told me that was one of my dodgy [election volunteers](june.md#election-campaign), So or Janet who eventually appeared to be tag teaming online with the Smiths *and* the Denia porn-gangs.
-- This account was deleted over the last two days. The timing on that is interesting.
+- The language reads exactly like the [`@HierEncore49002`](march/13-end.md#hierencore49002) account.
+- This account was highlighted to me by *So (Janet)* one of my [dodgy general election volunteers](june.md#volunteers-not-what-they-seem) in November 2024.
+- I believe *So (Janet)* could very well know the Smiths in a professional manner and so too the Dénia porn-gangs who she termed *hunters* in a nearly reverent way, after they themselves had called themselves the same online. 
+- The `@lard-shugga` account (I'd put money on being run by Sandra Smith) was deleted over the last two days (November 2024). The timing is interesting.
+- I thought it might be interesting to have a look at our shared followers and, indeed, there are some dubious references on here, and some solid followers and friends as you might expect given the history.
+
+![Followers Ludwig B 1](../../content/tweets/may-2024/shared-followers-1.jpg)
+![Followers Ludwig B 2](../../content/tweets/may-2024/shared-followers-2.jpg)
 
 ## The laundry
 
