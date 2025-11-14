@@ -211,7 +211,7 @@ function googleTranslateElementInit() {
 
 ![Beams clown](../../content/tweets/beams-clown.png)
 
-- The Beams interaction is a good example of the pattern of content coming from the various anonymous accounts that have interacted with me:
+- The Beams interaction is a good example of the pattern of content coming from the various anonymous stalker-accounts that have interacted with me:
 
     - Subtle threats of violence.
     - Subtle mentions of knowledge we share.
