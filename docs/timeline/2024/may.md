@@ -120,7 +120,8 @@ function googleTranslateElementInit() {
 [![Husky event](../../content/tweets/may-2024/husky.jpg)](https://x.com/1FRGVN/status/1817284269238014428)
 
 - Is this how criminals hiding behind fake accounts use real people to avoid capture? 
-- Do Ana and her boyfriend, and everyone else, have to obey orders to perform a certain choreographed events which can then be used later as evidence of their involvement?
+- Do Ana and her boyfriend, and everyone else, have to obey an order to perform a certain choreographed event which can then be used later as evidence of their involvement?
+- Does this ensure their silence?
 - What happens if they refuse the order? Or are they happy to shepherd porn-gang targets to their demise?
 - Is the idea that, if the worst came to the worst and the police did decide to get their finger out, Ana and the rest of them go to prison instead of the real criminals?
 - I expect so.
