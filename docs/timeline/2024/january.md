@@ -549,11 +549,9 @@ function googleTranslateElementInit() {
 - I recognize one of them as a man who had fixed my car back in 2013; a man who worked at the garage near my old flat.
 - He was wearing big goggle glasses and had longish dark-grey hair.
 - He looked pretty much exactly the same as when he had helped me replace a flat battery at that time.
-- I see the same car again after [I leave my studies at the conservatory in fear for my life](march/13-end.md#email-to-paqui), and the porn-gangs move in to finish me off. 
-- At that time, from April or May 2025, fast cars will growl outside my apartment and often I hear them beeping their horns loudly as they pass.
+- I see the same car again after [I resign from my studies at the conservatory in fear for my life](march/13-end.md#email-to-paqui), and the porn-gangs move in to finish me off. 
+- At that time, [from April or May 2025](may.md#threatening-cars-outside-my-apartment), fast cars will growl outside my apartment and often I hear them beeping their horns loudly as they pass.
 - Carrer Furs is an extremely quite road.
-- One time, I ran to see what the car beeping looked like.
-- It was the same car.
 
 ## Constant threat
 
