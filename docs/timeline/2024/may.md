@@ -237,21 +237,20 @@ function googleTranslateElementInit() {
 - I am angry, and tell them I'm not interested in pics, and I don't want to see any male genitals, but I still continue to talk.
 - It's not clear why although something in my mind believes it is the trumpet teacher again. It's very strange.
 - It was extremely weird in fact. I sent an extraordinarily long rant to this person's account while I was flying to Bali in May.
-- In it, I mentioned one image seen on `@jctot19` Google search throughout December which was a film directed by Mel Gibson about child sex trafficking, a true story: https://www.imdb.com/title/tt7599146/.
+- In it, I mentioned one image seen on `@jctot19` Google search throughout December which was a film about child sex trafficking, a true story: https://www.imdb.com/title/tt7599146/.
 - The film is playing on Turkish Airlines at the time and I watch it.
-- It is a true story and the protagonist's wife is called Katharine.
-- It's all so "meaningful".
-- I wonder why they would have put that in Google search results for me to see, and I think the worst.
+- It is a true story of child trafficking and the protagonist's wife is called Katherine.
+
+![Tim Ballard - child trafficker destroyer](../../content/images/tim-ballard.jpg)
+
+- It's all so *meaningful*.
+- I wonder why the `@jctot19` account would have added that film still in Google search results for me to see, and I think the worst.
 
 !!! info
     - Was the trumpet teacher alerting me to child sex trafficking going on in Dénia, with the conservatory somehow the training or recruitment ground?
     - It seemed preposterous to me.
     - More likely, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police) and had become obsessed by it for some reason.
-
-### Targeting kids
-
-- Online games.
-- Cartoons.
+    - Or was something even more startling going on?
 
 ## Madrid
 
