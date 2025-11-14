@@ -550,7 +550,7 @@ function googleTranslateElementInit() {
 - At that time, from April or May 2025, fast cars will growl outside my apartment and often I hear them beeping their horns loudly as they pass.
 - Carrer Furs is an extremely quite road.
 - One time, I ran to see what the car beeping looked like.
-- It was [the same grey coupe I had seen in January](may.md#cars-beeping-outside).
+- It was [the same grey coupe I had seen in January](may.md#threatening-cars-outside-my-apartment).
 
 ## Constant threat
 

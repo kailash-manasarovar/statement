@@ -79,7 +79,7 @@ function googleTranslateElementInit() {
 - I remember a very weird van with blacked-out windows and a big aerial, maybe even a satellite dish, parked right below my window every day.
 - There were also similarly bizarre looking vans along the back road too.
 - Given I live in a seaside town, and the beach is at the bottom of the road, I just assumed that these vehicles belonged to regular people living in vans by the sea and having their own Internet access. Sounds rather nice although a bit cramped.
-- When the multiple cars started to [beep outside my apartment every day in a threatening manner as they drove past](may.md#cars-beeping-outside), I began to more assiduously take registration numbers.
+- When the multiple cars started to [beep outside my apartment every day in a threatening manner as they drove past](may.md#threatening-cars-outside-my-apartment), I began to more assiduously take registration numbers.
 - I had them on notes in the apartment, which I misplaced eventually, and sometimes I added them to my phone.
 - Here's a small list from April 2024 I found on the Android phone I bought in the [Chinese telecom store in Madrid](march/13-end.md#madrid).
 

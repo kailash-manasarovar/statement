@@ -146,7 +146,7 @@ function googleTranslateElementInit() {
 - I will see his [beat up two-door Peugeot](june.md#sunday-11th-june) for the second time, the day before [my funeral](june.md#monday-12th-june-2023) in June.
 - By then, I had seen him in the Peugeot once before in [May](may.md#assessment-day-at-the-conservatory) and I will see him and the doctor in the same car again in [June at the beach](june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me).
 - The gang switches gears entirely from about April 2024 after I leave my studies at the conservatory due to [being afraid for my life](../2024/march/13-end.md#email-to-paqui).
-- Instead of beat up old bangers, and [blue vans](november.md#ana-in-the-blue-van) they start to demonstrate their fleet of fast and new sports cars, often by driving past my [house and beeping](../2024/may.md#cars-beeping-outside).
+- Instead of beat up old bangers, and [blue vans](november.md#ana-in-the-blue-van) they start to demonstrate their fleet of fast and new sports cars, often by driving past my [house and beeping](../2024/may.md#threatening-cars-outside-my-apartment).
 
 ![Before after Batman](../../content/images/before-after.png)
 
