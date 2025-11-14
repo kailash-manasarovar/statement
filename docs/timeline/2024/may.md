@@ -189,8 +189,8 @@ function googleTranslateElementInit() {
 - It is "Vigas". 
 - I become convinced that this is the trumpet teacher's nickname because he has big legs.
 - At least, three of the set of trumpet teachers have big legs; not the [first man](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man), although they might be thickish they're not big and muscular like the [fourth muscle man](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man), or like the other two (or three) who were tall men.
-- Could this indeed be that guy's nickname? I bet it is.
 - Certainly the [fourth man](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man), the man that [interviewed me online with perfect English in 2016](../early-years/2016.md#march) was pumping iron.
+- Could this indeed be that guy's nickname? I bet it is.
 - There are sinister references from this account too, suggestions of violence.
 - Another post talks about just having had *coffee and pork crusts*.
 
