@@ -112,7 +112,7 @@ function googleTranslateElementInit() {
 - I realize this was the man driving in the [blue car incident](../2023/november.md#ana-in-the-blue-van); ducking down so he wouldn't be seen and the myth of the [trumpet teacher's new car and relationship with Ana](../2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car) could continue.
 - He is small enough to not be seen if he ducked down.
 - I also remember this man from when I met [Paul and Alessandra back in September 2023](../2023/september.md#alex-and-paul) in a cafe as one of the people who suddenly sat down beside us.
-- And I realized even later that this was [the man who told me everyone got used to the yoga teacher's relaxing horror-show music](../early-years/2015.md#nati-de-prati-yoga) back in 2015.
+- And I realized even later that this was [the man who told me how everyone got used to the yoga teacher's relaxing horror-show music](../early-years/2015.md#nati-de-prati-yoga) back in 2015.
 - Ana barks *Hola* to me. 
 - I find this event utterly ironic, and I wonder if all Spanish people are psychopaths.
 - I tweet about this event at in July in response to a tweet from, you know who, [`@january_myth`](march/13-end.md#january_myth).
