@@ -170,13 +170,13 @@ function googleTranslateElementInit() {
 - My replies, at least to me, are proof I'm being dosed up on aphrodisiacs at home, and there's no question I'm on something hallucinogenic.
 - He talks candidly about his extremely violent father, sharing intimately; yet another predator grooming mechanism.
 - Much of this content is deleted now.
-- One tweet I can't find anymore was posted on 8th May when he posts *Watching you shifting through your ups and downs, gives me the feeling, i know you better then your self do.* sic.
+- One tweet I can't find anymore was posted on 8th May when he says *Watching you shifting through your ups and downs, gives me the feeling, i know you better then your self do.* sic.
 
 ![Beams ups and downs](../../content/tweets/beams-ups-and-downs.png)
 
 - The *impulses are waiting in line* sentence is suggestive of men perhaps waiting to take turns on me.
 - It's hard for me to understand why I was so utterly convinced I was talking to the trumpet teacher I loved, especially when there was a whole bunch of them.
-- Do they have public conversations like these and stream them into a porn channel somewhere, while playing the sedated rape footage on the same screen?
+- Do they have public conversations like these with targets, and stream them into a porn channel somewhere, while playing the sedated rape footage on the same screen?
 - The account originally liked all my replies.
 - I know the communication is related and non-random, just like the other accounts that have interacted with me previously.
 - He talks about a female *friend* coming in from time to time and indeed another account starts playing the same game for a short while.
