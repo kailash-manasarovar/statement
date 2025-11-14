@@ -99,8 +99,8 @@ function googleTranslateElementInit() {
 - One of the cars is the same car that was [lingering threateningly outside my apartment building in January](january.md#threatening-men-outside); a grey Mercedes coupe, or similar, sporty and expensive.
 - Another time I see [Ana Requena's blue van](../2023/november.md#ana-in-the-blue-van) again and whoever is driving is extremely muscular as his arms is leaning on the window.
 - At night, from about midnight, a parked car sits outside my apartment running it's engine low for hours it seems until it screeches off at some ungodly hour.
-- It's a red hatchback and the owner has taken a lot of car in keeping in clean and shining.
-- Sometimes, it seems there are two or three cars doing the same.
+- It's a red hatchback and the owner has taken a lot of care in keeping in clean and shining.
+- Sometimes, it sounds like there are two or three cars doing the same thing at night.
 
 ## Climbing the Montgo
 
