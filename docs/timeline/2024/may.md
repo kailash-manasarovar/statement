@@ -95,7 +95,7 @@ function googleTranslateElementInit() {
 
 ## Threatening cars outside my apartment
 
-- Every day, in the morning and evening and around lunchtime, cars drive by and beep their horns outside my window when they're level with my apartment.
+- Every day, in the morning and evening and around lunchtime, cars drive by and beep their horns, triumphantly and repeatedly, outside my window when they're level with my apartment.
 - One of the cars is the same car that was [lingering threateningly outside my apartment building in January](january.md#threatening-men-outside); a grey Mercedes coupe, or similar, sporty and expensive.
 - Another time I see [Ana Requena's blue van](../2023/november.md#ana-in-the-blue-van) again and whoever is driving is extremely muscular as his arms is leaning on the window.
 - At night, from about midnight, a parked car sits outside my apartment running it's engine low for hours it seems until it screeches off at some ungodly hour.
