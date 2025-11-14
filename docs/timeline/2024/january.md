@@ -134,10 +134,11 @@ function googleTranslateElementInit() {
 - I become very upset for some reason.
 - It's inexplicable.
 - I remember Gabriel speaking very slowly and quietly, his face looking a bit shocked.
-- I remember being extremely upset.
-- I wonder about this event now, I didn't see Gabriel for a long time after that.
-- I wonder whether it could have been a porn-gang sedating tech demo.
-- If so, us good guys have so much evidence.
+- In fact, the look on his face reminded me of the look on my dad's face when Domingo came into the kitchen in December 2014.
+- I was extremely upset, inexplicably.
+- I wonder about this event now, I didn't see Gabriel for a long time after that, perhaps not for a few months.
+- The tech he was managing was failing spectacularly so it didn't seem strange.
+- I wonder whether it could have been a porn-gang sedating tech demo, or perhaps a *how we control women* demo.
 
 ## I see my naked 16-year-old body on X again
 
