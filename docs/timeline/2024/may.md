@@ -72,7 +72,7 @@ function googleTranslateElementInit() {
 - The language reads exactly like the [`@HierEncore49002`](march/13-end.md#hierencore49002) account.
 - This account was highlighted to me by *So (Janet)* one of my [dodgy general election volunteers](june.md#volunteers-not-what-they-seem) in November 2024.
 - I believe *So (Janet)* could very well know the Smiths in a professional manner and so too the Dénia porn-gangs who she termed *hunters* in a nearly reverent way, after they themselves had called themselves the same online. 
-- The `@lard-shugga` account (I'd put money on being run by Sandra Smith) was deleted over the last two days (November 2024). The timing is interesting.
+- The `@LardShugga` account (I'd put money on being run by Sandra Smith) was deleted over the last two days (November 2024). The timing is interesting.
 - I thought it might be interesting to have a look at our shared followers and, indeed, there are some dubious references on here, and some solid followers and friends as you might expect given the history.
 
 ![Followers Ludwig B 1](../../content/tweets/may-2024/shared-followers-1.jpg)
