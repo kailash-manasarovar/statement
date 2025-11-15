@@ -283,23 +283,29 @@ function googleTranslateElementInit() {
 
 - I drive to Madrid and stay from the 5th to the 11th of May at the [Princesa Plaza](https://www.marriott.com/es/hotels/madpp-madrid-marriott-hotel-princesa-plaza/overview/). 
 - I'm flying out of Madrid on the 11th May to Bali for an event with my work, [Polygon Labs](https://polygon.technology/about), and I need to get away from Dénia as living there under attack every time I leave my house is stressful to say the least.
-- I'm not thinking straight, and I assume this is due to long-term drugging, or I would be organizing some way out of the situation.
+- I'm not thinking straight, and I assume this is due to long-term drugging, or I would be organizing some definitive way out of the situation.
 - My sight is blurry, all the time.
+- I start to put on weight, quickly.
 - Outside my hotel in Madrid, I see strange men hanging around.
 - I always have the sense I'm being followed.
-- Words from random conversations I have during the day, even from work, are posted on fake account profiles that like my X posts.
-- I am stalked online continuously in the hotel.
+- Words from random conversations I have during the day, even from work meetings, are posted on fake account profiles that like my X posts.
+- I am stalked online continuously.
 - They have full access to my new Spanish mobile, and there is something more going on which I cannot explain.
-- I have forgotten to block the camera on the phone and I see a significant message that describes something in the room or something I'm wearing.
+- I have forgotten to block the camera on the phone and I see a significant message that describes something in the hotel room and/or something I'm wearing.
 - On May 6th, I receive [an email notification that the conservatory has banned mobiles from the building](../../content/documents/emails/prohibiting-mobiles-conservatorio.pdf).
-- I inform my friend in Madrid about this. She says I have set a precedent.
-- I wonder if they've done this so no evidence of ongoing wrong-doing will be available.
-- I have the sensation when I'm praying the rosary that [the monster trumpet teacher](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) is standing with me and praying the rosary too. 
+
+![The conservatory bans mobile phones](../../content/images/conservatory-bans-mobile-phones.jpg)
+
+- I inform my friend in Madrid about this. 
+- She says I have set a precedent.
+- I wonder if it's more so that no evidence of ongoing wrong-doing will be available by any means.
+- And I wonder what they did find that prompted this?
+- I have the sensation when I'm praying the rosary in my hotel room that [the monster trumpet teacher](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) is standing with me and praying the rosary too. 
 - I cannot explain this.
 - I am extremely sexually aroused during this time. 
 - It felt like [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) was in my mind.
 - I wasn't aware of it at the time but it's obvious to me now I was ingesting some strong mind-altering substance via my toiletries which had been accessed, as usual, by people entering my apartment at Carrer Furs without my knowledge.
-- I was out of my mind on the run up to the Bali Polygon conference, but curiously and ironically the euphoria I experienced from whatever they were dosing me up with was giving me unusual strength and fortitude, and it appeared to be bolstering my willpower so that I began to do things I would probably wouldn't have done in any normal situation.
+- I was out of my mind on the run up to the Bali Polygon conference, but curiously and ironically the euphoria I experienced from whatever they were dosing me up with was giving me an unusual strength and fortitude which appeared to be bolstering my willpower and my connection to God so that I began to do things I would probably wouldn't have done in any normal situation.
 
 ## My speech
 
