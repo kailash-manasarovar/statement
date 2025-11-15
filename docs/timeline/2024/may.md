@@ -307,11 +307,14 @@ function googleTranslateElementInit() {
 - I wasn't aware of it at the time but it's obvious to me now I was ingesting some strong mind-altering substance via my toiletries which had been accessed, as usual, by people entering my apartment at Carrer Furs without my knowledge.
 - I was out of my mind on the run up to the Bali Polygon conference, but curiously and ironically the euphoria I experienced from whatever they were dosing me up with was giving me an unusual strength and fortitude which appeared to be bolstering my willpower and my connection to God so that I began to do things I would probably wouldn't have done in any normal situation.
 
-## My speech
+## My speech at Let Women Speak Madrid
 
-- On Saturday 11th May, I give a speech at the Let women Speak event in Madrid: https://youtu.be/l9X6o11IwBc?t=1988.
-- My speech describes being targeted by a "manada" (which is vernacular for "rape gang" in Spanish) in Dénia and how it parallels precisely the child sexual abuse by a North London grooming gang I experienced when I was 16.
-- I make the point that, I would be trans had I been born 30 years later and experienced the same thing.
+- On Saturday 11th May, I give a speech at the Let Women Speak event in Madrid:
+
+[![Let Women Speak in Madrid](../../content/images/let-women-speak-speech.jpg)](https://youtu.be/l9X6o11IwBc?t=1988)
+
+- I describe in Spanish being targeted by a "manada" (vernacular for "rape gang" in Spanish) in Dénia and how my current experience parallels precisely the child sexual abuse by a North London grooming gang I suffered when I was 16.
+- I make the point that, had I been born 30 years later and the same thing had happened to me, or I saw it happening to friends, I would have sought comfort and safety in trans ideology, mutilating and sterilizing myself in the process.
 
 ### The Spanish feminists tell me why they didn't support me
 

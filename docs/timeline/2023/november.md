@@ -617,7 +617,7 @@ function googleTranslateElementInit() {
 
 - Note the `@g_lamarche` account has "manada" as location. 
 - *Manada* is famously what the Spanish called the gang-rape team that attacked the lone woman at the Pamplona fiestas.
-- I use the word in my [speech in Madrid](../2024/may.md#my-speech).
+- I use the word in my [speech in Madrid](../2024/may.md#my-speech-at-let-women-speak-madrid).
 
 [![Manada](../../content/tweets/november-2023/manada.png)](https://x.com/g_lamarche)
 
