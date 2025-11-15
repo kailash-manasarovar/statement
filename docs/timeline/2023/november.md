@@ -356,6 +356,7 @@ function googleTranslateElementInit() {
 - I spend 36 hours getting over it.
 - I really pissed someone off on Halloween, didn't I. 
 - Was it [my singing](october.md#halloween)? Probably.
+- I wonder if this would have normally got someone like me killed had I not been scheduled to start my very important role at Polygon the next day.
 - Regardless, I pull through ready to start.
 - It's a great job and I'm very excited about my new role.
 - My boss is Grace Torrellas and the team has about three others including Anthony Matlala.
@@ -416,14 +417,24 @@ function googleTranslateElementInit() {
 - In any case, from the moment I gave Nadim my X account details and looked him up online in private, everything changed for me at Polygon. 
 - My boss Grace Torrellas starts to treat me badly and I am no longer given any work by Gabriel Silva who I am supposed to be working with closely. 
 
+### Redundancies
+
+- In early 2024, 20% of the workforce is let go.
+- Our manager Grace is one of those who lose their jobs, and she's only been doing it a short while.
+- She disappears in seconds but seems to be OK about it.
+- I step up to take the roll of team lead. I'm not entirely happy about this but it's clear no-one else wants to do it.
+- It's a lot of work. Too much for one person, in fact.
+- There are three of us on the team now; myself, Hans Bodani, and Anthony Matlala.
+- The other do a little bit of work each week, and only if I ask them to, and nothing more.
+- We work on particular product areas.
+- One of my product areas is Gabriel Silva's product.
+
 ### Gabriel Silva
 
 - Gabriel starts complaining about my work to me, and others; he doesn't like my writing style, he continually puts me down in meetings, he calls me a single point of failure with other team members.
-- It doesn't matter so much because in early 2024, while the zk system is continually failing, 20% of the workforce is made redundant.
-- Grace Torrellas loses her job in seconds; was she starting to suspect something? I had told her just a few days previously that Nadim was an actor.
-- Did she recognize a pattern of sexually-deviant behavior from the founders that she was close to that she had seen before, and didn't like?
-- I move up to team lead so I am really busy and Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not gone up, he would have effectively made me a candidate for redundancy very quickly.
-- Interestingly, I am on the filmed management meeting that takes place regularly. Grace Torrellas was doing it prior to me. I find my presence a bit unnecessary to be honest. No-one cares about documentation. Why am I there? Is it so everyone who knows what's going on will know who I am? Will they be able to compare my real-life likeness to the sedated rape and *switcheroo* porn they've seen? Does it delight them?
+- We have an [extraordinarily weird meeting in January 2024](../2024/january.md#a-strange-meeting-with-gabriel-silva) which I wonder about.
+- I am really busy as team lead so Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not gone up, he would have effectively made me a candidate for redundancy very quickly.
+- Interestingly, I am invited to the filmed management meeting that takes place regularly. Grace Torrellas was doing it prior to me. I find my presence a bit unnecessary to be honest. No-one cares about documentation. Why am I there? Is it so everyone who knows what's going on will know who I am? Will they be able to compare my real-life likeness to the sedated rape and *switcheroo* porn they've seen?
 - My team (who are not really tech writers, and don't know the job well - one is an exceptional copy writer, the other an academic-writing-style mathematician) starts to mutiny.
 - One of the team in particular, Hans Bodani, starts to shout at me in team meetings, gets angry with me, complains about things I did not say to my boss, who supports him, and then refuses to communicate with me at all.
 - Curiously, a new HR head starts around same time, James Dawes, who has worked with Hans previously.
