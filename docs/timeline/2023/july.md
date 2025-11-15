@@ -354,6 +354,7 @@ function googleTranslateElementInit() {
 ## Thailand
 
 - Early in the month I go to Thailand for a holiday.
+- My vision is extremely blurry and I cannot make people out very well.
 - I do not take my laptop so I am not connected to my Twitter account for the duration.
 - I use my mobile phone to run [Google searches](#google-search) on the `@jctot19` and the `@sinremite` accounts, and start running searches on my own account name too `@1frgvn`.
 - The pictures referenced above continue to appear in the search results of `@jctot19 twitter`.
