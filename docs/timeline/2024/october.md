@@ -18,6 +18,8 @@ function googleTranslateElementInit() {
 ![translation](../../content/images/poison-translation.png)
 
 - The message says: "Enjoy my homemade poison. The poison made by my own family..".
+- Over the month I see numerous messages about my strength; *you're really strong*, I read, particularly towards the end of the month.
+- I wonder what that means for other targets.
 
 ## YouTube with Kelly Oliver Dougall
 
