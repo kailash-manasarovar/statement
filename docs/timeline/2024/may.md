@@ -461,7 +461,8 @@ function googleTranslateElementInit() {
 
 [![Sexual violence threats at dinner](../../content/images/sexual-violence-at-dinner.png)](https://x.com/1FRGVN/status/1790392972057747804)
 
-- While this guy, Aziv Abad (maybe his name, probably not), a Rust engineer who had started the job that week was talking to us, his chatter was so disordered he reminded me of [Nadim Kobesi](../2023/november.md#polygon).
+- While this guy, Aziv Abad (maybe his name, probably not), a Rust engineer who had started the job that week was talking to us, his chatter was so disordered he reminded me of [Nadim Kobesi](../2023/november.md#polygon) and I say so.
+- He starts talking about his PornHub account.
 - Was this sexually threatening man another actor, just like Nadim was?
 - Were they both hired to terrorize me, and for no other reason?
 - I remember saying to Anthony that night that the man had Nadim energy.
