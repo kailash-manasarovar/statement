@@ -275,7 +275,7 @@ function googleTranslateElementInit() {
 !!! info "Messages for me"
     - Was the trumpet teacher alerting me to child sex trafficking in Dénia, with the conservatory somehow operating as the training and/or recruitment ground?
     - It seemed preposterous to me.
-    - More likely, I felt, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police) and had become obsessed with it for some reason.
+    - More likely, I felt, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police).
     - But indeed, perhaps something even more startling was going on.
     - Did I recruit [trumpet teacher number one](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) to save the world with me without even knowing it?
 
