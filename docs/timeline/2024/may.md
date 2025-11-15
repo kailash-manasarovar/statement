@@ -274,6 +274,7 @@ function googleTranslateElementInit() {
     - It seemed preposterous to me.
     - More likely, I felt, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police) and had become obsessed by it for some reason.
     - Or was something even more startling going on?
+    - Did I recruit the trumpet teacher to save the world with me without knowing it?
 
 ## Madrid
 
