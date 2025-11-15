@@ -379,32 +379,38 @@ function googleTranslateElementInit() {
 - Nadim is a weird guy but we have a good relationship, initially.
 - I find out that Nadim was originally hired to work in the zero-knowledge engineering department - the engine-room so to speak - and he had lasted one week before he was kicked out and into the technical writing team, where he couldn't do as much damage I assumed.
 - So he's only been on board with the firm for less than a month when I join.
-- The engineers, they told me, were agog at his output, and they spoke as if he had appeared to know nothing at all about what he was doing.
+- Indeed, Grace is also new to the team. 
+- She's a personal friend of Jordi and has been tasked with building a new docs team.
+- She's already fired a bunch of writers and she will fire one more before Nadim kicks off.
+- Anthony has been brought in from a separate writing team to join the main team.
+- The engineers, they told me, were agog at Nadim's output, and they spoke as if he had appeared to know nothing at all about what he was doing.
 - But he could talk; oh he could talk. 
 - His patter was exceptional.
 - Nadim was a difficult person; rude, weird, and inappropriate.
 - He was very loud and didn't let anyone else speak. 
 - Team members were exhausted by him.
-- Strangely, Grace sets up a weekend trip for the three of us to visit Barcelona. It's a bit strange and unexpected, and I don't really want to go.
+- Strangely, Grace sets up a weekend trip for the three of us to visit Barcelona just a few weeks after I start.
+- It's a bit strange and unexpected, and I don't really want to go.
+- It feels like I'm obliged to go.
 - I ask Nadim for advice about how to protect my network and devices, and I explain a little bit about what's been happening to me, how I've been cyber-stalked and hacked, and how it all centers around X.
 - He tells me he will check out my X account for me.
 - I give him my account details.
 - Nadim gives me no helpful advice. In fact, what he does say about security is common knowledge, nothing more.
-- He starts to give me a hard time in meetings and on Slack.
-- I answer back and get into an wholly exaggerated amount trouble for standing my ground and answering back.
+- Once the other writer has gone, Nadim starts to give me a hard time in meetings and on Slack.
+- I answer back and get into an wholly exaggerated amount of trouble for standing my ground.
 - I demand mediation and Grace eventually calls us into a meeting where she basically says it's all my fault and I nearly cry.
-- He's so rude, and getting away with it, I start getting suspicious about him.
+- He's so outrageously rude, and getting away with it, I start wondering if he's putting it on.
 - Anthony Matlala is kind to me and tells me how difficult it must be for me being a woman in tech and having to deal with this.
 - I appreciate it.
 - Nevertheless, I start to wonder about how much of an engineer and security expert Nadim really is.
-- At the same time, at home on my personal laptop or phone, I look him up and discover he's a trained actor.
+- At home on my personal laptop or phone, I look him up and discover he's a trained actor.
 - He has a bachelor's degree from the [National Institute of Dramatic Art](https://www.nida.edu.au/) in Sydney, graduated in 2010, and he has been in a number of films. 
-- From that moment, his demeanor towards me changes.
+- The next day his demeanor towards me changes.
 - He starts to bully me outrageously.
 - The bullying is so bad, he is fired about two weeks later.
 - I believe that, due to my X content, and before he was fired, he spread muck around the business about me; including to my boss and managers I have to work with very closely, that I am a *transphobe*. 
-- This is how I explain my experiences at Polygon. It's the *only* explanation I have while I'm unaware I'm an international sedated spy-cam rape-porn sensation..
-- The Barcelona trip is cancelled and I still wonder what that was going to be all about. Was Jordi involved in that, or any of the other founders?
+- This is how I explain my experiences at Polygon. It's the *only* explanation I have while I'm unaware I'm an international sedated spy-cam rape-porn sensation.
+- The Barcelona trip gets cancelled and I still wonder what that was going to be all about. Was Jordi involved in that, or any of the other founders?
 - Did hackers see me learn that he's an actor, and tell the Polygon bosses, who advised he got himself fired asap?
 - When I spoke to engineers on the team about him later on, they couldn't believe the guy had got the job. They said he was totally ineffective and impossible to work with and any work he had done they couldn't believe he had done it, it was so poor quality, as if he had no idea what he was doing. 
 - I do wonder though how many of them knew what was really going on.
@@ -415,7 +421,8 @@ function googleTranslateElementInit() {
 - The tech failed and faltered again and again in early 2024. I think this is probably a red-herring now.
 - He, or other parties, certainly added a lot of malicious code to the docs backend set up which broke our SEO for months before we could figure it out.
 - In any case, from the moment I gave Nadim my X account details and looked him up online in private, everything changed for me at Polygon. 
-- My boss Grace Torrellas starts to treat me badly and I am no longer given any work by Gabriel Silva who I am supposed to be working with closely. 
+- My boss Grace Torrellas starts to treat me with disdain and I am no longer given any work by Gabriel Silva who I am supposed to be working with closely. 
+- Was this all intentional?
 
 ### Redundancies
 
