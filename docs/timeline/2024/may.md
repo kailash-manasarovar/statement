@@ -229,32 +229,50 @@ function googleTranslateElementInit() {
 
 ## Telegram/Signal
 
-- I believe the hackers/stalkers had started to drug me seriously again at home since getting back to Dénia in April.
-- A Telegram chat on my Spanish phone invited me to play a game which I downloaded, probably how they so easily got access again, and it was just endless boredom.
+- I was extremely high at home for the whole of April and on into May.
+- This meant I was extremely prone to triggering online and suggestion, and I found myself overwhelmingly sexually aroused on most afternoons which meant I had to masturbate.
+- Often, on Google search, I would see a woman in her bed with the covers over her face and this made me wonder if someone was watching me, but then I would forget as another wave of euphoria kicked in.
+- I was prompted to do a number of things online that I would never normally do.
+- A Telegram chat on my Spanish phone invited me to play a game which I downloaded.
+- It was a child's game and it would never end, but the person on the Telegram chat kept egging me on to keep going and by level 326, or so, we could then chat.
+- I quickly got bored with this, but I did wonder if this is how they hook the youngsters in, and I wondered whether my love the trumpet teacher was trying to tell me something important here.
+- Then, sometime in early May, just before I left for Madrid, I was DM'ed on Twitter by a fake-account with some name connected to Elon Musk's brother.
+- The account is deleted now and, even though I kept the DM, it is now gone from my inbox.
+- The account told me Elon wanted to talk to me, and gave me the Signal address.
+- Weirdly, I'm utterly hooked. Utterly.
+- I don't even have a second thought about it. I know it is the trumpet teacher and I want to speak to him immediately.
+- I text him on Signal.
+- One of the first things the account says is *send pics*, obviously nudes is implied. 
+- I am angry, and tell them I'm not interested in pics, and I don't want to see any male genitals either - the porn bombardment includes an erect penis at least once a day on my timeline, and even today albeit less frequently - but I still continue to talk as if it is the man I love.
+- I do not understand it. It's very strange.
+- Are they playing some low-level sub-audio track that connects me to him somehow?
+- It was extremely weird in fact.
+- The first text I sent to him, interestingly, was *why don't you come to Bali with me?*
+- I explained, *I need someone to talk to the founders in Spanish about the forgivenet*.
+- He replied, *What for?*
+- I said, *Because men don't listen to women with good ideas, so I need you to do the talking for me.*
+- He said, *Oh yeah, that's true*.
+- The communication continued right up to the Bali trip and I sent an extraordinarily long rant to the account while I was [flying to Bali](#flight-to-bali).
+- In it, I mentioned an image I had seen on Google search on, what I thought was his X account, `@jctot19` throughout December 2023.
+- It was a still from a film about child sex trafficking, Sound of Freedom, a true story:
 
-!!! danger
-    - I wonder now if this is how they target children.
-    - Get them hooked into a game and then communicate online with them, hack their webcams like mine was, and manipulate them into something pedophilic. 
+[![Sound of Freedom](../../content/images/sound-of-freedom.jpg)](https://www.imdb.com/title/tt7599146/)
 
-- Then, in May, I was contacted on Twitter by an Elon Musk's brother, a fake account obviously, who told me Elon wanted to talk to me, and gave me the Signal details.
-- Weirdly, I'm hooked.
-- One of the first things this account says is "send pics". 
-- I am angry, and tell them I'm not interested in pics, and I don't want to see any male genitals, but I still continue to talk.
-- It's not clear why although something in my mind believes it is the trumpet teacher again. It's very strange.
-- It was extremely weird in fact. I sent an extraordinarily long rant to this person's account while I was flying to Bali in May.
-- In it, I mentioned one image seen on `@jctot19` Google search throughout December which was a film about child sex trafficking, a true story: https://www.imdb.com/title/tt7599146/.
-- The film is playing on Turkish Airlines at the time and I watch it.
+- I saw it so often on the Google search results, I ended up looking it up and found out it was a film about child sex trafficking.
+- It felt, again, like the trumpet teacher I loved was conspiring with me against Domingo, as [I had suggested to him in class](../2023/february.md#plot-awareness) to end this.
+- The film was playing on my Turkish Airlines flight to Bali and I watch it.
 - It is a true story of child trafficking and the protagonist's wife is called Katherine.
 
 ![Tim Ballard - child trafficker destroyer](../../content/images/tim-ballard.jpg)
 
 - It's all so *meaningful*.
+- I post a screenshot of what I'm watching to the Signal account I irrationally believe is the trumpet teacher I love, but obviously isn't.
 - I wonder why the `@jctot19` account would have added that film still in Google search results for me to see, and I think the worst.
 
 !!! info
     - Was the trumpet teacher alerting me to child sex trafficking going on in Dénia, with the conservatory somehow the training or recruitment ground?
     - It seemed preposterous to me.
-    - More likely, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police) and had become obsessed by it for some reason.
+    - More likely, I felt, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police) and had become obsessed by it for some reason.
     - Or was something even more startling going on?
 
 ## Madrid
