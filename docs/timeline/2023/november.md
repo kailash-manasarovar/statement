@@ -332,15 +332,22 @@ function googleTranslateElementInit() {
 
 ### Interview with Polygon
 
-- I'm headhunted by a LinkedIn account from someone who is apparently working at Coinbase with the suggestion there is a tech writer's job at Polygon.
-- It's extremely well paid, eye-watering amounts, just like the honey-trappers want it.
+- I'm headhunted via a LinkedIn account owned by a Coinbase employee.
+- The same thing happened with the zkSync job.
+- I have previously told Joel Barton at Hype that I'm interesting at working for Polygon for a considerable package, so I'm happy to hear from this person.
+- I wonder who they really were.
+- They tell me there is a tech writer's job at Polygon.
+- It's an extremely well paid job, eye-watering amounts, just like the myself and the honey-trappers want it.
 - I attend a series of interviews for the job over September and October.
-- The technical interview stage is managed by Nadim.
+- The technical interview stage is managed by [Nadim Kobesi](#nadim-kobesi) a curious fellow who turns out to be an actor.
+
+![John 3 8](../../content/images/John-3-8.PNG)
+
 - I'm asked to research and write about the zero-knowledge engine, and ask questions where necessary.
 - I do a good job. 
 - I have an online chat about what I have prepared with Nadim.
-- As I'm interviewing, words fly by on my UI, "wow, you're an engineer".
-- I take it to mean the hacker is watching my every move, including my job interviews.
+- As I'm interviewing, words fly by on my UI, *wow, you're an engineer*.
+- Hackers are watching my every move, including my job interviews.
 
 ### Starting with Polygon
 
@@ -385,8 +392,6 @@ function googleTranslateElementInit() {
 - I wonder how much damage he was able to do in the engineering department in such a short space of time. The tech failed and faltered again and again in early 2024. I think this is probably a red-herring now.
 - He, or other parties, certainly added a lot of malicious code to our backend set up which broke our SEO for months before we could figure it out, but this was probably an inside job.
 - In any case, from the moment I gave Nadim my Twitter account details and looked him up online in private, everything changed for me at Polygon. My boss Grace Torrellas starts to treat me badly. I am no longer given work by Gabriel Silva who I am supposed to be working with closely. 
-
-![John 3 8](../../content/images/John-3-8.PNG)
 
 ### Gabriel Silva
 
