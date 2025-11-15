@@ -327,8 +327,8 @@ function googleTranslateElementInit() {
     - Is she sleeping? Maybe she's dead.
     - Oh look, there they are again, and she's just gone out, what are they doing in her bathroom with her shampoo I wonder?
     - Oh, never mind, nobody cares.
-    - Let's not forget the UK recruitment companies who set up bogus interviews for distracting me from writing my police statement and, I assume on occasion, jeering purposes (or perhaps for live-streaming next to historical rape-porn, me starring); humiliation++, just like they like it.
-    - And let's not forget how I'm now banned for life on LinkedIn where multiple bogus LinkedIn accounts headhunted me for the roles I ended up in over the years, many of which, I expect, to work alongside colleagues who had seen me in child rape-gang porn and knew, therefore, who I was and judged me bitterly on that basis alone.
+    - Let's not forget the [UK recruitment companies](../2025/august.md#recruitment-agents) who set up bogus interviews for distracting me from writing my police statement and, I assume on occasion, jeering purposes (or perhaps for live-streaming next to historical rape-porn, me starring); humiliation++, just like they like it.
+    - And let's not forget how [I'm now banned for life on LinkedIn](../2024/november.md#im-banned-for-life-on-linkedin) where multiple bogus LinkedIn accounts headhunted me for the roles I ended up in over the years, many of which, I expect, to work alongside colleagues who had seen me in child rape-gang porn and knew, therefore, who I was and judged me bitterly on that basis alone.
 
 ### Interview with Polygon
 
