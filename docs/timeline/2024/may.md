@@ -314,7 +314,7 @@ function googleTranslateElementInit() {
 
 [![Let Women Speak in Madrid](../../content/images/let-women-speak-speech.jpg)](https://youtu.be/l9X6o11IwBc?t=1988)
 
-- I describe in Spanish being targeted by a "manada" (vernacular for "rape gang" in Spanish) in Dénia and how my current experience parallels precisely the child sexual abuse by a North London grooming gang I suffered when I was 16.
+- I describe in Spanish being targeted by a "manada" (vernacular for "rape gang") in Dénia and how my current experience parallels precisely the child sexual abuse by a North London grooming gang I suffered when I was 16.
 - Amazingly, a fake-account I believed to be run by the Cano's that stalked me endlessly in 2023 had that term in the profile.
 
 [![Manada](../../content/tweets/november-2023/manada.png)](https://x.com/g_lamarche)
