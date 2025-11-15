@@ -351,19 +351,24 @@ function googleTranslateElementInit() {
 
 ### Starting with Polygon
 
-- I start a new job at [Polygon](https://polygon.technology/), web3 crypto giant, on 1st November as a Senior Technical Writer.
+- I start at [Polygon](https://polygon.technology/), web3 crypto giant, on 1st November as a Senior Technical Writer.
 - Well, technically I start on the 2nd as the 1st is a public holiday which is good because I was undoubtedly poisoned while out on [Halloween](october.md#halloween), or perhaps on my return home from my water bottles, and I spent 36 hours getting over it.
-- Nevertheless, it's a great job and I'm very excited about my new role.
-- My boss is Grace Torrellas and the team has about three others at that time including Anthony Matlala.
+- I really pissed someone off on Halloween, didn't I. 
+- Was it my singing? Probably.
+- Regardless, I pull through ready to start.
+- It's a great job and I'm very excited about my new role.
+- My boss is Grace Torrellas and the team has about three others including Anthony Matlala.
 
 !!! tip "Corruption in Spain again?"
     - As I am writing my book, I started to wonder about corrupt machinations behind my employment with Polygon as the company is very Spanish and I was earning heaps of money! A honey-trappers wet-dream indeed.
     - It came just after the [Torus](august.md#head-hunted-by-ex-polygon-director) nonsense job which was obviously part of the extreme hacking I was subject to. 
-    - Were Polygon founders involved in that too, and by extension everything else that was going on?
-    - In retrospect, my assignment with Polygon seems to be just another example of [the porn fatwa](../early-years/2003.md#porn-fatwa), especially when we consider Nadim (see below), and the [Pakistani Brit making threats of sexual violence towards me in Bali](../2024/may.md#the-pakistani-yorkshire-man).
-    - What's not clear is how many of the men I have worked with had seen [child rape-gang porn with me in it](#first-time-they-flash-up-my-naked-16-year-old-body-on-x) and/or knew I was being drugged and sedated in my apartment in Dénia, and how the criminal gangs intended to rob and murder me when I was run through, like they do with all the other women, and now children.
+    - Were Polygon founders involved in that and by extension everything else that was going on?
+    - In retrospect, my assignment with Polygon seems to be just another example of [the porn fatwa](../early-years/2003.md#porn-fatwa), especially when we consider Nadim's outrageous behavior, and the [Pakistani Brit making threats of sexual violence towards me in Bali](../2024/may.md#the-pakistani-yorkshire-man), and other unbelievable Polygon events.
+    - What's not clear is how many of the men I have worked with have seen [child rape-gang porn with me in it](#first-time-they-flash-up-my-naked-16-year-old-body-on-x) and/or knew I was being drugged and sedated in my apartment in Dénia, and how many of them were aware that the criminal gangs intended to rob and murder me when I was run through, like they do with all the other women, and now children.
     - I'm wondering if my role at zkSync was also part of the conspiracy, as the men at that organization built up the stress and tension to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023).
-    - "It's what they do", as [Paqui had said to me in class](../2024/january.md#i-tell-paqui-im-being-terrorized-by-teachers-and-staff-at-the-conservatory).
+    - *It's what they do*, as [Paqui had said to me in class](../2024/january.md#i-tell-paqui-im-being-terrorized-by-teachers-and-staff-at-the-conservatory).
+    - I don't think we should accept a world run by porn-addicts, their addictions growing ever more grotesque.
+    - I'm sure they don't want it either, in those moments of clarity which come to us all from time to time.
 
 ### Nadim Kobesi
 
