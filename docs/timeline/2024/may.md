@@ -314,6 +314,10 @@ function googleTranslateElementInit() {
 [![Let Women Speak in Madrid](../../content/images/let-women-speak-speech.jpg)](https://youtu.be/l9X6o11IwBc?t=1988)
 
 - I describe in Spanish being targeted by a "manada" (vernacular for "rape gang" in Spanish) in Dénia and how my current experience parallels precisely the child sexual abuse by a North London grooming gang I suffered when I was 16.
+- Amazingly, a fake-account I believed to be run by the Cano's that stalked me endlessly in 2023 had that term in the profile.
+
+![Manada](../../content/tweets/november-2023/manada.png)
+
 - I make the point that, had I been born 30 years later and the same thing had happened to me, or I saw it happening to friends, I would have sought comfort and safety in trans ideology, mutilating and sterilizing myself in the process.
 
 ### The Spanish feminists tell me why they didn't support me
