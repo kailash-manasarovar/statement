@@ -22,9 +22,12 @@
 - A woman comes and sits next to us.
 - She is over-talkative but not-friendly.
 - She reminds me a little of the [white man interrogating the Asians](march.md#a-man-who-reminds-me-of-domingo) from before.
+- They could be related.
+- I go and get our dinners, leaving dad alone with her.
+- What do they talk about?
 - As we leave, she makes an unnecessary hand-gesture to me which is just one of a million things I did that the teachers and staff at the conservatory jeered at.
 - The bar staff address the woman by name.
-- We thought she might be the boss. 
+- Dad said he thinks she's the boss. 
 - Just like the guy from March, she had the air of someone who only speaks to people who are very afraid of her.
 
 ## Lourdes
