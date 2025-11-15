@@ -522,6 +522,16 @@ function googleTranslateElementInit() {
     - [Invoice and receipt first page and payment](../../content/documents/evidence/DPR-1.JPG).
     - [Invoice and receipt second page](../../content/documents/evidence/DPR-2.JPG).
 
+## The streets of Denia
+
+- Every time I go out I feel threatened.
+- I'm walking down the Calle La Mar one afternoon and a waiter I've known for years who works at the Tasca Eulalia restaurant is walking across the street from me.
+- He looks at me, and laughs in a horrible manner.
+- Does the whole town know what's going?
+- Are they all watching everything I do online?
+- Have they all seen me masturbating in my apartment, or being sedated and raped in 1989 as a child?
+- Or is the truth much, much worse than I can possibly imagine?
+
 ## Lourdes
 
 - I leave for Lourdes at the end of the month.
