@@ -327,7 +327,8 @@ function googleTranslateElementInit() {
 - They realize they know me from the [previous September when I went public on Twitter](../2023/september.md#going-public-on-twitter) asking for help.
 - One of the organizers explains that, yes, we heard about someone from Dénia conservatory, but it wasn't you.
 - I tell her, yes it was me.
-- I was asking for help for the same things I'm talking about today.
+- She seems uncomfortable.
+- I tell her that I was asking for help for the same things I'm talking about today.
 - *No, no, it couldn't be you. We heard this woman was unstable*, she says, *like a victim of domestic violence*.
 - I remain flabbergasted.
 - Another woman interrogates me about what is happening at lunch but my Spanish is so poor I can barely describe it.
