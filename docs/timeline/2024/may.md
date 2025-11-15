@@ -235,7 +235,7 @@ function googleTranslateElementInit() {
 - Often, on Google search, I would see a woman in her bed with the covers over her face and this made me wonder if someone was watching me, but then I would forget as another wave of euphoria kicked in.
 - I was prompted to do a number of things online that I would never normally do.
 - A Telegram chat on my Spanish phone invited me to play a game which I downloaded.
-- It was a child's game and it would never end, but the person on the Telegram chat kept egging me on to keep going and by level 326, or so, we could then chat.
+- It was a child's game and it was never going to end, but the person on the Telegram chat kept egging me on to keep going and by level 326, or so, we could then chat personally.
 - I quickly got bored with this, but I did wonder if this is how they hook the youngsters in, and I wondered whether my love the trumpet teacher was trying to tell me something important here.
 - Then, sometime in early May, just before I left for Madrid, I was DM'ed on Twitter by a fake-account with some name connected to Elon Musk's brother.
 - The account is deleted now and, even though I kept the DM, it is now gone from my inbox.
@@ -270,14 +270,14 @@ function googleTranslateElementInit() {
 
 - It's all so *meaningful*.
 - I post a screenshot of what I'm watching to the Signal account I irrationally believe is the trumpet teacher I love.
-- I wonder why the `@jctot19` account would have added that image in Google search results for me to see, and I think the worst about the Tenor Cortis conservatory of Dénia.
+- I wonder why the `@jctot19` account would have added that image in Google search results for me to see, and I start to think the worst about the Tenor Cortis conservatory of Dénia.
 
 !!! info "Messages for me"
     - Was the trumpet teacher alerting me to child sex trafficking in Dénia, with the conservatory somehow operating as the training and/or recruitment ground?
     - It seemed preposterous to me.
     - More likely, I felt, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police) and had become obsessed with it for some reason.
     - But indeed, perhaps something even more startling was going on.
-    - Did I recruit the trumpet teacher to save the world with me without even knowing it?
+    - Did I recruit [trumpet teacher number one](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) to save the world with me without even knowing it?
 
 ## Madrid
 
