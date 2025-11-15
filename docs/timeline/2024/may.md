@@ -281,7 +281,7 @@ function googleTranslateElementInit() {
 
 ## Madrid
 
-- I drive to Madrid and stay from the 5th to the 11th of May at the [Princesa Plaza](https://www.marriott.com/es/hotels/madpp-madrid-marriott-hotel-princesa-plaza/overview/). 
+- I drive to Madrid and stay from the 5th to the 11th at the [Princesa Plaza](https://www.marriott.com/es/hotels/madpp-madrid-marriott-hotel-princesa-plaza/overview/). 
 - I'm flying out of Madrid on the 11th May to Bali for an event with my work, [Polygon Labs](https://polygon.technology/about), and I need to get away from Dénia as living there under attack every time I leave my house is stressful to say the least.
 - I'm not thinking straight, and I assume this is due to long-term drugging, or I would be organizing some definitive way out of the situation.
 - My sight is blurry, all the time.
