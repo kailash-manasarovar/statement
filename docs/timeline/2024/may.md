@@ -44,6 +44,7 @@ function googleTranslateElementInit() {
 
 [![I like you Haze, I really do](../../content/tweets/may-2024/i-like-you-haze.jpg)](https://x.com/1FRGVN/status/1785411297124732950)
 
+- There was a lot of talk about the mother, Sandra, and the account became apoplectic saying that she had died and how dare I talk about her this way. The usual aggressive verbiage to try to make you cower and apologize. I probably did a bit, apologize that is.
 - You can go through this tweet graph at your leisure. It's quite fun.
 - At the time, I thought it could have been anyone in the region with excellent English, except this account knew things that only myself and Hazel (or people who know her intimately) could have known.
 - I wonder who *DS Lc* is?
