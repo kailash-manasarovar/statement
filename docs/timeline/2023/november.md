@@ -332,7 +332,7 @@ function googleTranslateElementInit() {
 
 ### Interview with Polygon
 
-- I'm headhunted via a LinkedIn account owned by a Coinbase employee.
+- I'm headhunted on LinkedIn by a Coinbase employee.
 - A similar thing happened with the zkSync job, except that time I was headhunted by someone apparently working for the company, who didn't exist!
 - I wonder who they both really were, and why hide?
 - I have previously - about two weeks before - told Joel Barton at Hype that I'm interested in working for Polygon for a considerable package, so I'm happy to hear from this person.
