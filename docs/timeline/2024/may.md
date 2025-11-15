@@ -230,8 +230,8 @@ function googleTranslateElementInit() {
 
 ## Telegram/Signal
 
-- I was extremely high at home for the whole of April and on into May.
-- This meant I was extremely prone to triggering online and suggestion, and I found myself overwhelmingly sexually aroused on most afternoons which meant I had to masturbate.
+- I was extraordinarily high at home for the whole of April, and on into May and beyond.
+- This made me very vulnerable to online triggering and suggestion, and I found myself overwhelmingly sexually aroused on most afternoons which meant I had to masturbate.
 - Often, on Google search, I would see a woman in her bed with the covers over her face and this made me wonder if someone was watching me, but then I would forget as another wave of euphoria kicked in.
 - I was prompted to do a number of things online that I would never normally do.
 - A Telegram chat on my Spanish phone invited me to play a game which I downloaded.
