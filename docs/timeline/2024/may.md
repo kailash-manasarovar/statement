@@ -334,7 +334,7 @@ function googleTranslateElementInit() {
 - Another woman interrogates me about what is happening at lunch but my Spanish is so poor I can barely describe it.
 - What I don't know is that I'm being drugged so I'm not at all clear about what's going on, and when I think about the trumpet teacher I get giggly because of the triggered sexual arousal.
 - They must know, it must be very familiar to them.
-- These people are a well-oiled machine in business for decades. There's no way Spanish feminists don't know what the men are doing, in my view.
+- These people are running a well-oiled machine in business for decades. There's no way Spanish feminists don't know what the men are doing, in my view.
 - They were warned off helping me, and it's not at all clear why.
 - Later, in January 2025, someone posts a picture of the woman who was organizing the Spanish feminists on my Facebook.
 - The pic is her face in the Sphinx of Egypt.
