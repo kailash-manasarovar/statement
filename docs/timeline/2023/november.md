@@ -349,12 +349,13 @@ function googleTranslateElementInit() {
 - As I'm interviewing, words fly by on my UI, *wow, you're an engineer*.
 - Hackers are watching my every move, including my job interviews.
 
-### Starting with Polygon
+### Starting my new job
 
-- I start at [Polygon](https://polygon.technology/), web3 crypto giant, on 1st November as a Senior Technical Writer.
-- Well, technically I start on the 2nd as the 1st is a public holiday which is good because I was undoubtedly poisoned while out on [Halloween](october.md#halloween), or perhaps on my return home from my water bottles, and I spent 36 hours getting over it.
+- I start my new job at [Polygon](https://polygon.technology/), web3 crypto giant, on 1st November as a Senior Technical Writer.
+- Well, technically I start on the 2nd as the 1st is a public holiday, which is good because I was undoubtedly poisoned while out on [Halloween](october.md#halloween), or perhaps on my return home from tap water or something else I ingested.
+- I spend 36 hours getting over it.
 - I really pissed someone off on Halloween, didn't I. 
-- Was it my singing? Probably.
+- Was it [my singing](october.md#halloween)? Probably.
 - Regardless, I pull through ready to start.
 - It's a great job and I'm very excited about my new role.
 - My boss is Grace Torrellas and the team has about three others including Anthony Matlala.
