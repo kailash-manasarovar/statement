@@ -373,33 +373,48 @@ function googleTranslateElementInit() {
 
 ### Nadim Kobesi
 
-- I was interviewed by [Nadim Kobesi](https://nadim.computer/); *apparently* an engineer and cryptographer. 
+- [Nadim Kobesi](https://nadim.computer/), the man who set the technical interview, is *apparently* an engineer and cryptographer. 
 - Every time he speaks, he prefaces his words with "as an engineer" or "as a security expert", in case we forget I suppose.
 - Nadim is a weird guy but we have a good relationship, initially.
 - I find out that Nadim was originally hired to work in the zero-knowledge engineering department - the engine-room so to speak - and he had lasted one week before he was kicked out and into the technical writing team, where he couldn't do as much damage I assumed.
-- The engineers had been agog at his output, and they spoke as if he had appeared to know nothing at all about what he was doing.
+- So he's only been on board with the firm for less than a month when I join.
+- The engineers, they told me, were agog at his output, and they spoke as if he had appeared to know nothing at all about what he was doing.
 - But he could talk; oh he could talk. 
 - His patter was exceptional.
-- Nadim was a difficult person; rude, weird, and inappropriate. He was very loud and didn't let anyone else speak. Team members were exhausted by him.
-- I ask him for advice about how to protect my network and devices, and explain a little bit about what's been happening to me, and how it centers around Twitter.
-- He gives me zero advice that I didn't know already, and that anyone could have gotten from basic information.
-- I start to wonder about how much of an engineer and security expert he really is.
-- He tells me he will check out my Twitter account, and I give him my account details.
-- At the same time, I look him up and discover he's a trained actor.
+- Nadim was a difficult person; rude, weird, and inappropriate.
+- He was very loud and didn't let anyone else speak. 
+- Team members were exhausted by him.
+- Strangely, Grace sets up a weekend trip for the three of us to visit Barcelona. It's a bit strange and unexpected, and I don't really want to go.
+- I ask Nadim for advice about how to protect my network and devices, and I explain a little bit about what's been happening to me, how I've been cyber-stalked and hacked, and how it all centers around X.
+- He tells me he will check out my X account for me.
+- I give him my account details.
+- Nadim gives me no helpful advice. In fact, what he does say about security is common knowledge, nothing more.
+- He starts to give me a hard time in meetings and on Slack.
+- I answer back and get into an wholly exaggerated amount trouble for standing my ground and answering back.
+- I demand mediation and Grace eventually calls us into a meeting where she basically says it's all my fault and I nearly cry.
+- He's so rude, and getting away with it, I start getting suspicious about him.
+- Anthony Matlala is kind to me and tells me how difficult it must be for me being a woman in tech and having to deal with this.
+- I appreciate it.
+- Nevertheless, I start to wonder about how much of an engineer and security expert Nadim really is.
+- At the same time, at home on my personal laptop or phone, I look him up and discover he's a trained actor.
+- He has a bachelor's degree from the [National Institute of Dramatic Art](https://www.nida.edu.au/) in Sydney, graduated in 2010, and he has been in a number of films. 
 - From that moment, his demeanor towards me changes.
 - He starts to bully me outrageously.
-- It is so bad, he is fired about two weeks later, but not before he has spread the word around the business, including to my boss and managers I have to work with very closely, that I am a *transphobe*.
-- About a week before he gets fired, Grace Torrellas insists I go on a trip to Barcelona with her and Nadim at the weekend. It's out of the blue and feels like bullying.
-- I wonder what their intention was for the trip to Barcelona?
-- When I spoke to engineers on the team about him later on, they couldn't believe the guy had got the job. They said he was totally ineffective and impossible to work with and any work he had done they couldn't believe he had done it, it was so poor quality, as if he had no idea what he was doing.
-- He did, however, have root level access to all systems for the short time he was on the engineering team.
-- I look him up on Google and find out he is a trained actor with a bachelor's degree from the [National Institute of Dramatic Art](https://www.nida.edu.au/) in Sydney, graduated in 2010, and has been in a number of films. 
-- It seems he was a spy.
+- The bullying is so bad, he is fired about two weeks later.
+- I believe that, due to my X content, and before he was fired, he spread muck around the business about me; including to my boss and managers I have to work with very closely, that I am a *transphobe*. 
+- This is how I explain my experiences at Polygon. It's the *only* explanation I have while I'm unaware I'm an international sedated spy-cam rape-porn sensation..
+- The Barcelona trip is cancelled and I still wonder what that was going to be all about. Was Jordi involved in that, or any of the other founders?
+- Did hackers see me learn that he's an actor, and tell the Polygon bosses, who advised he got himself fired asap?
+- When I spoke to engineers on the team about him later on, they couldn't believe the guy had got the job. They said he was totally ineffective and impossible to work with and any work he had done they couldn't believe he had done it, it was so poor quality, as if he had no idea what he was doing. 
+- I do wonder though how many of them knew what was really going on.
+- Nadim did, however, have root level access to all systems for the short time he was on the engineering team and I thought this was interesting and wondered if he was an industrial spy.
 - Did Nadim find something out he didn't like, about the [porn fatwa maybe](../early-years/2003.md#porn-fatwa) and got himself out of there quick?
-- Or did they know I had found out he was an actor because they were watching my every move online along with everyone else in Spain it seems?
-- I wonder how much damage he was able to do in the engineering department in such a short space of time. The tech failed and faltered again and again in early 2024. I think this is probably a red-herring now.
-- He, or other parties, certainly added a lot of malicious code to our backend set up which broke our SEO for months before we could figure it out, but this was probably an inside job.
-- In any case, from the moment I gave Nadim my Twitter account details and looked him up online in private, everything changed for me at Polygon. My boss Grace Torrellas starts to treat me badly. I am no longer given work by Gabriel Silva who I am supposed to be working with closely. 
+- Or was Nadim hired specifically with the intention of terrorizing me at work, for laughs alongside the other humiliation I didn't know I was suffering.
+- I did wonder how much damage he was able to do in the engineering department in such a short space of time.
+- The tech failed and faltered again and again in early 2024. I think this is probably a red-herring now.
+- He, or other parties, certainly added a lot of malicious code to the docs backend set up which broke our SEO for months before we could figure it out.
+- In any case, from the moment I gave Nadim my X account details and looked him up online in private, everything changed for me at Polygon. 
+- My boss Grace Torrellas starts to treat me badly and I am no longer given any work by Gabriel Silva who I am supposed to be working with closely. 
 
 ### Gabriel Silva
 
@@ -446,7 +461,7 @@ function googleTranslateElementInit() {
 - I felt that being targeted at my job for being "transphobic" on top of being targeted by criminal sedating rape-gangs of Dénia is really too much for one person to cope with without any support at all.
 - And yet, I'm still here.
 
-!!! danger "Could Nadim and Aziv have been yet more porn-gang spies?"
+!!! danger "Could Nadim and Aziv, even Hans, have been yet more porn-gang spies?"
     - I wonder a bit about Nadim and Aziv (or whatever his name was) now.
     - It's easy to get paranoid when you're an international child rape-gang porn star of over 40 years and never knew it till very recently.
     - I did think Nadim was an industrial spy, but I now believe it's even more twisted.

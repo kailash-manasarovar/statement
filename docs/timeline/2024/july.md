@@ -56,6 +56,15 @@ function googleTranslateElementInit() {
 - I wake up and feel quite unwell.
 - I've no idea why I might be dreaming about that.
 
+### Hacking expert
+
+- Says he'll help me.
+- Then says it'll cost £2000.
+
+### Pig butchers and crypto-transaction tracking
+
+- Very interesting talk.
+
 ## Evidence of mass cyber-stalking technology, or something more sinister
 
 - I'm back in Dénia on 15th July. 
