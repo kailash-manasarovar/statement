@@ -358,7 +358,7 @@ function googleTranslateElementInit() {
 
 #### David Schwartz backs down
 
-- While I'm in Madrid or just before, my manager David Schwartz is replaced by ..
+- While I'm in Madrid or just before, my manager David Schwartz is replaced by Paul O'Leary CTO.
 - I report now to Paul.
 - In the meeting with David, he tells me he is focussing full time on founder management, and asks me if I know what that means.
 - I don't know and ask him to enlighten me.
@@ -379,6 +379,9 @@ function googleTranslateElementInit() {
 
 - I'm also amazed they're showing a film which was posted on the `@jctot19` Google search results around Christmas. 
 - It's about child sex trafficking.
+- Curiously, the film I watch on the plane is [The Sound of Freedom](https://en.wikipedia.org/wiki/Sound_of_Freedom_(film)); a true story about child sex trafficking, and more curiously the film's picture came up as a result on my `@jctot19 x` searches around December 2023.
+- I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
+- I find the whole thing very significant, obviously, and I am 100% convinced the person I'm talking to on Signal is the trumpet teacher.
 - I take a pic and send it.
 
 ![Bali flight film](../../content/images/bali-flight/film-about-child-trafficking.jpg)
@@ -388,48 +391,43 @@ function googleTranslateElementInit() {
 ### Arriving at the hotel
 
 - My hotel room is next to John Michael from IT support. I reported my concerns about hacking to him previously.
+
+### Bullying at the conference
+
 - I notice constant "set up" events, just like in Denia, which mean someone is tracking mine, and other's, movements in order to create "chance" meetings.
 - I seem to have "bumping into" episodes every day; *meaningfully* set up events and situations, or literally bumping into people meaningfully.
 - The first one of these "chance meetings" is with Gabriel Silva on the first morning as I'm leaving my room.
 - Did something happen the night before in my room?
-- The second one is with Alicia a little later.
+- The second one is with Alicia.
 - Then the writer I worked with Jaime, Alicia again a few times, the Head of IT ... perhaps some of these were random. I hope so.
+- You can tell when they know it's a set up by the way they walk towards you: wooden.
 - During the week, numerous people come up to me to ask me, "when am I leaving?", or "I heard you're leaving".
 
 ![Bali](../../content/images/bali.png)
 
 - It's clearly very easy to whip up bullies into a frenzy.
-- I wonder what they might think if they knew they were supporting a mass-pedophile baby-rape network, amongst other things, in Denia.
-- I guess they were probably excited and delighted about the sedated *switcheroo* porn; at least the men would have been.
-- I complain to my manager, Paul O'Leary about it - the American CTO who replaced David Z. - referencing an earlier complaint I had made to him.
+- At the time, and due to the outrageous [bullying at work](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job), I assume it must be to do with [Nadim getting hold of my X account](../2023/november.md#nadim-kobesi) the November before and telling everyone I'm a TERF.
+- I wonder what they might have though if they knew they were supporting a mass-pedophile baby-rape porn network, amongst other things, in Denia.
+- I guess they were probably delighted about the sedated *switcheroo* porn; at least the men would have been. I can't imagine any women knew about it, but you never know.
 - Gabriel Silva, nothing to do with the writing team at that point, mentions how he is going to be sorting out the docs (my work) using other people who are not on the writing team. 
-- It's a military coup; and that's *exactly* how I describe it to my manager Paul.
-- When I speak to Paul O'Leary about this in Bali, he sort of [groans with familiarity](october.md#madrid-and-paloma), in exactly the same way Spanish government official Paloma groans when I tell her about the porn-gangs and pedophilia going on at the conservatory of Denia.
-- The bullying continues over the following month where another employee, on Gabriel's orders, tries to pretend my systems are unusable, but he can't really and he just looks stupid. It's all in the Git records.
-- The implication, however, is that I am incompetent. And mud sticks.
-- This has been Gabriel's outward view of me since January after hearing from Grace Torrellas about my women's rights activities, and why, I assume, he stopped giving me any work at that time.
-- However, there is something much more sinister going on at Polygon.
-- Polygon Spanish male founders and developers know exactly what is going on for me in Denia, and are involved in the conspiracy; at least from [12th June 2023](../2023/june.md#monday-12th-june-2023) when whatever was supposed to happen didn't, but possibly before.
-- I believe this is why I was [re-programmed into feeling extraordinarily sexually aroused by the gypsies](april.md#drugged-in-the-street-by-denia-gypsies) just before traveling to Bali.
+- I complain to my manager, Paul O'Leary about it referencing an earlier complaint I had made to him.
+- It's yet another military coup; and that's *exactly* how I describe it to my manager Paul.
+- When I speak to Paul O'Leary about this in Bali, he sort of [groans with familiarity](october.md#madrid-and-paloma), in exactly the same way Spanish government official Paloma groans when I tell her about the porn-gangs and possible pedophilia going on at the conservatory of Denia.
+- I believe Polygon Spanish male founders and developers know exactly what is going on for me in Denia, and are involved in the conspiracy and they're aware that I'm due to end up in hardcore porn, robbed, blind, perhaps murdered, and they don't want me working for them while that's happening.
+- Something very sinister happened in Bali because I was [re-programmed into feeling extraordinarily sexually aroused by the gypsies](april.md#drugged-in-the-street-by-denia-gypsies) just before traveling to Bali.
 - I remain high and euphoric and extraordinarily sexually aroused throughout May, and especially in Bali.
 - Is my hotel room set up with spy-cams?
-- I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
-- Curiously, the film I watch on the plane is [The Sound of Freedom](https://en.wikipedia.org/wiki/Sound_of_Freedom_(film)); a true story about child sex trafficking, and more curiously the film's picture came up as a result on my `@jctot19 x` searches around December 2023.
-- I find the whole thing very significant, obviously, and I am 100% convinced the person I'm talking to on Signal is the trumpet teacher.
-- Bullying just got worse and worse for me after Bali with the intention, I believe, of me leaving, which I didn't.
-- The reason there are nearly 3000 issues in the [GitHub repo](https://github.com/0xPolygon/polygon-docs/issues) is because my job was hacked by my colleagues around the time they had had enough of whatever they were doing with me and were ready to get rid of me. Did they know I was about to be murdered?
 
-### The security guy knows something
+### My shampoo goes missing from my room
 
-- Gordon Bishop is the man on the security team who helped me with my [hacked work laptop](march/1-12.md#reporting-hacking-to-polygon-labs).
-- He meets me before a dinner one evening.
-- He is nervous.
-- He wants to tell me something but he can't.
-- He talks at me, very fast, a lot, and doesn't let me speak.
-- He's concerned.
-- He knows something about what's going on.
-- I have had long chats with Gordon before and this is not like him.
-- I know he's a family man.
+- I weirdly notice that my shampoo goes missing from my room.
+- I assume the cleaner threw it away, and leave it.
+- Every morning I am extraordinarily sexually aroused and masturbate.
+- Sometimes, I do yoga at the same time.
+- I have no idea why I would do this; I have never done it before or since in my whole life.
+- Are they somehow triggering a memory of [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) along with the [Pakistani Yorkshireman just I haven't met yet](#the-pakistani-yorkshire-man)?
+- If I'm in porn again, filmed at the Polygon Bali conference, you'll see me masturbating in tree pose.
+- Bit embarrassing, I hope you find it.
 
 ### The Pakistani Yorkshire-man
 
@@ -472,16 +470,17 @@ function googleTranslateElementInit() {
 - It seems more and more likely doesn't it. 
 - Do they do the same to the kids now?
 
-### My shampoo goes missing from my room
+### The security guy knows something
 
-- I weirdly notice that my shampoo goes missing from my room.
-- I assume the cleaner threw it away, and leave it.
-- Every morning I am extraordinarily sexually aroused and masturbate.
-- Sometimes, I do yoga at the same time.
-- I have no idea why I would do this; I have never done it before or since in my whole life.
-- Are they somehow triggering a memory of [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) along with the [Pakistani Yorkshireman just mentioned](#the-pakistani-yorkshire-man)?
-- If I'm in porn again, filmed at the Polygon Bali conference, you'll see me masturbating in tree pose.
-- Bit embarrassing, I hope you find it.
+- Gordon Bishop is the man on the security team who helped me with my [hacked work laptop](march/1-12.md#reporting-hacking-to-polygon-labs).
+- He meets me before a dinner one evening.
+- He is nervous.
+- He wants to tell me something but he can't.
+- He talks at me, very fast, a lot, and doesn't let me speak.
+- He's concerned.
+- He knows something about what's going on.
+- I have had long chats with Gordon before and this is not like him.
+- I know he's a family man.
 
 ### Spanish engineer I recognize
 
@@ -508,14 +507,6 @@ function googleTranslateElementInit() {
 - I wonder what "the worst thing in the world" was and if it was sexual in content.
 - I have reached out to Alicia in case what happened to her at Bali is relevant to this story and to the global tech-bro porn conspiracy overall.
 
-### John Michael
-
-- When we get back from Bali, a few days later there is a chat on Slack about John Michael.
-- Someone has nominated him for being the best tech employee ever and Bali is mentioned.
-- I agree. 
-- John Michael is indeed a lovely man.
-- Are they laughing at me?
-
 ### Anthony
 
 - You don't have to die: https://www.amazon.co.uk/Dont-Have-Anthony-Mpho-Matlala-ebook/dp/B00H2JPKRK/.
@@ -523,15 +514,7 @@ function googleTranslateElementInit() {
 - Or something closer to the divine?
 - Anthony and I have a drink together one evening after dinner.
 - I weep at the table.
-
-### Hans
-
-- Dinner with Hans.
-- He hates me.
-- Oh they're really gonna go for you, he says, when we talk about Hinduism and other things.
-- Keeping look out.
-- Hans is *always* hanging out on the path towards the rooms with one of two other men, Chinese men.
-- I see him every time I'm walking back to my room at night.
+- Anthony walks me to my bedroom door that night.
 
 ### Chess with the Head of IT
 
@@ -547,12 +530,39 @@ function googleTranslateElementInit() {
 - It's like everyone's face is a bit blurry and the same.
 - The founder Sandeep is annoyed that I don't know who he is, and I met him only the day before.
 - The following day I do not recognize him again.
-- Everyone talks to me like I'm the antichrist, and any tiny defect is proof of it, this included.
+- Everyone talks to me like I'm the antichrist, and any tiny defect seems to be proof of it, this included.
+
+### Hans
+
+- Dinner with Hans.
+- He hates me.
+- Oh they're really gonna go for you, he says, when we talk about Hinduism and other things.
+- Keeping look out.
+- Hans is *always* hanging out on the path towards the rooms with one of two other men, Chinese men.
+- I see him every time I'm walking back to my room at night.
+
+### Post-Bali
+
+- Polygon is done with me post-Bali.
+- Post-Bali, bullying continues over the following month after Bali where another employee, on Gabriel's orders, tries to pretend my systems are unusable, but he can't really and he just looks stupid. It's all in the Git records.
+- The implication, however, is that I am incompetent. And mud sticks.
+- This has been Gabriel's outward view of me since January after hearing from Grace Torrellas about my women's rights activities, and why, I assume, he stopped giving me any work at that time.
+- However, there is something much more sinister going on at Polygon and I believe colleagues were instructed to go for me as aggressively as they pleased as whatever they had needed me for in Bali was now over and they were keen I left the company, and quickly.
+- Bullying just got worse and worse for me after Bali with the intention, I believe, of me leaving, which I didn't.
+- The reason there are nearly 3000 issues in the [GitHub repo](https://github.com/0xPolygon/polygon-docs/issues) is because my job was hacked by my colleagues around the time they had had enough of whatever they were doing with me and were ready to get rid of me. Did they know I was about to be murdered?
+
+### John Michael
+
+- When we get back from Bali, a few days later there is a chat on Slack about John Michael.
+- Someone has nominated him for being the best tech employee ever and Bali is mentioned.
+- I agree. 
+- John Michael is indeed a lovely man.
+- Are they laughing at me?
 
 ### Tips for investigators
 
 - Check with the conference team and hotel what special requirements were made for certain people's rooms, such as mine and JTs, and Alicia's, perhaps all the women attendees (about 5% of total attendees).
-- Also check the guest list and attendees for any Spaniard, male or female, who may be linked to poisoning and sedating tech as this would have had to have been done by experts; it is ridiculously unlikely that porn-addict crypto tech-workers would have the knowledge and skill to sedate a target in the same way as the criminal honey-trappers and porn-gangs have been doing for decades (see also the highly professional McCann sedating and kidnap); someone who knows how to add sedating substances to cooling systems, for example, or is skilled in [distraction and poisoning techniques](../2025/july.md#lourdes).
+- Also check the guest list and attendees for any Spaniard, male or female, who may be linked to poisoning and sedating tech as this would have had to have been done by experts; it is ridiculously unlikely that porn-addict crypto tech-workers would have the knowledge and skill to sedate a target in the same way as the criminal honey-trappers and porn-gangs have been doing for decades (see also the highly professional McCann sedating and kidnap); someone who knows how to add sedating substances to cooling systems, for example, or is skilled in [distraction and poisoning techniques](../2025/july.md#lourdes) and may have been laying in wait to meet me, say hi, and drug me just before I went to bed.
 
 ### Elon visits Bali the same week
 
@@ -564,12 +574,12 @@ function googleTranslateElementInit() {
 ### My work with Polygon after Bali
 
 - The intense bullying from my team begins.
-- It is clear they are done with me post-Bali and now want rid of me.
+- It is clear management are totally done with me post-Bali and now want rid of me.
 - The behavior of Hans in particular (who did no work at all so I'm wondering if he was another actor, like Nadim and Aziz, brought in especially for one purpose) was outrageous.
 - Anthony, HR, and my managers supported Hans; and ignored me completely.
-- He would have been fired on the spot in any normal situation.
+- His insubordination would have gotten him fired on the spot in any normal situation.
 - I believe they were trying to get me to leave as quickly as possible; they were done with me now. 
-- They must have known what was coming up next for me, and my expected descent into being a permanently-drugged hardcore porn actress/slave, or marrying a violent male/pimp who intended on taking my money, while I was at work and able to tell people what was going on, would not have been helpful for the porn-gangs.
+- They must have known what was coming up next for me, and my expected descent into being a permanently-drugged hardcore porn actress/slave, or marrying a violent male/pimp who beat me and took my money, while I was at work and able to tell people what was going on, would not have been helpful for the porn-gangs.
 - Except, what they were expecting to happen didn't happen, did it.
 
 ## Perito - technical expert DPR
