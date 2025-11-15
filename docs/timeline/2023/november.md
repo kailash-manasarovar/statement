@@ -313,15 +313,26 @@ function googleTranslateElementInit() {
 
 ## Polygon
 
-!!! tip "This section is a bit disordered"
-    - The reason for this is that I didn't think for one minute my professional life would be part of an international sedated rape-porn conspiracy when I first started writing this police statement.
-    - However, I did know that the porn-gangs of Dénia were involved in what was happening to me professionally at some level - because they were hacking my network and monitoring my every move for one - and I felt it necessary to include the constant onslaught of bullying and professional attacks at work, even if just to set the tone of my state of mind over this period.
-    - Of course, I definitely had to include being targeted by UK recruitment companies for obvious scam positions related to Polygon.
-    - I am consequently unsurprised to find genuine links with recruitment agents and colleagues internationally to what was happening to me in my spy-cam, clandestine-drugging, and sedating-tech installed apartment in Spain.
-    - I'll rework it all shortly.
+!!! tip "Summary of the Polygon tech-bro porn-addict content"
+    - I didn't think for one minute my professional life would be part of an international sedated rape-porn conspiracy when I first started writing this police statement.
+    - That's why the Polygon content was initially not very well organized.
+    - However, I did know that the porn-gangs of Dénia were involved in what was happening to me professionally at some level because it was obvious they were hacking my network and monitoring my every move.
+    - Nevertheless, it felt dreadfully unlucky to be [bullied in my role at zkSync as I was](june.md#work-stress) by the CTO, an ex-colleague of Elon Musk, and for apparently no reason at all while at the same time I was terrorized by teachers and staff at the conservatory.
+    - I took the blame in my own mind, and put it down to the constant stress making it impossible for me to react to situations and events appropriate, but it wasn't that at all.
+    - In August, it became obvious that [my professional life was up for grabs too](august.md#head-hunted-by-ex-polygon-director) and bumping into [snickering Polygon node operators](september.md#polygon-node-operators-on-the-bus-home) with tickets for seats beside and behind me on the bus confirmed that.
+    - What does end up happening to me at Polygon is really beyond the realms of imagination, you can't make this stuff up, but it does seem to be the natural progression of a society gone mad with porn addiction and hatred for women and children.
+    - The tech-bro hacking pornocracy has broken its barriers and is now happily targeting female colleagues, as we should very well expect it to.
+    - How exciting that a female colleague might be living in a apartment with spy-cams watching her day and night, networked up and live-streaming onto porn channels, *switcheroo* specials a few times a week!
+    - And look, she gets so high after her lunch, and who are these people coming in at all hours of the day and night while she's sleeping? 
+    - Is she sleeping? Maybe she's dead.
+    - Who cares.
+    - Let's not forget the UK recruitment companies who set up bogus interviews to laugh at me (or perhaps for live-streaming next to historical rape-porn, me starring); humiliation++, just like they like it.
+    - And let's not forget how I'm now banned for life on LinkedIn where multiple bogus LinkedIn accounts headhunted me for the roles I ended up in over the years, many of which, I expect, with colleagues who had seen me in child rape-gang porn and knew, therefore, who I was and judged me on that basis alone.
 
 ### Interview with Polygon
 
+- I'm headhunted by a LinkedIn account from someone who is apparently working at Coinbase with the suggestion there is a tech writer's job at Polygon.
+- It's extremely well paid, eye-watering amounts, just like the honey-trappers want it.
 - I attend a series of interviews for the job over September and October.
 - The technical interview stage is managed by Nadim.
 - I'm asked to research and write about the zero-knowledge engine, and ask questions where necessary.
