@@ -316,18 +316,19 @@ function googleTranslateElementInit() {
 !!! tip "Summary of the Polygon tech-bro porn-addict content"
     - I didn't think for one minute my professional life would be part of an international sedated rape-porn conspiracy when I first started writing this police statement.
     - That's why the Polygon content was initially not very well organized.
-    - However, I did know that the porn-gangs of Dénia were involved in what was happening to me professionally at some level because it was obvious they were hacking my network and monitoring my every move.
-    - Nevertheless, it felt dreadfully unlucky to be [bullied in my role at zkSync as I was](june.md#work-stress) by the CTO, an ex-colleague of Elon Musk, and for apparently no reason at all while at the same time I was terrorized by teachers and staff at the conservatory.
-    - I took the blame in my own mind, and put it down to the constant stress making it impossible for me to react to situations and events appropriate, but it wasn't that at all.
+    - However, I did know that the porn-gangs of Dénia were involved in what was happening to me professionally at some level because it was obvious to me they were hacking my network and monitoring my every move.
+    - Nevertheless, it felt dreadfully unlucky to be [bullied *again* in my role at zkSync as I was](june.md#work-stress) by the CTO, an ex-colleague of Elon Musk, and for apparently no reason at all while being terrorized by teachers and staff at the conservatory.
+    - I took the blame in my own mind, and put it down to the constant stress making it impossible for me to react to situations and events appropriately, but it wasn't that at all.
     - In August, it became obvious that [my professional life was up for grabs too](august.md#head-hunted-by-ex-polygon-director) and bumping into [snickering Polygon node operators](september.md#polygon-node-operators-on-the-bus-home) with tickets for seats beside and behind me on the bus confirmed that.
-    - What does end up happening to me at Polygon is really beyond the realms of imagination, you can't make this stuff up, but it does seem to be the natural progression of a society gone mad with porn addiction and hatred for women and children.
-    - The tech-bro hacking pornocracy has broken its barriers and is now happily targeting female colleagues, as we should very well expect it to.
+    - What does end up happening to me at Polygon is really beyond the realms of imagination, you can't make this stuff up, and it will be a nail-biting Netflix special I'm certain of it, but, for now it does seem to me to be the natural progression of a society gone mad with porn addiction and hatred for women and children.
+    - The tech-bro hacking pornocracy has broken its barriers and is now happily targeting female colleagues, as we should very well expect it to when it thinks it is going to get away with it.
     - How exciting that a female colleague might be living in a apartment with spy-cams watching her day and night, networked up and live-streaming onto porn channels, *switcheroo* specials a few times a week!
     - And look, she gets so high after her lunch, and who are these people coming in at all hours of the day and night while she's sleeping? 
     - Is she sleeping? Maybe she's dead.
-    - Who cares.
-    - Let's not forget the UK recruitment companies who set up bogus interviews to laugh at me (or perhaps for live-streaming next to historical rape-porn, me starring); humiliation++, just like they like it.
-    - And let's not forget how I'm now banned for life on LinkedIn where multiple bogus LinkedIn accounts headhunted me for the roles I ended up in over the years, many of which, I expect, with colleagues who had seen me in child rape-gang porn and knew, therefore, who I was and judged me on that basis alone.
+    - Oh look, there they are again, and she's just gone out, what are they doing in her bathroom with her shampoo I wonder?
+    - Oh, never mind, nobody cares.
+    - Let's not forget the UK recruitment companies who set up bogus interviews for distracting me from writing my police statement and, I assume on occasion, jeering purposes (or perhaps for live-streaming next to historical rape-porn, me starring); humiliation++, just like they like it.
+    - And let's not forget how I'm now banned for life on LinkedIn where multiple bogus LinkedIn accounts headhunted me for the roles I ended up in over the years, many of which, I expect, to work alongside colleagues who had seen me in child rape-gang porn and knew, therefore, who I was and judged me bitterly on that basis alone.
 
 ### Interview with Polygon
 
