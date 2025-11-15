@@ -281,18 +281,25 @@ function googleTranslateElementInit() {
 
 ## Madrid
 
-- I head to Madrid and stay from the 5th to the 11th of May. 
-- I'm flying out of Madrid on the 11th May to Bali for an event with work and need to get away from Dénia as it is stressful being there.
-- Outside my hotel in Madrid, I see strange guys hanging around and I always have the sense I'm being followed.
-- Words from random conversations I have are posted on fake account profiles.
-- Inside the hotel, online, I am stalked continuously and I believe they get full access again to my new Spanish mobile at this time.
-- I have forgotten to block the camera and there is a significant message that describes something in the room or something I'm wearing
-- On May 6th, I receive [an email notification that the conservatory has banned mobiles from the building](../../content/documents/emails/prohibiting-mobiles-conservatorio.pdf) and I inform my friend about this.
-- I wonder if it is so no-one can take images or films for evidence of wrong doing.
-- I have the sensation when I'm praying the rosary that [the monster trumpet teacher](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) is standing with me and praying the rosary too. I cannot explain this.
-- I am extremely sexually aroused during this time. And it felt like the trumpet teacher was in my mind.
-- They must have managed to drug me somehow during this time. 
-- I was out of my mind on the run up to the Bali Polygon conference.
+- I drive to Madrid and stay from the 5th to the 11th of May at the [Princesa Plaza](https://www.marriott.com/es/hotels/madpp-madrid-marriott-hotel-princesa-plaza/overview/). 
+- I'm flying out of Madrid on the 11th May to Bali for an event with my work, [Polygon Labs](https://polygon.technology/about), and I need to get away from Dénia as living there under attack every time I leave my house is stressful to say the least.
+- I'm not thinking straight, and I assume this is due to long-term drugging, or I would be organizing some way out of the situation.
+- My sight is blurry, all the time.
+- Outside my hotel in Madrid, I see strange men hanging around.
+- I always have the sense I'm being followed.
+- Words from random conversations I have during the day, even from work, are posted on fake account profiles that like my X posts.
+- I am stalked online continuously in the hotel.
+- They have full access to my new Spanish mobile, and there is something more going on which I cannot explain.
+- I have forgotten to block the camera on the phone and I see a significant message that describes something in the room or something I'm wearing.
+- On May 6th, I receive [an email notification that the conservatory has banned mobiles from the building](../../content/documents/emails/prohibiting-mobiles-conservatorio.pdf).
+- I inform my friend in Madrid about this. She says I have set a precedent.
+- I wonder if they've done this so no evidence of ongoing wrong-doing will be available.
+- I have the sensation when I'm praying the rosary that [the monster trumpet teacher](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) is standing with me and praying the rosary too. 
+- I cannot explain this.
+- I am extremely sexually aroused during this time. 
+- It felt like [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) was in my mind.
+- I wasn't aware of it at the time but it's obvious to me now I was ingesting some strong mind-altering substance via my toiletries which had been accessed, as usual, by people entering my apartment at Carrer Furs without my knowledge.
+- I was out of my mind on the run up to the Bali Polygon conference, but curiously and ironically the euphoria I experienced from whatever they were dosing me up with was giving me unusual strength and fortitude, and it appeared to be bolstering my willpower so that I began to do things I would probably wouldn't have done in any normal situation.
 
 ## My speech
 
@@ -327,6 +334,15 @@ function googleTranslateElementInit() {
 - Did David Schwartz and the Spanish founders suggest this happen in a sort of parallel terrorizing to go along with what was happening at the conservatory?
 - It certainly came from up high and multiple teams were involved in singling me and my job out.
 - I assumed it was because of my TERFing online, but it wasn't really that at all, although it's possible that's how they justified it to, at least the women involved I hope.
+
+#### David Schwartz backs down
+
+- While I'm in Madrid or just before, my manager David Schwartz is replaced by ..
+- I report now to Paul.
+- In the meeting with David, he tells me he is focussing full time on founder management, and asks me if I know what that means.
+- I don't know and ask him to enlighten me.
+- He changes the subject.
+- I inform him I'm still being terrorized by the people of Denia but he doesn't want to talk about that.
 
 ### Flight to Bali
 
