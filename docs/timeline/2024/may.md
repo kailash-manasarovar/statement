@@ -244,7 +244,7 @@ function googleTranslateElementInit() {
 - I don't even have a second thought about it. I know it is the trumpet teacher and I want to speak to him immediately.
 - I text him on Signal.
 - One of the first things the account says is *send pics*, obviously nudes is implied. 
-- I am angry, and tell them I'm not interested in pics, and I don't want to see any male genitals either - the porn bombardment includes an erect penis at least once a day on my timeline, and even today albeit less frequently - but I still continue to talk as if it is the man I love.
+- I am angry, and tell them I'm not interested in pics, and I don't want to see any male genitals either - the porn bombardment includes an erect penis at least once a day on my timeline, and even today albeit less frequently - but I still continue to talk to this person as if it is the man I love.
 - I do not understand it. It's very strange.
 - Are they playing some low-level sub-audio track that connects me to him somehow?
 - It was extremely weird in fact.
@@ -254,28 +254,30 @@ function googleTranslateElementInit() {
 - I said, *Because men don't listen to women with good ideas, so I need you to do the talking for me.*
 - He said, *Oh yeah, that's true*.
 - The communication continued right up to the Bali trip and I sent an extraordinarily long rant to the account while I was [flying to Bali](#flight-to-bali).
-- In it, I mentioned an image I had seen on Google search on, what I thought was his X account, `@jctot19` throughout December 2023.
-- It was a still from a film about child sex trafficking, Sound of Freedom, a true story:
+- In the rant, I mention an image I had seen on Google search on what I thought was his X account, `@jctot19`, throughout December 2023.
+- The image I had seen on Google search was a still from a film about child sex trafficking, *Sound of Freedom*, a true story:
 
 [![Sound of Freedom](../../content/images/sound-of-freedom.jpg)](https://www.imdb.com/title/tt7599146/)
 
-- I saw it so often on the Google search results, I ended up looking it up and found out it was a film about child sex trafficking.
-- It felt, again, like the trumpet teacher I loved was conspiring with me against Domingo, as [I had suggested to him in class](../2023/february.md#plot-awareness) to end this.
-- The film was playing on my Turkish Airlines flight to Bali and I watch it.
+- I saw this curious image of the protagonist in a car so often on the Google search results, I ended up looking it up.
+- I found out it was from a film about child sex trafficking.
+- It felt, again, like the trumpet teacher I loved was conspiring with me against Domingo, as [I had suggested to him in class back in February 2023](../2023/february.md#plot-awareness) to end this our way.
+- The film was playing on my Turkish Airlines flight to Bali.
+- I watch it.
 - It is a true story of child trafficking and the protagonist's wife is called Katherine.
 
 ![Tim Ballard - child trafficker destroyer](../../content/images/tim-ballard.jpg)
 
 - It's all so *meaningful*.
-- I post a screenshot of what I'm watching to the Signal account I irrationally believe is the trumpet teacher I love, but obviously isn't.
-- I wonder why the `@jctot19` account would have added that film still in Google search results for me to see, and I think the worst.
+- I post a screenshot of what I'm watching to the Signal account I irrationally believe is the trumpet teacher I love.
+- I wonder why the `@jctot19` account would have added that image in Google search results for me to see, and I think the worst about the Tenor Cortis conservatory of Dénia.
 
-!!! info
-    - Was the trumpet teacher alerting me to child sex trafficking going on in Dénia, with the conservatory somehow the training or recruitment ground?
+!!! info "Messages for me"
+    - Was the trumpet teacher alerting me to child sex trafficking in Dénia, with the conservatory somehow operating as the training and/or recruitment ground?
     - It seemed preposterous to me.
-    - More likely, I felt, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police) and had become obsessed by it for some reason.
-    - Or was something even more startling going on?
-    - Did I recruit the trumpet teacher to save the world with me without knowing it?
+    - More likely, I felt, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police) and had become obsessed with it for some reason.
+    - But indeed, perhaps something even more startling was going on.
+    - Did I recruit the trumpet teacher to save the world with me without even knowing it?
 
 ## Madrid
 
