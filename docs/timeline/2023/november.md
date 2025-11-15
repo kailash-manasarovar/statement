@@ -352,7 +352,9 @@ function googleTranslateElementInit() {
 ### Starting with Polygon
 
 - I start a new job at [Polygon](https://polygon.technology/), web3 crypto giant, on 1st November as a Senior Technical Writer.
-- It's a great job and I'm very excited about my new role.
+- Well, technically I start on the 2nd as the 1st is a public holiday which is good because I was undoubtedly poisoned while out on [Halloween](october.md#halloween), or perhaps on my return home from my water bottles, and I spent 36 hours getting over it.
+- Nevertheless, it's a great job and I'm very excited about my new role.
+- My boss is Grace Torrellas and the team has about three others at that time including Anthony Matlala.
 
 !!! tip "Corruption in Spain again?"
     - As I am writing my book, I started to wonder about corrupt machinations behind my employment with Polygon as the company is very Spanish and I was earning heaps of money! A honey-trappers wet-dream indeed.
