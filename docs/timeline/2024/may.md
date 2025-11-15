@@ -126,6 +126,11 @@ function googleTranslateElementInit() {
 - Is the idea that, if the worst came to the worst and the police did decide to get their finger out, Ana and the rest of them go to prison instead of the real criminals?
 - I expect so.
 - I can tell I was on high-potency hallucinogens at this stage because in that altered state of mind I barely recognized Ana due to increasingly blurry vision, for one, and [I was also trying to see if she was pregnant!](march/1-12.md#ana-dresses-up-pregnant)
+- Ana had walked quickly by me while her husband stopped and stood beside me for a few seconds while the dog looked at me.
+- It was so upsetting, in fact, I canceled my hike and went home.
+- I wonder if sometimes they're tasked with throwing people off mountains. 
+- Certainly there have been a few examples of foreign women dying in this way while out walking with their Spanish husbands.
+- One of Lorraine's good friends died like this; a tragic accident. I was always suspicious.
 
 ## Dreaming of the pedophile
 
