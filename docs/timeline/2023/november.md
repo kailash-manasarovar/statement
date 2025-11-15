@@ -337,13 +337,13 @@ function googleTranslateElementInit() {
 - I wonder who they both really were, and why hide?
 - I have previously - about two weeks before - told Joel Barton at Hype that I'm interested in working for Polygon for a considerable package, so I'm happy to hear from this person.
 - They tell me there is a tech writer's job at Polygon.
-- It's an extremely well paid job, eye-watering amounts, just like the myself and the honey-trappers want it.
+- It's an extremely well paid job, eye-watering amounts, just like the myself and the Spanish honey-trappers like it.
 - I attend a series of interviews for the job over September and October.
-- The technical interview stage is managed by [Nadim Kobesi](#nadim-kobesi) a curious fellow who turns out to be an actor.
+- The technical interview stage is managed by [Nadim Kobesi](#nadim-kobesi), a curious fellow who turns out to be an actor.
 
 ![John 3 8](../../content/images/John-3-8.PNG)
 
-- I'm asked to research and write about the zero-knowledge engine, and ask questions where necessary.
+- I'm asked to research and write about the zero-knowledge engine and ask questions where necessary.
 - I do a good job. 
 - I have an online chat about what I have prepared with Nadim.
 - As I'm interviewing, words fly by on my UI, *wow, you're an engineer*.
