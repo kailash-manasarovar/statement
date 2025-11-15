@@ -321,18 +321,23 @@ function googleTranslateElementInit() {
 
 - I make the point that, had I been born 30 years later and the same thing had happened to me (or I saw it happening to friends and family) I would have sought comfort and safety in trans ideology, mutilating and sterilizing myself in the process.
 
-### The Spanish feminists tell me why they didn't support me
+### Spanish feminists tell me why they refused to help me
 
 - At the event, and in the online meetings prior, I meet Spanish feminists.
-- They realize they know me from the [previous September when I went public on Twitter](../2023/september.md#going-public-on-twitter).
+- They realize they know me from the [previous September when I went public on Twitter](../2023/september.md#going-public-on-twitter) asking for help.
 - One of the organizers explains that, yes, we heard about someone from Dénia conservatory, but it wasn't you.
-- I tell her, yes it was me. I was asking for help for the same things I'm talking about today.
-- "No, no, it couldn't be you. We heard this woman was unstable", she says, "like a victim of domestic violence".
+- I tell her, yes it was me.
+- I was asking for help for the same things I'm talking about today.
+- *No, no, it couldn't be you. We heard this woman was unstable*, she says, *like a victim of domestic violence*.
 - I remain flabbergasted.
-- A woman interrogates me about what happened at lunch but my Spanish is so poor I can barely describe it.
+- Another woman interrogates me about what is happening at lunch but my Spanish is so poor I can barely describe it.
 - What I don't know is that I'm being drugged so I'm not at all clear about what's going on, and when I think about the trumpet teacher I get giggly because of the triggered sexual arousal.
-- Later, in January 2025, someone posts me a picture of the woman who was organizing the Spanish feminists at this event as the face in the Sphinx.
-- I take this to mean the woman has gitano connections and was told to discredit me whatever way she could; and she could not refuse the request.
+- They must know, it must be very familiar to them.
+- These people are a well-oiled machine in business for decades. There's no way Spanish feminists don't know what the men are doing, in my view.
+- They were warned off helping me, and it's not at all clear why.
+- Later, in January 2025, someone posts a picture of the woman who was organizing the Spanish feminists on my Facebook.
+- The pic is her face in the Sphinx of Egypt.
+- I take this to mean the woman has gitano connections and was told to discredit me whatever way she could; and she could not refuse the request as per cultural obligation.
 
 ## Bali
 
