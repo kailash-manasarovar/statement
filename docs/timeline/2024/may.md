@@ -309,7 +309,8 @@ function googleTranslateElementInit() {
 
 ## My speech at Let Women Speak Madrid
 
-- On Saturday 11th May, I give a speech at the Let Women Speak event in Madrid:
+- On Saturday 11th May, I give a speech at the Let Women Speak event in Madrid.
+- I'm wearing my body cam.
 
 [![Let Women Speak in Madrid](../../content/images/let-women-speak-speech.jpg)](https://youtu.be/l9X6o11IwBc?t=1988)
 
