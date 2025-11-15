@@ -290,8 +290,8 @@ function googleTranslateElementInit() {
 - I always have the sense I'm being followed.
 - Words from random conversations I have during the day, even from work meetings, are posted on fake account profiles that like my X posts.
 - I am stalked online continuously.
-- They have full access to my new Spanish mobile, and there is something more going on which I cannot explain.
 - I have forgotten to block the camera on the phone and I see a significant message that describes something in the hotel room and/or something I'm wearing.
+- They have full access to my new Spanish mobile, and there is something more going on which I cannot explain.
 - On May 6th, I receive [an email notification that the conservatory has banned mobiles from the building](../../content/documents/emails/prohibiting-mobiles-conservatorio.pdf).
 
 ![The conservatory bans mobile phones](../../content/images/conservatory-bans-mobile-phones.jpg)
