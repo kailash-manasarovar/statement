@@ -338,7 +338,8 @@ function googleTranslateElementInit() {
 - They were warned off helping me, and it's not at all clear why.
 - Later, in January 2025, someone posts a picture of the woman who was organizing the Spanish feminists on my Facebook.
 - The pic is her face in the Sphinx of Egypt.
-- I take this to mean the woman has gitano connections and was told to discredit me whatever way she could; and she could not refuse the request as per cultural obligation.
+- I take this to mean the woman has gitano connections and was told to discredit me whatever way she could; and she could not refuse the request as per cultural patriarchal obligation.
+- Is feminism in Spain reserved for those who will *never* be targeted by misogynist terrorist gangs?
 
 ## Bali
 
