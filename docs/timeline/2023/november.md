@@ -474,7 +474,7 @@ function googleTranslateElementInit() {
 - Gabriel and I have an [extraordinarily weird meeting in January 2024](../2024/january.md#a-strange-meeting-with-gabriel-silva) in which he's looking at the screen in the same way my father looked at Domingo in [my kitchen in December 2014](../early-years/2014.md#trip-to-london).
 - I don't see Gabriel for a couple of months after that. 
 - He's stopped giving me work.
-- At some point, it's not entirely clear when, Gabriel starts complaining about my work to me personally and to other colleagues; he doesn't like my writing style, he puts me down in meetings, he tells colleagues my docs system is a *single point of failure*.
+- At some point, it's not entirely clear when, Gabriel starts complaining about my work to me personally and to other colleagues; he doesn't like my writing style, he puts me down in meetings, he tells colleagues that my docs system is a *single point of failure*.
 
 !!! tip "Single point of failure"
     - Like teachers and staff at the conservatory played back events, words, and emotions I had described in [my police statement in 2015](../early-years/2015.md#statement-to-the-metropolitan-police) that had probably been live-streamed to the town as I wrote it, so too do the pornocracy use events, words, and emotions from past professional (apparent, certainly intended) *humiliations* in a severely abusive and underhand manner.
