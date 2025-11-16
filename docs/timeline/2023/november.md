@@ -417,7 +417,7 @@ function googleTranslateElementInit() {
 ![Rainbows after Nadim](../../content/images/rainbows-after-nadim.png)
 
 - I post the picture of the rainbow from my window on Slack. I have the original somewhere.
-- It turns out Nadim's bullying is so insubordinate, they fired him.
+- It turns out Nadim's bullying is so insubordinate, they fire him.
 - We never see him again.
 - I end up believing that, due to my X content, and before he was fired, he spread muck around the business about me, including to my boss and managers I have to work with very closely, that I am a *transphobe*. 
 - This is probably incorrect but it was how I was able to explain my experiences at Polygon.
