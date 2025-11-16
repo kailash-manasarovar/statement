@@ -209,6 +209,10 @@ function googleTranslateElementInit() {
 
 [![Vulnerable? Really?](../../content/tweets/august-comms/vulnerable-really.png)](https://x.com/1FRGVN/status/1692507773794144611)
 
+- Here's a poll wondering if maybe I'm the winner really.
+
+[![Am I the winner, really?](../../content/tweets/august-comms/i-benefited-the-most.png)](https://x.com/1FRGVN/status/1692230260517994809)
+
 - Here's a tweet where I'm trying to understand what provoked such an experience at the conservatory. I considered the "director" to be Domingo, and the "lead" to be the trumpet teacher.
 
 [![What provoked such an attack](../../content/tweets/august-comms/trying-to-understand.png)](https://x.com/1FRGVN/status/1692445952164921529)
