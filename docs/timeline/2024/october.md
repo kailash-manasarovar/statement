@@ -182,6 +182,7 @@ function googleTranslateElementInit() {
 - Outside on the same bench is a man I know with a woman I recognize.
 - He is one of the British casual-work teachers that would come and work for LinguaLogic at their summer school and I met him in 2008 or so.
 - An unsavory person, something off about him reminded me of Matthew Diamond. He seems to seethe, visually and vocally.
+- Martin, maybe.
 - Anyway, there he was on the bench with this woman who reminded me a little bit of Marie Carmen from the TLC academy.
 - She's holding a clipboard and he's answering questions.
 - It sounds like he's detailing a crime or some nuisance, like he's making a complaint, and she's making notes.
