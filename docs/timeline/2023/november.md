@@ -450,7 +450,14 @@ function googleTranslateElementInit() {
 
 ### Gabriel Silva
 
-- Gabriel starts complaining about my work to me, and others; he doesn't like my writing style, he continually puts me down in meetings, he calls me a single point of failure with other team members.
+- Gabriel starts complaining about my work to me, and others; he doesn't like my writing style, he continually puts me down in meetings, he calls me and my work a *single point of failure* to other team members.
+
+!!! tip "Single point of failure"
+    - Like teachers and staff at the conservatory used events, words, and emotions I had described in my police statement in 2016, so too do the pornocracy use events, words, and emotions from past professional (apparent, certainly intended) *humiliations*.
+    - SPOF is a direct reference to a breakdown in communication with a colleague at Consensys who was extraordinarily aggressive towards me, unable to speak calmly when challenged, tantruming, even, and no-one supported me on that.
+    - *Fetch*, is another one.
+    - There's bound to be more, of course.
+
 - We have an [extraordinarily weird meeting in January 2024](../2024/january.md#a-strange-meeting-with-gabriel-silva) which I wonder about.
 - He attends the first team meeting with us a team leader from his car along the lakeside area where just recently middle-aged women were punched and attacked by trans activist.
 - I am really busy as team lead so Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not gone up, he would have effectively made me a candidate for redundancy very quickly.
