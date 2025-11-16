@@ -348,6 +348,10 @@ function googleTranslateElementInit() {
 
 ### Pre-Bali shenanigans
 
+#### Ben finds a Rust developer
+
+- wip
+
 #### Ajay, Alicia, and mushroom-man perform a military coup on my job
 
 - I think they must have started this in late February or early March.
