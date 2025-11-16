@@ -440,8 +440,8 @@ function googleTranslateElementInit() {
 
 - In January, Grace employs a new writer Hansraj Bodani.
 - We are four now: myself, Grace, Anthony, and Hans.
-- Is Hans yet another actor playing a key role in the porn conspiracy?
-- Given his utterly outrageous behavior towards me when I'm his manager, it seems likely.
+- Is Hans yet another fake-employee playing a key role in the porn conspiracy?
+- Given his utterly outrageous behavior towards me when I'm his manager, similar in nature to [Nadim's](#nadim-kobesi) relentless attacks, it does seem likely.
 
 ### Redundancies
 
