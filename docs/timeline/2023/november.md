@@ -438,7 +438,7 @@ function googleTranslateElementInit() {
 
 ### Hans Bodani
 
-- In January, Grace employs a new writer Hans Bodani.
+- In January, Grace employs a new writer Hansraj Bodani.
 - We are four now: myself, Grace, Anthony, and Hans.
 - Is Hans yet another actor playing a key role in the porn conspiracy?
 - Given his utterly outrageous behavior towards me when I'm his manager, it seems likely.
