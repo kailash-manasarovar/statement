@@ -438,8 +438,13 @@ function googleTranslateElementInit() {
 
 ### Hans Bodani
 
-- In January, Grace employs a new writer Hansraj Bodani.
+- In January 2024, Grace employs a new writer Hansraj Bodani.
 - At that time, we are four: myself, Grace, Anthony, and Hans.
+- Hans seems to be a normal person, at least at first.
+- We have a long chat about Hanuman and I explain how Hanuman has been saving my life since March 2023, but [probably even earlier](../2022/november.md#hanuman-enters-the-picture).
+- He tells me Hanuman is immortal.
+- I know already.
+- Hans' behavior towards me quickly turns ugly when I'm promoted to team lead after the [redundancies](#redundancies).
 - Is Hans yet another fake-employee playing a key role in the porn conspiracy?
 - Given his utterly outrageous behavior towards me when I'm his manager, similar in nature to [Nadim's](#nadim-kobesi) relentless attacks and 100% supported by Polygon management, it does seem likely.
 
