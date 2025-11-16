@@ -350,7 +350,11 @@ function googleTranslateElementInit() {
 
 #### Ben finds a Rust developer
 
-- wip
+- Benjamin the Polygon Zero manager is struggling to find a Rust developer.
+- He reports this at the management meetings.
+- Eventually, just before Bali, he finds one.
+- Is it Aziz?
+- Ben leaves the company soon after, hurriedly.
 
 #### Ajay, Alicia, and mushroom-man perform a military coup on my job
 
