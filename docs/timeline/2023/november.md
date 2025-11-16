@@ -469,73 +469,77 @@ function googleTranslateElementInit() {
 - I'm doing everything else.
 - One of my product areas is Gabriel Silva's product, CDK, and I'm expected to work with him closely.
 
-### Gabriel Silva
+### Gabriel Silva and a campaign of terror
 
-- Gabriel starts complaining about my work to me, and others; he doesn't like my writing style, he continually puts me down in meetings, he calls me and my work a *single point of failure* to other team members.
+- Gabriel and I have an [extraordinarily weird meeting in January 2024](../2024/january.md#a-strange-meeting-with-gabriel-silva) in which he's looking at the screen in the same way my father looked at Domingo in my kitchen in December 2014.
+- I don't see Gabriel for a couple of months after that. He's stopped giving me any work.
+- At some point, it's not entirely clear when, Gabriel starts complaining about my work to me and others; he doesn't like my writing style, he continually puts me down in meetings, he tells colleagues my system is a *single point of failure*.
 
 !!! tip "Single point of failure"
-    - Like teachers and staff at the conservatory used events, words, and emotions I had described in my police statement in 2016, so too do the pornocracy use events, words, and emotions from past professional (apparent, certainly intended) *humiliations*.
-    - SPOF is a direct reference to a breakdown in communication with a colleague at Consensys who was extraordinarily aggressive towards me, unable to speak calmly when challenged, tantruming, even, and no-one supported me on that.
-    - *Fetch*, is another one.
-    - Hackers flashed up names of men who had been extremely unpleasant towards me at work, one such person, Harsha, interrogating me continually on what I knew about my own PhD, triumphant when he convinced himself I was an idiot, other male colleagues glaring at me while I was at my desk or in meetings.
-    - It must have been an abomination for the pornocracy to have been expected to work alongside and treat as a human being the sort of erection-giving dirt they had been watching be destroyed on film for decades!
+    - Like teachers and staff at the conservatory used events, words, and emotions I had described in [my police statement in 2015](../early-years/2015.md#statement-to-the-metropolitan-police) that had probably been live-streamed to the town as I wrote it, so too do the pornocracy use events, words, and emotions from past professional (apparent, certainly intended) *humiliations*.
+    - SPOF is a direct reference to a breakdown in communication with a colleague at Consensys who was extraordinarily aggressive towards me, unable to speak calmly when challenged, tantruming even, and no-one supported me against him.
+    - [*Fetch*](../early-years/interim.md#fetchai), is another one.
+    - Hackers even flashed up names of men who had been extremely unpleasant towards me at work in 2018; one such person, Harsha, interrogated me continually on what I knew about my own PhD, triumphant when happily convinced I was an idiot, other male colleagues glaring at me while I was at my desk or in meetings.
+    - It must have been an abomination for the pornocracy to have been expected to work alongside a child rape-gang survivor, the porn from which they may have even masturbated to, never mind treat them as a fellow human being!
     - I became 100% suicidal on getting fired from the job with Adaptive and made an attempt on my life not long after.
-    - There's bound to be more of this, of course.
-    - It's a porn genre, don't you know.
+    - I wonder how many more exceptional women are going through this sort of hell in tech.
+    - It is, after all, a porn genre now.
 
-- We have an [extraordinarily weird meeting in January 2024](../2024/january.md#a-strange-meeting-with-gabriel-silva) which I wonder about.
-- He attends the first team meeting with us a team leader from his car along the Portland Oregon lakeside area where just recently middle-aged women trying to protect children from trans ideology were punched and attacked by trans activist. 
-- Was he there with his balaclava?
-- I am really busy as team lead so Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not gone up, he would have effectively made me a candidate for redundancy very quickly.
-- Interestingly, I am invited to the filmed management meeting that takes place regularly. Grace Torrellas was doing it prior to me. I find my presence a bit unnecessary to be honest. No-one cares about documentation. Why am I there? Is it so everyone who knows what's going on will know who I am? Will they be able to compare my real-life likeness to the sedated rape and *switcheroo* porn they've seen?
-- My team (who are not really tech writers, and don't know the job well - one is an exceptional copy writer, the other an academic-writing-style mathematician) starts to mutiny.
-- One of the team in particular, Hans Bodani, starts to shout at me in team meetings, gets angry with me, complains about things I did not say to my boss, who supports him, and then refuses to communicate with me at all.
-- Curiously, a new HR head starts around same time, James Dawes, who has worked with Hans previously.
-- I ask for help from my managers. 
-- I am ignored.
-- The other team member, Anthony Matlala, sides with Hans once he sees I'm getting no support from my managers.
-- At an [offsite in Bali in May, I am threatened with sexual violence from an "apparent" Rust engineer](../2024/may.md#the-pakistani-yorkshire-man) who has started that week. He has clearly been told to target me. Anthony is at the dinner table when this happens.
+- I am really busy as team lead so Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not been promoted, he would have effectively made me a candidate for redundancy very quickly.
+- Interestingly, I am invited to the filmed company-wide management meeting that takes place regularly. I find my presence a bit unnecessary to be honest. No-one cares about documentation. Why am I there? Is it so everyone who knows what's going on will know who I am?
+- Will they be able to compare my real-life likeness to the sedated rape and *switcheroo* porn they've seen or are about to see?
+- The rest I'll detail more carefully in the May 2024 section: [Bali](../2024/may.md#bali).
+- In March 2024, I'm targeted by Ajay's marketing team who perform a military-style coup on my job and responsibilities.
+- My team (who are not software technical writers, and don't know the job well - one is an exceptional copy writer, the other an academic-writing-style mathematician) start to mutiny.
+- Hans Bodani, in particular, shouts at and heckles me in team meetings, gets furious with me, lies to my manager David about things I didn't say, my manager supports him, and he then, post-Bali, he refuses to communicate with me at all.
+- I can only assume in retrospect he has been instructed to behave this way.
+- Hans' behavior is as insubordinate as Nadim's was, worse even, and it would get anyone sacked on the spot.
+- Curiously, a new HR head starts around the same time as the Bali offsite, James Dawes, who has worked with Hans previously.
+- He also knows who I am, and not in a loving way.
+- I ask for help from my managers with Hans. 
+- I am ignored completely.
+- They clearly want me to resign post-Bali. 
+- They're done with me after Bali, but what did they get from me in Bali?
+- The other team member, Anthony Matlala, sides with Hans once he sees I'm getting no support from my managers, but perhaps he also knows what's really going on.
+- At a dinner [in Bali, I am threatened with sexual violence from an "apparent" Rust engineer](../2024/may.md#the-pakistani-yorkshire-man) who has started that week. 
+- He looks exactly like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life), the well-known to criminal porn gangs [porn-fatwa star](../early-years/2003.md#porn-fatwa).
+- This man is set up to meet me by mushroom man, one of Ajay's team just mentioned, and has clearly been told to target me in this sinister manner.
+- Anthony is at the dinner table when this happens. Is Anthony there for a denial?
 
 ![Pakistani threats at dinner](../../content/images/pakistani-man-threatens-woman.png)
 
-- I tweet about it and tell Spanish HR the following morning.
+- I tweet about it that night and tell Miriam in Spanish HR the following morning.
 
 [![Sexual violence at dinner](../../content/images/sexual-violence-at-dinner.png)](https://x.com/1FRGVN/status/1790392972057747804)
 
+- I'm ignored.
 - At the Bali offsite and in Belgium at EthCC in July, Polygon employees come up to me continually to say, oh I'm sorry you're leaving.
-- Nothing is done. When I see Miriam the Spanish HR woman in Brussels, she asks me what my game is.
-- My team refuses to communicate with me at all. Meetings are sabotaged by Hans' angry outbursts. I am unable to do my job.
-- I believe the intention is that I leave due to the stress and unpleasantness.
+- When I see Miriam the Spanish HR woman in Brussels, she asks me what my game is.
+- Post-Bali, my team refuses to communicate with me at all. 
+- Meetings are so badly sabotaged by Hans' angry outbursts, I stop calling them.
+- I am unable to do my job.
+- They want me to leave but I'm stubborn.
 - I don't leave but I cannot do my job and no-one is helping me fix the outrageous situation of an insubordinate team.
-- I believe the team has been told to behave this way by managers.
-- An email comes from from Kellie-J Keen as leader of the [Party Of Women](https://www.partyofwomen.org/) in the UK in June asking if anyone would like to stand as a political candidate for general election.
+- A snap general election is called in the UK.
+- I receive an email from Kellie-J Keen as leader of the [Party Of Women](https://www.partyofwomen.org/) in the UK in June asking if anyone would like to stand as a political candidate for general election.
 - I take two weeks off and run a [political campaign in North London](../2024/june.md#election-campaign) and come second-to-last in Finchley & Golders Green.
 - I step down as technical writing team lead and Gabriel Silva steps in and immediately gives all the work to Anthony and Hans.
 - He leaves me with nothing to do, certainly no writing, but as he said before he doesn't like how I write so I'm unsurprised.
 - Gabriel doesn't know what he's talking about when it comes to technical writing. He is bullying me and trying to push me out.
 - So I'm left with nothing to do. Anything I do write, he asks Hans to do over. 
 - He picks on me in meetings and gives me impossible backend tasks which I complete successfully.
-- By September/October, I'm getting really upset about it and contact HR to start harassment procedures because it's clear to me I'm being shoved out due to my political views.
-- I'm unaware of the [porn fatwa](../early-years/2003.md#porn-fatwa) at that time which is the underlying purpose of terrorizing me.
-- A couple of weeks later they fire me, and the whole team, saying we're redundant, which is not true.
-- They formally accept that my dismissal is unlawful under Spanish employment law.
+- By September/October, I'm getting really upset about it and contact HR to start harassment procedures because I believe I'm being forced out due to my political views.
+- I'm unaware of the [porn fatwa](../early-years/2003.md#porn-fatwa) at that time which is the underlying machinery behind everything.
+- Furthermore, porn gangs intend to consume me completely and that would not look good if I was still working for Polygon, so I have to be got rid of.
+- In October, I make an online video about the spy-cams in my apartment, at which point, I believe, the porn gangs decide to murder me.
+- A couple of weeks later Polygon fires me, and the whole team, saying we're redundant, which is not true.
+- Anthony gets some work soon after with a close ally of the company.
+- On sacking me, Polygon formally accept that my dismissal is unlawful under Spanish employment law.
 - I get a Spanish lawyer to help me.
 - The lawyer appears to be colluding with the Spanish company, so I have no option but to fire them in December 2024.
 - There's a lot more to this story; we are steadily unraveling it all.
 - I felt that being targeted at my job for being "transphobic" on top of being targeted by criminal sedating rape-gangs of Dénia is really too much for one person to cope with without any support at all.
 - And yet, I'm still here.
-
-!!! danger "Could Nadim and Aziv, even Hans, have been yet more porn-gang spies?"
-    - I wonder a bit about Nadim and Aziv (or whatever his name was) now.
-    - It's easy to get paranoid when you're an international child rape-gang porn star of over 40 years and never knew it till very recently.
-    - I did think Nadim was an industrial spy, but I now believe it's even more twisted.
-    - Could Nadim have been set up to specifically get me the job, which made me a lot of money for future honey-trappers, and then cause me enough trouble to cause me to leave?
-    - Or was it just plain and simple brutishness and I was a supreme target for abuse.
-    - The implication is a conspiracy within the management team or amongst the founders at Polygon, specifically the Spanish ones.
-    - And then, when James Dawes (Hans Bodani's ex-colleague) joins, finds out that I'm a target and does his research in UK male porn-addict networks, he finds out about all the other times I was targeted with sexual harassment and decides to use triggering words from those times at the [HR meeting in October 2024 just before I'm sacked](../2024/october.md#bullying-at-polygon) which felt like severe mental/emotional violence to me.
-    - Was the Aziv sexual threat just more fun for them? Or were they hoping I would have violent sex with him.
-    - Remember, I had been primed by the [gypsy sex drug ring right before leaving and the drugs had been put in my toiletries too](../2024/april.md#drugged-in-the-street-by-denia-gypsies).
-    - I wonder what these two actors might tell the police if questioned.
 
 ### X with Polygon
 
