@@ -213,6 +213,7 @@ function googleTranslateElementInit() {
 
 [![What provoked such an attack](../../content/tweets/august-comms/trying-to-understand.png)](https://x.com/1FRGVN/status/1692445952164921529)
 
+- Starring in sedated-rape-porn internationally live-streamed from my apartments was not on my bingo card.
 - By November 2024, I had figured it all out.
 
 [![The sedated porn star, now and then, making a whole bunch of people millions, those people expecting her to be murdered and disappear forever, can't always work tho can it](../../content/tweets/august-comms/all-about-the-porn.png)](https://x.com/1FRGVN/status/1692445952164921529)
