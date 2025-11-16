@@ -457,15 +457,15 @@ function googleTranslateElementInit() {
 - I step up to take the roll of team lead, I guess this was expected.
 - I'm not entirely happy about this but it's clear neither Hans or Anthony are going to do it.
 - It's a lot of work.
-- Too much for one person, in fact, because the rest of the team don't do anything.
+- Too much for one person, in fact, because the rest of the team aren't pulling their weight.
 - There are three of us on the team now; myself, Hans Bodani, and Anthony Matlala.
-- The others do a little bit of work each week, and only if I ask them to, and nothing more.
 - Anthony neglects to tell me where he normally gets his tasks from until May or June time and I meet the zkEVM documentation team from the university in Barcelona.
+- Hans does about two hours work a week.
 - I'm doing 14 hours days trying to get the docs into a reasonable state.
-- I ask my manager David Schwartz for help with this problem early on. I'm ignored.
-- We work on particular product areas. 
+- I ask my manager David Schwartz for help with the problem early on. I'm ignored.
+- We are responsible for particular product areas. 
 - Hans is with the node product, PoS, managed by Sandeep.
-- Anthony is with zkEVM as he is, in fact, a mathematician and cryptographer.
+- Anthony is with zkEVM as he is a mathematician and cryptographer and he was hired solely to edit the university's zkEVM documentation into readable English.
 - I'm doing everything else.
 - One of my product areas is Gabriel Silva's product, CDK, and I'm expected to work with him closely.
 
