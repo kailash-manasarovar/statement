@@ -363,8 +363,8 @@ function googleTranslateElementInit() {
 - Nadim has only been with the firm for less than a month when I join.
 - Indeed, Grace is also new to the team. 
 - She's a personal friend of Jordi, one of the Polygon founders, and she has been tasked with building a new docs team.
-- She's already fired a bunch of writers and she will fire one more before Nadim start bullying me relentlessly.
-- Anthony has been brought in from a separate writing team to join the main team.
+- She's already fired a bunch of writers and she will fire one more before Nadim starts bullying me relentlessly.
+- Anthony is joining the main writing team from his role working alone for the zkEVM team. 
 
 !!! tip "Corruption in Spain again?"
     - As I started writing this police statement, I began to wonder about corrupt machinations behind my employment with Polygon as the company is very Spanish and I was earning heaps of money! A honey-trappers wet-dream indeed.
