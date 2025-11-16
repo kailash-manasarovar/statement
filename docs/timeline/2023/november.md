@@ -357,7 +357,7 @@ function googleTranslateElementInit() {
 - I really pissed someone off on Halloween, didn't I. 
 - Was it [my singing](october.md#halloween)? Probably.
 - I wonder if this would have normally got someone like me killed had I not been scheduled to start my very important role at Polygon the next day.
-- Regardless, I pull through ready to start.
+- Regardless of my right kidney feeling like it exploded, I pull through ready to start.
 - It's a great job and I'm very excited about my new role.
 - My boss is Grace Torrellas and the team has about three other members, including Anthony Matlala.
 - Nadim has only been with the firm for less than a month when I join.
@@ -462,7 +462,8 @@ function googleTranslateElementInit() {
     - It's a porn genre, don't you know.
 
 - We have an [extraordinarily weird meeting in January 2024](../2024/january.md#a-strange-meeting-with-gabriel-silva) which I wonder about.
-- He attends the first team meeting with us a team leader from his car along the lakeside area where just recently middle-aged women were punched and attacked by trans activist.
+- He attends the first team meeting with us a team leader from his car along the Portland Oregon lakeside area where just recently middle-aged women trying to protect children from trans ideology were punched and attacked by trans activist. 
+- Was he there with his balaclava?
 - I am really busy as team lead so Gabriel not giving me work doesn't impact on my 14 hour days at all. However, had I not gone up, he would have effectively made me a candidate for redundancy very quickly.
 - Interestingly, I am invited to the filmed management meeting that takes place regularly. Grace Torrellas was doing it prior to me. I find my presence a bit unnecessary to be honest. No-one cares about documentation. Why am I there? Is it so everyone who knows what's going on will know who I am? Will they be able to compare my real-life likeness to the sedated rape and *switcheroo* porn they've seen?
 - My team (who are not really tech writers, and don't know the job well - one is an exceptional copy writer, the other an academic-writing-style mathematician) starts to mutiny.
