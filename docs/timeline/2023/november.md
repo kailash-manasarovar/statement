@@ -439,7 +439,7 @@ function googleTranslateElementInit() {
 ### Hans Bodani
 
 - In January, Grace employs a new writer Hansraj Bodani.
-- We are four now: myself, Grace, Anthony, and Hans.
+- At that time, we are four: myself, Grace, Anthony, and Hans.
 - Is Hans yet another fake-employee playing a key role in the porn conspiracy?
 - Given his utterly outrageous behavior towards me when I'm his manager, similar in nature to [Nadim's](#nadim-kobesi) relentless attacks and 100% supported by Polygon management, it does seem likely.
 
