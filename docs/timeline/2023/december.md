@@ -375,6 +375,7 @@ function googleTranslateElementInit() {
 #### A mutual friend
 
 - While I'm working in the kitchen one afternoon, a man introduces himself, he has excellent English.
+- Rodrigo, I believe.
 - He asks me where I live, I tell him Denia.
 - He says did I know a [Maria who does Vipasana in Denia](../early-years/2015.md#vipasana-maria).
 - I say yes.

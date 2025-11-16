@@ -476,6 +476,7 @@ function googleTranslateElementInit() {
     - SPOF is a direct reference to a breakdown in communication with a colleague at Consensys who was extraordinarily aggressive towards me, unable to speak calmly when challenged, tantruming, even, and no-one supported me on that.
     - *Fetch*, is another one.
     - Hackers flashed up names of men who had been extremely unpleasant towards me at work, one such person, Harsha, interrogating me continually on what I knew about my own PhD, triumphant when he convinced himself I was an idiot, other male colleagues glaring at me while I was at my desk or in meetings.
+    - It must have been an abomination for the pornocracy to have been expected to work alongside and treat as a human being the sort of erection-giving dirt they had been watching be destroyed on film for decades!
     - I became 100% suicidal on getting fired from the job with Adaptive and made an attempt on my life not long after.
     - There's bound to be more of this, of course.
     - It's a porn genre, don't you know.
