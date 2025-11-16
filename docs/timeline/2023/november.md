@@ -456,9 +456,10 @@ function googleTranslateElementInit() {
     - Like teachers and staff at the conservatory used events, words, and emotions I had described in my police statement in 2016, so too do the pornocracy use events, words, and emotions from past professional (apparent, certainly intended) *humiliations*.
     - SPOF is a direct reference to a breakdown in communication with a colleague at Consensys who was extraordinarily aggressive towards me, unable to speak calmly when challenged, tantruming, even, and no-one supported me on that.
     - *Fetch*, is another one.
-    - Hackers flashed up names of men who had been extremely unpleasant towards me at work, one such person, Harsha, interrogating me continually on what I knew about my own PhD, triumphant when he convinced himself I was an idiot. I became 100% suicidal on getting fired from that job.
+    - Hackers flashed up names of men who had been extremely unpleasant towards me at work, one such person, Harsha, interrogating me continually on what I knew about my own PhD, triumphant when he convinced himself I was an idiot, other male colleagues glaring at me while I was at my desk or in meetings.
+    - I became 100% suicidal on getting fired from the job with Adaptive and made an attempt on my life not long after.
     - There's bound to be more of this, of course.
-    - It's a genre you know.
+    - It's a porn genre, don't you know.
 
 - We have an [extraordinarily weird meeting in January 2024](../2024/january.md#a-strange-meeting-with-gabriel-silva) which I wonder about.
 - He attends the first team meeting with us a team leader from his car along the lakeside area where just recently middle-aged women were punched and attacked by trans activist.
