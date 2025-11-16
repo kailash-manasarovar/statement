@@ -436,17 +436,29 @@ function googleTranslateElementInit() {
 - My boss Grace Torrellas starts to treat me with disdain and I am no longer given any work by Gabriel Silva who I am supposed to be working with closely. 
 - Was this all intentional though?
 
+### Hans Bodani
+
+- In January, Grace employs a new writer Hans Bodani.
+- We are four now: myself, Grace, Anthony, and Hans.
+- Is Hans yet another actor playing a key role in the porn conspiracy?
+
 ### Redundancies
 
 - In early 2024, 20% of the workforce is let go.
-- Our manager Grace is one of those who lose their jobs, and she's only been doing it a short while.
-- She disappears in seconds but seems to be OK about it.
-- I step up to take the roll of team lead. I'm not entirely happy about this but it's clear no-one else wants to do it.
-- It's a lot of work. Too much for one person, in fact.
+- Grace loses her job and she's only been doing it a short while.
+- She disappears in seconds but seems to be OK about it, which is a bit strange.
+- Did she also find out about the [porn fatwa](../early-years/2003.md#porn-fatwa) and want out quick, or was leaving at this time part of the deal for her?
+- I step up to take the roll of team lead, I guess this was expected.
+- I'm not entirely happy about this but it's clear neither Hans or Anthony are going to do it.
+- It's a lot of work.
+- Too much for one person, in fact, because the rest of the team don't do anything.
 - There are three of us on the team now; myself, Hans Bodani, and Anthony Matlala.
-- The other do a little bit of work each week, and only if I ask them to, and nothing more.
-- We work on particular product areas.
-- One of my product areas is Gabriel Silva's product.
+- The others do a little bit of work each week, and only if I ask them to, and nothing more.
+- I'm doing 14 hours days trying to get the docs into a reasonable state.
+- We work on particular product areas. 
+- Hans is with the node product, PoS, managed by Sandeep.
+- Anthony is with zkEVM as he is, in fact, a mathematician and cryptographer.
+- One of my product areas is Gabriel Silva's product, CDK, and I'm expected to work with him closely.
 
 ### Gabriel Silva
 
