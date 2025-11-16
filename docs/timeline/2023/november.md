@@ -537,7 +537,7 @@ function googleTranslateElementInit() {
 - Furthermore, porn gangs intend to consume me completely, and that would not look good if I was still working for Polygon, so I have to be got rid of.
 - In October, I make an online video about the spy-cams in my apartment, at which point, I believe, the porn gangs decide to murder me.
 - A couple of weeks later Polygon fires me, and the whole team, saying we're redundant, which is not true.
-- Once fired, the porn-gangs up the poison dosage and try to murder me in my apartment.
+- Once fired, the porn-gangs up the poison dosage and try to murder me in my apartment; they have come in and doused all my belongings in pesticides after bring down my security cams for a few days.
 - I do not die.
 - Anthony gets some work soon after with a close ally of the company.
 - Polygon formally accept that my dismissal is unlawful under Spanish employment law.
