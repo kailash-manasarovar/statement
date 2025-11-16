@@ -343,7 +343,7 @@ function googleTranslateElementInit() {
 
 ![John 3 8](../../content/images/John-3-8.PNG)
 
-- I'm asked to research and write about the zero-knowledge engine and ask questions where necessary.
+- I'm asked to research and write about the zkEVM department's zero-knowledge engine and ask questions where necessary.
 - I do a good job. 
 - I have an online chat about what I have prepared with Nadim.
 - As I'm interviewing, words fly by on my UI, *wow, you're an engineer*.
