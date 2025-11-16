@@ -406,7 +406,7 @@ function googleTranslateElementInit() {
 - Nadim and my relationship falters completely.
 - I demand mediation and Grace eventually calls us into a meeting where Nadim gaslights me and I nearly cry and Grace backs him.
 - He's so outrageously rude, it's so exaggerated, and he's getting away with it, I start to get suspicious and wonder if he's putting it on.
-- Nevertheless, I start to wonder about how much of an engineer and security expert Nadim really is.
+- I start to wonder about how much of an engineer and security expert Nadim really is.
 - At home on my personal laptop or phone, I look him up and discover he's a trained actor.
 - He has a bachelor's degree from the [National Institute of Dramatic Art](https://www.nida.edu.au/) in Sydney, graduated in 2010, and he has been in a number of films. 
 - The next day his aggression towards me becomes fever pitched.
