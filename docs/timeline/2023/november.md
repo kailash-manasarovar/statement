@@ -460,11 +460,13 @@ function googleTranslateElementInit() {
 - Too much for one person, in fact, because the rest of the team don't do anything.
 - There are three of us on the team now; myself, Hans Bodani, and Anthony Matlala.
 - The others do a little bit of work each week, and only if I ask them to, and nothing more.
+- Anthony neglects to tell me where he normally gets his tasks from until May or June time and I meet the zkEVM documentation team from the university in Barcelona.
 - I'm doing 14 hours days trying to get the docs into a reasonable state.
 - I ask my manager David Schwartz for help with this problem early on. I'm ignored.
 - We work on particular product areas. 
 - Hans is with the node product, PoS, managed by Sandeep.
 - Anthony is with zkEVM as he is, in fact, a mathematician and cryptographer.
+- I'm doing everything else.
 - One of my product areas is Gabriel Silva's product, CDK, and I'm expected to work with him closely.
 
 ### Gabriel Silva
