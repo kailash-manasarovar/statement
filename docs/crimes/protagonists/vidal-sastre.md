@@ -123,6 +123,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ![The deep-set man](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
 
+- I wonder if this man's name might be Viktor (something's telling me that could be it and I did meet him online of course), and his nickname Vigas due to the big legs.
 - Although I did think I saw the grown-up version of this person on the beach on [6th October 2024](../../timeline/2024/october.md#sunday-6th-october) and have a body cam image of that man who was very different looking, short and quite ugly. Perhaps they're related.
 - I believe this is also the man who [interviewed me for a tech job where I'd be looking at genitals all day](../../timeline/early-years/2016.md#march) in 2016; a man I saw online and in-person.
 - They are certainly the man depicted on the [book cover](../../index.md).

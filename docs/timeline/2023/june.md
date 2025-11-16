@@ -170,6 +170,7 @@ function googleTranslateElementInit() {
 
 ![TT on Carrer Furs](../../content/images/tt-on-carrer-furs.png)
 
+- It is the [fourth man, the monster trumpet teacher, possibly called Viktor](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man).
 - He sees me and takes a sharp, wheel-squealing turn into a no entry road. It's rather amusing.
 - It reminds me of the Truman Show and I feel like Truman: https://x.com/1FRGVN/status/1667925200292159490.
 
