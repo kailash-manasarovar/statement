@@ -366,24 +366,26 @@ function googleTranslateElementInit() {
 
 - Cross-company marketing teams are instructed to perform a military coup on my role.
 - Hans and Anthony are not included in the intense pressure these teams put me under while they attempt to cause me severe anxiety and demonstrate my incompetence.
-- Led by Ajay, Alicia, and mushroom man, I was informed their whole teams were coming in to overhaul the documentation, to fix it up.
-- Mushroom man's profile pic on Slack in him dressed up like a magic mushroom. I can't remember his name right now but will do so eventually, not that it matters.
-- He gives out thousands of little pictures of himself dressed like this at [EthCC](july.md#uk-and-belgium) in July.
+- Led by Ajay, Alicia, and mushroom man, in a meeting of about 15 people, I was informed their teams were coming in to overhaul the documentation, to fix it up, to help me.
+- Mushroom man's profile pic on Slack is him dressed up like a magic mushroom. I can't remember his name right now but will do so eventually, not that it matters.
+- He gives out thousands of little pictures of himself dressed like this at [EthCC](july.md#uk-and-belgium) in July. They were everywhere.
 - I thanked them initially because I had a million things to do and no time to do them.
-- I wrote a clear list on what I needed and how it should work.
-- They ignored my gratitude and request, and went off in a tangent doing whatever they felt like and blatantly taking over my role as docs team lead.
+- I wrote a clear list on what I needed and how the process must work.
+- They ignored my gratitude and everything I said, and went off in tangents doing whatever they felt like and blatantly taking over my role as docs team lead.
 - Mushroom man was particularly unpleasant, ignoring my requests as I was making them and doing something orthogonal.
 - It was, of course, all intentional.
 - It was pretty horrendous.
-- It began late February or early March, right after the redundancies.
-- I wonder who gave the original order for this. Was is David and Jordi? Or underlings of theirs?
-- Were they live-streaming my constant *humiliations* as part of the porn genre?
+- Porn gangs were watching of course, as well as international security services.
+- The coup began late February or early March, right after the redundancies.
+- I wonder who gave the original order for this. 
+- Was it David and Jordi; or their Spanish underlings?
+- Were the gangs live-streaming these constant *humiliations* as part of the porn genre?
 - Was this particular humiliation, like the [zkSync increasing terror](../2023/june.md#elon), set to build up while pressure at the conservatory was building up to [12th March 2024](march/1-12.md#the-piano-concert) in the same way that it had on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023).
 - Did Alicia, Ajay, and mushroom man know about the sedated spy-cam porn conspiracy, live-streaming from my apartment?
 - I bet Alicia didn't know.
-- It was horrible but frankly what I was dealing with online, and at home in my apartment, and at the conservatory took precedent, and it made the marketing team at Polygon's bullying capabilities look a little pip-squeaky, at least to me.
+- It was horrible but frankly what I was dealing with online, and at home in my apartment, and at the conservatory was far worse; it made the marketing team at Polygon's bullying capabilities look a little pip-squeaky, at least to me.
 - During the military coup-style approach they took on my job, mushroom man was speaking online one afternoon to Jaime about his lengthy experience with drugs and hallucinogens.
-- Was this so the porn gangs monitoring my every move would know he was a cool guy?
+- Was this so the porn gangs, or porn subscribers, monitoring my every move would know he was a *cool guy*?
 - At the time, I thought the constant vicious behavior from staff at Polygon was due to my women's rights activities online, but it wasn't really that at all, although it's possible that's how the big important men justified it to everyone else.
 - I wonder why no-one told them I had been operating undercover for Scotland Yard's OCG department since 2017.
 
