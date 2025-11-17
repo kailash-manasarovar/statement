@@ -572,7 +572,9 @@ function googleTranslateElementInit() {
 - Was this another Nadim, another Hans, tasked with threatening me.
 - Was he hired to specifically remind me of Jitendra Das who I'm beginning to realize I must have been starring in another porn special with (something I did not know or suspect till recently)?
 - Or was he just a simple willing dev with a porn-addiction, who happened to look exactly like Jitendra, and happened to have a darknet-porn-subscription, and was just delighted to be involved in the newest genre in town, *female-tech-colleague-sedated-switcheroo*? Seems unlikely doesn't it.
-- Anthony walks me to my hotel room door that evening; no-one did that before. I find it a bit weird.
+- Anthony walks me to my hotel room door that evening; no-one did that before. 
+- I find it a bit weird and tell him he doesn't have to do this (it's a five metre walk along a narrow path where everyone can see you anyway).
+- He insists.
 
 ### The security guy knows something
 
