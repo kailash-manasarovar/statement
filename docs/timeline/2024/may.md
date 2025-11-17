@@ -438,29 +438,34 @@ function googleTranslateElementInit() {
 
 ### Bullying at the conference
 
-- I notice constant "set up" events, just like in Denia, which mean someone is tracking mine, and other's, movements in order to create "chance" meetings.
-- I seem to have "bumping into" episodes every day; *meaningfully* set up events and situations, or literally bumping into people meaningfully.
-- The first one of these "chance meetings" is with Gabriel Silva on the first morning as I'm leaving my room.
+- It begins the first morning; constant "set up" events, exactly like in Dénia, which mean someone is tracking mine, and other's, movements in order to create apparently chance meetings.
+- I seem to have "bumping into" episodes every day; *meaningfully* set up events and situations, or literally bumping into people for some unknown purpose.
+- The first one of these *chance meetings* is with Gabriel Silva on the first morning as I'm leaving my room.
 - Did something happen the night before in my room?
+- He walks towards me with a wooden gate trying to not look surprised.
 - The second one is with Alicia.
-- Then the writer I worked with Jaime, Alicia again a few times, the Head of IT ... perhaps some of these were random. I hope so.
-- You can tell when they know it's a set up by the way they walk towards you: wooden.
+- Then the writer I worked with Jaime, Alicia again a few times, the Head of IT, ... perhaps some of these were random. 
+- I do hope so except I'm under constant surveillance so it's probably unlikely.
 - During the week, numerous people come up to me to ask me, "when am I leaving?", or "I heard you're leaving".
 
 ![Bali](../../content/images/bali.png)
 
-- It's clearly very easy to whip up bullies into a frenzy.
-- At the time, and due to the outrageous [bullying at work](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job), I assume it must be to do with [Nadim getting hold of my X account](../2023/november.md#nadim-kobesi) the November before and telling everyone I'm a TERF.
-- I wonder what they might have though if they knew they were supporting a mass-pedophile baby-rape porn network, amongst other things, in Denia.
-- I guess they were probably delighted about the sedated *switcheroo* porn; at least the men would have been. I can't imagine any women knew about it, but you never know.
-- Gabriel Silva, nothing to do with the writing team at that point, mentions how he is going to be sorting out the docs (my work) using other people who are not on the writing team. 
-- I complain to my manager, Paul O'Leary about it referencing an earlier complaint I had made to him.
-- It's yet another military coup; and that's *exactly* how I describe it to my manager Paul.
-- When I speak to Paul O'Leary about this in Bali, he sort of [groans with familiarity](october.md#madrid-and-paloma), in exactly the same way Spanish government official Paloma groans when I tell her about the porn-gangs and possible pedophilia going on at the conservatory of Denia.
-- I believe Polygon Spanish male founders and developers know exactly what is going on for me in Denia, and are involved in the conspiracy and they're aware that I'm due to end up in hardcore porn, robbed, blind, perhaps murdered, and they don't want me working for them while that's happening.
-- Something very sinister happened in Bali because I was [re-programmed into feeling extraordinarily sexually aroused by the gypsies](april.md#drugged-in-the-street-by-denia-gypsies) just before traveling to Bali.
-- I remain high and euphoric and extraordinarily sexually aroused throughout May, and especially in Bali.
-- Is my hotel room set up with spy-cams?
+- It's clearly very easy to whip the crowd up into a bullying frenzy.
+- At the time, and due to the outrageous [bullying at work](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job), I assume it must be to do with [Nadim getting hold of my X account](../2023/november.md#nadim-kobesi) the November before and telling everyone I'm a transphobe.
+- I wonder if things would have been the same if they knew they were supporting a mass-pedophile baby-rape murderous porn network, amongst other things, in Dénia; possibly the best-loved criminal porn studio in the world, and likely connected to the Madeline McCann kidnap and consequent investigation fumble.
+- I guess the men were delighted about the [sedated *switcheroo* porn](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man); at least the men would have been.
+- I can't imagine any women knew about it, but you never know.
+- Gabriel Silva, nothing to do with the writing team at that point, announces how he is going to be sorting out the docs (my work) using other people who are not on the writing team; another military coup.
+- I complain to my manager, Paul O'Leary, referencing an earlier complaint I had made to him about military-coup style bullying operations in the company.
+- When I speak to Paul O'Leary about this in Bali, he sort of [groans with familiarity](october.md#madrid-and-paloma), in exactly the same way a Spanish government official groans when I tell her about the porn-gang activity and pedophilia going on at the conservatory of Dénia.
+- I believe Polygon Spanish male founders and developers know exactly what is going on for me in Dénia, and are 100% involved in the conspiracy, and have got me to Bali for one sick purpose only.
+- They must be aware that someone like me ends up in hardcore porn, robbed, blind, perhaps murdered. 
+- They certainly don't want me working for them while that's happening so they're making sure I will leave.
+- It's clear to me that something very sinister happened to me in Bali without my knowledge because I was [re-programmed into feeling extraordinarily sexually aroused by the gypsies](april.md#drugged-in-the-street-by-denia-gypsies) just before traveling to Bali.
+- Extraordinarily sinister things happen with my conscious awareness too; such as the [Pakistani Yorkshire-man](#the-pakistani-yorkshire-man) who I believe intentionally looks like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life).
+- I remain high and euphoric and extraordinarily sexually aroused during the trip.
+- In the morning, I'm unusually sexually aroused and masturbate in the bathroom, often in a curious way (see the next section).
+- Has my hotel room been set up with spy-cams and networked up with the help of IT support?
 
 ### My shampoo goes missing from my room
 
