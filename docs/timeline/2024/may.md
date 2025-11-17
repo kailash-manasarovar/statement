@@ -614,7 +614,9 @@ function googleTranslateElementInit() {
 - Anyway, shortly after Bali, Alicia leaves the firm suddenly. 
 - In her leaving note, she mentions "the worst thing in the world happened" at Bali and how Sandeep Naiwal had really helped her out by getting her a new job.
 - I wonder what "the worst thing in the world" was and if it was sexual in content.
+- God help us I hope it wasn't something to do with the [threatening Pakistani Yorkshireman that I reported to Miriam already](#the-pakistani-yorkshire-man).
 - I have reached out to Alicia in case what happened to her at Bali is relevant to this story and to the global tech-bro porn conspiracy overall.
+- She does not respond.
 
 ### Anthony
 
