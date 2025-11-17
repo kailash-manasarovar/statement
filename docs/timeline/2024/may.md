@@ -376,11 +376,11 @@ function googleTranslateElementInit() {
 - It was, of course, all intentional.
 - It was pretty horrendous.
 - Porn gangs were watching of course, as well as international security services.
-- The coup began late February or early March, right after the redundancies.
+- The coup began in April, after the redundancies, and work was done on my system [at the end of April](https://github.com/Souptacular/hudsonjameson.com/commits?author=Souptacular&since=2025-04-24&until=2025-04-30) on the run up to Bali.
 - I wonder who gave the original order for this. 
 - Was it David and Jordi; or their Spanish underlings?
 - Were the gangs live-streaming these constant *humiliations* as part of the porn genre?
-- Was this particular humiliation, like the [zkSync increasing terror](../2023/june.md#elon), set to build up while pressure at the conservatory was building up to [12th March 2024](march/1-12.md#the-piano-concert) in the same way that it had on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023).
+- Was this particular humiliation - like the [zkSync increasing terror](../2023/june.md#elon) set to build up while pressure on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023) - intended in the same way to build up pressure on the run up to [Bali](#bali)?
 - Did Alicia, Ajay, and mushroom man know about the sedated spy-cam porn conspiracy, live-streaming from my apartment?
 - I bet Alicia didn't know.
 - It was horrible but frankly what I was dealing with online, and at home in my apartment, and at the conservatory was far worse; it made the marketing team at Polygon's bullying capabilities look a little pip-squeaky, at least to me.
