@@ -417,11 +417,12 @@ function googleTranslateElementInit() {
 - I talk about this [in another section](#telegramsignal) on this page.
 - The film is [The Sound of Freedom](https://en.wikipedia.org/wiki/Sound_of_Freedom_(film)); a true story about child sex trafficking.
 - A still from the film had come up as a result on `@jctot19 x` searches around December 2023.
+- This is a photo from the plane journey itself.
 
 ![Bali flight film](../../content/images/bali-flight/film-about-child-trafficking.jpg)
 
-- The picture had peaked my curiosity so much, I looked it up and discovered it was a film about child sex trafficking.
-- I watch it.
+- The picture I had seen on the `@jctot19` searches had peaked my curiosity so much, I looked it up and discovered it was a film about child sex trafficking.
+- I watch the film.
 - I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
 - I explain I'm watching the film I believe he posted on my Google search results for me to see.
 - We find out at the end of the film that the real life protagonist, Tim Ballard, is married to a woman called Katherine.
