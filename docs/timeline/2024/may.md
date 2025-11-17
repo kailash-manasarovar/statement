@@ -429,11 +429,12 @@ function googleTranslateElementInit() {
 - Is the trumpet teacher I am in love with working for good and with me against the baby rapists after all?
 - On arrival at Bali I meet some colleagues. 
 - Everyone seems happy to see me, chatty and friendly.
-- Expectant, maybe.
+- Expectant, maybe, cos the good vibes do not last.
 
 ### Arriving at the hotel
 
-- My hotel room is next to John Michael from IT support. I reported my concerns about hacking to him previously.
+- My hotel room is next to John Michael from IT support.
+- I reported my concerns about hacking to him previously.
 
 ### Bullying at the conference
 
