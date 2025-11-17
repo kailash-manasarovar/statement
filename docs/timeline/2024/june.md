@@ -48,6 +48,10 @@ function googleTranslateElementInit() {
     - With regards to my situation in Dénia, running for election was a game changer.
     - For anyone interested, here is my [election leaflet](../../content/documents/Katharine%20leaflet.pdf) which went out to 80,000 London constituents, twice, via Royal Mail.
 
+### Male aggression begins
+
+- Constant.
+
 ### Social media and Paul
 
 - I create a Facebook account for my election campaign.
