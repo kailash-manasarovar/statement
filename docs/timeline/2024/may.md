@@ -421,7 +421,8 @@ function googleTranslateElementInit() {
 
 ![Bali flight film](../../content/images/bali-flight/film-about-child-trafficking.jpg)
 
-- The picture I had seen on the `@jctot19` searches had peaked my curiosity so much, I looked it up and discovered it was a film about child sex trafficking.
+- It's curious it was released on the same day I started at Polygon; the day I was recovering from my right kidney exploded after [poisoning at Halloween](../2023/october.md#halloween).
+- The picture I had seen on the `@jctot19` searches at that time had peaked my curiosity so much, I looked it up and discovered it was a film about child sex trafficking.
 - I watch the film.
 - I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
 - I explain I'm watching the film I believe he posted on my Google search results for me to see.
