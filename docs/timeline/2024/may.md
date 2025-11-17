@@ -579,7 +579,7 @@ function googleTranslateElementInit() {
 - Nobody introduces him and he never speaks.
 - He can't look me in the eye.
 - He reminds me of the busker in the tunnel at the [end of April](april.md#drugged-in-the-street-by-denia-gypsies) just after the gypsies drugged me.
-- Is he the guy they brought over to Bali to do the sedating?
+- Is he the guy they brought over to Bali to do the sedating and/or set up the spy-cam tech?
 
 ### Telling people about the forgivenet
 
