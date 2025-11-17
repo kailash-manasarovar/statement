@@ -402,10 +402,10 @@ function googleTranslateElementInit() {
 
 ### Flight to Bali
 
-- I fly Turkish airways from Madrid via Istanbul.
-- Previous DM from "Elon's brother" ...
-- On the flight, I write an enormous text.
-- I take some pics and send them.
+- I fly Turkish airways to Bali from Madrid via Istanbul.
+- I am [utterly high and out of my mind](april.md#drugged-in-the-street-by-denia-gypsies) from constant porn-gang interventions.
+- On the flight, I write an enormous text to [someone I inexplicably believe is the trumpet teacher](#telegramsignal).
+- I take some pics and send them to this person as part of the chat.
 
 ![Bali flight 1](../../content/images/bali-flight/1.jpg)
 ![Bali flight 2](../../content/images/bali-flight/2.jpg)
@@ -414,14 +414,23 @@ function googleTranslateElementInit() {
 
 - I'm also amazed they're showing a film which was posted on the `@jctot19` Google search results around Christmas. 
 - It's about child sex trafficking.
-- Curiously, the film I watch on the plane is [The Sound of Freedom](https://en.wikipedia.org/wiki/Sound_of_Freedom_(film)); a true story about child sex trafficking, and more curiously the film's picture came up as a result on my `@jctot19 x` searches around December 2023.
-- I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
-- I find the whole thing very significant, obviously, and I am 100% convinced the person I'm talking to on Signal is the trumpet teacher.
-- I take a pic and send it.
+- I talk about this [in another section](#telegramsignal) on this page.
+- The film is [The Sound of Freedom](https://en.wikipedia.org/wiki/Sound_of_Freedom_(film)); a true story about child sex trafficking.
+- A still from the film had come up as a result on `@jctot19 x` searches around December 2023.
 
 ![Bali flight film](../../content/images/bali-flight/film-about-child-trafficking.jpg)
 
-- On arrival I meet some colleagues. Everyone seems happy to see me, chatty and friendly.
+- The picture had peaked my curiosity so much, I looked it up and discovered it was a film about child sex trafficking.
+- I watch it.
+- I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
+- I explain I'm watching the film I believe he posted on my Google search results for me to see.
+- We find out at the end of the film that the real life protagonist, Tim Ballard, is married to a woman called Katherine.
+- I find the whole thing extraordinarily significant.
+- Is someone checking in to make sure I know I'm not alone?
+- Is the trumpet teacher I am in love with working for good and against the baby rapists after all?
+- On arrival at Bali I meet some colleagues. 
+- Everyone seems happy to see me, chatty and friendly.
+- Expectant, maybe.
 
 ### Arriving at the hotel
 
