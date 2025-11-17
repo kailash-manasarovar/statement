@@ -539,11 +539,12 @@ function googleTranslateElementInit() {
 - He grins at me constantly.
 - Everywhere I go, he pops up.
 - He pops up on the day tour (no-one else wants to talk to me apart from him for some reason), and he pops up at dinner a few days later.
-- Anthony and I are at dinner with another colleague from (who I think is a good guy - and his team too) John's team.
+- Anthony and I are at dinner with another colleague Lim from (who I think is a good guy - and his team too) John's team.
 - Aziz joins us and sits in the free seat at the table directly opposite me.
 - Anthony expresses surprise about his name. *I've never heard anyone called that,* he says.
-- When the other man leaves, Azif starts to make sexually violent and threatening movements with his serviette.
-- It look like he is pretending to throttle someone, then himself, then someone else, then he flicks the napkin out, then he slaps it down hard on the dinner table, he rolls it up, twists it up taut, wraps it around his neck, wraps it around something in front, slaps it down, all the while staring at me, then he repeats these movements again and again.
+- Aziz repeatedly takes the piss out of Lim's name, who then leaves.
+- Azif then starts to make sexually violent and threatening movements with his serviette.
+- He rolls it up taut, then pretends to throttle someone, then wraps it around his own neck, then someone else, then he flicks the napkin out and slaps it down hard on the dinner table, he rolls it up, twists it up taut, wraps it around his neck, wraps it around something in front, slaps it down, all the while staring at me, then he repeats these movements again and again.
 
 ![Pakistani threats at dinner](../../content/images/pakistani-man-threatens-woman.png)
 
@@ -565,9 +566,13 @@ function googleTranslateElementInit() {
 - He starts talking about his PornHub account and how he delightedly let his girlfriend find it open on his laptop.
 - We start talking about porn and I'm very clear about what I think.
 - I'm angry, actually. His behavior was appalling.
+- Anthony talks about a time at an old job when they asked him to clean out a colleagues hard drive and it was riddled with porn. He explained the man had sat in his office with the blinds drawn day after day.
+- Anthony is a (apparently devote) Christian. I tell him they ask him to do it to upset him for this reason.
+- He says; *is it?*, as if he knows already and is annoyed I said it.
 - Was this another Nadim, another Hans, tasked with threatening me.
 - Was he hired to specifically remind me of Jitendra Das who I'm beginning to realize I must have been starring in another porn special with (something I did not know or suspect till recently)?
 - Or was he just a simple willing dev with a porn-addiction, who happened to look exactly like Jitendra, and happened to have a darknet-porn-subscription, and was just delighted to be involved in the newest genre in town, *female-tech-colleague-sedated-switcheroo*? Seems unlikely doesn't it.
+- Anthony walks me to my hotel room door that evening; no-one did that before. I find it a bit weird.
 
 ### The security guy knows something
 
@@ -628,6 +633,31 @@ function googleTranslateElementInit() {
 - I weep at the table.
 - Anthony walks me to my bedroom door that night.
 
+### Hans
+
+- I have dinner with Hans one night.
+- I try very hard to be kind and friendly with him.
+- It's obvious he hates me and I will not be able to win him over.
+- *Oh they're really gonna go for you*, he says, when we talk about Hinduism versus Islam and other things.
+- I wonder who the *they* are that he is referring to.
+- Every time I'm going back to my room at night, Hans is waiting outside the approach to the rooms with one or another of the Chinese men.
+- I say hi every time I see him there, late, talking.
+- I remark, *do you stay here all night Hans?*
+- I'm just wondering if he was asked to report on my movements as I had started to turn my phone off regularly.
+
+### My talk
+
+- I've been asked to give a talk at the conference and I have prepared one.
+- They do not schedule my talk in and I ask about it.
+- At the last minute, I'm told I have a room and it's on the schedule on the last day.
+- Hans, Anthony, and one other external man come.
+- Because of the external guy, I go ahead or I wouldn't have bothered.
+- Hans starts heckling me immediately, everything I say he has some comment or put down.
+- He knows much more than me about everything.
+- The external guy looks amazed.
+- I finish the talk.
+- I say there is no point in doing the talk but I'm honestly just exhausted by Hans' behavior.
+
 ### Chess with the Head of IT
 
 - I play chess at dinner with the Head of IT.
@@ -643,15 +673,6 @@ function googleTranslateElementInit() {
 - The founder Sandeep is annoyed that I don't know who he is, and I met him only the day before.
 - The following day I do not recognize him again.
 - Everyone talks to me like I'm the antichrist, and any tiny defect seems to be proof of it, this included.
-
-### Hans
-
-- Dinner with Hans.
-- He hates me.
-- Oh they're really gonna go for you, he says, when we talk about Hinduism and other things.
-- Keeping look out.
-- Hans is *always* hanging out on the path towards the rooms with one of two other men, Chinese men.
-- I see him every time I'm walking back to my room at night.
 
 ### Team mutiny
 
