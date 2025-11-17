@@ -487,12 +487,13 @@ function googleTranslateElementInit() {
 - I masturbate in the bathroom.
 - Sometimes, I do yoga at the same time.
 - I have no idea why I would do this; I have never done anything like this before or since in my whole life.
-- I normally don't masturbate. As I may have mentioned, I have been celibate since 2010 and that included masturbation until [April 2023](../2023/april.md#hanuman-jayanti) when they started drugging me with aphrodisiacs somehow.
-- Are they also able to trigger the yoga by setting up a [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) memory trigger with the [Pakistani Yorkshireman that I'm about to meet](#the-pakistani-yorkshire-man)?
+- I normally don't masturbate. As I may have mentioned, I have been celibate since 2010 and that included masturbation until [April 2023](../2023/april.md#hanuman-jayanti) when the porn-gangs of Dénia started drugging me with aphrodisiacs.
+- Did they manipulate the yoga by setting up a [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) memory trigger with the [Pakistani Yorkshireman that I'm about to meet](#the-pakistani-yorkshire-man)?
+- Or was I making subconscious connections between things that were happening at the conference and in a sedated state?
 - It's very strange.
 - If I'm in yet more porn, filmed in my hotel bathroom at the Polygon Bali conference, you'll see me masturbating in tree pose.
 - Bit embarrassing, I hope you find it.
-- I bet there's more isn't there.
+- I bet there's more isn't there. Much more.
 
 ### The Pakistani Yorkshire-man
 
