@@ -571,6 +571,7 @@ function googleTranslateElementInit() {
 - He seems like he knows something about what's going on and he's upset.
 - I have had long chats with Gordon before and this is not like him at all.
 - I know he has a young daughter.
+- Is he trying to warn me about something?
 
 ### Spanish engineer I recognize
 
