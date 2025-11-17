@@ -365,7 +365,7 @@ function googleTranslateElementInit() {
 #### Ajay, Alicia, and mushroom-man perform a military coup on my job
 
 - Cross-company marketing teams are instructed to perform a military coup on my role.
-- Hans and Anthony are not included in the intense pressure these teams put me under while they attempted to demonstrate my incompetence.
+- Hans and Anthony are not included in the intense pressure these teams put me under while they attempt to cause me severe anxiety and demonstrate my incompetence.
 - Led by Aja, Alicia, and mushroom man, I was informed their whole teams were coming in to overhaul the documentation, to fix it up.
 - I thanked them initially because I had a million things to do and no time to do them.
 - I wrote a clear list on what I needed and how it should work.
