@@ -542,7 +542,8 @@ function googleTranslateElementInit() {
 
 [![Sexual violence threats at dinner](../../content/images/sexual-violence-at-dinner.png)](https://x.com/1FRGVN/status/1790392972057747804)
 
-- Miriam from Spanish HR never mentions it again.
+- I explain to Miriam that she needs to know there's a potentially sexually violent man in our midst in case anything happens to anyone.
+- Miriam from Spanish HR says nothing to me and she never mentions it again.
 - On the way back to our rooms that night, Anthony needs to be reminded about what this man did at the table.
 - *Did you not see him make those sexually violent threats to me Anthony*, I said. *He was menacing.* 
 - Anthony says nothing so I explain by demonstrating it to him.
