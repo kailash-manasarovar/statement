@@ -387,6 +387,7 @@ function googleTranslateElementInit() {
 - Did Alicia, Ajay, and mushroom man know about the sedated spy-cam porn conspiracy, live-streaming from my apartment?
 - I bet Alicia didn't know.
 - It was horrible but frankly what I was dealing with online, and at home in my apartment, and at the conservatory was far worse; it made the marketing team at Polygon's bullying capabilities look a little pip-squeaky, at least to me.
+- I ask for help from my managers. I'm ignored.
 - During the military coup-style approach they took on my job, mushroom man was speaking online one afternoon to Jaime about his lengthy experience with drugs and hallucinogens.
 - Was this so the porn gangs, or porn subscribers, monitoring my every move would know he was a *cool guy*?
 - At the time, I thought the constant vicious behavior from staff at Polygon was due to my women's rights activities online, but it wasn't really that at all, although it's possible that's how the big important men justified it to everyone else.
