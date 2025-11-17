@@ -408,8 +408,6 @@ function googleTranslateElementInit() {
 - I take some pics and send them to this person as part of the chat.
 
 ![Bali flight 1](../../content/images/bali-flight/1.jpg)
-![Bali flight 2](../../content/images/bali-flight/2.jpg)
-![Bali flight 3](../../content/images/bali-flight/3.jpg)
 ![Bali flight 4](../../content/images/bali-flight/4.jpg)
 
 - I'm also amazed they're showing a film which was posted on the `@jctot19` Google search results around Christmas. 
