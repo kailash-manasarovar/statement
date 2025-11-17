@@ -562,15 +562,15 @@ function googleTranslateElementInit() {
 
 ### The security guy knows something
 
-- Gordon Bishop is the man on the security team who helped me with my [hacked work laptop](march/1-12.md#reporting-hacking-to-polygon-labs).
-- He meets me before a dinner one evening.
+- Gordon Bishop from the security team helped me with my [hacked work laptop](march/1-12.md#reporting-hacking-to-polygon-labs) in March.
+- He meets me before a dinner on the beach one evening.
 - He is nervous.
 - He wants to tell me something but he can't.
-- He talks at me, very fast, a lot, and doesn't let me speak.
+- He talks at me, very fast, a lot, and he doesn't let me speak.
 - He's concerned.
 - He knows something about what's going on.
-- I have had long chats with Gordon before and this is not like him.
-- I know he's a family man.
+- I have had long chats with Gordon before and this is not like him at all.
+- He has a daughter.
 
 ### Spanish engineer I recognize
 
