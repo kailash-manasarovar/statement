@@ -374,13 +374,14 @@ function googleTranslateElementInit() {
 - It was pretty horrendous.
 - It began late February or early March, right after the redundancies.
 - I wonder who gave the original order for this. Was is David and Jordi? Or underlings of theirs?
-- Was this, like the zkSync increasing terror, set to build up while pressure at the conservatory was building up to [12th March 2024](march/1-12.md#the-piano-concert) in the same way that it had on the [12th June 2023](../2023/june.md#monday-12th-june-2023).
-- Did Alicia, Ajay, and mushroom man know about the sedated spy-cam porn conspiracy live-streaming from my apartment?
+- Were they live-streaming my constant *humiliations* as part of the porn genre?
+- Was this particular humiliation, like the [zkSync increasing terror](../2023/june.md#elon), set to build up while pressure at the conservatory was building up to [12th March 2024](march/1-12.md#the-piano-concert) in the same way that it had on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023).
+- Did Alicia, Ajay, and mushroom man know about the sedated spy-cam porn conspiracy, live-streaming from my apartment?
 - I bet Alicia didn't know.
-- It was horrible but frankly what I was dealing with online, and at home in my apartment, and at the conservatory took precedent and it made them look a little pip-squeaky.
-- During the military coup-style approach they took on my job, mushroom man was speaking online to Jaime about his experience with drugs and hallucinogens.
-- Was this so the porn gangs would know he was a cool guy?
-- At the time, I thought the constant vicious behavior at Polygon was due to my women's rights activism online, but it wasn't really that at all, although it's possible that's how the big important men justified it to everyone else.
+- It was horrible but frankly what I was dealing with online, and at home in my apartment, and at the conservatory took precedent, and it made the marketing team at Polygon's bullying capabilities look a little pip-squeaky, at least to me.
+- During the military coup-style approach they took on my job, mushroom man was speaking online one afternoon to Jaime about his lengthy experience with drugs and hallucinogens.
+- Was this so the porn gangs monitoring my every move would know he was a cool guy?
+- At the time, I thought the constant vicious behavior from staff at Polygon was due to my women's rights activities online, but it wasn't really that at all, although it's possible that's how the big important men justified it to everyone else.
 
 #### David Schwartz steps down
 
