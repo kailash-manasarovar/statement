@@ -368,15 +368,18 @@ function googleTranslateElementInit() {
 - Hans and Anthony are not included in the intense pressure these teams put me under while they attempt to cause me severe anxiety and demonstrate my incompetence.
 - Led by Ajay, Alicia, and mushroom man, in a meeting of about 15 people, I was informed their teams were coming in to overhaul the documentation, to fix it up, to help me.
 - Mushroom man's profile pic on Slack is him dressed up like a magic mushroom. He's Hudson Jameson but let's keep calling him mushroom man.
-- He gives out thousands of little pictures of himself dressed like as a magic mushroom at [EthCC](july.md#uk-and-belgium) in July. They were everywhere.
-- I thanked them initially because I had a million things to do and no time to do them.
+
+![Mushroom man](../../content/images/mushroom-man.jpg)
+
+- He gives out thousands of little pictures of himself dressed like a magic mushroom at [EthCC](july.md#uk-and-belgium) in July. They were everywhere.
+- I thanked the teams initially because I had a million things to do and no time to do them.
 - I wrote a clear list on what I needed and how the process must work.
 - They ignored my gratitude and everything I said, and went off in tangents doing whatever they felt like and blatantly taking over my role as docs team lead.
 - Mushroom man was particularly unpleasant, ignoring my requests as I was making them and doing something orthogonal.
 - It was, of course, all intentional.
 - It was pretty horrendous.
 - Porn gangs were watching of course, as well as international security services.
-- The coup began in April, after the redundancies, and work was done on my system [at the end of April](https://github.com/Souptacular/hudsonjameson.com/commits?author=Souptacular&since=2025-04-24&until=2025-04-30) on the run up to Bali.
+- The coup began in late March/April, after the redundancies, and work was done on my system [at the end of April](https://github.com/Souptacular/hudsonjameson.com/commits?author=Souptacular&since=2025-04-24&until=2025-04-30) on the run up to Bali.
 - I wonder who gave the original order for this. 
 - Was it David and Jordi; or their Spanish underlings?
 - Were the gangs live-streaming these constant *humiliations* as part of the porn genre?
