@@ -612,6 +612,8 @@ function googleTranslateElementInit() {
 
 ### Alicia
 
+- One of the vilest things the porn-gang do is to set women and against each other.
+- It's essential they do this so we don't get together, compare notes, and find out about the evil.
 - Alicia Katz worked at Polygon and was part of the bullying I described to my manager (the CTO at the time that took over from David Schwartz) as a military coup operation.
 - At Bali, I was set up to "bump" into her a couple of times. 
 - I assume engineers at Polygon had the same sort of pinpoint location access to my physical whereabouts as did teachers and staff at the conservatory of Denia, and local townsfolk and porn-gang members.
