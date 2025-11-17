@@ -327,3 +327,4 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 - It's obvious to me what's going on, apart from the *switcheroo* reference at this stage.
 - I start thinking about what I'm going to do.
 - It's hard to get clear about what to do about anything else while I'm receiving picture-after-picture of targeted women, and trying to get the handwritten letters out to as many people as I can.
+- After understand the reference *switcheroo* in [September 2025](../2025/september.md#thunderbolt-clarity), I wonder if Gabriel is aware that for something so vile to work, the target has to be blinded, slowly over time so that she doesn't notice her vision becoming so blurry that she can't make people out properly.
