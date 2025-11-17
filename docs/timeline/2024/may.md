@@ -445,7 +445,7 @@ function googleTranslateElementInit() {
 - I seem to have "bumping into" episodes every day; *meaningfully* set up events and situations, or literally bumping into people for some unknown purpose.
 - The first one of these *chance meetings* is with Gabriel Silva on the first morning as I'm leaving my room.
 - Did something happen the night before in my room?
-- He walks towards me with a wooden gait, trying to not look surprised.
+- He walks towards me with a wooden gait, trying to look unsurprised.
 - The second one is with Alicia.
 - Then the writer I worked with Jaime, Alicia again a few times, the Head of IT, ... perhaps some of these were random. 
 - I do hope so except I'm under constant surveillance so it's probably unlikely.
