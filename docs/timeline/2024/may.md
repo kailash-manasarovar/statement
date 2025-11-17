@@ -498,58 +498,63 @@ function googleTranslateElementInit() {
 ### The Pakistani Yorkshire-man
 
 - On the first morning of sessions, I'm stressed and anxious.
-- Colleagues have been making sly comments to me.
+- Colleagues have been making sly comments to me; on the way to breakfast, at breakfast, before the first session...
 - Maybe something happened to me the night before in my hotel room too. It's not clear. 
-- I'm overly anxious and there's not really a good reason for the level of stress I'm feeling.
-- At the end of the morning session in the main hall, someone comes over to where I'm sitting and about to leave to talk to me.
+- I'm overly anxious and there's not really a good reason for the elevated level of stress I'm feeling.
+- At the end of the morning session in the main hall, a colleague comes over to talk to me.
 
 ![Main ballroom](../../content/images/grand-ballroom.jpg)
 
-- It's Hudson Jameson, the mushroom man involved in ongoing [military coups on my job](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job).
+- It's Hudson Jameson, the mushroom man involved in the ongoing [military coup on my job](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job) with Ajay and Alicia.
 
 [![Mushroom man](../../content/images/mushroom-man.jpg)](https://github.com/Souptacular)
 
 - He speaks to me saying concerning things in a sinister way, *oh I hear you're leaving*, and some other unpleasant stuff. 
-- He's not really saying anything at all, but he's talking. Is he waiting for the hall to clear?
-- After a bit more hovering, Hudson says *bye* and walks down the aisle towards the stage.
+- He's not really saying anything at all, but he's talking.
+- Is he waiting for the hall to clear?
+- After a bit more hovering, and meaningless waffle, Hudson suddenly says *bye* and walks down the aisle towards the stage.
 - As he passes one of the rows, he looks to the left.
+- I look too.
 - A man sitting in that row looks up, and looks directly at me.
-- He is grinning at me.
+- He is grinning right at me.
 - The man looks to be Indian. He has long black hair and enormous grinning white teeth. 
-- He looks exactly like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life), the teeth especially.
-- The man walks over to me, I did not invite him.
-- He introduces himself as Aziz (or similar) a Rust engineer that has started that day.
+- He looks exactly like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life); the teeth especially.
+- The man walks over to me; I did not invite him.
+- He introduces himself as Aziz (or similar), a Rust engineer that has started that very day.
 - I'm amazed that someone would start their job on the first day of a conference, and at the conference.
-- There is a handful of people left at the back of the conference hall.
-- Are they watching?
-- He tells me he's Pakistani, from Rochdale, Yorkshire; rape-gang territory.
-- His Oxford-English accent says otherwise, I say so. He doesn't reply.
+- There is a handful of people at the back of the conference hall, but other than that the hall is empty.
+- Are they watching us?
+- He tells me he's Pakistani, from Rochdale, Yorkshire; Islamic rape-gang territory.
+- His Oxford-English accent says otherwise, and I say so. 
+- He doesn't reply.
 - He grins at me constantly.
 - Everywhere I go, he pops up.
-- He pops up on the tour we do, and at dinner a few days later where he does something horrible.
-- Anthony and I are at dinner, and this man joins us.
-- He sits opposite me and makes sexually violent threatening movements with his hands and arms and the napkin.
-- It look like he is pretending to throttle someone, then himself, then someone else, then he flicks the napkin out, then he slaps it down hard on the dinner table, all the while staring at me, then he repeats these movements again and again.
+- He pops up on the tour we do, and at dinner a few days later.
+- Anthony and I are at dinner with another colleague from John's team.
+- Aziz is sitting opposite me.
+- When the other man has left, he starts to make sexually violent threatening movements with his serviette.
+- It look like he is pretending to throttle someone, then himself, then someone else, then he flicks the napkin out, then he slaps it down hard on the dinner table, he rolls it up, twists it up taut, wraps it around his neck, wraps it around something in front, slaps it down, all the while staring at me, then he repeats these movements again and again.
 
 ![Pakistani threats at dinner](../../content/images/pakistani-man-threatens-woman.png)
 
-- It is so horrifying, I tweet about it and tell Miriam from Spanish HR the following morning.
-
-[![Sexual violence at dinner](../../content/images/sexual-violence-at-dinner.png)](https://x.com/1FRGVN/status/1790392972057747804)
-- I tweet about it.
+- It is so horrifying, I tweet about it that night, and I also tell Miriam from Spanish HR the following morning.
 
 [![Sexual violence threats at dinner](../../content/images/sexual-violence-at-dinner.png)](https://x.com/1FRGVN/status/1790392972057747804)
 
-- On the way back to our rooms that night, Anthony needs to be reminded about what he did. *Did you not see him make those sexually violent threats to me Anthony*, I said. *He was menacing.* 
-- Anthony says nothing so I explain to him what he was doing right in front of him.
+- Miriam never mentions it again.
+- On the way back to our rooms that night, Anthony needs to be reminded about what this man did at the table.
+- *Did you not see him make those sexually violent threats to me Anthony*, I said. *He was menacing.* 
+- Anthony says nothing so I explain by demonstrating it to him.
 - Anthony says nothing.
-- I wonder if he was there for denial purposes in case I complain.
-- While this guy, Aziz Abad (something like that) week was talking to us, his chatter was so disordered, he reminded me of [Nadim Kobesi](../2023/november.md#polygon).
+- I wonder if Anthony was there for denial purposes in case I complain.
+- While this guy, Aziz Abad (something like that) was talking to us, his chatter was so disordered and threateningly meaningless, he reminded me of [Nadim Kobesi](../2023/november.md#polygon).
 - I say so.
 - I say to Anthony, this guy has *Nadim energy*.
+- I also wondered if he had been taking drugs.
 - He starts talking about his PornHub account and how he let his girlfriend find it.
-- Was this sexually threatening man another actor, just like Nadim was?
-- Or was he a willing dev with a porn-addiction, especially for the newest genre in town, tech colleague sedating switcheroo porn.
+- We start talking about porn and I'm very clear about what I think about it.
+- Was this another Nadim, tasked with threatening me and reminding me of Jitendra who I'm beginning to realize must be another porn special (something I did not know or suspect till recently)?
+- Or was he a willing dev with a porn-addiction, and a criminal-subscription, delighted to be part of the newest genre in town, *female-tech-colleague-sedated-switcheroo*?
 
 ### The security guy knows something
 
