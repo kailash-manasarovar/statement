@@ -544,7 +544,7 @@ function googleTranslateElementInit() {
 - Anthony expresses surprise about his name. *I've never heard anyone called that,* he says.
 - Aziz repeatedly takes the piss out of Lim's name, who then leaves.
 - Azif then starts to make sexually violent and threatening movements with his serviette.
-- He rolls it up taut, then pretends to throttle someone, then wraps it around his own neck, then someone else, then he flicks the napkin out and slaps it down hard on the dinner table, he rolls it up, twists it up taut, wraps it around his neck, wraps it around something in front, slaps it down, all the while staring at me, then he repeats these movements again and again.
+- He rolls it up taut, then pretends to throttle someone, then wraps it around his own neck, then someone in front, then he flicks the napkin out and slaps it down hard on the dinner table, and again he rolls it up, twists it up taut, wraps it around his neck, wraps it around something in front, slaps it down, all the while staring at me, then he repeats these movements again and again.
 
 ![Pakistani threats at dinner](../../content/images/pakistani-man-threatens-woman.png)
 
