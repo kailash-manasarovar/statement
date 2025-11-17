@@ -549,7 +549,7 @@ function googleTranslateElementInit() {
 ### X with Polygon
 
 - When I receive my Polygon laptop, I set up an X account for work: `@drmuffy`.
-- Immediately I have numerous followers, all with significantly meaningful profiles that mention *coffee*, *Batman*, and *miracles*, for example.
+- Immediately I have numerous followers, all with significantly meaningful profiles that mention things like *coffee*, *Batman*, and *miracles*, for example.
 - I suspect that my work laptop has also been breached via my home router.
 - I'm so busy with my knew role, my conservatory studies, and the stress of what's going on, I don't have time to think about it much until I report hacking to JT in support one morning probably in January sometimes, and then eventually in [March 2024](../2024/march/1-12.md#reporting-hacking-to-polygon-labs) when I let Gordon Bishop know what's been going on and he shuts me down from working from home until I change the router.
 

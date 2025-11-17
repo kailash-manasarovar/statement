@@ -550,6 +550,11 @@ function googleTranslateElementInit() {
 - Hans is *always* hanging out on the path towards the rooms with one of two other men, Chinese men.
 - I see him every time I'm walking back to my room at night.
 
+### Team mutiny
+
+- No help given.
+- They want me to leave.
+
 ### Post-Bali
 
 - Polygon is done with me post-Bali.
@@ -559,8 +564,12 @@ function googleTranslateElementInit() {
 - However, there is something much more sinister going on at Polygon and I believe colleagues were instructed to go for me as aggressively as they pleased as whatever they had needed me for in Bali was now over and they were keen I left the company, and quickly.
 - Bullying just got worse and worse for me after Bali with the intention, I believe, of me leaving, which I didn't.
 - The reason there are nearly 3000 issues in the [GitHub repo](https://github.com/0xPolygon/polygon-docs/issues) is because my job was hacked by my colleagues around the time they had had enough of whatever they were doing with me and were ready to get rid of me. Did they know I was about to be murdered?
+- Do they know that *switcheroo* involves long-term blinding of a target with poisons in her home so that she doesn't notice the slow deterioration of her sight, then drugging while it's happening so she can't make people out.
+- My sight is permanently maimed, by the way. I have little peripheral vision and everything is always blurry unless I'm wearing my reading glasses.
+- Will be checking this again soon, but very upset.
+- Do they know also that targets are long-term drugged - probably methanol I would say - so the blindness is exacerbated and they also lose their ability to make sensible decisions, and this is why I can't play chess anymore.
 
-### John Michael
+### John Michael (JT)
 
 - When we get back from Bali, a few days later there is a chat on Slack about John Michael.
 - Someone has nominated him for being the best tech employee ever and Bali is mentioned.
