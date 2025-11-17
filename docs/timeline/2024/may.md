@@ -345,7 +345,7 @@ function googleTranslateElementInit() {
 
 - I am in Bali from 11th-19th May with work.
 - We stay at the [Grand Hyatt](https://www.hyatt.com/grand-hyatt/en-US/balgh-grand-hyatt-bali).
-- In my toiletries, accessed via criminal entry to my apartment and likely my hotel room in Madrid, are mind-altering substances which cause a sense of euphoria and overwhelming sexual arousal (perhaps coupled with my hacked phone's audio playback) and also cause a detrimental effect on vision.
+- In my toiletries, accessed via criminal entry to my apartment and likely my hotel room in Madrid, are mind-altering substances which cause a sense of euphoria and overwhelming sexual arousal (perhaps coupled with my hacked phone's audio playback) and which also cause a detrimental effect on vision.
 - I have recently been [porn-prepped](april.md#drugged-in-the-street-by-denia-gypsies) possibly with involvement from [the trumpet teacher I continue, without clear reason, to be in love with](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man).
 - I guess he'll be able to tell us about what happened here and how the whole porn-target mechanism works, hopefully before we get to the *Who Is This* sections of this police statement where I will post photo after photo of women who have fallen foul of the porn gangs over the past decades.
 - Hopefully, at that time, we will be viral and we can start healing some broken hearts.
