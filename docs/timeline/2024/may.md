@@ -366,10 +366,10 @@ function googleTranslateElementInit() {
 
 - Cross-company marketing teams are instructed to perform a military coup on my role.
 - Hans and Anthony are not included in the intense pressure these teams put me under while they attempt to cause me severe anxiety and demonstrate my incompetence.
-- Led by Aja, Alicia, and mushroom man, I was informed their whole teams were coming in to overhaul the documentation, to fix it up.
+- Led by Ajay, Alicia, and mushroom man, I was informed their whole teams were coming in to overhaul the documentation, to fix it up.
 - I thanked them initially because I had a million things to do and no time to do them.
 - I wrote a clear list on what I needed and how it should work.
-- They ignored me and went off in a tangent pretty much taking over my role as docs team lead.
+- They ignored my gratitude and request, and went off in a tangent doing whatever they felt like and blatantly taking over my role as docs team lead.
 - It was pretty horrendous.
 - It began late February or early March, after the redundancies.
 - I wonder who gave the original order for this. Was is David and Jordi? Or underlings of theirs?
