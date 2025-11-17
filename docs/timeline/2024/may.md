@@ -532,7 +532,7 @@ function googleTranslateElementInit() {
 - He pops up on the day tour (no-one else wants to talk to me apart from him for some reason), and he pops up at dinner a few days later.
 - Anthony and I are at dinner with another colleague from (who I think is a good guy - and his team too) John's team.
 - Aziz joins us and sits in the free seat at the table directly opposite me.
-- Anthony expresses surprise about his name. *I've never heard anyone call that,* he says.
+- Anthony expresses surprise about his name. *I've never heard anyone called that,* he says.
 - When the other man leaves, Azif starts to make sexually violent and threatening movements with his serviette.
 - It look like he is pretending to throttle someone, then himself, then someone else, then he flicks the napkin out, then he slaps it down hard on the dinner table, he rolls it up, twists it up taut, wraps it around his neck, wraps it around something in front, slaps it down, all the while staring at me, then he repeats these movements again and again.
 
