@@ -474,6 +474,7 @@ function googleTranslateElementInit() {
 - I don't leave.
 - It's clear to me that something very sinister happened to me in Bali without my knowledge because I was [re-programmed into feeling extraordinarily sexually aroused by the gypsies](april.md#drugged-in-the-street-by-denia-gypsies) just before traveling to Bali.
 - Extraordinarily sinister things happened *with* my conscious awareness too; such as the bizarre meetings with the [Pakistani Yorkshire-man](#the-pakistani-yorkshire-man) who I believe intentionally looks like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) and is supposed to remind me of the Pakistani rape-gangs.
+- Was what happened to me in Bali supposed to have happened in [November 2023 with Nadim](../2023/november.md#nadim-kobesi) except something spooked him and he got out quick?
 - I remain high and euphoric and extraordinarily sexually aroused throughout the trip.
 - Every morning at Bali, until I have to replace my shampoo mid-week, I'm unusually sexually aroused and masturbate in the bathroom, often in a curious way (see the [next section](#my-shampoo-goes-missing-from-my-room)).
 - Has my hotel room been set up with spy-cams and networked up with the help of IT support?
