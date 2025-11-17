@@ -451,8 +451,9 @@ function googleTranslateElementInit() {
 ![Bali](../../content/images/bali.png)
 
 - It's clearly very easy to whip the crowd up into a bullying frenzy.
-- At the time, and due to the outrageous [bullying at work](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job), I assume it must be to do with [Nadim getting hold of my X account](../2023/november.md#nadim-kobesi) the November before and telling everyone I'm a transphobe.
-- I wonder if things would have been the same if they knew they were supporting a mass-pedophile baby-rape murderous porn network, amongst other things, in Dénia; possibly the best-loved criminal porn studio in the world, and likely connected to the Madeline McCann kidnap and consequent investigation fumble.
+- At the time, and due to the outrageous [military coup on my job already mentioned](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job), I assume what's happening must be to do with [Nadim getting hold of my X account](../2023/november.md#nadim-kobesi) the November before and telling everyone I'm a "transphobe".
+- I've no idea the Dénia rape-gangs have this sort of reach. I still think they are mostly silly little boys with too much electronic power.
+- I wonder if things would have been the same any of us knew about the mass-pedophile, baby-rape, murderous porn network, amongst other things, in Dénia; I'm guessing the best-loved and most well-known criminal porn studio in the world, and very likely connected to the Madeline McCann kidnap and consequent investigation fumble.
 - I guess the men were delighted about the [sedated *switcheroo* porn](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man); at least the men would have been.
 - I can't imagine any women knew about it, but you never know.
 - Gabriel Silva, nothing to do with the writing team at that point, announces how he is going to be sorting out the docs (my work) using other people who are not on the writing team; another military coup.
