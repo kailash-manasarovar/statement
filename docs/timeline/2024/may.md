@@ -593,7 +593,16 @@ function googleTranslateElementInit() {
 
 ### Telling people about the forgivenet
 
-- wip
+- I tell as many people as I can about the [forgivenet](https://1frgvn.com/).
+- I tell David Silverman on the bus back from our day tour, the whole bus hushed as I explain it's the world's first spiritual tech, a humility machine, aimed at helping humans go someway to undoing the intentional wrongs we've done that haunt us.
+- It's kind of poetic.
+- David's quite impressed, I can tell.
+- Some of the other chief's of staff are sitting close by and listening; Paul O'Leary is directly in front of me.
+- Normally, I tell people and they are extremely disinterested... (I can hear their little heads saying *silly little girl*, or similar).
+- Other people I tell are very literally horrified, gawk, and walk off angrily. I kid you not.
+- I tell two guys from Fireblocks at dinner about it one night. I believe they also become uncomfortable because they get up leave me alone at the table.
+- I find these reactions very interesting and not negative for the business at all.
+- Perhaps exactly what I was hoping for.
 
 ### Alicia
 
