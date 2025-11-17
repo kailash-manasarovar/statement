@@ -554,9 +554,11 @@ function googleTranslateElementInit() {
 - I say to Anthony, this guy has *Nadim energy*.
 - I also wondered if he had been taking drugs.
 - He starts talking about his PornHub account and how he delightedly let his girlfriend find open on his laptop.
-- We start talking about porn and I'm very clear about what I think about it.
-- Was this another Nadim, tasked with threatening me and reminding me of Jitendra who I'm beginning to realize must be another porn special (something I did not know or suspect till recently)?
-- Or was he a willing dev with a porn-addiction, and a criminal-subscription, delighted to be part of the newest genre in town, *female-tech-colleague-sedated-switcheroo*?
+- We start talking about porn and I'm very clear about what I think.
+- I'm angry, actually. His behavior was appalling.
+- Was this another Nadim, another Hans, tasked with threatening me.
+- Was he hired to specifically remind me of Jitendra Das who I'm beginning to realize I must have been in another porn special with (something I did not know or suspect till recently)?
+- Or was he a willing dev with a porn-addiction, and a darknet-porn-subscription, just delighted to be involved in the newest genre in town, *female-tech-colleague-sedated-switcheroo*?
 
 ### The security guy knows something
 
