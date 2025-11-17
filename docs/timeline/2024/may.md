@@ -568,9 +568,9 @@ function googleTranslateElementInit() {
 - He wants to tell me something but he can't.
 - He talks at me, very fast, a lot, and he doesn't let me speak.
 - He's concerned.
-- He knows something about what's going on.
+- He seems like he knows something about what's going on and he's upset.
 - I have had long chats with Gordon before and this is not like him at all.
-- He has a daughter.
+- I know he has a young daughter.
 
 ### Spanish engineer I recognize
 
