@@ -568,7 +568,7 @@ function googleTranslateElementInit() {
 - I'm angry, actually. His behavior was appalling.
 - Anthony talks about a time at an old job when they asked him to clean out a colleagues hard drive and it was riddled with porn. He explained the man had sat in his office with the blinds drawn day after day.
 - Anthony is an (apparently devoted) Christian. I tell him they ask him to do it to upset him for this reason.
-- He says; *is it?*, as if he knows already and is annoyed I said it.
+- He says; *is it?*, as if he knows already and is annoyed I said it and he wasn't at all upset about it.
 - Was this another Nadim, another Hans, tasked with threatening me.
 - Was he hired to specifically remind me of Jitendra Das who I'm beginning to realize I must have been starring in another porn special with (something I did not know or suspect till recently)?
 - Or was he just a simple willing dev with a porn-addiction, who happened to look exactly like Jitendra, and happened to have a darknet-porn-subscription, and was just delighted to be involved in the newest genre in town, *female-tech-colleague-sedated-switcheroo*? Seems unlikely doesn't it.
