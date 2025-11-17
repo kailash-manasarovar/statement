@@ -364,11 +364,22 @@ function googleTranslateElementInit() {
 
 #### Ajay, Alicia, and mushroom-man perform a military coup on my job
 
-- I think they must have started this in late February or early March.
-- It'll be in the records somewhere. Alicia can confirm it.
-- Did David Schwartz and the Spanish founders suggest this happen in a sort of parallel terrorizing to go along with what was happening at the conservatory?
-- It certainly came from up high and multiple teams were involved in singling me and my job out.
-- I assumed it was because of my TERFing online, but it wasn't really that at all, although it's possible that's how they justified it to, at least the women involved I hope.
+- Cross-company marketing teams are instructed to perform a military coup on my role.
+- Hans and Anthony are not included in the intense pressure these teams put me under while they attempted to demonstrate my incompetence.
+- Led by Aja, Alicia, and mushroom man, I was informed their whole teams were coming in to overhaul the documentation, to fix it up.
+- I thanked them initially because I had a million things to do and no time to do them.
+- I wrote a clear list on what I needed and how it should work.
+- They ignored me and went off in a tangent pretty much taking over my role as docs team lead.
+- It was pretty horrendous.
+- It began late February or early March, after the redundancies.
+- I wonder who gave the original order for this. Was is David and Jordi? Or underlings of theirs?
+- Was this, like the zkSync increasing terror, set to build up while pressure at the conservatory was building up to [12th March 2024](march/1-12.md#the-piano-concert) in the same way that it had on the [12th June 2023](../2023/june.md#monday-12th-june-2023).
+- Did Alicia, Ajay, and mushroom man know about the sedated spy-cam porn conspiracy live-streaming from my apartment?
+- I bet Alicia didn't know.
+- It was horrible but frankly what I was dealing with online, and at home in my apartment, and at the conservatory took precedent and it made them look a little pip-squeaky.
+- During the military coup-style approach they took on my job, mushroom man was speaking online to Jaime about his experience with drugs and hallucinogens.
+- Was this so the porn gangs would know he was a cool guy?
+- At the time, I thought the constant vicious behavior at Polygon was due to my women's rights activism online, but it wasn't really that at all, although it's possible that's how the big important men justified it to everyone else.
 
 #### David Schwartz steps down
 
