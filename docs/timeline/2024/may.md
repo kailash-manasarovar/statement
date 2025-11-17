@@ -348,17 +348,19 @@ function googleTranslateElementInit() {
 - In my toiletries, accessed via criminal entry to my apartment and likely my hotel room in Madrid, and possibly even my Bali hotel room too, are mind-altering substances which cause a sense of euphoria and overwhelming sexual arousal (perhaps coupled with my hacked phone's audio playback) and which also cause a detrimental effect on vision.
 - I have recently been [porn-prepped](april.md#drugged-in-the-street-by-denia-gypsies) possibly with involvement from [the trumpet teacher I continue, without clear reason, to be in love with](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man).
 - I guess he'll be able to tell us about what happened here and how the whole porn-target mechanism works, hopefully before we get to the *Who Is This* sections of this police statement where I will post photo-after-photo of women who have fallen foul of the Dénia porn gangs over the past decades.
-- Hopefully, by that time, we will have gone very viral and we can start healing some broken hearts.
+- Hopefully, by that time, we will have gone very viral and we can start healing some broken hearts, and perhaps prompting some porn-addicts to choose again.
 
 ### Pre-Bali shenanigans
 
 #### Ben finds a Rust developer
 
-- Benjamin the Polygon Zero manager is struggling to find a Rust developer.
-- He reports this at the management meetings.
+- Benjamin, the Polygon Zero manager, is struggling to find a Rust developer.
+- He reports this at every management meeting.
 - Eventually, just before Bali, he finds one.
 - Is it Aziz?
-- Ben leaves the company soon after, hurriedly.
+- They do have the same Oxbridge accent.
+- I like Ben.
+- Ben leaves the company soon after Bali, hurriedly, just like a couple of the others do, notably Alicia and the Aussie guy who Gabriel instructed to make me look incompetent.
 
 #### Ajay, Alicia, and mushroom-man perform a military coup on my job
 
@@ -368,7 +370,7 @@ function googleTranslateElementInit() {
 - It certainly came from up high and multiple teams were involved in singling me and my job out.
 - I assumed it was because of my TERFing online, but it wasn't really that at all, although it's possible that's how they justified it to, at least the women involved I hope.
 
-#### David Schwartz backs down
+#### David Schwartz steps down
 
 - While I'm in Madrid or just before, my manager David Schwartz is replaced by Paul O'Leary CTO.
 - I report now to Paul.
