@@ -529,7 +529,7 @@ function googleTranslateElementInit() {
 - He doesn't reply.
 - He grins at me constantly.
 - Everywhere I go, he pops up.
-- He pops up on the tour we do, and at dinner a few days later.
+- He pops up on the day tour (no-one else wants to talk to me apart from him for some reason), and he pops up at dinner a few days later.
 - Anthony and I are at dinner with another colleague from John's team.
 - Aziz is sitting opposite me.
 - When the other man has left, he starts to make sexually violent threatening movements with his serviette.
