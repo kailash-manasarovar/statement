@@ -438,7 +438,7 @@ function googleTranslateElementInit() {
 
 ### Bullying at the conference
 
-- It begins the first morning; constant "set up" events, exactly like in Dénia, which mean someone is tracking mine, and other's, movements in order to create apparently chance meetings.
+- It begins the first morning; constant "set up" events, exactly like in Dénia, which mean someone is tracking mine (and other targets like Alicia's) movements in order to create apparently chance meetings.
 - I seem to have "bumping into" episodes every day; *meaningfully* set up events and situations, or literally bumping into people for some unknown purpose.
 - The first one of these *chance meetings* is with Gabriel Silva on the first morning as I'm leaving my room.
 - Did something happen the night before in my room?
