@@ -370,8 +370,9 @@ function googleTranslateElementInit() {
 - I thanked them initially because I had a million things to do and no time to do them.
 - I wrote a clear list on what I needed and how it should work.
 - They ignored my gratitude and request, and went off in a tangent doing whatever they felt like and blatantly taking over my role as docs team lead.
+- It was, of course, intentional.
 - It was pretty horrendous.
-- It began late February or early March, after the redundancies.
+- It began late February or early March, right after the redundancies.
 - I wonder who gave the original order for this. Was is David and Jordi? Or underlings of theirs?
 - Was this, like the zkSync increasing terror, set to build up while pressure at the conservatory was building up to [12th March 2024](march/1-12.md#the-piano-concert) in the same way that it had on the [12th June 2023](../2023/june.md#monday-12th-june-2023).
 - Did Alicia, Ajay, and mushroom man know about the sedated spy-cam porn conspiracy live-streaming from my apartment?
