@@ -392,11 +392,13 @@ function googleTranslateElementInit() {
 #### David Schwartz steps down
 
 - While I'm in Madrid or just before, my manager David Schwartz is replaced by Paul O'Leary CTO.
-- I report now to Paul.
+- I now report to Paul.
 - In the meeting with David, he tells me he is focussing full time on founder management, and asks me if I know what that means.
 - I don't know and ask him to enlighten me.
 - He changes the subject.
-- I inform him I'm still being terrorized by the people of Denia but he doesn't want to talk about that.
+- I inform him I'm still being terrorized by the people of Dénia and I have had to stop my piano studies because I'm afraid for my life.
+- He changes the subject. He's not interested.
+- Has David Z stepped down as my boss in order to distance himself from me? 
 
 ### Flight to Bali
 
