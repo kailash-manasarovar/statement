@@ -525,7 +525,7 @@ function googleTranslateElementInit() {
 - There is a handful of people at the back of the conference hall, but other than that the hall is empty.
 - Are they watching us?
 - He tells me he's Pakistani, from Rochdale, Yorkshire; Islamic rape-gang territory.
-- His Oxford-English accent says otherwise, and I say so. 
+- His Oxbridge accent says otherwise, and I say so. 
 - He doesn't reply.
 - He grins at me constantly.
 - Everywhere I go, he pops up.
