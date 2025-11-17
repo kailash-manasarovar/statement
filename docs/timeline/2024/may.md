@@ -360,7 +360,7 @@ function googleTranslateElementInit() {
 - Is it Aziz?
 - They do have the same Oxbridge accent.
 - I like Ben.
-- Ben leaves the company soon after Bali, hurriedly, just like a couple of the others do, notably Alicia and the Aussie guy who Gabriel instructed to make me look incompetent.
+- Ben leaves the company soon after Bali, hurriedly, just like a couple of the others do, notably Alicia and the Aussie guy, Jarrod Watts, who Gabriel instructed to make me look incompetent.
 
 #### Ajay, Alicia, and mushroom-man perform a military coup on my job
 
