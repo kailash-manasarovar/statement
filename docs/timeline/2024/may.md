@@ -461,7 +461,7 @@ function googleTranslateElementInit() {
 - I guess the men were delighted about the [sedated *switcheroo* porn](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man), especially Gabriel who made sure to [mention it when he took over my job in August](august.md#gabriel-silvas-first-team-meeting-as-manager).
 - I can't imagine any of the women knew about it, but you never know.
 - Gabriel Silva, nothing to do with the writing team at this point, announces how he is going to be sorting out the docs (my work) using other people who are not on the writing team; another military coup.
-- I had a meeting with Jarrod Watts and Brian Seong who have been given instructions from Gabriel about how he was to *sort out the docs*.
+- I had a meeting with Jarrod Watts and Brian Seong who have been given instructions from Gabriel about how he wants them to *sort out the docs*.
 - Jarrod spends the next month making ridiculous errors in the codebase in an attempt, I can only assume, to make my system look like a *single point of failure*. I kind of feel like Jarrod is a good guy with an impossible task.
 - Brian talks to me as if someone has told him I'm a total idiot.
 - [Ajay, Alicia, and mushroom man's teams](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job) are up to their old tricks again.
