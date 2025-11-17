@@ -367,8 +367,8 @@ function googleTranslateElementInit() {
 - Cross-company marketing teams are instructed to perform a military coup on my role.
 - Hans and Anthony are not included in the intense pressure these teams put me under while they attempt to cause me severe anxiety and demonstrate my incompetence.
 - Led by Ajay, Alicia, and mushroom man, in a meeting of about 15 people, I was informed their teams were coming in to overhaul the documentation, to fix it up, to help me.
-- Mushroom man's profile pic on Slack is him dressed up like a magic mushroom. I can't remember his name right now but will do so eventually, not that it matters.
-- He gives out thousands of little pictures of himself dressed like this at [EthCC](july.md#uk-and-belgium) in July. They were everywhere.
+- Mushroom man's profile pic on Slack is him dressed up like a magic mushroom. He's Hudson Jameson but let's keep calling him mushroom man.
+- He gives out thousands of little pictures of himself dressed like as a magic mushroom at [EthCC](july.md#uk-and-belgium) in July. They were everywhere.
 - I thanked them initially because I had a million things to do and no time to do them.
 - I wrote a clear list on what I needed and how the process must work.
 - They ignored my gratitude and everything I said, and went off in tangents doing whatever they felt like and blatantly taking over my role as docs team lead.
@@ -494,7 +494,8 @@ function googleTranslateElementInit() {
 ![Main ballroom](../../content/images/grand-ballroom.jpg)
 
 - It's the mushroom man guy who has been involved in a military coup on my job over the last couple of months.
-- The mushroom man (I'll remember his name, everyone knows who he is) says concerning things in a sinister way, like oh I hear you're leaving, and some other unpleasant stuff. He is the fat man with the mushroom hat on his profile pics. I can't remember his name just now, but he was pals with Jaime, and part of a concerted bullying attack in March with Alicia and her team.
+- The mushroom man says concerning things in a sinister way, like oh I hear you're leaving, and some other unpleasant stuff. 
+- His name is Hudson Jameson and here's his git profile: https://github.com/Souptacular.
 - He's waiting for everyone to leave. Once they're gone, and I'm reasonably more upset than I already was, he walks away down the aisle, giving an Indian man on the other side the nod as he goes by.
 - I see the Indian-looking fellow grinning at me at that moment.
 - He walks over. No-one else is around.
