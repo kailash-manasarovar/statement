@@ -13,6 +13,21 @@ function googleTranslateElementInit() {
 - I can't stop thinking about this man, the trumpet teacher. My mind is racing with thoughts about him.
 - I obsessively plan novel-after-novel about our romantic adventures in my head!
 - I tell my therapist in June 2023 I wrote 1000s of romance novels in my head about this man.
+
+!!! tip "Romance novels"
+    - One of the novels had us traveling to Cuba with the band.
+    - It was his job and I was just tagging along.
+    - I came to all the gigs though.
+    - On Friday nights, sometimes, we'd be invited to special gigs, santeria celebrations, and my love would play like an angel had took him.
+    - And I would get possessed and go on adventures, or something like that.
+    - Curious indeed.
+    - Rather like what actually was happening in many ways.
+    - Were the spirits telling me something all the way back here?
+    - Were these novels written in my subconscious during sedated *switcheroo* prep or real sessions?
+    - I will tell this to the hacker I believe is my love on X in July or August 2024.
+    - But it's not him, and so whoever I'm talking to doesn't really get it.
+    - Perhaps my one true love is reading and does get it.
+
 - I'm extremely concerned about rhabdo and having kidney damage.
 - I consider my GP to be ineffective.
 - I go on a very strict kidney diet to try to heal myself.
