@@ -481,14 +481,18 @@ function googleTranslateElementInit() {
 
 ### My shampoo goes missing from my room
 
-- I weirdly notice that my shampoo goes missing from my room.
-- I assume the cleaner threw it away, and leave it.
-- Every morning I am extraordinarily sexually aroused and masturbate.
+- I notice my shampoo (or shower gel, one of the two) has gone missing from my room.
+- I assume the cleaner threw it away, and use the hotel products instead.
+- Every morning, until this happens, I am extraordinarily sexually aroused.
+- I masturbate in the bathroom.
 - Sometimes, I do yoga at the same time.
-- I have no idea why I would do this; I have never done it before or since in my whole life.
-- Are they somehow triggering a memory of [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) along with the [Pakistani Yorkshireman just I haven't met yet](#the-pakistani-yorkshire-man)?
-- If I'm in porn again, filmed at the Polygon Bali conference, you'll see me masturbating in tree pose.
+- I have no idea why I would do this; I have never done anything like this before or since in my whole life.
+- I normally don't masturbate. As I may have mentioned, I have been celibate since 2010 and that included masturbation until [April 2023](../2023/april.md#hanuman-jayanti) when they started drugging me with aphrodisiacs somehow.
+- Are they also able to trigger the yoga by setting up a [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) memory trigger with the [Pakistani Yorkshireman that I'm about to meet](#the-pakistani-yorkshire-man)?
+- It's very strange.
+- If I'm in yet more porn, filmed in my hotel bathroom at the Polygon Bali conference, you'll see me masturbating in tree pose.
 - Bit embarrassing, I hope you find it.
+- I bet there's more isn't there.
 
 ### The Pakistani Yorkshire-man
 
