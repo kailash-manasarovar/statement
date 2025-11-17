@@ -357,7 +357,7 @@ function googleTranslateElementInit() {
 - I really pissed someone off on Halloween, didn't I. 
 - Was it [my singing](october.md#halloween)? Probably.
 - I wonder if this would have normally got someone like me killed had I not been scheduled to start my very important role at Polygon the next day.
-- Regardless of my right kidney feeling like it exploded, I pull through ready to start.
+- Regardless of my right kidney feeling like it exploded - due to, I'm told, malicious poisoning of my tap water with antifreeze - I pull through ready to start.
 - It's a great job and I'm very excited about my new role.
 - My boss is Grace Torrellas and the team has about three other members, including Anthony Matlala.
 - Nadim has only been with the firm for less than a month when I join.
