@@ -422,8 +422,7 @@ function googleTranslateElementInit() {
 - It's curious it was released on the same day I started at Polygon; the day I was recovering from my right kidney exploding after [poisoning at Halloween](../2023/october.md#halloween).
 - The picture I had seen on the `@jctot19` searches at that time had peaked my curiosity so much, I looked it up and discovered it was a film about child sex trafficking.
 - I watch the film.
-- I write an extraordinarily long message to a hacker I believe is the trumpet teacher on Signal while I'm on the plane.
-- I explain I'm watching the film I believe he posted on my Google search results for me to see.
+- In the extraordinarily long message I'm writing to a hacker I believe is the trumpet teacher on Signal while I’m on the plane, I explain I’m watching the film I believe he posted on my Google search results for me to see.
 - We find out at the end of the film that the real life protagonist, Tim Ballard, is married to a woman called Katherine.
 - I find the whole thing extraordinarily significant.
 - Is someone checking in to make sure I know I'm not alone?
