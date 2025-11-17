@@ -428,7 +428,7 @@ function googleTranslateElementInit() {
 - We find out at the end of the film that the real life protagonist, Tim Ballard, is married to a woman called Katherine.
 - I find the whole thing extraordinarily significant.
 - Is someone checking in to make sure I know I'm not alone?
-- Is the trumpet teacher I am in love with working for good and against the baby rapists after all?
+- Is the trumpet teacher I am in love with working for good and with me against the baby rapists after all?
 - On arrival at Bali I meet some colleagues. 
 - Everyone seems happy to see me, chatty and friendly.
 - Expectant, maybe.
