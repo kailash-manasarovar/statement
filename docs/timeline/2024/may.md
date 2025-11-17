@@ -527,7 +527,7 @@ function googleTranslateElementInit() {
 - A man sitting in that row looks up, and looks directly at me.
 - He is grinning right at me.
 - The man looks to be Indian. He has long black hair and enormous grinning white teeth. 
-- He looks exactly like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life); the teeth especially.
+- He looks exactly like [Jitendra Das the yoga teacher](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life); the teeth especially.
 - The man walks over to me; I did not invite him.
 - He introduces himself as Aziz (or similar), a Rust engineer that has started that very day.
 - I'm amazed that someone would start their job on the first day of a conference, and at the conference.
