@@ -348,7 +348,7 @@ function googleTranslateElementInit() {
 - In my toiletries, accessed via criminal entry to my apartment and likely my hotel room in Madrid, and possibly even my Bali hotel room too, are mind-altering substances which cause a sense of euphoria and overwhelming sexual arousal (perhaps coupled with my hacked phone's audio playback) and which also cause a detrimental effect on vision.
 - I have recently been [porn-prepped](april.md#drugged-in-the-street-by-denia-gypsies) possibly with involvement from [the trumpet teacher I continue, without clear reason, to be in love with](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man).
 - I guess he'll be able to tell us about what happened here and how the whole porn-target mechanism works, hopefully before we get to the *Who Is This* sections of this police statement where I will post photo-after-photo of women who have fallen foul of the Dénia porn gangs over the past decades.
-- Hopefully, by that time, we will be viral and we can start healing some broken hearts.
+- Hopefully, by that time, we will have gone very viral and we can start healing some broken hearts.
 
 ### Pre-Bali shenanigans
 
