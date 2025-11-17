@@ -553,7 +553,7 @@ function googleTranslateElementInit() {
 - I say so.
 - I say to Anthony, this guy has *Nadim energy*.
 - I also wondered if he had been taking drugs.
-- He starts talking about his PornHub account and how he delightedly let his girlfriend find open on his laptop.
+- He starts talking about his PornHub account and how he delightedly let his girlfriend find it open on his laptop.
 - We start talking about porn and I'm very clear about what I think.
 - I'm angry, actually. His behavior was appalling.
 - Was this another Nadim, another Hans, tasked with threatening me.
