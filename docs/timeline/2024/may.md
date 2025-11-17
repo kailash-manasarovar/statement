@@ -598,7 +598,7 @@ function googleTranslateElementInit() {
 - The whole bus hushes as I explain it's the world's first spiritual tech, a humility machine, aimed at helping humans go someway to undoing the intentional wrongs we do that haunt us.
 - It's kind of poetic.
 - David's quite impressed, I can tell.
-- Some of the other chief's of staff are sitting close by and listening; Paul O'Leary is directly in front of me.
+- Some of the other chief's of staff are sitting close by and listening; Paul O'Leary is directly in front of me. Perhaps they're asleep.
 - Normally, I tell people and they are extremely disinterested... (I can hear their little heads saying *silly little girl*, or similar).
 - Other people I tell are very literally horrified; they gawk at me and walk off angrily. I kid you not.
 - I tell two guys from Fireblocks at dinner about it one night. I believe they also become uncomfortable because they look at each other and get up leave me alone at the table.
