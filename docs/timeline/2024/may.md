@@ -404,6 +404,15 @@ function googleTranslateElementInit() {
 - He changes the subject. He's not interested.
 - Has David Z stepped down as my boss in order to distance himself from me? 
 
+#### Weekend calls, impossible expectations
+
+- I'm pinged at the weekend and late at night with questions that seem unnecessary but very urgent.
+- On one Saturday afternoon, I need help from Gabriel for one of these *urgent* issues which I believe now were probably just more terrorizing.
+- Gabe helps me out and then says, *I hope you stop working soon*, because it's Saturday, but it sounds like a more permanent desire.
+- Indian colleagues are always pinging me like this at the weekends during March, April, and May.
+- It adds to the stress.
+- Sometimes it's necessary, but the necessary times are rare.
+
 ### Flight to Bali
 
 - I fly Turkish airways to Bali from Madrid via Istanbul.
