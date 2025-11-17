@@ -497,46 +497,59 @@ function googleTranslateElementInit() {
 
 ### The Pakistani Yorkshire-man
 
-- On the first morning of sessions, I'm stressed and anxious as people have been making sly comments to me continuously.
-- Maybe something happened to me the night before in my hotel room too. It's not clear. I'm overly anxious and there's not really a good reason for the level of stress I'm feeling.
-- At the end of the morning session in the main hall, someone comes over to talk to me.
+- On the first morning of sessions, I'm stressed and anxious.
+- Colleagues have been making sly comments to me.
+- Maybe something happened to me the night before in my hotel room too. It's not clear. 
+- I'm overly anxious and there's not really a good reason for the level of stress I'm feeling.
+- At the end of the morning session in the main hall, someone comes over to where I'm sitting and about to leave to talk to me.
 
 ![Main ballroom](../../content/images/grand-ballroom.jpg)
 
-- It's the mushroom man guy who has been involved in a military coup on my job over the last couple of months.
-- The mushroom man says concerning things in a sinister way, like oh I hear you're leaving, and some other unpleasant stuff. 
-- His name is Hudson Jameson and here's his git profile: https://github.com/Souptacular.
-- He's waiting for everyone to leave. Once they're gone, and I'm reasonably more upset than I already was, he walks away down the aisle, giving an Indian man on the other side the nod as he goes by.
-- I see the Indian-looking fellow grinning at me at that moment.
-- He walks over. No-one else is around.
-- There is a handful of people at the back of the conference hall.
+- It's Hudson Jameson, the mushroom man involved in ongoing [military coups on my job](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job).
+
+[![Mushroom man](../../content/images/mushroom-man.jpg)](https://github.com/Souptacular)
+
+- He speaks to me saying concerning things in a sinister way, *oh I hear you're leaving*, and some other unpleasant stuff. 
+- He's not really saying anything at all, but he's talking. Is he waiting for the hall to clear?
+- After a bit more hovering, Hudson says *bye* and walks down the aisle towards the stage.
+- As he passes one of the rows, he looks to the left.
+- A man sitting in that row looks up, and looks directly at me.
+- He is grinning at me.
+- The man looks to be Indian. He has long black hair and enormous grinning white teeth. 
+- He looks exactly like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life), the teeth especially.
+- The man walks over to me, I did not invite him.
+- He introduces himself as Aziz (or similar) a Rust engineer that has started that day.
+- I'm amazed that someone would start their job on the first day of a conference, and at the conference.
+- There is a handful of people left at the back of the conference hall.
 - Are they watching?
-- The man has long black hair and enormous grinning white teeth. 
-- He looks like, and reminds me of, [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life). No exaggeration. 
-- In July 2025, I wonder whether he was supposed to look like Jitendra Das!
 - He tells me he's Pakistani, from Rochdale, Yorkshire; rape-gang territory.
-- His Oxford-English accent says otherwise.
+- His Oxford-English accent says otherwise, I say so. He doesn't reply.
 - He grins at me constantly.
-- At dinner, he makes violent sexual threats towards me.
+- Everywhere I go, he pops up.
+- He pops up on the tour we do, and at dinner a few days later where he does something horrible.
+- Anthony and I are at dinner, and this man joins us.
+- He sits opposite me and makes sexually violent threatening movements with his hands and arms and the napkin.
+- It look like he is pretending to throttle someone, then himself, then someone else, then he flicks the napkin out, then he slaps it down hard on the dinner table, all the while staring at me, then he repeats these movements again and again.
 
 ![Pakistani threats at dinner](../../content/images/pakistani-man-threatens-woman.png)
 
-- I tweet about it and tell Spanish HR the following morning.
+- It is so horrifying, I tweet about it and tell Miriam from Spanish HR the following morning.
 
 [![Sexual violence at dinner](../../content/images/sexual-violence-at-dinner.png)](https://x.com/1FRGVN/status/1790392972057747804)
 - I tweet about it.
 
 [![Sexual violence threats at dinner](../../content/images/sexual-violence-at-dinner.png)](https://x.com/1FRGVN/status/1790392972057747804)
 
-- While this guy, Aziv Abad (maybe his name, probably not), a Rust engineer who had started the job that week was talking to us, his chatter was so disordered he reminded me of [Nadim Kobesi](../2023/november.md#polygon) and I say so.
-- He starts talking about his PornHub account.
+- On the way back to our rooms that night, Anthony needs to be reminded about what he did. *Did you not see him make those sexually violent threats to me Anthony*, I said. *He was menacing.* 
+- Anthony says nothing so I explain to him what he was doing right in front of him.
+- Anthony says nothing.
+- I wonder if he was there for denial purposes in case I complain.
+- While this guy, Aziz Abad (something like that) week was talking to us, his chatter was so disordered, he reminded me of [Nadim Kobesi](../2023/november.md#polygon).
+- I say so.
+- I say to Anthony, this guy has *Nadim energy*.
+- He starts talking about his PornHub account and how he let his girlfriend find it.
 - Was this sexually threatening man another actor, just like Nadim was?
-- Were they both hired to terrorize me, and for no other reason?
-- I remember saying to Anthony that night that the man had Nadim energy.
-- He behaved extremely strangely and menacingly towards me.
-- I wonder who he really is, and how much Polygon management paid him, and if I'm on some sort of destroy-the-woman porn soap-opera somewhere?
-- It seems more and more likely doesn't it. 
-- Do they do the same to the kids now?
+- Or was he a willing dev with a porn-addiction, especially for the newest genre in town, tech colleague sedating switcheroo porn.
 
 ### The security guy knows something
 
