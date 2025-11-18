@@ -773,6 +773,9 @@ function googleTranslateElementInit() {
 ![Elon in Bali](../../content/images/elon-bali-1.jpg)
 ![Elon in Bali](../../content/images/elon-bali-2.jpg)
 
+!!! tip "Curiouser and curiouser, said Alice"
+    - All the references online state he arrived on the 19th May, which was when the day we left, but I had understood at the time he had been there at least a couple of days earlier.
+
 ## Collecting my devices from the technical expert DPR
 
 - There are a bunch of emails over this time with the [perito in Alicante](../../content/documents/evidence/comms-with-perito.pdf).
