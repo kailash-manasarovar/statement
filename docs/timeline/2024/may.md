@@ -768,31 +768,6 @@ function googleTranslateElementInit() {
 - He's not that far from us either, apparently.
 - Coincidence?
 
-### My work with Polygon after Bali
-
-- The intense bullying from my team begins.
-- It is clear management are totally done with me post-Bali and now want rid of me.
-- The behavior of Hans in particular (who did no work at all so I'm wondering if he was another actor, like Nadim and Aziz, brought in especially for one purpose) was outrageous.
-- Anthony, HR, and my managers supported Hans; and ignored me completely.
-- His insubordination would have gotten him fired on the spot in any normal situation.
-- I believe they were trying to get me to leave as quickly as possible; they were done with me now. 
-- They must have known what was coming up next for me, and my expected descent into being a permanently-drugged hardcore porn actress/slave, or marrying a violent male/pimp who beat me and took my money, while I was at work and able to tell people what was going on, would not have been helpful for the porn-gangs.
-- Except, what they were expecting to happen didn't happen, did it.
-- He attends the first team meeting with us a team leader from his car along the Portland Oregon lakeside area where just recently middle-aged women trying to protect children from trans ideology were punched and attacked by trans activist. 
-- Was he there with his balaclava?
-
-!!! danger "Could Nadim and Aziv, even Hans, have been yet more porn-gang spies?"
-    - I wonder a bit about Nadim and Aziv (or whatever his name was) now.
-    - It's easy to get paranoid when you're an international child rape-gang porn star of over 40 years and never knew it till very recently.
-    - I did think Nadim was an industrial spy, but I now believe it's even more twisted.
-    - Could Nadim have been set up to specifically get me the job, which made me a lot of money for future honey-trappers, and then cause me enough trouble to cause me to leave?
-    - Or was it just plain and simple brutishness and I was a supreme target for abuse.
-    - The implication is a conspiracy within the management team or amongst the founders at Polygon, specifically the Spanish ones.
-    - And then, when James Dawes (Hans Bodani's ex-colleague) joins, finds out that I'm a target and does his research in UK male porn-addict networks, he finds out about all the other times I was targeted with sexual harassment and decides to use triggering words from those times at the [HR meeting in October 2024 just before I'm sacked](../2024/october.md#bullying-at-polygon) which felt like severe mental/emotional violence to me.
-    - Was the Aziv sexual threat just more fun for them? Or were they hoping I would have violent sex with him.
-    - Remember, I had been primed by the [gypsy sex drug ring right before leaving and the drugs had been put in my toiletries too](../2024/april.md#drugged-in-the-street-by-denia-gypsies).
-    - I wonder what these two actors might tell the police if questioned.
-
 ## Perito - technical expert DPR
 
 - There are a bunch of emails over this time with the [perito in Alicante](../../content/documents/evidence/comms-with-perito.pdf).
