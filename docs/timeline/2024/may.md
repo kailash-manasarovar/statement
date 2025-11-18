@@ -770,7 +770,7 @@ function googleTranslateElementInit() {
 - He's not that far from us either, apparently.
 - Coincidence?
 
-## Perito - technical expert DPR
+## Collecting my devices from the technical expert DPR
 
 - There are a bunch of emails over this time with the [perito in Alicante](../../content/documents/evidence/comms-with-perito.pdf).
 - I collect my equipment and pay 150 eur on 23rd May.
@@ -778,6 +778,8 @@ function googleTranslateElementInit() {
 
     - [Invoice and receipt first page and payment](../../content/documents/evidence/DPR-1.JPG).
     - [Invoice and receipt second page](../../content/documents/evidence/DPR-2.JPG).
+
+- The expert finds nothing.
 
 ## The streets of Denia
 
@@ -794,8 +796,9 @@ function googleTranslateElementInit() {
 - I leave for Lourdes at the end of the month.
 - I plan to spend two weeks in Lourdes.
 - I need to be out of Dénia as much as possible.
-- It's enormously stressful being there as anytime I leave my house, shopping, going to the laundry, walking to the beach, I am harassed and followed by locals.
-- It's clear to me, however, that no matter where I am, the cyber stalking will continue.
+- It's enormously stressful being there as anytime I leave my house, to go shopping, to go to the laundry, or walk to the beach, anything and everything, I am harassed and followed by locals.
+- It's clear to me, however, that no matter where I am in Spain at least, the cyber stalking will continue.
+- I'm about to find out the same horrible porn-gang-stalking situation is true for me in the UK.
 
 ## Tweets
 
