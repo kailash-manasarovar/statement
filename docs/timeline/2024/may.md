@@ -633,7 +633,7 @@ function googleTranslateElementInit() {
 - She wouldn't have known about the spy-cam and sedating porn going on at my apartment in Dénia at the time. I didn't know myself.
 - She certainly wouldn't have known how I had been [starring online internationally in *switcheroo* porn with teachers and staff at the conservatory of Dénia since November 2022](../../crimes/protagonists/vidal-sastre.md#at-least-four).
 - My male colleagues knew about that.
-- Although none of my colleagues will have known how I had been a target for criminal porn-gangs since 2003 when I came into a lot of money from the Lockerbie air terrorist attack compensation that they decided they would rob me of (and didn't, but instead made billions on non-consenting and sedated porn with me starring).
+- Although none of my colleagues will have known how I had been a target for [criminal porn-gangs since 2003](../early-years/2003.md#porn-fatwa) when I came into a lot of money from the Lockerbie air terrorist attack compensation that they decided they would rob me of (and didn't, but instead made billions on non-consenting and sedated porn with me starring).
 - Anyway, shortly after Bali, maybe the next week, Alicia leaves the firm.
 - Hurriedly. 
 - In her leaving note on Slack, she mentions *the worst thing in the world happened* at Bali, and how Sandeep Naiwal had helped her out at the time.
