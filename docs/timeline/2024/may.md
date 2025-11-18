@@ -616,23 +616,29 @@ function googleTranslateElementInit() {
 
 - One of the vilest things the porn-gangs do is to set women and against each other.
 - They do this relentlessly.
-- The [Ana love triangle](../2022/november.md#the-trumpet-teacher) myth is an excellent example from my story.
-- The gangs set women against each other like this so that a target feels they are unable to ask for help.
+- The [Ana love triangle](../2022/november.md#the-trumpet-teacher) myth is an excellent example from my story and notice the [switcheroo sedated-rape porn](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) wasn't able to get started before this essential manipulation technique was in place.
+- There were other examples: Trish of course, Chris BJ, all isolating tactics.
+- Online, the derogatory comments the hackers made about women, including Ana Trish and Chris BJ, were relentless.
+- The idiots even sent me pics of 100s of women they've likely murdered. I mean, you can't get more stupid than this, but they do it because they think women are idiots when they're simply terrified.
+- The gangs set women against each other like this so that a target of abuse feels they are unable to ask for help.
 - Women won't get together, talk, compare notes, and find out how much danger we are all in.
 - Alicia Katz worked at Polygon and was part of the bullying military coup operation that I complained about to both David Schwartz and Paul O'Leary.
-- At Bali, I was set up to *bump* into her a couple of times; one such time she was running towards a group of people and she looked extremely stressed, and I knew, they're targeting her too.
-- There were no other women at the conference apart from myself and Alicia who weren't with their husbands or were part of the administration team.
-- I can't think of one other woman.
+- Was she aware of the intentions behind what was going on? Perhaps not.
+- At Bali, I was set up to *bump* into Alicia a couple of times; one such time she was running towards a group of people, and it was timed to collide with me, and she looked extremely stressed and worried, and I knew immediately, they're targeting her too.
+- There were no other women at the conference apart from myself and Alicia who weren't either with their husbands or part of the administration team.
+- I can't think of one other woman in amongst hundreds of rabid porn-addicts.
 - Alicia and everyone else will have been persuaded to hate on me due to my women's rights activism.
 - She wouldn't have known about the spy-cam and sedating porn going on at my apartment in Denia at the time. I didn't know myself.
-- She certainly wouldn't have known how I had been starring in *switcheroo* porn at the conservatory of Denia since November 2022.
-- She most definitely wouldn't have known how I had been a target for criminal porn-gangs since 2003 when I came into a lot of money from the Lockerbie air disaster compensation.
-- Anyway, shortly after Bali, Alicia leaves the firm.
-- Suddenly. 
+- She certainly wouldn't have known how I had been starring online internationally in *switcheroo* porn at the conservatory of Denia since November 2022.
+- My male colleagues knew about that.
+- None of my colleagues will have known how I had been a target for criminal porn-gangs since 2003 when I came into a lot of money from the Lockerbie air disaster compensation that they decided they would rob me of (and didn't, but instead made billions on non-consenting and sedated porn with me starring).
+- Anyway, shortly after Bali, maybe the next week, Alicia leaves the firm.
+- Hurriedly. 
 - In her leaving note on Slack, she mentions "the worst thing in the world happened" at Bali, and how Sandeep Naiwal had really helped her out by getting her a new job.
-- I wonder what "the worst thing in the world" was and if it was sexual in content.
-- God help us I hope it wasn't something to do with the [threatening Pakistani Yorkshireman that I reported to Miriam already](#the-pakistani-yorkshire-man).
+- I wondered what "the worst thing in the world" was and if it was sexual in content.
+- God help us I hope it wasn't something to do with the [sexually threatening Pakistani Yorkshireman that I reported to Miriam already](#the-pakistani-yorkshire-man).
 - I have reached out to Alicia in case what happened to her at Bali is relevant to this story and to the global tech-bro porn conspiracy and bringing down the baby-rape and sex-murder capital of the world that organizes all of this for the tech-bro pornocracy.
+- The little town in Spain where even serial killers are safe.
 - She does not respond.
 
 ### Anthony
