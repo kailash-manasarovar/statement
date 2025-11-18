@@ -631,7 +631,7 @@ function googleTranslateElementInit() {
 - Other than that Alicia and the other handful of women were part of the marketing and administration teams.
 - Alicia, and everyone else, will have been persuaded to hate on me due to my women's rights activism.
 - She wouldn't have known about the spy-cam and sedating porn going on at my apartment in Dénia at the time. I didn't know myself.
-- She certainly wouldn't have known how I had been starring online internationally in *switcheroo* porn with teachers and staff at the conservatory of Dénia since November 2022.
+- She certainly wouldn't have known how I had been [starring online internationally in *switcheroo* porn with teachers and staff at the conservatory of Dénia since November 2022](../../crimes/protagonists/vidal-sastre.md#at-least-four).
 - My male colleagues knew about that.
 - Although none of my colleagues will have known how I had been a target for criminal porn-gangs since 2003 when I came into a lot of money from the Lockerbie air terrorist attack compensation that they decided they would rob me of (and didn't, but instead made billions on non-consenting and sedated porn with me starring).
 - Anyway, shortly after Bali, maybe the next week, Alicia leaves the firm.
