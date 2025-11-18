@@ -694,7 +694,7 @@ function googleTranslateElementInit() {
 
 ### My talk
 
-- I've been asked to give a talk at the conference and I have prepared one.
+- As a regular member of the online management team meeting, I’ve been asked to give a talk at the conference and I have prepared one.
 - They do not schedule my talk in and I ask about it.
 - At the last minute, I'm told I have a room and it's on the schedule on the last or second-to-last afternoon.
 - Hans, Anthony, and one other external colleague attend.
