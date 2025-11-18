@@ -694,8 +694,9 @@ function googleTranslateElementInit() {
 
 ### My talk
 
-- As a regular member of the online management team meeting, I’ve been asked to give a talk at the conference and I have prepared one.
-- They do not schedule my talk in and I ask about it.
+- As a regular member of the online management team meeting, I’m expected to give a talk at the conference and I have prepared one.
+- No-one has scheduled my talk in and so I ask about it.
+- It seems I wasn't part of the regular management team meeting for normal purposes, was I.
 - At the last minute, I'm told I have a room and it's on the schedule on the last or second-to-last afternoon.
 - Hans, Anthony, and one other external colleague attend.
 - Because of the external guy, I go ahead or I wouldn't have bothered.
