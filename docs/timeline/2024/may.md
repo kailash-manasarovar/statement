@@ -640,7 +640,7 @@ function googleTranslateElementInit() {
 - I wondered what *the worst thing in the world* was and if it was sexual in content.
 - God help us I hope it wasn't something to do with the [sexually threatening Pakistani Yorkshireman that I had reported to Miriam already](#the-pakistani-yorkshire-man).
 - I have reached out to Alicia in case what happened to her at Bali is relevant to this story and to the global tech-bro porn conspiracy, and to bringing down the baby-rape and sex-murder capital of the world that organizes all of this for the tech-bro pornocracy.
-- The little town in Spain where even [well-known serial killers are safe](../early-years/2007.md#hazel-smith).
+- The little town in Spain where even [world-famous serial killers are protected](../early-years/2007.md#hazel-smith).
 - She does not respond.
 
 ### Anthony
