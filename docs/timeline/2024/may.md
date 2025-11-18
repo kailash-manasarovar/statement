@@ -654,7 +654,7 @@ function googleTranslateElementInit() {
 
 [![You don't have to die](../../content/images/you-dont-have-to-die.jpg)](https://www.amazon.co.uk/Dont-Have-Anthony-Mpho-Matlala-ebook/dp/B00H2JPKRK/)
 
-- I wasn't able to read it, and then didn't want to when I realized really Anthony despised me along with everyone else, or he wasn't man enough to not be subsumed by the obvious evil supporting the attacks on me.
+- I wasn't able to read it, and then didn't want to when I realized Anthony despised me along with everyone else, or he wasn't man enough to not be subsumed by the obvious evil supporting the attacks on me.
 - Anyway.
 - The inevitable paranoia arising from my experiences at work and then back in Dénia completely isolated after Bali where I suffered even more poisoning, drugging, and attacks, made me wonder if the book was AI generated and part of the plot.
 - For a porn-gang target, whose normal law-abiding tax-paying daily life, and every human right she ever had, has been totally stripped away, including her health, sight, and mental capacity which have been obliterated by poison and drugs, the title seems to be something a pimp or violent male might say to a woman or child while threatening their life.
@@ -672,13 +672,20 @@ function googleTranslateElementInit() {
 
 - I have dinner with Hans one night.
 - I try very hard to be kind and friendly with him.
-- It's obvious he hates me and I will not be able to win him over.
-- *Oh they're really gonna go for you*, he says, when we talk about Hinduism versus Islam and other things.
+- He's seething, however, so it's really hard.
+- His tone suggests he thinks I'm worthless compared to himself.
+- It's obvious he hates me, perhaps all women, and I will not be able to win him over.
+- Hans likes anime, which may well explain his bitterness.
+- We talk about many things. 
+- Sometimes he let's information slip.
+- *Oh they're really gonna go for you*, he says, when we talk about Hinduism versus Islam.
 - I wonder who the *they* are that he is referring to.
-- Every time I'm going back to my room at night, Hans is waiting outside the approach to the rooms with one or another of the Chinese men.
+- Is he referring to Aziv, the [Pakistani Yorkshireman](#the-pakistani-yorkshire-man) and the burgeoning [military coup gang](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job)?
+- Every time I'm  heading back to my room after dinner, Hans is waiting outside the approach to the bedrooms with one or another of the Chinese men.
 - I say hi every time I see him there, late, talking.
-- I remark, *do you stay here all night Hans?*
-- I'm just wondering if he was asked to report on my movements as I had started to turn my phone off regularly.
+- I remark, *do you stay out here all night every night Hans?*
+- He seems to be texting on his phone whenever I walk up.
+- I wonder if he was asked to report on my movements as I had started to turn my phone off regularly and certainly out of office hours.
 
 ### My talk
 
