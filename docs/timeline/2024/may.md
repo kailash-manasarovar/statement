@@ -765,10 +765,13 @@ function googleTranslateElementInit() {
 
 ### Elon visits Bali the same week
 
-- Of course, Elon is in Bali that week.
-- One of my Spanish colleagues tells me, I look it up and it's true.
-- He's not that far from us either, apparently.
+- Of course, Elon is in Bali the same week as the Polygon conference, and in the same area apparently.
+- One of my Spanish colleagues tells me.
+- I look it up and it's true.
 - Coincidence?
+
+![Elon in Bali](../../content/images/elon-bali-1.jpg)
+![Elon in Bali](../../content/images/elon-bali-2.jpg)
 
 ## Collecting my devices from the technical expert DPR
 
