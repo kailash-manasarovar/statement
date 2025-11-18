@@ -733,24 +733,20 @@ function googleTranslateElementInit() {
 - My sight is still blurry today.
 - I was eventually [diagnosed with an unusual pre-glaucoma condition](november.md#pre-glaucoma-diagnosis) at Rutnin Eye Hospital in Bangkok in November 2024.
 
-### Team mutiny
-
-- No help given.
-- They want me to leave.
-
 ### Post-Bali
 
 - Polygon is done with me post-Bali.
-- Post-Bali, bullying continues over the following month after Bali where another employee, on Gabriel's orders, tries to pretend my systems are unusable, but he can't really and he just looks stupid. It's all in the Git records.
+- My team mutiny, led by Hans, and no-one on the management team does anything about it.
+- His behavior is utterly insubordinate and so outrageous I'm forced to stop calling team meetings as he sabotages them with (pretend?) rage.
+- Another employee, Jarrod Watts, on Gabriel's orders, tries to break what is [a very robust documentation system](https://squidfunk.github.io/mkdocs-material/) in order to *make it look like* my system is unusable, but he can't really and [his attempts make him look a bit stupid](https://github.com/jarrodwatts/polygon-docs/commits/main/?since=2024-06-21&until=2024-06-30). 
 - The implication, however, is that I am incompetent. And mud sticks.
-- This has been Gabriel's outward view of me since January after hearing from Grace Torrellas about my women's rights activities, and why, I assume, he stopped giving me any work at that time.
-- However, there is something much more sinister going on at Polygon and I believe colleagues were instructed to go for me as aggressively as they pleased as whatever they had needed me for in Bali was now over and they were keen I left the company, and quickly.
-- Bullying just got worse and worse for me after Bali with the intention, I believe, of me leaving, which I didn't.
-- The reason there are nearly 3000 issues in the [GitHub repo](https://github.com/0xPolygon/polygon-docs/issues) is because my job was hacked by my colleagues around the time they had had enough of whatever they were doing with me and were ready to get rid of me. Did they know I was about to be murdered?
-- Do they know that *switcheroo* involves long-term blinding of a target with poisons in her home so that she doesn't notice the slow deterioration of her sight, then drugging while it's happening so she can't make people out.
-- My sight is permanently maimed, by the way. I have little peripheral vision and everything is always blurry unless I'm wearing my reading glasses.
-- Will be checking this again soon, but very upset.
-- Do they know also that targets are long-term drugged - probably methanol I would say - so the blindness is exacerbated and they also lose their ability to make sensible decisions, and this is why I can't play chess anymore.
+- My system gets hacked by a script that creates thousands of issues in the [GitHub repo](https://github.com/0xPolygon/polygon-docs/issues) and I know it's an inside job.
+- Whatever Polygon had required from me in Bali was now over, and they were keen I left the company, and quickly.
+- Did they know I was about to be murdered?
+- Do they know that *switcheroo* involves long-term blinding of a target with poisons in her home so that she doesn't notice the slow deterioration of her sight, then drugging while it's happening so she can't make people out?
+- My sight appears to permanently maimed although I have faith in God's miracles.
+- I have very little peripheral vision and everything is always blurry unless I'm wearing my reading glasses.
+- Do they also know also that targets are long-term drugged - probably with methanol or anti-freeze I would say - so that blindness is exacerbated and we lose our cognitive skills including our ability to make sensible decisions about our lives?
 
 ### John Michael (JT)
 
