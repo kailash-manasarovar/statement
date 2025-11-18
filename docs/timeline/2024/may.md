@@ -614,7 +614,7 @@ function googleTranslateElementInit() {
 
 ### Alicia
 
-- One of the vilest things the porn-gangs do is to set women and against each other.
+- One of the vilest things the porn-gangs do is to set women and children against each other.
 - They do this relentlessly.
 - The [Ana love triangle](../2022/november.md#the-trumpet-teacher) myth is an excellent example from my story and notice the [switcheroo sedated-rape porn](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) wasn't able to get started before this essential manipulation technique was in place.
 - There were other examples: Trish of course, Chris BJ, all isolating tactics.
