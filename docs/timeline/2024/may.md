@@ -744,9 +744,9 @@ function googleTranslateElementInit() {
 - Whatever Polygon had required from me in Bali was now over, and they were keen I left the company, and quickly.
 - Did they know I was about to be murdered?
 - Do they know that *switcheroo* involves long-term blinding of a target with poisons in her home so that she doesn't notice the slow deterioration of her sight, then drugging while it's happening so she can't make people out?
-- My sight appears to permanently maimed although I have faith in God's miracles.
+- My sight appears to be permanently maimed, although I have faith in God's miracles.
 - I have very little peripheral vision and everything is always blurry unless I'm wearing my reading glasses.
-- Do they also know also that targets are long-term drugged - probably with methanol or anti-freeze I would say - so that blindness is exacerbated and we lose our cognitive skills including our ability to make sensible decisions about our lives?
+- Do they also know also that targets are long-term drugged - probably with methanol or anti-freeze - so that blindness is exacerbated and we lose our cognitive skills including our ability to make sensible decisions about our lives?
 
 ### John Michael (JT)
 
