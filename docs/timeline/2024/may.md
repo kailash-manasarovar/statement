@@ -614,18 +614,25 @@ function googleTranslateElementInit() {
 
 ### Alicia
 
-- One of the vilest things the porn-gang do is to set women and against each other.
-- It's essential they do this so we don't get together, compare notes, and find out about the evil.
-- Alicia Katz worked at Polygon and was part of the bullying I described to my manager (the CTO at the time that took over from David Schwartz) as a military coup operation.
-- At Bali, I was set up to "bump" into her a couple of times. 
-- I assume engineers at Polygon had the same sort of pinpoint location access to my physical whereabouts as did teachers and staff at the conservatory of Denia, and local townsfolk and porn-gang members.
-- I'm pretty sure, like most people at Polygon and elsewhere, she was persuaded to go along with bullying me because of my women's rights activities and concerns about child safeguarding. It's a common thing, whatever.
+- One of the vilest things the porn-gangs do is to set women and against each other.
+- They do this relentlessly.
+- The [Ana love triangle](../2022/november.md#the-trumpet-teacher) myth is an excellent example from my story.
+- The gangs set women against each other like this so that a target feels they are unable to ask for help.
+- Women won't get together, talk, compare notes, and find out how much danger we are all in.
+- Alicia Katz worked at Polygon and was part of the bullying military coup operation that I complained about to both David Schwartz and Paul O'Leary.
+- At Bali, I was set up to *bump* into her a couple of times; one such time she was running towards a group of people and she looked extremely stressed, and I knew, they're targeting her too.
+- There were no other women at the conference apart from myself and Alicia who weren't with their husbands or were part of the administration team.
+- I can't think of one other woman.
+- Alicia and everyone else will have been persuaded to hate on me due to my women's rights activism.
 - She wouldn't have known about the spy-cam and sedating porn going on at my apartment in Denia at the time. I didn't know myself.
-- Anyway, shortly after Bali, Alicia leaves the firm suddenly. 
-- In her leaving note, she mentions "the worst thing in the world happened" at Bali and how Sandeep Naiwal had really helped her out by getting her a new job.
+- She certainly wouldn't have known how I had been starring in *switcheroo* porn at the conservatory of Denia since November 2022.
+- She most definitely wouldn't have known how I had been a target for criminal porn-gangs since 2003 when I came into a lot of money from the Lockerbie air disaster compensation.
+- Anyway, shortly after Bali, Alicia leaves the firm.
+- Suddenly. 
+- In her leaving note on Slack, she mentions "the worst thing in the world happened" at Bali, and how Sandeep Naiwal had really helped her out by getting her a new job.
 - I wonder what "the worst thing in the world" was and if it was sexual in content.
 - God help us I hope it wasn't something to do with the [threatening Pakistani Yorkshireman that I reported to Miriam already](#the-pakistani-yorkshire-man).
-- I have reached out to Alicia in case what happened to her at Bali is relevant to this story and to the global tech-bro porn conspiracy overall.
+- I have reached out to Alicia in case what happened to her at Bali is relevant to this story and to the global tech-bro porn conspiracy and bringing down the baby-rape and sex-murder capital of the world that organizes all of this for the tech-bro pornocracy.
 - She does not respond.
 
 ### Anthony
