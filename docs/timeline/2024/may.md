@@ -625,7 +625,7 @@ function googleTranslateElementInit() {
 - The truth is that normally competent targets are usually too frightened, or too drugged and mentally maimed, to act appropriately.
 - The gangs set women against each other like this so that a target of abuse feels they are unable to ask for help.
 - Women won't get together, talk, compare notes, and find out exactly how much danger we are all in, from maybe every man we work with.
-- We can tell who isn't safe but we cannot tell which men are safe.
+- It's usually obvious which men aren't safe, but we cannot tell which men are. They don't announce it.
 - Alicia Katz worked at Polygon and was part of the [bullying military coup operation](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job) that I complained about to both David Schwartz and Paul O'Leary.
 - Was she aware of the true story behind what was going on? Perhaps not.
 - At Bali, I was set up to *bump* into Alicia a couple of times; one such time she was running towards a group of smiling people, perhaps David Schwartz and some of the Spanish men were amongst them.
