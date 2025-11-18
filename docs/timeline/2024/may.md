@@ -391,6 +391,7 @@ function googleTranslateElementInit() {
 - During the military coup-style approach they took on my job, mushroom man was speaking online one afternoon to Jaime about his lengthy experience with drugs and hallucinogens.
 - Was this so the porn gangs, or porn subscribers, monitoring my every move would know he was a *cool guy*?
 - Did someone tell Hudson Elon himself was watching me?
+- Is it possible Elon Musk is involved in the female-tech-colleague sedated-rape-porn conspiracy?
 - At the time, I thought the constant vicious behavior from staff at Polygon was due to my women's rights activities online, but it wasn't really that at all, although it's possible that's how the big important men justified it to everyone else.
 - I wonder why no-one told them I had been operating undercover for Interpol's OCG child-sex-trafficking department since 2017.
 
