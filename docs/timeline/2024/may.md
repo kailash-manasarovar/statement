@@ -383,7 +383,7 @@ function googleTranslateElementInit() {
 - I wonder who gave the original order for this. 
 - Was it David and Jordi; or their Spanish underlings?
 - Were the gangs live-streaming these constant *humiliations* as part of the porn genre?
-- Was this particular humiliation - like the [zkSync increasing terror](../2023/june.md#elon) set to build up while pressure on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023) - intended in the same way to build up pressure on the run up to [Bali](#bali)?
+- Was this particular humiliation - like the [zkSync increasing pressure](../2023/june.md#elon), building up in step with the Denia porn-gangs on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023) - intended in the same way to build up pressure in step on the run up to [Bali](#bali)?
 - Did Alicia, Ajay, and mushroom man know about the sedated spy-cam porn conspiracy, live-streaming from my apartment?
 - I bet Alicia didn't know.
 - It was horrible but, frankly, the actual criminal activity I was dealing with online, and at home in my apartment, and at the conservatory, was far worse; it made Polygon's marketing teams look like pipsqueaks.
