@@ -671,6 +671,9 @@ function googleTranslateElementInit() {
 ### Hans
 
 - I have dinner with Hans one night.
+
+![Hansraj Bodani](../../content/images/hansraj.jpg)
+
 - I try very hard to be kind and friendly towards him.
 - He's seething, however.
 - His tone suggests he thinks I'm worthless compared to himself.
@@ -686,6 +689,7 @@ function googleTranslateElementInit() {
 - I say hi every time I see him there, late, talking.
 - One night I remark, *do you stay out here all night every night Hans?*
 - He seems to be texting on his phone whenever I walk up.
+- It reminds me of Samuel's behavior.
 - I wonder if he was asked to report on my movements as I had started to turn my phone off regularly and certainly out of office hours, at least till I got back inside my room.
 
 ### My talk
