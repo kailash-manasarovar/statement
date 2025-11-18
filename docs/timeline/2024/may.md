@@ -696,14 +696,14 @@ function googleTranslateElementInit() {
 
 - I've been asked to give a talk at the conference and I have prepared one.
 - They do not schedule my talk in and I ask about it.
-- At the last minute, I'm told I have a room and it's on the schedule on the last day.
-- Hans, Anthony, and one other external man come.
+- At the last minute, I'm told I have a room and it's on the schedule on the last or second-to-last afternoon.
+- Hans, Anthony, and one other external colleagues come.
 - Because of the external guy, I go ahead or I wouldn't have bothered.
-- Hans starts heckling me immediately, everything I say he has some comment or put down.
-- He knows much more than me about everything.
+- Hans starts heckling me immediately, everything I say he has some comment or put down or he knows much more than me about everything.
+- I'm amazed.
 - The external guy looks amazed.
-- I finish the talk.
-- I say there is no point in doing the talk but I'm honestly just exhausted by Hans' behavior.
+- I finish the talk early.
+- I say there is no point in doing the talk but I'm honestly just exhausted by Hans' outrageous behavior.
 
 ### Chess with the Head of IT
 
