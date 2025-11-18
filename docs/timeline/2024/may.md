@@ -650,16 +650,22 @@ function googleTranslateElementInit() {
 
 - I liked Anthony Matlala, he seemed to be on my side at first but when things started getting really hard for me, he was nowhere to be seen.
 - I wonder if he was conspiring with David and Jordi. He had such reverence for them.
-- He is a Christian and he even wrote a book which I found online and bought.
-- You don't have to die: https://www.amazon.co.uk/Dont-Have-Anthony-Mpho-Matlala-ebook/dp/B00H2JPKRK/.
-- I wasn't able to read it, and then didn't want to when I realized how much Anthony despised me too.
-- The inevitable paranoia arising from my experiences made me wonder if the book was AI generated.
-- For a porn-gang target whose whole life and every human right she ever had has been totally stripped away from her, including her sight and mental capabilities due to poisoning and drugging, the title seems to be something a pimp or porn-gang member might say to a woman while threatening her very life.
-- A curious choker-seed for when my life is truly threatened after I'm caught up in the intended honey-trap relationship where they take my considerable wealth, the only thing I have left, and probably with [number 3 trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), although I'm told they intended to split my wealth up amongst themselves.
+- Anthony is Christian and he even wrote a faith-based book which I found online and bought.
+
+[![You don't have to die](../../content/images/you-dont-have-to-die.jpg)](https://www.amazon.co.uk/Dont-Have-Anthony-Mpho-Matlala-ebook/dp/B00H2JPKRK/)
+
+- I wasn't able to read it, and then didn't want to when I realized really Anthony despised me along with everyone else, or he wasn't man enough to not be subsumed by the obvious evil supporting the attacks on me.
+- Anyway.
+- The inevitable paranoia arising from my experiences at work and then back in Dénia completely isolated after Bali where I suffered even more poisoning, drugging, and attacks, made me wonder if the book was AI generated and part of the plot.
+- For a porn-gang target, whose normal law-abiding, tax-paying daily life and every human right she ever had has been totally stripped away, including her health, sight, and mental capacity obliterated by poison and drug, the title seems to be something a pimp or violent male might say to a woman while threatening her life.
+- The title read like a curious choker-seed for when my life is truly threatened after I'm caught up in the intended honey-trap relationship where they take my considerable wealth, the only thing I have left, and probably set me up with [number 3 trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), a man who has father countless children in the region, I'm told: porn-fodder no doubt.
+- I was informed the gang intended to split my stolen wealth up amongst themselves, they may have even waited for the house in North London.
+- It's what they do.
+- Anyways.
 - Spiritually, I fully agree with the title of Anthony's book. 
-- It's true in fact and, in my view, the cornerstone of Christ's message.
+- It's a true statement in fact and, in my view, the cornerstone of Christ's message.
 - Anthony and I have a drink together one evening after dinner at Bali.
-- I weep.
+- I weep without knowing why.
 - Anthony walks me to my bedroom door again that night.
 
 ### Hans
