@@ -689,7 +689,7 @@ function googleTranslateElementInit() {
 - I say hi every time I see him there, late, talking.
 - One night I remark, *do you stay out here all night every night Hans?*
 - He seems to be texting on his phone whenever I walk up.
-- It reminds me of Samuel's behavior.
+- It reminds me of Samuel's behavior at the conservatory, keeping tabs on me for Domingo.
 - I wonder if he was asked to report on my movements as I had started to turn my phone off regularly and certainly out of office hours, at least till I got back inside my room.
 
 ### My talk
