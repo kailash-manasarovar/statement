@@ -769,6 +769,7 @@ function googleTranslateElementInit() {
 - One of my Spanish colleagues tells me.
 - I look it up and it's true.
 - Coincidence?
+- I do hope so.
 
 ![Elon in Bali](../../content/images/elon-bali-1.jpg)
 ![Elon in Bali](../../content/images/elon-bali-2.jpg)
