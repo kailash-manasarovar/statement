@@ -751,9 +751,8 @@ function googleTranslateElementInit() {
 ### John Michael (JT)
 
 - When we get back from Bali, a few days later there is a chat on Slack about John Michael.
-- Someone has nominated him for being the best tech employee ever and Bali is mentioned.
-- I agree. 
-- John Michael is indeed a lovely man.
+- Someone has nominated him for being the best tech employee ever and especially in Bali for some reason.
+- I agree on Slack. John Michael is indeed a lovely man.
 - Are they all laughing at me triumphantly when I say so?
 
 ### Tips for investigators
