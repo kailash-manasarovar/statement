@@ -386,7 +386,7 @@ function googleTranslateElementInit() {
 - Was this particular humiliation - like the [zkSync increasing terror](../2023/june.md#elon) set to build up while pressure on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023) - intended in the same way to build up pressure on the run up to [Bali](#bali)?
 - Did Alicia, Ajay, and mushroom man know about the sedated spy-cam porn conspiracy, live-streaming from my apartment?
 - I bet Alicia didn't know.
-- It was horrible but frankly what I was dealing with online, and at home in my apartment, and at the conservatory was far worse; it made the marketing team at Polygon's bullying capabilities look a little pip-squeaky, at least to me.
+- It was horrible but, frankly, the actual criminal activity I was dealing with online, and at home in my apartment, and at the conservatory, was far worse; it made Polygon's marketing teams look like pipsqueaks.
 - I ask for help from my managers. I'm ignored.
 - During the military coup-style approach they took on my job, mushroom man was speaking online one afternoon to Jaime about his lengthy experience with drugs and hallucinogens.
 - Was this so the porn gangs, or porn subscribers, monitoring my every move would know he was a *cool guy*?
