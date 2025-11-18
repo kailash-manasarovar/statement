@@ -672,7 +672,7 @@ function googleTranslateElementInit() {
 
 - I have dinner with Hans one night.
 - I try very hard to be kind and friendly towards him.
-- He's seething, however, so it's really hard.
+- He's seething, however.
 - His tone suggests he thinks I'm worthless compared to himself.
 - It's obvious he hates me, perhaps all women, and I will not be able to win him over.
 - Hans likes anime, which may well explain his bitterness.
