@@ -754,12 +754,15 @@ function googleTranslateElementInit() {
 - Someone has nominated him for being the best tech employee ever and Bali is mentioned.
 - I agree. 
 - John Michael is indeed a lovely man.
-- Are they laughing at me?
+- Are they all laughing at me triumphantly when I say so?
 
 ### Tips for investigators
 
-- Check with the conference team and hotel what special requirements were made for certain people's rooms, such as mine and JTs, and Alicia's, perhaps all the women attendees (about 5% of total attendees).
-- Also check the guest list and attendees for any Spaniard, male or female, who may be linked to poisoning and sedating tech as this would have had to have been done by experts; it is ridiculously unlikely that porn-addict crypto tech-workers would have the knowledge and skill to sedate a target in the same way as the criminal honey-trappers and porn-gangs have been doing for decades (see also the highly professional McCann sedating and kidnap); someone who knows how to add sedating substances to cooling systems, for example, or is skilled in [distraction and poisoning techniques](../2025/july.md#lourdes) and may have been laying in wait to meet me, say hi, and drug me just before I went to bed.
+- Check with the conference team and hotel what special requirements were made for certain people's rooms; such as mine and JTs, and Alicia's, perhaps all the women attendees (about 5% of total attendees).
+- Also check the guest list and attendees for any Spaniard, male or female, who may be linked to poisoning and sedating tech as this would have had to have been done by experts; it is ridiculously unlikely that porn-addict crypto tech-workers would have the knowledge and skill to sedate a target in the same way as the criminal honey-trappers and porn-gangs have been doing for decades (see also the highly professional McCann sedating and kidnap).
+- It will have been someone who knows how to add sedating substances to cooling systems, for example, or is skilled in [distraction and poisoning techniques](../2025/july.md#lourdes) and may have been laying in wait to meet me, say hi, and drug me just before I went to bed.
+- It may be the [same man involved in the distract-and-drug](april.md#drugged-in-the-street-by-denia-gypsies) because for some bizarre reason they like to tell me everything.
+- I expect this means that *everyone* expected me to die fairly soon after Bali.
 
 ### Elon visits Bali the same week
 
