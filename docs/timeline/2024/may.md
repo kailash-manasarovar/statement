@@ -618,10 +618,10 @@ function googleTranslateElementInit() {
 - They do this relentlessly.
 - The [Ana love triangle](../2022/november.md#the-trumpet-teacher) myth is an excellent example from my story and notice the [switcheroo sedated-rape porn](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) wasn't able to get started before this essential manipulation technique was in place.
 - There were other examples: Trish of course, Chris BJ, all isolating tactics.
-- Online, the derogatory comments the hackers made about women, including Ana Trish and Chris BJ, were relentless.
+- Online, the derogatory comments the hackers made about women, including Ana Trish and Chris BJ, were also relentless.
 - The idiots even sent me pics of 100s of women they've likely murdered. I mean, you can't get more stupid than this, but they do it because they think we're the idiots. The truth is that targets are usually too frightened to act appropriately.
 - The gangs set women against each other like this so that a target of abuse feels they are unable to ask for help.
-- Women won't get together, talk, compare notes, and find out how much danger we are all in, from maybe every man we work with.
+- Women won't get together, talk, compare notes, and find out exactly how much danger we are all in, from maybe every man we work with.
 - We can tell who isn't safe but we cannot tell which men are safe.
 - Alicia Katz worked at Polygon and was part of the bullying military coup operation that I complained about to both David Schwartz and Paul O'Leary.
 - Was she aware of the intentions behind what was going on? Perhaps not.
