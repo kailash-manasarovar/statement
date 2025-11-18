@@ -658,7 +658,7 @@ function googleTranslateElementInit() {
 - Anyway.
 - The inevitable paranoia arising from my experiences at work and then back in Dénia completely isolated after Bali where I suffered even more poisoning, drugging, and attacks, made me wonder if the book was AI generated and part of the plot.
 - For a porn-gang target, whose normal law-abiding tax-paying daily life, and every human right she ever had, has been totally stripped away, including her health, sight, and mental capacity which have been obliterated by poison and drugs, the title seems to be something a pimp or violent male might say to a woman or child while threatening their life.
-- The title read like a curious choker-seed for when my life is truly threatened after I'm caught up in the intended honey-trap relationship where they take my considerable wealth, the only thing I have left, and probably set me up with [number 3 trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), a man who has father countless children in the region, I'm told: porn-fodder no doubt.
+- The title read like a curious choker-seed for when my life is truly threatened after I'm caught up in the intended honey-trap relationship where they take my considerable wealth, the only thing I have left, and probably set me up with [number 3 trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), a man who has fathered countless children in the region, I'm told: all of them porn-fodder no doubt.
 - I was informed the gang intended to split my stolen wealth up amongst themselves, they may have even waited for the house in North London.
 - It's what they do.
 - Anyways.
