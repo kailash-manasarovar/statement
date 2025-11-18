@@ -706,21 +706,30 @@ function googleTranslateElementInit() {
 - I finish the talk early.
 - I say there is no point in doing the talk, but I'm honestly just exhausted by Hans' outrageous behavior.
 
-### Chess with the Head of IT
+### Chess with the Head of Security Mudit
 
-- I play chess at dinner with the Head of IT.
-- This is the first time I notice my chess playing is appalling; I'm rubbish, below average.
-- This is not like me at all.
-- At the time, I just put it down to a *one off* scenario.
-- In September, when I join Chess.com, I find out that my cognitive left-brain skills required to be a good chess player are all but disappeared.
+- One evening, I play a game of chess at dinner with the Head of IT Security Mudit Gupta.
+- This is the first time I have played chess in years.
+- The last time I played, in 2018, was in a tournament at Goldman Sachs where I was contracting.
+- I beat all the men and won the tournament!
+- In Bali, I expect to play in the same way I always have, well.
+- I even tell the men at the table that I'm good.
+- However, I lose quickly and quite badly.
+- This is the first time I notice my chess playing is appalling; I'm rubbish, below average even.
+- I can't see any moves in advance, or remember the moves from before.
+- This is not like me, at all.
+- At the time, I put it down to a *one off* scenario and think nothing more of it.
+- In September, when I join Chess.com, I find out that the cognitive left-brain skills required to be a good chess player are all but disappeared due to constant poisoning and drugging over three years while I lived at my spy-cam porn-networked apartment in Carrer Furs, Dénia, Alicante, Spain.
+- My spatial awareness and some cognitive skills have also been completely obliterated by the porn-gangs constant drugging and poisoning.
 
 ### Eye troubles
 
-- I meet people, or they are pointed out to me, but I'm struggling to remember them when I meet them again.
-- It's like everyone's face is a bit blurry and the same.
+- In Bali, I meet people, or they are pointed out to me, but I'm struggling to remember them when I see them again.
+- It's like everyone's face is a bit blurry.
 - The founder Sandeep is annoyed that I don't know who he is, and I met him only the day before.
 - The following day I do not recognize him again.
 - Everyone talks to me like I'm the antichrist, and any tiny defect seems to be proof of it, this included.
+- Do they know I'm being intentionally blinded by poison for the [switcheroo porn specials](../../crimes/protagonists/vidal-sastre.md#four-distinct-men)?
 
 ### Team mutiny
 
