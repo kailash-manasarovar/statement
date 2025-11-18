@@ -671,7 +671,7 @@ function googleTranslateElementInit() {
 ### Hans
 
 - I have dinner with Hans one night.
-- I try very hard to be kind and friendly with him.
+- I try very hard to be kind and friendly towards him.
 - He's seething, however, so it's really hard.
 - His tone suggests he thinks I'm worthless compared to himself.
 - It's obvious he hates me, perhaps all women, and I will not be able to win him over.
@@ -681,11 +681,12 @@ function googleTranslateElementInit() {
 - *Oh they're really gonna go for you*, he says, when we talk about Hinduism versus Islam.
 - I wonder who the *they* are that he is referring to.
 - Is he referring to Aziv, the [Pakistani Yorkshireman](#the-pakistani-yorkshire-man) and the burgeoning [military coup gang](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job)?
-- Every time I'm  heading back to my room after dinner, Hans is waiting outside the approach to the bedrooms with one or another of the Chinese men.
+- I'm surprised Hans is not on my side. I have told him about my Hanuman devotion after all.
+- Every time I'm heading back to my room after dinner, Hans is waiting outside the approach to the bedrooms with one or another of the Chinese men.
 - I say hi every time I see him there, late, talking.
-- I remark, *do you stay out here all night every night Hans?*
+- One night I remark, *do you stay out here all night every night Hans?*
 - He seems to be texting on his phone whenever I walk up.
-- I wonder if he was asked to report on my movements as I had started to turn my phone off regularly and certainly out of office hours.
+- I wonder if he was asked to report on my movements as I had started to turn my phone off regularly and certainly out of office hours, at least till I got back inside my room.
 
 ### My talk
 
