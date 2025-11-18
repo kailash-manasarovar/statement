@@ -730,6 +730,8 @@ function googleTranslateElementInit() {
 - The following day I do not recognize him again.
 - Everyone talks to me like I'm the antichrist, and any tiny defect seems to be proof of it, this included.
 - Do they know I'm being intentionally blinded by poison for the [switcheroo porn specials](../../crimes/protagonists/vidal-sastre.md#four-distinct-men)?
+- My sight is still blurry today.
+- I was eventually [diagnosed with an unusual pre-glaucoma condition](november.md#pre-glaucoma-diagnosis) at Rutnin Eye Hospital in Bangkok in November 2024.
 
 ### Team mutiny
 
