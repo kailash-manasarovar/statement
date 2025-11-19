@@ -448,7 +448,7 @@ function googleTranslateElementInit() {
 - Is the trumpet teacher I am in love with working for good and standing with me against the baby rapists after all?
 - On arrival at Bali I meet some colleagues. 
 - Everyone seems happy to see me, chatty and friendly.
-- Expectant, maybe, cos the good vibes do not last.
+- There is something strange here because I'm met by the Turkish guy from New York who works closely with Gabriel Silva and has always been rather cold and abrupt with me up to this moment. In July this man will actually organize a gang-stalk on me on Slack with multiple members of the company. He works a lot from David Silverman's dad's office, he told me at the airport.
 
 ### Arriving at the hotel
 
@@ -780,14 +780,12 @@ function googleTranslateElementInit() {
 - Prep?
 - Or is it all coincidence?
 - I do hope so.
-- Certainly, hackers and cyber-stalkers were [*extremely active and communicative* over this time with me](https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-05-20%20since%3A2024-05-11&src=typed_query&f=live).
+- Certainly, hackers and cyber-stalkers were [*extremely active and communicative* with me during the Bali conference](https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-05-20%20since%3A2024-05-11&src=typed_query&f=live).
 
 [![Hackers communicating at Bali](../../content/tweets/may-2024/hackers-communicating-at-bali.jpg)](https://x.com/1FRGVN/status/1792058199774007377)
 
 - Why?
-
-![Elon in Bali](../../content/images/elon-bali-1.jpg)
-![Elon in Bali](../../content/images/elon-bali-2.jpg)
+- I tweet a lot about Elon, in fact, in what I find in retrospect to be an extremely curious manner.
 
 [![Elon's pants](../../content/tweets/may-2024/elons-pants.jpg)](https://x.com/1FRGVN/status/1792165847425016207)
 
@@ -801,8 +799,10 @@ function googleTranslateElementInit() {
 
 [![About to meet Elon](../../content/tweets/may-2024/about-to-meet-elon.jpg)](https://x.com/1FRGVN/status/1791476434873315632)
 
-- You have to admit, these tweets are curious aren't they.
-- All this does make me wonder about the PornHub connection.
+- Proof I was turning my phone off regularly and perhaps would [have needed a lookout](#hans) if I was *sought after* for something.
+- You have to admit, these tweets are curious aren't they, especially considering my latent psychic abilities when ingesting whatever hallucinogens the gypsies had me high on for years and years.
+- Is it a normal reaction for people who are constantly sedated and assaulted to have memories bubble up, as it were?
+- All this does make me wonder about the PornHub connection and how easy it is to connect up a network of porn-addict tech workers.
 - [Aziv the sexual terrorist](#the-pakistani-yorkshire-man) was delighted to tell us about his PornHub account.
 - [Samuel](../2022/october.md#sam-shares-some-files-with-me) had probably been advised to tell me about a *different* porn network, Max Power, probably also part of the conspiracy, but a redirect from something bigger and more mainstream like PornHub whereby men all over the world might recognize a target.
 - Furthermore, I was always *warned off* getting involved with the [Justice Defense Fund](https://justicedefensefund.org/) and Laila Micklewait by fake accounts spreading lies about the founder, and other things.
