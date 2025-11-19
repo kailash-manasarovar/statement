@@ -766,6 +766,7 @@ function googleTranslateElementInit() {
 ### Elon visits Bali the same week
 
 - Of course, Elon is in Bali the same week as the Polygon conference, and in the same area apparently.
+- It's not clear exactly what for; giving a talk at a random community water project, or something?
 - One of my Spanish colleagues tells me.
 - I look it up and it's true.
 - Coincidence?
@@ -774,8 +775,17 @@ function googleTranslateElementInit() {
 ![Elon in Bali](../../content/images/elon-bali-1.jpg)
 ![Elon in Bali](../../content/images/elon-bali-2.jpg)
 
+- All this does make me wonder about the PornHub connection.
+- [Aziv the sexual terrorist](#the-pakistani-yorkshire-man) was delighted to tell us about his PornHub account.
+- [Samuel](../2022/october.md#sam-shares-some-files-with-me) had probably been advised to tell me about a *different* porn network, Max Power, probably also part of the conspiracy, but a redirect from something bigger and more mainstream like PornHub whereby men all over the world might recognize a target.
+- Furthermore, I was always *warned off* getting involved with the [Justice Defense Fund](https://justicedefensefund.org/) and Laila Micklewait by fake accounts spreading lies about the founder, and other things.
+- Coincidence?
+- If the *female-tech-colleague-sedated-rape-porn* genre was to have enough reach to be a viable business, it would have to have been broadcast on mainstream porn networks unless the criminal networks are running mainstream in the same way and no-one cares, which would not surprise me one bit.
+
 !!! tip "Curiouser and curiouser, said Alice"
-    - All the references online state he arrived on the 19th May, which was when the day we left, but I had understood at the time he had been there at least a couple of days earlier.
+    - All the references on my online search today state he arrived on the 19th May, which was when the day we left, but I had understood at the time he had been there at least a couple of days earlier.
+    - They're still at it, aren't they, feverishly trying to pretend they have the moral backbone to lead the world out of hell.
+    - Looks to me they're leading us right into the hottest bit, most willingly.
 
 ## Collecting my devices from the technical expert DPR
 

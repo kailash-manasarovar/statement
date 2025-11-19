@@ -20,6 +20,7 @@ function googleTranslateElementInit() {
     - He did not answer my question.
     - I now believe this was another [choker seed](march.md#planting-the-choker-seeds).
     - There were continual references on X via fake accounts, and on manipulated Google search results, throughout 2023 and 2024 to the porn brand Max Power.
+    - I write about [Max Power in January 2025](../2025/january.md#max-power), but is this just a distraction from more mainstream porn networks like PornHub perhaps?
     - This choker seed may explain why Samuel simply stopped talking to me after my ['funeral' on 12th June 2023](../2023/june.md#monday-12th-june-2023) at the end of the 3rd year. 
     - I was not supposed to return to the conservatory after that and people like Samuel, who had been helping the criminal gangs out, would have finished their obligations and been paid, I suspect, and probably wanted nothing more to do with the ongoing crimes.
 
