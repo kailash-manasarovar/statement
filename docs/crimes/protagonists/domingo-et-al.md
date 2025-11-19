@@ -45,9 +45,11 @@
 
 ![Paqui Fornet Pastor 1](../../content/images/fake-accounts/paqui1.png)
 
-### Gloria the receptionist
+### Gloria the school receptionist
 
 ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
+
+- Possibly a close relation to the [third man of the set](vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of); school receptionist an ideal job.
 
 ### Ana Requena 
 
