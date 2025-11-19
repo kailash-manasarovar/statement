@@ -116,6 +116,10 @@ function googleTranslateElementInit() {
 - And I realized even later that this was [the man who told me how everyone got used to the yoga teacher's relaxing horror-show music](../early-years/2015.md#nati-de-prati-yoga) back in 2015.
 - Ana barks *Hola* to me. 
 - I find this event utterly ironic, and I wonder if all Spanish people are psychopaths.
+- In Bali, I see a tweet that suggests indeed the Spanish are pedophilic-psychopaths and have normalized the worst.
+
+[![Spanish anal sex kids book](../../content/tweets/may-2024/doomed-spanish.jpg)](https://x.com/1FRGVN/status/1791675550060138628)
+
 - I tweet about this event at in July in response to a tweet from, you know who, [`@january_myth`](march/13-end.md#january_myth).
 
 [![Husky event](../../content/tweets/may-2024/husky.jpg)](https://x.com/1FRGVN/status/1817284269238014428)
@@ -449,7 +453,8 @@ function googleTranslateElementInit() {
 ### Arriving at the hotel
 
 - My hotel room is next to John Michael from IT support.
-- I reported my concerns about hacking to him previously.
+- There is locked connecting door which I am unable to double lock from my side.
+- I reported my concerns about hacking to him in January.
 
 ### Bullying at the conference
 
@@ -769,11 +774,28 @@ function googleTranslateElementInit() {
 - It's not clear exactly what for; giving a talk at a random community water project, or something?
 - One of my Spanish colleagues tells me.
 - I look it up and it's true.
-- Coincidence?
+- I wonder if this is the reason behind all the contact from [fake Elon accounts](#telegramsignal) over the past month and onward.
+- Prep?
+- Or is it all coincidence?
 - I do hope so.
+- Certainly, hackers and cyber-stalkers were [*extremely active and communicative* over this time with me](https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-05-20%20since%3A2024-05-11&src=typed_query&f=live).
+
+[![Hackers communicating at Bali](../../content/tweets/may-2024/hackers-communicating-at-bali.jpg)](https://x.com/1FRGVN/status/1792058199774007377)
+
+- Why?
 
 ![Elon in Bali](../../content/images/elon-bali-1.jpg)
 ![Elon in Bali](../../content/images/elon-bali-2.jpg)
+
+[![Elon's pants](../../content/tweets/may-2024/elons-pants.jpg)](https://x.com/1FRGVN/status/1792165847425016207)
+
+[![Elon's icecream](../../content/tweets/may-2024/elons-icecream.jpg)](https://x.com/1FRGVN/status/1791872192168477081)
+
+[![What to do with Elon](../../content/tweets/may-2024/elon-bali-hai.jpg)](https://x.com/1FRGVN/status/1791731548221256160)
+
+[![Shout out to porn bros](../../content/tweets/may-2024/shout-out-to-porn-bros.jpg)](https://x.com/1FRGVN/status/1791490587629334818)
+
+[![Elon's lightbulb](../../content/tweets/may-2024/elon-lightbulb.jpg)](https://x.com/1FRGVN/status/1791489171628171680)
 
 - All this does make me wonder about the PornHub connection.
 - [Aziv the sexual terrorist](#the-pakistani-yorkshire-man) was delighted to tell us about his PornHub account.
@@ -786,6 +808,10 @@ function googleTranslateElementInit() {
     - All the references on my online search today state he arrived on the 19th May, which was when the day we left, but I had understood at the time he had been there at least a couple of days earlier.
     - They're still at it, aren't they, feverishly trying to pretend they have the moral backbone to lead the world out of hell.
     - Looks to me they're leading us right into the hottest bit, most willingly.
+
+- I thank God for guiding me through, for His purposes, and protecting me and teaching me to heal.
+
+[![God](../../content/tweets/may-2024/only-god.jpg)](https://x.com/1FRGVN/status/1792130233975644212)
 
 ## Collecting my devices from the technical expert DPR
 
