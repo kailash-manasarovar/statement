@@ -855,7 +855,12 @@ function googleTranslateElementInit() {
 
 ### `@1frgvn`
 
-- https://x.com/1FRGVN/status/1794467120207765821
+- Why am I up after 3am reminding everyone I've been hacked with key-loggers for nearly a year, or I should say for nearly a year they've wanted me to know about it? I'd say I've been key-logged probably since 2005 or earlier even, as soon as I got a [wad of cash](../early-years/2007.md#hazel-smith) I dare say.
+
+[![When they took over my keyboard](../../content/tweets/may-2024/reminding-everyone-im-hacked.jpg)](https://x.com/1FRGVN/status/1794467120207765821)
+
+- Is this evidence of another townsfolk soiree back at mine?
+
 - Search URL: https://x.com/search?f=live&q=(from%3A1frgvn)%20until%3A2024-05-31%20since%3A2024-05-01&src=typed_query
 
 ### `@JackChardwood`
