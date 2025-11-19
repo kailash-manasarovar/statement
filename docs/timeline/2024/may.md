@@ -817,7 +817,7 @@ function googleTranslateElementInit() {
     - They're still at it, aren't they, feverishly trying to pretend they have the moral backbone to lead the world out of hell.
     - Looks to me they're leading us right into the hottest bit, most willingly.
 
-- I thank God for guiding me through, for His purposes, and protecting me and teaching me to heal.
+- I thank God for guiding me through, for His purposes, and for protecting me and teaching me to heal.
 
 [![God](../../content/tweets/may-2024/only-god.jpg)](https://x.com/1FRGVN/status/1792130233975644212)
 
