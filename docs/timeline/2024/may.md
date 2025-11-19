@@ -785,7 +785,7 @@ function googleTranslateElementInit() {
 [![Hackers communicating at Bali](../../content/tweets/may-2024/hackers-communicating-at-bali.jpg)](https://x.com/1FRGVN/status/1792058199774007377)
 
 - Why?
-- I tweet a lot about Elon, in fact, in what I find in retrospect to be an extremely curious manner.
+- I tweet a lot about Elon in what I find an extremely curious manner.
 
 [![Elon's pants](../../content/tweets/may-2024/elons-pants.jpg)](https://x.com/1FRGVN/status/1792165847425016207)
 
@@ -800,12 +800,15 @@ function googleTranslateElementInit() {
 [![About to meet Elon](../../content/tweets/may-2024/about-to-meet-elon.jpg)](https://x.com/1FRGVN/status/1791476434873315632)
 
 - Proof I was turning my phone off regularly and perhaps would [have needed a lookout](#hans) if I was *sought after* for something.
-- You have to admit, these tweets are curious aren't they, especially considering my latent psychic abilities when ingesting whatever hallucinogens the gypsies had me high on for years and years.
-- Is it a normal reaction for people who are constantly sedated and assaulted to have memories bubble up, as it were?
-- All this does make me wonder about the PornHub connection and how easy it is to connect up a network of porn-addict tech workers.
+- You have to admit, these tweets are curious aren't they, especially considering my emergent and latent psychic abilities coming from ingesting whatever hallucinogens the gypsies had me high on for years.
+- Is it also a normal trauma reaction for people who are constantly sedated and assaulted to have memories bubble up, as it were?
+- All this does make me wonder about the PornHub connection and how easy it is to connect up a network of porn-addict tech-bros.
 - [Aziv the sexual terrorist](#the-pakistani-yorkshire-man) was delighted to tell us about his PornHub account.
 - [Samuel](../2022/october.md#sam-shares-some-files-with-me) had probably been advised to tell me about a *different* porn network, Max Power, probably also part of the conspiracy, but a redirect from something bigger and more mainstream like PornHub whereby men all over the world might recognize a target.
-- Furthermore, I was always *warned off* getting involved with the [Justice Defense Fund](https://justicedefensefund.org/) and Laila Micklewait by fake accounts spreading lies about the founder, and other things.
+- Furthermore, I was always *warned off* getting involved with the [Justice Defense Fund](https://justicedefensefund.org/) and Laila Mickelwait by fake accounts spreading lies about the founder, and other things.
+
+[![Laila Mickelwait](../../content/tweets/may-2024/laila-m.jpg)](https://x.com/LailaMickelwait)
+
 - Coincidence?
 - If the *female-tech-colleague-sedated-rape-porn* genre was to have enough reach to be a viable business, it would have to have been broadcast on mainstream porn networks unless the criminal networks are running mainstream in the same way and no-one cares, which would not surprise me one bit.
 
