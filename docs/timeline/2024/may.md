@@ -810,7 +810,7 @@ function googleTranslateElementInit() {
 [![Laila Mickelwait](../../content/tweets/may-2024/laila-m.jpg)](https://x.com/LailaMickelwait)
 
 - Coincidence?
-- If the *female-tech-colleague-sedated-rape-porn* genre was to have enough reach to be a viable business, it would have to have been broadcast on mainstream porn networks unless the criminal networks are running mainstream in the same way and no-one cares, which would not surprise me one bit.
+- If the *female-tech-colleague-sedated-rape-porn* genre was to have enough reach to be a viable business, it would have to have been broadcast on mainstream porn networks; unless criminal porn networks are fully mainstream and no-one cares, which would not surprise me one bit.
 
 !!! tip "Curiouser and curiouser, said Alice"
     - All the references on my online search today state he arrived on the 19th May, which was when the day we left, but I had understood at the time he had been there at least a couple of days earlier.
