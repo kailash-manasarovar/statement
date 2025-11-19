@@ -583,6 +583,8 @@ function googleTranslateElementInit() {
 - I find it a bit weird and tell him he doesn't have to do this (it's a five metre walk along a narrow path where everyone can see you anyway).
 - He insists.
 
+[![Everything is marketing](../../content/tweets/may-2024/everything-is-marketing.jpg)](https://x.com/1FRGVN/status/1790407485670789557)
+
 ### The security guy knows something
 
 - Gordon Bishop from the security team helped me with my [hacked work laptop](march/1-12.md#reporting-hacking-to-polygon-labs) in March.
@@ -797,6 +799,9 @@ function googleTranslateElementInit() {
 
 [![Elon's lightbulb](../../content/tweets/may-2024/elon-lightbulb.jpg)](https://x.com/1FRGVN/status/1791489171628171680)
 
+[![About to meet Elon](../../content/tweets/may-2024/about-to-meet-elon.jpg)](https://x.com/1FRGVN/status/1791476434873315632)
+
+- You have to admit, these tweets are curious aren't they.
 - All this does make me wonder about the PornHub connection.
 - [Aziv the sexual terrorist](#the-pakistani-yorkshire-man) was delighted to tell us about his PornHub account.
 - [Samuel](../2022/october.md#sam-shares-some-files-with-me) had probably been advised to tell me about a *different* porn network, Max Power, probably also part of the conspiracy, but a redirect from something bigger and more mainstream like PornHub whereby men all over the world might recognize a target.
