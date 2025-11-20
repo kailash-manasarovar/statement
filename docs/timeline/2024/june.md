@@ -11,8 +11,10 @@ function googleTranslateElementInit() {
 ## Lourdes
 
 - I spend two weeks in Lourdes.
-- I have my laptop and I'm working from my hotel room and visiting the grotto every day to pray.
-- I'm asking Mary to help me with the inexplicable and ferocious evil that surrounds me from all side; at home, in Dénia, and at work.
+- I have my laptop and I'm working from my hotel room.
+- I visit the grotto every day to pray.
+- I ask Mary to help me with the inexplicable and ferocious evil that surrounds me from all sides; at home, in Dénia, and at work.
+- She delivers, as usual.
 
 ### Polygon
 
