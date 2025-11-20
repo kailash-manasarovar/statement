@@ -119,7 +119,7 @@ function googleTranslateElementInit() {
 
 [![Bringing down the porn-gangs](../../content/tweets/june-2024/what-politics-can-do-about-terrorism.jpg)](https://x.com/1FRGVN/status/1801532892847214694)
 
-- I also want to recommend standing for office to any woman being terrorized by men.
+- I also want to wholly recommend standing for office to any woman being terrorized by men. It'll do a million times more to keep you safe than going to the police.
 
 ## Taking two-weeks vacation from Polygon
 
