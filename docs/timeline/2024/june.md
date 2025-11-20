@@ -123,19 +123,20 @@ function googleTranslateElementInit() {
 
 ## Taking two-weeks vacation from Polygon
 
-- My team at Polygon has become unmanageable.
+- Post-[Bali](may.md#bali), my team at Polygon has become unmanageable.
 - Hans' behavior is so unbelievably rude, he should be fired on the spot.
 - Due to, I believe at the time, no-one doing anything about Hans, Anthony had also become insubordinate.
-- I now believe they were instructed to behave this way towards me. I had to be got rid of. And quick.
+- I now believe they were instructed to behave this way towards me. 
+- I had to be got rid of. And quick.
 - I wasn't to know any of this.
-- I still had no idea I am an *international spy-cam sedated female-tech-colleague switcheroo rape-porn star* and wasn't to know this for over a year more.
+- I still had no idea I am an *international spy-cam sedated female-tech-colleague [switcheroo rape-porn star](../../crimes/protagonists/vidal-sastre.md#four-distinct-men)* and wasn't to know this for over a year more.
 - My job at Polygon had become impossible with my team refusing to do any work or respond to me whenever I tried to communicate with them.
 - My manager Paul should have sorted it out immediately, but he didn't.
 - My manager David should have sorted it out immediately, but he didn't.
 - They've both had *months* to get on top of this.
 - I believe at the time their utter failure to help me is because the tech is failing yet again and they're too busy.
 - The situation is getting really impossible to deal with and I don't know what to do.
-- So, I fight like mad to get two weeks vacation so I can run in the election.
+- So, I fight like mad to get two weeks vacation so I can run a general election campaign instead of just being a paper-candidate.
 - It would be that, or sitting doing nothing anyway because of my team's insubordination.
 - Polygon management's lack of will to help me, or intention to not help me, was a total God-send in many ways because I could take the time off and run my election campaign instead.
 - Delicious ironies.
@@ -183,6 +184,8 @@ function googleTranslateElementInit() {
 - It starts up again when I go back to Dénia in July.
 
 ## Election campaign
+
+- The most exhilarating time of my life.
 
 ### Barnet Post
 
