@@ -335,6 +335,8 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 - It really was only a matter of time before I figured it out, and so they probably had to murder me before that inevitably occurred.
 - Is this the main reason behind the vicious persecution at work? Time was ticking and my memory would be coming back...
 - One wonders, if so, if their absolutely certain of my demise made them make mistakes like this particularly egregious one.
+- Who told everyone I'd never have time to remember what was staring at me in the face?
+- And why was everyone OK with that?
 
 ### Reprimanding me
 
