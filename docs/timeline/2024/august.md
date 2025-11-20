@@ -328,6 +328,13 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 - I start thinking about what I'm going to do.
 - It's hard to get clear about what to do about anything else while I'm receiving picture-after-picture of targeted women, and trying to get the handwritten letters out to as many people as I can.
 - Since understanding Gabe's reference to *switcheroo* in [September 2025](../2025/september.md#thunderbolt-clarity), I wonder if he is aware that for something so vile to work, the target has to be blinded, slowly over time, so that she doesn't notice her vision becoming so blurry that she can't make people out properly.
+- She also has to be drugged to make her confused in situations in which the men appear.
+- They will also, of course, end up destroying her; murder most foul in mind.
+- Of course, given the whole *switcheroo* at the conservatory thing had finished on [12th June 2023](../2023/june.md#monday-12th-june-2023) and I was obviously still of the mind there was *only one man*, everyone must have thought I'd never figure it out.
+- But I was looking even then at actual pictures of the [distinct four men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) making up the *switcheroo* team.
+- It really was only a matter of time before I figured it out, and so they probably had to murder me before that inevitably occurred.
+- Is this the main reason behind the vicious persecution at work? Time was ticking and my memory would be coming back...
+- One wonders, if so, if their absolutely certain of my demise made them make mistakes like this particularly egregious one.
 
 ### Reprimanding me
 
