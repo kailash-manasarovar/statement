@@ -183,6 +183,10 @@ function googleTranslateElementInit() {
 - In Dénia, I have frothy urine nearly every day. After about a week in Lourdes, this ceased.
 - It starts up again when I go back to Dénia in July.
 
+### Continued drugging
+
+- So I don't get clear and remember the switcheroo.
+
 ## Election campaign
 
 - The most exhilarating time of my life.

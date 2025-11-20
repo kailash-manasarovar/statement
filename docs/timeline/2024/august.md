@@ -341,5 +341,5 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 
 ### Reprimanding me
 
-- Soon after, in a one-to-one, tells me I'm being watched carefully by the business for taking too much holiday.
+- Soon after, in a one-to-one, Gabriel tells me I'm being watched carefully by the business for taking too much holiday.
 - You can't imagine the intensity of the persecution I was feeling at work alongside constant terror from genuinely carefree criminal porn-gangs who had a very sinister end goal for me.
