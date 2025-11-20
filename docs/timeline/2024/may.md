@@ -662,7 +662,10 @@ function googleTranslateElementInit() {
 [![You don't have to die](../../content/images/you-dont-have-to-die.jpg)](https://www.amazon.co.uk/Dont-Have-Anthony-Mpho-Matlala-ebook/dp/B00H2JPKRK/)
 
 - I wasn't able to read it, and then didn't want to when I realized Anthony despised me along with everyone else, or he wasn't man enough to not be subsumed by the obvious evil supporting the attacks on me.
-- Anyway.
+- Curiously, publication dates disagree with each other on different machines.
+
+![2nd-dec](../../content/images/you-dont-have-to-die-2-dec.jpg)![5th-dec](../../content/images/you-dont-have-to-die-5-dec.jpg)
+
 - The inevitable paranoia arising from my experiences at work and then back in Dénia completely isolated after Bali where I suffered even more poisoning, drugging, and attacks, made me wonder if the book was AI generated and part of the plot.
 - For a porn-gang target, whose normal law-abiding tax-paying daily life, and every human right she ever had, has been totally stripped away, including her health, sight, and mental capacity which have been obliterated by poison and drugs, the title seems to be something a pimp or violent male might say to a woman or child while threatening their life.
 - The title read like a curious choker-seed for when my life is truly threatened after I'm caught up in the intended honey-trap relationship where they take my considerable wealth, the only thing I have left, and probably set me up with [number 3 trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), a man who has fathered countless children in the region, I'm told: all of them porn-fodder no doubt.
