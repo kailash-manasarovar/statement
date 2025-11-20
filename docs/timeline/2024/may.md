@@ -664,7 +664,7 @@ function googleTranslateElementInit() {
 - I wasn't able to read it, and then didn't want to when I realized Anthony despised me along with everyone else, or he wasn't man enough to not be subsumed by the obvious evil supporting the attacks on me.
 - Curiously, publication dates disagree with each other on different machines.
 
-![2nd-dec](../../content/images/you-dont-have-to-die-2-dec.jpg)![5th-dec](../../content/images/you-dont-have-to-die-5-dec.jpg)
+![2nd-dec](../../content/images/you-dont-have-to-die-2-dec.jpg)![5th-dec](../../content/images/you-dont-have-to-die-5-dec.png)
 
 - The inevitable paranoia arising from my experiences at work and then back in Dénia completely isolated after Bali where I suffered even more poisoning, drugging, and attacks, made me wonder if the book was AI generated and part of the plot.
 - For a porn-gang target, whose normal law-abiding tax-paying daily life, and every human right she ever had, has been totally stripped away, including her health, sight, and mental capacity which have been obliterated by poison and drugs, the title seems to be something a pimp or violent male might say to a woman or child while threatening their life.
