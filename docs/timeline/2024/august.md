@@ -319,7 +319,7 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 ## Gabriel Silva's first team meeting as manager
 
 - It's late August and everyone is back from holiday.
-- Gabriel has [taken over my role as manager of the doc team at Polygon](july.md#gabriel-silva-is-given-my-role-at-polygon).
+- Gabriel has [taken over my role as manager of the docs team at Polygon](july.md#gabriel-silva-is-given-my-role-at-polygon).
 - The whole team is there; Anthony, Hans, myself, and Gabriel.
 - Gabriel announces, smiling, that he is going to a bit of a ***switcheroo***.
 - And giggles.
