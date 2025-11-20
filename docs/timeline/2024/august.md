@@ -329,14 +329,15 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 - It's hard to get clear about what to do about anything else while I'm receiving picture-after-picture of targeted women, and trying to get the handwritten letters out to as many people as I can.
 - Since understanding Gabe's reference to *switcheroo* in [September 2025](../2025/september.md#thunderbolt-clarity), I wonder if he is aware that for something so vile to work, the target has to be blinded, slowly over time, so that she doesn't notice her vision becoming so blurry that she can't make people out properly.
 - She also has to be drugged to make her confused in situations in which the men appear.
-- They will also, of course, end up destroying her; murder most foul in mind.
 - Of course, given the whole *switcheroo* at the conservatory thing had finished on [12th June 2023](../2023/june.md#monday-12th-june-2023) and I was obviously still of the mind there was *only one man*, everyone must have thought I'd never figure it out.
-- But I was looking even then at actual pictures of the [distinct four men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) making up the *switcheroo* team.
-- It really was only a matter of time before I figured it out, and so they probably had to murder me before that inevitably occurred.
-- Is this the main reason behind the vicious persecution at work? Time was ticking and my memory would be coming back...
-- One wonders, if so, if their absolutely certain of my demise made them make mistakes like this particularly egregious one.
-- Who told everyone I'd never have time to remember what was staring at me in the face?
+- But I was looking even then at actual pictures of the [minimum four distinct men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) who made up the *switcheroo* team at the conservatory.
+- It really was only a matter of time before I figured it out, and so murder is most likely the next step for women like me.
+- Time was ticking and my memory would be coming back...
+- Is this the main reason behind the vicious persecution at work to get me to leave as soon as possible? 
+- One wonders, if an absolutely certainty of my demise made colleagues make particularly egregious remarks to me like this at work.
+- Who told everyone I'd never have the time to remember what was staring at me in the face?
 - And why was everyone OK with that?
+- Do porn-addicts really run the world now?
 
 ### Reprimanding me
 
