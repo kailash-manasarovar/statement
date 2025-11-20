@@ -58,7 +58,7 @@ function googleTranslateElementInit() {
 - I can hardly believe my eyes.
 - I'm horrified and [I write to the Pope](../../content/documents/letters/Pope.pdf) about it.
 
-!!! tip "My letter to the Pope"
+??? tip "My letter to the Pope"
     Saturday June 15th 2024</br>
     Dear Pope Francis</br>
     I have been coming to Lourdes now since 2008 when Mary called me. A long story.</br>
@@ -97,6 +97,13 @@ function googleTranslateElementInit() {
     Please help protect your deeply vulnerable congregation.</br>
     Thank you.</br>
     Katharine Margaret Murphy
+
+### Party Of Women leaflet
+
+- Here's my general election leaflet.
+
+![Leaflet front-side](../../content/images/leaflet-1.jpg)
+![Leaflet back-side](../../content/images/leaflet-2.jpg)
 
 ## Taking two-weeks vacation from Polygon
 
