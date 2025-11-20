@@ -30,7 +30,8 @@ function googleTranslateElementInit() {
 - Anthony supports him.
 - They both refuse to communicate with me. 
 - They are literally ignoring the polite but firm messages I send them repeatedly.
-- Who has told them it is OK to do that. These men aren't fools.
+- Who has told them it is OK to do this?
+- These men aren't fools.
 - Paul O'Leary ignores my pleas for help dealing with their insubordination.
 - It's impossible to do the job I'm being paid for.
 
@@ -43,7 +44,7 @@ function googleTranslateElementInit() {
 - I fly back to London from Toulouse for 24 hours to get the election forms in at Barnet Council on Friday 7th June.
 - I believe Mary is telling me to stand for election given the timing, and what's been going on for me, and my fervent prayers for help at Lourdes.
 - The criminals of Dénia and the wider porn-gang-controlled regions should have maybe taken a massive collective gulp, except they didn't at all because they know they are protected at the highest level of the land and beyond.
-- Nevertheless, Mary's advice was sound, and running for election most certainly made me safer against the porn-gangs overall.
+- Nevertheless, Mary's advice was sound, and running for election most certainly made me safer and better protected against the criminal porn-gangs overall.
 
 ### Transvestite nun
 
