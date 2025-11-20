@@ -322,7 +322,7 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 - Gabriel has [taken over my role as manager of the doc team at Polygon](july.md#gabriel-silva-is-given-my-role-at-polygon).
 - The whole team is there; Anthony, Hans, myself, and Gabriel.
 - Gabriel announces, smiling, that he is going to a bit of a ***switcheroo***.
-- He giggles.
+- And giggles.
 - He then distributes all my work to Hans and Anthony, leaving me with none.
 - It's obvious to me what's going on, apart from the *switcheroo* reference at this stage.
 - I start thinking about what I'm going to do.
@@ -331,13 +331,13 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 - She also has to be drugged to make her confused in situations in which the men appear.
 - Of course, given the whole *switcheroo* at the conservatory thing had finished on [12th June 2023](../2023/june.md#monday-12th-june-2023) and I was obviously still of the mind there was *only one man*, everyone must have thought I'd never figure it out.
 - But I was looking even then at actual pictures of the [minimum four distinct men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) who made up the *switcheroo* team at the conservatory.
-- It really was only a matter of time before I figured it out, and so murder is most likely the next step for women like me.
+- It really was only a matter of time before I figured it out, and so murder is most likely the next step for women like me, and this must be understood very well by all involved.
 - Time was ticking and my memory would be coming back...
 - Is this the main reason behind the vicious persecution at work to get me to leave as soon as possible? 
 - One wonders, if an absolutely certainty of my demise made colleagues make particularly egregious remarks to me like this at work.
 - Who told everyone I'd never have the time to remember what was staring at me in the face?
 - And why was everyone OK with that?
-- Do porn-addicts really run the world now?
+- Do porn-addict communities really run the world now?
 
 ### Reprimanding me
 
