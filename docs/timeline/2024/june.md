@@ -114,6 +114,10 @@ function googleTranslateElementInit() {
 [![Tranny nun](../../content/tweets/june-2024/tranny-censored.jpg)](https://x.com/1FRGVN/status/1801728894816370874)
 
 - It sort of feels like porn is taking over the whole world.
+- Or trying to.
+- Running for office makes me confident and optimistic, again.
+
+[![Bringing down the porn-gangs](../../content/tweets/june-2024/what-politics-can-do-about-terrorism.jpg)](https://x.com/1FRGVN/status/1801532892847214694)
 
 ## Taking two-weeks vacation from Polygon
 
