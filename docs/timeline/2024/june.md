@@ -13,34 +13,37 @@ function googleTranslateElementInit() {
 - I spend two weeks in Lourdes.
 - I have my laptop and I'm working from my hotel room.
 - I visit the grotto every day to pray.
-- I ask Mary to help me with the inexplicable and ferocious evil that surrounds me from all sides; at home, in Dénia, and at work.
+- I ask Mary to help me with the inexplicable and ferocious evil that surrounds me from all sides; at home in Dénia, online, and at work.
 - She delivers, as usual.
 
 ### Polygon
 
 - The extent of the hatred towards me is a little overwhelming.
-- I feel the hatred I'm experiencing at work cannot be unconnected to the hatred I'm experiencing in Dénia and online from Dénia cyber-stalkers.
+- I feel that the constant persecution I'm experiencing at work cannot be unconnected to that which I've been experiencing in Dénia and online from Dénia cyber-stalkers.
 - The energy is the same.
-- At work, I'm given an impossible task.
+- At work, Paul Gebheim gives me an apparently impossible task.
 - I decide to pull a *rabbit out of the hat* and show them how it's done.
 - I do.
-- They're all a bit surprised and I literally never hear from anyone about this excellent piece of work again.
-- Hans is even more aggressive in meetings than he was previously, if that was at all possible.
+- They're all a bit surprised, and I literally never hear from anyone again about this excellent piece of work.
+- Hans is even more aggressive in team meetings than he was previously, if that was at all possible.
+- I'm still the lead.
 - Anthony supports him.
 - They both refuse to communicate with me. 
-- They are literally ignoring the polite but firm messages I send them.
-- Paul O'Leary ignores my pleas for help with them.
+- They are literally ignoring the polite but firm messages I send them repeatedly.
+- Who has told them it is OK to do that. These men aren't fools.
+- Paul O'Leary ignores my pleas for help dealing with their insubordination.
 - It's impossible to do the job I'm being paid for.
 
 ### UK General Election
 
-- A snap election is called in the UK.
-- An email comes round from the [Party of Women](https://www.partyofwomen.org/) asking members to run for election.
+- A snap general election is called in the UK.
+- An email comes round from the [Party of Women](https://www.partyofwomen.org/) asking members to run.
 - Something tells me I should apply to run for election in my constituency in the UK.
-- I apply and I fly back to London from Toulouse for 24 hours to get the election forms in at Barnet Council on Friday 7th June.
+- I apply.
+- I fly back to London from Toulouse for 24 hours to get the election forms in at Barnet Council on Friday 7th June.
 - I believe Mary is telling me to stand for election given the timing, and what's been going on for me, and my fervent prayers for help at Lourdes.
-- The criminals of Dénia and the wider porn-gang-controlled region should have taken a massive collective gulp, except they didn't at all because they know they are protected at the highest level of the land and beyond.
-- Nevertheless, Mary's advice was sound and running for election most certainly made me safer overall.
+- The criminals of Dénia and the wider porn-gang-controlled regions should have maybe taken a massive collective gulp, except they didn't at all because they know they are protected at the highest level of the land and beyond.
+- Nevertheless, Mary's advice was sound, and running for election most certainly made me safer against the porn-gangs overall.
 
 ### Transvestite nun
 
