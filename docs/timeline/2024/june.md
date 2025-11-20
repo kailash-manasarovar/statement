@@ -119,6 +119,8 @@ function googleTranslateElementInit() {
 
 [![Bringing down the porn-gangs](../../content/tweets/june-2024/what-politics-can-do-about-terrorism.jpg)](https://x.com/1FRGVN/status/1801532892847214694)
 
+- I also want to recommend standing for office to any woman being terrorized by men.
+
 ## Taking two-weeks vacation from Polygon
 
 - My team at Polygon has become unmanageable.
