@@ -105,6 +105,16 @@ function googleTranslateElementInit() {
     Thank you.</br>
     Katharine Margaret Murphy
 
+- I also tweet about it.
+
+[![Sacred female spaces under threat from porn](../../content/tweets/june-2024/sacred-spaces-under-threat.jpg)](https://x.com/1FRGVN/status/1801734066611302728)
+
+- And get censored for using the word "tranny".
+
+[![Tranny nun](../../content/tweets/june-2024/tranny-censored.jpg)](https://x.com/1FRGVN/status/1801728894816370874)
+
+- It sort of feels like porn is taking over the whole world.
+
 ## Taking two-weeks vacation from Polygon
 
 - My team at Polygon has become unmanageable.
