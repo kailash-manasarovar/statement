@@ -48,10 +48,55 @@ function googleTranslateElementInit() {
 
 ### Transvestite nun
 
-- The night before I leave for the UK, I go for a short drink on my way back to my hotel after prayers at the grotto.
+- The night before I leave for the UK, Friday 14th June, I go for a short drink on my way back to my hotel after prayers at the grotto.
 - After a few minutes, three people walk in; two women, and a man, except the man is dressed as a nun.
-- He has five-o'clock shadow and he is talking in a squeaky high voice.
-- I'm horrified and [write to the Pope](../../content/documents/letters/Pope.pdf) about it.
+- He has five-o'clock shadow and he is talking in a high squeaky voice.
+
+![Transvestite nun](../../content/images/transvestite-nun.png)
+
+- He's a transvestite nun.
+- I can hardly believe my eyes.
+- I'm horrified and [I write to the Pope](../../content/documents/letters/Pope.pdf) about it.
+
+!!! tip "My letter to the Pope"
+    Saturday June 15th 2024</br>
+    Dear Pope Francis</br>
+    I have been coming to Lourdes now since 2008 when Mary called me. A long story.</br>
+    I ended up serving in the baths from 2012-17. I have just signed up to serve again this 
+    year.</br>
+    I’m not Catholic. My dad is.</br>
+    The reason I’m writing to you is that I started to notice men masquerading as women in 
+    the women’s section of the baths in 2014. They were usually Scottish.</br>
+    There was also a man pretending to be a female doctor in Lourdes in 2015. Also from 
+    Scotland.</br>
+    Yesterday evening I noticed a French transvestite nun in the cafe I was having a drink in 
+    after procession. He was putting that awful squeaky “woman’s” voice on that they do, 
+    and surrounded by obsequious women.</br>
+    I also noticed, on Twitter, a well-known and extremely litigious and vexatious transvestite 
+    from the UK who has made relentlessly legal attacks on women posting his arrival at 
+    Lourdes. I saw him later in a medical servers outfit.
+    https://x.com/drljultra/status/1801720201085423675</br>
+    Many many of these men have sexual abuse histories, particularly of minors, including 
+    this one.
+    https://x.com/ReduxxMag/status/1692260173069619599</br>
+    Pope, the rise in numbers of men pretending to be women is due to the porn epidemic 
+    alone.</br>
+    They become so addicted to violent and degrading porn, needing more, and worse and 
+    worse, that their mentally ill minds begin to seek their own selves as “women” for 
+    subjects of their lust.</br>
+    These men find ways to get close to vulnerable women and children as part of their fetish.</br>
+    It seems we have unilaterally decided that these predominantly white, western, wealthy, 
+    privileged men who need psychological help should be pandered to.</br>
+    They have nothing to do with the gay community.</br>
+    I’d like you to support #PartyOfWomen in the UK who is raising awareness of the 
+    problem.</br>
+    I’d also like you to do something about this in Lourdes where EXTREMELY vulnerable 
+    people are now targets for porn fetishists.</br>
+    Mary has undoubtedly given me the task of being Her voice with regards to this.</br>
+    I attach a flyer for my political run in the election.</br>
+    Please help protect your deeply vulnerable congregation.</br>
+    Thank you.</br>
+    Katharine Margaret Murphy
 
 ## Taking two-weeks vacation from Polygon
 
