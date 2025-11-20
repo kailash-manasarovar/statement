@@ -324,7 +324,7 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 - Hans and Anthony are good as gold. 
 - Hans is particularly reverential towards Gabriel.
 - I nearly guffaw.
-- Gabriel announces, smiling, that he is going to a bit of a ***switcheroo***.
+- Gabriel announces, smiling, that he is going to be doing a bit of a ***switcheroo***.
 - And giggles.
 - He then distributes all my work to Hans and Anthony, leaving me with none.
 - It's obvious to me what's going on, apart from the *switcheroo* reference at this stage.
