@@ -124,18 +124,27 @@ function googleTranslateElementInit() {
 ## Taking two-weeks vacation from Polygon
 
 - My team at Polygon has become unmanageable.
-- One of my team is so unbelievably rude, since I [told them what I was experiencing](./march/1-12.md#i-tell-my-team-at-polygon-im-being-stalked-and-hacked-by-my-neighbors), he really should be disciplined.
-- Due to Hans' insubordination, Anthony had also become insubordinate, especially when he saw I was getting no help.
-- My team had become utterly unworkable, refusing to do any work, or respond to me at all when I tried to speak to them.
-- My manager Paul should have sorted it out immediately, but didn't.
-- I believe it is because the tech is failing once again and they're too busy.
+- Hans' behavior is so unbelievably rude, he should be fired on the spot.
+- Due to, I believe at the time, no-one doing anything about Hans, Anthony had also become insubordinate.
+- I now believe they were instructed to behave this way towards me. I had to be got rid of. And quick.
+- I wasn't to know any of this.
+- I still had no idea I am an *international spy-cam sedated female-tech-colleague switcheroo rape-porn star* and wasn't to know this for over a year more.
+- My job at Polygon had become impossible with my team refusing to do any work or respond to me whenever I tried to communicate with them.
+- My manager Paul should have sorted it out immediately, but he didn't.
+- My manager David should have sorted it out immediately, but he didn't.
+- They've both had *months* to get on top of this.
+- I believe at the time their utter failure to help me is because the tech is failing yet again and they're too busy.
 - The situation is getting really impossible to deal with and I don't know what to do.
-- I fight like mad to get two weeks vacation so I can run in the election.
-- The fact that I could not do any work because of my team's behavior and the lack of will to help me from management was a total God-send in many ways because I could take the time off suddenly to run my campaign.
-- I reach out to Miriam in Spanish HR but she also deflects and ignores a little bit.
-- They give me the time off eventually.
+- So, I fight like mad to get two weeks vacation so I can run in the election.
+- It would be that, or sitting doing nothing anyway because of my team's insubordination.
+- Polygon management's lack of will to help me, or intention to not help me, was a total God-send in many ways because I could take the time off and run my election campaign instead.
+- Delicious ironies.
+- I reach out to Miriam in Spanish HR to ask for two weeks off, but she also deflects and ignores.
+- Eventually, after much badgering and complaints about Hans and Anthony, they give me the time off.
 - I start thinking about what I can do about this horrific and untenable work situation.
-- It feels like they want me to leave, but I love my job and have no intention of leaving.
+- I'm certain they want me to leave, but I love my job and have no intention of leaving.
+- Just like I felt about studying the piano at the conservatory and being viciously hounded out there too.
+- Coincidence? I think not.
 
 ## UK
 
