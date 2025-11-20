@@ -46,6 +46,13 @@ function googleTranslateElementInit() {
 - The criminals of Dénia and the wider porn-gang-controlled regions should have maybe taken a massive collective gulp, except they didn't at all because they know they are protected at the highest level of the land and beyond.
 - Nevertheless, Mary's advice was sound, and running for election most certainly made me safer and better protected against the criminal porn-gangs overall.
 
+### Party Of Women leaflet
+
+- Here's my general election leaflet.
+
+![Leaflet front-side](../../content/images/leaflet-1.jpg)
+![Leaflet back-side](../../content/images/leaflet-2.jpg)
+
 ### Transvestite nun
 
 - The night before I leave for the UK, Friday 14th June, I go for a short drink on my way back to my hotel after prayers at the grotto.
@@ -97,13 +104,6 @@ function googleTranslateElementInit() {
     Please help protect your deeply vulnerable congregation.</br>
     Thank you.</br>
     Katharine Margaret Murphy
-
-### Party Of Women leaflet
-
-- Here's my general election leaflet.
-
-![Leaflet front-side](../../content/images/leaflet-1.jpg)
-![Leaflet back-side](../../content/images/leaflet-2.jpg)
 
 ## Taking two-weeks vacation from Polygon
 
