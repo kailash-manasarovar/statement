@@ -321,10 +321,15 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 - It's late August and everyone is back from holiday.
 - Gabriel has [taken over my role as manager of the doc team at Polygon](july.md#gabriel-silva-is-given-my-role-at-polygon).
 - The whole team is there; Anthony, Hans, myself, and Gabriel.
-- Gabriel announces, smiling, that he is going to a bit of a *switcheroo*.
+- Gabriel announces, smiling, that he is going to a bit of a ***switcheroo***.
 - He giggles.
 - He then distributes all my work to Hans and Anthony, leaving me with none.
 - It's obvious to me what's going on, apart from the *switcheroo* reference at this stage.
 - I start thinking about what I'm going to do.
 - It's hard to get clear about what to do about anything else while I'm receiving picture-after-picture of targeted women, and trying to get the handwritten letters out to as many people as I can.
 - Since understanding Gabe's reference to *switcheroo* in [September 2025](../2025/september.md#thunderbolt-clarity), I wonder if he is aware that for something so vile to work, the target has to be blinded, slowly over time, so that she doesn't notice her vision becoming so blurry that she can't make people out properly.
+
+### Reprimanding me
+
+- Soon after, in a one-to-one, tells me I'm being watched carefully by the business for taking too much holiday.
+- You can't imagine the intensity of the persecution I was feeling at work alongside constant terror from genuinely carefree criminal porn-gangs who had a very sinister end goal for me.
