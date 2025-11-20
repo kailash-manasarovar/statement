@@ -338,7 +338,7 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 - Time was ticking and my memory would be coming back...
 - Is this the main reason behind the vicious persecution at work to get me to leave as soon as possible? 
 - It is certainly the main reason behind continued drugging and poisoning.
-- One wonders, if an absolutely certainty of my demise made colleagues make particularly egregious remarks to me like this at work.
+- One wonders, if an absolutely certainty of my demise made colleagues make particularly egregious remarks to me like this at work in safety.
 - Who told everyone I'd never have the time to remember what was staring at me in the face?
 - And why was everyone OK with that?
 - Do porn-addict communities really run the world now?
