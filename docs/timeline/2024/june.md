@@ -53,6 +53,8 @@ function googleTranslateElementInit() {
 ![Leaflet front-side](../../content/images/leaflet-1.jpg)
 ![Leaflet back-side](../../content/images/leaflet-2.jpg)
 
+- It went out to 80,000 North London constituents in the Borough of Barnet.
+
 ### Transvestite nun
 
 - The night before I leave for the UK, Friday 14th June, I go for a short drink on my way back to my hotel after prayers at the grotto.
@@ -181,9 +183,8 @@ function googleTranslateElementInit() {
     </br>
     I stand for truth and common sense.</br>
 
-!!! info
-    - With regards to my situation in Dénia, running for election was a game changer.
-    - For anyone interested, here is my [election leaflet](../../content/documents/Katharine%20leaflet.pdf) which went out to 80,000 London constituents, twice, via Royal Mail.
+- With regards to my situation in Dénia, running for election was a game changer.
+    - For anyone interested, here is my [election leaflet](../../content/documents/Katharine%20leaflet.pdf) which went out to
 
 ### Male aggression begins
 
