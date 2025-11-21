@@ -153,6 +153,7 @@ function googleTranslateElementInit() {
 ## The UK General Election
 
 - I spend the rest of June in the UK running my general election campaign for Finchley and Golders Green.
+- It is one of the most exhilarating times in my life.
 - The Barnet Post runs an advertisement for all the candidates and I supply a short introduction to myself and why I'm standing.
 
 [![Barnet post](../../content/documents/barnet-post.png)](https://barnetpost.co.uk/wp-content/uploads/2024/07/Barnet-Post-July-2024.pdf)
@@ -184,11 +185,21 @@ function googleTranslateElementInit() {
     I stand for truth and common sense.</br>
 
 - With regards to my situation in Dénia, running for election was a game changer.
-    - For anyone interested, here is my [election leaflet](../../content/documents/Katharine%20leaflet.pdf) which went out to
 
-### Male aggression begins
+### Barnet Post feedback
 
-- Constant.
+- My dad reads my article in the Barnet Post and gets upset.
+- He says, why didn't you tell me, a lot.
+- I say everyone knew.
+- Silence.
+- Later, when drunk, he makes a joke about how many men have had me.
+- He repeats the *why didn't you tell me* thing for nearly a year until I take a moment to point out a few obvious things out to him.
+- In September 2025, I excitedly tell him there might be a new investigation.
+- Silence. 
+- Of course, he's worried about himself, never me.
+- Pedo's always pick their victims wisely and will have always done their homework and family background checks.
+- They never count on God though.
+
 
 ### Social media and Paul
 
@@ -200,7 +211,9 @@ function googleTranslateElementInit() {
 - I reach out to a number of other people on Facebook, including all of Paul's family and their friends and family. They all ignore me.
 - I assume it is because they are pro-trans or do not want to be associated with someone speaking up about the dangers of gender ideology.
 
-## Continued stalking and health matters
+### Continued stalking and health matters
+
+- Male aggression begins - constant.
 
 - I'm stalked online constantly by hackers while I'm in the UK, and a conversation continues with them on DMs with fake accounts during this time. Copies available on request.
 - I tell my new friends about the gypsy trumpeter I'm in love with.
@@ -215,24 +228,6 @@ function googleTranslateElementInit() {
 ### Continued drugging
 
 - So I don't get clear and remember the switcheroo.
-
-## Election campaign
-
-- The most exhilarating time of my life.
-
-### Barnet Post
-
-- My dad reads my article in the Barnet Post and gets upset.
-- He says, why didn't you tell me, a lot.
-- I say everyone knew.
-- Silence.
-- Later, when drunk, he makes a joke about how many men have had me.
-- He repeats the *why didn't you tell me* thing for nearly a year until I take a moment to point out a few obvious things out to him.
-- In September 2025, I excitedly tell him there might be a new investigation.
-- Silence. 
-- Of course, he's worried about himself, never me.
-- Pedo's always pick their victims wisely and will have always done their homework and family background checks.
-- They never count on God though.
 
 ### Gang of adult men talking about getting their dicks out at Finchley Central tube station
 
