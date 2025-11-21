@@ -193,12 +193,13 @@ function googleTranslateElementInit() {
 
 - My dad reads the article in the Barnet Post and gets upset.
 - He says, *Why didn't you tell me?*, over and over.
-- I say, "Everyone knew"; the truth.
+- I say, "Everyone knew".
+- The truth.
 - Silence.
 - Later, when drunk, dad makes a joke about how many men have had me!
 - He repeats the *Why didn't you tell me?* nonsense for nearly a year until I take a moment to point out a few obvious things out to him.
 - He seems keen to (lie probably and) point the finger about his own brother too, which I find utterly appalling.
-- In September 2025, after hearing from the Rape Gang Inquiry lawyers, I excitedly tell him there might be a new investigation on the Tottenham rape gangs.
+- In September 2025, after hearing from the Rape Gang Inquiry lawyers, I excitedly tell him there might be a new investigation into the Tottenham rape gangs.
 - Silence. 
 - I don't bother explaining how a normal person should react to this news.
 - Of course, he's worried about himself, never me.
