@@ -187,7 +187,7 @@ function googleTranslateElementInit() {
 - With regards to my situation in Dénia, running for election was a game changer.
 - More importantly, it was about to become obvious to me that I was not just the most annoying and yappy sedated-spy-cam-rape victim the Spanish porn-gangs had ever encountered, my unexpected behavior was also seriously upsetting folk back here in the UK.
 - A concerted attempt to frighten me out of politics began in North London. 
-- I was amazed, I have to say, and with every nasty comment or outrageous event designed to terrorize me I became even more certain I was going the right thing and far less likely to stop doing it.
+- I was amazed, I have to say, and with every nasty comment or outrageous event designed to terrorize me I became even more certain I was doing the right thing and far less likely to stop doing it.
 
 ### Barnet Post feedback
 
