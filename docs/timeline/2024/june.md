@@ -191,18 +191,20 @@ function googleTranslateElementInit() {
 
 ### Barnet Post feedback
 
-- My dad reads my article in the Barnet Post and gets upset.
-- He says, why didn't you tell me, a lot.
-- I say everyone knew.
+- My dad reads the article in the Barnet Post and gets upset.
+- He says, *Why didn't you tell me?*, over and over.
+- I say, "Everyone knew"; the truth.
 - Silence.
-- Later, when drunk, he makes a joke about how many men have had me.
-- He repeats the *why didn't you tell me* thing for nearly a year until I take a moment to point out a few obvious things out to him.
-- In September 2025, I excitedly tell him there might be a new investigation.
+- Later, when drunk, dad makes a joke about how many men have had me!
+- He repeats the *Why didn't you tell me?* nonsense for nearly a year until I take a moment to point out a few obvious things out to him.
+- He seems keen to (lie probably and) point the finger about his own brother too, which I find utterly appalling.
+- In September 2025, after hearing from the Rape Gang Inquiry lawyers, I excitedly tell him there might be a new investigation.
 - Silence. 
+- I don't bother explaining how a normal person should react to this news.
 - Of course, he's worried about himself, never me.
 - Pedo's always pick their victims wisely and will have always done their homework and family background checks.
-- They never count on God though.
-
+- Something told them they would be able to get away with murder with me.
+- God had other ideas.
 
 ### Social media and Paul
 
