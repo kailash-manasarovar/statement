@@ -39,12 +39,14 @@ function googleTranslateElementInit() {
 - Eventually, we all noticed Patricia wasn't with us. Christine said she was talking with the Spanish people as she knew them.
 - Patricia reappeared at some point and we continued on.
 - At the end of the walk we went for coffee in Benijembla. I am shepherded next to Patricia at the table.
-- Patricia and I then got up together to walk back to the cars, and she noticed the same group that she had seen up on the trail sitting at a table in a cafe.
+- Patricia and I then get up together to walk back to the cars, and she noticed the same group that she had seen up on the trail sitting at a table in a cafe.
 - She told me she wanted to speak to one of them. As we walked towards them, one of the men in the group got up and, as if she didn't know him at all, even though he was the part of the same group we had met earlier, she asked him about something to do with the landscape and paths on a map that she had in her hand.
 - It was the man pictured below with what looks to be his father.
 
 ![Hornero or whatever his name is, and his dad](../../content/images/hornero/horn-pic-4.jpg).
 
+- Except, it was probably not this man and instead the younger brother of this man, although they do look alike (and I believe the photo is quite old and closer to the age of the actual man I saw in Benijembla).
+- The man in Benijembla that afternoon was [man two of the switcheroo set](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013), the same man that had lived next door to me from time to time in [Lourdes in 2021](../2021/march.md#the-portuguese-man-next-door).
 - I wasn't included in the discussion between them and, while I was standing there, I noticed a woman sitting on the bench outside the Bon Aire restaurant, just where this guy had got up from.
 
 ![Bon Aire restaurant in Benijembla](../../content/images/restaurante-bon-aire.png)
@@ -55,19 +57,25 @@ function googleTranslateElementInit() {
     - I assumed this woman was the man's wife or girlfriend and I wondered why she looked so unhappy.
     - Curiously, she looked a bit like the [girl in the video](../2023/june.md#another-young-girls-funeral) I saw the following June 2023, but not as young.
     - I don't think these are the same women though, but perhaps they go for a certain *type*.
+    - Certainly, I believe the woman outside the cafe in Benijembla to be this woman:
+
+    ![Benijembla lady](../../content/images/fake-accounts/woman%20in%20benijembla.png)
+    
+    - I write about this [here](../../evidence/maybes.md#benijembla-lady).
 
 - Patricia had her back to me, and she was showing this guy the map and asking questions about it but it was as if, outside of my view, she was pointing to me, because he kept looking up at me and grinning. 
+- He made sure I saw his face very clearly.
 - His look reminded me of a look on one of the grooming gangs faces when I was 16. A man who had looked at me with delight before he raped me. A look of evil.
 - You don't forget looks like that.
 - This was something I had mentioned very clearly in my [police statement from 2016](../early-years/2015.md#statement-to-the-metropolitan-police).
-- The following week the same guy turns up to teach my chamber music class. He is the missing trumpet teacher.
+- The following week the same guy turns up to teach chamber music class. He is the missing trumpet teacher.
 
 !!! warning "Intentionally triggering memories of child sexual abuse"
-    - I believe that the look the trumpet teacher gave me that day in Benijembla was a look of recognition, but also a look that was meant to remind me of something I had said in my [police statement](../early-years/2015.md#statement-to-the-metropolitan-police).
+    - I believe that the look the trumpet teacher gave me that day in Benijembla was a look of recognition, but also a look that was meant to (perhaps by God, and by him unintentionally) remind me of something I had said in my [police statement](../early-years/2015.md#statement-to-the-metropolitan-police).
     - This look, another [choker seed](march.md#planting-the-choker-seeds), was something criminal gangs believed would trigger PTSD related to the child rape-gang abuse I had experienced in 1989.
     - Online triggering of memories of the same crimes, including the music of the time, violent rape images on Twitter, and rave scene connections, was taking place in parallel.
     - The man continued to give me *that look* in the first few classes.
-    - His behavior certainly did trigger memories of pedophile rape-gang members Winston M and his associates for many months, and I even related all this to a friend verbatim in September 2023, but curiously and ironically this triggering activity would end up being extraordinarily healing for me, a gift from God even.
+    - His behavior certainly did trigger memories of pedophile rape-gang members Winston May and his associates for many months, and I even related all this to a friend verbatim in September 2023, Alessandra, but curiously and ironically this triggering activity would end up being extraordinarily healing for me, a gift from God even.
     - I believe it is highly likely that this man, teachers and staff at the conservatory, and all their criminal associates, perhaps even the English ladies, had seen me starring, sedated, in pedophile rape porn from 1989. 
     - Of course, after reading my police statement they will have found the clips on the dark net, maybe even reached out to the perpetrators. Perhaps they had all this information back [in 2007](../early-years/2007.md#hazel-smith). 
     - This malicious psychological triggering activity using words, phrases, and behaviors I had described in my statement went on throughout the terror in Dénia and was even meted out to me by teachers and staff at the conservatory sometimes while I was in class.
@@ -77,9 +85,20 @@ function googleTranslateElementInit() {
     - I had no idea I was being drugged, and possibly sedated, in my own home at this stage or how that would get worse and worse for me over time.
     - I wonder how much in subscription fees a repeat rape-porn clip would earn on the porn networks?
     - I wonder if it's possible to claim such moneys back in litigation? Both from the original perpetrators and then again from the Dénia porn gangs.
+    - It's interesting to trace the emerging clarity through commits, isn't it.
 
 - I'm reliably informed by rock-solid sources that the porn-gangs had started to enter my flat while I was sedated in November 2022. 
 - Let's hope all footage is released as soon as possible for the safety and well-being of Dénia's children, young people, elderly, and vulnerable women.
+
+### Passing the switcheroo test
+
+- I believe today that this event functioned as a *test* to see how well the constant drugging in my apartment had worked.
+- Would I remember this man as being the same man that [showed me his face at Lourdes the year before](../2021/march.md#the-portuguese-man-next-door)?
+- If I remembered him, I might have said something and they would have delayed possibly.
+- Is this why there was such a long delay in getting started at the conservatory? I hadn't yet passed the test?
+- I did not remember the man from Lourdes in Benijembla on that day because whatever drugs and poisons I had been ingesting without my knowledge had successfully battered my memory and cognition.
+- It was an irony that the whole of Benijembla was celebrating a domestic violence movement that month.
+- Anyway, I passed the test, hence the grinning, which meant [the *switcheroo* porn could go ahead](../../crimes/protagonists/vidal-sastre.md#four-distinct-men), and so he turned up the following week at the conservatory, with the others, to start the Denia TV special, I expect, live-streamed on criminal and non-criminal porn networks across the world, perhaps even on Pornhub if the [Pakistani Yorkshire-man at Bali](../2024/may.md#the-pakistani-yorkshire-man) is to be believed.
 
 ## A sexualized 4-year-old at the Chinese bazaar
 
