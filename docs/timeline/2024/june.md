@@ -134,6 +134,7 @@ function googleTranslateElementInit() {
 - My manager Paul should have sorted it out immediately, but he didn't.
 - My manager David should have sorted it out immediately, but he didn't.
 - They've both had *months* to get on top of this.
+- Are they also part of the conspiracy? 
 - I believe at the time their utter failure to help me is because the tech is failing yet again and they're too busy.
 - The situation is getting really impossible to deal with and I don't know what to do.
 - So, I fight like mad to get two weeks vacation so I can run a general election campaign instead of just being a paper-candidate.
@@ -147,11 +148,38 @@ function googleTranslateElementInit() {
 - Just like I felt about studying the piano at the conservatory and being viciously hounded out there too.
 - Coincidence? I think not.
 
-## UK
+## The UK General Election
 
-- I spend the rest of June in the UK running my election campaign in Finchley and Golders Green.
+- I spend the rest of June in the UK running my general election campaign for Finchley and Golders Green.
+- The Barnet Post runs an advertisement for all the candidates and I supply a short introduction to myself and why I'm standing.
 
-![Barnet post](../../content/documents/barnet-post.png)
+[![Barnet post](../../content/documents/barnet-post.png)](https://barnetpost.co.uk/wp-content/uploads/2024/07/Barnet-Post-July-2024.pdf)
+
+??? quote "There is a war on women and I’m here to fight it"
+    I am Katharine Margaret Murphy and I am standing as the Party Of Women candidate for election in Finchley & Golders Green because there is a war on women and children and I’m here to fight it.</br>
+    </br>
+    I am a grooming-gang/child-sexual-abuse survivor who was filmed and raped while drugged unconscious in the late 80s. If I had been born 30 years later, I would have sought refuge     in gender ideology.</br>
+    </br>
+    I didn’t know much about the “transing” of children until I volunteered with Childline as a counsellor. I was horrified to discover I was expected to tacitly support children’s delusions 
+    about their sex and say things to them that could convince them to begin a lifelong medical journey which may include sterilization or mutilation.</br>
+    </br>
+    Similarly worrying, trans ideology allows grown men with sexual fetishes entry to women’s and girls private spaces and everyone is terrified to tell the truth about it.</br>
+    </br>
+    I am standing for the Party Of Women to make sure that people can safely say the following     without fear of being arrested:</br>
+    </br>
+    • No woman has a penis;</br>
+    • No man has a vagina;</br>
+    • There is no such thing as “non-binary”;</br>
+    • “Transitioning” children is abuse.</br>
+    </br>
+    I look forward to the return of:</br>
+    </br>
+    • No men in women’s sports;</br>
+    • No men in women’s jails;</br>
+    • No perverts or porn addicts in women’s, children’s, and vulnerable people’s private spaces, especially in hospitals, schools, daycare, and end-of-life care;</br>
+    • No trans invasion of gay and lesbian spaces.</br>
+    </br>
+    I stand for truth and common sense.</br>
 
 !!! info
     - With regards to my situation in Dénia, running for election was a game changer.

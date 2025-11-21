@@ -35,7 +35,7 @@ function googleTranslateElementInit() {
 
 - Polygon are more obviously building up to firing me.
 - Colleagues' demeanor towards me in [Bali](may.md#bali) really solidified what had been going on since the previous November.
-- I request an investigation done with regards to being targeted continually for my [women's rights activism](june.md#uk).
+- I request an investigation done with regards to being targeted continually for my [women's rights activism](june.md#uk-general-election).
 - I don't realize that I've been targeted because of the [porn fatwa](../early-years/2003.md#porn-fatwa) which has gotten totally out of control; my women's rights activities are an extra gift for them I expect.
 - The HR team has a company-wide meeting in which they mention me specifically in a underhand way.
 - James Dawes (ex-colleague of [Hans Bodani](../2023/november.md#polygon)) leads the meeting and alludes to something exciting coming up.
