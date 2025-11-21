@@ -153,7 +153,7 @@ function googleTranslateElementInit() {
 ## The UK General Election
 
 - I spend the rest of June in the UK running my general election campaign for Finchley and Golders Green.
-- It is one of the most exhilarating times in my life.
+- It is one of the most exhilarating times of my life.
 - The Barnet Post runs an advertisement for all the candidates and I supply a short introduction to myself and why I'm standing.
 
 [![Barnet post](../../content/documents/barnet-post.png)](https://barnetpost.co.uk/wp-content/uploads/2024/07/Barnet-Post-July-2024.pdf)
@@ -185,9 +185,9 @@ function googleTranslateElementInit() {
     I stand for truth and common sense.</br>
 
 - With regards to my situation in Dénia, running for election was a game changer.
-- It was about to become obvious to me that I was not just the most annoying and yappy porn-gang victim the Spanish porn-gangs had ever encountered, my unexpected behavior was also seriously upsetting folk back home.
+- More importantly, it was about to become obvious to me that I was not just the most annoying and yappy sedated-spy-cam-rape victim the Spanish porn-gangs had ever encountered, my unexpected behavior was also seriously upsetting folk back here in the UK.
 - A concerted attempt to frighten me out of politics began in North London. 
-- I was amazed, I have to say, and with every nasty comment or outrageous event designed to terrorize me made me more certain I was going the right thing.
+- I was amazed, I have to say, and with every nasty comment or outrageous event designed to terrorize me I became even more certain I was going the right thing and far less likely to stop doing it.
 
 ### Barnet Post feedback
 
