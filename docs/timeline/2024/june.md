@@ -185,6 +185,9 @@ function googleTranslateElementInit() {
     I stand for truth and common sense.</br>
 
 - With regards to my situation in Dénia, running for election was a game changer.
+- It was about to become obvious to me that I was not just the most annoying and yappy porn-gang victim the Spanish porn-gangs had ever encountered, my unexpected behavior was also seriously upsetting folk back home.
+- A concerted attempt to frighten me out of politics began in North London. 
+- I was amazed, I have to say, and with every nasty comment or outrageous event designed to terrorize me made me more certain I was going the right thing.
 
 ### Barnet Post feedback
 
