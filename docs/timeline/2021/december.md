@@ -51,6 +51,27 @@ function googleTranslateElementInit() {
         - ES1201280601880100047345
         - ES6800865106190015755620
 
+## Something not right with the air-conditioning unit
+
+- I quickly noticed that the heating was sub-optimal, it didn't seem to have power and it never heated the rooms up properly.
+- When I tried the cold setting, it was working very well and indeed in summer the cold setting was great.
+- I complained to Beatrice, and her mum and dad (the sailor), who had met me and shown me the property initially.
+- By the way, her mum and dad had *apparently* been living in an apartment in the same complex in the other building but I never saw them again in the building after moving in.
+- Could they have been more actors brought in to make me feel better about the place given Bea was so unbelievably unpleasant and angry about something.
+- I also mentioned the air to Pedro the caretaker.
+- Bea was very annoyed about this, and sent me the invoice for the *completely new unit* she had just put in just the year before.
+- Remember. The bathwater was running brown in this flat, the boiler eventually nearly blows up a year later, and the appliances were ancient.
+- The fridge looked to be about thirty years old.
+- The cooker didn't work either and had to be replaced.
+- Also, I could smell my neighbors smoke in my bedroom and I complained about that too.
+- I blocked up the air conditioning vent because of it.
+- Anyway, it was cold and it was winter time.
+- Bea sends the air-conditioning people to have a look.
+- They're angry too.
+- A man comes with a boy.
+- He has a look, literally presses a button or two, says nothing's wrong, and leaves.
+- They were from a big company in the area with labels vans, I will remember the name.
+
 ## Semen stains on the sofa
 
 - When I moved in, the flat didn't seem to have been lived in properly for a while.
