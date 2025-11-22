@@ -71,6 +71,8 @@ function googleTranslateElementInit() {
 - A man comes with a boy.
 - He has a look, literally presses a button or two, says nothing's wrong, and leaves.
 - They were from a big company in the area with labels vans, I will remember the name.
+- I try to find someone else to help, but they won't do it as the new unit will be under guarantee. 
+- In any case, the door to the *whole area* of storage rooms and exit to the air conditioning units on the roof is locked and they have not given me a key.
 
 ## Semen stains on the sofa
 
