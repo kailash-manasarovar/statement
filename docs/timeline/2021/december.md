@@ -57,22 +57,23 @@ function googleTranslateElementInit() {
 - When I tried the cold setting, it was working very well and indeed in summer the cold setting was great.
 - I complained to Beatrice, and her mum and dad (the sailor), who had met me and shown me the property initially.
 - By the way, her mum and dad had *apparently* been living in an apartment in the same complex in the other building but I never saw them again in the building after moving in.
-- Could they have been more actors brought in to make me feel better about the place given Bea was so unbelievably unpleasant and angry about something.
+- Could they have been more actors brought in to make me feel better about the place given Bea was so unbelievably unpleasant and angry about something?
 - I also mentioned the air to Pedro the caretaker.
-- Bea was very annoyed about this, and sent me the invoice for the *completely new unit* she had just put in just the year before.
+- Bea was very annoyed about this, and sent me the invoice on WhatsApp for the completely new unit she had just put in just the year before; she (someone) had indeed paid something like 1600 euros for the installation.
 - Remember. The bathwater was running brown in this flat, the boiler eventually nearly blows up a year later, and the appliances were ancient.
 - The fridge looked to be about thirty years old.
 - The cooker didn't work either and had to be replaced.
+- There were what seemed like decades of crap in the kitchen cupboards that I removed.
 - Also, I could smell my neighbors smoke in my bedroom and I complained about that too.
 - I blocked up the air conditioning vent because of it.
 - Anyway, it was cold and it was winter time.
 - Bea sends the air-conditioning people to have a look.
 - They're angry too.
 - A man comes with a boy.
-- He has a look, literally presses a button or two, says nothing's wrong, and leaves.
-- They were from a big company in the area with labels vans, I will remember the name.
+- He has a two-minute look, literally presses a button or two, says nothing's wrong, and leaves.
+- They were from a big company in the area with labeled vans, I will remember the name.
 - I try to find someone else to help, but they won't do it as the new unit will be under guarantee. 
-- In any case, the door to the *whole area* of storage rooms and exit to the air conditioning units on the roof is locked and they have not given me a key.
+- In any case, the door to the buildings storage rooms and outside air conditioning units is locked, and they have not given me a key.
 
 ## Semen stains on the sofa
 
