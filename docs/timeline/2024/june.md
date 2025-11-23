@@ -243,6 +243,10 @@ function googleTranslateElementInit() {
 - I believe they could be police now, they were that sort of men. 
 - In retrospect I wonder if they were trying to scare me.
 
+### Labour Party shenanigans
+
+- wip
+
 ### An old friend
 
 - One morning at East Finchley tube while handing out leaflets, I see an old friend that was around when the rape-gang got hold of me in 1989, Geetha.
