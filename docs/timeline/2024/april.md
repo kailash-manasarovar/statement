@@ -794,6 +794,16 @@ function googleTranslateElementInit() {
 
     - Why am I up all night tweeting exuberantly? It doesn't make any sense.
 
+!!! info "Another memory incoming..."
+    - This happened before, I've just remembered.
+    - Probably around September 2023 after the *switcheroo* season at the conservatory had ended and I didn't leave, and then the whole town really got involved.
+    - I was walking out of the tunnel and at the entrace there was a group of gypsies.
+    - A little boy was riding a toy tricycle and came up beside me on the right so I looked down.
+    - I don't remember much after that but I do remember the boy.
+    - He was small but probably a teenager pretending to be younger.
+    - He looked like he suffered from infant-alcohol-syndrome quite badly.
+    - I'm guessing while I was looking down at him and smiling, someone was applying something to some bare skin on my right side.
+
 ## Fake account posts about "peeping at pre-schoolers"
 
 - A fake account catches my eye.
