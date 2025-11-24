@@ -107,7 +107,6 @@
 - She quickly launches into a fake speech about nothing; the way they do.
 - I sense darker intentions.
 - I wonder if this is [Verity's weird roommate](../early-years/2013.md#traveling-back-to-uk-at-christmas-with-verity-sawyer)?
-- This was another time I noticed if I got assertive and brought God in, people withered away... see tranny Lourdes meeting, and meeting with Geraldine Murphy CEO of something, yes, you heard it right, after the feminist conference in Brighton who *bumped* into me with her partner with a task of I think undermining me but when I started telling them my story and refusing to engage on Palestine they got really scared and couldn't get away quick enough, which I thought was interesting and weird, and increasingly tiring.
     
 ## Dublin trauma therapy
 
