@@ -97,6 +97,16 @@
 - I'm unsurprised at this development.
 - I ask her to please get these notes into my file in any way she can.
 - She photocopies them and tells me she'll do it later.
+
+#### Yet another weird woman
+
+- Tiringly, another weird woman is sent to make sure I know my movements are still being watched by UK criminal porn-gangs.
+- She is about the same age as me, a bit overweight, dark black hair, pale skin, short like me.
+- She arrives just after I arrive for my appointment and sits in the waiting room.
+- She states her appointment is not for another hour-and-a-half but thought she'd come anyway because she's feeling anxious.
+- She quickly launches into a fake speech about nothing; the way they do.
+- I sense darker intentions.
+- I wonder if this is [Verity's weird roommate](../early-years/2013.md#traveling-back-to-uk-at-christmas-with-verity-sawyer)?
     
 ## Dublin trauma therapy
 
