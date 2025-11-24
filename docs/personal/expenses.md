@@ -91,7 +91,7 @@ So there has been no safe place to go and I have had to stay in hotels a lot ins
 ### Bangkok Hospital 
 
 - 12th November | Kidney analysis               | 158.52        | receipt on request
-- 24th Nov 2025 | STD/STI                       | 13100 BHT     | contact hospital
+- 24th Nov 2025 | STD/STI                       | 13100 BHT     | [receipt](../content/images/medical-bills.jpeg)
 
 ### Medex heavy metals report
 
