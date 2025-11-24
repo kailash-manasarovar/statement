@@ -344,6 +344,10 @@ function googleTranslateElementInit() {
 ![John 3 8](../../content/images/John-3-8.PNG)
 
 - I'm asked to research and write about the zkEVM department's zero-knowledge engine and ask questions where necessary.
+- Here's the task.
+
+![Job task 1](../../content/images/job-task-1.png)![Job task 2](../../content/images/job-task-2.png)
+
 - I do a good job. 
 - I have an online chat about what I have prepared with Nadim.
 - As I'm interviewing, words fly by on my UI, *wow, you're an engineer*.
@@ -352,6 +356,10 @@ function googleTranslateElementInit() {
 ### Starting my new job
 
 - I start my new job at [Polygon](https://polygon.technology/), web3 crypto giant, on 1st November as a Senior Technical Writer.
+- Here's some of the onboarding documentation I received before I got my work laptop.
+
+![Onboarding 1](../../content/images/onboarding-notes-1.png)![Onboarding 2](../../content/images/onboarding-notes-2.png)
+
 - Well, technically I start on the 2nd as the 1st is a public holiday, which is good because I was undoubtedly poisoned while out on [Halloween](october.md#halloween), or perhaps on my return home from tap water or something else I ingested.
 - I spend 36 hours getting over it.
 - I really pissed someone off on Halloween, didn't I. 

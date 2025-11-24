@@ -150,7 +150,7 @@ function googleTranslateElementInit() {
 - Just like I felt about studying the piano at the conservatory and being viciously hounded out there too.
 - Coincidence? I think not.
 
-## The UK General Election
+## Election campaign
 
 - I spend the rest of June in the UK running my general election campaign for Finchley and Golders Green.
 - It is one of the most exhilarating times of my life.
