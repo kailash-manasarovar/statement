@@ -209,13 +209,19 @@ function googleTranslateElementInit() {
 
 ### Social media and Paul
 
-- I create a Facebook account for my election campaign.
+- I create a Facebook account for my election campaign: https://www.facebook.com/profile.php?id=61561067270886.
+- I'm inundated with fake accounts. The usual; dogs, horses, caravans, men looking for love. 
+- I figure the criminal gangs have a lot to do with this.
+- I don't really mind.
 - An old friend Paul Pompeus connects with me.
 - He is exuberant and friendly.
 - He sounds exactly like the person I used to know over twenty years before.
-- He sends me messages fairly regularly on Facebook up until I see him again in January 2025.
-- I reach out to a number of other people on Facebook, including all of Paul's family and their friends and family. They all ignore me.
+- "I'm so happy we're back in touch, you were my best friend back then, you're still my best friend, one of three."
+- He sends me messages like this fairly regularly on Facebook up until I see him again in January 2025.
+- I reach out to a number of other people on Facebook; including Paul's family and their friends and family that I know as well as I know him.
+- They all ignore me.
 - I assume it is because they are pro-trans or do not want to be associated with someone speaking up about the dangers of gender ideology.
+- Perhaps they have trans kids?
 
 ### Continued stalking and health matters
 
@@ -243,7 +249,19 @@ function googleTranslateElementInit() {
 - I believe they could be police now, they were that sort of men. 
 - In retrospect I wonder if they were trying to scare me.
 
+### The East Finchley summer festival at Cherry Tree Woods
+
+- wip
+
 ### Labour Party shenanigans
+
+- wip
+
+### Grown men screaming in my face
+
+- wip
+
+### Groups of threatening teenagers in East Finchley High Road
 
 - wip
 
