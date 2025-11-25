@@ -263,8 +263,9 @@ function googleTranslateElementInit() {
 - She says she can't stay out long because she gets too hot.
 - She gives my dad who has come along a button badge.
 
-![Trannish inquisition]()
+![Trannish inquisition](../../content/images/trannish-inquisition.png)
 
+- My eyebrows raise to the sky.
 - So (Janet) is close chums with an account AmericanTerf which causes endless trouble on X.
 - I believe probably Hazel is behind this and So (Janet) works for the criminal gangs primarily but is a bit of a police informant also.
 
