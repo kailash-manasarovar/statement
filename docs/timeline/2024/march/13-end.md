@@ -1056,6 +1056,9 @@ function googleTranslateElementInit() {
 - All of this came out in court and was reported in the media, the [Mirror](https://www.mirror.co.uk/news/uk-news/michael-wenham-dad-who-decapitated-5069212) mainly.
 - Some of his colleagues took the stand to say what a good bloke he was.
 - Mike was found guilty of murder, and imprisoned for life.
+
+![Karolina](../../../content/images/karolina-pic.png)
+
 - I wrote about this on X when I was anonymous, in 2021:
 
 [![Karolina](../../../content/tweets/march-2024/karolina.png)](https://x.com/1FRGVN/status/1434110111895654402)
