@@ -47,7 +47,7 @@
 - I got out and roared at them, I literally roared, I had no idea where it came from, and they wandered off a bit surprised-looking.
 - We reported it to the Metropolitan police at the time.
 - It also reminded me of something else, no wait, something else more recently, online stalking, reminded me of this.
-- Probably in October 2025, just before I left N2, I was threatened online with the *Cambridge Women* who were gonna *come down and get me* or something ridiculous like this.
+- Probably in October 2025, just before I left N2, I was threatened online with the *Cambridge women* who were gonna *come down and get me* or something ridiculous like this.
 - I answered back some nonsense.
 - Another account `@CambridgeUgly` interacted with me [around those days in April I went to Shoe Zone](https://x.com/search?q=cambridge%20(%401frgvn)&src=typed_query).
 
