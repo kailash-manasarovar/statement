@@ -230,7 +230,7 @@ function googleTranslateElementInit() {
 - I go to the garage to put petrol in the car. On the way home a car pulls up beside mine and a man insults me through our open windows.
 - Every time I go out, if I'm on my own, I feel vulnerable.
 - Mostly I'm with a bunch of election volunteers, but even then the behavior of people desperate to frighten me out of standing for office is outrageous.
-- I'm convinced most of the people sent to frighten me are either corrupt police getting jittery about my Tottenham rape-gang history, their informants who include members of the Tottenham rape-gang itself, the Labour party and others.
+- I'm convinced most of the people sent to frighten me are corrupt police getting jittery about my Tottenham rape-gang history, their informants who include members of the Tottenham rape-gang itself, the Labour party and others.
 - I'm stalked online constantly by hackers while I'm in the UK, and a DM conversation continues with them via various fake accounts during this time. 
 - I tell all my new friends about the gypsy trumpeter I'm in love with.
 - None of them are particularly impressed, or surprised.
@@ -244,7 +244,7 @@ function googleTranslateElementInit() {
 - In Dénia, I have frothy urine and screaming kidneys nearly every day. 
 - After about a week in Lourdes, this clears up completely.
 - It starts up again when I go back to Dénia in July.
-- Does that mean continued poisoning with intention to maim with anti-freeze on top of whatever hallucinogenic and aphrodisiac substances they used?
+- Does that mean they poisoned me with the intention to maim or kill with anti-freeze, on top of whatever hallucinogenic and aphrodisiac substances they used?
 - I do notice, however, that I am high all the time in the UK, and I believe that was from something Dénia poisoners had managed to add to my toiletries, and perhaps even *top ups* from some of the plentiful wrong 'uns surrounding me in North London.
 - Obviously, continued drugging was essential so that I wouldn't suddenly get clear about the [switcheroo porn](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) that I was unaware of at that time.
 - I can't imagine how multiple criminal porn-gang networks must have felt about me standing for office.
