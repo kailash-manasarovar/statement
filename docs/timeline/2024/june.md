@@ -269,7 +269,9 @@ function googleTranslateElementInit() {
 - In retrospect I wonder if they were trying to scare me.
 - They didn't.
 - The tube stations were where a lot of bizarre things happened during my election campaign.
-- I made sure to tell the police's special election force where I was going to be every day because they were concerned enough for the safety of candidates to have set it up and I trust the police are looking out for my safety.
+- I made sure to tell the police's special election force where I was going to be every day because they were concerned enough for the safety of candidates to have set it up and I trust the police are concerned for my safety.
+- I haven't felt safe like this for a good few years, if ever.
+- I like it.
 
 ### The East Finchley summer festival at Cherry Tree Woods
 
