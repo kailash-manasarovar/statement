@@ -260,11 +260,16 @@ function googleTranslateElementInit() {
 
 ### Gang of adult men talking about getting their dicks out at Finchley Central tube station
 
-- While handing out leaflets at Finchley Central tube one evening, a gang of about 8 men came to stand beside me. They spoke to me a little bit about their "male" group. They were weird. It was all very contrived.
-- As I walked past them they were all talking about getting their dicks out.
+- While handing out leaflets at Finchley Central tube one evening, a gang of about 8 men stood beside me.
+- One of them told me about their "men's" group and how they meet every Tuesday, or similar.
+- It seemed to me a bit contrived.
+- As I walked past them, they were standing in a circle at the tube entrance talking loudly about getting their dicks out, and one of them, the one who had spoken to me originally, asked me if I wanted to see it.
 - I told them no one wanted to see that.
-- I believe they could be police now, they were that sort of men. 
+- I believe they could be police now, they were that sort of man; youngish, all the same height and weight, reasonably fit-looking, some balding.
 - In retrospect I wonder if they were trying to scare me.
+- They didn't.
+- The tube stations were where a lot of bizarre things happened during my election campaign.
+- I made sure to tell the police's special election force where I was going to be every day because they were concerned enough for the safety of candidate's to have set it up.
 
 ### The East Finchley summer festival at Cherry Tree Woods
 
