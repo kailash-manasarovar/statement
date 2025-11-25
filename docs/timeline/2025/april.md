@@ -1,3 +1,5 @@
+# April 2025
+
 ## Goaded online
 
 - I continue to be goaded online, specifically about illnesses related to pesticide poisoning.
@@ -11,6 +13,43 @@
 - At one point, there is communication online with regards to how I've had enough and I'm not playing anymore.
 - The following day, I do a Google search on my X name and all I see is fridges.
 - I'm reminded of Domingo Cano telling everyone at the conservatory I was [frigid](../early-years/2014.md#poisoned-aunts) and wonder if that's something his other targets are very familiar with on their social media?
+- I showed my mother this page of fridges on Google search.
+- She was sitting beside me at the time.
+
+## Shoe Zone Harlow, Essex
+
+- I take my dad to a rehearsal near Harlow in Essex for the afternoon.
+- I go off and do some shopping.
+- It's Tuesday 15th April.
+- I buy some shoes at Shoe Zone in the Harvey Centre.
+- As I'm leaving the shop to head back outside via the theatre square, two very rough looking blond women, one older one younger, do the *bump-into-and-distract* thing exactly like I see [the woman I recognize do to the waitress in Lourdes](../2025/july.md#lourdes) in July.
+- I'm walking in the direction I show on the map towards the exit.
+- They are standing together and they are not in my way initially.
+- The space is open, there's no-one else around.
+- As I walk, they draw closer, then one woman, the older one, sort of walks right into me.
+
+![Shoezone](../../content/images/shoezone.jpg)
+
+- I giggle politely as if she didn't mean it, say sorry in that British way, and whirl a bit backwards as she does it, just like [the waitress does in Lourdes](../2025/july.md#lourdes).
+- I see her face very clearly.
+- She is blond, about 50, and she looks like she's had an extremely hard life.
+- The younger one is also blond, but much younger; could be a daughter.
+- I don't realize the significance of it at the time but I'm sure they did it on purpose.
+- I'm certain British criminal porn-gangs sent them to stalk and upset me, perhaps even Hazel herself asked them.
+- It's obvious everyone knows where I am and what I'm doing minute-by-minute.
+- It's extraordinarily stressful, you cannot imagine.
+- However, the whole distract-and-drug thing did not occur to me.
+- Were they keeping me *topped up*, as it were?
+- Is this why it took me so long to remember the [most obvious switcheroo men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men)?
+- Why would these women be interested in me *not* remembering these men were different?
+- It reminded me of another incident back in maybe 2010 or 2011 when my mum and I would go to the Finchley Lido cinema on a Saturday night together and drive down and park outside.
+- One night, two women who had a similar appearance to these Cambridge women; blond, oldish, sort of Cell Block H types, tried to get into the back seats of our car while we were in the car and getting ready to leave.
+- I got out and roared at them, I literally roared, I had no idea where it came from, and they wandered off a bit surprised-looking.
+- We reported it to the Metropolitan police at the time.
+- It also reminded me of something else, no wait, something else more recently, online stalking, reminded me of this.
+- Probably in October 2025, just before I left N2, I was threatened online with the *Cambridge Women* who were gonna *come down and get me* or something ridiculous like this.
+- I answered back some nonsense.
+- Another account `@CambridgeUgly` interacted with me [around those days in April I went to Shoe Zone](https://x.com/search?q=cambridge%20(%401frgvn)&src=typed_query).
 
 ## There's something in the water
 
