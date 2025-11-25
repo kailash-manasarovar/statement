@@ -234,8 +234,10 @@ function googleTranslateElementInit() {
 - I'm aware that everything I do online is seen by hackers. Everything.
 - Electioneering is a social business and I drink alcohol most days.
 - However, I feel no ill effects like I do when I am at home in Dénia. It's weird.
-- In Dénia, I have frothy urine nearly every day. After about a week in Lourdes, this ceased.
+- In Dénia, I have frothy urine and screaming kidneys nearly every day. 
+- After about a week in Lourdes, this cleared up.
 - It starts up again when I go back to Dénia in July.
+- I am, however, high all the time and I believe that was from something in my toiletries.
 
 ### Continued drugging
 
@@ -251,7 +253,15 @@ function googleTranslateElementInit() {
 
 ### The East Finchley summer festival at Cherry Tree Woods
 
-- wip
+- So (Janet), a volunteer, attends. 
+- She is one of the other Party Of Women candidate, Bev's, election agent.
+- She says she can't stay out long because she gets too hot.
+- She gives my dad who has come along a button badge.
+
+![Trannish inquisition]()
+
+- So (Janet) is close chums with an account AmericanTerf which causes endless trouble on X.
+- I believe probably Hazel is behind this and So (Janet) works for the criminal gangs primarily but is a bit of a police informant also.
 
 ### Labour Party shenanigans
 
