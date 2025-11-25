@@ -51,6 +51,8 @@
 - I answered back some nonsense.
 - Another account `@CambridgeUgly` interacted with me [around those days in April I went to Shoe Zone](https://x.com/search?q=cambridge%20(%401frgvn)&src=typed_query).
 
+![Cambridge ugly](../../content/images/cambridge-ugly.jpg)
+
 ## There's something in the water
 
 - I take my father to play a jazz gig at the Elephant pub in North Finchley.
