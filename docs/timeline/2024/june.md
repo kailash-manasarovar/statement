@@ -256,7 +256,7 @@ function googleTranslateElementInit() {
 - *I wasn't expecting that,* she said on a fake account when I got home.
 - I guess it all makes me a little bit infamous in the wrong sorts of circles, or perhaps I already was with the child rape-porn everyone knew about.
 - The politics made me even more so I expect.
-- From my side, and at the time, I've really no idea what's causing the rampant activity and I assume it must be due to the Tottenham rape-gangs and all the rape-porn they made with me and my childhood friends, sedated, in 1989.
+- From my side, and at the time, I've really no idea what's causing the rampant activity and I assume it must be due to the Tottenham rape-gangs and all the rape-porn they made with me and my childhood friends, sedated, in 1989 in their mothers' kitchens and dining rooms.
 
 ### Gang of adult men talking about getting their dicks out at Finchley Central tube station
 
