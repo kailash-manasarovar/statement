@@ -233,20 +233,24 @@ function googleTranslateElementInit() {
 - I'm convinced most of the people sent to frighten me are either bent police getting jittery about my Tottenham rape-gang history, their informants, and the Labour party and others.
 - I'm stalked online constantly by hackers while I'm in the UK, and a conversation continues with them on DMs with fake accounts during this time. 
 - I tell all my new friends about the gypsy trumpeter I'm in love with.
-- None of them are particularly impressed, or surprised, and I'm not surprised at that.
-- Some of them seem to be trying to talk me out of it. 
-- Some seem to have background knowledge of what's been going on for me.
-- I'm aware that everything I do online is seen by hackers. Everything.
+- None of them are particularly impressed, or surprised.
+- Some of them seem to be trying to talk me out of it; that continued on into 2025 weirdly.
+- Some seem to have very precise background knowledge of what's been going on for me in Dénia.
+- I'm aware that everything I do online is seen by hackers but the whole thing feels way bigger now.
+- I feel like I was 100% right to connect teachers and staff at the conservatory of Dénia with the Tottenham rape-gangs.
 - Electioneering is a social business and I drink alcohol most days.
 - However, I feel no ill effects like I do when I am at home in Dénia. It's weird.
 - In Dénia, I have frothy urine and screaming kidneys nearly every day. 
 - After about a week in Lourdes, this cleared up completely.
 - It starts up again when I go back to Dénia in July.
-- I am, however, high all the time, and I believe that was from something in my toiletries and perhaps *top ups* from some of the wrong 'uns surrounding me.
-- Continued drugging was essential so that I wouldn't suddenly get clear about the [switcheroo porn](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero).
-- I can't imagine how multiple criminal sex-gang networks must have felt about me standing for office.
-- I guess it makes me a little infamous, or even more so perhaps.
-- I've no idea what's causing the rampant activity and I assume it must be due to the Tottenham rape-gang and all the rape-porn it made with me and friends in, sedated.
+- I am, however, high all the time in the UK, and I believe that was from something they had put in my toiletries, and perhaps *top ups* from some of the plentiful wrong 'uns surrounding me.
+- Continued drugging was essential so that I wouldn't suddenly get clear about the [switcheroo porn](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) that I was unaware of at that time.
+- I can't imagine how multiple criminal porn-gang networks must have felt about me standing for office.
+- I guess truly horrified might come close. 
+- Imagine, a victim turning into a powerful voice for good.
+- Something had to be done of course; hence the relentless stalking in the UK.
+- I guess I'm a little infamous in the wrong circles, or perhaps the politics made me even more so.
+- I've no idea what's causing the rampant activity and I assume it must be due to the Tottenham rape-gangs and all the rape-porn they made with me and my childhood friends in, sedated, in 1989.
 
 ### Gang of adult men talking about getting their dicks out at Finchley Central tube station
 
