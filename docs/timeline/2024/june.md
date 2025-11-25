@@ -266,8 +266,9 @@ function googleTranslateElementInit() {
 ![Trannish inquisition](../../content/images/trannish-inquisition.png)
 
 - My eyebrows raise to the sky.
-- So (Janet) is close chums with an account AmericanTerf which causes endless trouble on X.
-- I believe probably Hazel is behind this and So (Janet) works for the criminal gangs primarily but is a bit of a police informant also.
+- This message was on an early-days fake-account which I'm guessing must have been run by Hazel.
+- So (Janet) is close chums with another X account `AmericanTerf` who causes endless trouble on X.
+- I believe probably Hazel is behind this and therefore So (Janet) works for the criminal gangs primarily, but I suspect she is a police informant also.
 
 ### Labour Party shenanigans
 
