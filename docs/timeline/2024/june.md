@@ -275,17 +275,27 @@ function googleTranslateElementInit() {
 
 ### The East Finchley summer festival at Cherry Tree Woods
 
-- So (Janet), a volunteer, attends. 
-- She is one of the other Party Of Women candidate, Bev's, election agent.
+- The [East Finchley festival](https://www.eastfinchleyfestival.org/) takes place on the 23rd June in Cherry Tree Woods.
+- We set up outside the park gate to give out leaflets and talk to people.
+- I'm helped enormously by Stella, a [cartoonist from Bristol](https://www.radicalcartoons.com/) without whom I would have had even less of a clue about what I was doing.
+
+![East Finchley festival](../../content/images/east-finchley-festival-2.jpg)
+
+- A few more volunteers help out too.
+- So (Janet), a volunteer, attends for a short time. 
+- She calls herself *So*, a poetry name, but her real name is Janet.
+- She is an election agent for another Party Of Women candidate, Bev, standing in Islington North.
 - She says she can't stay out long because she gets too hot.
-- She gives my dad who has come along a button badge.
+- She gives my dad, who has come along to watch, a badge.
 
 ![Trannish inquisition](../../content/images/trannish-inquisition.png)
 
-- My eyebrows raise to the sky.
+- My eyebrows fly up to the sky.
 - This message was on an early-days fake-account which I'm guessing must have been run by Hazel.
 - So (Janet) is close chums with another X account `AmericanTerf` who causes endless trouble on X.
 - I believe probably Hazel is behind this and therefore So (Janet) works for the criminal gangs primarily, but I suspect she is a police informant also.
+
+![East Finchley festival](../../content/images/east-finchley-festival-1.jpg)
 
 ### Labour Party shenanigans
 
