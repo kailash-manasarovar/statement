@@ -410,7 +410,8 @@ function googleTranslateElementInit() {
 - The woman Hala was a lot like the chaos monkeys that surrounded me ever since I bumped into Hazel and Domingo all those years back.
 - She was extremely difficult, very rude to the waiters, behaved as if she was the Sultan of Brunei requesting miniscule changes on everything she ordered at dinner.
 - I don't remember seeing her paying for anything, or signing, she would just bark at the waitresses, oh, put it on my bill.
-- Her husband was a millionaire, apparently, and ran a business looking after stray dogs.
+- Her ex-husband was a millionaire, apparently, and ran a business looking after stray dogs.
+- I had no reason to doubt anything they were saying to me.
 - They had met at Vodafone in Paddington, something we shared, except when I tried to talk about this, she deflected.
 - The day after I told her what I knew, they left hurriedly with the excuse the girl had gotten dengue fever.
 - Like the others, she never returned my subsequent attempt to communicate and make sure the girl was OK.
