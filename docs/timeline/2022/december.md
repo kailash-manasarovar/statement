@@ -87,7 +87,7 @@ function googleTranslateElementInit() {
 - Online and in-person bullying by criminal gangs, and teachers and staff at the conservatory of Dénia included using my own words and experiences that I had described in detail in my [2015 police statement I sent via email to the Metropolitan Police](../early-years/2015.md#statement-to-the-metropolitan-police), and repeating and replaying them back to me in order to cause me enormous distress and psychological injury.
 - I did not know this was happening at this time. Indeed, it has only become clear to me in early 2025 after leaving Dénia, replacing all my bathroom products, and washing or throwing away most of my belongings which the criminals had doused in pesticides while I was away from my apartment, probably in mid-October 2024.
 - In any case, constant triggering and reminders of my experience of being sexually abused by a North London rape-gang when I was a child was the backdrop to my psychological and emotional state while I was on holiday in Thailand over Christmas 2022.
-- It is highly likely the bathroom products I brought from Spain contained some psychoactive substance, maybe even low level doses of methanol.
+- It is highly likely the bathroom products I brought from Spain contained some psychoactive substance, maybe even low level doses of methanol or anti-freeze.
 - I couldn't stop thinking about the trumpet teacher.
 - Ironically, this environment was the backdrop for the most profound healing experience I have probably experienced in 25 years of attempting to heal my body, mind, and soul from the effects of being sedated and gang-raped repeatedly without my knowledge when I was 16.
 - It was the 21st December, winter solstice.
@@ -131,6 +131,17 @@ function googleTranslateElementInit() {
 - It is highly likely many people knew *exactly* what was going on, and did attempt to warn me in December 2022.
 - Unfortunately, or fortunately, my mind was not able to comprehend in any way the evil I was about to experience in Dénia so the warnings went by unheeded.
 - Still, others *were* looking too, and enjoying the view. For later. And that is somewhat comforting to me now in June 2025.
+
+### Another curious thing 
+
+- I've just remembered.
+- After this rather shocking event, which Polly was very upset about, I had a massage with her nearly every day.
+- The next time I went along I was in a similarly dissociated state and something horrible happened.
+- I thought she had switched with another masseuse to trick me.
+- I got very angry and started to shout at her.
+- *You're not Polly*, I said.
+- Flipping interesting isn't it.
+- She'll remember that.
 
 ## Madrid
 
