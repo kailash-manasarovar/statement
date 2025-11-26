@@ -415,8 +415,9 @@ function googleTranslateElementInit() {
 - The day after I told her what I knew, they left hurriedly with the excuse the girl had gotten dengy fever.
 - The woman, Hala, said she was Lebanese from St John's Wood.
 - Given I had not managed to get caught by [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) - the switcheroo show host I'm told - at Alicante airport a few weeks before, and I had gone back to practice at the conservatory the next day, all the teachers amazed and laughing, they would have been desperate to know how much I knew at that stage, and maybe even get a *top up* in.
-- It was inconceivable to me how much money I had been making for these people and so the idea that they could send people around the world to stalk me, like they did at Christmas in Madrid, wasn't even a seed, yet.
-- Obviously, given the report going back to the Cano-Lopez's and Smiths via Hala and goodness knows who else, the terror continued at pace, as you will find out by reading on.
+- A lot like [Sandra and the hairdresser](../2025/august.md#haircut), Hala made trouble for me with Polly the masseuse I recommended, and the Thai women said weirdly toxic things to me about sex and prostitution as if someone had been lying to them about me.
+- It was inconceivable to me how much money I had been making for British and Spanish criminal gangs, and so the idea that they could send people around the world to stalk me, like they did at [Christmas in Madrid](december.md#christmas), wasn't even a seed of an idea, yet.
+- Obviously, given the *it's safe* report going back to the Cano-Lopez's and Smiths via Hala and goodness knows who else, the terror continued apace, but they never stopped to think that I would survive whatever they threw at me, remember enough to launch a truth missile into the stratosphere, and quietly tell my story.
 
 ### My first request for help
 
