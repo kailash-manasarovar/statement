@@ -320,6 +320,7 @@ function googleTranslateElementInit() {
 - I wonder if So (Janet) is also an associate of Hazel, and if that suggests the use of criminal cyber-stalkers to undermine grassroots political movements such as Posie Parker's Let Women Speak organization and the Party of Women.
 - If so, does that suggest Hazel's organization is involved in the mass-manipulation of children, mainly girls, into trans-ideology?
 - It seems likely So (Janet) works for the criminal gangs primarily, but I also suspect she is a police informant.
+- She was in attendance when they [wheeled out Winston May to frighten me](#winston-may) - the North London rape-gang member I had complained to the police twice about.
 - So (Janet) tells me she has a gift for me, randomly.
 - It's a gift from St Valentine's well in Glasgow, Scotland that she's just visited.
 - She gives it to me at the [Party of Women party](#party-of-women-party) the following week.
@@ -329,7 +330,7 @@ function googleTranslateElementInit() {
 - I can tell you that at the time I thought it was very weird and a bit *too* coincidental.
 - Now, I believe it is part of the generalized witchery going on and there may have been a *top up* for me in that water, or on the paper it came in, or the bag itself, to make sure I didn't suddenly remember [the four distinct trumpet teachers](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and instead kept obsessing about my *one true love*.
 - It worked too, but that's was part of the bigger-and-better plan anyway wasn't it, *Our/Her/His Way*.
-- Certainly at the party I noticed I had become extraordinarily physically sensitive in the way one might if they had taken a low-dose hallucinogen or ecstasy pill, or similar.
+- Certainly at the party  after receiving the gift I noticed I had become extraordinarily physically sensitive in the way one might if they had taken a low-dose hallucinogen or ecstasy pill, or similar.
 
 ### Seonaid Dawn
 
