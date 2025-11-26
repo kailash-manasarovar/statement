@@ -396,13 +396,30 @@ function googleTranslateElementInit() {
 
 - They don't make the single plain color elephants anymore.
 
-### My first request for help
+### Hala
 
-- I meet a woman on holiday with her family in Thailand, Hala; and I told her everything that had happened, the whole story as I saw it.
+- I meet a woman on holiday with her family in Thailand, Hala.
+- I tell her everything that had happened, the whole story as I saw it.
+- Her name comes up on fake accounts later on in the summer.
 - My understanding of what was going on at this time was sketchy.
 - I believed there was a true love relationship with the trumpet teacher, that something real had happened, that he was important to me, that he loved me back and wouldn't do anything to hurt me, and that the real problem was that I was being targeted and abused by Domingo Cano and his associates at the conservatory.
 - It's really not clear why I was so invested in this relationship with the trumpet teacher because there was so little evidence for it.
 - I can only assume - in May 2025 having survived 3 years of poisoning, threats to my life, and constant drugging with psychoactive substances while living in Dénia - that I was being manipulated online in ways I still have to figure out and my mind was not my own.
+- In November 2025, having finally remembered the [switcheroo porn conspiracy starring me](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and teachers and staff at the conservatory of Dénia, meeting this woman takes on a whole different tone.
+- She was with her daughter who was severely traumatized for some reason.
+- The woman Hala was a lot like the chaos monkeys that surrounded me ever since I bumped into Hazel and Domingo all those years back.
+- She was extremely difficult, very rude to the waiters, behaved as if she was the Sultan of Brunei requesting miniscule changes on everything she ordered at dinner.
+- I don't remember seeing her paying for anything, or signing, she would just bark at the waitresses, oh, put it on my bill.
+- Her husband was a millionaire, apparently, and ran a business looking after stray dogs.
+- They had met at Vodafone in Paddington, something we shared, except when I tried to talk about this, she deflected.
+- The day after I told her what I knew, they left hurriedly with the excuse the girl had gotten dengy fever.
+- The woman, Hala, said she was Lebanese from St John's Wood.
+- Given I had not managed to get caught by [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) - the switcheroo show host I'm told - at Alicante airport a few weeks before, and I had gone back to practice at the conservatory the next day, all the teachers amazed and laughing, they would have been desperate to know how much I knew at that stage, and maybe even get a *top up* in.
+- It was inconceivable to me how much money I had been making for these people and so the idea that they could send people around the world to stalk me, like they did at Christmas in Madrid, wasn't even a seed, yet.
+- Obviously, given the report going back to the Cano-Lopez's and Smiths via Hala and goodness knows who else, the terror continued at pace, as you will find out by reading on.
+
+### My first request for help
+
 - While I'm away, I decide to write to Concha to tell her everything, and apologize for mentioning on X that she was being bullied by Domingo's students.
 - Concha was my friend so I felt I could reach out to her.
 - This is the first of a series of letters I write to civil servants, the school board, and multiple global organizations asking for help because I'm being terrorized by teachers and staff at the conservatory of Dénia.
