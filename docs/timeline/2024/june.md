@@ -316,9 +316,10 @@ function googleTranslateElementInit() {
 
 - My eyebrows fly up to the sky.
 - Apart from the obvious link to Spanish gang-stalkers, this message was written verbatim on an early-day's (September 2023 when [I went public on X](../2023/september.md#going-public-on-twitter)) fake-account `@Fredegonde_R` which interacted with me excessively and I have to assume is managed somehow by Hazel and her associates.
-- So (Janet) is close chums with another X account `@RadfemBeat` someone who also causes endless trouble on X; when I say trouble I mean picking fights and splitting people apart.
+- So (Janet) is close chums with another X account `@RadfemBeat` an account which causes endless trouble on X; when I say trouble I mean picking fights and splitting people apart.
 - I wonder if So (Janet) is also an associate of Hazel, and if that suggests the use of criminal cyber-stalkers to undermine grassroots political movements such as Posie Parker's Let Women Speak organization and the Party of Women.
-- It seems likely she works for the criminal gangs primarily, but I also suspect she is a police informant.
+- If so, does that suggest Hazel's organization is involved in the mass-manipulation of children, mainly girls, into trans-ideology?
+- It seems likely So (Janet) works for the criminal gangs primarily, but I also suspect she is a police informant.
 - So (Janet) tells me she has a gift for me, randomly.
 - It's a gift from St Valentine's well in Glasgow, Scotland that she's just visited.
 - She gives it to me at the [Party of Women party](#party-of-women-party) the following week.
@@ -329,6 +330,10 @@ function googleTranslateElementInit() {
 - Now, I believe it is part of the generalized witchery going on and there may have been a *top up* for me in that water, or on the paper it came in, or the bag itself, to make sure I didn't suddenly remember [the four distinct trumpet teachers](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and instead kept obsessing about my *one true love*.
 - It worked too, but that's was part of the bigger-and-better plan anyway wasn't it, *Our/Her/His Way*.
 - Certainly at the party I noticed I had become extraordinarily physically sensitive in the way one might if they had taken a low-dose hallucinogen or ecstasy pill, or similar.
+
+### Seonaid Dawn
+
+- wip
 
 ### Labour Party shenanigans
 
