@@ -399,24 +399,25 @@ function googleTranslateElementInit() {
 ### Hala
 
 - I meet a woman on holiday with her family in Thailand, Hala.
-- I tell her everything that had happened, the whole story as I saw it.
+- I tell her everything that has happened, the whole story as I see it at that time.
 - Her name comes up on fake accounts later on in the summer.
 - My understanding of what was going on at this time was sketchy.
 - I believed there was a true love relationship with the trumpet teacher, that something real had happened, that he was important to me, that he loved me back and wouldn't do anything to hurt me, and that the real problem was that I was being targeted and abused by Domingo Cano and his associates at the conservatory.
 - It's really not clear why I was so invested in this relationship with the trumpet teacher because there was so little evidence for it.
-- I can only assume - in May 2025 having survived 3 years of poisoning, threats to my life, and constant drugging with psychoactive substances while living in Dénia - that I was being manipulated online in ways I still have to figure out and my mind was not my own.
-- In November 2025, having finally remembered the [switcheroo porn conspiracy starring me](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and teachers and staff at the conservatory of Dénia, meeting this woman takes on a whole different tone.
-- She was with her daughter who was severely traumatized for some reason.
-- The woman Hala was a lot like the chaos monkeys that surrounded me ever since I bumped into Hazel and Domingo all those years back.
-- She was extremely difficult, very rude to the waiters, behaved as if she was the Sultan of Brunei requesting miniscule changes on everything she ordered at dinner.
-- I don't remember seeing her paying for anything, or signing, she would just bark at the waitresses, oh, put it on my bill.
-- Her ex-husband was a millionaire, apparently, and ran a business looking after stray dogs.
+- I can only assume - in May 2025 having survived three years of anti-freeze poisoning, threats to my life, and constant drugging with psychoactive substances - that I was being manipulated online in ways I still have to figure out and my mind was not my own.
+- In November 2025, having finally remembered the [switcheroo porn conspiracy starring myself](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and teachers and staff at the conservatory of Dénia, meeting this woman takes on a whole different tone.
+- She was with her daughter who seemed to be severely traumatized.
+- The woman Hala was a lot like the chaos monkeys that have surrounded me ever since I bumped into Hazel and Domingo all those years back.
+- She was extremely difficult, outrageously rude to the waiters, and behaved as if she was the Sultan of Brunei requesting miniscule changes on everything she ordered at dinner.
+- Looking back, it must have been another choreography, it was just absurd.
+- I don't remember seeing her paying for anything, or signing her bills; she would just bark at the waitresses, *oh, put it on my bill* and walk off.
+- Her ex-husband was a depressed millionaire, apparently, and ran a business looking after stray dogs.
 - I had no reason to doubt anything they were saying to me.
-- They had met at Vodafone in Paddington, something we shared, except when I tried to talk about this, she deflected.
+- They had met working at Vodafone in Paddington, something we shared, except when I tried to talk about this, she deflected.
 - The day after I told her what I knew, they left hurriedly with the excuse the girl had gotten dengue fever.
 - Like the others, she never returned my subsequent attempt to communicate and make sure the girl was OK.
-- The woman, Hala, said she was Lebanese from St John's Wood.
-- Given I managed to escape [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) - the switcheroo show host I'm told - waiting for me at Alicante airport a few weeks before, and I had gone back to practice at the conservatory the next day, all the teachers amazed and laughing, they would have been desperate to know how much I knew at that stage, and maybe even get a *top up* in which may explain the [horrific nightmare I had](#the-first-time-i-become-terrified-about-being-arrested).
+- The woman, Hala, said she was Lebanese and living in St John's Wood.
+- Given I managed to escape [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) - the switcheroo show host, I'm told - waiting for me at Alicante airport just a few weeks before, and given I had gone back to practice at the conservatory the next day, with all the teachers amazed and laughing at me, they would have been desperate to know how much I knew at that stage, and maybe even get a *top up* in which may explain the [horrific nightmare I had](#the-first-time-i-become-terrified-about-being-arrested).
 - A lot like [Sandra and the hairdresser](../2025/august.md#haircut), Hala made trouble for me with Polly the masseuse I recommended. I told Hala [Polly had been instrumental in my healing](../2022/december.md#a-seizure-in-thailand) and I also told her I had thought they had switched on me.
 - The Thai women started to say weirdly toxic things to me about sex and prostitution as if someone had been lying to them about me.
 - It was inconceivable to me how much money I had been making for British and Spanish criminal gangs, and so the idea that they could send people around the world to stalk me, like they did at [Christmas in Madrid](december.md#christmas), wasn't even a seed of an idea, yet.
