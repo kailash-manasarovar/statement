@@ -423,6 +423,8 @@ function googleTranslateElementInit() {
 - It was inconceivable to me how much money I had been making for British and Spanish criminal gangs, and so the idea that they could send people around the world to stalk me, like they did at [Christmas in Madrid](december.md#christmas), wasn't even a seed of an idea, yet.
 - Obviously, given the *it's safe* report going back to the Cano-Lopez's and Smiths via Hala and goodness knows who else, the terror continued apace; but they never stopped to think that I would survive whatever they threw at me, remember enough to launch a truth missile into the stratosphere, and quietly tell my story.
 
+![Rose petals in Samui](../../content/images/samui-rose-petals.PNG)
+
 ### My first request for help
 
 - While I'm away, I decide to write to Concha to tell her everything, and apologize for mentioning on X that she was being bullied by Domingo's students.
@@ -570,4 +572,5 @@ function googleTranslateElementInit() {
 - Interestingly, Sandra Rita Diaz often asked to use the toilet whenever she visited my room.
 - I believe it was around this time that Sandra Rita Diaz started to talk about poisoning in other contexts, repeatedly. 
 - Poisoning would be a common theme in our discussions for over a year.
-- Was she trying to warn me?
+- Was she trying to warn me about something?
+- Or is she just a bit leaky?
