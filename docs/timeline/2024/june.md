@@ -273,7 +273,7 @@ function googleTranslateElementInit() {
 - I haven't felt safe like this for a good few years, if ever.
 - I like it.
 
-### The East Finchley summer festival at Cherry Tree Woods
+### The East Finchley summer festival
 
 - The [East Finchley festival](https://www.eastfinchleyfestival.org/) takes place on the 23rd June in Cherry Tree Woods.
 - We set up outside the park gate to give out leaflets and talk to people.
@@ -327,8 +327,8 @@ function googleTranslateElementInit() {
 - Let's see now...
 - I can tell you that at the time I thought it was very weird and a bit *too* coincidental.
 - Now, I believe it is part of the generalized witchery going on and there may have been a *top up* for me in that water, or on the paper it came in, or the bag itself, to make sure I didn't suddenly remember [the four distinct trumpet teachers](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and instead kept obsessing about my *one true love*.
-- Certainly at the party I noticed I had become extraordinarily physically sensitive in the way one might if they had taken a low-dose hallucinogen or ecstasy pill, or similar.
 - It worked too, but that's was part of the bigger-and-better plan anyway wasn't it, *Our/Her/His Way*.
+- Certainly at the party I noticed I had become extraordinarily physically sensitive in the way one might if they had taken a low-dose hallucinogen or ecstasy pill, or similar.
 
 ### Labour Party shenanigans
 
