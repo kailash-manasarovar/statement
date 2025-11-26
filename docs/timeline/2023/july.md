@@ -398,7 +398,7 @@ function googleTranslateElementInit() {
 
 ### Hala
 
-- I meet a woman on holiday with her family in Thailand, Hala.
+- I meet a woman on holiday with her family in Thailand, Hala Foustok.
 - I tell her everything that has happened, the whole story as I see it at that time.
 - Her name comes up on fake accounts later on in the summer.
 - My understanding of what was going on at this time was sketchy.
