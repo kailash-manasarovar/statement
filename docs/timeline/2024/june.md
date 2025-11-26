@@ -294,7 +294,7 @@ function googleTranslateElementInit() {
 - There were a few upsetting moments.
 - I was *accosted* at one stage by a teenage girl who thought she was *non-binary*.
 - Her and her friend were intent on upsetting me.
-- I told them I was doing it for them; so that they don't have to share a prison cell with a rapist when they can't pay their license fee, amongst other example.
+- I told them I was doing it for them; so that they don't have to share a prison cell with a rapist when they can't pay their license fee, amongst other examples.
 - It was as if a grey mist came down when I spoke sense to them, and off they went on another random tangent.
 - I asked them if they went to Fortismere school.
 - They got very upset with me; *why are you asking us that?*.
@@ -323,10 +323,11 @@ function googleTranslateElementInit() {
 - It's a gift from St Valentine's well in Glasgow, Scotland that she's just visited.
 - She gives it to me at the [Party of Women party](#party-of-women-party) the following week.
 - It is a little vial of holy water from the church in Glasgow which has some of St Valentine's relics.
-- I mean... ???
+- I mean... were they panicking at this stage?
 - Let's see now...
 - I can tell you that at the time I thought it was very weird and a bit *too* coincidental.
 - Now, I believe it is part of the generalized witchery going on and there may have been a *top up* for me in that water, or on the paper it came in, or the bag itself, to make sure I didn't suddenly remember [the four distinct trumpet teachers](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and instead kept obsessing about my *one true love*.
+- Certainly at the party I noticed I had become extraordinarily physically sensitive in the way one might if they had taken a low-dose hallucinogen or ecstasy pill, or similar.
 - It worked too, but that's was part of the bigger-and-better plan anyway wasn't it, *Our/Her/His Way*.
 
 ### Labour Party shenanigans
