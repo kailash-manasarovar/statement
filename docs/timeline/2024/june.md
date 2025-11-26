@@ -282,6 +282,30 @@ function googleTranslateElementInit() {
 ![East Finchley festival](../../content/images/east-finchley-festival-2.jpg)
 
 - A few more volunteers help out too.
+- Steve and Athena come with Ruby the dog.
+- A friend of Stella comes.
+- Dad comes to watch.
+- It was a great afternoon.
+
+![East Finchley festival](../../content/images/east-finchley-festival-1.jpg)
+
+#### Trans kids and their parents
+
+- There were a few upsetting moments.
+- I was *accosted* at one stage by a teenage girl who thought she was *non-binary*.
+- Her and her friend were intent on upsetting me.
+- I told them I'm doing it so they don't have to share a prison cell with a rapist when they can't pay their license fee, and other things.
+- It was as if a grey mist came down when I spoke sense to them, and off they went on another random tangent.
+- I asked them if they went to Fortismere school.
+- They got very upset with me then.
+- They were totally lost youngsters and I felt bad that they had been so utterly manipulated.
+- There were also a few extremely angry, I would say broken and projecting, parents.
+- This was the first time I had interacted with victims of trans ideology, children and parents, and it was very educational.
+- I felt bad for them and I understood why the parents had to be angry at me.
+- It was the only way to allay the guilt of what they were doing to their own children, which no-one, even the insane, can hide from.
+
+#### So (Janet)
+
 - So (Janet), a volunteer, attends for a short time. 
 - She calls herself *So*, a poetry name, but her real name is Janet.
 - She is an election agent for another Party Of Women candidate, Bev, standing in Islington North.
@@ -291,11 +315,17 @@ function googleTranslateElementInit() {
 ![Trannish inquisition](../../content/images/trannish-inquisition.png)
 
 - My eyebrows fly up to the sky.
-- This message was on an early-days fake-account which I'm guessing must have been run by Hazel.
-- So (Janet) is close chums with another X account `AmericanTerf` who causes endless trouble on X.
-- I believe probably Hazel is behind this and therefore So (Janet) works for the criminal gangs primarily, but I suspect she is a police informant also.
-
-![East Finchley festival](../../content/images/east-finchley-festival-1.jpg)
+- Apart from the obvious link to Spanish gang-stalkers, this message was written verbatim on an early-day's (September 2023 when [I went public on X](../2023/september.md#going-public-on-twitter)) fake-account `@Fredegonde_R` which interacted with me excessively and I have to assume is managed somehow by Hazel ajd her associates.
+- So (Janet) is close chums with another X account `@RadfemBeat` someone who also causes endless trouble on X; when I say trouble I mean picking fights and splitting people apart.
+- I wondered if So (Janet) is also an associate of Hazel.
+- I figured she works for the criminal gangs primarily, but I also suspect she is a police informant.
+- So told me about something she had for me, a gift from St Valentine's well in Glasgow, Scotland that she'd just visited.
+- It was a little vial of holy water from the church.
+- I mean... ???
+- Let's see now.
+- I can tell you that at the time I thought it was weird and a bit *too* coincidental.
+- Now, I believe it is part of the generalized witchery going on and there may have been a *top up* for me in that water, or on the paper it came in, or the bag itself, to make sure I didn't suddenly remember [the four distinct trumpet teachers](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and instead kept obsessing about my *one true love*.
+- It worked too, but that's was part of the bigger plan wasn't it.
 
 ### Labour Party shenanigans
 
