@@ -308,7 +308,7 @@ function googleTranslateElementInit() {
 
 - So (Janet), a volunteer, attends for a short time. 
 - She calls herself *So*, a poetry name, but her real name is Janet.
-- She is an election agent for another Party Of Women candidate, Bev, standing in Islington North.
+- She is an election agent for another Party Of Women candidate, Lesley, standing in Islington South.
 - She says she can't stay out long because she gets too hot.
 - She gives my dad, who has come along to watch, a badge.
 
