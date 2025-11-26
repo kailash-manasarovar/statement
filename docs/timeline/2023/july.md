@@ -412,7 +412,8 @@ function googleTranslateElementInit() {
 - I don't remember seeing her paying for anything, or signing, she would just bark at the waitresses, oh, put it on my bill.
 - Her husband was a millionaire, apparently, and ran a business looking after stray dogs.
 - They had met at Vodafone in Paddington, something we shared, except when I tried to talk about this, she deflected.
-- The day after I told her what I knew, they left hurriedly with the excuse the girl had gotten dengy fever.
+- The day after I told her what I knew, they left hurriedly with the excuse the girl had gotten dengue fever.
+- Like the others, she never returned my subsequent attempt to communicate and make sure the girl was OK.
 - The woman, Hala, said she was Lebanese from St John's Wood.
 - Given I had not managed to get caught by [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) - the switcheroo show host I'm told - at Alicante airport a few weeks before, and I had gone back to practice at the conservatory the next day, all the teachers amazed and laughing, they would have been desperate to know how much I knew at that stage, and maybe even get a *top up* in.
 - A lot like [Sandra and the hairdresser](../2025/august.md#haircut), Hala made trouble for me with Polly the masseuse I recommended, and the Thai women said weirdly toxic things to me about sex and prostitution as if someone had been lying to them about me.
