@@ -349,8 +349,10 @@ function googleTranslateElementInit() {
 - We know their honey-trapping departments like to target middle-aged Western women over social media and elsewhere because we're kind and generous, quick to love maybe.
 - But in-person spying too?
 - What concerns the criminal porn industry so much that it sends spies into groups that are against the sterilization and mutilation of children?
-- Could this grotesque process of turning a child, mostly girls, to the trans-darkside online be a multimillion dollar porn-genre too, just like [switcheroo is](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) or perhaps even birth porn? 
-- Nothing would surprise me any longer.
+- Could this grotesque process of turning a child, mostly girls, to the trans-darkside online be a multimillion dollar porn-genre too, just like [switcheroo is](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) or perhaps even birth porn? Nothing would surprise me any longer.
+- Where does it end for porn-addicted men? 
+- Will they only be satisfied with the total destruction of moral Western society?
+- It seems so.
 
 ### Labour Party shenanigans
 
