@@ -332,9 +332,22 @@ function googleTranslateElementInit() {
 - It worked too, but that's was part of the bigger-and-better plan anyway wasn't it, *Our/Her/His Way*.
 - Certainly at the party  after receiving the gift I noticed I had become extraordinarily physically sensitive in the way one might if they had taken a low-dose hallucinogen or ecstasy pill, or similar.
 
-### Seonaid Dawn
+### Seonaid Dawn Barber
 
-- wip
+- It just gets madder and madder.
+- You may remember [Seonaid Dawn](march/1-12.md#seonaiddawn) from a previous section where I describe intense cyber-stalking on the run up to the [conservatory piano concert](march/1-12.md#the-piano-concert) where someone dressed up as my deceased friend [Lorraine Blackbourn](../2021/july.md#lorraine-blackbourn-commits-suicide).
+- You may remember too that this account had been tag-teaming with accounts run by [Hazel Smith](../early-years/2007.md#hazel-smith) and other such as [`Lorraine Tortured Whistleblower`](march/13-end.md#lorraine-tortured-whistleblower) to cause me distress over this period.
+- Well, I was somewhat amazed to see Seonaid Dawn in the Party of Women zoom meetings on the run up to the general election, and to learn she was standing as candidate for West Worcestershire.
+- It was difficult to know what to think at the time, other than there was a genuine link from where I was sitting to the Dénia porn gangs. 
+- What could the connection be?
+- Again, I assume Seonaid was another criminal gang connection come to spy on our activities, but what for?
+- The criminal porn industry was putting a lot of resources into making sure they knew everything women were doing against trans ideology?
+- Why?
+- Why does trans ideology concern criminal enterprises like Hazel's?
+- We know their honey-trapping departments like to target middle-aged Western women because we're generous and this is obvious over social media. But in-person spying too?
+- What concerns the criminal porn industry so much that it will sends spies into groups that are against the sterilization and mutilation of children?
+- Is this itself a multimillion dollar porn-genre too? And needs protecting?
+- Nothing would surprise me any longer.
 
 ### Labour Party shenanigans
 
