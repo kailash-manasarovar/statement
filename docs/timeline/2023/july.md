@@ -28,7 +28,7 @@ function googleTranslateElementInit() {
 - He is doing this to show me that he, a teacher at the conservatory, can do whatever he likes to the little girls.
 - He may claim common cultural practices for this later, and in the fairly recent past that may have been true in Spain; certainly in 2005 when I first lived in Spain I would not have been concerned about this sort of thing at all.
 - However, since normal men across the world got themselves addicted to pedo-porn, creating a burgeoning market which requires the daily abuse of millions of minors; add to that my horrific sexual grooming experiences at the conservatory and online at home in Dénia, we should be extremely concerned about what this sort of behavior implies.
-- And then, what with the conservatory actually being a porn studio...
+- And then, what with the conservatory being an actual porn studio...
 
 ## X.com
 
