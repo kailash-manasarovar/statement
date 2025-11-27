@@ -342,7 +342,7 @@ function googleTranslateElementInit() {
 - Weird.
 - It was difficult to know what to think at the time, other than that this was a genuine link from people concerned about children being manipulated into the trans cult to the Dénia porn gangs. 
 - What could the connection be?
-- I had to assume Seonaid was yet another criminal gang connection come to spy on our activities, but what for?
+- I had to assume Seonaid was yet another criminal gang member come to spy on our activities, but what for?
 - The criminal porn industry was putting a lot of resources into making sure they knew everything women were doing against trans ideology?
 - Why?
 - Why does trans ideology concern criminal enterprises like Hazel's?
