@@ -335,18 +335,21 @@ function googleTranslateElementInit() {
 ### Seonaid Dawn Barber
 
 - It just gets madder and madder.
-- You may remember [Seonaid Dawn](march/1-12.md#seonaiddawn) from a previous section where I describe intense cyber-stalking on the run up to the [conservatory piano concert](march/1-12.md#the-piano-concert) where someone dressed up as my deceased friend [Lorraine Blackbourn](../2021/july.md#lorraine-blackbourn-commits-suicide).
-- You may remember too that this account had been tag-teaming with accounts run by [Hazel Smith](../early-years/2007.md#hazel-smith) and other such as [`Lorraine Tortured Whistleblower`](march/13-end.md#lorraine-tortured-whistleblower) to cause me distress over this period.
+- You may remember [Seonaid Dawn](march/1-12.md#seonaiddawn) from a previous section where I describe intense cyber-stalking on the run up to the [conservatory piano concert](march/1-12.md#the-piano-concert) where someone dressed up as my deceased friend [Lorraine Blackbourn](../2021/july.md#lorraine-blackbourn-commits-suicide) who I believe was driven to suicide online.
+- You may remember too that this account had been tag-teaming with accounts run by world-famous murderer [Hazel Smith](../early-years/2007.md#hazel-smith) and others such as [**Lorraine Tortured Whistleblower**](march/13-end.md#lorraine-tortured-whistleblower) to cause me distress over this period.
 - Well, I was somewhat amazed to see Seonaid Dawn in the Party of Women zoom meetings on the run up to the general election, and to learn she was standing as candidate for West Worcestershire.
-- It was difficult to know what to think at the time, other than there was a genuine link from where I was sitting to the Dénia porn gangs. 
+- It reminded me a little of [Anita Diamond popping up on Slack](../2021/march.md#qredo) at another suspicious job in 2021. 
+- Weird.
+- It was difficult to know what to think at the time, other than that this was a genuine link from people concerned about children being manipulated into the trans cult to the Dénia porn gangs. 
 - What could the connection be?
-- Again, I assume Seonaid was another criminal gang connection come to spy on our activities, but what for?
+- I had to assume Seonaid was yet another criminal gang connection come to spy on our activities, but what for?
 - The criminal porn industry was putting a lot of resources into making sure they knew everything women were doing against trans ideology?
 - Why?
 - Why does trans ideology concern criminal enterprises like Hazel's?
-- We know their honey-trapping departments like to target middle-aged Western women because we're generous and this is obvious over social media. But in-person spying too?
-- What concerns the criminal porn industry so much that it will sends spies into groups that are against the sterilization and mutilation of children?
-- Is this itself a multimillion dollar porn-genre too? And needs protecting?
+- We know their honey-trapping departments like to target middle-aged Western women over social media and elsewhere because we're kind and generous, quick to love maybe.
+- But in-person spying too?
+- What concerns the criminal porn industry so much that it sends spies into groups that are against the sterilization and mutilation of children?
+- Could this grotesque process of turning a child, mostly girls, to the trans-darkside online be a multimillion dollar porn-genre too, just like [switcheroo is](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) or perhaps even birth porn? 
 - Nothing would surprise me any longer.
 
 ### Labour Party shenanigans
