@@ -25,7 +25,7 @@
 - They could be related.
 - I go and get our dinners, leaving dad alone with her.
 - What do they talk about?
-- As we leave, she makes an unnecessary hand-gesture to me which is just one of a million things I did that the teachers and staff at the conservatory jeered at.
+- As we leave, she makes an unnecessary hand-gesture to me which is a specific thing I did that the teachers and staff at the conservatory jeered at.
 - The bar staff address the woman by name.
 - Dad said he thinks she's the boss. 
 - Just like the guy from March, she had the air of someone who only speaks to people who are very afraid of her.
@@ -53,10 +53,10 @@
 - The news is unsurprising, rather liberating in fact.
 - Suddenly, my life experiences make total sense.
 - What he doesn't say is if he told the porn gangs of Dénia stating that no-one would ever investigate anything that happened to me.
-- Is that why he's worried about it coming out now. 
+- Is that why he's worried about it coming out now?
 - Or did [the woman in the Red Lion](#the-woman-at-the-red-lion) tell him not to go to Lourdes with me because they were going to finish me off and he was getting it off his chest with someone he felt would never be able to tell?
 - I got the date wrong on this on the initial commit but then remembered it had to have been before I left for Lourdes.
-- Did his untouchable status make him capable of unspeakable evil.
+- Did his untouchable status make him capable of unspeakable evil?
 - Did my dad boast about this to the wrong people over the years, about how his daughter would have no humans rights if anything happened to her?
 - I wonder if they all knew they could do whatever they like to me, including murder, and no-one would lift a finger.
 - Did he very literally throw us to the wolves?
