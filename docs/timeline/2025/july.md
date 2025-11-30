@@ -69,6 +69,7 @@
 - Not everyone knew about this, of course, or they wouldn't have bothered trying to punish him for his various evils through targeting me.
 - It clears up why everyone is warned off me more recently, notably when [I stood for election in June 2024](../2024/june.md#election-campaign) and it was obvious I had been massively discredited and I no idea why.
 - The truth is liberating but very upsetting at times.
+- And he's not getting anything off his chest. He's telling me why I'm about to be murdered, without really telling me why. Is it a sick apology in advance.
 
 ## Lourdes
 
