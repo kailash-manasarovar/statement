@@ -163,7 +163,14 @@ function googleTranslateElementInit() {
 - Even so, she looks familiar to me for some reason, but I don't know this at the time.
 - Only in retrospect after intense and long-term drugging with hallucinogenic herbs, such as mandrake, wears off do I realize she was the woman who showed me a few apartments I thought about buying in 2014.
 - She worked at [InmoXara](https://www.inmoxara.es/) in La Xara and ChatGPT did a very good job on her likeness.
+- Could the woman I saw have been Gema Garcia?
+
+![Gema Garcia](../../content/images/gema-garcia.jpg)
+
 - I wonder if a world in which gangsters freely build a porn-studio in a school, all the men go totally crazy and all the women and children in the region, and some men, are in constant danger?
+- Or perhaps anyone in the real estate business, renting and selling houses, is a target.
+- Is this why Paul from [Paul Matthew homes](https://www.paulmatthewhomes.com/) got an invite to the [switcheroo events](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) some time in [October 2023](october.md#paul-and-alessandra)?
+- I asked Paul if all the properties he manages have a spy-cam network installation. He didn't reply.
 
 ### Did they walk me around town too
 
