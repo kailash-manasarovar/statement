@@ -157,10 +157,10 @@ function googleTranslateElementInit() {
 ![Tonia](../../content/images/tonia.png)
 
 - She is always grinning rather inanely, but behind the grin I see fear.
-- The woman is frogmarched into bumping into me at times, and always is led about in such a way so that I notice her and her lack of autonomy.
+- The woman is frogmarched into bumping into me at times, and is led about in such a way so that I notice her and her lack of autonomy.
 - It seems like she could be high on something.
 - At the time, I think she might be the [Tonya I keep hearing about](#tonya), but I'm wrong about that.
-- Even so, she looks familiar to me for some reason, but I don't know this at the time.
+- Even so, she looks familiar to me for some reason, but I don't know this at the time either.
 - Only in retrospect after intense and long-term drugging with hallucinogenic herbs, such as mandrake, wears off do I realize she was the woman who showed me a few apartments I thought about buying in 2014.
 - She worked at [InmoXara](https://www.inmoxara.es/) in La Xara and ChatGPT did a very good job on her likeness.
 - Could the woman I saw have been Gema Garcia?
