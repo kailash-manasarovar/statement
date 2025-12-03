@@ -387,7 +387,7 @@ function googleTranslateElementInit() {
 - The rest was, of course, intentional.
 - It was pretty horrendous.
 - Porn gangs were watching of course, as well as international security services.
-- The coup began in late March/April, after the redundancies, and the work (not much in the end, certainly not the huge requirement that meant a meeting of a whole team with 3 managers) was done on my system [at the end of April](https://github.com/Souptacular/hudsonjameson.com/commits?author=Souptacular&since=2025-04-24&until=2025-04-30) on the run up to Bali.
+- The coup began in late March/April, after the redundancies, and the actual work (not much in the end) they did [at the end of April](https://github.com/Souptacular/hudsonjameson.com/commits?author=Souptacular&since=2025-04-24&until=2025-04-30), on the run up to Bali, did not require anything like the amount of people who met me initially or three whole teams plus their managers. 
 - I wonder who gave the original order for this. 
 - Did they intentionally time the coup to coincide with the [drug porn-gang prep](april.md#drugged-in-the-street-by-dénia-gypsies)?
 - Was it David and Jordi, Ajay, or their Spanish underlings?
