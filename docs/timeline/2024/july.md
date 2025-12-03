@@ -31,6 +31,10 @@ function googleTranslateElementInit() {
 - I told him in Belgium that I was open to hallucinogenic plants, but for healing purposes only.
 - I explained that I believe it is not a good idea to misuse a powerful living being such as a healing plant for any reason at all, and the karma can be immense.
 
+### Meeting a weird guy
+
+- Hassan maybe? Something Islamic for sure.
+
 ### Gabriel Silva is given my role at Polygon
 
 - While at the conference, a number of things happen.

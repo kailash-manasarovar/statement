@@ -366,7 +366,7 @@ function googleTranslateElementInit() {
 - I like Ben.
 - Ben leaves the company soon after Bali, hurriedly, just like a couple of the others do, notably Alicia and the Aussie guy, Jarrod Watts, who Gabriel instructed to make me look incompetent.
 
-#### Ajay, Alicia, and mushroom-man perform a military coup on my job
+#### Ajay, Alicia, Aman Pandey, and mushroom-man perform a military coup on my job
 
 - Cross-company marketing teams are instructed to perform a military coup on my role.
 - Hans and Anthony are not included in the intense pressure these teams put me under while they attempt to cause me severe anxiety and demonstrate my incompetence.
