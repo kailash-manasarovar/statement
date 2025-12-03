@@ -142,20 +142,28 @@ function googleTranslateElementInit() {
 
 - Fake accounts and constant online communications with nefarious players keep mentioning the name *Tonya*.
 - I don't know why.
-- Often on a Monday evening, when I walk back home from the conservatory through the tunnel, I see a woman being led along by a short wiry man.
-
-![Tonia](../../content/images/tonia.png)
-
-- She is always grinning rather inanely, but behind the grin I see fear.
-- She is frogmarched into bumping into me at times, and always is led about in such a way so that I notice her and her lack of autonomy.
-- I wonder if she's Tonya. 
-- She seems like she could be high on something.
+- I initially think Tonya is [the estate agent from La Xara](#the-woman-from-inmoxara-in-la-xara) but I'm wrong about that.
 - The following summer, another candidate for [who Tonya could be](../2024/august.md#photos-of-abused-women-and-girls) pops up every day on numerous fake accounts.
 
 ![Who is Tonya](../../content/images/targeted-women/innocent-lady/1.png)
 
-- Eventually I realize that perhaps the trumpet teacher himself is called Tonya, or Tonia, and that he was trying to communicate honestly with me against a lot of online noise that did not want us to communicate for some reason.
+- Eventually I realize that perhaps the trumpet teacher himself is called Tonya, or Tonia, and that he was trying to communicate honestly with me against a lot of online noise that did not want us to communicate for obvious reasons.
 - Was Tonia the good hacker, the trumpet teacher who cried, a lone man trying to do the right thing against an online hellscape ridden with evil?
+
+## The woman from InmoXara in La Xara
+
+- Often on a Monday evening, and perhaps other evenings I'm walking back home from my conservatory classes through the tunnel, I see a woman being led along by a short wiry man.
+
+![Tonia](../../content/images/tonia.png)
+
+- She is always grinning rather inanely, but behind the grin I see fear.
+- The woman is frogmarched into bumping into me at times, and always is led about in such a way so that I notice her and her lack of autonomy.
+- It seems like she could be high on something.
+- At the time, I think she might be the [Tonya I keep hearing about](#tonya), but I'm wrong about that.
+- Even so, she looks familiar to me for some reason, but I don't know this at the time.
+- Only in retrospect after intense and long-term drugging with hallucinogenic herbs, such as mandrake, wears off do I realize she was the woman who showed me a few apartments I thought about buying in 2014.
+- She worked at [InmoXara](https://www.inmoxara.es/) in La Xara and ChatGPT did a very good job on her likeness.
+- I wonder if a world in which gangsters freely build a porn-studio in a school, all the men go totally crazy and all the women and children in the region, and some men, are in constant danger?
 
 ### Did they walk me around town too
 

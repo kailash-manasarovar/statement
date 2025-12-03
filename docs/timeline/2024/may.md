@@ -390,7 +390,7 @@ function googleTranslateElementInit() {
 - The coup began in late March/April, after the redundancies, and the actual work (not much in the end) they did [at the end of April](https://github.com/Souptacular/hudsonjameson.com/commits?author=Souptacular&since=2025-04-24&until=2025-04-30), on the run up to Bali, did not require anything like the amount of people who met me initially or three whole teams plus their managers. 
 - I wonder who gave the original order for this. 
 - Was it David and Jordi, Ajay, or their Spanish underlings?
-- Did they intentionally time the coup to coincide with the [Dénia porn-gang drugging and sedated training](april.md#drugged-in-the-street-by-dénia-gypsies)?
+- Did they intentionally time the coup to coincide with the [Dénia porn-gang drugging and sedated training](april.md#drugged-in-the-street-by-denia-gypsies)?
 - Were the gangs live-streaming these constant *humiliations* at work as part of the porn genre?
 - Was this particular humiliation - like the [zkSync increasing pressure](../2023/june.md#elon), building up in step with the Denia porn-gangs on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023) - intended in the same way to build up pressure in step on the run up to [Bali](#bali)?
 - Did Alicia, Ajay, Aman, and mushroom man know about the sedated spy-cam porn conspiracy, live-streaming from my apartment?
@@ -481,7 +481,7 @@ function googleTranslateElementInit() {
 ![Bali](../../content/images/bali.png)
 
 - It's clearly very easy to whip the crowd up into a bullying frenzy.
-- At the time, and due to the outrageous [military coup on my job already mentioned](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job), I assume what's happening must be to do with [Nadim getting hold of my X account](../2023/november.md#nadim-kobesi) the November before and telling everyone I'm a "transphobe".
+- At the time, and due to the outrageous [military coup on my job already mentioned](#ajay-alicia-aman-pandey-and-mushroom-man-perform-a-military-coup-on-my-job), I assume what's happening must be to do with [Nadim getting hold of my X account](../2023/november.md#nadim-kobesi) the November before and telling everyone I'm a "transphobe".
 - I've no idea the Dénia rape-gangs have this sort of reach. I still think they are mostly silly little boys with too much electronic power.
 - I wonder if things would have been the same any of us knew about the mass-pedophile, baby-rape, murderous porn network live-streaming from private homes in Dénia; I'm guessing it's the best-loved and most well-known criminal porn studio in the world, and very likely connected to the Madeline McCann kidnap and consequent investigation fumble.
 - I guess the men were delighted about the [sedated *switcheroo* porn](../../crimes/protagonists/vidal-sastre.md#four-distinct-men), especially Gabriel who made sure to [mention it when he took over my job in August](august.md#gabriel-silvas-first-team-meeting-as-manager).
@@ -490,7 +490,7 @@ function googleTranslateElementInit() {
 - I had a meeting with Jarrod Watts and Brian Seong who have been given instructions from Gabriel about how he wants them to *sort out the docs*.
 - Jarrod spends the next month making ridiculous errors in the codebase in an attempt, I can only assume, to make my system look like a *single point of failure*. I kind of feel like Jarrod is a good guy with an impossible task.
 - Brian talks to me as if someone has told him I'm a total idiot.
-- [Ajay, Alicia, and mushroom man's teams](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job) are up to their old tricks again.
+- [Ajay, Alicia, and mushroom man's teams](#ajay-alicia-aman-pandey-and-mushroom-man-perform-a-military-coup-on-my-job) are up to their old tricks again.
 - I complain to my current manager about it, Paul O'Leary, referencing an earlier complaint I had made to him about the military-coup style bullying operations I'm enduring daily.
 - When I speak to Paul O'Leary about this in Bali, he sort of [groans with familiarity](october.md#madrid-and-paloma), in exactly the same way a Spanish government official groans when I tell her about the porn-gang activity and pedophilia going on at the conservatory of Dénia.
 - Groans of familiarity and inconvenience!
@@ -531,7 +531,7 @@ function googleTranslateElementInit() {
 
 ![Main ballroom](../../content/images/grand-ballroom.jpg)
 
-- It's Hudson Jameson, the mushroom man involved in the ongoing [military coup on my job](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job) with Ajay and Alicia.
+- It's Hudson Jameson, the mushroom man involved in the ongoing [military coup on my job](#ajay-alicia-aman-pandey-and-mushroom-man-perform-a-military-coup-on-my-job) with Ajay and Alicia.
 
 [![Mushroom man](../../content/images/mushroom-man.jpg)](https://github.com/Souptacular)
 
@@ -643,7 +643,7 @@ function googleTranslateElementInit() {
 - The gangs set women against each other like this so that a target of abuse feels they are unable to ask for help.
 - Women won't get together, talk, compare notes, and find out exactly how much danger we are all in, from maybe every man we work with.
 - It's usually obvious which men aren't safe, but we cannot tell which men are. They don't announce it.
-- Alicia Katz worked at Polygon and was part of the [bullying military coup operation](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job) that I complained about to both David Schwartz and Paul O'Leary.
+- Alicia Katz worked at Polygon and was part of the [bullying military coup operation](#ajay-alicia-aman-pandey-and-mushroom-man-perform-a-military-coup-on-my-job) that I complained about to both David Schwartz and Paul O'Leary.
 - Was she aware of the true story behind what was going on? Perhaps not.
 - At Bali, I was set up to *bump* into Alicia a couple of times; one such time she was running towards a group of smiling people, perhaps David Schwartz and some of the Spanish men were amongst them.
 - Her run was timed to collide with me precisely; she looked extremely stressed and worried as she ran past me, and I knew immediately, they're targeting her too.
@@ -703,7 +703,7 @@ function googleTranslateElementInit() {
 - Sometimes he let's information slip.
 - *Oh they're really gonna go for you*, he says, when we talk about Hinduism versus Islam.
 - I wonder who the *they* are that he is referring to.
-- Is he referring to Aziv, the [Pakistani Yorkshireman](#the-pakistani-yorkshire-man) and the burgeoning [military coup gang](#ajay-alicia-and-mushroom-man-perform-a-military-coup-on-my-job)?
+- Is he referring to Aziv, the [Pakistani Yorkshireman](#the-pakistani-yorkshire-man) and the burgeoning [military coup gang](#ajay-alicia-aman-pandey-and-mushroom-man-perform-a-military-coup-on-my-job)?
 - I'm surprised Hans is not on my side. I have told him about my Hanuman devotion after all.
 - Every time I'm heading back to my room after dinner, Hans is waiting outside the approach to the bedrooms with one or another of the Chinese men.
 - I say hi every time I see him there, late, talking.
