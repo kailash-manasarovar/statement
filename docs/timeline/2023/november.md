@@ -169,7 +169,7 @@ function googleTranslateElementInit() {
 
 - I wonder if a world in which gangsters freely build a porn-studio in a school, and everyone knows about it, all the men go totally crazy and all the women and children in the region, and some men, are in constant danger?
 - Or perhaps anyone in the real estate business in the region - renting and selling houses - is a target, like [my furious landlady Bea, the local architect](../2021/december.md#too-good-to-be-true-on-the-8th-december).
-- Is this why Paul from [Paul Matthew homes](https://www.paulmatthewhomes.com/) got an invite to the [switcheroo events](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) some time in [October 2023](october.md#paul-and-alessandra)?
+- Is this why Paul from [Paul Matthew Homes](https://www.paulmatthewhomes.com/) got an invite to the [switcheroo events](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) some time in [October 2023](october.md#paul-and-alessandra)?
 - I asked Paul if all the properties he manages have a spy-cam network installation. He didn't reply.
 
 ### Did they walk me around town too
