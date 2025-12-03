@@ -389,9 +389,9 @@ function googleTranslateElementInit() {
 - Porn gangs were watching of course, as well as international security services.
 - The coup began in late March/April, after the redundancies, and the actual work (not much in the end) they did [at the end of April](https://github.com/Souptacular/hudsonjameson.com/commits?author=Souptacular&since=2025-04-24&until=2025-04-30), on the run up to Bali, did not require anything like the amount of people who met me initially or three whole teams plus their managers. 
 - I wonder who gave the original order for this. 
-- Did they intentionally time the coup to coincide with the [drug porn-gang prep](april.md#drugged-in-the-street-by-dénia-gypsies)?
 - Was it David and Jordi, Ajay, or their Spanish underlings?
-- Were the gangs live-streaming these constant *humiliations* as part of the porn genre?
+- Did they intentionally time the coup to coincide with the [Dénia porn-gang drugging and sedated training](april.md#drugged-in-the-street-by-dénia-gypsies)?
+- Were the gangs live-streaming these constant *humiliations* at work as part of the porn genre?
 - Was this particular humiliation - like the [zkSync increasing pressure](../2023/june.md#elon), building up in step with the Denia porn-gangs on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023) - intended in the same way to build up pressure in step on the run up to [Bali](#bali)?
 - Did Alicia, Ajay, Aman, and mushroom man know about the sedated spy-cam porn conspiracy, live-streaming from my apartment?
 - Did they know that whoever had ordered the coup was working with a prolific serial-killing porn-gang based in Dénia?
@@ -403,7 +403,7 @@ function googleTranslateElementInit() {
 - During the military coup-style approach they took on my job, mushroom man was speaking online one afternoon to Jaime about his lengthy experience with drugs and hallucinogens.
 - Was this so the porn gangs, or porn subscribers, monitoring my every move would know he was a *cool guy*?
 - Did someone tell Hudson Elon himself was watching me?
-- Is it possible Elon Musk is involved in the female-tech-colleague sedated-rape-porn conspiracy organized by a serial-killing porn-gang who may have linked to the Madeline McCann kidnap?
+- Is it possible Elon Musk is involved in the female-tech-colleague sedated-rape-porn conspiracy organized by a serial-killing porn-gang who may have links to the Madeline McCann kidnap?
 - At the time, I thought the constant vicious behavior from staff at Polygon was due to my women's rights activities online, but it wasn't really that at all, although it's possible that's how the big important men in the know justified it to everyone else.
 - Were some of them uncomfortable about what was going on?
 - After Bali, in quick succession, a number of people involved left the business: Alicia, Ajay, and Aman included.
