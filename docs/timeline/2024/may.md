@@ -370,34 +370,42 @@ function googleTranslateElementInit() {
 
 - Cross-company marketing teams are instructed to perform a military coup on my role.
 - Hans and Anthony are not included in the intense pressure these teams put me under while they attempt to cause me severe anxiety and demonstrate my incompetence.
-- Led by Ajay, Alicia, and mushroom man, in a meeting of about 15 people, I was informed their teams were coming in to overhaul the documentation, to fix it up, to help me.
-- Mushroom man's profile pic on Slack is him dressed up like a magic mushroom. He's Hudson Jameson but let's keep calling him mushroom man.
+- Led by Ajay, Alicia, Aman, and mushroom man, in a meeting of about 15 people, I was informed their teams were coming in to overhaul the documentation, to fix it up, to help me.
+- Aman meets me online. He tells me he is a multi-million dollar tech CEO. He's an intern. I'm quietly amused.
+- Mushroom man's profile pic on Slack is him dressed up like a magic mushroom. He's Hudson Jameson.
 
 ![Mushroom man](../../content/images/mushroom-man.jpg)
 
+- Mushroom man meets me online. He tells me he is a kingpin in the Ethereum space. I've never heard of him.
 - He gives out thousands of little pictures of himself dressed like a magic mushroom at [EthCC](july.md#uk-and-belgium) in July. They were everywhere.
 - I thanked the teams initially because I had a million things to do and no time to do them.
 - I wrote a clear list on what I needed and how the process must work.
 - They ignored my gratitude and everything I said, and went off in tangents doing whatever they felt like and blatantly taking over my role as docs team lead.
 - Mushroom man was particularly unpleasant, ignoring my requests as I was making them and doing something orthogonal.
-- It was, of course, all intentional.
+- Aman didn't show up or complete any tasks I specifically gave him. 
+- Some of the Indian team members were very helpful and clearly just pulled in without any background knowledge.
+- The rest was, of course, intentional.
 - It was pretty horrendous.
 - Porn gangs were watching of course, as well as international security services.
-- The coup began in late March/April, after the redundancies, and work was done on my system [at the end of April](https://github.com/Souptacular/hudsonjameson.com/commits?author=Souptacular&since=2025-04-24&until=2025-04-30) on the run up to Bali.
+- The coup began in late March/April, after the redundancies, and the work (not much in the end, certainly not the huge requirement that meant a meeting of a whole team with 3 managers) was done on my system [at the end of April](https://github.com/Souptacular/hudsonjameson.com/commits?author=Souptacular&since=2025-04-24&until=2025-04-30) on the run up to Bali.
 - I wonder who gave the original order for this. 
-- Was it David and Jordi; or their Spanish underlings?
+- Did they intentionally time the coup to coincide with the [drug porn-gang prep](april.md#drugged-in-the-street-by-dénia-gypsies)?
+- Was it David and Jordi, Ajay, or their Spanish underlings?
 - Were the gangs live-streaming these constant *humiliations* as part of the porn genre?
 - Was this particular humiliation - like the [zkSync increasing pressure](../2023/june.md#elon), building up in step with the Denia porn-gangs on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023) - intended in the same way to build up pressure in step on the run up to [Bali](#bali)?
-- Did Alicia, Ajay, and mushroom man know about the sedated spy-cam porn conspiracy, live-streaming from my apartment?
+- Did Alicia, Ajay, Aman, and mushroom man know about the sedated spy-cam porn conspiracy, live-streaming from my apartment?
+- Did they know that whoever had ordered the coup was working with a prolific serial-killing porn-gang based in Dénia?
+- Would they have cared anyway, if they knew?
 - I bet Alicia didn't know.
 - It was horrible but, frankly, the actual criminal activity I was dealing with online, and at home in my apartment, and at the conservatory, was far worse; it made Polygon's marketing teams look like pipsqueaks.
-- I ask for help from my managers. I'm ignored.
+- I ask for help from my managers. 
+- I'm ignored.
 - During the military coup-style approach they took on my job, mushroom man was speaking online one afternoon to Jaime about his lengthy experience with drugs and hallucinogens.
 - Was this so the porn gangs, or porn subscribers, monitoring my every move would know he was a *cool guy*?
 - Did someone tell Hudson Elon himself was watching me?
-- Is it possible Elon Musk is involved in the female-tech-colleague sedated-rape-porn conspiracy?
-- At the time, I thought the constant vicious behavior from staff at Polygon was due to my women's rights activities online, but it wasn't really that at all, although it's possible that's how the big important men justified it to everyone else.
-- I wonder why no-one told them I had been operating undercover for Interpol's OCG child-sex-trafficking department since 2017.
+- Is it possible Elon Musk is involved in the female-tech-colleague sedated-rape-porn conspiracy organized by a serial-killing porn-gang who may have linked to the Madeline McCann kidnap?
+- At the time, I thought the constant vicious behavior from staff at Polygon was due to my women's rights activities online, but it wasn't really that at all, although it's possible that's how the big important men in the know justified it to everyone else.
+- I wonder why no-one told them I had been operating undercover for Interpol's OCG child-sex-trafficking department since 2017, or earlier.
 
 #### David Schwartz steps down
 
@@ -708,7 +716,7 @@ function googleTranslateElementInit() {
 - No-one has scheduled my talk in and so I ask about it.
 - It seems I wasn't part of the regular management team meeting for normal purposes, was I.
 - At the last minute, I'm told I have a room and it's on the schedule on the last or second-to-last afternoon.
-- Hans, Anthony, and one other external colleague attend.
+- Hans, Anthony, and one other external colleague attend - Colin `@DablClub`.
 - Because of the external guy, I go ahead or I wouldn't have bothered.
 - Hans starts heckling me immediately, everything I say he has some comment or put down, or he knows much more than me about everything, especially technical matters he knows nothing about.
 - I'm amazed.
