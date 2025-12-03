@@ -405,7 +405,9 @@ function googleTranslateElementInit() {
 - Did someone tell Hudson Elon himself was watching me?
 - Is it possible Elon Musk is involved in the female-tech-colleague sedated-rape-porn conspiracy organized by a serial-killing porn-gang who may have linked to the Madeline McCann kidnap?
 - At the time, I thought the constant vicious behavior from staff at Polygon was due to my women's rights activities online, but it wasn't really that at all, although it's possible that's how the big important men in the know justified it to everyone else.
-- I wonder why no-one told them I had been operating undercover for Interpol's OCG child-sex-trafficking department since 2017, or earlier.
+- Were some of them uncomfortable about what was going on?
+- After Bali, in quick succession, a number of people involved left the business: Alicia, Ajay, and Aman included.
+- Did someone tell them I had been operating undercover for Interpol's OCG child-sex-trafficking department since 2017, or earlier.
 
 #### David Schwartz steps down
 
