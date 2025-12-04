@@ -56,13 +56,13 @@ The report details the following:
 - On becoming political and [standing for general election in the UK in July 2024](timeline/2024/june.md#volunteers-not-what-they-seem), criminal gangs made sure they had their people in place to keep an eye on me and continue to terrorize me.
 - With such confidence in *getting away with it*, criminal porn-gangs forged close alliances with my employers to create even more elaborate and sickening [criminal porn genres](timeline/2023/november.md#polygon) watched by the people I was working with.
 - The porn gangs have made a lot of money out of me over the decades, and I'm not the only one.
-- In the summer of 2024, the porn-gangs had finished with the *female tech colleague you hate* porn genre, and were still drugging and stalking me continuously as they worked steadily towards my total destruction.
+- By the summer of 2024, the porn-gangs had finished with the *female tech-colleague you hate* porn genre, and were still drugging and stalking me continuously as they worked steadily towards my total destruction.
 - I was interviewed online in October 2024 by a fellow UK general election candidate. 
 - The video was made public on YouTube, where I stated I believed [there were spy-cams in my apartment filming me](timeline/2024/october.md#youtube-with-kelly-oliver-dougall) and that I had been [targeted professionally at Polygon](timeline/2023/november.md#polygon) where I worked and I was about to take them to tribunal.
 - At this moment, the criminal gangs decided to murder me by poisoning with anti-freeze or similar, [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-harm-or-kill) and in my bathroom products.
 - They were absolutely certain of my demise and their freedom to murder a woman without consequence.
 - One working day prior to the poisoning, [Polygon fires me](timeline/2024/october.md#polygon-fires-the-whole-writing-team).
-- I sustained a severe kidney injury due to the poisoning and my eyesight was severely affected. 
+- I sustained an even more severe kidney injury (my kidneys had already suffered regular injury due to constant poisoning; see [rhabdo in January 2023](timeline/2023/january.md#serious-poisoning-at-chamber-music-class) and [kidney explosion at Halloween 2023](timeline/2023/october.md#halloween)) and my eyesight was severely affected. 
 - My vision deteriorated hugely since September 2024 and I was diagnosed with a [pre-glaucoma condition](timeline/2024/november.md#pre-glaucoma-diagnosis). This worsened in [July 2025](timeline/2025/july.md#lourdes) after another attempt at murdering me by poisoning failed.
 - My eye doctor says all is well and has given me the all-clear to start doing headstand again.
 - My right kidney, injured by constant poisoning with anti-freeze in my apartment over three years, remains weak but is healing.
