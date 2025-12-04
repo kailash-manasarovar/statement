@@ -166,7 +166,7 @@ Studying the piano at the conservatory was an enormous privilege.
 
 It is a special, magical place. 
 
-I always felt Dénia was my safe place. I had no idea that I had been targeted by criminals and porn gangs in Dénia since 2006. I had no idea of the ugly underbelly of this place, and the culture, and how women and children are particularly unsafe, even at public learning establishments.
+I always felt Dénia was my safe place. I had no idea that I had been targeted by criminals and porn gangs in Dénia. for decades I had no idea of the ugly underbelly of this place, and the culture, and how women and children are particularly unsafe, even at public learning establishments.
 
 In fact, I just wanted to play the piano and the standard of music teaching was second-to-none. 
 
