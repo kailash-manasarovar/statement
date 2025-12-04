@@ -20,52 +20,67 @@ function googleTranslateElementInit() {
 
 ![Book cover](content/images/the-novel/cover-2.webp)
 
-!!! warning
-    - This is a private repo, soon to be available to the public.
-
 ## Summary statement
 
 This document details multiple crimes committed against myself, Dr Katharine Margaret Murphy, Y2775989H; previously residing at Carrer Furs 15, Bloque 1, Escalera 2, Piso 3, Apartamento 17, Dénia, 03700 Alicante, Spain. 
 
 The crimes took place over the three years I lived in the apartment after [finding the apartment available online on the 8th December 2021](timeline/2021/december.md#too-good-to-be-true-on-the-8th-december) and [signing the lease](timeline/2021/december.md#death-clause) and moving in on [15th December 2022](timeline/2021/december.md#semen-stains-on-the-sofa).
 
-The crimes include distribution of spy-cam footage from my apartment where I was either masturbating or sedated and raped, and attempted murder.
+The crimes include distribution of spy-cam footage from my apartment where I was either masturbating, or sedated and raped, and attempted murder.
 
-Gang-stalking, cyber-terrorizing, constant online persecution, and poisoning (attempted murder) by criminal gangs has continued since leaving Spain in February 2025.
+Gang-stalking, cyber-terrorizing, constant online persecution, clandestine drugging, and poisoning (attempted murder) by criminal gangs continued since leaving Spain in February 2025, and up until I remembered something extraordinary about the Tenor Cortis conservatory of Dénia in September 2025.
 
 ## Mass voyeurism, cyber-stalking, gang stalking, honey-trapping, sedated and spy-cam porn, and staggering levels of violence against women
 
 The report details the following:
 
-- How I have been the subject of a [porn fatwa](timeline/early-years/2003.md#porn-fatwa) since at least 2003, issued by UK criminal gangs; the Adams family and possibly others.
+- How I have been the subject of a [porn fatwa](timeline/early-years/2003.md#porn-fatwa) since at least 2003, issued by UK criminal gangs - the Adams family and likely others - due to receiving £250K compensation for the Lockerbie terrorist bombing in which my aunt Geraldine was murdered while working as purser for Pan Am flight 103.
 - How, in Dénia itself, criminal gangs hacked my home network, mobile phones, and laptops - including gaining access to my work laptops from three different companies via my [home router](timeline/2024/march/1-12.md#reporting-hacking-to-polygon-labs). 
-- How, in Dénia itself between February 2022 and June 2023, I starred in a [*switcheroo* porn conspiracy](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) in which I was drugged and tricked into believing that four or more men were the same one male calling themselves Vidal Sastre Sanchez Hornero, all of them switching roles regularly while acting as trumpet teacher for children at the school, as well as me, and paid by and working for the Spanish-tax-payer's government-funded conservatory of Dénia.  
-- How previously, in the UK, criminal gangs had been monitoring all my online activity for decades and probably my family's too.
-- How criminals targeted other family members, and [even other UK Lockerbie families](timeline/early-years/2006.md#lockerbie), for their share of Lockerbie compensation.
+- How I was hacked in a similar manner by the same criminal enterprise wherever I was in the world since 2003, possibly earlier, who were monitoring my online activity and likely my family's too.
+- How the same criminals targeted other family members, and [even other UK Lockerbie families](timeline/early-years/2006.md#lockerbie), to rob them of their Lockerbie compensation be it via honey-trapping, sexploitation and blackmail, or manipulated drug addictions.
+- How British criminals living in Dénia targeted me [directly in 2007](timeline/early-years/2007.md#hazel-smith) and attempted to murder me by poisoning at that time.
+- How, in Dénia itself between November 2022 and June 2023, I starred in a [*switcheroo* porn show](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) filmed at the conservatory, in and around the town, and in my apartment without my knowledge, in which I was drugged and tricked into believing that four or more men were the same one male calling himself Vidal Sastre Sanchez Hornero, all of them switching roles regularly while acting as trumpet teacher for students mainly children at the school, and paid by the Spanish-tax-payer's government-funded conservatory of Dénia as well as enriching themselves via the sale of criminal pornography.
 - As the porn fatwa gathered momentum, teachers, staff, students (including children), and others centered at the conservatory of Dénia were able to justify vicious and relentless cyber-stalking and gang-stalking and seemed to very much enjoy this.
-- It seems reasonable to assume that all the teachers and staff were aware that organized criminal porn gangs have infiltrated the conservatory systems in Spain and are targeting children and teenagers, as well as any vulnerable women who might be lured in. They may have even been watching the regular porn specials, with me starring, sedated in my apartment.
+- It seems reasonable to assume that teachers, staff, and educational government bodies are aware that organized criminal porn gangs have infiltrated the conservatory systems in Spain and are targeting children and teenagers, as well as any vulnerable women who might be lured in; often foreign women and children, or outsiders. 
+- The conservatory is just one example of criminal porn-gang infiltration into the whole of society in the Marina Alta region - the most horrific perhaps, so far - but this report also details decades of similar spy-cam and sexploitation crime against women, children, and babies, targeted by the same criminal pornographers who have been freely producing the very worst sort of pornography for decades.
 - I detail near-daily instances of physical stalking assisted by pinpoint tracking of my movements via my hacked mobile phones - and probably tracking on my car since I stopped using my phones - in order to harass me and create intricate choreographed situations with the sole intention of terrorizing me and causing me extreme anxiety and grievous mental and emotional harm.
-- I suffered drugging, sexual grooming, and honey-trapping [online and in person at class](timeline/2023/january.md#serious-poisoning-at-chamber-music-class) in a public learning establishment where there are hundreds of children in attendance, the conservatory of Dénia.
+- I suffered drugging, sexual grooming, and honey-trapping [online and in person at class](timeline/2023/january.md#serious-poisoning-at-chamber-music-class) at the conservatory of Dénia.
 - I was drugged, sedated, and poisoned without my knowledge; in class at the conservatory, at home via tampered-with water and air systems, in my car (sprayed/misted onto surfaces and through the air vents), on all my belongings when I moved house, and in hotel rooms they gain access to and add poisons and drugs to my personal items such as food and bathroom products; the most recent example of this occurring in [July 2025 in Lourdes](timeline/2025/july.md#lourdes).
 - I continue to be under constant surveillance by Spanish and British criminal gangs.
-- In Dénia, they took photos and videos of me of a extremely private and sexual nature from hacked devices and/or hidden cameras, and disseminated them on paid-for local WhatsApp groups, and on international porn networks often also subscribed to by the men I was working with/for at the time.
-- On becoming political and [standing for general election in the UK in July 2024](timeline/2024/june.md#volunteers-not-what-they-seem), criminal gangs made sure they had their people in place to keep an eye on me and continue to terrorize me.
-- While I lived in the Carrer Furs apartment, I'm certain there were regular sedated rape-porn "events" in which I was videoed via a set of spy-cams in my apartment while numerous local men broke in to rape me, sedated; the films distributed across international porn networks and viewed by many thousands of porn-addicts, including my [tech employers and colleagues](timeline/2023/november.md#polygon).
-- The porn gangs have made a lot of money out of me including from subscriptions to constant 24-7 mass voyeurism of myself through my hacked devices and apartment spy-cams.
-- Once I'd been run through and the porn-gangs had finished with me, and I refused to leave (because I had no idea what was going on), they decided they would murder me by poison, possibly strychnine, methanol, or similar; [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-harm-or-kill).
-- I have sustained a severe kidney injury due to the poisoning (which will heal eventually). Criminal gangs continue to be [extremely nasty to me about the kidney injury online](timeline/2023/january.md#criminal-gang-online-cruelty).
-- My vision has also deteriorated hugely since September 2024 and I have been diagnosed with a [pre-glaucoma condition](timeline/2024/november.md#pre-glaucoma-diagnosis). I have noticed my peripheral vision has completely disappeared on the left side mostly, and in front, and on the right side too. This is why I think they probably used methanol in October 2024, and likely mandrake over a long period to make my vision blurry so I could not make people out properly. When one's pupils are dilated for months or years continuously, as mine were, this can cause pre-glaucoma in a person who would otherwise never get it.
-- I expect this also to heal.
-- I have samples for everything I'm detailing here, as well as the physical injuries.
-- I have suffered [incalculable personal financial losses that continue](personal/expenses.md), and there has been an even more extraordinary amount of financial gain from my suffering to the [porn-gangs](crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) of Dénia for over at least a decade.
-- I'm told of the extremely high likelihood that I was sedated, raped, and videoed in the same way at my flat in Joan Fuster 11 over the years 2014-2016; events that triggered a huge suicidal depression. It's possible Lorraine Blackbourn found out about this.
+- In Dénia, they took photos and videos of me of a extremely private and sexual nature from hacked devices and/or hidden cameras, and disseminated them on free and paid-for local WhatsApp groups, and on international porn networks often also subscribed to by the men I was working with/for at the time.
+- It appears that criminal porn-gangs were certain they could do whatever they liked to me and that no-one would ever investigate. I believe this is because the porn-gangs [groomed my father](timeline/2025/july.md#dad-tells-me-hes-a-spy-cop) into colluding with them and he informed them about his dodgy political status which made him believe he was untouchable, and therefore his daughter could be targeted in *any way* and eventually murdered by criminal pornographers and no-one would care.
+- They very much took him seriously on this.
+- It's highly likely the British gangs have been colluding with my father from early as 1989.
+- I'm told of the likelihood that I was sedated, raped, and videoed in the same way at my flat in Joan Fuster 11 over the years 2014-2016; events that triggered a severe suicidal depression. 
 - It's likely I was also sedated, raped, and videoed in my flat in Passeig Periodista Ramon Ortega between 2012-2014, and at my flat in Cami Llavador 5 between 2006-2009.
-- Criminals had extraordinary private information about me including [pedophile pornography made by a rape-gang in North London in 1989 with me in it](timeline/2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x). British criminals living in Dénia then told the Spanish gangs about it. These British criminals targeted me [directly in 2007](timeline/early-years/2007.md#hazel-smith).
-- This staggering criminality is something they were so experienced and expert at, there's no way I'm the only victim. In fact, I list a whole bunch of victims in this statement covering many decades and current, including minors in serious danger; something the Spanish authorities (police, government, and the Generalitat) decided to ignore when I told them, multiple times.
-- I believe that **every event** I detail in this statement was videoed and broadcast to a mostly porn-addict and vile misogynist online audience as a kind of "show" which explains the townsfolk's total insanity and has also made criminal gangs very rich.
+- On becoming political and [standing for general election in the UK in July 2024](timeline/2024/june.md#volunteers-not-what-they-seem), criminal gangs made sure they had their people in place to keep an eye on me and continue to terrorize me.
+- With such confidence in *getting away with it*, criminal porn-gangs forged close alliances with my employers to create even more elaborate and sickening [criminal porn genres](timeline/2023/november.md#polygon) watched by the people I was working with.
+- The porn gangs have made a lot of money out of me over the decades, and I'm not the only one.
+- In the summer of 2024, the porn-gangs had finished with the *female tech colleague you hate* porn genre, and were still drugging and stalking me continuously as they worked steadily towards my total destruction.
+- I was interviewed online in October 2024 by a fellow UK general election candidate. 
+- The video was made public on YouTube, where I stated I believed [there were spy-cams in my apartment filming me](timeline/2024/october.md#youtube-with-kelly-oliver-dougall) and that I had been [targeted professionally at Polygon](timeline/2023/november.md#polygon) where I worked and I was about to take them to tribunal.
+- At this moment, the criminal gangs decided to murder me by poisoning with anti-freeze or similar, [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-harm-or-kill) and in my bathroom products.
+- They were absolutely certain of my demise and their freedom to murder a woman without consequence.
+- One working day prior to the poisoning, [Polygon fires me](timeline/2024/october.md#polygon-fires-the-whole-writing-team).
+- I sustained a severe kidney injury due to the poisoning and my eyesight was severely affected. 
+- My vision deteriorated hugely since September 2024 and I was diagnosed with a [pre-glaucoma condition](timeline/2024/november.md#pre-glaucoma-diagnosis). This worsened in [July 2025](timeline/2025/july.md#lourdes) after another attempt at murdering me by poisoning failed.
+- My eye doctor says all is well and has given me the all-clear to start doing headstand again.
+- My right kidney, injured by constant poisoning with anti-freeze in my apartment over three years, remains weak but is healing.
+- I have suffered [incalculable personal financial losses that continue](personal/expenses.md), and there has been an even more extraordinary amount of financial gain from my suffering, and countless others, to the [porn-gangs](crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) of Dénia.
+- Criminals had extraordinary private information about me including copies of [pedophile pornography made by a rape-gang in North London in 1989 with me in it](timeline/2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x). 
+- As the staggering criminality progressed, someone was helping me online in a clandestine manner. They sent me pictures of countless other female victims the gangs had targeted over many decades, some sexploitation blackmail victims, but many of whom I believe to have been murdered.
+- I believe that **every daily event** I detail in the timeline of this police statement was videoed and broadcast to a mostly porn-addict and vile misogynist online audience as a kind of "show" which explains the townsfolk's total insanity and has also made criminal gangs very rich.
 - This is, essentially, why so many people know who I am.
 - I was in a kind of Truman Show, except the "Truman" is a targeted individual, usually a woman but not always, can be a child, and these "Trumans" are expected to die by suicide or serious ill health from poisoning, or be outright murdered, and none have never escaped. 
 - Until now.
+
+### Lorraine Blackbourn
+
+- Lorraine Blackbourn was my friend who committed suicide in 2021, the week I returned to Dénia after many years.
+- I believe Lorraine was manipulated online into suicide.
+- I believe she had found out her British friends were being sedated and raped by their husbands, or worse.
+- I believe she complained to the authorities, as I did, and was ignored, as I was.
+- I dedicate this police statement to Lorraine.
 
 ## Everyone knows who I am
 
