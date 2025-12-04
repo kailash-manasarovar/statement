@@ -28,7 +28,7 @@ The crimes took place over the three years I lived in the apartment after [findi
 
 The crimes include distribution of spy-cam footage from my apartment where I was either masturbating, or sedated and raped, and attempted murder.
 
-Gang-stalking, cyber-terrorizing, constant online persecution, clandestine drugging, and poisoning (attempted murder) by criminal gangs continued since leaving Spain in February 2025, and up until I remembered something extraordinary about the Tenor Cortis conservatory of Dénia in September 2025.
+Gang-stalking, cyber-terrorizing, constant online persecution, clandestine drugging, and poisoning (attempted murder) by criminal gangs continued since leaving Spain in February 2025, and up until I remembered [something extraordinary about the Tenor Cortis conservatory of Dénia in September 2025](timeline/2025/september.md#thunderbolt-clarity).
 
 ## Mass voyeurism, cyber-stalking, gang stalking, honey-trapping, sedated and spy-cam porn, and staggering levels of violence against women
 
@@ -76,7 +76,7 @@ The report details the following:
 
 ### Lorraine Blackbourn
 
-- Lorraine Blackbourn was my friend who committed suicide in 2021, the week I returned to Dénia after many years.
+- Lorraine Blackbourn was my friend who committed suicide in 2021; the same week I returned to Dénia after many years.
 - I believe Lorraine was manipulated online into suicide.
 - I believe she had found out her British friends were being sedated and raped by their husbands, or worse.
 - I believe she complained to the authorities, as I did, and was ignored, as I was.
