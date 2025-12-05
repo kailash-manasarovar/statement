@@ -8,9 +8,9 @@ function googleTranslateElementInit() {
 }
 </script>
 
-- I believe these are symbols used by manipulators online to generate reliable triggers in a target.
+- This pages describes symbols used by online manipulators to generate reliable triggers in a target.
 - Some of these are fairly sinister.
-- And some of these memes are mine, because I figured out what they were up to and I played their game back at them by instead shining light not darkness. 
+- And some of these memes are mine, because I figured out what they were up to and I played their game back at them by instead shining light into the darkness. 
 
 ## Garbure
 
