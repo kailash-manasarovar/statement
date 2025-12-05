@@ -8,7 +8,13 @@ function googleTranslateElementInit() {
 }
 </script>
 
+- I believe these are symbols used by manipulators online to generate reliable triggers in a target.
+- Some of these are fairly sinister.
+- And some of these memes are mine, because I figured out what they were up to and I played their game back at them by instead shining light not darkness. 
+
 ## Garbure
+
+- My meme. My favorite.
 
 [![I love the smell of garbure in the morning](../content/images/garbure-in-the-morning.png)](https://x.com/1FRGVN/status/1711312917998538845)
 
@@ -41,10 +47,15 @@ function googleTranslateElementInit() {
 
 ## Batman and little girl
 
-- I heard this said a lot around the conservatory, and it also came up on meme's on Twitter.
-- I wonder if the porn contained superhero outfits.
-- I'm also curious as to why `El Pais` ignored me and their servers were controlled by the porn-gangs.
-- They have a big picture of Batman on the wall of their offices.
+- I heard this said a lot around the conservatory, and it also came up regularly as a meme on X.
+- I suspect local men attended my apartment while I was sedated dressed up in superhero outfits or wearing superhero masks to hide their identities.
+- I find it curious that `El Pais` ignored the scoop of the millennia, and their servers were controlled by the porn-gangs and so all my emails were blocked and never reached the journalist I had spoken to.
+- El Pais has a huge picture of Batman on the outside wall of their offices.
+- Does this suggest the whole country is aware that women are being sedated and mass-raped in their own homes by men wearing superhero masks, and no-one cares?
+
+## Horses
+
+- This is a particularly insidious one.
 
 ## Jaws
 
