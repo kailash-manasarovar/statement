@@ -346,7 +346,7 @@ function googleTranslateElementInit() {
     
     An AI mix of the trumpet teacher and Gloria the conservatory receptionist, an account which has been following me since September 2023 when I went public on Twitter.
 
-    ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png){width=35%}
+    ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/ai-mix-of-trumpet-teachers-and-gloria.png){width=35%}
 
     My piano teacher for year 4, a young Paqui Fornet Pastor in a rather threatening pose. This was posted in March 2024, after what I felt were credible threats to my life when I didn't stop going into practice after the piano concert; the concert which was set up to terrorize me into never coming back to the conservatory.
 

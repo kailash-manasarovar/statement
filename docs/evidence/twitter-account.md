@@ -81,7 +81,7 @@ function googleTranslateElementInit() {
 | ![ fake ]( ../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png ){width=50%} |  A young Maria Hontanilla on the left. |
 | ![ fake ]( ../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png ){width=50%} | Domingo the piano teacher face aged with AI.  |
 | ![ fake ]( ../content/images/fake-accounts/paqui1.png ){width=50%} | Paqui Fornet Pastor, younger, in a threatening pose.  |
-| ![ fake ]( ../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png ){width=50%} |  AI mix of the trumpet teacher and Gloria the conservatory receptionist. Is the suggestion they are related? She certainly was very familiar with him. |
+| ![ fake ]( ../content/images/fake-accounts/ai-mix-of-trumpet-teachers-and-gloria.png ){width=50%} |  AI mix of the trumpet teacher and Gloria the conservatory receptionist. Is the suggestion they are related? She certainly was very familiar with him. |
 | ![ fake ]( ../content/images/fake-accounts/list/54.png ){width=50%} |  Stalker. Is this person the same as the following. |
 | ![ fake ]( ../content/images/fake-accounts/list/55.png ){width=50%} |  Stalker. Is this person the same as the previous. |
 | ![ fake ]( ../content/images/fake-accounts/list/19.png ){width=50%} |  Possibly legit and delegated/leached. |

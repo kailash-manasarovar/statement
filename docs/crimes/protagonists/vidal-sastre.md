@@ -133,16 +133,19 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ### AI mix of the trumpet teachers faces
 
-- Everyone in Dénia knows this man, and his family.
-- They even AI'ed his face and mixed it with Gloria the receptionists face and tormented me endlessly with a fake account having this profile pic.
+- Everyone in Dénia knows who these men are, and their families.
+- They have been targeting, coercing into porn and prostitution, and honey-trapping women for decades.
+- They are 100% protected by Spanish authorities who prefer to wait for complainants to be murdered than do anything to protect the children they have constant access to.
+- Bold and confident, they even AI'ed their faces together, mixing Gloria the receptionists face in too.
+- They then tormented me endlessly with a fake AI-auto-posting account with this photo as a profile.
 
-![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
+![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/ai-mix-of-trumpet-teachers-and-gloria.png)
 
-- This pic could be a number of the trumpet teachers faces mixed with Gloria, the music school receptionist.
-- However, the face of the [first man](#the-older-slimmer-greyer-man) is missing from here.
-- The eyes are from this man, the face shape is the [third](#an-unknown-man-i-may-have-a-picture-of), I possibly don't see the [second man](#the-brother-or-mark-from-english-class-in-2013) in here either.
-- Gloria's face, the school receptionist, stands out the most, of course.
-- The arrogance of the gang and their certainty they will never be brought to justice is staggering.
+- Gloria's face, the music school receptionist, is the clearest image in this AI photo.
+- The face of the [first man](#the-older-slimmer-greyer-man) is missing.
+- The eyes are from [the deep-set man](#dark-thick-curly-haired-deep-set-man), the face shape is the [third man](#an-unknown-man-i-may-have-a-picture-of), and I don't think I can see the [second man](#the-brother-or-mark-from-english-class-in-2013) in here either.
+- Gloria's face, the school receptionist, stands out the most.
+- The arrogance of the gang and their absolute certainty they will never be brought to justice is staggering.
 
 ### The L'Amistat Quart band
 
