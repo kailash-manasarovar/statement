@@ -389,7 +389,7 @@ function googleTranslateElementInit() {
 - I see a group of people standing around him.
 - Shortly afterwards, I see a tall black man holding the hand of a small boy and stumbling towards me through the station from the direction where Steve is standing.
 - The man is wearing a yellow jumper with diamond checks and a cream chimney-sweep hat. 
-- The small boy of about seven-years-old was arabic looking with dark skin.
+- The small boy of about seven-years-old is arabic looking with dark skin.
 - The man was stumbling as he walked, he was very unbalanced, tottering even, like he didn't know where he'd been or where to go next. 
 - The little boy seemed to be leading him towards me.
 
@@ -398,21 +398,21 @@ function googleTranslateElementInit() {
 - I realized it was Winston May.
 - Winston May, the Tottenham rape-gang pimp and procurer of minor children, who has probably always been working for the criminal porn gangs of North London and by wider implication Spain.
 - I recognized him immediately; ringleader of the pedophile grooming gang in Tottenham that had raped and abused me repeatedly, and put me in porn, in the summer of 1989.
-- He look like he was out of his mind on drugs.
+- He looks like he's out of his mind on drugs.
 - I remembered during the horrors of 1989, at one time, he had mentioned traveling to the Mediterranean coast of Spain with his Soho-prostitute associate Nikki.
 - I wonder if I added this to [the 2015 statement](../early-years/2015.md#statement-to-the-metropolitan-police). It's possible.
-- Calm and collected, I offered Winston a leaflet and insisted he took one when he said he already had one (that Steve had already given him).
-- He scurried away from me as I walked towards him.
-- Later, in the pub, I told Steve what had happened. 
-- Incidentally, for some reason I felt I needed to change my will that day and did so.
-- Steve then told me a story that he had been sexually abused as a child when he was 7, in an African country, and that he had seen the abuser again when he was about 16 holding the hand of a young arabic-looking boy.
-- I think he was supposed to have told me his story before I told him mine, but I got there first.
-- Could the Dénia criminal porn gangs have found ways to continue to terrorize me in London as I was running as a candidate in the general election?
+- Calm and collected, I offer Winston a leaflet and insist he take one when he said he already had one (that Steve had already given him).
+- He scurries away from me as I walk towards him, unable to maintain eye-contact.
+- Later, in the pub, I tell Steve what had happened. 
+- Incidentally, for some reason, I felt I needed to change my will that day and did so.
+- In the pub, after telling Steve about Winston May, Steve tells me a story about how he had been sexually abused as a child when he was 7, in an African country, and that he had seen the abuser again when he was about 16 holding the hand of a young arabic-looking boy.
+- I think he was supposed to have told me his story before I told him mine; but I got there first.
+- Could the Dénia criminal porn gangs have found ways to continue to terrorize me in London while I was running as a candidate in the general election?
 - Or was this event set up by the Metropolitan police themselves; trying to terrorize a rape gang survivor that they had failed to help out of politics?
 - Pretty desperate behavior if so.
 - Had I been receiving subliminal death threats online which triggered a will change?
 - It's difficult to understand exactly why this event happened, who would benefit, and how the Dénia criminal gangs could not be involved in some way.
-- Later, I remember my portentous [dream from a month previous](may.md#dreaming-of-the-pedophile) while I was being battered with hallucinogens and porn-prepped for Bali at home in my lovely apartment in Dénia.
+- Later, I remember my portentous [dream from a month previous](may.md#dreaming-of-the-pedophile) while I was being battered with hallucinogens and [porn-prepped for Bali](april.md#drugged-in-the-street-by-dénia-gypsies) at home in my lovely apartment in Dénia.
 
 ### Party of Women party
 
