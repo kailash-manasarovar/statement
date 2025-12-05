@@ -106,12 +106,12 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ### Dark thick-curly-haired deep-set man
 
-- There was another man I have a few memories of which I have already documented.
+- There was another man I have a few memories of which I have already documented in this police statement.
 - I don't remember him ever being at the conservatory.
 - I remember him [in my bed calling my name](../../timeline/2023/april.md#dreaming-of-the-trumpet-teacher) which I now believe was not a dream.
 - He was the man I saw in the banged up Peugeot on the 11th June 2023, [the day before my *funeral*](../../timeline/2023/june.md#sunday-11th-june) and [driving past me at the beach with the doctor in the passenger seat](../../timeline/2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me), and [driving Ana Requena's blue car slowly past me](../../timeline/2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car).
 - He was also reminiscent of [Patricia Penny's husband](../../timeline/2021/december.md#christmas) and the [man who came out to terrorize me on Halloween](../../timeline/2023/october.md#halloween) but not exactly the same - those two men could well be the same man and related to this one.
-- This trumpet player, at the *funeral* of the young drugged and groomed girl behind him, looks like him and when I first saw this photo in June 2023 I recognized this man immediately as the trumpet teacher who had come to the conservatory to teach classes.
+- This trumpet player, at the *funeral* of the young drugged-and-groomed girl behind him, looks like him and when I first saw this photo in June 2023 I recognized this man immediately as the trumpet teacher who had come to the conservatory to teach classes.
 
 ![The dark curly-haired man with the big legs](../../content/images/hornero/tt-1-again.png)
 
@@ -125,7 +125,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - He is the man depicted as a monster on this [police statement's book cover](../../index.md) sitting alongside Domingo Cano Lopez.
 - It's possible there's a group of similar looking men who may be brothers and cousins with curly black hair, some tall some not so, with chunky bodies.
 - He looks similar again to the [man who bumped into me at EthCC](../../timeline/2024/july.md#meeting-a-weird-guy), a man I had not seen before.
-- Could this be Viktor, or one of the others, as a young man?
+- Could the photo of the boy that came up first on my Google search results for well over a year be Viktor, or one of the others, as a young man?
 
 ![The deep-set man](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
 
