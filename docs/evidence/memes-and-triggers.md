@@ -59,7 +59,7 @@ function googleTranslateElementInit() {
 - This is a particularly insidious meme.
 - While the [switcheroo porn was going on](../crimes/protagonists/vidal-sastre.md#four-distinct-men) at the conservatory over the period November 2022 to June 2023, I was tricked continuously into believing there was a love affair going on between myself and the *trumpet teacher*.
 - I had no idea there were [a minimum of four men playing this teaching role](../crimes/protagonists/vidal-sastre.md#at-least-four) at the time because I had been drugged every day without my knowledge since February 2022, possibly earlier, and I was also being drugged with aphrodisiac-type substances whilst attending classes at the conservatory.
-- I remain unaware of whatever sedated-woman-training exercises they will have used on me, perfected over many decades.
+- I remain unaware of whatever sedated-woman-training exercises they will have used on me, perfected over many decades if not centuries.
 - They further reinforced the trick with the [Ana Requena love-triangle myth](../timeline/2022/november.md#the-trumpet-teacher) at the conservatory, also providing what would sound like a bizarre and unhinged alibi if I ever complained before understanding the whole story.
 - Furthermore, the trick was reinforced continually with words and images on my hacked browsers through X, Google search, YouTube, and other websites that might be *suggested* to me via hacking.
 - A common meme was horses, and this meme was very quickly associated with the man I believed I loved.
@@ -118,7 +118,7 @@ function googleTranslateElementInit() {
 - You wouldn't want to be wandering around here alone.
 - The whole feel of the place is sinister.
 - I'm guessing it's somewhere like this you should start digging to find the missing women and children, but it's likely there's fields all over this region that are used for animal-porn starring drugged-and-trained women who probably don't make it out alive; wether they're murdered or they go completely mad and commit suicide.
-- I'm guessing everyone knows about it too, and knows of someone who bought a ticket to one of the many shows that find their way to the UK police's informal WhatsApp groups.
+- I'm guessing everyone knows about it too, and knows of someone who bought a ticket to one of the many shows that quickly find their way onto the UK police's informal WhatsApp groups.
 - I'm guessing Wayne Cousins will have seen one, and a billion other porn-addicts too.
 
 ### The horse that shied
