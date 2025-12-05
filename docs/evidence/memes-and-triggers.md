@@ -57,30 +57,34 @@ function googleTranslateElementInit() {
 ## Horses
 
 - This is a particularly insidious meme.
-- While the [switcheroo porn was going on](../crimes/protagonists/vidal-sastre.md#four-distinct-men) at the conservatory over the period between November 2022 and June 2023, I was being tricked into believing there was a love affair going on between myself and the *trumpet teacher* - I had no idea there were a minimum of four men playing this role at the time because I was being drugged every day since February 2022, possibly earlier, without my knowledge.
-- The trick was due to the drugging and some sedated-woman-training exercises we have yet to uncover.
-- It was reinforced with the [Ana Requena love triangle myth](../timeline/2022/november.md#the-trumpet-teacher) at the conservatory.
-- And it was reinforced continually with words and images on my hacked UI through X, Google search, YouTube, and other websites that might be *suggested* to me via hacking.
+- While the [switcheroo porn was going on](../crimes/protagonists/vidal-sastre.md#four-distinct-men) at the conservatory over the periodNovember 2022 to June 2023, I was tricked continuously into believing there was a love affair going on between myself and the *trumpet teacher*.
+- I had no idea there were a minimum of four men playing this teaching role at the time because I had been drugged every day without my knowledge since February 2022, possibly earlier, and I was also being drugged with aphrodisiac-type substances whilst attending classes at the conservatory.
+- I remain unaware of whatever sedated-woman-training exercises they will have used on me, perfected over many decades.
+- They further reinforced the trick with the [Ana Requena love triangle myth](../timeline/2022/november.md#the-trumpet-teacher) at the conservatory, also providing what would sound like a bizarre alibi at the same time if I ever complained about it before understanding the whole story.
+- Furthermore, the trick was reinforced continually with words and images on my hacked UI through X, Google search, YouTube, and other websites that might be *suggested* to me via hacking.
 - A common meme was horses, and this meme was very quickly associated with the man I believed I loved.
 
 ![Dark horse](../content/tweets/dark-horse.jpg)
 
-- It turns out, this was an ongoing trigger that had started some time previously for rather sickening reasons.
+- It turns out, this was an ongoing trigger that had started some years previously for, I believe, rather sickening reasons.
 
 ### Police documentary
 
-- While I was suicidally depressed in 2016, I *stumbled across* a documentary about a woman who had rejoined the police and was undercover filming her colleagues appalling behavior.
+- While I was suicidally depressed in India in 2016 after leaving Dénia, I *stumbled across* a documentary about a woman who had rejoined the police and was undercover filming her male colleagues appalling behavior.
 - We see two male police officers snickering over a video clip on a WhatsApp group on their phones.
-- They tell the female police officer they're looking at a naked woman in a field somewhere running after a horse.
-- I was horrified. The attitude of the men to this poor woman in the field was astounding to me. She didn't register as a human being to them at all.
+- They tell the female police officer they're looking at a naked woman running around a field somewhere after a horse.
+- I was horrified. 
+- The attitude of these policemen to this poor woman in the field was astounding. She didn't register as a human being to them at all.
 - Later, during the beginnings of the online stalking after I moved back to Denia in 2022, I mentioned this particular video in an X post which I have yet to find.
-- Immediately, a fake account replies with the exact film clip, show name, URL even, saying, *Is it this one?*
+- Immediately, a fake account replies with the exact film clip, show name, URL even, saying, *Is it this one?*.
 - I reply *yes*, or similar.
-- I now believe that was Hazel, and either herself or her associates had begun triggering me with the horse meme all the way back in 2016.
-- I only remember this as significant once the drugging has stopped for a long period and I have remembered the switcheroo men also.
+- I now believe that this response came from Hazel, and either herself or her associates had begun triggering me with the horse meme all the way back in 2016.
+- I believe the horse meme is 100% related to naked women running around a field after a horse, and I believe this field to be in the Marina Alta region.
+- I only remember this as significant once the drugging has stopped for a long period and I have also remembered the [switcheroo conspiracy](../timeline/2025/september.md#thunderbolt-clarity).
 
 ![Remembering the horse meme](../content/tweets/remembering-the-horse-meme.jpg)
 
+- The fact that I cannot find this tweet, or the reply to it coming from a stalker account, suggests collusion from backend X developers.
 
 ### Samuel is a dark horse
 
