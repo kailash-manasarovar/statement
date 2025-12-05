@@ -119,17 +119,17 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 [![Youtube](../../content/images/youtube-video.png)](../../timeline/2023/june.md#another-young-girls-funeral)
 
-- Due to the age of these films, I'm pretty sure they function as *music-student-porn-genre* adverts which means the danger to children studying music in Spain could be country-wide.
-- I recognize this man as the same man who [interviewed me for a job where I would be looking at genitals all day](../../timeline/early-years/2016.md#march) in 2016, and who I saw in the town not long after.
+- Due to the age of these numerous YouTube films, I'm pretty sure they function as *music-student-porn-genre* adverts which means the danger to children studying music in Spain could be country-wide.
+- I also recognize this man as the same man who [interviewed me for a job where I would be looking at genitals all day](../../timeline/early-years/2016.md#march) in 2016, and who I saw in the town not long after.
 - I believe he told me his name is Viktor, and that he is the man with [the nickname Vigas](../../timeline/2024/august.md#conversation-with-the-hacker) who is running the [Beams grooming account](../../timeline/2024/may.md#beams).
 - He is the man depicted as a monster on this [police statement's book cover](../../index.md) sitting alongside Domingo Cano Lopez.
-- It's possible there's a group of similar looking men who may be brothers and cousins with curly black hair, some tall, with chunky bodies.
-- He looks similar again to the [man who bumped into me at EthCC](../../timeline/2024/july.md#uk-and-belgium), a man I had not seen before.
+- It's possible there's a group of similar looking men who may be brothers and cousins with curly black hair, some tall some not so, with chunky bodies.
+- He looks similar again to the [man who bumped into me at EthCC](../../timeline/2024/july.md#meeting-a-weird-guy), a man I had not seen before.
 - Could this be Viktor, or one of the others, as a young man?
 
 ![The deep-set man](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
 
-- I believe I saw the grown-up version of this person on the beach on [6th October 2024](../../timeline/2024/october.md#sunday-6th-october) and have a body cam image of that man and others.
+- I believe I saw the grown-up version of this person on the beach on [6th October 2024](../../timeline/2024/october.md#sunday-6th-october) and I have a body cam image of that man and a bunch of other middle-aged local gentlemen who came out to terrorize me that afternoon.
 
 ### AI mix of the trumpet teachers faces
 

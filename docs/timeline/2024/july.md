@@ -8,15 +8,18 @@ function googleTranslateElementInit() {
 }
 </script>
 
-## UK and Belgium
+## EthCC
 
 - I do not come last in the election on the 4th July, second to last. I can't wait to run again.
 - I to go to Brussels for a crypto conference with work.
 - I'm in Belgium till the 11th July.
+- I return back to London and get the boat from Portsmouth back to Spain with the car.
+
+### European Court of Human Rights
+
 - When I'm in Belgium, I manage to access the ECHR website correctly and easily find a way to report what is going on for me. I receive a response in early August to my letter.
     - [Receipt of sending from European Commission website](../../content/documents/evidence/eu-complaint.png).
     - [Response from ECHR to letter written in Brussels on 8th July](../../content/documents/evidence/ARES%202024_5484609.pdf).
-- I return back to London and get the boat from Portsmouth back to Spain with the car.
 
 ### Mushroom man says sorry
 

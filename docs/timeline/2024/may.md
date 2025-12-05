@@ -377,7 +377,7 @@ function googleTranslateElementInit() {
 ![Mushroom man](../../content/images/mushroom-man.jpg)
 
 - Mushroom man meets me online. He tells me he is a kingpin in the Ethereum space. I've never heard of him.
-- He gives out thousands of little pictures of himself dressed like a magic mushroom at [EthCC](july.md#uk-and-belgium) in July. They were everywhere.
+- He gives out thousands of little pictures of himself dressed like a magic mushroom at [EthCC](july.md#ethcc) in July. They were everywhere.
 - I thanked the teams initially because I had a million things to do and no time to do them.
 - I wrote a clear list on what I needed and how the process must work.
 - They ignored my gratitude and everything I said, and went off in tangents doing whatever they felt like and blatantly taking over my role as docs team lead.
