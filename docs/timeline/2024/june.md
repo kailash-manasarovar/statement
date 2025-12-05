@@ -378,11 +378,10 @@ function googleTranslateElementInit() {
 ### Winston May
 
 - During my election campaign, me and my little group of volunteers handed out leaflets in the constituency, often at tube stations.
-- On Wednesday 3rd July, we were at Brent Cross tube station.
-- About half way into the leafleting session, one of my volunteers, [So (Janet)](#so-janet) stood very close to me and talked at me like a machine gun blocking my view of the people coming in and out of the tube station.
-- She appeared to be trying to distract me and, already suspicious, I ignored her.
+- On Wednesday 3rd July, between 5-7pm or so, we were at Brent Cross tube station.
+- About half way into the leafleting session, one of my volunteers, [So (Janet)](#so-janet), stood very close to me and talked at me like a machine gun while blocking my view of the people coming in and out of the tube station.
+- She appeared to be trying to distract me from something and, already suspicious, I ignored her.
 - She had done this at other leafleting sessions too. 
-- At one point, she stood extremely close to me and, being a very large lady, she blocked my view of the people walking into the station. 
 - She was nearly shouting in my ear at that moment while I did my best to ignore her.
 - She then leaves. She's hot. She only stays for a short time.
 - I became even more suspicious of this woman's intentions as her unusual behavior was exaggerated.
