@@ -357,13 +357,15 @@ function googleTranslateElementInit() {
 ### Labour Party shenanigans
 
 - Normally a fast learner, it took a while to realize how politics makes people behave appallingly.
-- Every day while campaigning, I was threatened by people I have to assume were working for other parties.
-- One woman who I saw repeatedly ripping up my leaflets, shouting and glaring at me at tube stations, turned out to be an election officer for the Labour Party.
-- I guess some of my volunteers could have been Labour Party or perhaps Green Party spies too.
+- Every day while campaigning, I was threatened by people I have to assume were working for other parties or perhaps the police who were horrified a rape-gang survivor might be standing for office.
+- Maybe even the British and Spanish porn-gangs felt a need to try and terrorize me out of politics.
+- Whoever they were, they made me more determined then ever!
+- One woman who I saw repeatedly; ripping up my leaflets, and shouting and glaring at me at tube stations, turned out to be an election officer for the Labour Party.
+- I guess some of my volunteers could have been Labour Party or perhaps Green Party spies.
 
 #### An old friend
 
-- One morning at East Finchley tube while handing out leaflets, I see an old friend that was around when the Tottenham rape-gang got hold of me in 1989, Geetha.
+- One morning at East Finchley tube while handing out leaflets, I see an old friend from the time the Tottenham rape-gang got hold of me in 1989, Geetha.
 - Her mother and her mother's boyfriend Colin had been members of the Labour Party in East Finchley forever.
 - She's never been my friend - she bullied me horribly on three different occasions from 1980 including viciously after the rape-gang attacks in which she wasn't targeted, I assume because she's black and they were predominantly black gangs.
 - I'm happy to see her in any case.
