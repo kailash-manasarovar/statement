@@ -117,7 +117,7 @@ function googleTranslateElementInit() {
 - There are two or three large, fierce and angry-sounding dogs in the farm running up against the gate and being very aggressive.
 - You wouldn't want to be wandering around here alone.
 - The whole feel of the place is sinister.
-- I'm guessing it's somewhere like this you should start digging, but it's likely there's fields all over this region that are used for animal-porn starring drugged-and-trained women who probably don't make it out alive; wether they're murdered or they go completely mad and commit suicide.
+- I'm guessing it's somewhere like this you should start digging to find the missing women and children, but it's likely there's fields all over this region that are used for animal-porn starring drugged-and-trained women who probably don't make it out alive; wether they're murdered or they go completely mad and commit suicide.
 - I'm guessing everyone knows about it too, and knows of someone who bought a ticket to one of the many shows that find their way to the UK police's informal WhatsApp groups.
 - I'm guessing Wayne Cousins will have seen one, and a billion other porn-addicts too.
 
