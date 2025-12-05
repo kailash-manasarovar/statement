@@ -382,26 +382,26 @@ function googleTranslateElementInit() {
 - About half way into the leafleting session, one of my volunteers, [So (Janet)](#so-janet), stood very close to me and talked at me like a machine gun while blocking my view of the people coming in and out of the tube station.
 - She appeared to be trying to distract me from something and, already suspicious, I ignored her.
 - She had done this at other leafleting sessions too. 
-- She was nearly shouting in my ear at that moment while I did my best to ignore her.
-- She then leaves. She's hot. She only stays for a short time.
-- I became even more suspicious of this woman's intentions as her unusual behavior was exaggerated.
+- She then leaves. She only ever stays for a short time.
+- I became even more suspicious of this woman's intentions as her already unusual behavior was exaggerated.
 - After she had gone, only myself and one other volunteer was with me, Steve.
 - We were standing at separate exits, fairly far apart from each other, but I could see him and he could see me.
 - I see a group of people standing around him.
-- Shortly afterwards, I see a man holding the hand of a small boy stumbling towards me through the station from Steve's direction.
-- The man was black and he was wearing a yellow jumper with diamond checks and a cream chimney-sweep hat. 
+- Shortly afterwards, I see a tall black man holding the hand of a small boy and stumbling towards me through the station from the direction where Steve is standing.
+- The man is wearing a yellow jumper with diamond checks and a cream chimney-sweep hat. 
 - The small boy of about seven-years-old was arabic looking with dark skin.
-- The man was stumbling as he walked, he was very unbalanced, tottering even, like he know where he was going. 
+- The man was stumbling as he walked, he was very unbalanced, tottering even, like he didn't know where he'd been or where to go next. 
 - The little boy seemed to be leading him towards me.
 
 ![Winston May at Brent Cross](../../content/images/winston-brent-cross.png)
 
-- It was Winston May, the Tottenham rape-gang pimp and procurer of minor children, who has probably always been working for the criminal porn gangs of North London and by wider implication Spain.
+- I realized it was Winston May.
+- Winston May, the Tottenham rape-gang pimp and procurer of minor children, who has probably always been working for the criminal porn gangs of North London and by wider implication Spain.
 - I recognized him immediately; ringleader of the pedophile grooming gang in Tottenham that had raped and abused me repeatedly, and put me in porn, in the summer of 1989.
 - He look like he was out of his mind on drugs.
-- I remembered during the horrors of 1989, at one time he had mentioned traveling to the Mediterranean coast of Spain with his associate Nikki.
-- I do wonder if I added this to [the 2015 statement](../early-years/2015.md#statement-to-the-metropolitan-police).
-- I offered him a leaflet and insisted he took one when he said he already had one (that Steve had given him).
+- I remembered during the horrors of 1989, at one time, he had mentioned traveling to the Mediterranean coast of Spain with his Soho-prostitute associate Nikki.
+- I wonder if I added this to [the 2015 statement](../early-years/2015.md#statement-to-the-metropolitan-police). It's possible.
+- Calm and collected, I offered Winston a leaflet and insisted he took one when he said he already had one (that Steve had already given him).
 - He scurried away from me as I walked towards him.
 - Later, in the pub, I told Steve what had happened. 
 - Incidentally, for some reason I felt I needed to change my will that day and did so.
