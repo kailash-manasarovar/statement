@@ -108,17 +108,18 @@ function googleTranslateElementInit() {
 
 ### The horrible field
 
-- Sometimes in 2022, on a walk with the British expat hikers, we pass a very unpleasant farm.
+- Sometime in 2022, on a walk with the British expat hikers, we pass a very unpleasant farm.
 - It's in a small hidden valley and the paths around it are covered with dog faeces.
 - It's horrible actually and I'm not sure why the English ladies have decided to walk this way.
-- Visible is a muddy field, fenced off with a wire fence but and you could stand on the outside and see in.
+- Visible is a small rectangular muddy field, fenced off with wire mesh.
 - There may have been some pigs there, or elsewhere in the farm.
 - There were some bulls, perhaps kept for the bull runs.
 - There are two or three large, fierce and angry-sounding dogs in the farm running up against the gate and being very aggressive.
 - You wouldn't want to be wandering around here alone.
 - The whole feel of the place is sinister.
-- I'm guessing it's somewhere like here you should start digging, but it's likely there's fields all over this region that are used for animal-porn starring drugged-and-trained women who probably don't make it out alive; wether they're murdered or they go completely mad and commit suicide.
-- I'm guessing everyone knows about it too, and knows of someone who bought a ticket to one of the shows that end up in the UK police's informal WhatsApp groups.
+- I'm guessing it's somewhere like this you should start digging, but it's likely there's fields all over this region that are used for animal-porn starring drugged-and-trained women who probably don't make it out alive; wether they're murdered or they go completely mad and commit suicide.
+- I'm guessing everyone knows about it too, and knows of someone who bought a ticket to one of the many shows that find their way to the UK police's informal WhatsApp groups.
+- I'm guessing Wayne Cousins will have seen one, and a billion other porn-addicts too.
 
 ### The horse that shied
 
