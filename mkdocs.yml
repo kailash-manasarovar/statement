@@ -140,9 +140,7 @@ nav:
   - Evidence:
     - Manipulation techniques: evidence/manipulation.md
     - CCTV: evidence/cctv.md
-    - Memes and triggers:
-      - Symbols: memes-triggers/symbols.md
-      - Memes: memes-triggers/memes.md
+    - Memes and triggers: evidence/memes-and-triggers.md
     - Screenshots: evidence/screenshots.md
     - Twitter accounts: evidence/twitter-account.md
     - Google searches: evidence/google-searches.md

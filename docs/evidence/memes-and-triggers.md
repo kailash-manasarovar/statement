@@ -1,4 +1,4 @@
-# Memes
+# Memes & triggers
 
 <div id="google_translate_element"></div>
 <script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
@@ -12,9 +12,10 @@ function googleTranslateElementInit() {
 - Some of these are fairly sinister.
 - And some of these memes are mine, because I figured out what they were up to and I played their game back at them by instead shining light into the darkness. 
 
-## Garbure
+## I love the smell of garbure in the morning
 
-- My meme. My favorite.
+- My meme.
+- My personal favorite.
 
 [![I love the smell of garbure in the morning](../content/images/garbure-in-the-morning.png)](https://x.com/1FRGVN/status/1711312917998538845)
 
@@ -133,3 +134,19 @@ function googleTranslateElementInit() {
 - Alfonso, the harmony teacher in 2023-24 used it a fair bit. I wonder if Domingo gave him a full and complete explanation of what it referred to. I suspect not.
 - I always assumed it was due to the trumpet teacher being the father of two daughters (as I had seen on the Facebook page of [one of the men calling himself Vidal Sastre Sanchez Hornero](../timeline/2022/december.md#chamber-music-classes) in December 2022).
 - Obviously, this is not the story that teachers and staff at the conservatory would have had about the trumpet-teacher fake narrative, so it's worth considering why this particular *meme* was important and what it genuinely referred to.
+
+## Eagles
+
+## Headphones
+
+## Crows
+
+## Strawberries
+
+## The number 5
+
+## Bees / bee-stings
+
+## Repeating a target's own words back to them
+
+### Shaman midwives
