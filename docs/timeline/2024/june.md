@@ -357,11 +357,11 @@ function googleTranslateElementInit() {
 ### Labour Party shenanigans
 
 - Normally a fast learner, it took a while to realize how politics makes people behave appallingly.
-- Every day while campaigning, I was threatened by people I have to assume were working for other parties or perhaps the police who were horrified a rape-gang survivor might be standing for office.
+- Every day while campaigning, I was threatened by people I have to assume were working for other parties, or perhaps they were informers sent by the police who were horrified a rape-gang survivor might be standing for office.
 - Maybe even the British and Spanish porn-gangs felt a need to try and terrorize me out of politics.
 - Whoever they were, they made me more determined then ever!
-- One woman who I saw repeatedly; ripping up my leaflets, and shouting and glaring at me at tube stations, turned out to be an election officer for the Labour Party.
-- I guess some of my volunteers could have been Labour Party or perhaps Green Party spies.
+- One woman I saw repeatedly; ripping up my leaflets, and shouting and glaring at me at tube stations, turned out to be an election officer for the Labour Party.
+- I guess some of my volunteers could have been Labour Party too, or perhaps Green Party infiltrators.
 
 #### An old friend
 
