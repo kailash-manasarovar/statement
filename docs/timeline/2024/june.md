@@ -377,32 +377,43 @@ function googleTranslateElementInit() {
 
 ### Winston May
 
-!!! danger "Proof that criminal gangs in Dénia had connections with North London rape gangs, somehow"
-    - During my election campaign, my little group of volunteers handed out leaflets in the constituency.
-    - On Wednesday 3rd July, we were at Brent Cross tube station.
-    - One of my volunteers stood very close to me and appeared to be trying to distract me all evening with continuous chatter. 
-    - At one point, she stood extremely close and, being a very large lady, she blocked my view of the people walking into the station. She was sort of shouting in my ear at that moment, while I tried to ignore her.
-    - It was exaggerated behavior and quite absurd. I was even more suspicious of this woman's intentions.
-    - She left and only myself and one other volunteer was with me. We were standing at separate exits, fairly far apart from each other, but I could see him.
-    - Shortly afterwards, a man with a small boy stumbled towards me through the station.
-    - The man was black and he was wearing a yellow jumper with diamond checks and a cream chimney-sweep hat. 
-    - The boy was arabic looking with dark skin.
-    - The man was stumbling as he walked, he was very unbalanced. The little boy seemed to be leading him towards me.
+- During my election campaign, me and my little group of volunteers handed out leaflets in the constituency, often at tube stations.
+- On Wednesday 3rd July, we were at Brent Cross tube station.
+- About half way into the leafleting session, one of my volunteers, [So (Janet)](#so-janet) stood very close to me and talked at me like a machine gun blocking my view of the people coming in and out of the tube station.
+- She appeared to be trying to distract me and, already suspicious, I ignored her.
+- She had done this at other leafleting sessions too. 
+- At one point, she stood extremely close to me and, being a very large lady, she blocked my view of the people walking into the station. 
+- She was nearly shouting in my ear at that moment while I did my best to ignore her.
+- She then leaves. She's hot. She only stays for a short time.
+- I became even more suspicious of this woman's intentions as her unusual behavior was exaggerated.
+- After she had gone, only myself and one other volunteer was with me, Steve.
+- We were standing at separate exits, fairly far apart from each other, but I could see him and he could see me.
+- I see a group of people standing around him.
+- Shortly afterwards, I see a man holding the hand of a small boy stumbling towards me through the station from Steve's direction.
+- The man was black and he was wearing a yellow jumper with diamond checks and a cream chimney-sweep hat. 
+- The small boy of about seven-years-old was arabic looking with dark skin.
+- The man was stumbling as he walked, he was very unbalanced, tottering even, like he know where he was going. 
+- The little boy seemed to be leading him towards me.
 
-    ![Winston May at Brent Cross](../../content/images/winston-brent-cross.png)
+![Winston May at Brent Cross](../../content/images/winston-brent-cross.png)
 
-    - I recognized Winston May immediately; ringleader of the pedophile grooming gang in Tottenham that had raped and abused me repeatedly, and put me in porn, in the summer of 1989.
-    - He look like he was out of his mind on drugs.
-    - I offered him a leaflet and insisted he took one when he said he already had one. He tried to get away from me as I walked towards him.
-    - Later, in the pub, I told my volunteer what I had seen. 
-    - Incidentally, for some reason I felt I needed to change my will that day and did so.
-    - My volunteer then told me a story that he had been sexually abused as a child when he was 7, in an African country, and that he had seen the abuser again when he was about 16 holding the hand of a young boy.
-    - I think he was supposed to have told me his story before I told him mine.
-    - Is this proof that the Dénia criminal porn gangs, obsessed with whatever film they had found of me after reading my [police statement in 2015](../early-years/2015.md#statement-to-the-metropolitan-police), together with their UK connections, found ways to continue to terrorize me in London as I was running for election?
-    - Had I been receiving subliminal death threats online which triggered a will change?
-    - It's difficult to understand exactly why this event happened, who would benefit, and how the Dénia criminal gangs could not be involved in some way.
-    - Could this event have been set up by the police themselves; trying to terrorize a rape gang survivor out of politics?
-    - Later, I remember my [dream from a month previous](may.md#dreaming-of-the-pedophile).
+- It was Winston May, the Tottenham rape-gang pimp and procurer of minor children, who has probably always been working for the criminal porn gangs of North London and by wider implication Spain.
+- I recognized him immediately; ringleader of the pedophile grooming gang in Tottenham that had raped and abused me repeatedly, and put me in porn, in the summer of 1989.
+- He look like he was out of his mind on drugs.
+- I remembered during the horrors of 1989, at one time he had mentioned traveling to the Mediterranean coast of Spain with his associate Nikki.
+- I do wonder if I added this to [the 2015 statement](../early-years/2015.md#statement-to-the-metropolitan-police).
+- I offered him a leaflet and insisted he took one when he said he already had one (that Steve had given him).
+- He scurried away from me as I walked towards him.
+- Later, in the pub, I told Steve what had happened. 
+- Incidentally, for some reason I felt I needed to change my will that day and did so.
+- Steve then told me a story that he had been sexually abused as a child when he was 7, in an African country, and that he had seen the abuser again when he was about 16 holding the hand of a young arabic-looking boy.
+- I think he was supposed to have told me his story before I told him mine, but I got there first.
+- Could the Dénia criminal porn gangs have found ways to continue to terrorize me in London as I was running as a candidate in the general election?
+- Or was this event set up by the Metropolitan police themselves; trying to terrorize a rape gang survivor that they had failed to help out of politics?
+- Pretty desperate behavior if so.
+- Had I been receiving subliminal death threats online which triggered a will change?
+- It's difficult to understand exactly why this event happened, who would benefit, and how the Dénia criminal gangs could not be involved in some way.
+- Later, I remember my portentous [dream from a month previous](may.md#dreaming-of-the-pedophile) while I was being battered with hallucinogens and porn-prepped for Bali at home in my lovely apartment in Dénia.
 
 ### Party of Women party
 
