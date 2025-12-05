@@ -356,7 +356,7 @@ function googleTranslateElementInit() {
 
 ### Labour Party shenanigans
 
-- Normally a fast learner, it took a while to realize how politics makes people behave appallingly.
+- Normally a fast learner, it took me a while to realize how politics makes people behave appallingly.
 - Every day while campaigning, I was threatened by people I have to assume were working for other parties, or perhaps they were informers sent by the police who were horrified a rape-gang survivor might be standing for office.
 - Maybe even the British and Spanish porn-gangs felt a need to try and terrorize me out of politics.
 - Whoever they were, they made me more determined then ever!
@@ -367,7 +367,7 @@ function googleTranslateElementInit() {
 
 - One morning at East Finchley tube station while handing out leaflets, I see an old friend from the time the Tottenham rape-gang got hold of me in 1989, Geetha.
 - Her mother and her mother's boyfriend Colin had been staunch members of the Labour Party in East Finchley.
-- She's never been my friend - she bullied me horribly on three different occasions, the first time in 1980, and again viciously after the rape-gang attacks in which she wasn't targeted - I assume because she's black and they were predominantly black gangs.
+- She's never been my friend - she bullied me horribly on three different occasions; the first time in 1980, and again viciously after the rape-gang attacks in which she wasn't targeted - I assume because she's black and they were predominantly black gangs.
 - I wondered if the original bullying when I was really small had been brought about by parents and guardians angry with my dad about something.
 - I'm happy to see her in any case.
 - She doesn't have anything nice to say to me.
