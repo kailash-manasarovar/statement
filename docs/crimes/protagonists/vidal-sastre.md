@@ -134,7 +134,8 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ### AI mix of the trumpet teachers faces
 
 - Everyone in Dénia knows who these men are, and their families.
-- They have been targeting, coercing into porn and prostitution, and honey-trapping women for decades.
+- They have been targeting, coercing into porn and prostitution, and honey-trapping women and girls for decades.
+- Their business has now evolved into procuring babies for porn and infiltrating the Spanish school system.
 - They are 100% protected by Spanish authorities who prefer to wait for complainants to be murdered than do anything to protect the children these monsters have constant access to.
 - Bold and confident, they even AI'ed their faces together, mixing the conservatory receptionist Gloria's face in too.
 - They then tormented me endlessly with a fake AI-auto-posting account with this photo as a profile, the vile misandry spouted from it was managed, I believe, by the Hazel and Sandra Smith. I'll remember the account name shortly.
