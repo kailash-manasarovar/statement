@@ -120,6 +120,13 @@ function googleTranslateElementInit() {
 - I'm guessing it's somewhere like here you should start digging, but it's likely there's fields all over this region that are used for animal-porn starring drugged-and-trained women who probably don't make it out alive; wether they're murdered or they go completely mad and commit suicide.
 - I'm guessing everyone knows about it too, and knows of someone who bought a ticket to one of the shows that end up in the UK police's informal WhatsApp groups.
 
+### The horse that shied
+
+- On another walk in 2022, we visit some stables in the region.
+- As we're looking at the horses, one of them walks over and when it gets close to me it becomes extremely scared and rears up whinnying and runs off.
+- I'm pretty shocked because animals usually feel safe around me.
+- Did the horse sense the evil around me?
+
 ## Jaws
 
 - https://x.com/search?q=(shark%20OR%20jaws)%20(from%3A1frgvn)&f=live&src=typed_query
