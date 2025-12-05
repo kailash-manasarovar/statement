@@ -57,36 +57,68 @@ function googleTranslateElementInit() {
 ## Horses
 
 - This is a particularly insidious meme.
-- While the [switcheroo porn was going on](../crimes/protagonists/vidal-sastre.md#four-distinct-men) at the conservatory over the periodNovember 2022 to June 2023, I was tricked continuously into believing there was a love affair going on between myself and the *trumpet teacher*.
-- I had no idea there were a minimum of four men playing this teaching role at the time because I had been drugged every day without my knowledge since February 2022, possibly earlier, and I was also being drugged with aphrodisiac-type substances whilst attending classes at the conservatory.
+- While the [switcheroo porn was going on](../crimes/protagonists/vidal-sastre.md#four-distinct-men) at the conservatory over the period November 2022 to June 2023, I was tricked continuously into believing there was a love affair going on between myself and the *trumpet teacher*.
+- I had no idea there were [a minimum of four men playing this teaching role](../crimes/protagonists/vidal-sastre.md#at-least-four) at the time because I had been drugged every day without my knowledge since February 2022, possibly earlier, and I was also being drugged with aphrodisiac-type substances whilst attending classes at the conservatory.
 - I remain unaware of whatever sedated-woman-training exercises they will have used on me, perfected over many decades.
-- They further reinforced the trick with the [Ana Requena love triangle myth](../timeline/2022/november.md#the-trumpet-teacher) at the conservatory, also providing what would sound like a bizarre alibi at the same time if I ever complained about it before understanding the whole story.
-- Furthermore, the trick was reinforced continually with words and images on my hacked UI through X, Google search, YouTube, and other websites that might be *suggested* to me via hacking.
+- They further reinforced the trick with the [Ana Requena love-triangle myth](../timeline/2022/november.md#the-trumpet-teacher) at the conservatory, also providing what would sound like a bizarre and unhinged alibi if I ever complained before understanding the whole story.
+- Furthermore, the trick was reinforced continually with words and images on my hacked browsers through X, Google search, YouTube, and other websites that might be *suggested* to me via hacking.
 - A common meme was horses, and this meme was very quickly associated with the man I believed I loved.
 
 ![Dark horse](../content/tweets/dark-horse.jpg)
 
-- It turns out, this was an ongoing trigger that had started some years previously for, I believe, rather sickening reasons.
+- It turns out, this was an ongoing trigger that had started some years previously for, I believe, sickening reasons.
 
 ### Police documentary
 
-- While I was suicidally depressed in India in 2016 after leaving Dénia, I *stumbled across* a documentary about a woman who had rejoined the police and was undercover filming her male colleagues appalling behavior.
+- While I was suicidally depressed in India in 2016 after leaving Dénia, I *stumbled across* a documentary about a woman who had rejoined the police and was undercover filming her male colleagues' appalling behavior.
 - We see two male police officers snickering over a video clip on a WhatsApp group on their phones.
 - They tell the female police officer they're looking at a naked woman running around a field somewhere after a horse.
 - I was horrified. 
 - The attitude of these policemen to this poor woman in the field was astounding. She didn't register as a human being to them at all.
-- Later, during the beginnings of the online stalking after I moved back to Denia in 2022, I mentioned this particular video in an X post which I have yet to find.
-- Immediately, a fake account replies with the exact film clip, show name, URL even, saying, *Is it this one?*.
+- At the time, I assumed that the pornographers had threatened to murder the woman's children but I now believe the truth is much more sinister.
+- When the more pernicious online stalking started, just after I moved back to Dénia in 2022, I once mentioned this video in an X post which I have yet to find.
+- Immediately, a fake account replies with the exact film clip, show name, URL even, saying, *Is this the one?*.
 - I reply *yes*, or similar.
-- I now believe that this response came from Hazel, and either herself or her associates had begun triggering me with the horse meme all the way back in 2016.
+- I now believe that this response came from Hazel, and either herself or her associates had begun the horse meme trigger all the way back in 2016.
 - I believe the horse meme is 100% related to naked women running around a field after a horse, and I believe this field to be in the Marina Alta region.
-- I only remember this as significant once the drugging has stopped for a long period and I have also remembered the [switcheroo conspiracy](../timeline/2025/september.md#thunderbolt-clarity).
+- I believe I was shown this video in 2016 so that I would shockingly remember seeing it while I was doing the same thing once the switcheroo porn show was over and I was handed over to the sickest pornographers of all for the animal-show training.
+- I only remember this as significant once the drugging has stopped for a long period and I have remembered the [switcheroo conspiracy](../timeline/2025/september.md#thunderbolt-clarity).
 
 ![Remembering the horse meme](../content/tweets/remembering-the-horse-meme.jpg)
 
 - The fact that I cannot find this tweet, or the reply to it coming from a stalker account, suggests collusion from backend X developers.
+- This is a tweet they would definitely not want me to screenshot.
 
 ### Samuel is a dark horse
+
+- At harmony class, Samuel uses memes and triggers constantly.
+- In one class, he tells me that [Lorraine Blackbourn told him he was a *dark horse*](../timeline/2022/september.md#harmony).
+- I write about this in reference to the fake account [aural fixation](../timeline/2024/march/1-12.md#auralfixation) which continues to stalk me to this day.
+- Remember, Samuel and Domingo spent a lot of time with vulnerable children outside of conservatory class time.
+
+### Maria understands the horse meme implications
+
+- On my way to piano class, probably in April 2023 sometime, my piano teacher Maria Hontanilla bumps into me and we walk a little of the way together.
+- I use a figure of speech *look a gift horse in the mouth* to explain something.
+- Maria looks at me astounded and says nothing.
+- I assume she hasn't understood what I've said, so I try to explain.
+- She eventually speaks saying they have the exact same saying in Spanish.
+- Why was she so amazed?
+- Do Maria and everyone else know where women like me eventually end up?
+
+### The horrible field
+
+- Sometimes in 2022, on a walk with the British expat hikers, we pass a very unpleasant farm.
+- It's in a small hidden valley and the paths around it are covered with dog faeces.
+- It's horrible actually and I'm not sure why the English ladies have decided to walk this way.
+- Visible is a muddy field, fenced off with a wire fence but and you could stand on the outside and see in.
+- There may have been some pigs there, or elsewhere in the farm.
+- There were some bulls, perhaps kept for the bull runs.
+- There are two or three large, fierce and angry-sounding dogs in the farm running up against the gate and being very aggressive.
+- You wouldn't want to be wandering around here alone.
+- The whole feel of the place is sinister.
+- I'm guessing it's somewhere like here you should start digging, but it's likely there's fields all over this region that are used for animal-porn starring drugged-and-trained women who probably don't make it out alive; wether they're murdered or they go completely mad and commit suicide.
+- I'm guessing everyone knows about it too, and knows of someone who bought a ticket to one of the shows that end up in the UK police's informal WhatsApp groups.
 
 ## Jaws
 
