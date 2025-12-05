@@ -8,7 +8,7 @@ function googleTranslateElementInit() {
 }
 </script>
 
-- This pages describes symbols used by online manipulators to generate reliable triggers in a target.
+- This pages describes words and symbols used by online manipulators to generate reliable triggers in a target's psyche, in the same way that animal trainers might use sounds and visuals to get animals to do whatever they want them to do.
 - Some of these are fairly sinister.
 - And some of these memes are mine, because I figured out what they were up to and I played their game back at them by instead shining light into the darkness. 
 
