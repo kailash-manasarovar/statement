@@ -19,7 +19,7 @@ function googleTranslateElementInit() {
 [![I love the smell of garbure in the morning](../content/images/garbure-in-the-morning.png)](https://x.com/1FRGVN/status/1711312917998538845)
 
 - I gave at least as good as I got online, certainly in the early days.
-- Once I realized I was being full-on cyber-stalked ([12th June 2023](../timeline/2023/june.md#monday-12th-june-2023)) and was recognizing the patterns, I made every attempt to fight back. 
+- Once I realized I was being full-on cyber-stalked ([12th June 2023](../timeline/2023/june.md#monday-12th-june-2023)) and started recognizing the patterns, I made every attempt to fight back. 
 - Lately, I'm probably ahead.
 - *I love the smell of garbure in the morning*, is my favorite proprietary meme.
 - Garbure is a local dish from the Pyrenees and you can smell it being prepared in the hotel kitchens in Lourdes every morning. 
@@ -55,7 +55,33 @@ function googleTranslateElementInit() {
 
 ## Horses
 
-- This is a particularly insidious one.
+- This is a particularly insidious meme.
+- While the [switcheroo porn was going on](../crimes/protagonists/vidal-sastre.md#four-distinct-men) at the conservatory over the period between November 2022 and June 2023, I was being tricked into believing there was a love affair going on between myself and the *trumpet teacher* - I had no idea there were a minimum of four men playing this role at the time because I was being drugged every day since February 2022, possibly earlier, without my knowledge.
+- The trick was due to the drugging and some sedated-woman-training exercises we have yet to uncover.
+- It was reinforced with the [Ana Requena love triangle myth](../timeline/2022/november.md#the-trumpet-teacher) at the conservatory.
+- And it was reinforced continually with words and images on my hacked UI through X, Google search, YouTube, and other websites that might be *suggested* to me via hacking.
+- A common meme was horses, and this meme was very quickly associated with the man I believed I loved.
+
+![Dark horse](../content/tweets/dark-horse.jpg)
+
+- It turns out, this was an ongoing trigger that had started some time previously for rather sickening reasons.
+
+### Police documentary
+
+- While I was suicidally depressed in 2016, I *stumbled across* a documentary about a woman who had rejoined the police and was undercover filming her colleagues appalling behavior.
+- We see two male police officers snickering over a video clip on a WhatsApp group on their phones.
+- They tell the female police officer they're looking at a naked woman in a field somewhere running after a horse.
+- I was horrified. The attitude of the men to this poor woman in the field was astounding to me. She didn't register as a human being to them at all.
+- Later, during the beginnings of the online stalking after I moved back to Denia in 2022, I mentioned this particular video in an X post which I have yet to find.
+- Immediately, a fake account replies with the exact film clip, show name, URL even, saying, *Is it this one?*
+- I reply *yes*, or similar.
+- I now believe that was Hazel, and either herself or her associates had begun triggering me with the horse meme all the way back in 2016.
+- I only remember this as significant once the drugging has stopped for a long period and I have remembered the switcheroo men also.
+
+![Remembering the horse meme](../content/tweets/remembering-the-horse-meme.jpg)
+
+
+### Samuel is a dark horse
 
 ## Jaws
 
