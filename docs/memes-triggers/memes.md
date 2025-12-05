@@ -26,7 +26,7 @@ function googleTranslateElementInit() {
 
 [![Garbure meme](../content/images/garbure-meme.png)](https://x.com/search?q=(from%3A1frgvn)%20garbure&src=typed_query&f=live)
 
-- I certainly felt that Mary was on my side helping me deal with these people, and undoubtedly this was mine, Hers, and Saint Bernadette's battle-cry.
+- I certainly felt that Mary was on my side helping me deal with these people; and that this was mine, Hers, and Saint Bernadette's battle-cry.
 - Here's a poll about garbure from December 2023.
 
 [![A garbure poll from December 2023](../content/tweets/memes/garbure-in-the-morning.png)](https://x.com/1FRGVN/status/1740831827743670449)
@@ -39,7 +39,7 @@ function googleTranslateElementInit() {
 - I also wonder what it must have been like for the righteous silenced-and-fearful to watch these changes occur, still in marvelous progress.
 - When Mary's with you, and they knew She was with me, nothing can hurt you.
 - They know this too.
-- The only explanation is a mass criminal psychopathic hysteria.
+- The only explanation for their outrageous behavior is a mass criminal and psychopathic hysteria possibly born of watching too many mafia films.
 - Unless, of course, this is a common occurrence in Spain, and everyone knows who the targets are, everyone is told about them, in fact, and I'm the only person who has put up a worthy fight.
 - This is the scary option because it means they expect it, welcome it even, and it also means countless lives have been destroyed in similar circumstances.
 - It also explains why no-one helped me and instead made sure I knew they all thought I was dirt and deserved whatever was happening to me.
