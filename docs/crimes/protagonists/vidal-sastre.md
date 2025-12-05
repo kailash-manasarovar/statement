@@ -102,7 +102,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - More may come now, of course.
 - The girl in this picture is very familiar, I don't know why yet.
 - I'm guessing everyone in Dénia and the Marina Alta region knows this man.
-- Gloria the receptionist could very well be a close relation of this man.
+- Gloria the receptionist could very well be a close relation of this man, maybe his sister even.
 
 ### Dark thick-curly-haired deep-set man
 
@@ -110,25 +110,30 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - I don't remember him ever being at the conservatory.
 - I remember him [in my bed calling my name](../../timeline/2023/april.md#dreaming-of-the-trumpet-teacher) which I now believe was not a dream.
 - He was the man I saw in the banged up Peugeot on the 11th June 2023, [the day before my *funeral*](../../timeline/2023/june.md#sunday-11th-june) and [driving past me at the beach with the doctor in the passenger seat](../../timeline/2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me), and [driving Ana Requena's blue car slowly past me](../../timeline/2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car).
-- He was also reminiscent of [Patricia Penny's husband](../../timeline/2021/december.md#christmas) and the [man who came out to terrorize me on Halloween](../../timeline/2023/october.md#halloween) but not exactly the same - those two men could well be the same man.
-- This trumpet player, at the *funeral* of the young girl behind him, looks like him. 
+- He was also reminiscent of [Patricia Penny's husband](../../timeline/2021/december.md#christmas) and the [man who came out to terrorize me on Halloween](../../timeline/2023/october.md#halloween) but not exactly the same - those two men could well be the same man and related to this one.
+- This trumpet player, at the *funeral* of the young drugged and groomed girl behind him, looks like him and when I first saw this photo in June 2023 I recognized this man immediately as the trumpet teacher who had come to the conservatory to teach classes.
 
 ![The dark curly-haired man with the big legs](../../content/images/hornero/tt-1-again.png)
 
-- You'll notice Carmen Cano was in attendance here too. She gets around doesn't she.
+- You'll notice Carmen Cano was in attendance here playing the flute.
 
 [![Youtube](../../content/images/youtube-video.png)](../../timeline/2023/june.md#another-young-girls-funeral)
 
-- I'm pretty sure these films they're so happy and safe to publish are the porn-genre adverts.
-- Could this be him as a young man?
+- Due to the age of these films, I'm pretty sure they function as *music-student-porn-genre* adverts which means the danger to children studying music in Spain could be country-wide.
+- I recognize this man as the same man who [interviewed me for a job where I would be looking at genitals all day](../../timeline/early-years/2016.md#march) in 2016, and who I saw in the town not long after.
+- I believe he told me his name is Viktor, and that he is the man with [the nickname Vigas](../../timeline/2024/august.md#conversation-with-the-hacker) who is running the [Beams grooming account](../../timeline/2024/may.md#beams).
+- He is the man depicted as a monster on this [police statement's book cover](../../index.md) sitting alongside Domingo Cano Lopez.
+- It's possible there's a group of similar looking men who may be brothers and cousins with curly black hair, some tall, with chunky bodies.
+- He looks similar again to the [man who bumped into me at EthCC](../../timeline/2024/july.md#uk-and-belgium), a man I had not seen before.
+- Could this be Viktor, or one of the others, as a young man?
 
 ![The deep-set man](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
 
-- I wonder if this man's name might be Viktor (something's telling me that could be it and I did meet him online of course), and his nickname Vigas due to the big legs.
-- Although I did think I saw the grown-up version of this person on the beach on [6th October 2024](../../timeline/2024/october.md#sunday-6th-october) and have a body cam image of that man who was very different looking, short and quite ugly. Perhaps they're related.
-- I believe this is also the man who [interviewed me for a tech job where I'd be looking at genitals all day](../../timeline/early-years/2016.md#march) in 2016; a man I saw online and in-person.
-- They are certainly the man depicted on the [book cover](../../index.md).
-- I'm guessing everyone in Dénia knows this man.
+- I believe I saw the grown-up version of this person on the beach on [6th October 2024](../../timeline/2024/october.md#sunday-6th-october) and have a body cam image of that man and others.
+
+### AI mix of the trumpet teachers faces
+
+- Everyone in Dénia knows this man, and his family.
 - They even AI'ed his face and mixed it with Gloria the receptionists face and tormented me endlessly with a fake account having this profile pic.
 
 ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/Screenshot 2024-11-13 at 20.29.36.png)
@@ -138,7 +143,6 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - The eyes are from this man, the face shape is the [third](#an-unknown-man-i-may-have-a-picture-of), I possibly don't see the [second man](#the-brother-or-mark-from-english-class-in-2013) in here either.
 - Gloria's face, the school receptionist, stands out the most, of course.
 - The arrogance of the gang and their certainty they will never be brought to justice is staggering.
-- The posts and language coming from this account I suspect was generated by powerful and unfiltered AI software (there was an unusual repeated pattern to the posts) with Sandra Smith controlling.
 
 ### The L'Amistat Quart band
 
