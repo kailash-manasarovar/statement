@@ -412,7 +412,7 @@ function googleTranslateElementInit() {
 - Pretty desperate behavior if so.
 - Had I been receiving subliminal death threats online which triggered a will change?
 - It's difficult to understand exactly why this event happened, who would benefit, and how the Dénia criminal gangs could not be involved in some way.
-- Later, I remember my portentous [dream from a month previous](may.md#dreaming-of-the-pedophile) while I was being battered with hallucinogens and [porn-prepped for Bali](april.md#drugged-in-the-street-by-dénia-gypsies) at home in my lovely apartment in Dénia.
+- Later, I remember my portentous [dream from a month previous](may.md#dreaming-of-the-pedophile) while I was being battered with hallucinogens and [porn-prepped for the Bali Polygon conference](april.md#drugged-in-the-street-by-dénia-gypsies) at home in my lovely apartment in Dénia.
 
 ### Party of Women party
 
