@@ -389,8 +389,8 @@ function googleTranslateElementInit() {
 - I give them a lift home after the party too.
 - I also meet Beverley who is standing in the general election against Emily Thornberry in Islington South.
 - When I go to give Bev a hug to say hi, our cheeks brush.
-- The softness of Bev's cheek skin is incredible, it's amazing, I'm blown away by the softness of her cheek.
-- I'm so amazed at how soft Bev's cheek feels I tell a few people about it, including So, and one other woman who I met at Madrid (can't remember her name - but she tried to create some negativity with me that night by telling me a story with no details about how people have been saying things, oh you'll find out, Kate something, she said... I wasn't impressed).
+- The softness of Bev's cheek skin is incredible, it's amazing, I'm blown away by the softness of her cheek!
+- I'm so amazed at how soft Bev's cheek feels I tell a few people about it, including So, and one other woman who I met at Madrid (can't remember her name - but she tried to create some negativity with me that night by telling me a dark history with no details about how people have been saying things, oh you'll find out, Kate something, she said... I wasn't impressed).
 - Two weeks later, Posie Parker repeats everything this woman said to me, word for word, on a video.
 - It's pretty obvious to me I'm *persona-non-grata* and I will have no idea why [until late 2025](../2025/july.md#dad-tells-me-hes-a-spy-cop).
 - Anyway.
