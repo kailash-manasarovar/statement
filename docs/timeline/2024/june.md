@@ -421,7 +421,7 @@ function googleTranslateElementInit() {
 - I bought 70000 leaflets with VistaPrint and when they arrived it looked like the boxes had been destroyed purposefully.
 - I complained and they sent me a whole new print run of 70000 leaflets, so I contracted a company to help me deliver them at the very last minute, StreetPR UK.
 - They had five days, Friday through Wednesday, including Saturday, to do it.
-- It was Thursday, and I paid the company thousands of pounds, and all of a sudden, bold as brass, they rang to tell me they didn't have a van to pick up my leaflets.
+- It was Thursday evening, and I paid the company thousands of pounds, and all of a sudden, bold as brass, they rang to tell me they didn't have a van to pick up my leaflets.
 - It didn't occur to them that they could have easily hired a courier, which told me everything. 
 - After complaining bitterly about this, they sent a man from South East London to collect them and he turned up on Saturday evening in his car. 
 - He wouldn't say where he was taking them when I asked him.
