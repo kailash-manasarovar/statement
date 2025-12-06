@@ -490,7 +490,7 @@ function googleTranslateElementInit() {
 - He takes a nap at Let Women Speak in the park.
 - The thing is, my friend had a 5-year-old nephew with the same name in 2005, the year I met her.
 - I was around when they had visited London together and she told me all about it.
-- The boy she brings is supposed to be the same nephew, but he's about 7 years too young!
+- The boy she brings is supposed to be the same nephew, but he's too young!
 - He wouldn't have even existed in 2005.
 - Read more about [my friend from Madrid and her foreign office contact](october.md#madrid-and-paloma) who promised she would help the women and children targeted by the porn-gangs of Dénia and the wider area, and nothing happened apart from everyone waiting for me to be murdered and shut up, I suppose.
 
