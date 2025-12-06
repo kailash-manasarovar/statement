@@ -479,15 +479,20 @@ function googleTranslateElementInit() {
 - In one of the first messages in our long communication from July and over August, the hacker said (I believe this was Hazel Smith) *I wasn't expecting that* with regards to me standing for election.
 - I surprised them all, and possibly terrified a few at the same time. Hope so.
 
-### My friend from Madrid
+### My timeless friend from Madrid
 
-- Curiously, my friend from Madrid is there and she records my speech on her phone. I have a copy.
-- She brings her 14-year-old nephew, who she tells me has ADHD.
+- Curiously, my friend from Madrid visits London during the general election.
+- It was arranged month's before. 
+- She told me in March about the trip when [I was threatened out of my piano studies and started to fear for my life](march/13-end.md#madrid) and stayed in Madrid.
+- She is visiting London with her sister and her nephew. 
+- She tells me her nephew has ADHD.
 - He does seem a little high; he just grins a lot and keeps falling asleep.
-- The thing is, she had a 5-year-old nephew in 2006, the year I met her.
-- She told me she had visited London with him at that time.
-- This boy is supposed to be the same nephew, but he's 10 years too young!
-- I find it suspicious.
+- He takes a nap at Let Women Speak in the park.
+- The thing is, my friend had a 5-year-old nephew with the same name in 2005, the year I met her.
+- I was around when they had visited London together and she told me all about it.
+- The boy she brings is supposed to be the same nephew, but he's about 7 years too young!
+- He wouldn't have even existed in 2005.
+- Read more about [my friend from Madrid and her foreign office contact](october.md#madrid-and-paloma) who promised she would help the women and children targeted by the porn-gangs of Dénia and the wider area, and nothing happened apart from everyone waiting for me to be murdered and shut up, I suppose.
 
 ### Leaflets
 
