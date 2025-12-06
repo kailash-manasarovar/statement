@@ -438,6 +438,38 @@ function googleTranslateElementInit() {
 - It's difficult to understand exactly why this event happened, who would benefit, and how the Dénia criminal gangs could not be involved in some way.
 - Later, I remember my portentous [dream from a month previous](may.md#dreaming-of-the-pedophile) while I was being battered with hallucinogens and [porn-prepped for the Bali Polygon conference](april.md#drugged-in-the-street-by-denia-gypsies) at home in my lovely apartment in Dénia.
 
+### Speech at LWS
+
+- The following day, at the [Let Women Speak](https://www.letwomenspeak.org/) meeting in Hyde Park on 30th June, I make a speech along with many of the other candidates for the Party of Women in the election.
+- In the spirit of not letting women speak, my speech is cut from the live feed.
+- I'm scurried away after the event so as not to be able to talk to anyone.
+- It's obvious I'm being discredited in the community.
+- My past experience as a grooming gang survivor makes people uncomfortable, but there's much more to it than that and I cannot figure it out.
+- I have no idea what I might have done to deserve being silenced by the women protesting about being silenced!
+- I park it.
+- I'm fighting the Spanish gitano porn-gangs and their British associates 24-7, so I don't really have time to think about it anyway.
+- My friend from Madrid who is visiting London that weekend takes a video on her phone, but the sound is removed.
+
+[![Hyde Park speech](../../content/images/hyde-park-speech.jpg)](https://drive.google.com/file/d/1ZSDl4MhikFjuWZ-Z2yLnHzU8pSfwGpXU/view?usp=sharing)
+
+- Here's what I said.
+
+![my speech](../../content/documents/speeches/my-speech.png)
+
+- Running for election at the UK General Election in July 2024 for the Party of women was a game changer for me, quite possibly a life-saving act of self-preservation.
+- In one of the first messages in our long communication from July and over August, the hacker said (I believe this was Hazel Smith) *I wasn't expecting that* with regards to me standing for election.
+- I surprised them all.
+
+#### My friend from Madrid
+
+- Curiously, my friend from Madrid is there and she records my speech on her phone. I have a copy.
+- She brings her 14-year-old nephew, who she tells me has ADHD.
+- He does seem a little high; he just grins a lot and keeps falling asleep.
+- The thing is, she had a 5-year-old nephew in 2006, the year I met her.
+- She told me she had visited London with him at that time.
+- This boy is supposed to be the same nephew, but he's 10 years too young!
+- I find it suspicious.
+
 ### Leaflets
 
 - A curious thing happened with my leaflets.
@@ -456,30 +488,6 @@ function googleTranslateElementInit() {
 - They weren't able to provide any proof of any people having been contracted to do the work.
 - I lost the case but I wasn't very well prepared, and I was struggling hard to think straight.
 - I'm just adding this for completeness.
-
-### Speech at LWS
-
-- At LWS in Hyde Park on 30th June, I make a speech.
-- It's obvious I'm being discredited in the community. My past experience as a grooming gang survivor makes people uncomfortable, but there's much more to it than that. 
-- I have no idea what it is or what I might have done to deserve being silenced by the women protesting about being silenced!
-- It's ironic.
-- When the video is posted on Twitter, the end part, including my speech is cut.
-
-![my speech](../../content/documents/speeches/my-speech.png)
-
-!!! important
-    - Running for election at the UK General Election in July 2024 for the Party of women was a game changer for me, quite possibly a life saving act.
-    - In one of the first messages in our long communication from July and over August, the hacker said "well I wasn't expecting that" with regards to it.
-
-#### My friend from Madrid
-
-- Curiously, my friend from Madrid is there and she records my speech on her phone. I have a copy.
-- She brings her 14-year-old nephew, who she tells me has ADHD.
-- He does seem a little high; he just grins a lot and keeps falling asleep.
-- The thing is, she had a 5-year-old nephew in 2006, the year I met her.
-- She told me she had visited London with him at that time.
-- This boy is supposed to be the same nephew, but he's 10 years too young!
-- I find it suspicious.
 
 ### Volunteers not what they seem
 
