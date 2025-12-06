@@ -391,12 +391,13 @@ function googleTranslateElementInit() {
 - When I go to give Bev a hug to say hi, our cheeks brush.
 - The softness of Bev's cheek skin is incredible, it's amazing, I'm blown away by the softness of her cheek!
 - I'm so amazed at how soft Bev's cheek feels I tell a few people about it, including So, and one other woman who I met at Madrid (can't remember her name - but she tried to create some negativity with me that night by telling me a dark history with no details about how people have been saying things, oh you'll find out, Kate something, she said... I wasn't impressed).
+- I think I told her I was going to eradicate porn!
 - Two weeks later, Posie Parker repeats everything this woman said to me, word for word, on a video.
 - It's pretty obvious to me I'm *persona-non-grata* and I will have no idea why [until late 2025](../2025/july.md#dad-tells-me-hes-a-spy-cop).
 - Anyway.
 - I'm used to ultra and extraordinarily high levels of persecution so it doesn't bother me.
 - I've become immune to it.
-- In retrospect, I believe that the way I felt about Beverley's soft cheek is proof, to me, that I was high that night on some sense-affecting substance; something either I was absorbing through my shampoo and toiletries I brought over from Spain, or via a top-up I had ingested that night without my knowledge.
+- In retrospect, I believe that the very unusual way I felt about Beverley's soft cheek is proof, to me, that I was high that night on some sense-affecting substance; something either I was absorbing through my shampoo and toiletries I brought over from Spain, or via a top-up I had ingested that night without my knowledge.
 
 ### Winston May
 
