@@ -442,8 +442,8 @@ function googleTranslateElementInit() {
 
 - The following day, at the [Let Women Speak](https://www.letwomenspeak.org/) meeting in Hyde Park on 30th June, I make a speech along with many of the other candidates for the Party of Women in the election.
 - In the spirit of not letting women speak, my speech is cut from the live feed.
-- I'm scurried away after the event so as not to be able to talk to anyone.
-- It's obvious I'm being discredited in the community.
+- [Stella](#the-east-finchley-summer-festival) scurries me away after the event so I'm not able to talk to anyone.
+- It's obvious I'm being discredited.
 - My past experience as a grooming gang survivor makes people uncomfortable, but there's much more to it than that and I cannot figure it out.
 - I have no idea what I might have done to deserve being silenced by the women protesting about being silenced!
 - I park it.
