@@ -501,7 +501,7 @@ function googleTranslateElementInit() {
 - Are all the rental flats in the building on the Carrer Furs wired up for spy-cam porn, I wonder?
 - Does Pedro know everything that's going on in Carrer Furs? 
 - Is that why he was so keen to get me alone with him, and perhaps tampered with my car to make me believe there was a problem?
-- Are all foreign women traveling without men in serious jeopardy after going to bed in Dénia rental apartments with customized air-conditioning systems? 
+- Are all women traveling without men in serious jeopardy after going to bed in Dénia rental apartments with customized air-conditioning systems? 
 - Are their children in danger too?
 
 ## The water pipes
