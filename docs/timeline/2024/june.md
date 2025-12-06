@@ -375,6 +375,29 @@ function googleTranslateElementInit() {
 - She takes a photo of me and her, and leaves.
 - I'm happy she came over to say hello and think nothing more of it.
 
+### Party of Women party
+
+- A party is held in Dalston for Let Women Speak and the Party Of Women on Saturday 29th June, the weekend before the general election.
+- I go and meet many of the other candidates standing for election.
+- [So (Janet)](#so-janet), my volunteer, is there.
+- She flatters me a little, and buys me a drink, and says she'll be helping out the following week at the tube stations.
+- She also gives me her significant, weird, and unnecessary gift of a vial of water from the church where St Valentines relics remain in Glasgow.
+- Poor ole Valentine. Misused for centuries by wrong 'uns.
+- Anyway.
+- I meet another volunteer Sandra with her sister Susan Hamill.
+- They also buy me a drink.
+- I give them a lift home after the party too.
+- I also meet Beverley who is standing in the general election against Emily Thornberry in Islington South.
+- When I go to give Bev a hug to say hi, our cheeks brush.
+- The softness of Bev's cheek skin is incredible, it's amazing, I'm blown away by the softness of her cheek.
+- I'm so amazed at how soft Bev's cheek feels I tell a few people about it, including So, and one other woman who I met at Madrid (can't remember her name - but she tried to create some negativity with me that night by telling me a story with no details about how people have been saying things, oh you'll find out, Kate something, she said... I wasn't impressed).
+- Two weeks later, Posie Parker repeats everything this woman said to me, word for word, on a video.
+- It's pretty obvious to me I'm *persona-non-grata* and I will have no idea why [until late 2025](../2025/july.md#dad-tells-me-hes-a-spy-cop).
+- Anyway.
+- I'm used to ultra and extraordinarily high levels of persecution so it doesn't bother me.
+- I've become immune to it.
+- In retrospect, I believe that the way I felt about Beverley's soft cheek is proof, to me, that I was high that night on some sense-affecting substance; something either I was absorbing through my shampoo and toiletries I brought over from Spain or with a top-up I had ingested that night without my knowledge.
+
 ### Winston May
 
 - During my election campaign, me and my little group of volunteers handed out leaflets in the constituency, often at tube stations.
@@ -432,26 +455,6 @@ function googleTranslateElementInit() {
 - They weren't able to provide any proof of any people having been contracted to do the work.
 - I lost the case but I wasn't very well prepared, and I was struggling hard to think straight.
 - I'm just adding this for completeness.
-
-### Party of Women party
-
-- There is a party in Islington held for Let Women Speak and the Party Of Women.
-- It takes place the Saturday 29th June, the weekend before the general election.
-- I go and meet many of the other candidates for election.
-- So (Janet), my volunteer, is there.
-- She came to help out at East Finchley festival.
-- She flatters me a little, and buys me a drink, and says she'll be helping out the following week.
-- She also gives me her weird and unnecessary gift this evening.
-- I believe Susan Hamill and her sister buy me a drink also. I give them a lift home after the party too.
-- I also meet Beverley who is standing against Emily Thornberry.
-- When I go to give Bev a hug to say hi, our cheeks brush.
-- The softness of Bev's cheek skin is incredible, it's amazing, I'm blown away by the softness of her cheek.
-- I'm so amazed at how soft her cheek felt I tell a few people about it, including So, and one other woman who I met at Madrid (can't remember her name - but she tried to create some negativity with me that night by telling me a story with no details about how people have been saying things, oh you'll find out, Kate something, she said... I wasn't impressed).
-- Two weeks later, Posie Parker repeats everything this woman said to me, word for word, on a video.
-- It's pretty obvious to me I'm persona-non-grata everywhere I go. I have no idea why.
-- Anyway.
-- I'm used to extraordinary levels of persecution so it doesn't bother me. I'm sort of immune to it.
-- Anyway, again, the way I felt about Beverley's soft cheek is proof, to me, that I was high that night on some sense-affecting substance, something either I was absorbing through my shampoo I brought over from Spain - likely to be the aphrodisiac or mandrake they needed to dose me up with constantly - or with a top-up I had ingested that night without my knowledge.
 
 ### Speech at LWS
 
