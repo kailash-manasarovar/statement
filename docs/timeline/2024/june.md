@@ -483,16 +483,16 @@ function googleTranslateElementInit() {
 
 - Curiously, my friend from Madrid visits London during the general election.
 - It was arranged month's before. 
-- She told me in March about the trip when [I was threatened out of my piano studies and started to fear for my life](march/13-end.md#madrid) and stayed in Madrid.
+- She told me in March about the trip when [I was threatened out of my piano studies and started to fear for my life](march/13-end.md#madrid) and escaped to Madrid.
 - She is visiting London with her sister and her nephew. 
 - She tells me her nephew has ADHD.
 - He does seem a little high; he just grins a lot and keeps falling asleep.
 - He takes a nap at Let Women Speak in the park.
 - The thing is, my friend had a 5-year-old nephew with the same name in 2005, the year I met her.
-- I was around when they had visited London together and she told me all about it.
-- The boy she brings is supposed to be the same nephew, but he's too young!
-- He wouldn't have even existed in 2005.
-- Read more about [my friend from Madrid and her foreign office contact](october.md#madrid-and-paloma) who promised she would help the women and children targeted by the porn-gangs of Dénia and the wider area, and nothing happened apart from everyone waiting for me to be murdered and shut up, I suppose.
+- I was around when they had visited London together and she told me all about it, about it being so hot on the tube in the summer, etc.
+- The boy she brings is supposed to be the same nephew, but he's too young.
+- He wouldn't have even existed in 2005!
+- Read more about [my friend from Madrid and her foreign office contact](october.md#madrid-and-paloma) who promised she would help the multitude of women and children targeted by the porn-gangs of Dénia and the wider area that I have information about, and nothing happened apart from everyone waiting for me to be murdered and shut up, I suppose.
 
 ### Leaflets
 
