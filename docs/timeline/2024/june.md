@@ -384,7 +384,7 @@ function googleTranslateElementInit() {
 - She also gives me her significant, weird, and unnecessary gift of a vial of water from the church where St Valentines relics remain in Glasgow.
 - Poor ole Valentine. Misused for centuries by wrong 'uns.
 - Anyway.
-- I meet another volunteer Sandra with her sister Susan Hamill.
+- I meet another volunteer, Sandra with her sister Susan Hamill.
 - They also buy me a drink.
 - I give them a lift home after the party too.
 - I also meet Beverley who is standing in the general election against Emily Thornberry in Islington South.
@@ -397,7 +397,7 @@ function googleTranslateElementInit() {
 - Anyway.
 - I'm used to ultra and extraordinarily high levels of persecution so it doesn't bother me.
 - I've become immune to it.
-- In retrospect, I believe that the very unusual way I felt about Beverley's soft cheek is proof, to me, that I was high that night on some sense-affecting substance; something either I was absorbing through my shampoo and toiletries I brought over from Spain, or via a top-up I had ingested that night without my knowledge.
+- In retrospect, I believe that the very unusual way I felt about Beverley's soft cheek is proof, to me, that I was high that night on some low-level dose of a hallucinogenic and euphoric substance; something either I was absorbing through my shampoo and toiletries I brought over from Spain, or via a top-up I had ingested that night without my knowledge.
 
 ### Winston May
 
