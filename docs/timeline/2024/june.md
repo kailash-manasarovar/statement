@@ -545,3 +545,4 @@ function googleTranslateElementInit() {
 - I take my brother out to dinner at the White Lion in N2 and tell him everything.
 - I had told my brother everything I knew in June 2024 about what was going on for me and how much danger I was in. 
 - We were tracked in the pub at that time by *operatives*, police I expect, or criminal gangs, or both probably.
+- My brother fails to hear anything I've told him, just like my mother does, and I'm wondering now if I'm being misrepresented at home by someone with a vested interest in me not surviving the porn gangs.
