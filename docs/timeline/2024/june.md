@@ -475,7 +475,7 @@ function googleTranslateElementInit() {
     And yet, here I am.</br>
     It is hard to believe a defense that doesn't attack is the best defense, but this is what is meant by "the meek shall inherit the earth." We will literally take it over because of our strength.</br>
 
-- Running for election at the UK General Election in July 2024 for the Party of women was a game changer for me, quite possibly a life-saving act of self-preservation.
+- Running for election at the UK General Election in July 2024 for the Party of women was a game changer for me; a life-saving act of self-preservation.
 - In one of the first messages in our long communication from July and over August, the hacker said (I believe this was Hazel Smith) *I wasn't expecting that* with regards to me standing for election.
 - I surprised them all, and possibly terrified a few at the same time. Hope so.
 
