@@ -482,23 +482,27 @@ function googleTranslateElementInit() {
 
 ## Pedro ogles a tourist
 
-- The building I live in is packed full of AirB&B type properties.
-- This means that many of the people at the pool are tourists; visiting for the weekend if they're Spanish, or a week or two if they're foreign.
+- The building I live in on Carrer Furs is packed full of AirB&B type properties.
+- This means that many of the people you see at the pool are tourists; visiting for the weekend if they're Spanish, or a week or two if they're foreign.
 - Outside of the hot weather, the building is nearly empty.
+- It's still hot in September.
 - One afternoon, I'm coming back from practicing the piano and I see Pedro painting one of the metal gates of the swimming pool.
 - He is staring intently at a woman in the pool.
-- She is foreign, slim, and blond, and is Scandinavian of some sort.
-- She is with her small children. It looks like she has no man with her.
+- She is foreign, slim, and blond; she looks Scandinavian of some sort.
+- She is with her two small children.
+- It looks like she has no man with her; a single mother on holiday with her children.
 
 ![Pedro paints the gate](../../content/images/pedro-paints-the-gate.png)
 
 - It's really embarrassing the way Pedro is looking at her, he's ogling her like a pervert, in a most exaggerated way.
-- She looks really upset and I would not be at all surprised if she complained, and that had something to do with why he was fired.
-- I tweet about this at some point (I'll find the tweet soon).
+- She looks really upset, she's looking at him astonished, and he's not stopping either.
+- I would not be at all surprised if she complained, and that had something to do with why he was fired.
 - I now wonder if this is not the only manner in which he has been ogling her.
 - Are all the rental flats in the building on the Carrer Furs wired up for spy-cam porn, I wonder?
 - Does Pedro know everything that's going on in Carrer Furs? 
 - Is that why he was so keen to get me alone with him, and perhaps tampered with my car to make me believe there was a problem?
+- Are all foreign women traveling alone in serious jeopardy after going to bed in Dénia rental apartments with customized air-conditioning systems? 
+- Are their children in danger too?
 
 ## The water pipes
 
