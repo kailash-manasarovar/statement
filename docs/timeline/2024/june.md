@@ -448,7 +448,7 @@ function googleTranslateElementInit() {
 - I have no idea what I might have done to deserve being silenced by the women protesting about being silenced!
 - I park it.
 - I'm fighting the Spanish gitano porn-gangs and their British associates 24-7, so I don't really have time to think about it anyway.
-- My [friend from Madrid](#my-friend-from-madrid) who is visiting London that weekend takes a video on her phone, but the sound is removed.
+- My [friend from Madrid](#my-timeless-friend-from-madrid) who is visiting London that weekend takes a video on her phone, but the sound is removed.
 
 [![Hyde Park speech](../../content/images/hyde-park-speech.jpg)](https://drive.google.com/file/d/1ZSDl4MhikFjuWZ-Z2yLnHzU8pSfwGpXU/view?usp=sharing)
 
@@ -486,7 +486,7 @@ function googleTranslateElementInit() {
 - She told me in March about the trip when [I was threatened out of my piano studies and started to fear for my life](march/13-end.md#madrid) and escaped to Madrid.
 - She is visiting London with her sister and her nephew. 
 - She tells me her nephew has ADHD.
-- He does seem a little high; he just grins a lot and keeps falling asleep.
+- He does seem a little high; he grins a lot and keeps falling asleep.
 - He takes a nap at Let Women Speak in the park.
 - The thing is, my friend had a 5-year-old nephew with the same name in 2005, the year I met her.
 - I was around when they had visited London together and she told me all about it, about it being so hot on the tube in the summer, etc.
