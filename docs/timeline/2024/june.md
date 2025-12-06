@@ -412,23 +412,25 @@ function googleTranslateElementInit() {
 - Pretty desperate behavior if so.
 - Had I been receiving subliminal death threats online which triggered a will change?
 - It's difficult to understand exactly why this event happened, who would benefit, and how the Dénia criminal gangs could not be involved in some way.
-- Later, I remember my portentous [dream from a month previous](may.md#dreaming-of-the-pedophile) while I was being battered with hallucinogens and [porn-prepped for the Bali Polygon conference](april.md#drugged-in-the-street-by-dénia-gypsies) at home in my lovely apartment in Dénia.
+- Later, I remember my portentous [dream from a month previous](may.md#dreaming-of-the-pedophile) while I was being battered with hallucinogens and [porn-prepped for the Bali Polygon conference](april.md#drugged-in-the-street-by-denia-gypsies) at home in my lovely apartment in Dénia.
 
 ### Leaflets
 
 - A curious thing happened with my leaflets.
-- It seems that everywhere in the world, people can justify treating anyone who is concerned about the erosion of women's rights and child safety with utter disdain, unlawful before, violence and worse.
+- It seems that everywhere in the world, ignorant people can justify treating anyone who is concerned about the erosion of women's rights and child safety with utter disdain, unlawful behavior, violence, and worse.
 - I bought 70000 leaflets with VistaPrint and when they arrived it looked like the boxes had been destroyed purposefully.
-- I complained and they sent me a whole new print run of 70000 leaflets, so I contracted a company to help me deliver them, StreetPR UK.
-- I paid the company thousands of pounds, and suddenly they didn't have a van to pick up my leaflets.
-- A man from South East London came round to collect them on Saturday evening in his car. 
+- I complained and they sent me a whole new print run of 70000 leaflets, so I contracted a company to help me deliver them at the very last minute, StreetPR UK.
+- They had five days, Friday through Wednesday, including Saturday, to do it.
+- It was Thursday, and I paid the company thousands of pounds, and all of a sudden, bold as brass, they rang to tel me they didn't have a van to pick up my leaflets.
+- It didn't occur to them that they could have easily hired a courier, which told me everything. 
+- After complaining bitterly about this, they sent a man from South East London to collect them and he turned up on Saturday evening in his car. 
 - He wouldn't say where he was taking them when I asked him.
-- They had three days to deliver them on 1st, 2nd, and 3rd July before the election on the 4th July.
-- I felt I had been ripped off so took them to small claims and lost.
-- At small claims, in March 2024, I was struggling to think straight as I was coming down off years of drugging and all my belongings from my apartment in Spain that I brought back to London had been sprayed in pesticides so I was unwell from that too.
+- They then had three days to deliver them on 1st, 2nd, and 3rd July before the election on the 4th July.
+- I felt I had been ripped off so took them to small claims, and lost.
+- At small claims, in March 2024, I was struggling to think straight as I was coming down off years of drugging, and all my belongings from my apartment in Spain that I brought back to London had been sprayed in pesticides so I was unwell from that too.
 - At court, StreetPR's representative admitted that to do a job like mine requires 15-20 people, employed at the last minute.
-- They couldn't even hire a courier at the last minute and only sent the guy because I complained so much about what was going on.
-- I lost the case but I wasn't very well prepared, and I was struggling to think straight about everything.
+- They weren't able to provide any proof of any people having been contracted to do the work.
+- I lost the case but I wasn't very well prepared, and I was struggling hard to think straight.
 
 ### Party of Women party
 
