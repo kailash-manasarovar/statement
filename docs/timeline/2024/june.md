@@ -396,7 +396,7 @@ function googleTranslateElementInit() {
 - Anyway.
 - I'm used to ultra and extraordinarily high levels of persecution so it doesn't bother me.
 - I've become immune to it.
-- In retrospect, I believe that the way I felt about Beverley's soft cheek is proof, to me, that I was high that night on some sense-affecting substance; something either I was absorbing through my shampoo and toiletries I brought over from Spain or with a top-up I had ingested that night without my knowledge.
+- In retrospect, I believe that the way I felt about Beverley's soft cheek is proof, to me, that I was high that night on some sense-affecting substance; something either I was absorbing through my shampoo and toiletries I brought over from Spain, or via a top-up I had ingested that night without my knowledge.
 
 ### Winston May
 
