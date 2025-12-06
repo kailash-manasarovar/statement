@@ -414,6 +414,22 @@ function googleTranslateElementInit() {
 - It's difficult to understand exactly why this event happened, who would benefit, and how the Dénia criminal gangs could not be involved in some way.
 - Later, I remember my portentous [dream from a month previous](may.md#dreaming-of-the-pedophile) while I was being battered with hallucinogens and [porn-prepped for the Bali Polygon conference](april.md#drugged-in-the-street-by-dénia-gypsies) at home in my lovely apartment in Dénia.
 
+### Leaflets
+
+- A curious thing happened with my leaflets.
+- It seems that everywhere in the world, people can justify treating anyone who is concerned about the erosion of women's rights and child safety with utter disdain, unlawful before, violence and worse.
+- I bought 70000 leaflets with VistaPrint and when they arrived it looked like the boxes had been destroyed purposefully.
+- I complained and they sent me a whole new print run of 70000 leaflets, so I contracted a company to help me deliver them, StreetPR UK.
+- I paid the company thousands of pounds, and suddenly they didn't have a van to pick up my leaflets.
+- A man from South East London came round to collect them on Saturday evening in his car. 
+- He wouldn't say where he was taking them when I asked him.
+- They had three days to deliver them on 1st, 2nd, and 3rd July before the election on the 4th July.
+- I felt I had been ripped off so took them to small claims and lost.
+- At small claims, in March 2024, I was struggling to think straight as I was coming down off years of drugging and all my belongings from my apartment in Spain that I brought back to London had been sprayed in pesticides so I was unwell from that too.
+- At court, StreetPR's representative admitted that to do a job like mine requires 15-20 people, employed at the last minute.
+- They couldn't even hire a courier at the last minute and only sent the guy because I complained so much about what was going on.
+- I lost the case but I wasn't very well prepared, and I was struggling to think straight about everything.
+
 ### Party of Women party
 
 - There is a party in Islington held for Let Women Speak and the Party Of Women.
