@@ -452,9 +452,28 @@ function googleTranslateElementInit() {
 
 [![Hyde Park speech](../../content/images/hyde-park-speech.jpg)](https://drive.google.com/file/d/1ZSDl4MhikFjuWZ-Z2yLnHzU8pSfwGpXU/view?usp=sharing)
 
-- Here's what I said.
+- Here's what I said, ending with a quote from A Course In Miracles.
 
 ![my speech](../../content/documents/speeches/my-speech.png)
+
+??? tip "My speech"
+    I am not supposed to be here.</br>
+    I am not supposed to have a voice.</br>
+    Men who attack me intend to destroy me and leave me voiceless.</br>
+    They only dare because they assume I have no voice.</br>
+    Often, the women who want to help me require a helpless, voiceless victim, and I'm clearly not that.</br>
+    If we really want to Let Women Speak, it may get difficult for us too.</br>
+    That's the nature of healing.</br>
+    I am KMM and I standing for election for the Party Of Women in F&GG on the 4th July.</br>
+    I am a strong woman, one of the strongest statistics will show.</br>
+    And yet, I'm quiet, thoughtful, and I rarely get angry and defensive. And I really like people, even the ones who make the biggest mistakes.</br>
+    Even the ones who hate me.</br>
+    I know what grooming is and I know children are being groomed by trans ideology.</br>
+    My experiences as a grooming gang survivor, the survivor of misogynist terrorist gangs in Spain, and my decades working in tech with men who despise me, feel like training for this moment.</br>
+    Even the people who love us don't want us to speak.</br>
+    I am not supposed to be here.</br>
+    And yet, here I am.</br>
+    It is hard to believe a defense that doesn't attack is the best defense, but this is what is meant by "the meek shall inherit the earth." We will literally take it over because of our strength.</br>
 
 - Running for election at the UK General Election in July 2024 for the Party of women was a game changer for me, quite possibly a life-saving act of self-preservation.
 - In one of the first messages in our long communication from July and over August, the hacker said (I believe this was Hazel Smith) *I wasn't expecting that* with regards to me standing for election.
