@@ -448,7 +448,7 @@ function googleTranslateElementInit() {
 - I have no idea what I might have done to deserve being silenced by the women protesting about being silenced!
 - I park it.
 - I'm fighting the Spanish gitano porn-gangs and their British associates 24-7, so I don't really have time to think about it anyway.
-- My friend from Madrid who is visiting London that weekend takes a video on her phone, but the sound is removed.
+- My [friend from Madrid](#my-friend-from-madrid) who is visiting London that weekend takes a video on her phone, but the sound is removed.
 
 [![Hyde Park speech](../../content/images/hyde-park-speech.jpg)](https://drive.google.com/file/d/1ZSDl4MhikFjuWZ-Z2yLnHzU8pSfwGpXU/view?usp=sharing)
 
@@ -460,7 +460,7 @@ function googleTranslateElementInit() {
 - In one of the first messages in our long communication from July and over August, the hacker said (I believe this was Hazel Smith) *I wasn't expecting that* with regards to me standing for election.
 - I surprised them all, and possibly terrified a few at the same time. Hope so.
 
-#### My friend from Madrid
+### My friend from Madrid
 
 - Curiously, my friend from Madrid is there and she records my speech on her phone. I have a copy.
 - She brings her 14-year-old nephew, who she tells me has ADHD.
