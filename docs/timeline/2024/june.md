@@ -441,20 +441,25 @@ function googleTranslateElementInit() {
 - So (Janet), my volunteer, is there.
 - She came to help out at East Finchley festival.
 - She flatters me a little, and buys me a drink, and says she'll be helping out the following week.
-- A little bit later, I meet Beverley who is standing against Emily Thornberry.
+- She also gives me her weird and unnecessary gift this evening.
+- I believe Susan Hamill and her sister buy me a drink also. I give them a lift home after the party too.
+- I also meet Beverley who is standing against Emily Thornberry.
 - When I go to give Bev a hug to say hi, our cheeks brush.
 - The softness of Bev's cheek skin is incredible, it's amazing, I'm blown away by the softness of her cheek.
 - I'm so amazed at how soft her cheek felt I tell a few people about it, including So, and one other woman who I met at Madrid (can't remember her name - but she tried to create some negativity with me that night by telling me a story with no details about how people have been saying things, oh you'll find out, Kate something, she said... I wasn't impressed).
 - Two weeks later, Posie Parker repeats everything this woman said to me, word for word, on a video.
-- Anyway. 
-- The way I felt about Beverley's soft cheek is proof, to me, that I was high that night on some sense-affecting substance, something either I was absorbing through my shampoo I brought over from Spain - likely to be the aphrodisiac they were feeding me - or with a top-up I had ingested that night without my knowledge.
-- I believe it must have been a low-dose LSD or mushroom-type substance.
+- It's pretty obvious to me I'm persona-non-grata everywhere I go. I have no idea why.
+- Anyway.
+- I'm used to extraordinary levels of persecution so it doesn't bother me. I'm sort of immune to it.
+- Anyway, again, the way I felt about Beverley's soft cheek is proof, to me, that I was high that night on some sense-affecting substance, something either I was absorbing through my shampoo I brought over from Spain - likely to be the aphrodisiac or mandrake they needed to dose me up with constantly - or with a top-up I had ingested that night without my knowledge.
 
 ### Speech at LWS
 
 - At LWS in Hyde Park on 30th June, I make a speech.
-- It's obvious I'm being discredited in the community. My past experience as a grooming gang survivor makes people uncomfortable, but there's more to it than that.
-- When the video is posted on Twitter, the end part, including my speech is cut out.
+- It's obvious I'm being discredited in the community. My past experience as a grooming gang survivor makes people uncomfortable, but there's much more to it than that. 
+- I have no idea what it is or what I might have done to deserve being silenced by the women protesting about being silenced!
+- It's ironic.
+- When the video is posted on Twitter, the end part, including my speech is cut.
 
 ![my speech](../../content/documents/speeches/my-speech.png)
 
