@@ -37,6 +37,17 @@ function googleTranslateElementInit() {
 ### Meeting a weird guy
 
 - Hassan maybe? Something Islamic for sure.
+- This guy bumps into me, he's the only person who talks to me at EthCC.
+- I'm having a burger for lunch at the burger bar, and he asks to join me I say yes.
+- He's tall, dark-skinned, black curly hair.
+- He gives me his card.
+- He has an Islamic name I can't remember.
+- He says he's looking for a technical writer and he has a crypto business in Alicante.
+- He has a brown coat and is using a stick to walk.
+- At one point in our conversation I ask him if he's a religious man.
+- He gets scared.
+- I think it's cos he's Islamic and they don't like talking to women about religion.
+- Now, I'm not so sure.
 
 ### Gabriel Silva is given my role at Polygon
 
