@@ -85,6 +85,7 @@ function googleTranslateElementInit() {
 - However, the air-conditioning system was brand new and had just been replaced the year before at considerable expense.
 - There were semen stains on the sofa. 
 - At the time, I thought the semen stains were because the apartment had probably been used as an AirBNB type property and the visitors may have been on romantic weekends. It was disgusting though and I cleaned it off.
+- Thinking back, it's possible the semen stains were **NOT THERE** on the day I moved in and only appeared a few days later, the time I noticed them!
 - The landlady Beatriz, her (apparent) parents, the caretaker at the time Pedro, and my elderly neighbor Marie Carmen at number 16 kept telling me about the last tenant; a woman, a nurse, who rented the flat just before me and ran away one night without saying why. 
 - They feigned surprise about it but kept on mentioning it sort of obsessively.
 - She was a nurse at the Dénia hospital and may have been called Sonia Ortiz.
