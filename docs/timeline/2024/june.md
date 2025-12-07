@@ -561,6 +561,6 @@ function googleTranslateElementInit() {
 - My brother fails to hear anything I've told him, just like my mother does.
 - It's as if I said nothing at all to him.
 - My mother reads my police statement as I publish it, and talks to me as if nothing at all is going on.
-- It's so astonishing and insane, and used to really really hurt me, I've never really understood how they could be so willfully evil.
+- It's so astonishing and insane, and used to really hurt me, I've never understood how they could both be so wilfully evil.
 - Given a recent development, I wonder if I have been continually misrepresented at home by someone with a vested interest in me never surviving the porn gangs.
 - If so, a vile misrepresentation like this will have being going on for decades.
