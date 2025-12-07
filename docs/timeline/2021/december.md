@@ -78,17 +78,22 @@ function googleTranslateElementInit() {
 ## Semen stains on the sofa
 
 - When I moved in, the flat didn't seem to have been lived in properly for a while.
-- The water ran brown in the bathtub. The boiler was so old it broke down a year later and had to be replaced.
+- The water ran brown in the bathtub.
+- The boiler was so old it broke down a year later and had to be replaced.
 - There was untold rubbish in the kitchen cupboards which I cleaned out.
+- The appliances and furniture were ancient.
+- However, the air-conditioning system was brand new and had just been replaced the year before at considerable expense.
 - There were semen stains on the sofa. 
 - At the time, I thought the semen stains were because the apartment had probably been used as an AirBNB type property and the visitors may have been on romantic weekends. It was disgusting though and I cleaned it off.
-- The landlady, her parents, the caretaker at the time Pedro, and my elderly neighbor Marie Carmen at number 16 kept telling me about a woman who rented the flat just before me, and ran away shortly after without saying why. 
-- She was apparently a nurse at the Dénia hospital and may have been called Sonia Ortiz.
+- The landlady Beatriz, her (apparent) parents, the caretaker at the time Pedro, and my elderly neighbor Marie Carmen at number 16 kept telling me about the last tenant; a woman, a nurse, who rented the flat just before me and ran away one night without saying why. 
+- They feigned surprise about it but kept on mentioning it sort of obsessively.
+- She was a nurse at the Dénia hospital and may have been called Sonia Ortiz.
 
-!!! important "Fake accounts referring to the nurse"
-    - Cyber-gang stalkers, more recently, posted a lot of references via fake accounts on Twitter to nurses.
-    - Women in fake accounts are often dressed up as nurses and in poses which are clearly going to be pornographic and quite often obviously filmed without the knowledge of the woman.
-    - The following fake account came up in my mentions sometime in the summer of 2024.
+!!! important "Fake accounts referring to nurses"
+    - Cyber-stalkers posted a lot of references to nurses via fake accounts on X.
+    - I saw countless women in fake account pics dressed up as nurses and in poses which are clearly going to be pornographic and often without the knowledge of the woman.
+    - The nurse uniform they wear is always the same weird pink design; as if there's a warehouse somewhere sending these uniforms out to women tricked by porn-gangs into thinking they have a normal boyfriend.
+    - The following fake account came up in my mentions sometime in the summer of 2024 and I later saw the woman below in a pink nurse's outfit.
 
     ![The nurse profile pic](../../content/images/fake-accounts/nurse1.png)
 
@@ -96,19 +101,21 @@ function googleTranslateElementInit() {
 
     ![The nurse profile](../../content/images/fake-accounts/nurse2.png)
 
-    - Fake accounts like these may have one or two posts, or specific messages in the profile itself, or in the top few posts below the profile.
+    - The message very much suggests the gangs deal with women who end up dead that no-one cares about.
+    - At the time, I could not comprehend a level of evil like this as part of my day-to-day world.
+    - Fake accounts like this have a significant name, or specific messages in the profile itself, or in the top few posts below the profile.
 
-- I wonder if the nurse left hurriedly because she realized she was being drugged and related it to something in the apartment.
-- The email address of the previous tenant may be `sonyaortyz@hotmail.com` because that was the email address on the Iberdrola electricity bills. However, that could even be a hacked address as they've infiltrated every system in the country.
-- More recently, I was informed about what happened to the nurse, and why she left so hurriedly.
+- I wondered if the nurse left hurriedly because she realized she was being drugged and related it to something in the apartment?
+- The email address of the previous tenant may be `sonyaortyz@hotmail.com` because that was the email address on the Iberdrola electricity bills. However, that could even be a hacked address as criminal porn-gangs have clearly infiltrated every system in the country.
+- More recently, I was informed about what happened to the nurse, and why she left my apartment so hurriedly.
 
 ### The nurse wakes up with condoms all over the bed and one inside her
 
 - The nurse from the Dénia hospital who had lived in my flat in Carrer Furs before I moved in was also lured there for some reason.
 - She was probably an outsider, maybe from Madrid?
 - She would have definitely been single, with no decent man around and without immediate help.
-- I was told that they had need her to leave quickly as I was coming to spend Christmas in the town and they were itching to begin tormenting me.
-- To do so, they sedated her after she went to bed, as usual, through the customized air-conditioning vents, and a group came in to rape her online as usual.
+- I was told that the gang had needed her to leave quickly as I was coming to spend Christmas in the town and they were itching to begin the drugging preparation for the conservatory switcheroo porn which can take some time.
+- To make sure she left hurriedly, they sedated her after she went to bed, as usual, through the customized air-conditioning vents, and a group broke into the apartment to rape her while live-streaming online as usual.
 - Except this time, they didn't clean up after themselves.
 - Instead, they left the six or seven used condoms on the bed, with one still inside her.
 - When she woke up, well.. you can imagine.
