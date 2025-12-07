@@ -114,6 +114,7 @@ function googleTranslateElementInit() {
 - When she woke up, well.. you can imagine.
 - She definitely reported this to the police. And was ignored.
 - Her waking up live-stream episode was an enormous success on the porn networks.
+- Had I bumped into this woman on the Las Marinas beach on my holiday [that July](july.md#denia-holiday), a nurse not long arrived in the area from Madrid?
 
 ## Christmas 
 
