@@ -106,12 +106,12 @@ function googleTranslateElementInit() {
     - Fake accounts like this have a significant name, or specific messages in the profile itself, or in the top few posts below the profile.
 
 - I wondered if the nurse left hurriedly because she realized she was being drugged and related it to something in the apartment?
-- The email address of the previous tenant may be `sonyaortyz@hotmail.com` because that was the email address on the Iberdrola electricity bills. However, that could even be a hacked address as criminal porn-gangs have clearly infiltrated every system in the country.
+- The email address of the previous tenant may be `sonyaortyz@hotmail.com` because that was the email address on the the Aqualia water bills. However, even that could be a fake address as criminal porn-gangs have infiltrated every system in the country of Spain.
 - More recently, I was informed about what happened to the nurse, and why she left my apartment so hurriedly.
 
 ### The nurse wakes up with condoms all over the bed and one inside her
 
-- The nurse from the Dénia hospital who had lived in my flat in Carrer Furs before I moved in was also lured there to star in sedated spy-cam porn.
+- The nurse from the Dénia hospital who had lived in my flat in Carrer Furs before I moved in, was also lured there to star in sedated spy-cam porn.
 - She was probably an outsider, maybe from Madrid?
 - She would have definitely been single, with no decent man around and without immediate help.
 - I was told that the gang had needed her to leave quickly as I was coming to spend Christmas in the town and they were itching to begin the drugging preparation for the conservatory switcheroo porn which can take some time.
