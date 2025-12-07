@@ -546,6 +546,9 @@ function googleTranslateElementInit() {
 
 [![Spy cams in London in 2025](../../content/tweets/spy-cams-in-london.png)](https://x.com/1FRGVN/status/1926266246925795504)
 
+- It's so interesting that the worst genital boils I ever got were in East Finchley at my family home.
+- The body keeps the score.
+
 ## Telling my brother at the White Lion
 
 - I take my brother out to dinner at the White Lion in N2 and tell him everything.
