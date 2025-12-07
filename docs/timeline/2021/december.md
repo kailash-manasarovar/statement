@@ -115,12 +115,12 @@ function googleTranslateElementInit() {
 - She was probably an outsider, maybe from Madrid?
 - She would have definitely been single, with no decent man around and without immediate help.
 - I was told that the gang had needed her to leave quickly as I was coming to spend Christmas in the town and they were itching to begin the drugging preparation for the conservatory switcheroo porn which can take some time.
-- To make sure she left hurriedly, they sedated her after she went to bed, as usual, through the customized air-conditioning vents, and a group broke into the apartment to rape her while live-streaming online as usual.
+- To make sure she left hurriedly, they sedated her after she went to bed, as usual, through the customized air-conditioning vents, and a group broke into the apartment to rape her while live-streaming online, as usual.
 - Except this time, they didn't clean up after themselves.
 - Instead, they left the six or seven used condoms on the bed, with one still inside her.
 - When she woke up, well.. you can imagine.
-- She definitely reported this to the police. And was ignored.
-- Her waking up live-stream episode was an enormous success on the porn networks.
+- She reported this to the police. And was ignored.
+- Her "waking up in terror" live-stream episode was an enormous success on the porn networks.
 - Had I bumped into this woman on the Las Marinas beach on my holiday [that July](july.md#denia-holiday), a nurse not long arrived in the area from Madrid?
 
 ## Christmas 
