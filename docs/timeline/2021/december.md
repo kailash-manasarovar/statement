@@ -112,7 +112,7 @@ function googleTranslateElementInit() {
 ### The nurse wakes up with condoms all over the bed and one inside her
 
 - The nurse from the Dénia hospital who had lived in my flat in Carrer Furs before I moved in, was also lured there to star in sedated spy-cam porn.
-- She was probably an outsider, maybe from Madrid?
+- She was probably an outsider, maybe from Madrid.
 - She would have definitely been single, with no decent man around and without immediate help.
 - I was told that the gang had needed her to leave quickly as I was coming to spend Christmas in the town and they were itching to begin the drugging preparation for the conservatory switcheroo porn which can take some time.
 - To make sure she left hurriedly, they sedated her after she went to bed, as usual, through the customized air-conditioning vents, and a group broke into the apartment to rape her while live-streaming online, as usual.
