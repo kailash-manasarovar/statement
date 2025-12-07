@@ -551,9 +551,16 @@ function googleTranslateElementInit() {
 - It's so interesting that the worst genital boils I ever got were in East Finchley at my family home.
 - The body keeps the score.
 
-## Telling my brother at the White Lion
+## Telling my brother everything at the White Lion
 
-- I take my brother out to dinner at the White Lion in N2 and tell him everything.
-- I had told my brother everything I knew in June 2024 about what was going on for me and how much danger I was in. 
-- We were tracked in the pub at that time by *operatives*, police I expect, or criminal gangs, or both probably.
-- My brother fails to hear anything I've told him, just like my mother does, and I'm wondering now if I'm being misrepresented at home by someone with a vested interest in me not surviving the porn gangs.
+- The night before I leave for Belgium and EthCC, I take my brother out to dinner at the White Lion in East Finchley to tell him everything that has been going on for me.
+- I give him a memory stick with a bunch of files on it; X archives, complaints to the Generalitat, everything.
+- I explain how I'm being stalked continually and that whatever is happening to me in Spain is related to the Tottenham rape-gangs.
+- I explained clearly that I was danger and that if anything happened to me it would be suspicious. 
+- There were stalkers even in the White Lion at that time; I assumed police informants again.
+- My brother fails to hear anything I've told him, just like my mother does.
+- It's as if I said nothing at all to him.
+- My mother reads this blog as I publish it, and thinks nothing at all is wrong.
+- It's so insane, I've never really understood how they could be so willfully evil.
+- Given recent development, I wonder now if I have been continually misrepresented at home by someone with a vested interest in me never surviving the porn gangs.
+- If so, a vile misrepresentation like this will have had to have being going on for decades.
