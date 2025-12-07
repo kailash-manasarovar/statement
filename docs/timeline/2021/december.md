@@ -94,7 +94,7 @@ function googleTranslateElementInit() {
     - Cyber-stalkers posted a lot of references to nurses via fake accounts on X.
     - I saw countless women in fake account pics dressed up as nurses and in poses which are clearly going to be pornographic and often without the knowledge of the woman.
     - The nurse uniform they wear is always the same weird pink design; as if there's a warehouse somewhere sending these uniforms out to women tricked by porn-gangs into thinking they have a normal boyfriend.
-    - The following fake account came up in my mentions sometime in the summer of 2024 and I later saw the woman below in a pink nurse's outfit.
+    - The following fake account came up in my mentions sometime in the summer of 2023 and I later saw the woman below in a pink nurse's outfit.
 
     ![The nurse profile pic](../../content/images/fake-accounts/nurse1.png)
 
@@ -103,7 +103,7 @@ function googleTranslateElementInit() {
     ![The nurse profile](../../content/images/fake-accounts/nurse2.png)
 
     - The message very much suggests the gangs deal with women who end up dead that no-one cares about.
-    - At the time, I could not comprehend a level of evil like this as part of my day-to-day world.
+    - At the time, I could not comprehend a level of evil like this as part of my normal day-to-day world.
     - Fake accounts like this have a significant name, or specific messages in the profile itself, or in the top few posts below the profile.
 
 - I wondered if the nurse left hurriedly because she realized she was being drugged and related it to something in the apartment?
