@@ -542,7 +542,7 @@ function googleTranslateElementInit() {
 - I think about him constantly.
 - I won't know the trumpet teacher is a [minimum of four men](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) until September 2025 and, until I do remember, my life is in constant danger.
 - Criminals and their numerous apparently non-criminal associates cannot allow me to remember the switcheroo porn, broadcast from porn-school in Dénia.
-- DMs with hackers reveal this astounding state of mind.
+- DMs with hackers over the general election period reveal my astounding state of mind.
 - The drugging is continuing via bathroom products I brought with me - my brother will later tell me he also felt weird after using the shampoo I left in the house - but I'm too busy with the election to be sexually aroused and the social media sexual-hypno-suggestions have dropped off because there's no spy-cams set up in East Finchley for the gangs to cash in on.
 - However, when I end up having no choice but to move back to London in February 2025, I believe that spy-cams may have been fitted in my house by that time.
 
