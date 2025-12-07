@@ -99,7 +99,21 @@ function googleTranslateElementInit() {
     - Fake accounts like these may have one or two posts, or specific messages in the profile itself, or in the top few posts below the profile.
 
 - I wonder if the nurse left hurriedly because she realized she was being drugged and related it to something in the apartment.
-- The email address of the previous tenant may be `sonyaortyz@hotmail.com`.
+- The email address of the previous tenant may be `sonyaortyz@hotmail.com` because that was the email address on the Iberdrola electricity bills. However, that could even be a hacked address as they've infiltrated every system in the country.
+- More recently, I was informed about what happened to the nurse, and why she left so hurriedly.
+
+### The nurse wakes up with condoms all over the bed and one inside her
+
+- The nurse from the Dénia hospital who had lived in my flat in Carrer Furs before I moved in was also lured there for some reason.
+- She was probably an outsider, maybe from Madrid?
+- She would have definitely been single, with no decent man around and without immediate help.
+- I was told that they had need her to leave quickly as I was coming to spend Christmas in the town and they were itching to begin tormenting me.
+- To do so, they sedated her after she went to bed, as usual, through the customized air-conditioning vents, and a group came in to rape her online as usual.
+- Except this time, they didn't clean up after themselves.
+- Instead, they left the six or seven used condoms on the bed, with one still inside her.
+- When she woke up, well.. you can imagine.
+- She definitely reported this to the police. And was ignored.
+- Her waking up live-stream episode was an enormous success on the porn networks.
 
 ## Christmas 
 
