@@ -557,10 +557,10 @@ function googleTranslateElementInit() {
 - I give him a memory stick with a bunch of files on it; X archives, complaints to the Generalitat, everything.
 - I explain how I'm being stalked continually and that whatever is happening to me in Spain is related to the Tottenham rape-gangs.
 - I explained clearly that I was danger and that if anything happened to me it would be suspicious. 
-- There were stalkers even in the White Lion at that time; I assumed police informants again.
+- There were stalkers even in the White Lion at that time; I assumed police informants also working for criminal gangs.
 - My brother fails to hear anything I've told him, just like my mother does.
 - It's as if I said nothing at all to him.
-- My mother reads this blog as I publish it, and thinks nothing at all is wrong.
-- It's so insane, I've never really understood how they could be so willfully evil.
+- My mother reads this blog as I publish it, and talks to me as if nothing at all is going on.
+- It's so astonishing and insane, and used to really really hurt me, I've never really understood how they could be so willfully evil.
 - Given recent development, I wonder now if I have been continually misrepresented at home by someone with a vested interest in me never surviving the porn gangs.
-- If so, a vile misrepresentation like this will have had to have being going on for decades.
+- If so, a vile misrepresentation like this will have being going on for decades.
