@@ -516,19 +516,19 @@ function googleTranslateElementInit() {
 ### Volunteers not what they seem
 
 - Normally a fast learner, I slowly begin to realize that nearly everyone I meet and speak to at Let Women Speak and Party Of Women events is not what they seem.
-- Eventually, I wonder who isn't on a salary to attend these things, apart from me; but the motive behind criminal gangs sending their people along with police informants to clobber women's concerns against rampant child abuse coming from violent porn-addicted men evaded me for a long time.
+- Eventually, I wonder who *isn't* on a salary to attend these things, apart from me; but the motive behind criminal gangs sending their people along with police informants to clobber women's concerns against rampant child abuse coming from violent porn-addicted men evaded me for a long time.
 - However, if I'm right about Hazel Smith and the porn-gangs of Dénia manipulating thousands of young girls into believing they're boys, egging them into obsessively self-harming, then mutilating and sterilizing themselves as part of a sick porn genre, then we have a solid reason why criminals would be extremely interested in blocking any attempt to stop their illegal and substantial incomes.
-- Hazel Smith persuaded myself, Lorraine, and countless other to (attempt to) commit suicide. She persuades Mike Wenham to commit murder. Persuading thousands upon thousands of 13-year-old girls they're boys seems like a synch in comparison.
-- Like my lengthy online oppression as part of the switcheroo porn conspiracy, no doubt online access is given to paying subscribers to all the youngsters self-harming and becoming confused about themselves.
-- Perhaps even organizations like Childline provide the online data for vulnerable children who are then hacked by the gangs, then their social media is completely controlled.
+- Hazel Smith's team manipulated myself, Lorraine, and countless others online and together with real-world assistance to (attempt to) commit suicide. She persuaded Mike Wenham to commit murder. She manipulated Lorraine's daughter into the trans-cult way back in 2013, probably as a test run. Manipulating thousands upon thousands of 13-year-old girls that they're boys was probably a synch in comparison.
+- Like my lengthy online oppression as part of the switcheroo porn conspiracy, I expect paying subscribers receive online access to all the targeted youngsters self-harming and becoming confused about themselves.
+- Perhaps even organizations like Childline provide the online data of the vulnerable children who are then hacked by the gangs and their social media, and thus minds, are completely controlled.
 - Anyway. I'm digressing, I do hope helpfully...
-- I believe the majority of my dodgy general election "volunteers" were connected to Hazel and Sandra Smith in Dénia in some way, or perhaps they were working for bent coppers trying to silence me due to my rape-gang survivor status.
-- Here is a list of them:
+- I believe the majority of my dodgy general election "volunteers" were connected to Hazel and Sandra Smith in Dénia in some way making sure the porn-terror continued, or keeping tabs on how much I knew, or perhaps they were working for bent coppers trying to silence me due to my rape-gang survivor status, or perhaps all of those things together.
+- Anyway, here is a list of my volunteers:
     - I mentioned [Janet (So)](#so-janet) before.
     - Steve Norman: a lovely man from N2 who told me he had been involved in anti-vivisection activism in the 80s, and nicked for it too, which I took to mean he was probably a police informant of some sort. He was involved in the [Winston May event](#winston-may) event at Brent Cross tube, and had given Winston a leaflet. 
     - Athena Norman: Steve's "wife", a large and powerful trans-sexual man. Steve gave a speech at Let Women Speak a couple of months after the election and spoke about his "wife". His speech was not cut.
-    - Wesley Aguilar: a man who was clearly embarrassed about something as he could not look me in the eye. Had he seen the child rape porn I was in? I suspect he works for the police, along with a bunch of other men who are Let Women Speak regulars, `@thames_pilgrim` being one, who, I have been reliably told, block newcomers from interacting with the established group at Let Women Speak in order that they do not return.
-    - Sandra: a woman I initially trusted but after something she said, and some rather threatening [experiences with her menacing sister Susan Hamill](../2025/march.md#let-women-speak-aberdeen), I suspect she must be connected to the Smiths via North London criminal gangs and possibly the police.
+    - Wesley Aguilar: a man who was clearly embarrassed about something as he could not look me in the eye. Had he seen the child rape porn I was in, or maybe even the sedated switcheroo? I suspect he works for the police, along with a bunch of other men who are Let Women Speak regulars - `@thames_pilgrim` being one - and who, I have been reliably told, block newcomers from interacting with the established (mostly salaried) group in order that they do not return.
+    - Sandra: a woman I initially trusted but after something she said, and some rather threatening [experiences with her rather menacing sister Susan Hamill](../2025/march.md#let-women-speak-aberdeen), I suspect she must be connected to the Smiths via North London criminal gangs and possibly the police.
 
 ## No sexual arousal
 
