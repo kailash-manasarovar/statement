@@ -143,12 +143,11 @@ function googleTranslateElementInit() {
 - I'm a little early so I wait outside. No-one is around.
 - There is no sound coming from inside the classroom; no music, no talking, nothing. 
 - Eventually the doctor comes out with the trumpet teacher and they leave together; the trumpet teacher returning after a few minutes.
-- I wondered if there may have been a switch of men between the one who came out with Dr Joan, and the one who came back alone.
 - Class is relatively normal except I believe there is an electricity between myself and the trumpet teacher, a chemistry.
 - My body is vibrating.
 - After class, I'm surprised to find I cannot walk down the stairs of the conservatory as my calves are in excruciating pain at every step I take.
-- I have to hold on to the bannister for every step.
-- It is very strange and concerning, and when I get home I look my symptoms up on Google and discover I have acute systems of rhabdomyolysis. 
+- I have to hold on to the bannister for every step I take.
+- It is very strange and concerning, and when I get home I look my symptoms up on Google and discover I have acute symptoms of rhabdomyolysis. 
 - I consider going to A&E as I discover that it is very serious and a person can require dialysis, but I decide not to when I read that it can cure after a few days on its own.
 - The pain goes on for about 5 days then disappears.
 - I have some other unusual symptoms too: sudden dark rings under my eyes, aching in my back at the kidney area, and particularly the right kidney; and my urine is frothy, especially after eating anything with albumin in such as eggs or dairy.
@@ -163,10 +162,11 @@ function googleTranslateElementInit() {
 - I put it down to a hike I did at the weekend - and I do a lot of Google searching to that effect to try to figure out what on earth happened - but there was nothing extraordinary about the hike other than I had sweated a lot and it was extremely cold at the summit.
 - I had very recently done far more strenuous hikes in the Pyrenees. 
 - There was no other explanation for it at that time, however.
-- It's not clear at what point that evening I was drugged, was it some chemical the doctor had given the trumpet teacher and shown him how to apply it; soft dissolving skin-patches maybe?
+- It's not clear at what point that evening I was drugged; whether it was some pharmaceutical the doctor had given the trumpet teacher and shown him how to apply it; soft dissolving skin-patches maybe?
 - I lost a lot of weight after this, probably 10kg or thereabouts, and 15kg in total since the [seizure in Thailand](../2022/december.md#a-seizure-in-thailand).
-- I had no idea I was being drugged continuously at home every day and this was a euphoric top-up with something to embed the love and romance myth.
-- I had just done an intensive detox in Thailand and my system was clearly overloaded with drugs and poisons. 
+- I had no idea I was being drugged continuously at home every day and that this was a euphoric top-up to further embed the love and romance myth in my mind with the group of men posing as [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero), a man listed all over the Valencian region as having worked in numerous (porn?)-schools.
+- I had just done an intensive detox in Thailand and my system was extremely sensitive.
+- Whatever drugs and poisons I was ingesting daily at home, topped up that night (and every other visit to the school) with whatever other substances they commonly use on targeted students, children included, overwhelmed my body completely causing extensive injury to my kidneys and endocrine system, and brain function. 
 
 !!! info "Tweets related to rhabdo"
     - I didn't tweet about rhabdo at the time but I did Google search it extensively.
