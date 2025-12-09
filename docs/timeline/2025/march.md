@@ -55,6 +55,7 @@
 
 - If you have forgotten about the "Are you OK" significance, please reread the [chamber music concert](../2023/may.md#chamber-music-concert) section from May 2023.
 - Susan tells me she has had kidney failure for over 10 years but her doctors only just told her.
+- She also recommends her personal trainer and shows me a photo of him.. and he's trans.
 
 ## A man who reminds me of Domingo
 

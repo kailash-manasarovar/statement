@@ -217,9 +217,9 @@ function googleTranslateElementInit() {
 - Was it one of those nights?
 - Did they ask Mercedes to go along check and see what was wrong with me?
 
-#### Criminal gang online cruelty 
+#### Criminal gang cruelty 
 
-- Regarding my kidney injury and weakness, caused by constant poisoning and drugging over three years while living in Spain and then topped-up regularly in the UK, criminal gangs, up until very recently, tease me relentlessly about how I probably have a severe kidney disease, if not kidney failure!
+- Regarding my kidney injury and weakness, caused by constant poisoning and drugging over three years while living in Spain and then topped-up regularly in the UK; criminal gangs, up until very recently, tease me relentlessly about how I probably have a severe kidney disease, if not kidney failure!
 - They do this any way they can.
 - Often, I'll see cruel posts online via fake accounts such as [Catherine vonRuhland](https://x.com/cvonruhland) account you can see here; same name and even looks like me a bit.
 
