@@ -143,38 +143,42 @@ function googleTranslateElementInit() {
 - I'm a little early so I wait outside. No-one is around.
 - There is no sound coming from inside the classroom; no music, no talking, nothing. 
 - Eventually the doctor comes out with the trumpet teacher and they leave together; the trumpet teacher returning after a few minutes.
-- Class is relatively normal except there is an electricity between myself and the trumpet teacher, a chemistry.
+- I wondered if there may have been a switch of men between the one who came out with Dr Joan, and the one who came back alone.
+- Class is relatively normal except I believe there is an electricity between myself and the trumpet teacher, a chemistry.
 - My body is vibrating.
-- After class finishes, I'm surprised to find I cannot walk down the stairs of the conservatory as my calves are in excruciating pain at every step I take.
-- It is very strange and concerning, and when I get home I look my symptoms up on Google and discover I have the systems of rhabdomyolysis. 
-- I consider going to A&E as it is very serious and a person can require dialysis, but I decide not to when I read that it can cure after a few days on its own.
+- After class, I'm surprised to find I cannot walk down the stairs of the conservatory as my calves are in excruciating pain at every step I take.
+- I have to hold on to the bannister for every step.
+- It is very strange and concerning, and when I get home I look my symptoms up on Google and discover I have acute systems of rhabdomyolysis. 
+- I consider going to A&E as I discover that it is very serious and a person can require dialysis, but I decide not to when I read that it can cure after a few days on its own.
 - The pain goes on for about 5 days then disappears.
-- I have some other unusual symptoms too: sudden dark rings under my eyes, aching in my back at the kidney area, and particularly the right kidney. My urine is frothy, especially after eating anything with albumin in such as eggs or dairy.
-- I have an enormous dramatic bump and discoloration on my left thumbnail, remnants of which are still apparent to this day, and similar but less on the right thumbnail. It's ugly and very noticeable. 
-- Maria Hontanilla notices my traumatized thumbnail and mentions it in piano class that week.
+- I have some other unusual symptoms too: sudden dark rings under my eyes, aching in my back at the kidney area, and particularly the right kidney; and my urine is frothy, especially after eating anything with albumin in such as eggs or dairy.
+- I notice an enormous dramatic bump and discoloration on my left thumbnail, remnants of which are still apparent to this day (time of writing), and similar but less on the right thumbnail. It's ugly and very noticeable. 
+- Maria Hontanilla notices my traumatized thumbnail and mentions it at my piano class that week.
 - All these symptoms tie in with a rhabdo diagnosis which requires major trauma to muscles and internal systems. 
 - Rhabdo is something you get when you:
     - Are in a car accident.
     - Run a marathon dehydrated.
     - Get hit by lightning.
     - Are poisoned.
-- I put it down to a hike I did at the weekend - and I do a lot of Google searching to that effect - but there was nothing extraordinary about the hike other than I had sweated a lot and it was extremely cold at the summit.
-- I had recently done far more strenuous hikes in the Pyrenees. 
-- There was no other explanation at that time, however.
-- I lost a lot of weight after this, probably 10kg or thereabouts, 15kg in total since the [seizure in Thailand](../2022/december.md#a-seizure-in-thailand).
+- I put it down to a hike I did at the weekend - and I do a lot of Google searching to that effect to try to figure out what on earth happened - but there was nothing extraordinary about the hike other than I had sweated a lot and it was extremely cold at the summit.
+- I had very recently done far more strenuous hikes in the Pyrenees. 
+- There was no other explanation for it at that time, however.
+- It's not clear at what point that evening I was drugged, was it some chemical the doctor had given the trumpet teacher and shown him how to apply it; soft dissolving skin-patches maybe?
+- I lost a lot of weight after this, probably 10kg or thereabouts, and 15kg in total since the [seizure in Thailand](../2022/december.md#a-seizure-in-thailand).
+- I had no idea I was being drugged continuously at home every day and this was a euphoric top-up with something to embed the love and romance myth.
+- I had just done an intensive detox in Thailand and my system was clearly overloaded with drugs and poisons. 
 
 !!! info "Tweets related to rhabdo"
     - I didn't tweet about rhabdo at the time but I did Google search it extensively.
-    - Given I was being monitored online continuously, teachers and staff at the conservatory will have been very aware of what I was experiencing and its ramifications.
-    - I mention rhabdo in August of 2023 at the time the "conversation" with hackers really began.
-    - Example: https://x.com/1FRGVN/status/1686848541346443270
+    - Given I was continuously monitored online, teachers and staff at the conservatory will have been very aware of what I was experiencing and its ramifications, as well as my self-diagnosis.
+    - I mention rhabdo in August 2023 at the time the "conversation" with hackers really began.
     
-    ![Rhabdo tweet](../../content/images/rhabdo-tweet.png)
+    [![Rhabdo tweet](../../content/images/rhabdo-tweet.png)](https://x.com/1FRGVN/status/1686848541346443270)
 
-    - These tweets were viewed a lot by an audience needing to translate them, I assume Spanish cyber-stalkers from Dénia.
-
-- The doctor **never comes to class again** after this. He only came to two classes in total. 
-- When Pablo and I asked where he was, the trumpet teacher told us he was at the hospital as he was a doctor.
+- The doctor **never comes to class again**.
+- He came to two classes in total. Of course, he may have been more regularly present at my apartment after class without my knowledge. 
+- When Pablo and I asked what happened to the doctor, the trumpet teacher ([number two](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013)) told us he was at the hospital as he was a doctor.
+- Incidentally, the porn-gangs may have taken my Google-search self-diagnosis very seriously as [they may have gotten the police to block the road so that I cannot go hiking again in the mountains the following weekend](#denia-police-close-the-road-for-me).
 
 ### Going to my doctor
 
