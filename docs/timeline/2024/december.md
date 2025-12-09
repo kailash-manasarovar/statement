@@ -225,3 +225,20 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
 - Is X going down the toilet?
 - I thought a lot about that poo, and never came up with anything particularly solid.
 - Sorry about that, I might delete this.
+
+## My Belgian friend
+
+- I'm posting snippets from this police statement every day online.
+- The information I have is horrific.
+- I'm basically asking for help by writing this police statement.
+- Except, no-one seems to care.
+- So I keep writing.
+- All I have is my words and there's no other option but to use them.
+- One of my friends, who [I had visited back in July while I was at EthCC](july.md#meeting-my-belgian-friend) and told him what was going on for me, as far as I knew it at that time, tells me he's coming to help me move back to London from Denia.
+- I'm so relieved. 
+- Finally, a friend will help me.
+- He's very *very* concerned.
+- I then don't hear from him at all, for days.
+- It's a bit like he's ghosted me.
+- Did someone reach out and tell him to back off?
+- Instead, I ask Paul if he will help me. 

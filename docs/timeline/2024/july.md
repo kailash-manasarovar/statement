@@ -83,6 +83,10 @@ function googleTranslateElementInit() {
 
 - Very interesting talk.
 
+### Meeting my Belgian friend
+
+- WIP
+
 ## Evidence of mass cyber-stalking technology, or something more sinister
 
 - I'm back in Dénia on 15th July. 
