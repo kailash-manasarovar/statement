@@ -148,7 +148,7 @@ function googleTranslateElementInit() {
 - Class is relatively normal except I believe there is an electricity between myself and the trumpet teacher, a chemistry.
 - My body is vibrating.
 - After class, I'm surprised to find I cannot walk down the stairs of the conservatory as my calves are in excruciating pain at every step I take.
-- I have to hold on to the bannister the whole way down.
+- I have to hold on to the banister the whole way down.
 - It is very strange and concerning, and when I get home I look up my symptoms on Google and discover I have acute symptoms of rhabdomyolysis. 
 - I consider going to A&E after reading that it is very serious and a person can require dialysis and die even, but I decide not to when I next read that it can cure after a few days on its own.
 - The severe pain goes on for about 5 days then disappears.
@@ -164,7 +164,7 @@ function googleTranslateElementInit() {
 - I put it down to a hike I did at the weekend - and I do a lot of Google searching to that effect to try to figure out what on earth happened - but there was nothing extraordinary about the hike other than I had sweated a lot and it was extremely cold at the summit.
 - I had very recently done far more strenuous hikes in the Pyrenees. 
 - There was no other explanation for it at that time, however.
-- It's not clear at what point that evening I was drugged; whether it was some pharmaceutical the doctor had given the trumpet teacher and shown him how to apply it; soft dissolving skin-patches maybe?
+- It's not clear at what point that evening I was drugged; whether it was some pharmaceutical the doctor had given the trumpet teacher and shown him how to apply; soft dissolving skin-patches maybe?
 - I lost a lot of weight after this, probably 10kg or thereabouts, and 15kg in total since the [seizure in Thailand](../2022/december.md#a-seizure-in-thailand).
 - I had no idea I was being drugged continuously at home every day and that this was a euphoric top-up to further embed the love-and-romance myth in my mind every time I saw one of the men posing as [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero), a man listed all over the Valencian region as having worked for the Generalitat in numerous (porn?)-schools for many decades.
 - I had just done an intensive detox in Thailand and my system was extremely sensitive.
