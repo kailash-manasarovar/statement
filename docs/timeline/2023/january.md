@@ -184,13 +184,38 @@ function googleTranslateElementInit() {
 
 ### Going to my doctor
 
-- I go to my GP on a few occasions over the next months after this incident because I am extremely concerned about my kidney health.
-- I never mention my specific concerns about my kidneys, or the rhabdo experience.
+- I go to my [GP at the clinic on Calle Beniarmut](https://www.cemclinicas.com/) on a few occasions over the next months after the rhabdo incident because I am extremely concerned about my kidney health.
+- I never mention my specific concerns, or the rhabdo experience, because I do not want to influence them.
 - I ask for a full blood work up including kidney analysis. 
-- They send blood and urine to the lab to do all the tests, except when the results come back they have done everything except the kidney tests.
-- I ask why. The GP doesn't know and doesn't offer another solution or to repeat the test.
-- I try to do a test myself from the local chemist; their pamphlet says they have them available. They never have the test whenever I ask for it, and they never seem to know why they don't have it, or when it's coming in.
-- One of the pharmacists tells me, "Oh, I don't think we sell the kidney tests anymore."
+- They send blood and urine to the lab in Alicante, except when the results come back I see they skipped the kidney tests.
+- I ask why. 
+- The GP doesn't know and doesn't offer another solution or to repeat the test.
+- He does organize a scan for me.
+- I go along and another doctor at the clinic performs a scan on my abdomen.
+- I've never experienced anything like it!
+- He takes the machine pad, and rubs it over my stomach very quickly - after first pushing my panties down very low in a meaningful way so that my pubic hair is visible.
+- He rubs the pad around quickly for about two minutes, not looking at the screen, or even looking at my abdomen even.
+- He can hardly look me in the eye.
+- When he's finished, after about two minutes, he says everything's fine and tells me to leave.
+- He didn't once look at the screen, or if he did it was a couple of quick glances.
+- He is overtly not doing what he's been tasked to do, and I wonder if he's trying to tell me something.
+- I start to become suspicious about my GP clinic.
+- I try to do a kidney test myself at the [local chemist](https://farmaciadenia.es/); their pamphlet says they have them available.
+- They never have the test whenever I ask for it, and they never seem to know why they don't have it, or when it's coming in.
+- One of the pharmacists tells me vaguely, "Oh, I don't think we sell the kidney tests anymore."
+- My GP tells me I have some bacterial infection in my urethra and explains how to wipe my bum from the back, giggling a little.
+- He gives me some antibiotics which I don't take until August in France, and I now wonder what was really in them.
+- When I get back from Thailand in July, I have a shoulder injury. 
+- My massage therapist, after [seeing Hala on my recommendation](july.md#hala) is furious with me and hurts me.
+- I attend the clinic again but they want me to go on the big scanner machine and I'm so suspicious of them now that I refuse.
+
+#### The local chemist
+
+- Incidentally, I was feeling very unwell one evening at home after the [rhabdo event](#serious-poisoning-at-chamber-music-class) and I was worried about my heart and blood pressure.
+- I went to the chemist to check my blood pressure and heart rate.
+- Who should I bump into. Mercedes.
+- Was this one of those nights?
+- Did they ask Mercedes to go along check and see what was wrong with me?
 
 #### Criminal gang online cruelty 
 
