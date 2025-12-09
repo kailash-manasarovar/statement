@@ -225,7 +225,7 @@ function googleTranslateElementInit() {
 
 ![Catherine vonRuhland](../../content/images/fake-accounts/dialysis.png)
 
-- Note the sick porn reference in the URL.
+- Note the sick porn reference in the URL which has strong overtones of the [Christmas 2023 porn-extravaganzas filmed in Avila and Madrid](december.md#christmas).
 - They also do this with sly in-person comments such as when [Susan Hamill told me she has had kidney failure](../2025/march.md#let-women-speak-aberdeen) for 10 years and her doctors never told her.
 - It's never ending, until recently.
 - The account above no longer exists (the time of writing about three months after first publishing this section).
