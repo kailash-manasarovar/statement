@@ -202,6 +202,7 @@ function googleTranslateElementInit() {
 - Note the sick porn reference in the URL.
 - They also do this with sly comments such as when [Susan Hamill told me she had kidney failure](../2025/march.md#let-women-speak-aberdeen) for 10 years and her doctors never told her.
 - It's never ending.
+- The account above no longer exists (time of writing about three months after first publishing this section).
 
 ### Denia police close the road... for me
 
