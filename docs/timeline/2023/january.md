@@ -219,15 +219,16 @@ function googleTranslateElementInit() {
 
 #### Criminal gang online cruelty 
 
-- Regarding this kidney injury which was further exacerbated by constant poisoning and drugging over the next two years, criminal gangs, to this day, relentlessly tease me about how I probably have a severe kidney disease, if not kidney failure!
-- They do this online using fake accounts such as with the Catherine vonRuhland account you can see here which even looks like me a bit.
+- Regarding my kidney injury and weakness, caused by constant poisoning and drugging over three years while living in Spain and then topped-up regularly in the UK, criminal gangs, up until very recently, tease me relentlessly about how I probably have a severe kidney disease, if not kidney failure!
+- They do this any way they can.
+- Often, I'll see cruel posts online via fake accounts such as [Catherine vonRuhland](https://x.com/cvonruhland) account you can see here; same name and even looks like me a bit.
 
 ![Catherine vonRuhland](../../content/images/fake-accounts/dialysis.png)
 
 - Note the sick porn reference in the URL.
-- They also do this with sly comments such as when [Susan Hamill told me she had kidney failure](../2025/march.md#let-women-speak-aberdeen) for 10 years and her doctors never told her.
-- It's never ending.
-- The account above no longer exists (time of writing about three months after first publishing this section).
+- They also do this with sly in-person comments such as when [Susan Hamill told me she has had kidney failure](../2025/march.md#let-women-speak-aberdeen) for 10 years and her doctors never told her.
+- It's never ending, until recently.
+- The account above no longer exists (the time of writing about three months after first publishing this section).
 
 ### Denia police close the road... for me
 
