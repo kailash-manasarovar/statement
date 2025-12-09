@@ -189,7 +189,7 @@ function googleTranslateElementInit() {
 - I ask for a full blood work up including kidney analysis. 
 - They send blood and urine to the lab in Alicante, except when the results come back I see they skipped the kidney tests.
 - I ask why. 
-- The GP doesn't know and doesn't offer another solution or to repeat the test.
+- The Argentinian GP doesn't know and doesn't offer another solution or to repeat the test.
 - He does organize a scan for me.
 - I go along and another doctor at the clinic performs a scan on my abdomen.
 - I've never experienced anything like it!
@@ -214,7 +214,7 @@ function googleTranslateElementInit() {
 - Incidentally, I was feeling very unwell one evening at home after the [rhabdo event](#serious-poisoning-at-chamber-music-class) and I was worried about my heart and blood pressure.
 - I went to the chemist to check my blood pressure and heart rate.
 - Who should I bump into. Mercedes.
-- Was this one of those nights?
+- Was it one of those nights?
 - Did they ask Mercedes to go along check and see what was wrong with me?
 
 #### Criminal gang online cruelty 
