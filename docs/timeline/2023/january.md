@@ -193,17 +193,17 @@ function googleTranslateElementInit() {
 - He does organize a scan for me.
 - I go along and another doctor at the clinic performs a scan on my abdomen.
 - I've never experienced anything like it!
-- He takes the machine pad, and rubs it over my stomach very quickly - after first pushing my panties down very low in a meaningful way so that my pubic hair is visible.
+- The doctor takes the machine pad, and rubs it over my stomach very quickly - after first pushing my panties down very low in a meaningful way so that my pubic hair is visible.
 - He rubs the pad around quickly for about two minutes, not looking at the screen, or even looking at my abdomen even.
 - He can hardly look me in the eye.
 - When he's finished, after about two minutes, he says everything's fine and tells me to leave.
 - He didn't once look at the screen, or if he did it was a couple of quick glances.
-- He is overtly not doing what he's been tasked to do, and I wonder if he's trying to tell me something.
+- He is *overtly* not doing what he's been tasked to do, and I wonder if he's trying to tell me something.
 - I start to become suspicious about my GP clinic.
 - I try to do a kidney test myself at the [local chemist](https://farmaciadenia.es/); their pamphlet says they have them available.
 - They never have the test whenever I ask for it, and they never seem to know why they don't have it, or when it's coming in.
 - One of the pharmacists tells me vaguely, "Oh, I don't think we sell the kidney tests anymore."
-- My GP tells me I have some bacterial infection in my urethra and explains how to wipe my bum from the back, giggling a little.
+- My GP tells me I have a bacterial infection in my urethra and explains how to wipe my bum from the back, giggling a little.
 - He gives me some antibiotics which I don't take until August in France, and I now wonder what was really in them.
 - When I get back from Thailand in July, I have a shoulder injury. 
 - My massage therapist, after [seeing Hala on my recommendation](july.md#hala) is furious with me and hurts me.
