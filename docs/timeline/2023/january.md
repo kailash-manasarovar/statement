@@ -154,7 +154,7 @@ function googleTranslateElementInit() {
 - The severe pain goes on for about 5 days then disappears.
 - I have some other unusual symptoms too: sudden dark rings under my eyes, aching in my back at the kidney area, and particularly the right kidney; and my urine is frothy, especially after eating anything containing albumin such as eggs or dairy.
 - I notice an enormous dramatic bump and discoloration on my left thumbnail, remnants of which are still apparent to this day (time of writing), and similar but less on the right thumbnail. It's ugly and very noticeable. 
-- Maria Hontanilla notices my traumatized thumbnail and mentions it at my piano class that week.
+- Maria Hontanilla notices my traumatized thumbnail. She grabs it and looks at it closely at my piano class that week.
 - All these symptoms tie in with a rhabdo diagnosis which requires major trauma to muscles and internal systems. 
 - Rhabdo is something you get when you:
     - Are in a car accident.
