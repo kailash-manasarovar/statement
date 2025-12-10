@@ -10,14 +10,19 @@ function googleTranslateElementInit() {
 
 ## EthCC
 
-- I do not come last in the election on the 4th July, second to last. I can't wait to run again.
-- I to go to Brussels for a crypto conference with work.
-- I'm in Belgium till the 11th July.
-- I return back to London and get the boat from Portsmouth back to Spain with the car.
+- I travel from London to Brussels to attend a crypto conference, [EthCC](https://ethcc.io/), as part of my role with [Polygon Labs](https://polygon.technology/about).
+- I'm in Belgium till the 11th July, after which I return to London on the train and take the boat from Portsmouth to Bilbao and then drive home to Dénia.
 
 ### European Court of Human Rights
 
-- When I'm in Belgium, I manage to access the ECHR website correctly and easily find a way to report what is going on for me. I receive a response in early August to my letter.
+- In my hotel room, on my work laptop, away from my hacked home networks in Spain and North London, I'm finally able to access the ECHR website.
+- Remember, in February I tried to contact the [European Court of Human Rights](february.md#european-court-of-human-rights) and was immediately blocked from doing so, then teased relentlessly online for having tried to do so.
+- In Belgium, I'm able to find an easy way to report what is going on for me on the ECHR website and I write to them on my work laptop.
+- I tell them I'm being terrorized in a public school in Spain and the Spanish school board appears to be complicit.
+- I tell them my serious concerns about the safety of children at the school.
+- I tell them I have been hacked and persecuted by people in the town.
+- Like everyone else, the ECHR refuses to help me and fobs me off.
+- I receive a response in early August to my letter.
     - [Receipt of sending from European Commission website](../../content/documents/evidence/eu-complaint.png).
     - [Response from ECHR to letter written in Brussels on 8th July](../../content/documents/evidence/ARES%202024_5484609.pdf).
 
