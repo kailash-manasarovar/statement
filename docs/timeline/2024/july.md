@@ -17,22 +17,23 @@ function googleTranslateElementInit() {
 
 - In my hotel room, on my work laptop, away from my hacked home networks in Spain and North London, I'm finally able to access the ECHR website.
 - Remember, in February I tried to contact the [European Court of Human Rights](february.md#european-court-of-human-rights) and was immediately blocked from doing so, then teased relentlessly online for having tried to do so.
-- In Belgium, I'm able to easily find a way to report what is going on for me on the ECHR website and I write to them on my work laptop.
+- In Belgium, I'm able to easily find a way to report what is going on for me to the European Commission and I write to them on my work laptop.
+
   - [Receipt of sending from European Commission website](../../content/documents/evidence/eu-complaint.png).
 
-- I tell them I'm being terrorized in a public school in Spain and the Spanish school board appears to be complicit.
+- I tell them I'm being terrorized in a public music school in Spain, funded with European grants, and that the Spanish school board appears to be complicit.
 - I tell them my serious concerns about the safety of children at the school.
+- I tell them I made numerous complaints to the school board.
 - I tell them I have been hacked and persecuted by people in the town.
-- I tell them I have been to the police twice in Spain.
-- Like everyone else, the ECHR refuses to help me, and fobs me off saying no law has been broken!
+- I tell them I have been to the Spanish police twice and ignored.
+- Like everyone else, the commission refuses to help me, and fobs me off saying no law has been broken!
 - I receive a response in early August to my letter.
     
     [![Response from ECHR 1](../../content/images/ECHR-response-1.png)
     ![Response from ECHR 2](../../content/images/ECHR-response-2.png)](../../content/documents/evidence/ARES%202024_5484609.pdf)
 
-- Of course, I take their advice and write numerous letters to the organization in Madrid they suggest I contact.
-- I receive no reply.
-- The ECHR gives British and Spanish criminal porn gangs the all clear to carry on doing whatever they like to children in the Spanish school system, and make a horrible example of me at the same time, someone who dared speak up about what's going on in Spain countrywide probably.
+- I take their advice and write numerous letters to the [Spanish government organization](https://www.inmujeres.gob.es/) they suggest I contact, to which I never receive a reply.
+- I see that the European Commission gives British and Spanish criminal porn gangs the all clear to carry on doing whatever they like to children in the Spanish school system, and make a horrible example of me at the same time; someone who dared speak up about how porn-gangs control the schools in Spain, countrywide probably.
 
 ### Mushroom man says sorry
 
@@ -49,6 +50,12 @@ function googleTranslateElementInit() {
 
 ### Meeting a weird guy
 
+- No-one speaks to me in Brussels.
+- There's a lot of snickering when I walk past from the engineers I know. I wonder if Leo was told I was a sedated porn star?
+- This was just before Pelicot was found to be inviting the whole town round to rape his sedated wife and uploading it onto porn networks.
+- I guess men felt it was normal, something that just happens, and no-one would ever be held to account.
+- Anyway.
+- A weird guy does talk to me at EthCC, only one.
 - Hassan maybe? Something Islamic for sure.
 - This guy bumps into me, he's the only person who talks to me at EthCC.
 - I'm having a burger for lunch at the burger bar, and he asks to join me I say yes.
