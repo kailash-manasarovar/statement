@@ -13,6 +13,7 @@
 - While we're in the carvery, I see men peering into look at me.
 - My presence is clearly antagonizing.
 - I tell dad we have to stop coming here, I don't want to antagonize anyone.
+- After finding out that my dad is likely horribly connected with these people and the porn-gangs of Denia, and that the woman at the Red Lion probably told him to [stay away from Lourdes while they *finished me off*](july.md#the-woman-at-the-red-lion), and I was not finished off, this act, to me, is even more appalling that it already was.
 
 ## 13th Day of Elul, Saturday 6th September
 
