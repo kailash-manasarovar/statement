@@ -127,12 +127,12 @@
 - Everything about the man is Richard, except when I look at him head-on, his face is rounder.
 - I guess that could happen over the years.
 - But then I hear him talk.
-- He has a wild Irish accent and it throws me completely off guard. 
-- Richard, although apparently Welsh, had spoken the King's English well.
+- He has a wild Irish accent and it throws me completely off guard; too wild perhaps though.
+- Richard, although apparently Welsh, had spoken the King's English, well.
 - He is with a couple of German people, a man and a woman.
 - I can't figure it out. We see him hugging them from time to time. They're quite intimate with each other.
 - The three are always deep in conversation.
-- From what I can tell, he seems to be telling them about the myths and legends of the place, as if he knows more than the guide.
+- From what I can tell, he seems to be telling them about the myths and legends of the place, as if he knows more than the official guide.
 - I wonder if he's working as a surreptitious guide.
 - In the queue at the cafeteria, he is right in front of us.
 - It could be Richard, apart from the accent. Could he be putting it on?
