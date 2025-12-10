@@ -17,11 +17,9 @@ function googleTranslateElementInit() {
 
 - In my hotel room, on my work laptop, away from my hacked home networks in Spain and North London, I'm finally able to access the ECHR website.
 - Remember, in February I tried to contact the [European Court of Human Rights](february.md#european-court-of-human-rights) and was immediately blocked from doing so, then teased relentlessly online for having tried to do so.
-- In Belgium, I'm able to easily find a way to report what is going on for me to the European Commission and I write to them on my work laptop.
+- In Belgium, I'm able to easily find a way to report what is going on for me to the European Commission and I write to them on my work laptop: [receipt from the European Commission website](../../content/documents/evidence/eu-complaint.png).
 
-  - [Receipt of sending from European Commission website](../../content/documents/evidence/eu-complaint.png).
-
-- I tell them I'm being terrorized in a public music school in Spain, funded with European grants, and that the Spanish school board appears to be complicit.
+- I tell them I'm being terrorized in a public music school in Spain by teachers and staff, that the conservatory system is funded by European grants, and that the Spanish school board appears to be complicit.
 - I tell them my serious concerns about the safety of children at the school.
 - I tell them I made numerous complaints to the school board.
 - I tell them I have been hacked and persecuted by people in the town.
@@ -33,7 +31,7 @@ function googleTranslateElementInit() {
     ![Response from ECHR 2](../../content/images/ECHR-response-2.png)](../../content/documents/evidence/ARES%202024_5484609.pdf)
 
 - I take their advice and write numerous letters to the [Spanish government organization](https://www.inmujeres.gob.es/) they suggest I contact, to which I never receive a reply.
-- I see that the European Commission gives British and Spanish criminal porn gangs the all clear to carry on doing whatever they like to children in the Spanish school system, and make a horrible example of me at the same time; someone who dared speak up about how criminal porn-gangs control the schools in Spain, countrywide probably.
+- I see now that, along with the police and the Generalitat, the European Commission gives British and Spanish criminal porn gangs the all clear to carry on doing whatever they like to children in the Spanish school system, and make a horrible example of me at the same time; someone who dared speak up about how criminal porn-gangs control schools in Spain, countrywide probably.
 
 ### Mushroom man says sorry
 
