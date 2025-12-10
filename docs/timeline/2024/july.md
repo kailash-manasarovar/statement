@@ -33,7 +33,7 @@ function googleTranslateElementInit() {
     ![Response from ECHR 2](../../content/images/ECHR-response-2.png)](../../content/documents/evidence/ARES%202024_5484609.pdf)
 
 - I take their advice and write numerous letters to the [Spanish government organization](https://www.inmujeres.gob.es/) they suggest I contact, to which I never receive a reply.
-- I see that the European Commission gives British and Spanish criminal porn gangs the all clear to carry on doing whatever they like to children in the Spanish school system, and make a horrible example of me at the same time; someone who dared speak up about how porn-gangs control the schools in Spain, countrywide probably.
+- I see that the European Commission gives British and Spanish criminal porn gangs the all clear to carry on doing whatever they like to children in the Spanish school system, and make a horrible example of me at the same time; someone who dared speak up about how criminal porn-gangs control the schools in Spain, countrywide probably.
 
 ### Mushroom man says sorry
 
