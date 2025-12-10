@@ -108,33 +108,37 @@
 - I sense darker intentions.
 - I wonder if this is [Verity's weird roommate](../early-years/2013.md#traveling-back-to-uk-at-christmas-with-verity-sawyer)?
     
-## Dublin trauma therapy
+## Richard at Newgrange 
 
-- I travel to Dublin for trauma therapy: Transforming Touch.
-- The day before the course starts, on Wednesday 24th September, a friend and I visit [Whitefriars Church](https://whitefriarstreetchurch.com/) in Dublin city centre.
-- My friend tells me he was drawn to visit the day before and was surprised to find relics of St Valentine there.
-- I found this information triggering for some reason and vowed to visit myself on the 29th September, my one free day after the course and before I head home.
-- It turned out we ended up there on our walk anyway.
-- To my surprise, I found that the statue of St Valentine reminded me of the trumpet teacher somehow.
-- I thought it was just because the psychological attack had been so intense, I was triggered by the idea of romance, but there was something more.
-- The statue looked, to me, like it was real; a real human being.
-- At the time, it was so weird I didn't understand it.
-- A few days later, on the therapy table, I realized.
-- Valentine reminded me of [all the trumpet teachers](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) in fact, but [one of them](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) way way more than all the others.
-- There is, in fact, a true and uncanny resemblance.
-- The statue in Whitefriars Church looks like the trumpet teacher who had [cried in my arms in my bed](../2023/march.md#valentine) in what I had thought was a dream but I am now pretty sure it wasn't a dream.
-- On the 29th September, Michaelmas, I visit again and take some photos.
+- I travel to Dublin for trauma therapy: [Transforming Touch](#healing-process).
+- The day before the course starts, on Wednesday 24th September, Steve and I visit the [Newgrange monuments](https://www.newgrange.com/).
+- As we're walking up into the Knowth site, Steve tells me that the weirdest thing has just happened; one of the women on our tour looks *exactly* like someone who practices TT in the US. 
+- Minutes later, after we pass through the small yet significant constructions around the main mound, I see someone I recognize. 
 
-![Valentine](../../content/images/valentine/valentine-1.jpeg)
-![Valentine](../../content/images/valentine/valentine-3.jpeg)
-![Valentine](../../content/images/valentine/valentine-relics.jpeg)
-![Valentine](../../content/images/valentine/valentine-crying.jpeg)
+![Knowth gestationary periods](../../content/images/knowth.webp)
 
-- Like the mandrake, which looks like it was working for God and very much on my side, Valentine stood behind and beside me too, supporting me, on God's side, and very much against his misuse, and healing plant misuse by evil lost  minds … it’s kind of a divine comedy … imagine him looking like that… it’s as if it was all written hundreds of years ago.
-- I keep a picture close by my heart, especially when I do my ACIM study.
-- I believe my heart is finally healing now. Thank God in Heaven.
+- It's Richard, the man who [popped up in Glastonbury](../early-years/2005.md#richard-works-for-the-criminal-gangs) way back in 2005 just after I had received the Lockerbie compensation and the [porn fatwa](../early-years/2003.md#porn-fatwa) was beginning in earnest.
+- The man who had been tasked with stalking me by North London criminal gangs.
+- I'm so startled; I'm staring right at him.
+- It's his profile, exactly.
+- He's the right age, about 60.
+- Same height, same build.
+- Everything about the man is Richard, except when I look at him head-on, his face is rounder.
+- I guess that could happen over the years.
+- But then I hear him talk.
+- He has a wild Irish accent and it throws me completely off guard.
+- He is with a couple of German people, a man and a woman.
+- I can't figure it out. We see him hugging them from time to time. They're quite intimate with each other.
+- The three are always deep in conversation.
+- From what I can tell, he seems to be telling them about the myths and legends of the place, as if he knows more than the guide.
+- I wonder if he's working as a surreptitious guide.
+- In the queue at the cafeteria, he is right in front of us.
+- It could be Richard, apart from the accent. Could he be putting it on?
+- I ask him; "Are you a guide?"
+- He looks at me and appears to be a bit nervous.
+- He says, grinning, "No, I'm not a guide, I just like talking a lot."
 
-### Healing process
+## Healing process
 
 - On the TT table I have been extremely still for the five full years I have been doing the therapy practice. 
 - I do not move at all.
