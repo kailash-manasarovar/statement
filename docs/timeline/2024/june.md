@@ -560,3 +560,4 @@ function googleTranslateElementInit() {
 - It's so astonishing and insane, and used to really hurt me, I've never understood how they could both be so wilfully evil.
 - Given a recent development, I wonder if I have been continually misrepresented at home by someone with a vested interest in me never surviving the porn gangs.
 - If so, a vile misrepresentation like this will have being going on for decades.
+- If not, then I'm very literally despised by my own family.
