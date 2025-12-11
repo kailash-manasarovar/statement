@@ -105,6 +105,10 @@ function googleTranslateElementInit() {
 
 - WIP
 
+### Ben says something weird, then leaves the company
+
+- WIP
+
 ## Evidence of mass cyber-stalking technology, or something more sinister
 
 - I'm back in Dénia on 15th July. 
