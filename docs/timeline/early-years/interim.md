@@ -71,7 +71,7 @@ function googleTranslateElementInit() {
 - I'm guessing this is exacerbated online too.
 - Indeed, for a couple of years online I have been talking *a lot* about suicide-attempt anniversaries and how difficult they are.
 - I actually try to find a way to take Adaptive to court but it's pretty impossible as a limited company contractor.
-- I attend a CAB consultation, I talk to the government employment service; there's a bunch of documentation all over the place on this.
+- I attend a CAB consultation, I open a case with the government employment service; there's a bunch of documentation all over the place on this.
 - I do a 7-day fast and detox in Devon which may have been life saving.
 - Nevertheless, my mind is on a suicide-loop, and the valium is now exacerbating this, except I'm hopelessly addicted to it.
 
