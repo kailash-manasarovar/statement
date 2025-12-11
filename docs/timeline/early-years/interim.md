@@ -31,6 +31,7 @@ function googleTranslateElementInit() {
 ## April 2017
 
 - I stop taking the prescription medication but continue taking valium.
+- I wonder about the true source of this medication and whether criminal gangs familiar to this story might have something to do with its distribution via Royal Mail.
 
 ## July 2017
 
@@ -45,19 +46,46 @@ function googleTranslateElementInit() {
 - It is valium bought online so I'm not even sure what it is exactly.
 - My family is impossible to live with.
 
+## September 2018
+
+- I start contracting for a company called Adaptive in the city.
+- I interview really well, splendidly, the job sounds amazing, I'm going to be doing so much.
+- The first day, the persecution begins.
+- We are in the office and I'm being introduced to everyone.
+- Harsha, a close colleague, has not even said hello and introduced himself yet.
+- He looks at me, and rubs his chin, and makes that face that says, I have no faith in you.
+- I'm bullied incessantly. 
+- Harsha is very keen to interrogate me about my PhD and becomes triumphant when he knows more about my subject than I do.
+- The thing is, I cannot respond to this sort of aggression, not then and not now.
+- I go quiet, trying to figure out what to do.
+- I'm seriously unhappy in this role.
+- I'm pretty much made a secretary again too. It wouldn't be so bad if they were nice about it, but something else was going on.
+- Anyway, I'm fired on the anniversary of a suicide attempt, November 7th. The very same day. 
+- For no particular reason. 
+- They've just decided they don't like me, and they seem to have made that decision the moment I walked through the door.
+- This is a psycho-emotional blow like no other, and I become immediately severely suicidal.
+- I'm guessing this is exacerbated online too.
+- Indeed, for a couple of years online I have been talking *a lot* about suicide-attempt anniversaries and how difficult they are.
+- I actually try to find a way to take Adaptive to court but it's pretty impossible as a limited company contractor.
+- I attend a CAB consultation, I talk to the government employment service; there's a bunch of documentation all over the place on this.
+- I do a 7-day fast and detox in Devon which may have been life saving.
+- Nevertheless, my mind is on a suicide-loop, and the valium is now exacerbating this, except I'm hopelessly addicted to it.
+
 ## January 2019
 
-- Regardless of the valium, I'm still suicidally depressed and life is bleak.
-- One night I take an overdose of valium and go to A&E.
+- An old friend Willow comes round, I wonder what prompted her to visit, it was not a good time.
+- I don't want to talk to her and tell everyone that.
+- My mother is very keen I talk to her and badgers me to do so.
+- I go to talk to her.
+- Seeing Willow who was around during the rape-gang times in 1989 is very triggering for me and I wish people would have listened to me when I told them I did not want to see her.
+- Shortly after, no doubt with more online triggering, I take an overdose of valium and end up in A&E.
 - The drug nurse meets me the next morning and puts me into the drug rehabilitation system.
 - I quit valium and alcohol immediately.
-
-!!! info
-    - I wasn't drinking alcohol excessively but it wasn't helping either.
+- I find out valium isn't a drug you can die from later on. I'm much relieved about that.
 
 ## February to June 2019
 
-- I'm working 3 days a week at a crypto firm and going to outpatient rehab the other days in Finchley Central.
+- I'm working 3 days a week at a crypto firm [FetchAI](#fetchai) and going to outpatient rehab the other days in Finchley Central.
 - Rehab is an AMAZING experience and incredibly helpful. Lifesaving.
 - I see a psychotherapist once a week at Barnet Hospital.
 - I'm healing.
@@ -100,7 +128,10 @@ function googleTranslateElementInit() {
 - I don't like Belfast. I find it a very harsh environment.
 - I start volunteering with Childline and find out about trans ideology with regards to the sterilization and mutilation of children. I am utterly horrified!
 - I realize that if I had been born 30 years later, I would have sought comfort in the trans belief that I didn't have to be female anymore after serious sexual abuse, and I would believe that life would be easier that way.
-- I tentatively join Twitter at one point to keep abreast of what's going on, but I get scared and delete my account.
+- I'm only onsite at Childline in Belfast for a short while before we have another covid lockdown and the NSPCC set up their systems so we can all work from home.
+- I end up volunteering for Childline online from home for about 2-5 years.
+- Criminal gangs of Dénia and North London attend every single counselling session I work.
+- I tentatively join Twitter at one point in 2021 to keep up with the news around what's happening to children in the UK, but I get scared and delete my account.
 
 ### Targeted by online scammers
 
