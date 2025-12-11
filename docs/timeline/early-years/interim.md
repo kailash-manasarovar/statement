@@ -132,10 +132,11 @@ function googleTranslateElementInit() {
 - I live in Belfast and I have a lot of work, even during Covid.
 - I work to distract myself. I work three jobs sometimes.
 - I don’t like Belfast. I find it a very harsh environment. I was targeted by criminal gangs [the moment I arrived](#targeted-by-online-scammers), which set the tone for me.
-- I start volunteering with Childline and find out about trans ideology with regards to the sterilization and mutilation of children. I am utterly horrified!
-- I realize that if I had been born 30 years later, I would have sought comfort in the trans belief that I didn't have to be female anymore after serious sexual abuse, and I would believe that life would be easier that way.
+- I start volunteering with Childline and find out about trans ideology and the sterilization and mutilation of children.
+- I am utterly horrified!
+- I realize that if I had been born 30 years later, I would have sought comfort in trans ideology and the belief I didn’t have to be female anymore after serious and repeated sexual abuse.
 - I'm only onsite at Childline in Belfast for a short while before we have another covid lockdown and the NSPCC set up their systems so we can all work from home.
-- I end up volunteering for Childline online from home for about 2-5 years.
+- I end up volunteering for Childline online from home for about 2.5 years.
 - Criminal gangs of Dénia and North London attend every single counselling session I work.
 - I tentatively join Twitter at one point in 2021 to keep up with the news around what's happening to children in the UK, but I get scared and delete my account.
 
