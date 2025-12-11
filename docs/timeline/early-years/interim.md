@@ -53,7 +53,7 @@ function googleTranslateElementInit() {
 - I start contracting for a company called Adaptive in the city on Tuesday 28th August after the late summer bank holiday.
 - I interview really well, splendidly, the job sounds amazing, I'm going to be doing so much interesting work, the day rate is fantastic, everyone is so nice, I'm delighted.
 - The first day, the persecution begins.
-- It's Monday morning in the office and I'm being introduced to everyone.
+- It's my first morning in the office and I'm being introduced to everyone.
 - Harsha, a close colleague, has not even said hello or introduced himself yet.
 - He looks at me in an unfriendly way, and he rubs his chin and shakes his head a little, making an expression that says very clearly: *I have no faith in you*.
 - From that moment, I'm the target for bullying, from all sides.
