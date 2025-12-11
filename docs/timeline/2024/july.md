@@ -35,16 +35,16 @@ function googleTranslateElementInit() {
 
 ### Mushroom man says sorry
 
-- At the [Belgian crypto conference](https://ethglobal.com/events/brussels) mushroom man apologizes to me for saying something out of order in Bali.
-- It must have been when he [met me in the morning to distract me before the Indian (he said Pakistani but I'm not convinced) guy could introduce himself](may.md#the-pakistani-yorkshire-man).
-- Or, I wonder if he was apologizing for when he, Ajay, and Alicia and their respective teams were instructed to perform a military coup on my role in March.
-- He's left mushroom man cards all over the conference, they're everywhere.
-- I laugh with him about his cards.
-- He's a fat boy and in his profile pic at Polygon he's dressed as a mushroom.
-- When he and Jaime Lalinde met in March 2024 while the military coup on my job was going on, I was making tea and listening while they spoke endlessly about mushrooms and hallucinogens which, frankly, I thought was a little inappropriate at work.
-- Did mushroom man know I was being drugged at home?
-- I told him in Belgium that I was open to hallucinogenic plants, but for healing purposes only.
-- I explained that I believe it is not a good idea to misuse a powerful living being such as a healing plant for any reason at all, and the karma can be immense.
+- At a Polygon evening event - part of the [EthCC conference in Brussels](https://ethglobal.com/events/brussels) - mushroom man apologizes to me something he said in Bali.
+- He won't tell me what it was though.
+- I assume he is talking about when he [met me in the morning to distract me before the Indian (he said Pakistani but I'm not convinced) guy that looked like Jitendra Das could introduce himself](may.md#the-pakistani-yorkshire-man).
+- Or, I wonder if he was apologizing for when [he, Ajay, Aman, and Alicia](may.md#ajay-alicia-aman-pandey-and-mushroom-man-perform-a-military-coup-on-my-job) and their respective teams performed a military coup on my role.
+- He's leaving little card with his mushroom-man picture on them all over the conference; I see them everywhere.
+- I laugh with him a little about his cards.
+- On my way down to the event, I had stopped to listen to a busker singing Radiohead's Creep, which was amazing.
+- We spoke a little about hallucinogens too.
+- I told him I was open to hallucinogenic plants, but for healing purposes only.
+- I explained that it is not a good idea to misuse a powerful living being such as a healing plant for any reason at all, and that the karma can be immense with ever-spreading tendrils.
 
 ### Meeting a weird guy
 
