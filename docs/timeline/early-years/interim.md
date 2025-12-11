@@ -65,6 +65,8 @@ function googleTranslateElementInit() {
 - I'm pretty much made a secretary again too. It wouldn't be so bad if they were nice about it, but something else was going on.
 - One day I'm working from home and I'm requested to attend a meeting in which I'm TOTALLY ignored for two hours. 
 - My brother comes down and says, "made you a secretary again have they?" ... and that is also quite curious.
+- On one occasion they ask me what I think of Elon Musk.
+- I tell them I think he's a bit of a dick, and everyone laughs.
 - Anyway, I'm fired on the anniversary of a suicide attempt, November 6th or 7th. The very same day. 
 - For no particular reason. 
 - I think that they've just decided they don't like me, and they seem to have made that decision the moment I walked through the door.
