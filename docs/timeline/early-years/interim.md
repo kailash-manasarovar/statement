@@ -63,17 +63,19 @@ function googleTranslateElementInit() {
 - I go quiet, trying to figure out what to do.
 - I'm seriously unhappy in this role.
 - I'm pretty much made a secretary again too. It wouldn't be so bad if they were nice about it, but something else was going on.
+- One day I'm working from home and I'm requested to attend a meeting in which I'm TOTALLY ignored for two hours. 
+- My brother comes down and says, "made you a secretary again have they?" ... and that is also quite curious.
 - Anyway, I'm fired on the anniversary of a suicide attempt, November 6th or 7th. The very same day. 
 - For no particular reason. 
-- They've just decided they don't like me, and they seem to have made that decision the moment I walked through the door.
+- I think that they've just decided they don't like me, and they seem to have made that decision the moment I walked through the door.
 - I have no clue that this repeated pattern I experience in tech roles could be related to the criminal activities of the Cano Lopez's and Smith's in Spain.
 - Nevertheless, this is a psycho-emotional blow like no other, and I become immediately severely suicidal.
 - I'm guessing this is exacerbated online too.
 - Indeed, for a couple of years online I have been talking *a lot* about suicide-attempt anniversaries and how difficult they are.
 - I actually try to find a way to take Adaptive to court but it's pretty impossible as a limited company contractor.
 - I attend a CAB consultation, I open a case with the government employment service; there's a bunch of documentation all over the place on this.
-- I do a 7-day fast and detox in Devon which may have been life saving.
-- Nevertheless, my mind is on a suicide-loop, and the valium is now exacerbating this, except I'm hopelessly addicted to it.
+- I do a 7-day fast and detox at Sura Detox in Devon which may have been life saving.
+- Nevertheless, my mind is on a suicide-loop, and the Valium is now exacerbating this, except I'm hopelessly addicted to it.
 
 ## January 2019
 
