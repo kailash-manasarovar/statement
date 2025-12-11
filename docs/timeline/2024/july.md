@@ -35,14 +35,15 @@ function googleTranslateElementInit() {
 
 ### Mushroom man says sorry
 
-- At a Polygon evening event - part of the [EthCC conference in Brussels](https://ethglobal.com/events/brussels) - mushroom man apologizes to me something he said in Bali.
+- At a Polygon evening event - part of the [EthCC conference in Brussels](https://ethglobal.com/events/brussels) - mushroom man, Hudson Jameson, apologizes to me for something he said in Bali.
 - He won't tell me what it was though.
 - I assume he is talking about when he [met me in the morning to distract me before the Indian (he said Pakistani but I'm not convinced) guy that looked like Jitendra Das could introduce himself](may.md#the-pakistani-yorkshire-man).
 - Or, I wonder if he was apologizing for when [he, Ajay, Aman, and Alicia](may.md#ajay-alicia-aman-pandey-and-mushroom-man-perform-a-military-coup-on-my-job) and their respective teams performed a military coup on my role.
-- He's leaving little card with his mushroom-man picture on them all over the conference; I see them everywhere.
+- He's leaving little business cards with his mushroom-man picture on them all over the conference; I see them everywhere.
 - I laugh with him a little about his cards.
 - On my way down to the event, I had stopped to listen to a busker singing Radiohead's Creep, which was amazing.
 - We spoke a little about hallucinogens too.
+- He told me how they help him with depression.
 - I told him I was open to hallucinogenic plants, but for healing purposes only.
 - I explained that it is not a good idea to misuse a powerful living being such as a healing plant for any reason at all, and that the karma can be immense with ever-spreading tendrils.
 
