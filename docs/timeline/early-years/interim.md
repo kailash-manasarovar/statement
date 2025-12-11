@@ -48,22 +48,26 @@ function googleTranslateElementInit() {
 
 ## September 2018
 
-- I start contracting for a company called Adaptive in the city.
-- I interview really well, splendidly, the job sounds amazing, I'm going to be doing so much.
+### Hired for sport, again
+
+- I start contracting for a company called Adaptive in the city on Tuesday 28th August after the late summer bank holiday.
+- I interview really well, splendidly, the job sounds amazing, I'm going to be doing so much interesting work, the day rate is fantastic, everyone is so nice, I'm delighted.
 - The first day, the persecution begins.
-- We are in the office and I'm being introduced to everyone.
-- Harsha, a close colleague, has not even said hello and introduced himself yet.
-- He looks at me, and rubs his chin, and makes that face that says, I have no faith in you.
-- I'm bullied incessantly. 
+- It's Monday morning in the office and I'm being introduced to everyone.
+- Harsha, a close colleague, has not even said hello or introduced himself yet.
+- He looks at me in an unfriendly way, and he rubs his chin and shakes his head a little, making an expression that says very clearly: *I have no faith in you*.
+- From that moment, I'm the target for bullying, from all sides.
+- An hour has not yet gone by in my new role. 
 - Harsha is very keen to interrogate me about my PhD and becomes triumphant when he knows more about my subject than I do.
 - The thing is, I cannot respond to this sort of aggression, not then and not now.
 - I go quiet, trying to figure out what to do.
 - I'm seriously unhappy in this role.
 - I'm pretty much made a secretary again too. It wouldn't be so bad if they were nice about it, but something else was going on.
-- Anyway, I'm fired on the anniversary of a suicide attempt, November 7th. The very same day. 
+- Anyway, I'm fired on the anniversary of a suicide attempt, November 6th or 7th. The very same day. 
 - For no particular reason. 
 - They've just decided they don't like me, and they seem to have made that decision the moment I walked through the door.
-- This is a psycho-emotional blow like no other, and I become immediately severely suicidal.
+- I have no clue that this repeated pattern I experience in tech roles could be related to the criminal activities of the Cano Lopez's and Smith's in Spain.
+- Nevertheless, this is a psycho-emotional blow like no other, and I become immediately severely suicidal.
 - I'm guessing this is exacerbated online too.
 - Indeed, for a couple of years online I have been talking *a lot* about suicide-attempt anniversaries and how difficult they are.
 - I actually try to find a way to take Adaptive to court but it's pretty impossible as a limited company contractor.
@@ -74,7 +78,7 @@ function googleTranslateElementInit() {
 ## January 2019
 
 - An old friend Willow comes round, I wonder what prompted her to visit, it was not a good time.
-- I don't want to talk to her and tell everyone that.
+- I don't want to talk to her and I tell everyone at home that.
 - My mother is very keen I talk to her and badgers me to do so.
 - I go to talk to her.
 - Seeing Willow who was around during the rape-gang times in 1989 is very triggering for me and I wish people would have listened to me when I told them I did not want to see her.
