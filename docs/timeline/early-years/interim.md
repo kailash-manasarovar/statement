@@ -127,7 +127,7 @@ function googleTranslateElementInit() {
 - In retrospect, I realize that none of these men could afford the kind of porn subscriptions my engineering tech colleagues have been paying for, so of course they won't have seen me regularly in porn, and for that reason, the energy they give me is cleaner and I feel safe with them.
 - Perhaps they have suffered similarly too.
 - Although, on a couple of occasions, in group therapy, one of the participants might make a comment which seems to suggest they know what I'm watching on Netflix at the time, or what I've read online recently.
-- That could easily be a simple prompt from their drug dealer, I guess, and of course from the same criminal gangs that controls the expensive subscriptions.
+- That could easily be a simple prompt from their drug dealer, I guess, and of course from the same criminal gangs that control the expensive subscriptions.
 - I see a psychotherapist once a week at Barnet Hospital.
 - I have no idea I've been continually sedated and raped for years in Spain, and this includes incest.
 - I believe my mental and emotional state is entirely due to my experience of the rape gangs in Tottenham in 1989.
