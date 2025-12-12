@@ -115,13 +115,28 @@ function googleTranslateElementInit() {
 
 ## February to June 2019
 
+### Drugs rehab in Finchley Central
+
 - I'm working 3 days a week at a crypto firm [FetchAI](#fetchai) and going to outpatient rehab the other days in Finchley Central.
+- A colleague exposes himself online on Zoom to me at FetchAI. I guess another female-tech-colleague-you-hate porn upload.
+- Anyway.
 - Rehab is an AMAZING experience and incredibly helpful. Lifesaving.
+- I feel so safe there, like I have a whole new family.
+- It's kind of inexplicable because, apart from me and a handful of others, the majority of service users are professional drug-addicted criminals.
+- You'd think I'd be the least safe in an environment like this, but this is not what my body is telling me.
+- In retrospect, I realize that none of these men had enough finances to afford the kind of porn subscriptions my engineering tech colleagues pay for, so of course they won't have seen me regularly in porn, and for that reason, the energy they give me is cleaner and I feel safe with them.
+- Perhaps they have suffered similarly too.
+- Although, on a couple of occasions, in group therapy, one of the participants might make a comment which seems to suggest they know what I'm watching on Netflix at the time, or what I've read online recently.
+- That could easily be a simple prompt from their drug dealer, I guess, and of course from the same criminal gangs that controls the expensive subscriptions.
 - I see a psychotherapist once a week at Barnet Hospital.
-- I'm healing.
-- I realize I have to get away from my family if I want to really heal.
-- I make plans to move to Ireland. I'm choosing Ireland because I have connected with a trauma therapist who is going to be giving courses there from February 2020.
-- I'm still feeling suicidally depressed and anxious but less so, and I'm not using any medication or drinking alcohol.
+- I have no idea I've been continually sedated and raped for years in Spain, and this includes incest.
+- I believe my mental and emotional state is entirely due to my experience of the rape gangs in Tottenham in 1989.
+- I talk about that.
+- And I'm healing.
+- Something happens at home and I realize I have to get away from my family if I want to really heal.
+- I make plans to move to Ireland.
+- I'm choosing Ireland because I have connected with a trauma therapist who is going to be giving courses there from February 2020, Steve Terrell.
+- I'm still feeling suicidally depressed and anxious, but less so, and I'm not using any medication or drinking alcohol.
 
 ### Fetch.AI
 
