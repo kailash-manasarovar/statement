@@ -41,7 +41,7 @@ function googleTranslateElementInit() {
 
 - I will find out over a year later, from a [Spanish foreign office official](../2024/october.md#madrid-and-paloma), that the woman who owns the `@SchrodingerGata` account, Rocío Vidal, suffered a serious hacking attack.
 - She is a successful business woman, of course.
-- I also see Rocío Vidal in photos which remind me of [plate lady](#plate-lady-early-in-the-month) in that they imply filmed sexual activity.
+- I also see Rocío Vidal in photos which remind me of [plate lady](#plate-lady-early-in-the-month) in that they imply non-consensually filmed sexual activity.
 - In summer 2024, the porn-gangs bring Rocío Vidal to Cauterets France and set it up so that I see her.
 - I believe this is an endeavour to persuade me to do porn (I'm bombarded with it online every day at that point, plus drugged with strong aphrodisiacs) and it's possible they have managed to set up sedating tech in my hotel room at the Garden & City hotel, with the help of Sandra Diaz and others.
 - In July 2023, I believe that the `Carmen` account, given it has so much interaction with the `@jctot19` account over many many years, must be a girlfriend.
