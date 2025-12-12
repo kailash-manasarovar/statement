@@ -90,6 +90,7 @@ function googleTranslateElementInit() {
 - Suicide anniversaries were another *theme* that came up in 2023 and I can only assume this means a target's suicide is a desired end result.
 - Perhaps they run polls to see what porn-subscribers would prefer to see and pay the most for? 
 - Did my tech-colleagues want me to commit suicide? Were they hoping for that? Or did they prefer to see me running around a field naked after a horse?
+- Would they have snickered?
 - I actually try to find a way to take Adaptive to court but it's pretty impossible as a limited company contractor.
 - I attend a CAB consultation, I open a case with the government employment service, I write to my professional organization the IEEE who ignore me, of course; there's a bunch of documentation all over the place on this.
 - I do a 7-day fast and detox at Sura Detox in Devon which may have been life saving.
