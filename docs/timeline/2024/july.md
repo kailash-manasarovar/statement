@@ -50,7 +50,8 @@ function googleTranslateElementInit() {
 ### Meeting a weird guy
 
 - No-one speaks to me in Brussels.
-- There's a lot of snickering when I walk past from the engineers I know. I wonder if Leo was told I was a sedated porn star?
+- I notice a lot of snickering whenever I walk past some of the engineers I know.
+- I wonder if Leo was told I was a sedated rape-porn star?
 - This was just before Pelicot was found to be inviting the whole town round to rape his sedated wife and uploading it onto porn networks.
 - I guess men felt it was normal, something that just happens, and no-one would ever be held to account.
 - Anyway.

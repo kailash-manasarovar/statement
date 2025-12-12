@@ -41,7 +41,9 @@ function googleTranslateElementInit() {
 
 - I will find out over a year later that the woman who owns the `@SchrodingerGata` account, Rocío Vidal, suffered a serious hacking attack.
 - I will also see Rocío Vidal in photos which remind me of [plate lady](#plate-lady-early-in-the-month) in that they imply filmed sexual activity.
+- In summer 2024, the porn-gangs bring Rocio Vidal to Cauterets France so I see her. I believe this is an endeavour to persuade me to do porn and/or they have managed to set up sedating tech in my hotel room at the City & Garden hotel which would not surprise me in the least.
 - I believe that the `Carmen` account, given it has so much interaction with the `@jctot19` account over many many years, must be a girlfriend.
+- In truth, it is Carmen Cano, Domingo Lopez Cano's sister.
 
 ### `@1frgvn`
 
@@ -97,6 +99,13 @@ function googleTranslateElementInit() {
 - When I am finally away from Dénia and in Lourdes, the hackers start to reveal themselves again.
 
 ![I see you](../../content/tweets/july-comms/i-see-you.png)
+
+#### Seals
+
+- A significant *meme* was a baby seal.
+- I complained bitterly that teachers and staff had treated me like hunters might bludgeon a baby seal.
+- On both the `@jctot19` and `@sinremite` accounts, I start to see a video of a seal escaping sharks by jumping on a boat.
+- I realize this is in reference to [escaping the shark at Alicante airport](june.md#sunday-18th-june-alicante-airport), the [third man](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) who may be Gloria's brother and who we believe to have fathered multiple children in the region for the sole purpose of baby-rape and pedophile porn.
 
 ### `@JackChardwood`
 
