@@ -110,7 +110,7 @@ function googleTranslateElementInit() {
 [![Baby seal](../../content/tweets/baby-seal.png)](https://x.com/1FRGVN/status/1703041567253016887)
 
 - On both the `@jctot19` and `@sinremite` accounts, I start to see a video of a seal escaping sharks by jumping on a boat.
-- I realize this is in reference to [escaping the shark at Alicante airport](june.md#sunday-18th-june-alicante-airport), the [third man](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) who may be Gloria's brother and who we believe to have fathered multiple children in the region for the sole purpose of baby-rape and pedophile porn.
+- I realize this is in reference to [escaping the shark at Alicante airport](june.md#sunday-18th-june-alicante-airport), the [third man](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) of the [switcheroo team](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero), who may be Gloria's brother and who we believe to have fathered multiple children in the region for the sole purpose of baby-rape and pedophile porn.
 
 ### `@JackChardwood`
 
