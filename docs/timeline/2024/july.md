@@ -50,24 +50,27 @@ function googleTranslateElementInit() {
 ### Meeting a weird guy
 
 - No-one speaks to me in Brussels.
-- I notice a lot of snickering whenever I walk past some of the engineers I know.
-- I wonder if Leo was told I was a sedated rape-porn star?
-- This was just before Pelicot was found to be inviting the whole town round to rape his sedated wife and uploading it onto porn networks.
-- I guess men felt it was normal, something that just happens, and no-one would ever be held to account.
+- I do notice a lot of snickering whenever I walk past some of the engineers I work with.
+- I even see Tom from Consensys, who would giggle hysterically while on Zoom with me - making me wonder if they were posting something just for him from my hacked laptop, ignores me
+- I wonder if Leo from Polygon was told I was a sedated rape-porn star? I thought he was a nice boy.
+- All this was just before Pelicot was found to be inviting the whole town round to rape his sedated wife and uploading it onto porn networks.
+- I guess the pre-Pelicot masculine felt it was normal, something that just happens, their privilege perhaps, and that no-one would ever be held to account.
+- Perhaps porn addicts still feel that sedating and raping women is their human right.
 - Anyway.
 - A weird guy does talk to me at EthCC, only one.
-- Hassan maybe? Something Islamic for sure.
-- This guy bumps into me, he's the only person who talks to me at EthCC.
-- I'm having a burger for lunch at the burger bar, and he asks to join me I say yes.
-- He's tall, dark-skinned, black curly hair.
+- His name is something Islamic, possibly Hassan but I can't remember.
+- He's the only person who talks to me at EthCC.
+- I'm having a burger for lunch at the burger bar, and he asks to join me.
+- I say yes and he sits down opposite me.
+- He's tall, dark-skinned, with black curly hair, gitano looking.
 - He gives me his card.
-- He has an Islamic name I can't remember.
-- He says he's looking for a technical writer and he has a crypto business in Alicante.
-- He has a brown coat and is using a stick to walk.
+- He's running a crypto business in Alicante, apparently, and he's looking for a technical writer, apparently.
+- He has a brown flasher's overcoat coat and he is using a stick to walk, which is probably fake.
 - At one point in our conversation I ask him if he's a religious man.
-- He gets scared.
+- He gets visibly scared.
 - I think it's cos he's Islamic and they don't like talking to women about religion.
 - Now, I'm not so sure.
+- He'll be on CCTV, oh you know already, great.
 
 ### Gabriel Silva is given my role at Polygon
 
