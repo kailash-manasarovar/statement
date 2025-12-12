@@ -28,7 +28,7 @@
 - There may be adjustable subtlety levels; I suspect the less obvious it is the more powerful hold it has.
 - If you happen to be able to drug a target at the same time, or perhaps know that they're a pothead or similar, then this triggering mechanism will have even more potency.
 - So, why am I mentioning this here?
-- Well, since I remembered the [anal fissure I noticed when my dad visited me in 2015](../early-years/2015.md#colitis-symptoms) about two weeks ago, my `@JackChardwood` account has undergone another of these transformations.
+- Well, since I remembered the [anal fissure I noticed when my dad visited me in 2015](../early-years/2015.md#inexplicable-anal-fissure) about two weeks ago, my `@JackChardwood` account has undergone another of these transformations.
 - Suicide content. A bunch of tweets about suicide from accounts as far from my graph as you can imagine, hiding in amongst everything else. Something I've never ever seen before.
 
 ![Suicide content](../../content/tweets/november-2025/suicides.png)

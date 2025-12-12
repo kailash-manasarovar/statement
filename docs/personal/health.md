@@ -139,7 +139,7 @@ function googleTranslateElementInit() {
 - The first set of boils I had was in 1991 and they were all over my face in the first month of me starting my BA studies in Performing Arts at Middlesex University; a time in which I struggled daily with severe PTSD.
 - The next time I had anything similar was as I was succumbing to systemic candida, a common autoimmune disease, triggered by blood poisoning and the ensuring hardcore antibiotic dose.
 - At that time, from 2001, I started to get random boils in my armpits and genital region, but nothing overwhelming.
-- Incidentally, I got an anal fissure (confirmed by GP) at the time, probably 2002, which [dripped blood exactly like the time in 2015](../timeline/early-years/2015.md#colitis-symptoms) which is why I knew what it was.
+- Incidentally, I got an anal fissure (confirmed by GP) at the time, probably 2002, which [dripped blood exactly like the time in 2015](../timeline/early-years/2015.md#inexplicable-anal-fissure) which is why I knew what it was.
 - The first time I can remember having severe genital boils that would burst blood and pus stains across the room was when I was living at Passeig Periodista Ramon Ortega in Denia from 2012-14.
 - I don't remember having these at Lourdes in 2014.
 - I don't remember having them at Joan Fuster until I started preparing my police statement in 2015; I may have mentioned them in it.
