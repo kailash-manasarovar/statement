@@ -59,8 +59,8 @@ function googleTranslateElementInit() {
 - From that moment, I'm the target for bullying, from all sides.
 - An hour has not yet gone by in my new role. 
 - Even the *very few* women, mostly admin staff, are tasked with mucking in.
-- Harsha is very keen to interrogate me about my PhD and becomes triumphant when he knows more about my subject than I do.
-- The thing is, I cannot respond to this sort of aggression, not then and not now.
+- Harsha is unusually keen to interrogate me about my PhD and becomes triumphant when he knows more about my subject than I do.
+- The thing is, I cannot respond to this sort of aggression.
 - Curiously, I was cyber-stalked by X accounts with that theme during the online oppression from September 2023.
 - *I'm beginning to wonder about your PhD*, said one.
 - It seems that many of those fake accounts that harassed me during this time - and while I was regularly sedated, drugged, and poisoned in my own home - were tech colleagues and the tech-bro pornocracy in general.
@@ -71,24 +71,29 @@ function googleTranslateElementInit() {
 - One day I'm working from home and I'm requested to attend a meeting in which I'm TOTALLY ignored for two hours. 
 - My brother comes down and says, "made you a secretary again have they?" ... and that is also quite curious.
 - The reason I say that is because at that time, and for many years, my brother utterly despised me and rarely spoke to me at all.
-- This hatred, curiously, began in Thailand and I wonder what really prompted it. You see, we had sort of become friends again in 2009 in Koh Samui, and any male support for an online tech-colleague porn-target would have needed to be dealt with.
-- I know he *met* a British man in Lamai who egged him into getting extraordinarily high every day and I had to go and rescue him with the Thai police.
-- I wonder if that was to make sure I didn't have any male support.
+- This hatred, curiously, began in Thailand and I wonder what really prompted it. You see, we had sort of become friends again in 2009 in Koh Samui, and any male support for an online tech-colleague porn-target would have to be dealt with.
+- I know he *met* a British man in Lamai in 2010 (the year of [Jitendra Das](2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) and [Mike Wenham](../2024/march/13-end.md#mike-wenham)) who egged him into getting extraordinarily high every day and he had a sort of mini-breakdown and I had to go and rescue him with the Thai police.
+- I wonder if the man who set my brother up with debilitating medication that Christmas in Lamai was the same man who [bared his teeth at me](../2024/december.md#man-bares-his-teeth-at-me) in the Spa Resorts restaurant at Christmas 2024.
+- I guess they targeted my brother so assiduously in 2010 to ensure I have no male support.
+- Did they keep an open channel of communication with him, that they could rely upon when and if necessary?
 - Back at Adaptive on one occasion they ask me what I think of Elon Musk.
 - I tell them I think he's a bit of a dick, and everyone laughs.
-- Anyway, I'm fired on the anniversary of a suicide attempt, November 6th or 7th. The very same day. 
+- Anyway, I'm fired on the anniversary of a suicide attempt, November 6th or 7th.
+- The very same day. 
 - For no particular reason. 
-- A couple of days before, the women go out for lunch together and make sure I see that I'm not included.
+- A couple of days before, the women go out for lunch together and they make sure I see that I'm not included.
 - At the time, I think that they've just decided they don't like me, and they seem to have made that decision the moment I walked through the door.
-- I have no clue that this repeated pattern I experience in tech roles could be related to the criminal activities of the Cano Lopez's and Smith's in baby-rape capital of the world, Denia Spain where they even have a porn-school and thousands of missing persons presumed dead in a field up there.
-- The tech-bro pornocracy probably don't care about that.
-- No-one's gonna target their kids ... they think.
-- Nevertheless, this firing is a psycho-emotional blow like no other, and I become immediately severely suicidal.
+- It's utterly irrational though. Pure hatred.
+- I have no clue that this repeated pattern I experience in tech roles could be related to the criminal activities of the Cano Lopez's and Smith's in baby-rape capital of the world, Dénia Spain where they now have a functioning porn-studio in a school, and where we're probably going to find thousands of missing persons, presumed dead, in a field up there.
+- The tech-bro pornocracy probably don't care about that, especially those with a taste for the murder-porn.
+- And no-one's ever gonna target their kids are they, or is that naive.
+- Perhaps the porn-gangs do target the kids of the pornocracy, maybe for those valuable incest subscriptions; maybe even very famous kids ...
+- Anyway, this firing is a psycho-emotional blow like no other, and I become immediately severely suicidal.
 - I'm guessing this is exacerbated online too.
 - Indeed, for a couple of years online I have been talking *a lot* about suicide-attempt anniversaries and how difficult they are.
-- When I say that, I don't mean publicly either, I mean in private chats with friends or perhaps in personal writings.
-- Suicide anniversaries were another *theme* that came up in 2023 and I can only assume this means a target's suicide is a desired end result.
-- Perhaps they run polls to see what porn-subscribers would prefer to see and pay the most for? 
+- When I say that, I don't mean publicly either, I mean in private chats with friends or perhaps in personal writings, but mostly in Google searches and research and reading I might do online.
+- Suicide anniversaries were another *theme* that came up in 2023 and I can only assume this means a female-tech-colleague porn-target's suicide is a desired end result.
+- Perhaps they run polls to see what porn-subscribers would prefer to see happen to their favorite *stars*, and pay the most for? 
 - Did my tech-colleagues want me to commit suicide? Were they hoping for that? Or did they prefer to see me running around a field naked after a horse?
 - Would they have snickered?
 - I actually try to find a way to take Adaptive to court but it's pretty impossible as a limited company contractor.
