@@ -58,24 +58,40 @@ function googleTranslateElementInit() {
 - He looks at me in an unfriendly way, and he rubs his chin and shakes his head a little, making an expression that says very clearly: *I have no faith in you*.
 - From that moment, I'm the target for bullying, from all sides.
 - An hour has not yet gone by in my new role. 
+- Even the *very few* women, mostly admin staff, are tasked with mucking in.
 - Harsha is very keen to interrogate me about my PhD and becomes triumphant when he knows more about my subject than I do.
 - The thing is, I cannot respond to this sort of aggression, not then and not now.
-- I go quiet, trying to figure out what to do.
+- Curiously, I was cyber-stalked by X accounts with that theme during the online oppression from September 2023.
+- *I'm beginning to wonder about your PhD*, said one.
+- It seems that many of those fake accounts that harassed me during this time - and while I was regularly sedated, drugged, and poisoned in my own home - were tech colleagues and the tech-bro pornocracy in general.
+- At the Adaptive office, I go quiet, trying to figure out what to do.
+- I know if I complain, they'll fire me.
 - I'm seriously unhappy in this role.
 - I'm pretty much made a secretary again too. It wouldn't be so bad if they were nice about it, but something else was going on.
 - One day I'm working from home and I'm requested to attend a meeting in which I'm TOTALLY ignored for two hours. 
 - My brother comes down and says, "made you a secretary again have they?" ... and that is also quite curious.
-- On one occasion they ask me what I think of Elon Musk.
+- The reason I say that is because at that time, and for many years, my brother utterly despised me and rarely spoke to me at all.
+- This hatred, curiously, began in Thailand and I wonder what really prompted it. You see, we had sort of become friends again in 2009 in Koh Samui, and any male support for an online tech-colleague porn-target would have needed to be dealt with.
+- I know he *met* a British man in Lamai who egged him into getting extraordinarily high every day and I had to go and rescue him with the Thai police.
+- I wonder if that was to make sure I didn't have any male support.
+- Back at Adaptive on one occasion they ask me what I think of Elon Musk.
 - I tell them I think he's a bit of a dick, and everyone laughs.
 - Anyway, I'm fired on the anniversary of a suicide attempt, November 6th or 7th. The very same day. 
 - For no particular reason. 
-- I think that they've just decided they don't like me, and they seem to have made that decision the moment I walked through the door.
-- I have no clue that this repeated pattern I experience in tech roles could be related to the criminal activities of the Cano Lopez's and Smith's in Spain.
-- Nevertheless, this is a psycho-emotional blow like no other, and I become immediately severely suicidal.
+- A couple of days before, the women go out for lunch together and make sure I see that I'm not included.
+- At the time, I think that they've just decided they don't like me, and they seem to have made that decision the moment I walked through the door.
+- I have no clue that this repeated pattern I experience in tech roles could be related to the criminal activities of the Cano Lopez's and Smith's in baby-rape capital of the world, Denia Spain where they even have a porn-school and thousands of missing persons presumed dead in a field up there.
+- The tech-bro pornocracy probably don't care about that.
+- No-one's gonna target their kids ... they think.
+- Nevertheless, this firing is a psycho-emotional blow like no other, and I become immediately severely suicidal.
 - I'm guessing this is exacerbated online too.
 - Indeed, for a couple of years online I have been talking *a lot* about suicide-attempt anniversaries and how difficult they are.
+- When I say that, I don't mean publicly either, I mean in private chats with friends or perhaps in personal writings.
+- Suicide anniversaries were another *theme* that came up in 2023 and I can only assume this means a target's suicide is a desired end result.
+- Perhaps they run polls to see what porn-subscribers would prefer to see and pay the most for? 
+- Did my tech-colleagues want me to commit suicide? Were they hoping for that? Or did they prefer to see me running around a field naked after a horse?
 - I actually try to find a way to take Adaptive to court but it's pretty impossible as a limited company contractor.
-- I attend a CAB consultation, I open a case with the government employment service; there's a bunch of documentation all over the place on this.
+- I attend a CAB consultation, I open a case with the government employment service, I write to my professional organization the IEEE who ignore me, of course; there's a bunch of documentation all over the place on this.
 - I do a 7-day fast and detox at Sura Detox in Devon which may have been life saving.
 - Nevertheless, my mind is on a suicide-loop, and the Valium is now exacerbating this, except I'm hopelessly addicted to it.
 

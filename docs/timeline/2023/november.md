@@ -506,7 +506,7 @@ function googleTranslateElementInit() {
     - [*Fetch*](../early-years/interim.md#fetchai), a reference to a colleague exposing himself in an online meeting that no-one helped me with, is another example brought up in a company-wide HR meeting just before I was fired by Polygon that Gabriel insisted I make sure I watched.
     - Hackers even flashed up names of men who had been extremely unpleasant towards me at work in 2018; one such person, Harsha, interrogated me continually on what I knew about my own PhD, triumphant when he had convinced himself I was an idiot, other male colleagues glaring at me while I was at my desk or in meetings.
     - It must have been an abomination for the pornocracy to have been expected to work alongside a child rape-gang survivor, the porn from which they may have even masturbated to, never mind treat them as a fellow human being!
-    - I became 100% suicidal on getting fired from the job with Adaptive and made an attempt on my life not long after.
+    - I became 100% suicidal on getting fired from [the job with Adaptive](../early-years/interim.md#hired-for-sport-again) and made an attempt on my life not long after.
     - I wonder how many more exceptional women are going through this sort of hell in tech.
     - It is, after all, a porn genre now.
 
