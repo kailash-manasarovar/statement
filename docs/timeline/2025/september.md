@@ -156,7 +156,7 @@
 
 !!! info "Remembering a whole bunch of things"
     - Yes, it happened.
-    - Update: [I'm handling it](../early-years/2015.md#colitis-symptoms), but there is no doubt the information, and my family's reactions to it, would have killed me outright not that long ago.
+    - Update: [I'm handling it](../early-years/2015.md#inexplicable-anal-fissure), but there is no doubt the information, and my family's reactions to it, would have killed me outright not that long ago.
     - The betrayal is immense, incomprehensible.
     - I was thrown to the wolves and left for dead by my own family, again and again.
     - At any moment, my father could have told the police what was going on, and at the very least warned me about what was happening so I could stop it.
