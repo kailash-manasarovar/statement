@@ -51,7 +51,7 @@ function googleTranslateElementInit() {
 
 - No-one speaks to me in Brussels.
 - I do notice a lot of snickering whenever I walk past some of the engineers I work with.
-- I even see Tom from Consensys, who would giggle hysterically while on Zoom with me - making me wonder if they were posting something just for him from my hacked laptop, ignores me
+- I even see Tom from Consensys, who would giggle hysterically while on Zoom with me (making me wonder if they were posting something just for him from my hacked laptop) ignores me
 - I wonder if Leo from Polygon was told I was a sedated rape-porn star? I thought he was a nice boy.
 - All this was just before Pelicot was found to be inviting the whole town round to rape his sedated wife and uploading it onto porn networks.
 - I guess the pre-Pelicot masculine felt it was normal, something that just happens, their privilege perhaps, and that no-one would ever be held to account.
@@ -112,7 +112,14 @@ function googleTranslateElementInit() {
 
 ### Ben says something weird, then leaves the company
 
-- WIP
+- I go back to my hotel after meeting Nicolas and bump into Ben in the foyer.
+- He comes up to me and has a bit of a rant.
+- Except, he's repeating the same words I said to [mushroom man at Bali](may.md#the-pakistani-yorkshire-man) to distract me while the conference hall emptied and the [Jitendra Das lookalike](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) could introduce himself.
+- Ben famously spend months looking for Aziz the Rust engineer, or whatever his name was.
+- I wonder at the time of writing if this is significant for a sedating event that evening in Brussels?
+- Ben leaves the company about a week later which is so strange because he had, apparently, a key role in the business.
+- I don't really understand it and wonder if he was bullied out, especially since he's repeated my bullied-person words back at me.
+- I have an obsessive good view of people who probably don't deserve it, but that's OK.
 
 ## Evidence of mass cyber-stalking technology, or something more sinister
 
