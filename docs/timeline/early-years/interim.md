@@ -124,7 +124,7 @@ function googleTranslateElementInit() {
 - I feel so safe there, like I have a whole new family.
 - It's kind of inexplicable because, apart from me and a handful of others, the majority of service users are professional drug-addicted criminals.
 - You'd think I'd be the least safe in an environment like this, but this is not what my body is telling me.
-- In retrospect, I realize that none of these men had enough finances to afford the kind of porn subscriptions my engineering tech colleagues pay for, so of course they won't have seen me regularly in porn, and for that reason, the energy they give me is cleaner and I feel safe with them.
+- In retrospect, I realize that none of these men could afford the kind of porn subscriptions my engineering tech colleagues have been paying for, so of course they won't have seen me regularly in porn, and for that reason, the energy they give me is cleaner and I feel safe with them.
 - Perhaps they have suffered similarly too.
 - Although, on a couple of occasions, in group therapy, one of the participants might make a comment which seems to suggest they know what I'm watching on Netflix at the time, or what I've read online recently.
 - That could easily be a simple prompt from their drug dealer, I guess, and of course from the same criminal gangs that controls the expensive subscriptions.
