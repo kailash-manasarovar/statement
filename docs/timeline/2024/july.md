@@ -107,26 +107,26 @@ function googleTranslateElementInit() {
 - He then jumps up onto the bed and moves towards her.
 - I wake up and feel quite unwell.
 
-### Hacking expert
+### Hacking expert - details tbc
 
 - I go to a talk on the first morning which I'm extremely interested in.
 - It is billed as a talk about hacking, specifically Twitter hacking.
 - It's very interesting and I wait to talk to the speaker at the end.
 - I explain I'm hacked really badly on Twitter/X and have been for some time.
-- I explain that they can tailor the content on my UI and control my timeline.
-- He says he can help me and gives me his card and asks me to contact him later because there's a whole bunch of people wanting to talk to him.
+- I explain that whoever is targeting me can tailor the content on my UI and control my timeline.
+- He says he can help me and gives me his card and asks me to contact him later because there's a whole bunch of people waiting to talk to him.
 - I say thanks and email him later on that day.
 - I don't get a reply for a few days.
-- When he does eventually reply, he says he can help me but it will cost £2000.
+- When he does eventually reply, he says he can help me but it will cost around £20000.
 - He's fobbing me off.
 - Someone told him to do so.
 - Who?
-- I'm beginning to understand that backend engineers at X, Google, YouTube, etc, are involved in stalking and terrorizing me as part of the female-tech-colleague-you-hate porn genre.
+- I'm beginning to understand that backend engineers at X, Google, YouTube, etc, are highly likely involved in stalking and terrorizing me as part of the *female-tech-colleague-you-hate* porn genre.
 - And why wouldn't they be.
 - I'm just wondering if there are any good men in tech and why they aren't speaking up about their depraved colleagues.
-- And how many women have died from this evil.
-- Everyone was clearly just waiting for me to die.
-- Someone was assuring them it would only be a matter of time because they *got* me.
+- And how many women they have destroyed already, or are still in the process of destroying, snickering all the way.
+- Everyone was just waiting for me to die.
+- Someone was assuring them that it would only be a matter of time.
 - And I'm still here.
 
 ### Pig butchers and crypto-transaction tracking
