@@ -109,8 +109,25 @@ function googleTranslateElementInit() {
 
 ### Hacking expert
 
-- Says he'll help me.
-- Then says it'll cost £2000.
+- I go to a talk on the first morning which I'm extremely interested in.
+- It is billed as a talk about hacking, specifically Twitter hacking.
+- It's very interesting and I wait to talk to the speaker at the end.
+- I explain I'm hacked really badly on Twitter/X and have been for some time.
+- I explain that they can tailor the content on my UI and control my timeline.
+- He says he can help me and gives me his card and asks me to contact him later because there's a whole bunch of people wanting to talk to him.
+- I say thanks and email him later on that day.
+- I don't get a reply for a few days.
+- When he does eventually reply, he says he can help me but it will cost £2000.
+- He's fobbing me off.
+- Someone told him to do so.
+- Who?
+- I'm beginning to understand that backend engineers at X, Google, YouTube, etc, are involved in stalking and terrorizing me as part of the female-tech-colleague-you-hate porn genre.
+- And why wouldn't they be.
+- I'm just wondering if there are any good men in tech and why they aren't speaking up about their depraved colleagues.
+- And how many women have died from this evil.
+- Everyone was clearly just waiting for me to die.
+- Someone was assuring them it would only be a matter of time because they *got* me.
+- And I'm still here.
 
 ### Pig butchers and crypto-transaction tracking
 
