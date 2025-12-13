@@ -122,13 +122,13 @@ function googleTranslateElementInit() {
 - He's fobbing me off.
 - Someone warned him off me.
 - Who?
-- I'm beginning to understand that backend engineers at X, Google, YouTube, etc, are highly likely involved in stalking and terrorizing me as part of the *female-tech-colleague-you-hate* porn genre.
+- I'm beginning to understand that some of the more unusual hacking techniques I experience over the last years (such as controlled Google search results) must be coming from backend engineers at X, Google, YouTube, etc, who are fully involved in stalking and terrorizing me and other women as part of the *female-tech-colleague-you-hate* porn genre or worse.
 - And why wouldn't they be.
 - I'm just wondering if there are any good men in tech and why they aren't speaking up about their depraved colleagues.
-- And how many women they have destroyed already, or are still in the process of destroying, snickering all the way.
-- Everyone was just waiting for me to die.
-- Someone was assuring them that it would only be a matter of time.
-- And I'm still here.
+- And how many women they have destroyed already, or are still in the process of destroying... snickering all the way.
+- It's obvious that everyone was just waiting for me to die.
+- Someone was assuring them, maybe still is, that it would only be a matter of time.
+- And yet, I'm still here.
 
 ### Pig butchers and crypto-transaction tracking
 
