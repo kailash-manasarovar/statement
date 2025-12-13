@@ -142,7 +142,7 @@ function googleTranslateElementInit() {
 
 - I go back to my hotel after meeting Nicolas.
 - Earlier that day, I had bumped into Ben in the hotel foyer.
-- He is standing in the middle of the hall, in my way, and he comes up to me and has a bit of a rant.
+- He is standing in the middle of the corridor, in my way, and he comes up to me and has a bit of a rant.
 - Except, he's repeating the same words I said to [mushroom man at Bali](may.md#the-pakistani-yorkshire-man) when he was distracting me while the conference hall emptied and the [Jitendra Das lookalike](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life), Aziz the Rust developer could introduce himself.
 - Ben famously spent months looking for Azif the Rust engineer, or whatever his name was. He reported this in every management meeting and just a few weeks before Bali, he announced that he'd found him.
 - Ben leaves the company about a week later which is so strange because he had, apparently, a key systems role in the business.
