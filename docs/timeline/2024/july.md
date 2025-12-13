@@ -75,28 +75,35 @@ function googleTranslateElementInit() {
 ### Gabriel Silva is given my role at Polygon
 
 - While at the conference, a number of things related to my role and status in the company happen.
-- I find Miriam to talk to her again about what's being going on.
-- Miriam, you may remember, is the [Spanish HR rep](may.md#the-pakistani-yorkshire-man) who I reported sexual harassment to.
+- The situation I'm in is ridiculous.
+- My team (Hans and Anthony) refuse to talk to me, and I'm their manager, and none of my managers will support me.
+- I don't realize Hans and Anthony have been instructed to behave this way.
+- The whole thing is inexplicable to me at the time.
+- I find Miriam, the Spanish HR representative, to talk to her again about what's being going on.
+- Miriam, you may remember, is the woman I reported [threats of sexual violence over dinner to](may.md#the-pakistani-yorkshire-man) in Bali.
+- I guess nothing happened about that.
 - I remind her that [Hans and Anthony](june.md#taking-two-weeks-vacation-from-polygon) have mutinied and made my job impossible to do.
-- She's aware of this as it was the justification for taking two weeks vacation at the last minute... and running my [UK general election campaign](june.md#uk-general-election).
+- I also remind her that Hans has done no work in months (I think now that Hans was probably contracted specifically to get me to leave post-Bali and so he doesn't actually have to do any work).
+- She's very aware of the situation, as is Paul O'Leary my manager, as it was the justification for taking two weeks vacation at the last minute... and running my [UK general election campaign](june.md#uk-general-election).
 - I tell her how stressed I am, that their behavior is insubordinate, especially Hans.
 - I tell her I'd like to step down from my role, it's too stressful, everyone hates me, no work is getting done, I can't manage a team of people who refuse to talk to me.
 - *What game are you playing*, she says.
 - I'm amazed.
-- I guess everyone has been expected me to resign, but I've no intention of it.
-- A day later, Paul O'Leary tells me that Gabriel Silva is going to take over my role.
+- I guess everyone has been expecting me to resign, but I've no intention of it.
+- A day later, Paul O'Leary tells me that they've decided Gabriel Silva is going to take over my role.
 - Gabriel is about to get married but when he's back he'll be the team manager in my place.
 - I'm relieved.
-- I don't realize, although perhaps it's obvious, that Gabriel Silva is part of any concerted efforts against me at that time.
+- I don't realize, although perhaps it's obvious, that Gabriel Silva is a key part of concerted efforts to get rid of me post-Bali.
 - Constant drugging and poisoning makes it hard to think clearly about things.
 
 #### Dreaming of Gabriel
 
+- Constant drugging and poisoning gives me strange and insightful dreams, however.
 - While Gabriel is getting married, I dream about him.
 - It's a weird dream and it feels like I'm in his head.
 - He is with his wife on their wedding night.
 - He is standing at the bottom of the bed wearing nothing but a baseball cap.
-- He has an erection and he is swinging his penis from side to side, maybe even in circles like an baby elephant's trunk.
+- He has an erection and he is swinging his penis from side to side, maybe even in circles like an baby elephant might do with their trunk.
 - He then jumps up onto the bed and moves towards her.
 - I wake up and feel quite unwell.
 
