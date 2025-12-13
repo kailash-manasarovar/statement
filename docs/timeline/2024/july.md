@@ -111,15 +111,16 @@ function googleTranslateElementInit() {
 
 - I go to a talk on the first morning which I'm extremely interested in.
 - It is billed as a talk about hacking, specifically Twitter hacking.
-- It's very interesting and I wait to talk to the speaker at the end.
+- The talk is extremely interesting and the speaker is open to communication with the audience afterwards.
+- I wait to talk to him at the end.
 - I explain I'm hacked really badly on Twitter/X and have been for some time.
 - I explain that whoever is targeting me can tailor the content on my UI and control my timeline.
-- He says he can help me and gives me his card and asks me to contact him later because there's a whole bunch of people waiting to talk to him.
+- He says he can help me and he gives me his card and asks me to contact him later because there's a whole bunch of people waiting to talk to him.
 - I say thanks and email him later on that day.
-- I don't get a reply for a few days.
+- I don't get a reply for ages, and I may send a reminder email.
 - When he does eventually reply, he says he can help me but it will cost around £20000.
 - He's fobbing me off.
-- Someone told him to do so.
+- Someone warned him off me.
 - Who?
 - I'm beginning to understand that backend engineers at X, Google, YouTube, etc, are highly likely involved in stalking and terrorizing me as part of the *female-tech-colleague-you-hate* porn genre.
 - And why wouldn't they be.
