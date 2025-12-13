@@ -74,28 +74,31 @@ function googleTranslateElementInit() {
 
 ### Gabriel Silva is given my role at Polygon
 
-- While at the conference, a number of things happen.
-- I discuss again with Miriam about what's being going on.
-- Miriam, you may remember, is the [Spanish HR rep](may.md#bali) who I reported sexual harassment to.
-- I say something has to happen, I'd like to step down from the role, it's too stressful, everyone hates me, no work is getting done, I can't manage a team of people who refuse to talk to me.
-- She speaks to me like I'm dirt on her shoe.
-- *What game are you playing*, she asks me when I say my team is subordinate.
-- Someone has been telling lies about me, it's obvious.
-- A day later, Paul tells me they've decided that Gabriel Silva is going to take over my role.
-- He is going to be getting married but when he's back he'll be the team manager.
+- While at the conference, a number of things related to my role and status in the company happen.
+- I find Miriam to talk to her again about what's being going on.
+- Miriam, you may remember, is the [Spanish HR rep](may.md#the-pakistani-yorkshire-man) who I reported sexual harassment to.
+- I remind her that [Hans and Anthony](june.md#taking-two-weeks-vacation-from-polygon) have mutinied and made my job impossible to do.
+- She's aware of this as it was the justification for taking two weeks vacation at the last minute... and running my [UK general election campaign](june.md#uk-general-election).
+- I tell her how stressed I am, that their behavior is insubordinate, especially Hans.
+- I tell her I'd like to step down from my role, it's too stressful, everyone hates me, no work is getting done, I can't manage a team of people who refuse to talk to me.
+- *What game are you playing*, she says.
+- I'm amazed.
+- I guess everyone has been expected me to resign, but I've no intention of it.
+- A day later, Paul O'Leary tells me that Gabriel Silva is going to take over my role.
+- Gabriel is about to get married but when he's back he'll be the team manager in my place.
 - I'm relieved.
-- I don't think Gabriel Silva is part of any concerted efforts against me at that time.
+- I don't realize, although perhaps it's obvious, that Gabriel Silva is part of any concerted efforts against me at that time.
+- Constant drugging and poisoning makes it hard to think clearly about things.
 
 #### Dreaming of Gabriel
 
 - While Gabriel is getting married, I dream about him.
-- It's a weird dream and feels like I'm in his head.
+- It's a weird dream and it feels like I'm in his head.
 - He is with his wife on their wedding night.
 - He is standing at the bottom of the bed wearing nothing but a baseball cap.
-- He has an erection and he is swinging his penis from side to side.
+- He has an erection and he is swinging his penis from side to side, maybe even in circles like an baby elephant's trunk.
 - He then jumps up onto the bed and moves towards her.
 - I wake up and feel quite unwell.
-- I've no idea why I might be dreaming about that.
 
 ### Hacking expert
 
