@@ -182,6 +182,34 @@ function googleTranslateElementInit() {
 - I never hear anything back from the expert in Alicante about this, or anything else.
 - My friend phones him repeatedly for updates while the receptionist fobs her off.
 
+## Criminals feel completely safe, drugging ramps up
+
+- Denia criminals have no concern about being brought to justice, even though I stood for general election in the UK.
+- They are 100% assured that they continue terrorizing me, and whatever else they've been doing regularly which at this time I'm still unaware of.
+- Drugging starts to significantly ramp up from when I arrive back in Denia.
+- I am extraordinarily high, all the time, and this is very clear to me in retrospect.
+- Also, I am regularly drugged with intense aphrodisiacs and masturbate in my home, I believe in private.
+- This also starts to become extraordinarily intense.
+
+### Opening my mouth
+
+- Something is making me so unusually sexually aroused, and I feel like there is a person there with me and I am performing fellatio on him.
+- There is no-one there.
+- I open my mouth very widely while masturbating.
+- My head tilts backwards very far too.
+- I do not understand why this is happening, it's extremely strange.
+- At the end of 2025, I am certain this is proof of extreme levels of drugging and poisoning.
+- I thought at one stage it might be the effects of methanol poisoning which I looked up during this time and found that it can make your head tilt backwards... except that was probably a hacker making a direct statement to me online, they could do that very easily, rewrite things on the UI.
+- More recently, I realize that they were creating cartoon animations of fellatio with me starring while I was doing this, probably quite professional and artistic animations, for their unique tech-bro-paying public.
+- When I am in Thailand in November 2024, men will walk towards me in the street and copy these very same head and mouth movements.
+
+### Unusually lubricated
+
+- I wake up from a nap and within minutes I feel extraordinarily sexually aroused so I go to masturbate.
+- It feels like someone is giving me instructions in my head.
+- I reach for the lubricating gel I have in a drawer beside the bed, and a voice in my heads says, *you don't need that*, and indeed, I'm extremely lubricated already.
+- At the end of 2025, I believe this is proof that I had just been sedated via the air conditioning mechanism they set up in their spy-cam apartments, and men had entered my property without my knowledge and raped me, and the lubrication I felt was the lube that they use.
+
 ## Texting Knowhere about the Russian or Ukrainian brutes
 
 - I WhatsApp Knowhere.
