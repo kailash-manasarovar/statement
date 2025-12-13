@@ -187,12 +187,14 @@ function googleTranslateElementInit() {
 
 ## Criminals feel completely safe, drugging ramps up
 
-- Denia criminals have no concern about being brought to justice, even though I stood for general election in the UK.
-- They are 100% assured that they continue terrorizing me, and whatever else they've been doing regularly which at this time I'm still unaware of.
-- Drugging starts to significantly ramp up from when I arrive back in Denia.
+- Denia criminals have zero concern about being brought to justice, even though I stood for general election in the UK.
+- They are 100% assured that they can continue terrorizing me, poisoning and drugging me, and whatever else they've been doing regularly to me which at this time I'm still unaware of (entering my flat without my knowledge, sedating me via the customized air-con system, etc).
+- Drugging significantly ramps up when I arrive back in Denia.
 - I am extraordinarily high, all the time, and this is very clear to me in retrospect.
-- Also, I am regularly drugged with intense aphrodisiacs and masturbate in my home, I believe in private.
-- This also starts to become extraordinarily intense.
+- Also, I am regularly drugged with intense aphrodisiac substances and I masturbate in my home, I believe in private.
+- This pattern also starts to become extraordinarily intense.
+- Hackers post images on Google search with people in the same position I might have been while masturbating.
+- I would masturbate under my covers in my bedroom, and after that I would see pictures of people in bed with their heads covered with blankets.
 
 ### Opening my mouth
 
@@ -224,13 +226,6 @@ function googleTranslateElementInit() {
 - She triggers the memory of [praying the rosary with the trumpet teacher](may.md#madrid) in Madrid.
 - I mention this to her.
 - She's done her job.
-
-## Sexual arousal
-
-- During the time I am back in Dénia over this month I am extraordinarily sexually aroused and masturbate often.
-- Hackers post images with people in the same position I might have been while masturbating.
-- Something was making me open my mouth and tilt my head back if I was in the bathroom, I have no idea what.
-- I would masturbate under my covers in my bedroom, and after that I would see posts of people with their heads covered in blankets.
 
 ## Zoe and the transvestite
 
