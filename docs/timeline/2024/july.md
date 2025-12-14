@@ -136,7 +136,7 @@ function googleTranslateElementInit() {
 - They first explain the whole pig-butcher industry in Cambodia and how it works.
 - I'm amazed to discover fraudsters literally live in small enclosed towns - like prisons because they're not allowed to leave - and work day and night on phishing online for Western folk with money who might part with it.
 - I'm familiar with these sorts of accounts; I had thousands ping me when I ran for general election in the UK, many of them pretending to be nice-looking, armed forces gentlemen looking for love.
-- From time to time I might message them saying; *don't worry, we're coming to free you all*, or similar which probably wasn't in good taste but I was perma-high.
+- From time to time I might message them back saying; *don't worry, we're coming to free you all*, or similar, which probably wasn't in good taste but I was perma-high.
 - The most interesting part of this talk, I found, was a couple of solid demonstrations of how crypto-ownership can be easily tracked, especially when it comes to major fraud and child sex-trafficking.
 - Very comforting.
 
@@ -151,7 +151,7 @@ function googleTranslateElementInit() {
 - He's horrified.
 - I'm nearly crying, but pull up knowing that if it starts it won't stop.
 - I'm adding this section for investigators who may need to corroborate what I told Nicos at the time, while under the effects of narcotics I was not aware of having ingested.
-- It will be a good gauge as to how much I knew at that time, just after running in the UK general election and being silenced there, and traveling back to Denia where criminal gangs are certain I will be murdered soon and so can do their worst, which they do, very brazenly and openly, and so I am writing it all down, which they did not expect.
+- It will be a good gauge as to how much I knew at that time, just after running in the UK general election and being silenced there, and traveling back to Denia where criminal gangs are certain I will be murdered soon and so can do their worst, which they do, very brazenly and openly, and so I am writing it all down, which they most certainly did not expect while digging their own pits.
 
 ### Ben says something weird, then leaves the company
 
