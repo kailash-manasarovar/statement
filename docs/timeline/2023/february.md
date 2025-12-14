@@ -51,6 +51,7 @@ function googleTranslateElementInit() {
 ## PTSD
 
 - Classes continue and I believe I'm in love with the trumpet teacher.
+- I have no idea there's [at least four men switching the trumpet teacher role](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) for spy-cam criminal porn networks.
 
 !!! tip "Disclaimer"
     - I'm always in love with someone.
@@ -58,17 +59,19 @@ function googleTranslateElementInit() {
 
 - However, whenever I'm in class with him my whole body vibrates. 
 - I have never felt like this before in my life and I reiterate that in many written messages to people while I had no idea what was going on. 
-- He starts to take interest in me at one class and ask me questions about my life. I have a severe PTSD reaction - due to child sexual abuse - where I become scared and I'm not able to talk to him without being rude.
+- He starts to take interest in me at one class and ask me questions about my life and asks me if I'm free on Mondays.
+- I have a severe PTSD reaction - due to child sexual abuse I believe - where I become scared and I'm not able to talk to him without being rude.
 - Back at home I'm upset about this because this reaction has caused me problems all my life.
 - The irony is the reaction was genuine alarm bells.
-- The man was making a pass.
+- And the man was making a pass.
 - He was suggesting that we met outside of the conservatory on Mondays as he was free in the afternoons.
-- I'm not aware of this at that time, however, and I believe he likes me and I'm devastated I cannot respond to him normally.
+- I believe he likes me and I'm devastated I cannot respond to him normally.
 - I tweet my reactions, and how I associate the trumpet teacher to the shark in Jaws.
 
 ![Hunting the shark](../../content/tweets/hunting-the-shark-feb-23.png)
 
 - The porn-gang's plan was, however, obviously, that I take him up on his offer and then they can do non-sedated switcheroo porn live from my apartment every Monday afternoon.
+- When his romantic advances fail so spectacularly, he puts his head in his hands... for the cameras I expect.
 
 ## Gang stalking at the conservatory and the promise of a relationship
 
