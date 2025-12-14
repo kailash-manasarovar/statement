@@ -151,9 +151,11 @@ function googleTranslateElementInit() {
 - One Sunday evening, late in October, I'm walking on the beach.
 - Lucia has been instructed to see if I remember her.
 - I do, but I'm depressed so I do not acknowledge her, I just smile.
+- She reports back, oh Katie didn't recognize me.
 - I wonder who told her and her husband to go to the beach that evening at that time.
-- I never saw her previously or since there.
+- I had never seen her previously nor since there at any time.
 - I guess she's a test to see how well the switcheroo brain damage herbs have worked.
+- I guess I passed, except I didn't.
 
 ## Halloween
 
