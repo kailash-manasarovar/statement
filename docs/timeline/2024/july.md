@@ -151,7 +151,7 @@ function googleTranslateElementInit() {
 - He's horrified.
 - I'm nearly crying, but pull up knowing that if it starts it won't stop.
 - I'm adding this section for investigators who may need to corroborate what I told Nicos at the time, while under the effects of narcotics I was not aware of having ingested.
-- It will be a good gauge as to how much I knew at that time, just after running in the UK general election and being silenced there, and traveling back to Denia where criminal gangs are certain I will be murdered soon and so can do their worst, which they do, very brazenly and openly, and so I am writing it all down, which they most certainly did not expect while digging their own pits.
+- It will be a good gauge as to how much I knew at that time, just after running in the UK general election and being silenced there, and traveling back to Dénia where criminal gangs are certain I will be murdered soon, and no-one will care, and so they can do their worst, which they do, very brazenly and openly, and so I am writing it all down, which they most certainly did not expect while digging their own pits.
 
 ### Ben says something weird, then leaves the company
 
