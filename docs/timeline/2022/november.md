@@ -96,6 +96,8 @@ function googleTranslateElementInit() {
 - Would I remember this man as being the same man that [showed me his face at Lourdes the year before](../2021/march.md#the-portuguese-man-next-door)?
 - If I remembered him, I might have said something and they would have delayed possibly.
 - Is this why there was such a long delay in getting started at the conservatory? I hadn't yet passed the test?
+- Had they run numerous tests over the months and were simply waiting for the time my brain was damaged enough to not remember people's faces if they switched in the same context, like a stroke patient might.
+- Was bumping into [Lucia on the beach](october.md#lucia-lorraines-friend-and-colleague) another test they mistakenly believed I had passed?
 - I did not remember the man from Lourdes in Benijembla on that day because whatever drugs and poisons I had been ingesting without my knowledge since moving into my apartment - and possibly before in Lourdes too - had successfully battered my memory and cognition.
 - It was an irony that the whole of Benijembla was celebrating a domestic violence movement that month.
 - Anyway, I passed the test, hence the grinning, which meant [the *switcheroo* porn could go ahead](../../crimes/protagonists/vidal-sastre.md#four-distinct-men), and so he turned up the following week at the conservatory, with the others, to start the Denia TV special, I expect, live-streamed on criminal and non-criminal porn networks across the world, perhaps even on Pornhub if the [Pakistani Yorkshire-man at Bali](../2024/may.md#the-pakistani-yorkshire-man) is to be believed.
