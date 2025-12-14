@@ -15,6 +15,13 @@ function googleTranslateElementInit() {
 
 ![Samuel's email](../../content/images/max-power.png)
 
+- Oh look, he's changed his name back.
+
+![Samuel's email](../../content/images/max-power-0.png)
+
+- Does "someone" tell Samuel what to do, I wonder?
+- Is it all to do with immoral debts people can never pay off, I wonder?
+
 !!! info "[Choker seed](march.md#planting-the-choker-seeds)"
     - I asked Samuel why his email name was Max Power, it seemed strange to me.
     - He did not answer my question.
