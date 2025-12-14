@@ -142,8 +142,8 @@ function googleTranslateElementInit() {
 
 ### Meeting my Belgian friend
 
-- I have a dear friend in Belgium, Nicos.
-- He's the lead singer of a rather good band, ..
+- I have a dear friend in Belgium with a fabulous name.
+- He's the lead singer of a rather good band, Mister Cover, and he does lots of other cool stuff too.
 - I take the opportunity to visit him while I'm in Brussels as he lives very close by.
 - We have a lovely evening together.
 - I explain what's been going on, how I'm being cyber-stalked online and gang-stalked at home in Spain.
