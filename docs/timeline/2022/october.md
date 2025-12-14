@@ -151,7 +151,7 @@ function googleTranslateElementInit() {
 - One Sunday evening, late in October, I'm walking on the beach.
 - I see Lucia and her husband walking towards me.
 - Lucia worked at LinguaLink with Lorraine and myself back in 2008.
-- I believe Lucia has been instructed (maybe without her knowledge) to see if I remember her.
+- I believe Lucia has been instructed (maybe without her knowledge, male porn-addict networks and their families you know) to see if I remember her.
 - I do, but I'm depressed so I do not acknowledge her, I just smile.
 - Depression makes you not want to talk to people.
 - I guess she reports back, or to her husband, oh Katie didn't recognize me.

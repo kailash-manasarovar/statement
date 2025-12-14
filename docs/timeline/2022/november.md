@@ -90,7 +90,7 @@ function googleTranslateElementInit() {
 - I'm reliably informed by rock-solid sources that the porn-gangs had started to enter my flat while I was sedated in November 2022. 
 - Let's hope all footage is released as soon as possible for the safety and well-being of Dénia's children, young people, elderly, and vulnerable women.
 
-### Passing the switcheroo test
+### Passing the switcheroo porn-ready test
 
 - I believe today that this event functioned as a *test* to see how well the constant drugging in my apartment had worked.
 - Would I remember this man as being the same man that [showed me his face at Lourdes the year before](../2021/march.md#the-portuguese-man-next-door)?
