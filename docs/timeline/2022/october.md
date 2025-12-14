@@ -82,6 +82,8 @@ function googleTranslateElementInit() {
 - Christine pushes into the conversation very quickly and says, no no no, you can't go to Angela's hairdresser.
 - It's very strange indeed.
 - Was Angela also being sedated for porn and going regularly to hair and make-up?
+- Angela complains she is getting dizzy spells, and is wobbly on her feet all the time.
+- She goes to her GP and they never help her, and her symptoms continue.
 
 ## Cindy
 
@@ -143,6 +145,15 @@ function googleTranslateElementInit() {
 
 - The English ladies often talk about a woman who died suddenly of a heart attack.
 - I had walked with her back in 2008. I remembered her vaguely.
+
+## Lucia, Lorraine's friend and colleague
+
+- One Sunday evening, late in October, I'm walking on the beach.
+- Lucia has been instructed to see if I remember her.
+- I do, but I'm depressed so I do not acknowledge her, I just smile.
+- I wonder who told her and her husband to go to the beach that evening at that time.
+- I never saw her previously or since there.
+- I guess she's a test to see how well the switcheroo brain damage herbs have worked.
 
 ## Halloween
 
