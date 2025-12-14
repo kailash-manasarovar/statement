@@ -59,7 +59,7 @@ function googleTranslateElementInit() {
 
 - However, whenever I'm in class with him my whole body vibrates. 
 - I have never felt like this before in my life and I reiterate that in many written messages to people while I had no idea what was going on. 
-- He starts to take interest in me at one class and ask me questions about my life and asks me if I'm free on Mondays.
+- He starts to take interest in me at one class and ask me questions about my life, and he asks me if I'm free on Mondays.
 - I have a severe PTSD reaction - due to child sexual abuse I believe - where I become scared and I'm not able to talk to him without being rude.
 - Back at home I'm upset about this because this reaction has caused me problems all my life.
 - The irony is the reaction was genuine alarm bells.
