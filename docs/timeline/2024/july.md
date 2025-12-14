@@ -132,11 +132,19 @@ function googleTranslateElementInit() {
 
 ### Pig butchers and crypto-transaction tracking
 
-- Very interesting talk.
+- I go to a talk given by a well-known company in the crypto space (details tbc) who track and prove crypto-ownership to held combat fraud.
+- They first explain the whole pig-butcher industry in Cambodia and how it works.
+- I'm amazed to discover fraudsters literally live in small enclosed towns - like prisons because they're not allowed to leave - and work day and night on phishing online for Western folk with money who might part with it.
+- I'm familiar with these sorts of accounts; I had thousands ping me when I ran for general election in the UK, many of them pretending to be nice-looking, armed forces gentlemen looking for love.
+- From time to time I might message them saying; *don't worry, we're coming to free you all*, or similar which probably wasn't in good taste but I was perma-high.
+- The most interesting part of this talk, I found, was a couple of solid demonstrations of how crypto-ownership can be easily tracked, especially when it comes to major fraud and child sex-trafficking.
+- Very comforting.
 
 ### Meeting my Belgian friend
 
-- WIP
+- I have a dear friend in Belgium, Nicos.
+- He's the lead singer of a rather good band, ..
+
 
 ### Ben says something weird, then leaves the company
 
