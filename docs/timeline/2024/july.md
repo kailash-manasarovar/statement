@@ -161,10 +161,10 @@ function googleTranslateElementInit() {
 - I take the opportunity to visit him while I'm in Brussels as he lives very close by.
 - We have a lovely evening together.
 - I explain what's been going on, how I'm being cyber-stalked online and gang-stalked at home in Spain.
-- I tell him they took photos and videos of a sexual nature.
+- I tell him they took photos and videos of a sexual nature and terrorized me out of the conservatory in fear for my life.
 - He's horrified.
 - I'm nearly crying, but pull up knowing that if it starts it won't stop.
-- I'm adding this section for investigators who may need to corroborate what I told Nicos at the time, while under the effects of narcotics I was not aware of having ingested.
+- I'm adding this section for investigators who may need to corroborate what I told Nicos while still under the effects of constant drugging and poisoning.
 - It will be a good gauge as to how much I knew at that time, just after running in the UK general election and being silenced there, and traveling back to Dénia where criminal gangs are certain I will be murdered soon, and no-one will care, and so they can do their worst, which they do, very brazenly and openly, and so I am writing it all down, which they most certainly did not expect while digging their own pits.
 
 ## Evidence of mass cyber-stalking technology, or something more sinister
