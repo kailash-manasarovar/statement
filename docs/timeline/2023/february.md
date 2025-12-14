@@ -61,10 +61,14 @@ function googleTranslateElementInit() {
 - He starts to take interest in me at one class and ask me questions about my life. I have a severe PTSD reaction - due to child sexual abuse - where I become scared and I'm not able to talk to him without being rude.
 - Back at home I'm upset about this because this reaction has caused me problems all my life.
 - The irony is the reaction was genuine alarm bells.
+- The man was making a pass.
+- He was suggesting that we met outside of the conservatory on Mondays as he was free in the afternoons.
 - I'm not aware of this at that time, however, and I believe he likes me and I'm devastated I cannot respond to him normally.
 - I tweet my reactions, and how I associate the trumpet teacher to the shark in Jaws.
 
 ![Hunting the shark](../../content/tweets/hunting-the-shark-feb-23.png)
+
+- The porn-gang's plan was, however, obviously, that I take him up on his offer and then they can do non-sedated switcheroo porn live from my apartment every Monday afternoon.
 
 ## Gang stalking at the conservatory and the promise of a relationship
 
