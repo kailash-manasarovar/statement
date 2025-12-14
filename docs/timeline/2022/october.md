@@ -149,13 +149,17 @@ function googleTranslateElementInit() {
 ## Lucia, Lorraine's friend and colleague
 
 - One Sunday evening, late in October, I'm walking on the beach.
-- Lucia has been instructed to see if I remember her.
+- I see Lucia and her husband walking towards me.
+- Lucia worked at LinguaLink with Lorraine and myself back in 2008.
+- I believe Lucia has been instructed (maybe without her knowledge) to see if I remember her.
 - I do, but I'm depressed so I do not acknowledge her, I just smile.
-- She reports back, oh Katie didn't recognize me.
+- Depression makes you not want to talk to people.
+- I guess she reports back, or to her husband, oh Katie didn't recognize me.
+- She made no effort to say hi to me either, by the way.
 - I wonder who told her and her husband to go to the beach that evening at that time.
-- I had never seen her previously nor since there at any time.
+- I had never seen her previously there, nor since, any time in the many years I walked that beach.
 - I guess she's a test to see how well the switcheroo brain damage herbs have worked.
-- I guess I passed, except I didn't.
+- I guess I passed, except I didn't but they weren't to know.
 
 ## Halloween
 
