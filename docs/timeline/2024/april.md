@@ -798,7 +798,7 @@ function googleTranslateElementInit() {
 
 ### Another distraction event with a boy with fetal-alcohol-syndrome
 
-- This happened before
+- This happened before.
 - Probably around September 2023 after the *switcheroo* season at the conservatory had ended and I didn't leave, and then the whole town really got involved.
 - I was walking out of the tunnel and at the entrace there was a group of gypsies.
 - A little boy was riding a toy tricycle and came up beside me on the right so I looked down.
@@ -806,7 +806,6 @@ function googleTranslateElementInit() {
 - He was small but probably a teenager pretending to be younger.
 - He looked like he had suffered from fetal-alcohol-syndrome quite badly.
 - I'm guessing while I was looking down at him and smiling, someone was applying something to some bare skin on my left side.
-- I don't remember anything after that.
 
 ## Fake account posts about "peeping at pre-schoolers"
 
