@@ -794,7 +794,8 @@ function googleTranslateElementInit() {
 
     [![Smelling toast](../../content/tweets/april-2024/smelling-toast.jpg)](https://x.com/1FRGVN/status/1784719295261384849)
 
-    - Why am I up all night tweeting exuberantly? It doesn't make any sense.
+    - Why am I up all night tweeting exuberantly?
+    - I must know what happened to make me so crazy in love. Then we'll be free.
 
 ### Another distraction event with a boy with fetal-alcohol-syndrome
 
