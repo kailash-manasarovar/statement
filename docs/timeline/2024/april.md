@@ -752,16 +752,16 @@ function googleTranslateElementInit() {
 - The child is tiny, about three or four years old, with long, blond, curly hair. She's beautiful.
 - The man has a grandfatherly look about him with long grey-white curling hair.
 - He looks a lot like Zoe BJ's dad, in fact.
-- He looks a lot like this guy who *popped up* on fake Facebook accounts, who also looks a lot like Zoe BJ's dad.
+- He also looks a lot like this guy who *popped up* on fake Facebook accounts, who also looks a lot like Zoe BJ's dad.
 
 [![Big nose](../../content/images/fake-accounts/bignose.png)](https://www.facebook.com/abdelhadi.titan/)
 
-- Zoe's dad - roadie for well-known Ismlamist Cat Stevens - wore denim dungarees just like this guy was wearing.
+- Zoe's dad - roadie for well-known Islamicist Cat Stevens - wore denim dungarees just like this guy was wearing.
 - The group are walking slowly; I suppose they're a family out for a stroll on a balmy evening.
 - I pass the group just after the crossroads with the Marquis de Campo, opposite Deutsche Bank,  although it's difficult to be precise on this and it could have been further back.
 - As I get to about two metres in front of the sauntering group, the small girl is told to run up beside me on the right, which she does.
 - I look down at her; she looks up, seems to get shy, smiles and runs back.
-- While this is happening, someone is doing something on my left side which I am unaware of; powder in my ear or neck, dissolving patch on some bare skin, some psychoactive substance is applied somehow - a [distraction technique with drug application](../../crimes/poisoning.md#distraction-techniques-before-application).
+- While this is happening, someone is doing something on my left side which I am unaware of; powder in my ear or neck, dissolving patch on some bare skin, some fast-acting psychoactive substance is applied somehow - a [distraction technique with drug application](../../crimes/poisoning.md#distraction-techniques-before-application).
 - I keep walking, the gypsies behind me.
 - I'm getting close to the top of the Calle Diana where the tunnel is.
 - There is a tapas bar on the corner, Lizarran.
