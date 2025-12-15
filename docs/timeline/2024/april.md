@@ -751,7 +751,8 @@ function googleTranslateElementInit() {
 - The man and the women are small in stature, I am taller than all of them and I'm short.
 - The child is tiny, about three or four years old, with long, blond, curly hair. She's beautiful.
 - The man has a grandfatherly look about him with long grey-white curling hair.
-- He looks a lot like this guy who *popped up* on fake Facebook accounts.
+- He looks a lot like Zoe BJ's dad, in fact.
+- He looks a lot like this guy who *popped up* on fake Facebook accounts, who also looks like Zoe's dad.
 
 [![Big nose](../../content/images/fake-accounts/bignose.png)](https://www.facebook.com/abdelhadi.titan/)
 
