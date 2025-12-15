@@ -178,7 +178,7 @@ function googleTranslateElementInit() {
 - After a couple of days back in Dénia, the sexual arousal starts up again, and it's intense.
 - Moreover, communication with the hackers begins again in earnest.
 - It starts in a very interesting way.
-- A post comes up on my `@JackChardwood` account referencing [*strawberries*](../2023/october.md#strawberries) on July 17th, and a threatening message about staying or leaving. 
+- A post comes up on my `@JackChardwood` account referencing [*strawberries*](../2023/october.md#strawberries) on July 17th with a threatening message about staying or leaving. 
 - Readers will remember the importance of [*strawberries*](../2023/october.md#strawberries) and the incident from [October 2023](../2023/october.md#strawberries).
 - It also reads like a direct threat to me if I stay.
 - I like the post and say something about how I won't be leaving as I've nowhere else to go.
@@ -189,12 +189,12 @@ function googleTranslateElementInit() {
 - This is extraordinary.
 - I've never seen anything like it on my JC account which gets no views at all usually.
 - And for this to happen on a tweet about [*strawberries*](../2023/october.md#strawberries).
-- At the time, it appeared to me that the cyber-stalkers/hackers have technology that can generate this sort of intense activity on X at the drop of a hat. 
+- At the time, it appeared to me that the cyber-stalkers/hackers have technology that can generate this sort of intense fake activity on X at the drop of a hat. 
 - I thought about it. It must be expensive technology. 
 - Why would they be using such technology, such resources, to terrorize a lone and vulnerable foreign woman in Dénia? It didn't make any sense.
 - However, if I was actually *already* very famous on spy-cam and sedated *switcheroo* porn networks, amongst others, something even my colleagues at Polygon may have been aware of and subscribing to, this random one-off event makes a lot of sense.
 - Were these 1000s of accounts actually owned by real human porn-addict men?
-- I tell my friend in Madrid (who doesn't seem to understand what I'm saying) and the expert in Alicante.
+- I tell my friend in Madrid (who doesn't seem to understand what I'm saying) and the expert from DPR in Alicante.
 - I explain the situation very clearly to the expert, with screenshots:
 
 ![Page 5 of the email thread to the perito](../../content/images/strawberries-to-the-perito.png)
