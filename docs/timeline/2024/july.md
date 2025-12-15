@@ -175,10 +175,10 @@ function googleTranslateElementInit() {
 
 - I'm back in Dénia on 15th July. 
 - I was not sexually aroused at all while away.
-- After a couple of days back in Dénia, the sexual arousal starts up again.
+- After a couple of days back in Dénia, the sexual arousal starts up again, and it's intense.
 - Moreover, communication with the hackers begins again in earnest.
 - It starts in a very interesting way.
-- A post comes up on my `@JackChardwood` account referencing [*strawberries*](../2023/october.md#strawberries) on July 17th, and something about staying or leaving. 
+- A post comes up on my `@JackChardwood` account referencing [*strawberries*](../2023/october.md#strawberries) on July 17th, and a threatening message about staying or leaving. 
 - Readers will remember the importance of [*strawberries*](../2023/october.md#strawberries) and the incident from [October 2023](../2023/october.md#strawberries).
 - It also reads like a direct threat to me if I stay.
 - I like the post and say something about how I won't be leaving as I've nowhere else to go.
@@ -202,6 +202,7 @@ function googleTranslateElementInit() {
 - See the whole [email thread to the perito](../../content/documents/evidence/comms-with-perito.pdf).
 - I never hear anything back from the expert in Alicante about this, or anything else.
 - My friend phones him repeatedly for updates while the receptionist fobs her off.
+- In retrospect it's obvious that everyone is happy for me to be murdered by the porn-gangs of Dénia, after they've had their fun and made a bit more money on my suffering.
 
 ## Criminals feel completely safe, drugging ramps up
 
