@@ -795,6 +795,7 @@ function googleTranslateElementInit() {
     [![Smelling toast](../../content/tweets/april-2024/smelling-toast.jpg)](https://x.com/1FRGVN/status/1784719295261384849)
 
     - Why am I up all night tweeting exuberantly?
+    - I said "Earlier today" at 6.07am, what did I mean by earlier?
     - I must know what happened to make me so crazy in love with no-one.
     - Then we'll be free.
 
