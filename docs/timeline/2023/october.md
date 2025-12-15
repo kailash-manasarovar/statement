@@ -222,7 +222,7 @@ function googleTranslateElementInit() {
 - I've always been sensitive, intuitive, and empathic; an easy target for bullies maybe.
 - People who suffer early trauma, and especially those of us who have been sexually abused repeatedly, develop a kind of sixth sense.
 - It's called hyper-vigilance in psychology parlance and it's part of the fight-flight-freeze-fawn cycle; i.e. if you know what you're attacker is going to do next, you are more likely to escape.
-- Add to that a kind of clairvoyant ability I'm sure I got from my dad who I like to think descended from the Tuatha Dé Danann of ancient Ireland, and a few Irish gypsy influences in the ancestry, and you might forgive someone like me having rather strange experiences if they were ever to take any psychoactive substance.
+- Add to that a kind of clairvoyant ability I'm sure I got from my grandmother on my dad's side, who I like to think descended from the Tuatha Dé Danann of ancient Ireland, and a few Irish gypsy influences in the ancestry, and you might forgive someone like me having rather strange experiences if they were ever to take any psychoactive substance.
 - It's my belief that that's exactly what I was ingesting through the water mains and any food items that had been interfered with in my apartment.
 - Just over a week after October 7th, I'm sleeping. 
 - Something drags me out of bed around 2am to write a very important tweet.
@@ -249,21 +249,13 @@ function googleTranslateElementInit() {
 
 ![Strawberries translations](../../content/tweets/october-2023/strawbs-1-translations.png)
  
-- It seems like there must have been a pause in the application of aphrodisiacs at that stage and I wonder if it was during [the time my friend, the Tibetan monk, visited](september.md#the-tibetan-monk-visits). Whenever there's a man around, the cowards tend to scurry away. Certainly, the overwhelming sexual urges returned shortly thereafter.
 - I start to see strawberries on the ground wherever I walk.
 
 ![Strawbs in Denia](../../content/images/strawbs-in-denia.png)
 
 - I'm pretty sure I've blown the mind of everyone watching.
-- On my way to conservatory one day, as I pass [this spot](https://www.google.com/maps/@38.8442052,0.1081194,3a,75y,36.63h,77.57t/data=!3m7!1e1!3m5!1sB4ssIdTdFG6H4f6v4cNyeg!2e0!6shttps:%2F%2Fstreetviewpixels-pa.googleapis.com%2Fv1%2Fthumbnail%3Fcb_client%3Dmaps_sv.tactile%26w%3D900%26h%3D600%26pitch%3D12.43052595660501%26panoid%3DB4ssIdTdFG6H4f6v4cNyeg%26yaw%3D36.626678552174724!7i16384!8i8192?entry=ttu&g_ep=EgoyMDI0MTExMy4xIKXMDSoASAFQAw%3D%3D) on the Carrer de Manuel Sanchis Guarner, there's a strawberry on the ground.
+- On my way to the conservatory one day, as I pass [this spot](https://www.google.com/maps/@38.8442052,0.1081194,3a,75y,36.63h,77.57t/data=!3m7!1e1!3m5!1sB4ssIdTdFG6H4f6v4cNyeg!2e0!6shttps:%2F%2Fstreetviewpixels-pa.googleapis.com%2Fv1%2Fthumbnail%3Fcb_client%3Dmaps_sv.tactile%26w%3D900%26h%3D600%26pitch%3D12.43052595660501%26panoid%3DB4ssIdTdFG6H4f6v4cNyeg%26yaw%3D36.626678552174724!7i16384!8i8192?entry=ttu&g_ep=EgoyMDI0MTExMy4xIKXMDSoASAFQAw%3D%3D) on the Carrer de Manuel Sanchis Guarner, there's a strawberry on the ground.
 - At the same spot, I see the fat bloke in a vest that had been behaving extremely strangely when [me and my Tibetan monk friend](../2023/september.md#the-tibetan-monk-visits) were at the beach. 
-
-!!! tip "Testosterone"
-    - I strongly suspect the strawberry feeling to have been invoked by testosterone.
-    - Testosterone raises the sex drive but it also makes one stronger and fitter.
-    - My yoga practice excelled during this period, remarkably so, and I think that further supports testosterone intake.
-    - The parallel here is with girls tricked into thinking they're boys, and taking T, and becoming pray to online sexual predators.
-    - The other parallel here is the body-building male community in the town, of which Domingo Cano is a member.
 
 ### Tweeting about being spiked in 2007
 
