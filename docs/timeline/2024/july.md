@@ -250,17 +250,20 @@ function googleTranslateElementInit() {
 - I "bump" into [Zoe](../early-years/2008.md#zoe) on the Calle Diana.
 - Zoe, who I now believe has been called in to talk to me; perhaps to see how I'm doing and report back on my state of mind.
 - She is with a transvestite.
+- Perhaps he's rented.
 - It's meant to destabilize me.
 - I shake his hand.
 - We talk.
 - It's friendly. I'm delighted to hear the little dog they had, Lola, is still alive. She was wonderful.
-- Zoe tells me about her younger daughter who is doing very well by all accounts. She says nothing about the older daughter, and I sense a shadow.
+- Zoe tells me about her younger daughter who is doing very well by all accounts. She says nothing about the older daughter Asia, and I sense a shadow.
 - I explain to her what the people at the conservatory did, in brief because she is not asking for more information, and she is not interested at all in the way she normally would be in a story like this.
 - When I mention someone dressing up as Lorraine Blackbourn at the piano concert in March, Zoe looks alarmed, scared even, but doesn't follow up.
+- Was her look of fear concern that the town-idiots are blowing the lid off a perfect porn scam in which she's implicated?
 - Zoe tells me she has been going to the police to translate for a woman in Ondara or Pedgreguer who is being terrorized by her neighbors who keep slipping nasty notes under her door.
 - I ask her if the woman is foreign. She says yes, Dutch. I say it's always the same isn't it. She doesn't respond.
 - I believe Zoe knows exactly what happened to Lorraine; perhaps everyone does.
 - Does no-one talk because they were recruited by Hazel Smith years before and are therefore implicated?
+- Or are Zoe, Marie, and all the regular foreigners who don't end up in the field with the horse key porn-gang components?
 
 ### The running girl
 
