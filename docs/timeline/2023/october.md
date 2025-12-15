@@ -257,7 +257,7 @@ function googleTranslateElementInit() {
 - On my way to the conservatory one day, as I pass [this spot](https://www.google.com/maps/@38.8442052,0.1081194,3a,75y,36.63h,77.57t/data=!3m7!1e1!3m5!1sB4ssIdTdFG6H4f6v4cNyeg!2e0!6shttps:%2F%2Fstreetviewpixels-pa.googleapis.com%2Fv1%2Fthumbnail%3Fcb_client%3Dmaps_sv.tactile%26w%3D900%26h%3D600%26pitch%3D12.43052595660501%26panoid%3DB4ssIdTdFG6H4f6v4cNyeg%26yaw%3D36.626678552174724!7i16384!8i8192?entry=ttu&g_ep=EgoyMDI0MTExMy4xIKXMDSoASAFQAw%3D%3D) on the Carrer de Manuel Sanchis Guarner, there's a strawberry on the ground.
 - At the same spot, I see the fat bloke in a vest that had been behaving extremely strangely when [me and my Tibetan monk friend](../2023/september.md#the-tibetan-monk-visits) were at the beach. 
 
-### Tweeting about being spiked in 2007
+### Tweeting about being poisoned in 2007
 
 - The gang-stalking events, online and at the conservatory, were triggering memories of events from the distance past too, such as the rape-gang from Tottenham in 1989, and other things I hadn't thought about for a long while.
 - It must have been curious for Hazel Smith and anyone she had told what had happened in 2007 to have seen me tweet content which suggested I knew, at least a little bit, about what was going on more broadly.
@@ -488,7 +488,7 @@ function googleTranslateElementInit() {
 
 ![Hazel and the sailor guy](../../content/images/haze-and-sailor-guy.png)
 
-- I find it interesting to see her because I didn't mention her specifically on [any of my tweets](#tweeting-about-being-spiked-in-2007).
+- I find it interesting to see her because I didn't mention her specifically on [any of my tweets](#tweeting-about-being-poisoned-in-2007).
 - And only she herself would understand the full implications of anything I had alluded to on X.
 - From that moment, I was certain she was involved in the gang stalking.
 - I wonder now if she is involved in the ongoing spiking/poisoning, or even the 2014 threat of poisoning from Domingo. 
