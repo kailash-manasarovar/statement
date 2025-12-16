@@ -552,7 +552,8 @@ function googleTranslateElementInit() {
 - The night before I leave for Belgium and EthCC, I take my brother out to dinner at the White Lion in East Finchley to tell him everything that has been going on for me.
 - I give him a memory stick with a bunch of files on it; X archives, complaints to the Generalitat, everything.
 - I explain how I'm being stalked continually and that whatever is happening to me in Spain is related to the Tottenham rape-gangs.
-- I explained clearly that I was danger and that if anything happened to me it would be suspicious. 
+- I explained clearly that I was danger and that if anything happened to me it would be suspicious.
+- I tell him that, dead or alive, I'm the winner. 
 - There were stalkers even in the White Lion that evening; I assumed police informants also working for criminal gangs.
 - My brother fails to hear anything I've told him, just like my mother does.
 - It's as if I said nothing at all to him.
