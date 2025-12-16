@@ -248,7 +248,7 @@ function googleTranslateElementInit() {
 
 ## Zoe and the transvestite
 
-- I "bump" into [Zoe](../early-years/2008.md#zoe) on the Calle Diana.
+- I "bump" into [Zoe](../early-years/2008.md#zoe-bj) on the Calle Diana.
 - Zoe, who I now believe has been called in to talk to me; perhaps to see how I'm doing and report back on my state of mind.
 - She is with a transvestite.
 - Perhaps he's rented.
