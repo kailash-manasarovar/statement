@@ -229,8 +229,8 @@ function googleTranslateElementInit() {
 - I looked this up and read that low-level methanol poisoning can make your head tilt backwards... except that was probably a hacker making a direct statement to me online, they were able to rewrite my whole UI at the drop of a hat.
 - I don't see a reference saying anything like that online today.
 - More recently, I realize that they were creating cartoon animations of fellatio-porn with me starring while I was doing this.
-- I'm told the animations are professional and artistic; a quality service of sexual humiliation for their unique tech-bro-porn-addict subscribers.
-- When I am in Thailand in November 2024, old white men walk towards me in the street and copy these very same head and mouth movements at me, and probably while filming my reaction too.
+- I'm told the animations are professional and artistic; a quality service of sexual humiliation for their unique tech-bro-porn-addict subscribers hooked on the female-tech-colleague-you-hate genre.
+- When I am in Thailand in November 2024, having escaped a [murder attempt at home](october.md#serious-poisoning-with-intent-to-harm-or-kill), old white men walk towards me in the street and copy these very same head and mouth movements at me, and probably while filming my reaction too.
 
 ### Unusually lubricated
 
