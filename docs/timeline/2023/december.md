@@ -174,6 +174,15 @@ function googleTranslateElementInit() {
 - It does seem likely that, although they got close from time to time, the hypno-honey-trappers were never truly successful.
 - Is that also the case with the young and inexperienced girls they target, and the minor children, or is it more likely it works every time on the young and inexperienced, and I surprised them again and again, and again?
 
+### Alessandra's psychotherapy
+
+- Alessandra is having a course of psychotherapy sessions at the time and we talk about that a lot.
+- It sounds like the therapist is deliberately not helping her.
+- Alex asks me if I would sack her.
+- I say absolutely, yes.
+- It would be very much in the interests of the porn-gangs to make sure Alex never gets any true healing - I offered her TT a lot and she never took it up.
+- If Alex did get some decent help, she might remember some unusual events around the time of being manipulated into [believing she was sick](../early-years/2009.md#alessandra-gets-sick), in my view.
+
 ## Boring Ana
 
 - As I'm driving into Lourdes on the evening of the 6th December, I'm prompted to say something curious out loud, over and over.
