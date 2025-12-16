@@ -177,7 +177,9 @@ function googleTranslateElementInit() {
 ### Alessandra's psychotherapy
 
 - Alessandra is having a course of psychotherapy sessions at the time and we talk about that a lot.
-- It sounds like the therapist is deliberately not helping her.
+- She's been suffering from low mood after recovering from the bone-marrow transplant surgery and life not being the same.
+- She feels something is not right and she needs help.
+- From what she tells me, it sounds like the therapist is deliberately not helping her.
 - Alex asks me if I would sack her.
 - I say absolutely, yes.
 - It would be very much in the interests of the porn-gangs to make sure Alex never gets any true healing - I offered her TT a lot and she never took it up.
