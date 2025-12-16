@@ -12,7 +12,7 @@
 - It's outrageous and I do not understand it.
 - I got on with everyone, it was a lovely job.
 - Again, something else is going on.
-- Chronicle Software is a company in the high-frequency trading space that [Adaptive](../early-years/interim.md#hired-for-sport-again) and many crypto firms I worked with belong in.
+- Chronicle Software is a company in the same high-frequency trading space that [Adaptive](../early-years/interim.md#hired-for-sport-again) and many crypto firms I worked with belong in.
 - Java programming is a small world, getting smaller.
 - In 2025, I think they had heard about my growing infamy, on the grapevine, and were literally just curious about me.
 - They hired me for a bit, satisfied their curiosity, and got rid of me.
