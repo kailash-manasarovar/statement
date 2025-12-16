@@ -211,9 +211,9 @@ function googleTranslateElementInit() {
 - Drugging significantly ramps up when I arrive back home.
 - I am extraordinarily high, all the time, and this is very clear to me in retrospect.
 - Also, I am regularly drugged with intense aphrodisiac substances and I masturbate in my home, I believe in private.
-- It seems like they are able to precisely time these drug effects.
-- This drugging then masturbation pattern also becomes extraordinarily intense.
-- Hackers post images on Google search with people in the same position I might have been while masturbating.
+- It seems they are able to precisely time the drug administration and its effects.
+- This daily drugging-then-masturbation pattern also becomes extraordinarily intense.
+- Hackers post images on Google search with people in the same position I was in while masturbating.
 - For example, I would masturbate under my covers in my bedroom, and after that I would see pictures of people in bed with their heads covered with blankets.
 
 ### Opening my mouth
@@ -223,11 +223,13 @@ function googleTranslateElementInit() {
 - I open my mouth very widely while masturbating.
 - My head tilts backwards too.
 - I do not understand why this is happening, it's extremely strange.
-- At the end of 2025, I am certain this is proof of extreme levels of timed drugging and poisoning.
-- I thought at one stage the my head going back might be from the effects of methanol poisoning which I looked up during this time and found that it can make your head tilt backwards... except that was probably a hacker making a direct statement to me online, they could do that very easily, rewrite things on the UI.
+- At the end of 2025, I am certain this is proof of extreme levels of timed drug-administration and poisoning.
+- I thought at one stage that my head going back might be from the effects of methanol poisoning.
+- I looked this up and read that low-level methanol poisoning can make your head tilt backwards... except that was probably a hacker making a direct statement to me online, they were able to rewrite my whole UI at the drop of a hat.
 - I don't see a reference saying anything like that online today.
-- More recently, I realize that they were creating cartoon animations of fellatio with me starring while I was doing this, probably quite professional and artistic animations, for their unique tech-bro-paying public.
-- When I am in Thailand in November 2024, men will walk towards me in the street and copy these very same head and mouth movements, and probably while filming my reaction to that too.
+- More recently, I realize that they were creating cartoon animations of fellatio-porn with me starring while I was doing this.
+- I'm told the animations are professional and artistic; a quality service of sexual humiliation for their unique tech-bro-porn-addict subscribers.
+- When I am in Thailand in November 2024, old white men walk towards me in the street and copy these very same head and mouth movements at me, and probably while filming my reaction too.
 
 ### Unusually lubricated
 
