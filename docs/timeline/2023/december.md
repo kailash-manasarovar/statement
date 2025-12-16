@@ -183,6 +183,7 @@ function googleTranslateElementInit() {
 - Alex asks me if I would sack her.
 - I say absolutely, yes.
 - It would be very much in the interests of the porn-gangs to make sure Alex never gets any true healing - I offered her TT a lot and she never took it up.
+- Did someone tell her to never enter my apartment due to the toxic load in there?
 - If Alex did get some decent help, she might remember some unusual events around the time of being manipulated into [believing she was sick](../early-years/2009.md#alessandra-gets-sick), in my view.
 
 ## Boring Ana
