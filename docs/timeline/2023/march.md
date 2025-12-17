@@ -172,12 +172,33 @@ function googleTranslateElementInit() {
 
 ## Work stress
 
-- Work is becoming extremely stressful and I'm unable to handle the normal situations that are going on there.
-- I believe most of this stress was manipulated online by Denia hackers and cyber-stalkers.
+- Work is becoming extremely stressful and I'm unable to handle normal situations.
+- I believe most of this stress was manipulated online by Dénia hackers and cyber-stalkers, exacerbated by poisons and drugging.
 - I quit my job with a tech crypto company based in New York, Digital Asset, but I have another one lined up to go to immediately at zkSync.
-- In retrospect, Digital Asset was probably a safe space and I should have continued with them. They offered me a month's stay in New York to learn their programming language and I declined due to my conservatory studies - which was insane!
-- I believe my decisions were being controlled by online manipulation coupled with drugging.
-- I start a new role at zkSync.
-- I'm starting to wonder if my role at zkSync was set up by the cyber-stalkers.
-- Looking back, it seemed likely some of the men at zkSync were aware of the [porn fatwa against me](../early-years/2003.md#porn-fatwa).
-- I'm wondering if my role at zkSync was also part of the conspiracy, as the men at that organization built up the stress and tension to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023) which was supposed to be the grand finale, and I expect my transition into being a full time porn star (no payment obviously) and an abused and extremely poor woman.
+- I believe someone reached out to me on LinkedIn at a moment I was feeling extraordinarily unhappy at work.
+- The person I spoke to online about the role worked as an engineer at the company, but ended up not existing. I never saw him in any meetings, including the all hands.
+- I did an extensive search for the person in the company data and found no reference.
+- I even asked my Spanish colleague who he was, and he didn't know him.
+- Then suddenly there was a reference to him on Slack so I left it.
+- All the fake accounts stalking my professional life are in my LinkedIn account which will need to be subpoenaed as they banned me for life on someone at Polygon's request.
+- In retrospect, Digital Asset was probably a safe space and I should have continued with them.
+- They offered me a month's stay in New York to learn their programming language but I declined due to my conservatory studies - which was insane!
+- I believe all my decisions were being controlled by online manipulation and emotional triggering coupled with drugging.
+- I start my new role at zkSync.
+- Looking back, I'm certain some of the men at zkSync were aware of the [porn fatwa against me](../early-years/2003.md#porn-fatwa); perhaps not the full story or they might have taken pause.
+- My role at zkSync was another fabulous job which turns sour the minute you walk through the door.
+- The men at zkSync also built up the stress and tension, in step with teachers and staff at the porn-school conservatory, to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023).
+- I believe this was integral to the terrorist porn-target choreography.
+- I expect many were itching to monitor my transition into a full time porn star from 12th June (no payment obviously); an abused, maimed, and extremely poor woman; eventually murdered for the worst sort of porn-addict subscriptions.
+- Make no mistake, that was the plan, that's how it always has been for women like me in Dénia.
+
+### One of my colleagues at zkSync calls me every Monday after chamber music class
+
+- One of the Ukrainian staff at zkSync, someone who is apparently of no fixed abode and moving from place to place while working for the company since the war began, takes a special interest in me.
+- He calls me frequently, and we chat about work, but nothing particularly essential.
+- He really has no need to call me.
+- My job is a joke to the engineers anyway, so any excessive interest is always a red flag.
+- The most dubious thing about these calls were that they always followed a chamber music class on a Monday evening.
+- Was he watching the switcheroo porn specials live from the conservatory and back at my home?
+- Was he curious about how a human being responds consciously after a sedated-rape event in their own home?
+- Or was he trying to become an integral part of the romance-and-sex manipulation trigger by checking in with me in person at these key moments?
