@@ -13,34 +13,38 @@ function googleTranslateElementInit() {
 - I go walking every weekend; with the English ladies on Saturdays and then on Sundays I might go for a walk on my own.
 - Whenever I walk, I notice my fingers swell up. 
 - I know this is kidney-health related.
-- I'm nauseated often in my apartment. I don't know why but I have experienced substantial vomiting fits which are a bit inexplicable. I wonder the refrigerator is so old it is leaking bacteria onto my food.
+- I'm nauseated often in my apartment. I don't know why but I have experienced substantial vomiting fits which are a bit inexplicable.
+- I wonder if maybe the refrigerator is so old it is leaking bacteria onto my food.
 - My eyes are tired and my sight is often blurry.
 
 ### Meeting Zoe and Marie while walking
 
-- One Saturday afternoon, I bump into an old friend I hadn't seen in years while walking along Las Rotas, Zoe Braganza Jones.
+- One Saturday afternoon, I bump into an old friend I hadn't seen in years while walking along Las Rotas, [Zoe Braganza Jones](../early-years/2008.md#zoe-bj).
 - She is with her Liverpudlian friend Marie (Henderson maybe).
 - Zoe tells me that Lorraine Blackbourn committed suicide.
-- I'm devastated.
+- I'm devastated. 
+- I thought Lorraine had died from illness.
+- "Her daughter found her", Zoe kept mentioning.
 - I had no idea my every move was being tracked at that time, but now it seems sensible to assume that meeting, like every meeting I had, was set up by Hazel Smith and the Cano-Lopez family.
-- I recall seeing Zoe BJ, in another finely tuned choreographic moment, in 2014 while I'm [waiting for Domingo in the car outside my apartment in Joan Fuster](../early-years/2014.md#trip-to-london).
-- When things go really bad for me, and the Cano-Lopez's make no attempt to hide the fact they are trying to murder me, and I message Zoe and Marie online, they ignore me.
+- I recall seeing Zoe BJ, in another finely-tuned choreographic moment, in 2014 while I'm [waiting for Domingo in the car outside my apartment in Joan Fuster](../early-years/2014.md#trip-to-london).
+- When things go really bad for me, and the Cano-Lopez's make no attempt to hide the fact they are trying to murder me, I reach out to Zoe and Marie online repeatedly.
+- They ignore me.
 - As the months pass, I realize every tiny interaction I have had with these people should be under scrutiny.
 - I write a detailed and non-exhaustive [list of curious events](../early-years/2008.md#zoe-bj) I remember about Zoe and her mother.
 - This particular meeting is also extremely interesting.
-- Firstly, I failed to recognize Marie initially even though I knew her well from 2006-2009 and had seen her often.
-- Marie was with a young man who I initially mistook for Luke, Zoe's brother.
-- This is very curious because the man looked nothing like Luke, I found out a little later while walking with them, but he was holding the same dog Luke had and he was the same build.
+- Firstly, I failed to recognize Marie initially even though I knew her well and had seen her often.
+- Marie was with a man who I initially mistook for Luke, Zoe's brother.
+- This is very curious because the man looked nothing like Luke, I found out a little later while walking with them, but he was holding the same type of dog Luke used to always have with him, and he was the same build and height.
 - I even asked Zoe, was that man Luke?
-- I take all this to be firm proof that I had already been successfully brain damaged to the extent that my function of recognizing objects in-and-out-of-context was severely impaired.
-- I'm guessing Zoe and Marie will have reported this back to their porn-gang bosses immediately.
-- I let them all go but catch up with them as I walk back.
-- Zoe tells me about her cousin being beheaded and how she wrote a book about it. Alessandra will confirm this when I meet her later on in the year.
-- I then catch up with Marie and the man she's with who I mistook for Luke.
-- I realize who Marie is because of her accent and I apologize for not recognizing her.
+- I take all this to be firm proof that I had already been successfully brain damaged to the extent that my function of recognizing objects in-and-out-of-context was severely impaired; the [conservatory switcheroo porn requirement](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero).
+- I'm guessing Zoe and Marie will have reported a positive on the brain damage to their porn-gang bosses immediately.
+- I say goodbye and they walk off, but I catch up with them as I walk back.
+- Zoe tells me about her cousin being beheaded and how she wrote a book about it. Alessandra [confirms this in a somewhat exhausted manner](../2023/september.md#alex-and-paul) when I meet her and Paul in late 2023.
+- I then catch up with Marie and the man she's with who, who is from Northern Ireland, the man I mistook for Luke.
+- I realize who Marie is because of her Liverpool accent and I apologize for not recognizing her previously.
 - We chat a while.
-- She tells me her older daughter is now working at the English Studio, Lorraine's business, and has an official contract.
-- I say well done.
+- She tells me her older daughter is now working at the English Studio, Lorraine's business, for Lorraine's trans-identified daughter (she says son) Jayden, and that she has an official contract.
+- I congratulate her.
 
 ## Preparing for the conservatory audition
 
