@@ -224,7 +224,7 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
 - I wondered what it could mean? It was very specific, very clear.
 - Was it an instruction?
 - Is X going down the toilet?
-- I thought a lot about that poo, and never came up with anything particularly solid.
+- I thought a lot about that poo, and never came up with anything particularly solid (no pun intended).
 - I may have tweeted about Mary owning X due to it.
 - Sorry about that.
 
