@@ -234,10 +234,13 @@ function googleTranslateElementInit() {
 
 ### Unusually lubricated
 
-- I wake up from a nap and within minutes I feel extraordinarily sexually aroused so I go to masturbate.
-- It feels like someone is giving me instructions in my head.
-- I reach for the lubricating gel I have in a drawer beside the bed, and a voice in my heads says, *you don't need that*, and indeed, I'm extremely lubricated already.
-- At the end of 2025, I believe this is proof that I had just been sedated via the air conditioning mechanism they set up in their spy-cam apartments, and men had entered my property without my knowledge and raped me, and the lubrication I felt was the lube that they use.
+- I wake up from a nap and within minutes I feel extraordinarily sexually aroused so I go back to my bedroom to masturbate.
+- It feels like someone is in my head giving me instructions.
+- I now think this was probably coming from my hacked mobile.
+- I reach for the lubricating gel I have in a drawer beside the bed, and a voice says, *you don't need that*.
+- And indeed, I'm very surprised to notice that I am extremely lubricated already.
+- I now believe this is proof that I had just been sedated via the air conditioning mechanism they set up in their spy-cam apartments, and men had entered my property without my knowledge and raped me already that day, and the lubrication I felt was the lube that they use for that purpose.
+- Just awful.
 
 ## Texting Knowhere about the Russian or Ukrainian brutes
 
