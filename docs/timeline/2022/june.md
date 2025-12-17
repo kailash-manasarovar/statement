@@ -40,7 +40,7 @@ function googleTranslateElementInit() {
 - I'm guessing Zoe and Marie will have reported a positive on the brain damage to their porn-gang bosses immediately.
 - I say goodbye and they walk off, but I catch up with them as I walk back.
 - Zoe tells me about her cousin being beheaded and how she wrote a book about it; Alessandra [confirms this in a somewhat exhausted manner](../2023/september.md#alex-and-paul) when I meet her and Paul in late 2023.
-- I then catch up with Marie and the man she's with who, who is from Northern Ireland; the man I mistook for Luke.
+- I then catch up with Marie and the white man she's with who is from Northern Ireland; the man I mistook for Luke, a brown man.
 - I realize who Marie is because of her Liverpool accent and I apologize for not recognizing her previously.
 - We chat a while.
 - She tells me her older daughter is now working at the English Studio, Lorraine's business, for Lorraine's trans-identified daughter (she says son) Jayden, and that she has an official contract.
