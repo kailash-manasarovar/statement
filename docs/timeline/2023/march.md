@@ -197,7 +197,7 @@ function googleTranslateElementInit() {
 ### One of my colleagues at zkSync calls me every Monday after chamber music class
 
 - One of the Ukrainian staff at zkSync, someone who is apparently of no fixed abode and moving from place to place while working for the company since the war began, takes a special interest in me.
-- He calls me frequently, and we chat about work, but nothing particularly essential.
+- He calls me frequently, and we chat about work, but about nothing particularly essential.
 - He really has no need to call me.
 - My job is a joke to the engineers anyway, so any excessive interest is always a red flag.
 - The most dubious thing about these calls were that they always followed a chamber music class on a Monday evening.
