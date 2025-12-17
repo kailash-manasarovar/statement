@@ -181,18 +181,18 @@ function googleTranslateElementInit() {
 - I did an extensive search for the person in the company data and found no reference.
 - I even asked my Spanish colleague who he was, and he didn't know him.
 - Then suddenly there was a reference to him on Slack, so I left it.
-- All the fake accounts stalking my professional life are in my LinkedIn account which will need to be subpoenaed as they banned me for life on someone at Polygon's request after [they fired me a few days before the porn-gangs tried to murder me at home](../2024/october.md#serious-poisoning-with-intent-to-harm-or-kill).
+- All the fake accounts stalking my professional life are in my LinkedIn account which will need to be subpoenaed as they banned me for life on someone at Polygon's request after [they fired me in October 2024, a few days before the porn-gangs tried to murder me at home](../2024/october.md#serious-poisoning-with-intent-to-harm-or-kill).
 - In retrospect, Digital Asset was probably a safe space and I should have continued with them.
 - They offered me a month's stay in New York to learn their programming language but I declined due to my conservatory studies - which was insane!
 - I believe all my decisions were being controlled by online manipulation and emotional triggering coupled with drugging.
 - I start my new role at zkSync.
 - Looking back, I'm certain some of the men at zkSync were aware of the [porn fatwa against me](../early-years/2003.md#porn-fatwa); perhaps not the full story or they might have taken pause.
 - My role at zkSync was another fabulous job which turns sour the minute you walk through the door, really sour.
-- The CTO, a British man living in California who knew Elon Musk closely from having worked with him at Tesla, pings me a gun emoji the day before a *firing day*.
-- The men at zkSync also built up the stress and tension, in-step with teachers and staff at the porn-school conservatory of Dénia, to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023), my "funeral".
+- The men at zkSync build up the stress and tension, in-step with teachers and staff at the porn-school conservatory of Dénia, to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023), my "funeral".
+- The week before the 12th, the CTO, a British man living in California who knew Elon Musk closely from having worked with him at Tesla, pings me a gun emoji the day before a *firing day*.
 - I believe this ramping up of stress and tension was an integral part of the conspiracy, and likely aired on criminal-porn channels.
 - I expect many were itching to monitor my transition from female-tech-colleague-you-hate into a full time porn star from 12th June (no payment obviously); an abused, maimed, and extremely poor woman; eventually murdered for the worst sort of porn-addict subscriptions.
-- Make no mistake, that was the plan; that's how it always has been for women like me in Dénia.
+- Make no mistake, that was the plan; that's how it always has been for thousands of women like me in Dénia.
 
 ### One of my colleagues at zkSync calls me every Monday after chamber music class
 
