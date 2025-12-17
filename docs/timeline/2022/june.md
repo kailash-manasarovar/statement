@@ -29,7 +29,7 @@ function googleTranslateElementInit() {
 - I recall seeing Zoe BJ, in another finely-tuned choreographic moment, in 2014 while I'm [waiting for Domingo in the car outside my apartment in Joan Fuster](../early-years/2014.md#trip-to-london).
 - When things go really bad for me, and the Cano-Lopez's make no attempt to hide the fact they are trying to murder me, I reach out to Zoe and Marie online repeatedly.
 - They ignore me.
-- As the months pass, I realize every tiny interaction I have had with these people should be under scrutiny.
+- As time goes by, I realize every tiny interaction I have had with these people should be under scrutiny.
 - I write a detailed and non-exhaustive [list of curious events](../early-years/2008.md#zoe-bj) I remember about Zoe and her mother.
 - This particular meeting is also extremely interesting.
 - Firstly, I failed to recognize Marie initially even though I knew her well and had seen her often.
