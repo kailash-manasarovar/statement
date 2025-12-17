@@ -287,6 +287,19 @@ function googleTranslateElementInit() {
 - Another foreigner, I guess.
 - Anyone born in the region, or having family there, will likely know what's going on and who is involved; that's why they go for newcomers mostly.
 
+## I see Mercedes in the Carrefour
+
+- I go to the Carrefour and Mercedes is behind me in the queue.
+- She looks ashamed.
+- I put my thumbs up to the cashier who laughs.
+
+## Google search
+
+- The Ana pic comes up a lot on Google search.
+- This was posted the day Ana Girbes became enraged at me and shouted about my private health matter than only someone who had access to my laptop could possibly know about.
+
+![screenshot](../../content/images/google-searches/july-24.JPG)
+
 ## Big chat with the hacker begins
 
 - A conversation begins with the hacker(s) at that point which goes on all summer.
@@ -314,16 +327,3 @@ function googleTranslateElementInit() {
 - I wear my hiker's camera on these outings.
 - I masturbate and sometimes it feels like the trumpet teacher is in my head while this is happening. 
 - Comments on fake accounts talk about things that have happened with regards to my sexual arousal which people could *only* know if there were hidden cameras in my apartment.
-
-## I see Mercedes in the Carrefour
-
-- I go to the Carrefour and Mercedes is behind me in the queue.
-- She looks ashamed.
-- I put my thumbs up to the cashier who laughs.
-
-## Google search
-
-- The Ana pic comes up a lot on Google search.
-- This was posted the day Ana Girbes became enraged at me and shouted about my private health matter than only someone who had access to my laptop could possibly know about.
-
-![screenshot](../../content/images/google-searches/july-24.JPG)
