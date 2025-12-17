@@ -173,9 +173,9 @@ function googleTranslateElementInit() {
 ## Work stress
 
 - Work is becoming extremely stressful and I'm unable to handle normal situations.
-- I believe most of this stress was manipulated online by Dénia hackers and cyber-stalkers, exacerbated by poisons and drugging.
+- I believe most of this stress was manipulated online by Dénia hackers and cyber-stalkers, and exacerbated by poisons and drugging.
 - I quit my job with an amazing crypto company based in New York, Digital Asset, but I have another one lined up to go to immediately at zkSync.
-- A headhunter reached out to me on LinkedIn at a moment I was feeling extraordinarily unhappy at DA.
+- A headhunter had reached out to me on LinkedIn at a moment I was feeling extraordinarily unhappy at DA.
 - The person I spoke to online about the role worked as an engineer at zkSync, but ended up not existing. 
 - I never saw him in any meetings, including the all hands.
 - I did an extensive search for the person in the company data and found no reference.
@@ -189,7 +189,7 @@ function googleTranslateElementInit() {
 - Looking back, I'm certain some of the men at zkSync were aware of the [porn fatwa against me](../early-years/2003.md#porn-fatwa); perhaps not the full story or they might have taken pause.
 - My role at zkSync was another fabulous job which turns sour the minute you walk through the door, really sour.
 - The men at zkSync build up the stress and tension, in-step with teachers and staff at the porn-school conservatory of Dénia, to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023), my "funeral".
-- The week before the 12th, the CTO, a British man living in California who knew Elon Musk closely from having worked with him at Tesla, pings me a gun emoji the day before a *firing day*.
+- The week before the 12th June, the CTO, a British man living in California who knew Elon Musk closely from having worked with him at Tesla, pings me a gun emoji the day before a *firing day*.
 - I believe this ramping up of stress and tension was an integral part of the conspiracy, and likely aired on criminal-porn channels.
 - I expect many were itching to monitor my transition from female-tech-colleague-you-hate into a full time porn star from 12th June (no payment obviously); an abused, maimed, and extremely poor woman; eventually murdered for the worst sort of porn-addict subscriptions.
 - Make no mistake, that was the plan; that's how it always has been for thousands of women like me in Dénia.
