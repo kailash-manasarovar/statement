@@ -271,7 +271,11 @@ function googleTranslateElementInit() {
     - June to August 2023 while conversing over Twitter, although there were obviously more than one involved in this communication. As I mentioned to Matthew Copeland at the time, I felt I had an audience.
     - After that, the pattern repeats mainly with fake account activity, such as the American account Matthew, the account from Madrid at Christmas, Beams, HierEncore, etc, any stalker account that communicated with me directly followed this pattern of abuse and harassment. 
 - So the same pattern has started to develop now within this intimate conversation we have been having that includes a discussion of targeted women over the years.
-- An account likes one of my posts one evening, and I see this extraordinarily ugly looking man on it with his daughter. It's a classic fake account, just a few pics, all of him, but he looks like an evil person.
+- An account likes one of my posts one evening, and I see this extraordinarily ugly looking man on it with a young girl of about 8 years old.
+- It's a classic fake account, just a few pics, all of him, but he looks like an evil person.
+- The young girl looks exactly like Marie Henderson's (Zoe BJ's friend) young daughter.
+- I don't notice this at the time although my brain registers it.
+- In retrospect it could have been either of the daughters when they were about eight.
 - A few days later, I see this exact same guy with a woman at the baths in Cauterets while I'm there. I'm shocked.
 - He is sitting in the same [bubbly chair](../2023/august.md#in-the-baths-at-cauterets-with-sandra-rita-diaz) where I told Sandra Rita Diaz I would tame the trumpet teacher.
 - I see him again a couple of days later in Lourdes. He nearly walks into me and his girlfriend is running after behind him worried.
