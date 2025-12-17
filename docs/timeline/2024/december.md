@@ -218,13 +218,15 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
 - On the last go, as I said about two hours after I started, I pretty much felt that was it, I could get going to my massage after I flush the toilet and wash my hands.
 - I looked into the toilet bowl.
 - The poo had formed into an X.
-- Yes, X.
+- Yes, an X.
+- An not just any X, the Twitter X itself.
 - It was a wow moment for me, I must say.
 - I wondered what it could mean? It was very specific, very clear.
 - Was it an instruction?
 - Is X going down the toilet?
 - I thought a lot about that poo, and never came up with anything particularly solid.
-- Sorry about that, I might delete this.
+- I may have tweeted about Mary owning X due to it.
+- Sorry about that.
 
 ## My Belgian friend
 
