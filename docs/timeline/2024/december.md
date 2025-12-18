@@ -250,3 +250,4 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
 - In the restaurant at the Spa Resorts.
 - British man with long greasy hair, a Spanish wife and child, and very big teeth which he bares at me.
 - Man looks like someone who had tried to rob H Samuel while I was on the till in Brent Cross in ... you guessed it ... 1989.
+- She's not Spanish.
