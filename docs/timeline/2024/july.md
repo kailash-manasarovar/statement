@@ -270,7 +270,7 @@ function googleTranslateElementInit() {
 - I'm so flabbergasted by this information when she triggers the memory of it - which is because am seriously high on whatever it is they're dosing me up on at home in Carrer Furs - I think it is meaningful, firm proof of mine and the trumpet teacher's true and divinely-blessed love!
 - I cannot explain any of this outside of being sedated in the street, or in the hotel elevator perhaps, in Madrid, and then walked back into my hotel room and that particular trumpet teacher coming in with me.
 - If that's correct, him and his cohort - the men I saw hanging around outside the hotel - will also be on CCTV.
-- It's interesting; it seems to me the gitano porn-gangs set up events with a sedated target which they will then specifically trigger memories of later on, and as long as the target is under the influence of some hallucinogen at that moment (unless they're a child and may not need so much chemical assistance), the grooming gets baked-in.
+- It's interesting; it seems to me the gitano porn-gangs set up events with a sedated target which they will then trigger specific memories of later on, and as long as the target is under the influence of some hallucinogen at that moment (unless they're a child and may not need so much chemical assistance), the grooming gets baked-in.
 
 ## Zoe and the transvestite
 
