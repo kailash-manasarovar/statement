@@ -257,10 +257,17 @@ function googleTranslateElementInit() {
 
 ## Texting with Sandra Diaz
 
-- I text Sandra Diaz during this time.
-- She triggers the memory of [praying the rosary with the trumpet teacher](may.md#madrid) in Madrid.
-- I mention this to her.
-- She's done her job.
+- Sandra sends me a WhatsApp one evening.
+- She says.. *Oh I want a man I can pray with*, and I find this lovely.
+- At this time, I'm so high and sexually aroused all the time, I can think of nothing else but the trumpet teacher.
+- Her words trigger the memory of [praying the rosary with the trumpet teacher](may.md#madrid) in Madrid.
+- I mention this to her, in a sort of amazed and dumbfounded way.
+- I had forgotten this event in the hotel in Madrid when I was praying the rosary and it was as if the trumpet teacher was standing in the room with me, very close, and we were praying the rosary together.
+- This was [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) that I remembered in September 2025 but had had a picture of since June 2023.
+- Whatever happened in Madrid that made me think he was in my room with me, Sandra knew about, or she had been primed to trigger the memory of it because obviously I had completely forgotten about it as it was so weird.
+- I'm so flabbergasted by it when she triggers the memory - which is when I am seriously high on whatever it is they're dosing me up on - I think it is meaningful, proof of mine and the trumpet teacher's true love.
+- I cannot explain any of this outside of being sedated in the street, or in the hotel elevator perhaps, in Madrid, and then walked back into my hotel room and that particular trumpet teacher coming in with me.
+- If that's correct, him and his cohort - the men I saw hanging around outside the hotel - will also be on CCTV.
 
 ## Zoe and the transvestite
 
