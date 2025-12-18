@@ -252,7 +252,8 @@ function googleTranslateElementInit() {
 
 ![Knowhere CCTV](../../content/whatsapps/nowhere-1.jpg){width=50%}![Knowhere CCTV](../../content/whatsapps/nowhere-2.jpg){width=50%}
 
-- I also gift my remaining six days I paid for using their services to my friend Elke Kopmann, likely enslaved for hard-labour by the porn-gangs of Dénia via their gitano matchmaking services.
+- I do not visit the offices - as far as I can remember - and I contact him via email instead.
+- I gift the remaining six days I paid for using the Knowhere services to my friend Elke Kopmann; likely enslaved for hard-labour by the porn-gangs of Dénia via their gitano matchmaking services.
 
 ## Texting with Sandra Diaz
 
