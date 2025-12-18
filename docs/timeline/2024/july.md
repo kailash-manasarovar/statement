@@ -244,8 +244,15 @@ function googleTranslateElementInit() {
 
 ## Texting Knowhere about the Russian or Ukrainian brutes
 
-- I WhatsApp Knowhere.
-- I added the info [here](../../evidence/whatsapps.md#asking-knowhere-if-they-have-security-cameras) but will edit back into here.
+- I send a message on WhatsApp to [Knowhere](https://www.knowheredenia.com/), the serviced office facilities in Dénia where [I was forced to work after Gordon Bishop at Polygon found evidence of hacking on my home router](march/1-12.md#reporting-hacking-to-polygon-labs).
+- I want to know if they have CCTV inside and outside the offices.
+- I want to know if cameras may have recorded the [group of threatening Russian or Ukrainian men](march/13-end.md#threatening-men-at-knowhere) who were instructed to come in and stand opposite me while I was working.
+- And I want to know if cameras may have recorded [those same men and the blond woman](march/13-end.md#leaving-the-knowhere-offices), timed precisely to walk past the door as I left the building.
+- The manager did not believe the WhatsApp was legit, and he blocked me:
+
+![Knowhere CCTV](../../content/whatsapps/nowhere-1.jpg){width=50%}![Knowhere CCTV](../../content/whatsapps/nowhere-2.jpg){width=50%}
+
+- I also gift my remaining six days I paid for using their services to my friend Elke Kopmann, likely enslaved for hard-labour by the porn-gangs of Dénia via their gitano matchmaking services.
 
 ## Texting with Sandra Diaz
 
@@ -260,7 +267,7 @@ function googleTranslateElementInit() {
 - Zoe, who I now believe has been called in to talk to me; perhaps to see how I'm doing and report back on my state of mind.
 - She is with a transvestite.
 - Perhaps he's rented.
-- It's meant to destabilize me.
+- It's meant to destabilize me, but also to ensure I don't communicate with her again.
 - I shake his hand.
 - We talk.
 - It's friendly. I'm delighted to hear the little dog they had, Lola, is still alive. She was wonderful.
