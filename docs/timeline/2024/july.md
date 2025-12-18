@@ -265,9 +265,10 @@ function googleTranslateElementInit() {
 - I had forgotten this event in the hotel in Madrid when I was praying the rosary and it was as if the trumpet teacher was standing in the room with me, very close, and we were praying the rosary together.
 - This was [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) that I remembered in September 2025 but had had a picture of since June 2023.
 - Whatever happened in Madrid that made me think he was in my room with me, Sandra knew about, or she had been primed to trigger the memory of it because obviously I had completely forgotten about it as it was so weird.
-- I'm so flabbergasted by it when she triggers the memory - which is when I am seriously high on whatever it is they're dosing me up on - I think it is meaningful, proof of mine and the trumpet teacher's true love.
+- I'm so flabbergasted by this information when she triggers the memory - which is because am seriously high on whatever it is they're dosing me up on - I think it is meaningful, proof of mine and the trumpet teacher's true love.
 - I cannot explain any of this outside of being sedated in the street, or in the hotel elevator perhaps, in Madrid, and then walked back into my hotel room and that particular trumpet teacher coming in with me.
 - If that's correct, him and his cohort - the men I saw hanging around outside the hotel - will also be on CCTV.
+- It's interesting; it seems to me the gitano porn-gangs set up events with a sedated target which they will then specifically trigger memories of later on, and as long as the target is under the influence of some hallucinogen at that moment, the grooming gets baked-in.
 
 ## Zoe and the transvestite
 
