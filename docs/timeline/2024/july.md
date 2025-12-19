@@ -291,7 +291,7 @@ function googleTranslateElementInit() {
 - In fact, she is not at all interested in my salacious story as I expect her to be, especially when I keep prompting her with *you won't believe the story, you'll just love it, it's full of love and romance... and sex*; I emphasize that bit.
 - I'm playing their own game back at her a bit.
 - Zoe remains strangely quiet as I tell her little snippets about the [Dénia porn-school phenomena - what I know at the time](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) - and how the teachers and staff have totally lost their minds and the kids there are in peril.
-- When I mention [a local woman who had followed me on the beach every day](../2023/september.md#dog-tags-and-his-missus) the year before [dressing up as Lorraine Blackbourn at the piano concert](march/1-12.md#the-piano-concert) in March, Zoe looks alarmed, scared even.
+- When I mention [a local woman who had followed me on the beach every day](../2023/september.md#dog-tags-and-his-missus), the year before, [dressing up as Lorraine Blackbourn at the piano concert](march/1-12.md#the-piano-concert) in March, Zoe looks alarmed, scared even.
 - But she doesn't follow up or ask for information.
 - Was her look of fear concern that the town-idiots are blowing the lid off a perfect porn scam that had been running for decades without issue; a hideous, monstrous, and murderous life-jail-term porn scam in which she's implicated?
 - Zoe tells me she has been going to the police to translate for a woman in Ondara or Pedreguer who is being terrorized by her neighbors who keep slipping nasty notes under her door.
@@ -308,16 +308,19 @@ function googleTranslateElementInit() {
 - I continue on with my chores. 
 - I needed to go to the post office after buying vegetables.
 - I see a woman, anxious and stressed, constantly looking at her phone, running here and there.
+- She runs alongside me, she bumps into me as I leave the post office, she's always there.
 - I know they're showing me her.
 - Another target.
-- They're also using tracking software coupled with manipulating activity (boyfriend texts, "come here now", etc... or in Alicia's case in Bali, the boss texts "come here immediately") like a real-life video game where they can move their women and children around at will, and get them to bump into each.
+- They're also showing me how they use tracking software on hacked phones coupled with manipulating honey-trap activity; for example, boyfriend texts, "come here now", etc... or in Alicia's case in Bali, the boss texts "come here immediately" in an angry way...
+- It's like they're playing a real-life video game where they can move the women and children whose phone's they control around at will, and get them to bump into each other.
 - Maybe that's extra points.
-- Curiously, the woman reminds me a little of Zoe BJ's sister.
-- She's dressed a little bit like a cheap porn star.
-- She's tall, heavily made up, dark skinned, long black straightened hair, and she's wearing a skimpy dress and massive platform boots, and her boobs are pushed up out of her dress all over the place, you know what I mean.
+- Curiously, or intentionally, the woman reminds me of Zoe BJ's sister.
+- She's dressed a like a cheap porn star.
+- She's tall, heavily made up, dark skinned, long black straightened hair, and she's wearing a skimpy dress and massive platform boots, and her fake-looking boobs are pushing up out of her dress all over the place, you know what I mean.
 - She checks her phone, sighs anxiously again, and runs off.
-- Another foreigner, I guess.
-- Anyone born in the region, or having family there, will likely know what's going on and who is involved; that's why they go for newcomers mostly.
+- Another foreigner I guess.
+- Anyone born in the region, or having family there, will know what's going on and who is involved; that's why they go for newcomers.
+- One wonders if the porn gangs have effectively made the local population prisoners in their own homes, afraid to use technology.
 
 ## I see Mercedes in the Carrefour
 
