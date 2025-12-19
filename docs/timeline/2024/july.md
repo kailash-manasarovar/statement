@@ -306,12 +306,15 @@ function googleTranslateElementInit() {
 ### The running girl
 
 - I continue on with my chores. 
-- I think I needed to go to the post office after buying vegetables.
+- I needed to go to the post office after buying vegetables.
 - I see a woman, anxious and stressed, constantly looking at her phone, running here and there.
 - I know they're showing me her.
 - Another target.
+- They're also using tracking software coupled with manipulating activity (boyfriend texts, "come here now", etc... or in Alicia's case in Bali, the boss texts "come here immediately") like a real-life video game where they can move their women and children around at will, and get them to bump into each.
+- Maybe that's extra points.
+- Curiously, the woman reminds me a little of Zoe BJ's sister.
 - She's dressed a little bit like a cheap porn star.
-- She's tall, heavily made up, dark skinned, long black straightened hair, and she's wearing a skimpy dress and massive platform boots.
+- She's tall, heavily made up, dark skinned, long black straightened hair, and she's wearing a skimpy dress and massive platform boots, and her boobs are pushed up out of her dress all over the place, you know what I mean.
 - She checks her phone, sighs anxiously again, and runs off.
 - Another foreigner, I guess.
 - Anyone born in the region, or having family there, will likely know what's going on and who is involved; that's why they go for newcomers mostly.
