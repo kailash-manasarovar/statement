@@ -287,8 +287,8 @@ function googleTranslateElementInit() {
 - She had the shortest legs but was somehow able to launch herself onto my lap in one go anytime I visited.
 - Zoe tells me about her younger daughter Yas who is doing very well by all accounts and I'm delighted.
 - She says nothing about the older daughter Asia, and I sense a shadow.
-- I explain to her how teachers and staff at the conservatory had terrorized me into fearing for my life - I tell the story in brief because she is not asking for more information.
-- She is not at all interested in my salacious story in the way she normally would be as I knew her in the past, especially when I keep prompting her with *you won't believe the story, you'll just love it, it's full of love and romance... and sex*; I emphasize that bit.
+- I explain to her how teachers and staff at the conservatory had terrorized me into fearing for my life - I tell the story in brief because she doesn't seem interested in the way she would normally be in a story like this.
+- In fact, she is not at all interested in my salacious story in the way she normally would be as I knew her in the past, especially when I keep prompting her with *you won't believe the story, you'll just love it, it's full of love and romance... and sex*; I emphasize that bit.
 - I'm playing their own game back at her a bit.
 - Zoe remains strangely quiet as I tell her little snippets about the Dénia porn-school phenomena and how the teachers and staff are totally insane and the kids there are in danger.
 - When I mention [a woman who had followed me on the beach every day](../2023/september.md#stalkers-on-the-beach) the year before [dressing up as Lorraine Blackbourn at the piano concert](march/1-12.md#the-piano-concert) in March, Zoe looks alarmed, scared even.
