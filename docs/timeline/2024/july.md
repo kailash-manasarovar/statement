@@ -274,23 +274,34 @@ function googleTranslateElementInit() {
 
 ## Zoe and the transvestite
 
-- I "bump" into [Zoe](../early-years/2008.md#zoe-bj) on the Calle Diana.
-- Zoe, who I now believe has been called in to talk to me; perhaps to see how I'm doing and report back on my state of mind.
+- I "bump" into [Zoe BJ](../early-years/2008.md#zoe-bj) on the Calle Diana.
+- Zoe has been called in to talk to me; perhaps to see how I'm doing and report back on my state of mind.
 - She is with a transvestite.
-- Perhaps he's rented.
-- It's meant to destabilize me, but also to ensure I don't communicate with her again.
+- Perhaps she rented him for the afternoon.
+- It's meant to destabilize me, but also to ensure I don't try to communicate with her again.
 - I shake his hand.
-- We talk.
-- It's friendly. I'm delighted to hear the little dog they had, Lola, is still alive. She was wonderful.
-- Zoe tells me about her younger daughter who is doing very well by all accounts. She says nothing about the older daughter Asia, and I sense a shadow.
-- I explain to her what the people at the conservatory did, in brief because she is not asking for more information, and she is not interested at all in the way she normally would be in a story like this.
-- When I mention someone dressing up as Lorraine Blackbourn at the piano concert in March, Zoe looks alarmed, scared even, but doesn't follow up.
-- Was her look of fear concern that the town-idiots are blowing the lid off a perfect porn scam in which she's implicated?
-- Zoe tells me she has been going to the police to translate for a woman in Ondara or Pedgreguer who is being terrorized by her neighbors who keep slipping nasty notes under her door.
-- I ask her if the woman is foreign. She says yes, Dutch. I say it's always the same isn't it. She doesn't respond.
-- I believe Zoe knows exactly what happened to Lorraine; perhaps everyone does.
-- Does no-one talk because they were recruited by Hazel Smith years before and are therefore implicated?
-- Or are Zoe, Marie, and all the regular foreigners who don't end up in the field with the horse key porn-gang components?
+- Zoe and I talk.
+- It's friendly.
+- I'm delighted to hear the little dog they had, Lola, is still alive. 
+- She was wonderful.
+- She had the shortest legs but was somehow able to launch herself onto my lap in one go anytime I visited.
+- Zoe tells me about her younger daughter Yas who is doing very well by all accounts and I'm delighted.
+- She says nothing about the older daughter Asia, and I sense a shadow.
+- I explain to her how teachers and staff at the conservatory had terrorized me into fearing for my life - I tell the story in brief because she is not asking for more information.
+- She is not at all interested in my salacious story in the way she normally would be as I knew her in the past, especially when I keep prompting her with *you won't believe the story, you'll just love it, it's full of love and romance... and sex*; I emphasize that bit.
+- I'm playing their own game back at her a bit.
+- Zoe remains strangely quiet as I tell her little snippets about the Dénia porn-school phenomena and how the teachers and staff are totally insane and the kids there are in danger.
+- When I mention [a woman who had followed me on the beach every day](../2023/september.md#stalkers-on-the-beach) the year before [dressing up as Lorraine Blackbourn at the piano concert](march/1-12.md#the-piano-concert) in March, Zoe looks alarmed, scared even.
+- But she doesn't follow up or ask for information.
+- Was her look of fear concern that the town-idiots are blowing the lid off a perfect porn scam that had been running for decades without issues; a hideous, monstrous and murderous life-jail-term porn scam in which she's implicated?
+- Zoe tells me she has been going to the police to translate for a woman in Ondara or Pedreguer who is being terrorized by her neighbors who keep slipping nasty notes under her door.
+- Zoe says she does this all the time for the police.
+- I ask her if the woman is foreign.
+- She says yes, Dutch. I say it's always the same isn't it.
+- She doesn't respond.
+- I believe Zoe knows exactly what happened to Lorraine; perhaps everyone in the town does.
+- Does no-one talk because they are worried about ending up dead in the field with the other women and children, and perhaps some men who made the mistake of raising the alarm.
+- Are Zoe, Marie, and all the foreign residents who don't end up in the field with the horse key porn-gang components?
 
 ### The running girl
 
