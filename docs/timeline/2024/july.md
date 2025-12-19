@@ -306,8 +306,8 @@ function googleTranslateElementInit() {
 ### The running girl
 
 - I continue on with my chores. 
-- I needed to go to the post office after buying vegetables.
-- I see a woman, anxious and stressed, constantly looking at her phone, running here and there.
+- I need to go to the post office after buying vegetables.
+- As I'm walking around the town, I see a woman, anxious and stressed, constantly looking at her phone, running here and there.
 - She runs alongside me, she bumps into me as I leave the post office, she's always there.
 - I know they're showing me her.
 - Another target.
