@@ -288,10 +288,10 @@ function googleTranslateElementInit() {
 - Zoe tells me about her younger daughter Yas who is doing very well by all accounts and I'm delighted.
 - She says nothing about the older daughter Asia, and I sense a shadow.
 - I explain to her how teachers and staff at the conservatory had terrorized me into fearing for my life - I tell the story in brief because she doesn't seem interested in the way she would normally be in a story like this.
-- In fact, she is not at all interested in my salacious story in the way she normally would be as I knew her in the past, especially when I keep prompting her with *you won't believe the story, you'll just love it, it's full of love and romance... and sex*; I emphasize that bit.
+- In fact, she is not at all interested in my salacious story as I expect her to be, especially when I keep prompting her with *you won't believe the story, you'll just love it, it's full of love and romance... and sex*; I emphasize that bit.
 - I'm playing their own game back at her a bit.
-- Zoe remains strangely quiet as I tell her little snippets about the [Dénia porn-school phenomena - what I know at the time](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) - and how the teachers and staff are totally insane and the kids there are in peril.
-- When I mention [a woman who had followed me on the beach every day](../2023/september.md#dog-tags-and-his-missus) the year before [dressing up as Lorraine Blackbourn at the piano concert](march/1-12.md#the-piano-concert) in March, Zoe looks alarmed, scared even.
+- Zoe remains strangely quiet as I tell her little snippets about the [Dénia porn-school phenomena - what I know at the time](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) - and how the teachers and staff have totally lost their minds and the kids there are in peril.
+- When I mention [a local woman who had followed me on the beach every day](../2023/september.md#dog-tags-and-his-missus) the year before [dressing up as Lorraine Blackbourn at the piano concert](march/1-12.md#the-piano-concert) in March, Zoe looks alarmed, scared even.
 - But she doesn't follow up or ask for information.
 - Was her look of fear concern that the town-idiots are blowing the lid off a perfect porn scam that had been running for decades without issue; a hideous, monstrous, and murderous life-jail-term porn scam in which she's implicated?
 - Zoe tells me she has been going to the police to translate for a woman in Ondara or Pedreguer who is being terrorized by her neighbors who keep slipping nasty notes under her door.
