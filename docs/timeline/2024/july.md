@@ -312,7 +312,7 @@ function googleTranslateElementInit() {
 - I know they're showing me her.
 - Another target.
 - They're also showing me how they use tracking software on hacked phones coupled with manipulating honey-trap activity; for example, boyfriend texts, "come here now", etc... or in Alicia's case in Bali, the boss texts "come here immediately" in an angry way...
-- It's like they're playing a real-life video game where they can move the women and children whose phone's they control around at will, and get them to bump into each other.
+- It's like they're playing a real-life video game where they can move the women and children whose phones they control around at will, and get them to bump into each other.
 - Maybe that's extra points.
 - Curiously, or intentionally, the woman reminds me of Zoe BJ's sister.
 - She's dressed a like a cheap porn star.
