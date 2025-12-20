@@ -351,8 +351,8 @@ function googleTranslateElementInit() {
 
 ## Big chat with the hacker begins
 
-- A conversation begins with the hacker(s) at that point which goes on all summer.
-- We talk via my Twitter account's profile message, and they response to me in fake account profile messages.
+- A conversation begins with the hacker(s) which goes on all summer and beyond.
+- We talk via my Twitter account's profile message, and they respond to me in fake account profile messages.
 - Here's an example of how I might ask them something.
 
 ![twitter message](../../content/images/example%20message.png)
@@ -361,18 +361,32 @@ function googleTranslateElementInit() {
 
 ![twitter reply](../../content/images/threats/marc-panico.png)
 
+- I have a better reply than that somewhere, and I've started to post the ones I have, but you get the picture.
+- A better example might be the way [they taunt me about the kidney injury they gave me](../2023/january.md#criminal-gang-cruelty).
+
+![Catherine vonRuhland](../../content/images/fake-accounts/dialysis.png)
+
+- The actual answer they gave me to my question was there were three women enduring the same as I at that time.
+- I wonder if they are part of the female-tech-colleague-you-hate porn genre.
+- I wanted the hackers to feel safe in conversation with me.
+- Obviously there is no record of my profile messages unless I screenshot them.
 - The conversation starts with me being astonished at the level of technology the hacker has at his fingertips. I realize it's his job.
 - He confirms this.
-- He says he wasn't expecting me to run for election.
+- He (or she) says he wasn't expecting me to run for election.
+- In retrospect probably most of the responses were coming directly from Hazel, but with a lot of eyes on the conversation.
 - I believe I'm talking to the trumpet teacher still, or someone close to him.
-- I joke about "whipping them up into a frenzy" and post tweets saying we're going for coffee and such like.
+- I feel the man I love is in there somewhere.
+- I joke about how Domingo "whips his students up into a frenzy".
+- I post tweets saying we're going for coffee and such like.
 - He replies he never goes out but I say I'm just messing with them.
 - I use this phrase from time to time: https://x.com/1FRGVN/status/1779265814186610831 as it references the way Domingo is somehow able to get the little girls all excited and nervous, giggly and embarrassed around him.
-- Down at the beach, young men come up to me and make references to coffee.
-- In this unusual way, we chat about things that have happened between us, that no one could know unless he told them, or is telling them; private looks we made to each other for example. I'm sure it's the trumpet teacher.
+- Down at the beach, young men come up to me and make references to coffee or other parts of our conversation.
+- In this unusual way, we chat about things that have happened between us, that no one could know unless he told them, or is telling them; private looks we made to each other for example.
+- I'm sure it's the trumpet teacher.
 - I feel extremely sexually aroused these last two weeks in July before I leave for Lourdes.
 - It's important to note that I felt no sexual arousal while I was away, it's only when I come back to Dénia and stay in my flat that this begins again.
-- I don't go out much now as it feels so dangerous but I try to go to the beach in the afternoon as there are a lot of people there, tourists.
+- I don't go out much now as it feels so dangerous and I've started to wear my body cam as much as possible.
+- I do try to go to the beach in the afternoon as there are a lot of people there, tourists.
 - I wear my hiker's camera on these outings.
-- I masturbate and sometimes it feels like the trumpet teacher is in my head while this is happening. 
+- As mentioned, I masturbate and sometimes it feels like the trumpet teacher is in my head while this is happening. 
 - Comments on fake accounts talk about things that have happened with regards to my sexual arousal which people could *only* know if there were hidden cameras in my apartment.
