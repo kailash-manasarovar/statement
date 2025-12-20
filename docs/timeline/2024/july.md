@@ -343,7 +343,7 @@ function googleTranslateElementInit() {
 
 - The boy I'm supposed to think is the trumpet teacher as a youngster comes up in first place - and has been since November 2023, and will continue to do so for at least six more months.
 - Bev White is a woman who stood in Cambridge for the Party of Women so it makes sense to see her there in July 2024.
-- The [Ana:lovi](march/1-12.md#aniloviator)'s vapid and kind of rape-apologetic answer to my poll about rape comes up in third place.
+- The [@aniloviator account](march/1-12.md#aniloviator)'s vapid and kind of rape-apologetic answer to my poll about rape comes up in third place.
 - Are they still trying to convince me [the trumpet teacher and Ana Requena](../2022/november.md#the-trumpet-teacher) are a romantic item, nearly two years down the road?
 - Do they need a myth like this for a drugged target's mind to loop on so that they can feed other triggering information in, such as the intense grooming for porn that was about to begin.
 - Is that why they picked a rape themed post?
