@@ -43,8 +43,8 @@ function googleTranslateElementInit() {
 ### Mercedes Correas Lara
 
 - Domingo's associate.
-- I believe Domingo required her to go to the Orfeo de Denia choir and "meet" me there.
-- Her husband needs a wellness and safety check at a minimum.
+- I believe Domingo required her to go to the Orfeo de Denia choir and "meet" me there, maybe others.
+- Her husband needs a wellness and safety check at a minimum, maybe an exhumation.
 
 ## Ex-pats
 
