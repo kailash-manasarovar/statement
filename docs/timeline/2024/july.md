@@ -332,6 +332,7 @@ function googleTranslateElementInit() {
 - I put my thumbs up to the cashier.
 - The cashier laughs.
 - The cashier is [the woman who was at the Buddhist temple](../early-years/2015.md#easter) at Easter in 2015 when I first found out about [Mike Wenham having found some justice](../early-years/2014.md#mike-wenham-murders-a-woman) after (being manipulated by the porn gangs into) undergoing a failed penis enlargement operation and then murdering a woman.
+- Does Mercedes know I'm permanently brain damaged from drugs and poisons, and that the gangs plan on murdering me soon?
 
 ## Google search
 
