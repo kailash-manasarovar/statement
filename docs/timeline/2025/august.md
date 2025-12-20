@@ -47,6 +47,7 @@
 
 ![Freak interview](../../content/images/fake-accounts/freak-interviewee.png)
 
+- We could look at other companies that interviewed me, even back in 2022, in a weird manner as if it was set up.
 - I wouldn't be surprised if all of these circle back to Polygon, David Schwarz and Jordi, Dénia hackers and porn production and broadcast companies.
 - If this is true, then I have literally been working with men who have watched me while I was raped sedated; possibly as a child and maybe even live if they were prepared to pay for it.
 - Perhaps they were managing the tech systems supporting the porn production and release.

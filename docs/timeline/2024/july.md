@@ -322,18 +322,29 @@ function googleTranslateElementInit() {
 - Anyone born in the region, or having family there, will know what's going on and who is involved; that's why they go for newcomers.
 - One wonders if the porn gangs have effectively made the local population prisoners in their own homes, afraid to use technology.
 
-## I see Mercedes in the Carrefour
+## Mercedes at the Carrefour
 
-- I go to the Carrefour and Mercedes is behind me in the queue.
+- I go to the Carrefour to do my shopping one Saturday.
+- Mercedes is behind me in the queue.
+- Mercedes has quite often "bumped" into me at the Carrefour over the last years.
 - She looks ashamed.
-- I put my thumbs up to the cashier who laughs.
+- She won't look me in the eye.
+- I put my thumbs up to the cashier.
+- The cashier laughs.
+- The cashier is [the woman who was at the Buddhist temple](../early-years/2015.md#easter) at Easter in 2015 when I first found out about [Mike Wenham having found some justice](../early-years/2014.md#mike-wenham-murders-a-woman) after (being manipulated by the porn gangs into) undergoing a failed penis enlargement operation and then murdering a woman.
 
 ## Google search
 
-- The Ana pic comes up a lot on Google search.
-- This was posted the day Ana Girbes became enraged at me and shouted about my private health matter than only someone who had access to my laptop could possibly know about.
+- This is a screenshot from my mobile in July 2024.
 
 ![screenshot](../../content/images/google-searches/july-24.JPG)
+
+- The boy I'm supposed to think is the trumpet teacher as a youngster still comes up in first place - and has been since November 2023, and will continue to do so for at least six more months.
+- Bev White is a woman who stood in Cambridge for the Party of Women so it makes sense to see her there in July 2024.
+- The [Ana:lovi](march/1-12.md#aniloviator)'s vapid and kind of rape-apologetic answer to my poll about rape comes up in third place.
+- Are they still trying to convince me [the trumpet teacher and Ana Requena](../2022/november.md#the-trumpet-teacher) are a romantic item, nearly two years down the road?
+- Do they need a myth like this for a drugged target's mind to loop on so that they can feed other triggering information in, such as the intense grooming for porn that was about to begin.
+- Is that why they used a rape theme?
 
 ## Big chat with the hacker begins
 
