@@ -353,7 +353,7 @@ function googleTranslateElementInit() {
 
 - A conversation begins with the hacker(s) which goes on all summer and beyond.
 - We talk via my X account's profile messages.
-- They respond to me via fake X account's that like one of my posts immediately; their response in the account name and/or profile message.
+- They respond to me via fake X accounts that like one of my posts immediately; their response in the account name and/or profile message.
 - Here's an example of how I might ask them something.
 
 ![twitter message](../../content/images/example%20message.png)
