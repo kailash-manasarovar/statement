@@ -345,7 +345,8 @@ function googleTranslateElementInit() {
 - The [Ana:lovi](march/1-12.md#aniloviator)'s vapid and kind of rape-apologetic answer to my poll about rape comes up in third place.
 - Are they still trying to convince me [the trumpet teacher and Ana Requena](../2022/november.md#the-trumpet-teacher) are a romantic item, nearly two years down the road?
 - Do they need a myth like this for a drugged target's mind to loop on so that they can feed other triggering information in, such as the intense grooming for porn that was about to begin.
-- Is that why they used a rape theme?
+- Is that why they picked a rape themed post?
+- Were Google backend engineers involved in tailoring my search results? Or do the gangs steal or buy backend logins from them?
 
 ## Big chat with the hacker begins
 
