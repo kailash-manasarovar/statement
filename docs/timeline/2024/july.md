@@ -352,7 +352,8 @@ function googleTranslateElementInit() {
 ## Big chat with the hacker begins
 
 - A conversation begins with the hacker(s) which goes on all summer and beyond.
-- We talk via my Twitter account's profile message, and they respond to me in fake account profile messages.
+- We talk via my X account's profile message.
+- They respond to me via fake X account's that like one of my posts immediately; their response in the account name and/or profile message.
 - Here's an example of how I might ask them something.
 
 ![twitter message](../../content/images/example%20message.png)
@@ -361,32 +362,42 @@ function googleTranslateElementInit() {
 
 ![twitter reply](../../content/images/threats/marc-panico.png)
 
-- I have a better reply than that somewhere, and I've started to post the ones I have, but you get the picture.
-- A better example might be the way [they taunt me about the kidney injury they gave me](../2023/january.md#criminal-gang-cruelty).
+- I have a better reply than this somewhere, and I've started to post the ones I have, but you get the picture.
+- That was, in fact, a reply that came directly after [I went public in September 2023](../2023/september.md#going-public-on-twitter) in an early attempt at fighting back.
+- A more obvious example might be the way [they taunted me relentlessly about the kidney injury they gave me](../2023/january.md#criminal-gang-cruelty) and the porn specials they put me in (`kissbangchristmas` is the reference to that here).
 
 ![Catherine vonRuhland](../../content/images/fake-accounts/dialysis.png)
 
-- The actual answer they gave me to my question was there were three women enduring the same as I at that time.
-- I wonder if they are part of the female-tech-colleague-you-hate porn genre.
-- I wanted the hackers to feel safe in conversation with me.
-- Obviously there is no record of my profile messages unless I screenshot them.
-- The conversation starts with me being astonished at the level of technology the hacker has at his fingertips. I realize it's his job.
+- The actual answer they gave me to my question about how many women they were surveilling at any time was three; three women enduring the same as I at that time.
+- I wonder if they were also part of the female-tech-colleague-you-hate porn genre, or perhaps their subscriber audience was from another industry, sports maybe? Or the Spanish civil service?
+- A lot of the comments over this period were in regard to sexual arousal and masturbation and I was starting to realize there must be cameras in my apartment.
+- Nevertheless, I wanted the hackers to feel safe conversing with me.
+- Obviously there is no record of my profile messages unless I screenshot them, and they could tell if I was doing that as they had total access to my devices - and I was aware of it - so I only screenshot one example.
+- The conversation starts with me being astonished at the level of technology the hacker has at his fingertips.
+- I realize it's his job; he's not just a silly boy having a laugh with his idiot mates, this is big business.
 - He confirms this.
 - He (or she) says he wasn't expecting me to run for election.
-- In retrospect probably most of the responses were coming directly from Hazel, but with a lot of eyes on the conversation.
+- In retrospect probably many of the responses were coming directly from Hazel, but with a lot more eyes on the conversation.
 - I believe I'm talking to the trumpet teacher still, or someone close to him.
-- I feel the man I love is in there somewhere.
+- I feel the man I love is in there somewhere, and from time to time we are talking directly.
 - I joke about how Domingo "whips his students up into a frenzy".
+
+[![Whipping them up into a frenzy](../../content/tweets/whipping-them-up-into-a-frenzy.png)](https://x.com/1FRGVN/status/1779265814186610831)
+
+- It's what I saw with my own eyes; his female students flushed, excited, breathless, giggly, nervous, ... horrifying.
 - I post tweets saying we're going for coffee and such like.
-- He replies he never goes out but I say I'm just messing with them.
-- I use this phrase from time to time: https://x.com/1FRGVN/status/1779265814186610831 as it references the way Domingo is somehow able to get the little girls all excited and nervous, giggly and embarrassed around him.
-- Down at the beach, young men come up to me and make references to coffee or other parts of our conversation.
+- I post a whole series of tweets I call the "Is it true..." series.
+- "Is it true" was a sort of comedy special where I would say things like: "Is it true since you met me women and girls have started unlocking their doors up and down the Marina Alta."
+- Things like that.
+- I believe I got a few laughs with that one.
+- Down at the Las Marinas beach, young men come up to me and make references to coffee, or the Mena restaurant, or other parts of our conversation we've had that day.
 - In this unusual way, we chat about things that have happened between us, that no one could know unless he told them, or is telling them; private looks we made to each other for example.
 - I'm sure it's the trumpet teacher.
-- I feel extremely sexually aroused these last two weeks in July before I leave for Lourdes.
-- It's important to note that I felt no sexual arousal while I was away, it's only when I come back to Dénia and stay in my flat that this begins again.
-- I don't go out much now as it feels so dangerous and I've started to wear my body cam as much as possible.
-- I do try to go to the beach in the afternoon as there are a lot of people there, tourists.
+- Of course I have no idea how many thousands of eyes are on me from all over the world.
+- Even through the euphoria and hallucinogens, I am beginning to realize I'm dealing with something extraordinarily sinister, however.
+- I feel extremely sexually aroused these last two weeks in July in Dénia before I leave for Lourdes and the Pyrenees for the summer.
+- It's only when I got back to Dénia and back in my apartment that the sexual arousal begins again.
+- I don't go out much now as it feels so dangerous.
+- I've started to wear my body cam as much as possible.
+- I do try to go to the beach in the afternoon as there are a lot of tourists there and I believe this makes me relatively safer.
 - I wear my hiker's camera on these outings.
-- As mentioned, I masturbate and sometimes it feels like the trumpet teacher is in my head while this is happening. 
-- Comments on fake accounts talk about things that have happened with regards to my sexual arousal which people could *only* know if there were hidden cameras in my apartment.
