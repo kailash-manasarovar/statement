@@ -352,7 +352,7 @@ function googleTranslateElementInit() {
 ## Big chat with the hacker begins
 
 - A conversation begins with the hacker(s) which goes on all summer and beyond.
-- We talk via my X account's profile message.
+- We talk via my X account's profile messages.
 - They respond to me via fake X account's that like one of my posts immediately; their response in the account name and/or profile message.
 - Here's an example of how I might ask them something.
 
@@ -368,11 +368,11 @@ function googleTranslateElementInit() {
 
 ![Catherine vonRuhland](../../content/images/fake-accounts/dialysis.png)
 
-- The actual answer they gave me to my question about how many women they were surveilling at any time was three; three women enduring the same as I at that time.
-- I wonder if they were also part of the female-tech-colleague-you-hate porn genre, or perhaps their subscriber audience was from another industry, sports maybe? Or the Spanish civil service?
+- The actual answer they gave to my question about how many women they were surveilling at any time was three; three women enduring the same as I at that time.
+- I wonder if those women were also part of the *female-tech-colleague-you-hate* porn genre, or perhaps their subscriber audience was from another industry, sports maybe? Or the Spanish civil service?
 - A lot of the comments over this period were in regard to sexual arousal and masturbation and I was starting to realize there must be cameras in my apartment.
 - Nevertheless, I wanted the hackers to feel safe conversing with me.
-- Obviously there is no record of my profile messages unless I screenshot them, and they could tell if I was doing that as they had total access to my devices - and I was aware of it - so I only screenshot one example.
+- Obviously there is no record of my profile messages unless I screenshot them, and they could tell if I was doing that as they had total access to my devices - and I was aware of that - so I only screenshot one example.
 - The conversation starts with me being astonished at the level of technology the hacker has at his fingertips.
 - I realize it's his job; he's not just a silly boy having a laugh with his idiot mates, this is big business.
 - He confirms this.
@@ -385,19 +385,19 @@ function googleTranslateElementInit() {
 [![Whipping them up into a frenzy](../../content/tweets/whipping-them-up-into-a-frenzy.png)](https://x.com/1FRGVN/status/1779265814186610831)
 
 - It's what I saw with my own eyes; his female students flushed, excited, breathless, giggly, nervous, ... horrifying.
-- I post tweets saying we're going for coffee and such like.
+- I post tweets saying let's go for coffee and such like.
 - I post a whole series of tweets I call the "Is it true..." series.
 - "Is it true" was a sort of comedy special where I would say things like: "Is it true since you met me women and girls have started unlocking their doors up and down the Marina Alta."
 - Things like that.
 - I believe I got a few laughs with that one.
-- Down at the Las Marinas beach, young men come up to me and make references to coffee, or the Mena restaurant, or other parts of our conversation we've had that day.
 - In this unusual way, we chat about things that have happened between us, that no one could know unless he told them, or is telling them; private looks we made to each other for example.
 - I'm sure it's the trumpet teacher.
 - Of course I have no idea how many thousands of eyes are on me from all over the world.
 - Even through the euphoria and hallucinogens, I am beginning to realize I'm dealing with something extraordinarily sinister, however.
-- I feel extremely sexually aroused these last two weeks in July in Dénia before I leave for Lourdes and the Pyrenees for the summer.
-- It's only when I got back to Dénia and back in my apartment that the sexual arousal begins again.
+- As mentioned previously, I feel extremely sexually aroused these last two weeks in July in Dénia before I leave for Lourdes and the Pyrenees for the summer.
+- It's only when I got back to Dénia from the UK and back in my apartment that the sexual arousal fires up again.
 - I don't go out much now as it feels so dangerous.
 - I've started to wear my body cam as much as possible.
 - I do try to go to the beach in the afternoon as there are a lot of tourists there and I believe this makes me relatively safer.
+- Down at the Las Marinas beach, young men come up to me and make references to coffee at the Mena restaurant, or other parts of our conversation we've had that day.
 - I wear my hiker's camera on these outings.
