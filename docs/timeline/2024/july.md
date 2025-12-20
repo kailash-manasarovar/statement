@@ -325,10 +325,10 @@ function googleTranslateElementInit() {
 ## Mercedes at the Carrefour
 
 - I go to the Carrefour to do my shopping one Saturday.
-- Mercedes is behind me in the queue.
+- [Mercedes](../../crimes/introduction-agents.md#mercedes-correas-lara) is behind me in the queue.
 - Mercedes has quite often "bumped" into me at the Carrefour over the last years.
 - She looks ashamed.
-- She won't look me in the eye.
+- She can't or won't look me in the eye.
 - I put my thumbs up to the cashier.
 - The cashier laughs.
 - The cashier is [the woman who was at the Buddhist temple](../early-years/2015.md#easter) at Easter in 2015 when I first found out about [Mike Wenham having found some justice](../early-years/2014.md#mike-wenham-murders-a-woman) after (being manipulated by the porn gangs into) undergoing a failed penis enlargement operation and then murdering a woman.
