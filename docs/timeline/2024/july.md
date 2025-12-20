@@ -329,18 +329,19 @@ function googleTranslateElementInit() {
 - Mercedes has quite often "bumped" into me at the Carrefour over the last years.
 - She looks ashamed.
 - She can't or won't look me in the eye.
-- I put my thumbs up to the cashier.
+- I give the thumbs-up to the cashier.
 - The cashier laughs.
 - The cashier is [the woman who was at the Buddhist temple](../early-years/2015.md#easter) at Easter in 2015 when I first found out about [Mike Wenham having found some justice](../early-years/2014.md#mike-wenham-murders-a-woman) after (being manipulated by the porn gangs into) undergoing a failed penis enlargement operation and then murdering a woman.
 - Does Mercedes know I'm permanently brain damaged from drugs and poisons, and that the gangs plan on murdering me soon?
 
 ## Google search
 
+- My Google search results on "@1frgvn X", "@1frgvn Twitter", "@jctot19 X", and "@jctot19 Twitter" continue to have porn-gang target significance.
 - This is a screenshot from my mobile in July 2024.
 
 ![screenshot](../../content/images/google-searches/july-24.JPG)
 
-- The boy I'm supposed to think is the trumpet teacher as a youngster still comes up in first place - and has been since November 2023, and will continue to do so for at least six more months.
+- The boy I'm supposed to think is the trumpet teacher as a youngster comes up in first place - and has been since November 2023, and will continue to do so for at least six more months.
 - Bev White is a woman who stood in Cambridge for the Party of Women so it makes sense to see her there in July 2024.
 - The [Ana:lovi](march/1-12.md#aniloviator)'s vapid and kind of rape-apologetic answer to my poll about rape comes up in third place.
 - Are they still trying to convince me [the trumpet teacher and Ana Requena](../2022/november.md#the-trumpet-teacher) are a romantic item, nearly two years down the road?
