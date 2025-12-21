@@ -37,7 +37,7 @@ function googleTranslateElementInit() {
 
 - Soon after the [Chronicle Software](january.md#chronicle-software) role goes sour, I'm offered a new contract with a crypto company [Qredo](https://www.qredo.com/).
 - On the first day, I see a name fly-by on Slack: *Anita Diamond*.
-- You may remember [Anita and her husband visiting me in Dénia in 2006](../early-years/2006.md#matthew-and-anita-say-something-i-only-mentioned-online), just before the [Dave Porter Guardian Soulmates porn-fatwa fiasco](../early-years/2006.md#guardian-soulmates), orchestrated online by [world-famous poisoner and serial-killer Hazel Smith](../early-years/2007.md#hazel-smith) and her manipulation-tech associates.
+- You may remember [Anita and her husband visiting me in Dénia in 2006](../early-years/2006.md#matthew-goes-upstairs-on-his-own), just before the [Dave Porter Guardian Soulmates porn-fatwa fiasco](../early-years/2006.md#guardian-soulmates), orchestrated online by [world-famous poisoner and serial-killer Hazel Smith](../early-years/2007.md#hazel-smith) and her manipulation-tech associates.
 - This is a huge coincidence - or is it?
 - Anita Diamond, it turns out, is also working as a technical writer for the company, the role I've just been hired for.
 - Did they really need two?
@@ -56,9 +56,9 @@ function googleTranslateElementInit() {
 - I'm scratching my chin now, just like [Harsha did in 2018](../early-years/interim.md#hired-for-sport-again) at Adaptive.
 - I'm tasked with writing their Whitepaper.
 - I produce a detailed and honest description of everything they have, without ever once saying *it's never gonna work*.
-- They hire another writer who works with the CTO (*he's the man* Anita told me, in a kind of breathless reverence), who had been out of the company for a short period while he was in rehab - I was told. 
+- They quietly hire another writer I never meet, who works with the CTO (*he's the man*, Anita told me, in a kind of breathless reverence), who had been out of the company for a short period while he was in rehab - I was told. 
 - I wondered if they meant prison.
-- Anyway, the first time I notice that my entire UI can be hacked (I'm on a company laptop), they publish my Whitepaper on their website, the honest one, but I can only see it from my laptop.
+- Anyway, the first time I notice that my entire UI can be hacked and rewritten (I'm on a company laptop), they publish my Whitepaper on their website, the honest one, but I can only see it from my laptop.
 - When I look the company up from a different device on a completely different network I see something very different.
 - Publicly, I see a document containing total lies about the tech; that it's robust, fast, secure, that it can cope with heavy load.
 - They never mention the Raspberry Pis.
@@ -72,7 +72,7 @@ function googleTranslateElementInit() {
 - I'm so appalled at Qredo's blatant lies, I report them to a SEC lawyer.
 - The lawyer tells me they're not interested in taking it any further - small fry, I guess.
 - Of course it's only now thinking back I realize that all those communications were monitored by international porn gangs, perhaps even with Qredo's knowledge.
-- Horrifyingly, when I join ConsenSys, I find out that one of my team's is working closely with Qredo and this is one of the reasons they were interested in hiring me.
+- Horrifyingly, when I join ConsenSys, I find out that one of my teams is working closely with Qredo and this is one of the reasons they were interested in hiring me.
 - I've no option but to tell ConsenSys the truth, which probably explains the tantrums and ridiculousness from French male engineers, some of whom most definitely will have had a subscription to the sedated switcheroo.
 - Was the Qredo role with Anita Diamond a staggering overplay by the global male porn-addict tech elite? 
 - Or an investigatory gauge on how much dedicated effort would be required, and how many tech-bro porn addicts were expected to sign up and pay for expensive subscriptions for the [*switcheroo* sedated rape-porn planned for me on my inevitable and already-being-prepared return to Dénia](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
