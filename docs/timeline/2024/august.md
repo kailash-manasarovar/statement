@@ -282,7 +282,7 @@ function googleTranslateElementInit() {
 - I believe this could have been a distract and drug... she came up on the right side...
 - I would recognize him again.
 - I add a note to this effect in my handwritten letter which you will see at the back on [page 21 and 22](../../content/documents/letters/scanned-hand-written-letter.pdf).
-- I think I know who this is, bizarrely.
+- I think I know who this person is, bizarrely.
 
 ## Suspected targets 
 
