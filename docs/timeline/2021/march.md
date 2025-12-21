@@ -36,41 +36,44 @@ function googleTranslateElementInit() {
 ## Qredo
 
 - Soon after the [Chronicle Software](january.md#chronicle-software) role goes sour, I'm offered a new contract with a crypto company [Qredo](https://www.qredo.com/).
-- On the first day, I see a name fly by on Slack: *Anita Diamond*.
-- You may remember [Anita and her husband visiting me in Dénia in 2006](../early-years/2006.md#matthew-and-anita-say-something-i-only-mentioned-online), just before the [Dave Porter Guardian Soulmates porn-fatwa fiasco](../early-years/2006.md#guardian-soulmates), orchestrated online by Hazel Smith and her manipulation-tech associates.
-- Anita Diamond, it turns out, is also working as a technical writer for the company, the role I've just been hired for.
+- On the first day, I see a name fly-by on Slack: *Anita Diamond*.
+- You may remember [Anita and her husband visiting me in Dénia in 2006](../early-years/2006.md#matthew-and-anita-say-something-i-only-mentioned-online), just before the [Dave Porter Guardian Soulmates porn-fatwa fiasco](../early-years/2006.md#guardian-soulmates), orchestrated online by [world-famous poisoner and serial-killer Hazel Smith](../early-years/2007.md#hazel-smith) and her manipulation-tech associates.
 - This is a huge coincidence - or is it?
-- I'm very surprised to see Anita, an old and dear friend who has suffered from serious mental health issues ever since she was a teenager.
-- Like all the porn-gang-tailored relationships, something happens when they're done with you that ensures you don't maintain communication.
+- Anita Diamond, it turns out, is also working as a technical writer for the company, the role I've just been hired for.
+- Did they really need two?
+- I'm very surprised to see Anita, an old, dear, and vulnerable friend who has suffered from serious mental health issues ever since she was a teenager.
+- Like all porn-gang-tailored relationships, something happens when they're done with you that ensures you don't maintain communication.
 - Anita and Matthew had been [rather unpleasant with me](../early-years/2006.md#matthew-and-anita-say-something-i-only-mentioned-online) after they visited, so I'm not entirely thrilled to see her and wonder how things are going to be with her.
 - Of course, we reconnect, and I'm friendly and happy to see her.
-- I am delighted to see her, in fact, and remember only the good things I always loved about her.
+- I am delighted to see her, in fact, and remember only the good things I always loved about her when we were at school together.
 - Nevertheless, something is off.
 - She keeps mentioning things related to me being targeted by the North London rape gangs back in 1989, and, as she says these things - *oh you loved the rave scene didn't you*, etc, I'm certain she is doing it to upset me.
 - I file it away.
-- Did Matthew tell her to say these things?
+- Did Matthew her husband tell her to say these things?
 - Anyway, Qredo was a scam company.
-- They had a backend system which was supposed to run millions of crypto transactions safely and securely, but in truth it was eight [Raspberry Pis](https://www.raspberrypi.com/), that kept failing, networked up together.
+- They had a backend system which was supposed to run millions of crypto transactions safely and securely, but in truth it was eight [Raspberry Pis](https://www.raspberrypi.com/), that kept failing, networked together with string, knots, and bandages.
 - Raspberry Pis are how schoolkids learn about computing.
-- I'm scratching my chin now, just like [Harsha did in 2018](../early-years/interim.md#hired-for-sport-again).
+- I'm scratching my chin now, just like [Harsha did in 2018](../early-years/interim.md#hired-for-sport-again) at Adaptive.
 - I'm tasked with writing their Whitepaper.
-- I produce a detailed and honest description of everything they have, without saying *it's never gonna work*.
+- I produce a detailed and honest description of everything they have, without ever once saying *it's never gonna work*.
 - They hire another writer who works with the CTO (*he's the man* Anita told me, in a kind of breathless reverence), who had been out of the company for a short period while he was in rehab - I was told. 
 - I wondered if they meant prison.
-- Anyway, in the first obvious evidence that my entire UI has been hacked (I'm on a company laptop), they publish my Whitepaper on their website, the honest one, but I can only see it from my laptop.
+- Anyway, the first time I notice that my entire UI can be hacked (I'm on a company laptop), they publish my Whitepaper on their website, the honest one, but I can only see it from my laptop.
 - When I look the company up from a different device on a completely different network I see something very different.
-- They publish total lies about the tech; that it's robust, fast, secure, that it can cope with heavy load.
+- Publicly, I see a document containing total lies about the tech; that it's robust, fast, secure, that it can cope with heavy load.
+- They never mention the Raspberry Pis.
 - I'm flabbergasted.
 - In the meantime, Anita has been set up to fall out with me, which we do, spectacularly.
 - Mediation is called and she's fired.
-- I'm [back from my holiday in Dénia](july.md#denia-holiday), and I start feeling very anxious, all the time.
-- I wonder about this now.
-- I start looking for another role because I cannot continue with Qredo given they're total liars and I expect they're about to run a crypto token sale where millions of crypto traders will buy tokens in this system which is set to fail.
-- And of course, that happens.
+- I'm [back from my holiday in Dénia](july.md#denia-holiday), and I start feeling very anxious, all the time at home.
+- I wonder about that now.
+- I start looking for another role because I cannot continue with Qredo given they're total liars, and they're about to run a crypto token fundraising sale where millions of people will buy tokens with this system which is bound to fail.
 - I get a new job at [ConsenSys](https://consensys.io/) and leave Qredo.
-- I'm so appalled at Qredo, I report them to a SEC lawyer who tells me they're not interested in taking it any further - small fry, I guess.
-- Horrifyingly, when I join ConsenSys, I find out that a team I'm working with is working closely with Qredo.
-- I've no option but to tell them the truth, and that probably sets my time up at ConsenSys which was yet more ridiculousness from male engineers.
+- I'm so appalled at Qredo's blatant lies, I report them to a SEC lawyer.
+- The lawyer tells me they're not interested in taking it any further - small fry, I guess.
+- Of course it's only now thinking back I realize that all those communications were monitored by international porn gangs, perhaps even with Qredo's knowledge.
+- Horrifyingly, when I join ConsenSys, I find out that one of my team's is working closely with Qredo and this is one of the reasons they were interested in hiring me.
+- I've no option but to tell ConsenSys the truth, which probably explains the tantrums and ridiculousness from French male engineers, some of whom most definitely will have had a subscription to the sedated switcheroo.
 - Was the Qredo role with Anita Diamond a staggering overplay by the global male porn-addict tech elite? 
-- Or an investigatory gauge on how much dedicated effort and how many porn addicts were expected to sign up and pay expensive subscriptions for the [*switcheroo* sedated rape-porn planned for me on my inevitable and already being prepared return to Dénia](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
+- Or an investigatory gauge on how much dedicated effort would be required, and how many tech-bro porn addicts were expected to sign up and pay expensive subscriptions for the [*switcheroo* sedated rape-porn planned for me on my inevitable and already-being-prepared return to Dénia](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
 - Or both?
