@@ -75,5 +75,5 @@ function googleTranslateElementInit() {
 - Horrifyingly, when I join ConsenSys, I find out that one of my team's is working closely with Qredo and this is one of the reasons they were interested in hiring me.
 - I've no option but to tell ConsenSys the truth, which probably explains the tantrums and ridiculousness from French male engineers, some of whom most definitely will have had a subscription to the sedated switcheroo.
 - Was the Qredo role with Anita Diamond a staggering overplay by the global male porn-addict tech elite? 
-- Or an investigatory gauge on how much dedicated effort would be required, and how many tech-bro porn addicts were expected to sign up and pay expensive subscriptions for the [*switcheroo* sedated rape-porn planned for me on my inevitable and already-being-prepared return to Dénia](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
+- Or an investigatory gauge on how much dedicated effort would be required, and how many tech-bro porn addicts were expected to sign up and pay for expensive subscriptions for the [*switcheroo* sedated rape-porn planned for me on my inevitable and already-being-prepared return to Dénia](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
 - Or both?
