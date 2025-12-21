@@ -279,9 +279,10 @@ function googleTranslateElementInit() {
 - A few days later, I see this exact same guy with a woman at the baths in Cauterets while I'm there. I'm shocked.
 - He is sitting in the same [bubbly chair](../2023/august.md#in-the-baths-at-cauterets-with-sandra-rita-diaz) where I told Sandra Rita Diaz I would tame the trumpet teacher.
 - I see him again a couple of days later in Lourdes. He nearly walks into me and his girlfriend is running after behind him worried.
+- I believe this could have been a distract and drug... she came up on the right side...
 - I would recognize him again.
 - I add a note to this effect in my handwritten letter which you will see at the back on [page 21 and 22](../../content/documents/letters/scanned-hand-written-letter.pdf).
-- A fake account suggests the man came up from Pau to check on me.
+- I think I know who this is, bizarrely.
 
 ## Suspected targets 
 
