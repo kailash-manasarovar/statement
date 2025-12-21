@@ -283,6 +283,7 @@ function googleTranslateElementInit() {
 - I would recognize him again.
 - I add a note to this effect in my handwritten letter which you will see at the back on [page 21 and 22](../../content/documents/letters/scanned-hand-written-letter.pdf).
 - I think I know who this person is, bizarrely.
+- Could he have been the same person [I saw in Amsterdam](../early-years/2001.md#amsterdam) all those years ago?
 
 ## Suspected targets 
 
