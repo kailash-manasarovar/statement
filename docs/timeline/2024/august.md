@@ -364,12 +364,12 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 - Since understanding Gabe's reference to *switcheroo* in [September 2025](../2025/september.md#thunderbolt-clarity), I wonder if he is aware that for something so vile to work, the target has to be brain-damaged so that she can't identify objects out of context, including people.
 - She also has to be continuously drugged to make her confused in situations in which those men appear.
 - Of course, given the whole *switcheroo* at the conservatory thing had finished on [12th June 2023](../2023/june.md#monday-12th-june-2023) and I was obviously still of the mind there was *only one man*, everyone must have thought I'd never figure it out.
-- But I had been looking at actual photos of the [minimum four distinct men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) who made up the *switcheroo* team at the conservatory since June 2023 and for so long never realized they were different people.
+- But I had been looking at actual photos of the [minimum four distinct men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) who made up the *switcheroo* team at the conservatory since June 2023.
 - It really was only a matter of time before I figured it out, and so murder is most likely the next step for women like me, and this must be understood very well by all involved.
 - Time was ticking and my memory would be coming back...
 - Is this the main reason behind the vicious persecution at work to get me to leave as soon as possible? 
 - It is certainly the main reason behind continued drugging and poisoning in Spain and the UK in 2025.
-- One wonders, if an absolutely certainty of my demise made my colleagues feel they could make references to what they knew was happening to me at the hands of a criminal gang in safety.
+- One wonders, if an absolutely certainty of my demise made my colleagues feel they could safely make references to what they knew was happening to me at the hands of a criminal gang.
 - I have to thank Gabriel for using this term so egregiously; because it was the first thing I remembered after realizing there were at least four distinct trumpet teachers at the conservatory (and/or in my apartment).
 - Who told everyone I'd never have the time to remember what was staring at me in the face?
 - And why was everyone OK with that?
