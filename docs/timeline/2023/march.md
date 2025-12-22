@@ -197,7 +197,7 @@ function googleTranslateElementInit() {
 ### Alex and Zoe 
 
 - At one of the all hands meetings, either in April or May of this year, Alex the CEO and his assistant, Zoe, are signing in from an offsite in New York, I believe it was.
-- A few of the other managers were there; the British CTO who previously worked with Elon Musk, and there may have been some external company representatives there too.
+- A few of the other managers were there with them; the British CTO who previously worked with Elon Musk, and there may have been some external company representatives there too.
 - Anyway, the regular company all-hands meeting has started, everyone is there waiting online, but there is no Alex or Zoe.
 - We're all waiting.
 - The music is pumping hard.
@@ -205,13 +205,13 @@ function googleTranslateElementInit() {
 - Alex is breathless and sweating, and speaking as if he has been running a marathon.
 - Zoe is looking a bit flushed too.
 - *Were they having sex?*, I wondered.
-- Everyone must have been thinking the same thing; it was a little obvious.
+- Everyone must have been thinking the same thing; it was a little obvious unless that's what they wanted us to think.
 - Gross, if they were, I thought, to be doing it right up to meeting everyone at the company all-hands.
 - My view, the only other woman in the business at that time, might not have been the common view however if the company was full of porn-addict engineers, as it well might be.
 - I thought nothing more of it at the time because I had no context around how if you work in tech, and you are one of the very few females, you might have been hired for sport, your colleagues hacking and targeting you.
 - I wonder now if the whole offsite *target-a-female-tech-colleague-in-a-threateningly-sexual-manner* thing has been going for years, just like [I experienced in Bali](../2024/may.md#bali).
 - I would have found it a bit threatening to be having sex with a male colleague right up to the moment I was supposed to be in an online meeting with him and the whole company.
-- Perhaps they share live footage on private Signal groups to the close-knit tech-bro-addict engineers.
+- Perhaps engineers who have sexual relationships with colleagues share live footage on private Signal groups to their fellow addicts.
 - Perhaps questions ascertaining a familiarity with and love of porn come up at engineer interview these days; to make sure they don't hire anyone sane who might raise the alarm.
 - I guess a descent into chaos like this is to be expected when young and unwise men are given millions and millions of dollars in funding to build systems that never see the light of day.
 
@@ -222,6 +222,6 @@ function googleTranslateElementInit() {
 - He really has no need to call me.
 - My job is a joke to the engineers anyway, so any excessive interest is always a red flag.
 - The most dubious thing about these calls were that they always followed a chamber music class on a Monday evening.
-- Was he watching the switcheroo porn specials live from the conservatory and back at my home?
+- Was he watching [the switcheroo porn specials live from the conservatory](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and back at my home?
 - Was he curious about how a human being responds consciously after a sedated-rape event in their own home?
-- Or was he trying to become an integral part of the romance-and-sex manipulation trigger by checking in with me in person at these key moments?
+- Or was he trying to understand, maybe become an integral part of, the gitano romance-and-sex manipulation trigger by checking in with me at these key moments?
