@@ -8,7 +8,7 @@ function googleTranslateElementInit() {
 }
 </script>
 
-## Sexual arousal
+## Manipulated sexual arousal
 
 - I head off to France to spend time in Lourdes and the Pyrenees.
 - As soon as I'm out of Dénia, the intensity of the sexual arousal drops off, and then stops completely when I'm in Lourdes.
