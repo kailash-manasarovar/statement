@@ -213,9 +213,10 @@ function googleTranslateElementInit() {
 - Like the horrific porn-school Dénia conservatory experience, the Bali harassment was a well-oiled industry machine with multiple willing assistants.
 - I felt I was very much expected to attend offsite events - usually the lone woman amongst hundreds of men - and, whenever I didn't attend I felt something of an unspoken threat and I would be obliged to attend the next one.
 - I would have found it very threatening to be having sex with a male colleague right up to the moment I was supposed to be in an online meeting with him and the whole company.
-- Perhaps engineers who have sexual relationships with colleagues share live footage on private Signal groups to their fellow addicts.
+- Perhaps engineers who have sexual relationships with female colleagues share live footage on private Signal groups to their fellow addicts.
 - Perhaps questions ascertaining a familiarity with and love of porn come up at engineer interview these days; to make sure they don't hire anyone sane who might raise the alarm.
 - I guess a descent into chaos like this is to be expected when young and unwise men are given millions and millions of dollars in funding to build systems that never see the light of day.
+- They must feel triumphant, important, and extremely bored.
 
 ### One of my colleagues at zkSync calls me every Monday after chamber music class
 
