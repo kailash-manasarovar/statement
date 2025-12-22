@@ -194,6 +194,25 @@ function googleTranslateElementInit() {
 - I expect many were itching to monitor my transition from female-tech-colleague-you-hate into a full time porn star from 12th June (no payment obviously); an abused, maimed, and extremely poor woman; eventually murdered for the worst sort of porn-addict subscriptions.
 - Make no mistake, that was the plan; that's how it always has been for thousands of women like me in Dénia.
 
+### Alex and Zoe 
+
+- At one of the all hands meetings, probably in May of this year, Alex the CEO and his number one assistant, Zoe, are signing in from an offsite in New York, I believe it was.
+- A few of the other managers were there, the CTO - friends of Elon Musk - for sure.
+- Anyway, the all-hands meeting has started but there is no Alex or Zoe.
+- Everyone is waiting.
+- The music is pumping hard.
+- About 5-10 minutes after the meeting's start time, they turn up from their hotel rooms.
+- Alex is breathless and sweating.
+- Zoe is looking a bit flushed too.
+- *Were they having sex?*, I wondered.
+- Gross, if they were, I thought.
+- My view, the only other woman in the business at that time, might not have been the common view, and certainly that must have been what everyone was thinking. 
+- It was kind of set up to make you think that, although at the time I thought nothing of it because I had no context around how if you work in tech, and you are one of the very few females, your colleagues might be hacking you, or worse.
+- I wonder now if the whole offsite *target-a-female-colleague-sexually* thing has been going for years,
+- Perhaps they share the live footage on private porn Signal groups to the addict engineers, the majority I expect.
+- Perhaps questions ascertaining a familiarity with and love of porn come up even at engineer interview these days; to make sure they don't hire anyone who might raise the alarm.
+- I guess this is to be expected when young men are giving millions and millions of dollars in funding to build systems never see the light of day, or do anything particularly meaningful in the world.
+
 ### One of my colleagues at zkSync calls me every Monday after chamber music class
 
 - One of the Ukrainian staff at zkSync, someone who is apparently of no fixed abode and moving from place to place while working for the company since the war began, takes a special interest in me.
