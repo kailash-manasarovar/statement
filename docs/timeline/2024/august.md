@@ -37,6 +37,7 @@ function googleTranslateElementInit() {
     ```
 
 - I wonder who these bank accounts really belong to?
+- I now see why Beatriz had to have a [death clause](../2021/december.md#death-clause) in the rental contract.
 
 ## Conversation with the hacker
 
