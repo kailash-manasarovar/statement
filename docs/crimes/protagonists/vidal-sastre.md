@@ -226,7 +226,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - The series probably includes a live-streamed gang-rape as  grander-grand finale in which the target is not sedated and recognizes all the men that have been *training* her.
 - They must charge exorbitant fees for this.
 - I wouldn't be surprised if this has killed women and girls outright with the shock; something the pornographers hope for probably as the more horrible for the victim, the more money they make.
-- Women like [Rocio Vidal](../../timeline/2023/october.md#rocio-vidal) and the sports woman I mentioned in [my handwritten letters](../../timeline/2024/august.md#the-letters) are likely viable targets requested by paying viewers and maybe blackmailed into participating rather than sedated (especially if they're famous).
+- Women like [Rocio Vidal](../../timeline/2023/october.md#rocio-vidal) and the sports woman I mentioned in [my handwritten letters](../../timeline/2024/august.md#the-handwritten-letters) are likely viable targets requested by paying viewers and maybe blackmailed into participating rather than sedated (especially if they're famous).
 - It must be common knowledge across the world, and that’s fundamentally why all my complaints are ignored.
 - The perverts have certainly evolved over the years from targeting wealthy women with body-cams to setting up a kind of Truwoman Show in people's homes… just another sickly-inventive way men have found to delight and get boners at the destruction of women and now children too.
 - This is the *only explanation* for the enormous resources spent on terrorizing me. 

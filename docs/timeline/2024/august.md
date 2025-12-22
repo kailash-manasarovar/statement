@@ -72,7 +72,7 @@ function googleTranslateElementInit() {
 - I sense whoever I'm talking to wants out of this dreadful life.
 - I ask "How many more like me?". The answer is two more.
 
-## Signal and Telegram
+### Signal and Telegram
 
 - I get messaged on various chat applications by weird account.
 - Here's one I added to the [Signal page](../../evidence/signal.md#signal)
@@ -80,7 +80,7 @@ function googleTranslateElementInit() {
 - At least I kept them busy. 
 - Did they know I was writing scores of letters by hand, I wonder?
 
-## Carmen Cano
+### Carmen Cano
 
 - The conversation continues even when I'm out hiking.
 - The day I visit the Viscos mountain, we chat again in the same way, except I am using the mobile instead of desktop.
@@ -93,6 +93,59 @@ function googleTranslateElementInit() {
 - There is a curt retort.
 - I believe now it was Carmen Cano I was conversing with at the time.
 - Seeing her prostate and humble in my mind's eye has been somewhat helpful, especially when I bump into [her and another woman coming out of my apartment building and smiling at me](october.md#serious-poisoning-with-intent-to-harm-or-kill) while I was being seriously poisoned at the end of October 2024.
+
+### The trumpet teacher pics
+
+- He sends interactions with accounts that have pictures that could be the trumpet teacher and his family from a long while back.
+
+![family](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
+
+- He talks about the above picture being the "lonely years" and there may be references to him being in the navy or armed services of some variety.
+- The following pic is apparently his dad, an extremely violent man who bullied his children appallingly, I'm told. I'm really sad for him when I hear all this.
+
+![family](../../content/images/fake-accounts/family/Vigas%20dad.png)
+
+- I believe the pic below is the trumpet teacher's son, but of course I'm not at all sure about any of this and it could be an extremely elaborate con.
+
+![family](../../content/images/fake-accounts/family/son.JPG)
+
+- Me and my mother discuss how sad this young man looks.
+- I'm not entirely sure if these are genuine pics or not.
+- However, I am delighted to receive them and I feel again a strong personal connection with whoever it is I'm communicating with.
+- These pics, coupled with the pics of the two boys that always show up on Google search, make me feel like I have a collection of personal pics sent by the trumpet teacher. 
+- I also have the strange sensation the brother (possible twin) is called Andre.
+
+![family](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
+![family](../../content/images/fake-accounts/family/andrew%20the%20brother.png)
+![family](../../content/images/fake-accounts/family/curious%20boy%20family.png)
+
+### Hidden camera account
+
+- One morning, I wake up and I see an account that has liked one of my posts from the night before.
+- It has an eagle as profile pic. The same eagle profile pic on the account that posted about [peeping at preschoolers in April](april.md#fake-account-posts-about-peeping-at-pre-schoolers).
+- The account writes in the Hebrew language and I translate the pinned post.
+- The post details being targeted by someone who he had trusted, and had sex with, and was consequently stalked and filmed by secret cameras.
+- The account is here: https://x.com/Cr7Rival3711.
+- The pinned message is translated here:
+
+![hidden cameras](../../content/images/fake-accounts/hidden-cameras.png)
+
+- I respond to this terrible tweet thread that I have just read: https://x.com/1FRGVN/status/1823957507728896499.
+- I start to think seriously about the possibility of hidden cameras in my apartment.
+
+### Conversations about porn
+
+- The hacker starts to make references to having done porn, mainly gay porn, throughout his life.
+- The video results on the Google search for "1frgvn x" now include gay porn.
+- I feel like the trumpet teacher is baring his soul, telling me the truth about his life.
+- It just seems to get worse and worse for him. 
+- I empathize. I do not judge him.
+- He is as he is.
+- It makes sense to me now that he would not judge me when I made [my child sexual abuse disclosure](../2023/april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher) and perhaps he saw something of himself in me at that moment.
+- I tell my friend from Lourdes that the trumpet teacher has told me he was in porn. She is horrified and asks me if I really want to be with someone like that.
+- I say I don't know but I also tell her that I'm devoted somehow; that something's going on that I have no control over so I just have to trust that it is all in God's plan.
+- I now wonder if everything I felt was just the long-term effects of narcotics I did not know I was ingesting.
+
 
 ## I realize I have been poisoned and drugged
 
@@ -118,76 +171,6 @@ function googleTranslateElementInit() {
 - I would obviously accept a genuine request for forgiveness.
 - I don't think it could possibly be the Cano's and associates who seemed to delight in the idea of my deteriorating health.
 - I still have samples.
-
-## Hundreds of women like me
-
-- I realize I'm one of hundreds, maybe thousands of targets.
-- women and girls lured into relationships that don't exist with the intention of blackmail and exploitation, or silencing.
-- I'm seeing pictures of women that could be decades old. 
-- I can't believe it could be just one man doing all this.
-
-## The trumpet teacher pics
-
-- He sends interactions with accounts that have pictures that could be the trumpet teacher and his family from a long while back.
-
-![family](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
-
-- He talks about the above picture being the "lonely years" and there may be references to him being in the navy or armed services of some variety.
-- The following pic is apparently his dad, an extremely violent man who bullied his children appallingly, I'm told. I'm really sad for him when I hear all this.
-
-![family](../../content/images/fake-accounts/family/Vigas%20dad.png)
-
-- I believe the pic below is the trumpet teacher's son, but of course I'm not at all sure about any of this and it could be an extremely elaborate con.
-
-![family](../../content/images/fake-accounts/family/son.JPG)
-
-- Me and my mother discuss how sad this young man looks.
-- I'm not entirely sure if these are genuine pics or not.
-- However, I am delighted to receive them and I feel again a strong personal connection with whoever it is I'm communicating with.
-- These pics, coupled with the pics of the two boys that always show up on Google search, make me feel like I have a collection of personal pics sent by the trumpet teacher. 
-- I also have the strange sensation the brother (possible twin) is called Andre.
-
-![family](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
-![family](../../content/images/fake-accounts/family/andrew%20the%20brother.png)
-![family](../../content/images/fake-accounts/family/curious%20boy%20family.png)
-
-## Hidden camera account
-
-- One morning, I wake up and I see an account that has liked one of my posts from the night before.
-- It has an eagle as profile pic. The same eagle profile pic on the account that posted about [peeping at preschoolers in April](april.md#fake-account-posts-about-peeping-at-pre-schoolers).
-- The account writes in the Hebrew language and I translate the pinned post.
-- The post details being targeted by someone who he had trusted, and had sex with, and was consequently stalked and filmed by secret cameras.
-- The account is here: https://x.com/Cr7Rival3711.
-- The pinned message is translated here:
-
-![hidden cameras](../../content/images/fake-accounts/hidden-cameras.png)
-
-- I respond to this terrible tweet thread that I have just read: https://x.com/1FRGVN/status/1823957507728896499.
-- I start to think seriously about the possibility of hidden cameras in my apartment.
-
-## Conversations about porn
-
-- The hacker starts to make references to having done porn, mainly gay porn, throughout his life.
-- The video results on the Google search for "1frgvn x" now include gay porn.
-- I feel like the trumpet teacher is baring his soul, telling me the truth about his life.
-- It just seems to get worse and worse for him. 
-- I empathize. I do not judge him.
-- He is as he is.
-- It makes sense to me now that he would not judge me when I made [my child sexual abuse disclosure](../2023/april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher) and perhaps he saw something of himself in me at that moment.
-- I tell my friend from Lourdes that the trumpet teacher has told me he was in porn. She is horrified and asks me if I really want to be with someone like that.
-- I say I don't know but I also tell her that I'm devoted somehow; that something's going on that I have no control over so I just have to trust that it is all in God's plan.
-- I now wonder if everything I felt was just the long-term effects of narcotics I did not know I was ingesting.
-
-## Communication with Patricia
-
-- Patricia sends me WhatsApp messages over this period which are rather unusual.
-- I'm very candid with her on [WhatsApp chats](../../evidence/whatsapps.md#patricia).
-- I wonder if she is being asked to check up on me.
-- She ignores everything I say in my messages but keeps communicating with me.
-- I assume she is not allowed to make comments on anything I have said.
-- It is very sinister. She sounds tired and too hot to be sat at her laptop. I wonder if her man is being kind to her.
-
-![Patricia communicating with me weirdly](../../content/images/p-and-dodgy-bloke-2.PNG)
 
 ## Photos of abused women and girls
 
@@ -242,42 +225,23 @@ function googleTranslateElementInit() {
 - There were also a bunch of photos of her where she is *clearly* underage.
 - Are they trying to say - along with the sexual arousal and constant porn bombardment - look, this is what women we know do, you could do it too?
 
-## Irene, the plate lady
+## Hundreds of women like me
 
-- We're clearly having a very intimate conversation about some very dark matters.
-- I ask, "So who was [plate lady](../2023/july.md#plate-lady-early-in-the-month) then?".
-- An answer comes immediately, "Irene".
-- I look up on Google "Irene, ceramics artist, Valencia". 
-- There she is online. Except she is about 50 now: https://alfarim.es/coneix-nos. Irene Molina Pascual.
-- There is no doubt. This is the woman I saw as a 30 year old in pics posted and manipulated for me to see via Google search in July 2023 when searching with the `@jctot19` and `@sinremite` accounts.
-- I am amazed!
-- Remember that the hacker at this stage is watching everything I do online in real time. We are having a real-time conversation.
-- I say, "that's her isn't it?".
-- The hacker responds, "nooooo". But it is undoubtedly her.
-- Irene is a well known ceramics artist running her ceramics business in Onda in the Valencia region.
-- I realize that the stalker/honey trap pattern is to target (potentially) successful women. Is this to stop women moving forward in the world, or is it to defraud them over long periods with sexploitation material?
-- The pictures of Irene that I saw in July 2023 on the `@jctot19` and `@sinremite` accounts were at least 20 years old.
-- The hacker highlights for me another lady who may be being targeted, a sportswoman in Castellon, Lidia Sanchez Puebla.
-- I'm stunned.
-- I believe I have enough evidence to share and I feel it's my responsibility to help these abused women.
+- I realize I'm one of hundreds, maybe thousands of targets.
+- women and girls lured into relationships that don't exist with the intention of blackmail and exploitation, or silencing.
+- I'm seeing pictures of women that could be decades old. 
+- I can't believe it could be just one man doing all this.
 
-## The letters
+## Communication with Patricia
 
-- Given my laptop is fully accessed by hackers, I write, painstakingly by hand, a letter to my friend explaining everything that's happened.
+- Patricia sends me WhatsApp messages over this period which are rather unusual.
+- I'm very candid with her on [WhatsApp chats](../../evidence/whatsapps.md#patricia).
+- I wonder if she is being asked to check up on me.
+- She ignores everything I say in my messages but keeps communicating with me.
+- I assume she is not allowed to make comments on anything I have said.
+- It is very sinister. She sounds tired and too hot to be sat at her laptop. I wonder if her man is being kind to her.
 
-    - [The handwritten letter explaining what's going on](../../content/documents/letters/scanned-hand-written-letter.pdf).
-
-- I also copy and send this letter to 40+ agencies, newspapers, and well known people, all over the world.
-- I do this for two reasons:
-    - Justice for the good people of Dénia and the Marina Alta region; especially the children, women, and girls.
-    - To ensure my safety in some way because these people clearly have no intention of leaving me alone.
-- Along with the letter, I send some of the pictures that have been sent on fake accounts that may be related. I send all the [trumpet teacher pics](#the-trumpet-teacher-pics). 
-- I also send pics of Rocio Vidal who I believe has been targeted since, as I mentioned, I saw a fake account pic of her on the bed about to take her clothes off.
-
-![Rocio Vidal](../../content/images/Rocio-Vidal-on-Google-search.png)
-
-- I also send a copy of the first page of my [denuncia from March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
-- The conversation with the hacker continues as I do this.
+![Patricia communicating with me weirdly](../../content/images/p-and-dodgy-bloke-2.PNG)
 
 ## Followed by the gypsy in France
 
@@ -309,9 +273,12 @@ function googleTranslateElementInit() {
 
 - In this section, I'll publish all the accounts I believe had pics of targets on them but please understand some may be incorrect due to the ephemeral nature of the interactions.
 - Also, please note that this is only a small proportion of what I saw. It has been impossible to collect everything. It would have meant taking constant screenshots.
+- It is my belief that as soon as law enforcement starts to take action on what's been happening to me for so many years, we will be able to find out exactly how many women, children, and babies have been targeted, if they're still unwell, or murdered, how many were murdered and when, and where they are now.
+- I believe it could be in the hundreds, maybe thousands in Denia alone.
 - The hacker told me there were old and young, that the British expat community and other foreigners were targeted often, and he suggested one older woman may have dropped down dead from the shock of finding out, possibly in October 2022.
-- He stated he loved every one of them!
-- Some of these I believe are illicit and the subject doesn't know she is being photographed. I believe many of these to be the "when she finds out" content and I wonder if this is a porn genre.
+- He also stated he loved every one of them! I think this must have been Ivan speaking, Gloria's brother, the man who was probably planning on devouring me somehow, so safe he felt he was, he sent me a pic!
+- Some of these photos I believe are illicit and the subject doesn't know she is being photographed. I believe many of these to be the "when she finds out" content and I wonder if this is a porn genre.
+- Maybe we can start the whole thing up again and get some more photo evidence, the ones I didn't screenshot maybe.
 
 | Suspected targets posted in August |
 |-|
@@ -342,6 +309,44 @@ The two pics above are the same woman I often see dressed as a sexy nurse on a b
 | ![pic]( ../../content/images/targeted-women/20.png )
 This pic looks exactly like a student of the conservatory studying under Domingo the piano teacher: [Elsa](../2023/october.md#gang-stalking-by-conservatory-civil-servants) who I have mentioned before. |
 
+## Irene, the plate lady
+
+- We're clearly having a very intimate conversation about some very dark matters.
+- I ask, "So who was [plate lady](../2023/july.md#plate-lady-early-in-the-month) then?".
+- An answer comes immediately, "Irene".
+- I look up on Google "Irene, ceramics artist, Valencia". 
+- There she is online. Except she is about 50 now: https://alfarim.es/coneix-nos. Irene Molina Pascual.
+- There is no doubt. This is the woman I saw as a 30 year old in pics posted and manipulated for me to see via Google search in July 2023 when searching with the `@jctot19` and `@sinremite` accounts.
+- I am amazed!
+- Remember that the hacker at this stage is watching everything I do online in real time. We are having a real-time conversation.
+- I say, "that's her isn't it?".
+- The hacker responds, "nooooo". But it is undoubtedly her.
+- Irene is a well known ceramics artist running her ceramics business in Onda in the Valencia region.
+- I realize that the stalker/honey trap pattern is to target (potentially) successful women. Is this to stop women moving forward in the world, or is it to defraud them over long periods with sexploitation material?
+- The pictures of Irene that I saw in July 2023 on the `@jctot19` and `@sinremite` accounts were at least 20 years old.
+- The hacker highlights for me another lady who may be being targeted, a sportswoman in Castellon, Lidia Sanchez Puebla.
+- I'm stunned.
+- I believe I have enough evidence to share and I feel it's my responsibility to help these abused women.
+- But how can I share the information I have without the hackers seeing it?
+
+## The handwritten letters
+
+- Given my laptop is fully accessed by hackers, I write, painstakingly by hand, a letter to my friend explaining everything that's happened.
+
+    - [The handwritten letter explaining what's going on](../../content/documents/letters/scanned-hand-written-letter.pdf).
+
+- I also copy and send this letter to 40+ agencies, newspapers, and well known people, all over the world.
+- I do this for two reasons:
+    - Justice for the good people of Dénia and the Marina Alta region; especially the children, women, and girls.
+    - To ensure my safety in some way because these people clearly have no intention of leaving me alone.
+- Along with the letter, I send some of the pictures that have been sent on fake accounts that may be related. I send all the [trumpet teacher pics](#the-trumpet-teacher-pics). 
+- I also send pics of Rocio Vidal who I believe has been targeted since, as I mentioned, I saw a fake account pic of her on the bed about to take her clothes off.
+
+![Rocio Vidal](../../content/images/Rocio-Vidal-on-Google-search.png)
+
+- I also send a copy of the first page of my [denuncia from March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
+- The conversation with the hacker continues as I do this.
+
 ## Gabriel Silva's first team meeting as manager
 
 - It's late August and everyone is back from holiday.
@@ -355,7 +360,7 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 - He then distributes all my work to Hans and Anthony, leaving me with none.
 - It's obvious to me what's going on, apart from the *switcheroo* reference at this stage.
 - I start thinking about what I'm going to do.
-- It's hard to get clear about what to do about anything else while I'm receiving picture-after-picture of targeted women, and trying to get the handwritten letters out to as many people as I can.
+- It's hard to get clear about what to do about anything else while I'm receiving [picture-after-picture of targeted women](#suspected-targets), and trying to get [the handwritten letters out](#the-handwritten-letters) to as many people as I can.
 - Since understanding Gabe's reference to *switcheroo* in [September 2025](../2025/september.md#thunderbolt-clarity), I wonder if he is aware that for something so vile to work, the target has to be blinded, slowly over time, so that she doesn't notice her vision becoming so blurry that she can't make people out properly.
 - She also has to be drugged to make her confused in situations in which the men appear.
 - Of course, given the whole *switcheroo* at the conservatory thing had finished on [12th June 2023](../2023/june.md#monday-12th-june-2023) and I was obviously still of the mind there was *only one man*, everyone must have thought I'd never figure it out.
@@ -365,9 +370,10 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 - Is this the main reason behind the vicious persecution at work to get me to leave as soon as possible? 
 - It is certainly the main reason behind continued drugging and poisoning.
 - One wonders, if an absolutely certainty of my demise made colleagues make particularly egregious remarks to me like this at work in safety.
+- I have to thank Gabriel for using this term so egregiously; because it was the first thing I remembered after realizing that I had met at least four distinct trumpet teachers at the conservatory (or my apartment).
 - Who told everyone I'd never have the time to remember what was staring at me in the face?
 - And why was everyone OK with that?
-- Do porn-addict communities really run the world now?
+- Do porn-addict tech-bro communities run the world now?
 
 ### Reprimanding me
 
