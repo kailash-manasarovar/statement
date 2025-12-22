@@ -65,7 +65,7 @@ So there has been no safe place to go and I have had to stay in hotels a lot ins
 - It's around 21,000 EURs paid to three different accounts.
 - I believe the first account was probably Bea's, the apparent landlady, but given she was so angry it was more likely paid directly to the trumpet teacher and Domingo who were managing the murderous plot initially.
 - I believe the second account, [changed in August 2022](../timeline/2022/july.md#the-landlady-changes-the-bank-account-for-the-rent) was probably paid directly to Domingo and the trumpet teacher gang, with some syphoned off to Paqui most likely when she took over.
-- The third account, [changed in August 2024](../timeline/2024/august.md#the-landlady-changes-the-bank-account-that-receives-the-rent-again), was very likely Carmen Cano's or whoever was tasked with murdering me by poison in October 2024 when Paqui's plot failed.
+- The third account, [changed in August 2024](../timeline/2024/august.md#the-landlady-changes-the-bank-account-for-the-rent-again), was very likely Carmen Cano's or whoever was tasked with murdering me by poison in October 2024 when Paqui's plot failed.
 - It won't be hard to find out.
 
 ## Poisoned clothes, belongings, and car

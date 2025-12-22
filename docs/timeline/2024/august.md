@@ -23,10 +23,20 @@ function googleTranslateElementInit() {
 - Did they add drugs to just one bottle of water maybe, which was finished by lunchtime on a Monday?
 - It's bound to be something like that.
 
-## The landlady changes the bank account that receives the rent again
+## The landlady changes the bank account for the rent, again
 
-- Another plot failure sparks a new bank account change.
-- This time probably to Carmen Cano's account, Domingo's sister, now tasked with finishing me off for good.
+- Beatriz, my landlady, contacts me to inform me the bank account for the rent is changing once again.
+- This is the second time in less than three years she has changed the bank account that receives the rent.
+- It is my belief that Beatriz is not receiving my rent, and never was.
+- These are the three Spanish bank account numbers that I paid rent to while I was living at Carrer Furs:
+
+    ```txt
+    ES7320950444909122412071 - from December 2021 to August 2022
+    ES1201280601880100047345 - from September 2022 to August 2024
+    ES6800865106190015755620 - from August 2024 onwards
+    ```
+
+- I wonder who these bank accounts really belong to?
 
 ## Conversation with the hacker
 
