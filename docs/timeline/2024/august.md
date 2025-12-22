@@ -31,9 +31,9 @@ function googleTranslateElementInit() {
 - These are the three Spanish bank account numbers that I paid rent to while I was living at Carrer Furs:
 
     ```txt
-    ES7320950444909122412071 - from December 2021 to August 2022
-    ES1201280601880100047345 - from September 2022 to August 2024
-    ES6800865106190015755620 - from August 2024 onwards
+    ES7320950444909122412071 - from December 2021 to August 2022 (preliminary brain-damage poisoning period)
+    ES1201280601880100047345 - from September 2022 to August 2024 (switcheroo porn period at the conservatory and with tech companies I worked for)
+    ES6800865106190015755620 - from August 2024 onwards (the period of getting rid of me by honey-trap violent relationship with a pornographer, and when that didn't work murder)
     ```
 
 - I wonder who these bank accounts really belong to?
