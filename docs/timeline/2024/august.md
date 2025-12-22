@@ -13,11 +13,11 @@ function googleTranslateElementInit() {
 - I head off to France to spend time in Lourdes and the Pyrenees.
 - As soon as I'm out of Dénia, the intensity of the sexual arousal drops off, and then stops completely when I'm in Lourdes.
 - I am, however, still extremely high and I know this because my head was swimming and spinning with constant thoughts about the trumpet teacher.
-- Online harassment is ongoing and I am bombarded with porn.
-- Curiously, I find myself sexually aroused in Cauterets after having my coffee in the morning on a Monday.
+- Online harassment is ongoing, the [conversation with the hacker is continuous](july.md#big-chat-with-the-hacker-begins), and I am bombarded with porn.
+- Curiously, I find myself sexually aroused in Cauterets after having my coffee on a Monday morning and no other time specifically.
 - It's not clear why that would happen.
-- Sandra often visited on a Sunday evening and always used the toilet.
-- I noticed suspicious people around the whole time I was in Cauterets and given accessing hotel rooms is no challenge for these people it's likely they were coming into my room.
+- Sandra often visited on a Sunday evening and she always used the toilet.
+- I noticed suspicious people around the whole time I was in Cauterets and, given accessing hotel rooms is no challenge for these people, it's likely they were coming into my room.
 - Did whoever was tasked with adding the sexual-arousal drugs to my food or water do a bad job of it so that it only worked on a Monday morning, for some reason?
 - Were they new and inexperienced porn-gang members?
 - Did they add drugs to just one bottle of water maybe, which was finished by lunchtime on a Monday?
