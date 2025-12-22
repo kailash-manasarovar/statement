@@ -376,5 +376,9 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 
 ### Reprimanding me
 
-- Soon after, in a one-to-one, Gabriel tells me I'm being watched carefully by the business for taking too much holiday.
-- You can't imagine the intensity of the persecution I was feeling at work alongside constant terror from genuinely carefree criminal porn-gangs who had a very sinister end goal for me.
+- Soon after, in a one-to-one, Gabriel tells me I'm being watched carefully by Jonathan in HR and the business in general for taking too much holiday.
+- Was Jonathan aware of what was going on too?
+- You can't imagine the intensity of the persecution I was feeling at work alongside constant terror from carefree criminal porn-gangs who had a very sinister end goal for me.
+- It was overwhelming and I'm surprised I'm here, sane, and able to tell my story.
+- I pray some good comes from my experiences and that perhaps women and girls might be able to study engineering and work in tech safely.
+- I guess none of this is surprising though.
