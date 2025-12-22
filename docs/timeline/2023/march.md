@@ -208,7 +208,7 @@ function googleTranslateElementInit() {
 - Everyone must have been thinking the same thing; it was a little obvious unless that's what they wanted us to think.
 - Gross, if they were, I thought, to be doing it right up to meeting everyone at the company all-hands.
 - My view, the only other woman in the business at that time, might not have been the common view however if the company was full of porn-addict engineers, as it well might be.
-- I thought nothing more of it at the time because I had no context around how if you work in tech, and you are one of the very few females, you might have been hired for sport, your colleagues hacking and targeting you.
+- I thought nothing more of it at the time because I had no context around how if you work in tech, and you are one of the very few females, you might have been hired for sport, your colleagues hacking and targeting you for sport.
 - I wonder now if the whole offsite *target-a-female-tech-colleague-in-a-threateningly-sexual-manner* thing has been going for years, just like [I experienced in Bali](../2024/may.md#bali).
 - I would have found it a bit threatening to be having sex with a male colleague right up to the moment I was supposed to be in an online meeting with him and the whole company.
 - Perhaps engineers who have sexual relationships with colleagues share live footage on private Signal groups to their fellow addicts.
