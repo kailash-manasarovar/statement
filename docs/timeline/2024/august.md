@@ -74,7 +74,7 @@ function googleTranslateElementInit() {
     - Why use the present tense?
     - Because I was still inside the prolonged trauma, the lie, reliving it constantly in the present; and also maybe because I was still being drugged in the UK so I would not find out the truth.
 
-- It's curious that I spoke to all the hackers I thought were the trumpet teacher as if they were one man, but I found all but one of them repellant.
+- It's curious that I spoke to all the hackers I thought were the trumpet teacher as if they were one man, but I found all but one of them repellent.
 
 - I write messages like this:
 
