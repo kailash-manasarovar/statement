@@ -54,7 +54,7 @@ function googleTranslateElementInit() {
 ### Maria and Domingo
 
 - I go upstairs. 
-- Maria Hontanilla is standing outside a piano room and we meet and say hello.
+- [Maria Hontanilla](../2023/april.md#maria-hontanilla), my piano teacher from [2015-16](../early-years/2015.md#maria-hontanilla), is standing outside a piano room and we meet and say hello.
 - While Maria and I are talking, Domingo comes up the stairs. Two young female students are with him; minors of about 12 or 13 years old.
 - It's all very contrived and set up.
 - Domingo goes to talk to Maria and leaves the students to talk to me. They are behaving oddly.
