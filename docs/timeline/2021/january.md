@@ -17,3 +17,11 @@
 - In 2025, I think they had heard about my growing infamy, on the grapevine, and were literally just curious about me.
 - They hired me for a bit, satisfied their curiosity, and got rid of me.
 - Well you wouldn't want me hanging around if you knew murderous gitano porn-gangs had me in their sights, would you.
+
+!!! tip "An alternative motive"
+    - Given what was coming up for me had been [in planning for decades](../early-years/2003.md#porn-fatwa), and given the very lucrative tech-bro porn-addict market, there is another potential motive for this ridiculous contract.
+    - Perhaps Chronicle were tasked with assessing my tech skills and understanding, to check if I would notice the most obvious scam at [Qredo](march.md#qredo).
+    - Their close contacts in the industry, such as Adaptive, never bothered to give me any actual work, or talk to or treat me like a human being at all.
+    - Did Chronicle spend three weeks assessing whether or not I was an idiot, and report back that I was, just like every female-tech-colleague?
+    - Does the tech-bro-porn-addict's hatred blind them to the truth?
+    - Has their hatred broken all boundaries to justify the most outrageous evil towards innocent people, and no-one cares or can do a thing about it?

@@ -53,11 +53,13 @@ function googleTranslateElementInit() {
 - I start contracting for a company called Adaptive in the city on Tuesday 28th August after the late summer bank holiday.
 - I interview really well, splendidly, the job sounds amazing, I'm going to be doing so much interesting work, the day rate is fantastic, everyone is so nice, I'm delighted.
 - The first day, the persecution begins.
-- It's my first morning in the office and I'm being introduced to everyone.
+- It's my first morning in the office, I've been there 10 minutes, and I'm being introduced to everyone.
 - Harsha, a close colleague, has not even said hello or introduced himself yet.
 - He looks at me in an unfriendly way, and he rubs his chin and shakes his head a little, making an expression that says very clearly: *I have no faith in you*.
 - From that moment, I'm the target for bullying, from all sides.
 - An hour has not yet gone by in my new role. 
+- At lunch on the first day, the boss Olivier takes everyone out for lunch because that's how they welcome newcomers.
+- Olivier pays for everyone's lunch, but not mine.
 - Even the *very few* women, mostly admin staff, are tasked with mucking in.
 - Harsha is unusually keen to interrogate me about my PhD and becomes triumphant when he knows more about my subject than I do.
 - The thing is, I cannot respond to this sort of aggression.
@@ -98,6 +100,7 @@ function googleTranslateElementInit() {
 - Would they have snickered?
 - I actually try to find a way to take Adaptive to court but it's pretty impossible as a limited company contractor.
 - I attend a CAB consultation, I open a case with the government employment service, I write to my professional organization the IEEE who ignore me, of course; there's a bunch of documentation all over the place on this.
+- At the risk of endlessly and uselessly defending myself against people who loathe me and everything I do, I won't detail anymore of their professional-terrorism tactics.
 - I do a 7-day fast and detox at Sura Detox in Devon which may have been life saving.
 - Nevertheless, my mind is on a suicide-loop, and the Valium is now exacerbating this, except I'm hopelessly addicted to it.
 
