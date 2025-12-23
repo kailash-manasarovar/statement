@@ -73,6 +73,11 @@ function googleTranslateElementInit() {
 - Domingo leaves without speaking to me.
 - Maria offers to help me with the audition and at some point suggests she is my teacher.
 - It's all a bit contrived but I agree.
+- We chat a short while and she says we must go out for coffee sometime.
+- I say yes of course.
+- She says, "or two, or three, or four", and laughs.
+- I have no idea why she is saying this.
+- We never go out for coffee.
 
 ### Gloria and the effects of poisoning
 
