@@ -104,6 +104,11 @@ function googleTranslateElementInit() {
 - I do a 7-day fast and detox at Sura Detox in Devon which may have been life saving.
 - Nevertheless, my mind is on a suicide-loop, and the Valium is now exacerbating this, except I'm hopelessly addicted to it.
 
+!!! tip "Dark web live action games that target people to make them commit suicide"
+    - I'm beginning to wonder what other forms of evil do porn-addicts get their boners from these days.
+    - I keep thinking of British Jess at the Buddhist retreat centre near Avila at Christmas.
+    - Was she a gone wrong porn-addict?
+
 ## January 2019
 
 - An old friend Willow comes round, I wonder what prompted her to visit, it was not a good time.
