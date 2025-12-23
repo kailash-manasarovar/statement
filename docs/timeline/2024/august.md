@@ -49,7 +49,7 @@ function googleTranslateElementInit() {
 - From time to time, I believe I am talking to the trumpet teacher I love and that he loves me back.
 - Our conversation is extremely intimate, and then it seems like other voices take over the conservation to make threats, send vile porn and images of violence, and play their ridiculous terror-games.
 - The change of voice is obvious to me.
-- Yet, it's hard for me to figure out what's going on as I believe there is only [one trumpet teacher](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero), not four or more.
+- Yet, it's hard for me to figure out what's going on as I believe there is only [one trumpet teacher](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero), not four or more like [Maria had said back in June 2022 when I met her at the conservatory](../2022/june.md#maria-and-domingo).
 - The whole thing felt like a puzzle I had to solve.
 - I assume the strident and garish voices must be Domingo and Carmen Cano Lopez and their Spanish associates, along with Hazel and Sandra Smith and their British gang pals.
 - I guess there could have been scores of people interacting with me during this time in a threatening or sexually grooming manner, indeed even colleagues.
