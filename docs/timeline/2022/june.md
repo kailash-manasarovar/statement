@@ -48,7 +48,7 @@ function googleTranslateElementInit() {
 
 ## Preparing for the conservatory audition
 
-- The head of studies, Jaume Signes, a trumpet teacher, allows me to use his room, the trumpet teaching room, room 6, every day to practice my pieces for the audition on a stand up piano.
+- The head of studies, Jaume Signes, a trumpet teacher, allows me to use his room, the trumpet teaching room, room 6, every day to practice my pieces for the audition.
 - One day Gloria, one of the receptionists, tells me I cannot use the trumpet teaching room I've been using as it's busy, but there is a room free upstairs instead.
 
 ### Maria and Domingo
