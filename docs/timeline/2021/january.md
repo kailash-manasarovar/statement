@@ -19,9 +19,10 @@
 - Well you wouldn't want me hanging around if you knew murderous gitano porn-gangs had me in their sights, would you.
 
 !!! tip "An alternative motive"
-    - Given what was coming up for me had been [in planning for decades](../early-years/2003.md#porn-fatwa), and given the very lucrative tech-bro porn-addict market, there is another potential motive for this ridiculous contract.
+    - Given what was coming up for me had been [in planning for decades](../early-years/2003.md#porn-fatwa), and given the very lucrative tech-bro porn-addict market which I was centred in professionally, there is another potential motive for this ridiculous contract.
     - Perhaps Chronicle were tasked with assessing my tech skills and understanding, to check if I would notice the most obvious scam at [Qredo](march.md#qredo).
-    - Their close contacts in the industry, such as Adaptive, never bothered to give me any actual work, or talk to or treat me like a human being at all.
-    - Did Chronicle spend three weeks assessing whether or not I was an idiot, and report back that I was, just like every female-tech-colleague?
-    - Does the tech-bro-porn-addict's hatred blind them to the truth?
-    - Has their hatred broken all boundaries to justify the most outrageous evil towards innocent people, and no-one cares or can do a thing about it?
+    - Their close contacts in the industry, such as Adaptive, never bothered to give me any actual work, or talk to or treat me like a human being, so they would have assumed I was an idiot.
+    - Did Chronicle spend three weeks assessing whether or not I really was an idiot, and report back that I was, just like every female-tech-colleague?
+    - Does the tech-bro-porn-addict's hatred blind him to the truth? 
+    - Hatred blinds completely.
+    - Has the tech-bro hatred of women broken all boundaries to justify the most outrageous evil towards innocent people, and no-one that can do anything about it cares?
