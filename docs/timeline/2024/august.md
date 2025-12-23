@@ -39,38 +39,82 @@ function googleTranslateElementInit() {
 - I wonder who these bank accounts really belong to?
 - I now see why Beatriz had to have a [death clause](../2021/december.md#death-clause) in the rental contract.
 
-## Conversation with the hacker
+## Interview with the hacker
 
-- I travel to Lourdes and spend the whole summer in France up until 21st September when I return, via Madrid, to Dénia.
-- I communicate with the hacker directly in the following way:
-    - I add a message to my Twitter profile.
-    - He replies in the profile message of a fake account.
-- I start to call him Vigas.
+- I'm in Lourdes for a week or so and then I spend the rest of the summer in Cauterets, France, up until 21st September when I return, via Madrid, to Dénia.
+- In Lourdes, I stay at the [Hotel Padoue](https://www.hotelpadoue.fr/fr/lourdes-hotel) and I have the sensation I'm being watched and followed.
+- I see a woman who looks like [Grace Torrellas](../2023/november.md#polygon); they have also been sending pictures of Grace-lookalikes on fake accounts.
+- I remember feeling extremely high in Lourdes.
+- The [conversation with the hacker](july.md#big-chat-with-the-hacker-begins) that started at home in Dénia is ongoing.
+- From time to time, I believe I am talking to the trumpet teacher I love and that he loves me back.
+- Our conversation is extremely intimate, and then it seems like other voices take over the conservation to make threats, send vile porn and images of violence, and play their ridiculous terror-games.
+- The change of voice is obvious to me.
+- Yet, it's hard for me to figure out what's going on as I believe there is only [one trumpet teacher](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero), not four or more.
+- The whole thing felt like a puzzle I had to solve.
+- I assume the strident and garish voices must be Domingo and Carmen Cano Lopez and their Spanish associates, along with Hazel and Sandra Smith and their British gang pals.
+- I guess there could have been scores of people interacting with me during this time in a threatening or sexually grooming manner, indeed even colleagues.
+- Perhaps the crime bosses allowed a little genuine communication with the actual man I loved to keep me interested and online, while still playing the long game where I would end up in their clutches.
+- As mentioned, I communicate with the hacker directly in the following way:
+    - I add a message to my Twitter profile - which I then delete to write the next one, hopefully making them feel safe enough to talk to me.
+    - Hackers reply in the profile message of a fake account which quickly likes a post of mine so I see it immediately in notifications.
+- I start to call the hacker, or the man I believe is the trumpet teacher I love, Vigas.
 
-!!! info
+!!! info "Why Vigas?"
     - The name Vigas comes from the [beams interaction in May](may.md#beams).
     - I believe this is the trumpet teachers' nickname as he has big legs.
     - Vigas is the word for wooden beams in Spanish.
 
+- Thinking back, I was shifting my tone depending on who I was talking with.
+- Vigas (`@beams_game`) had been utterly repugnant in retrospect but I had been out of my mind on spiked-drugs and aphrodisiacs.
+
+!!! tip "Present or past tense"
+    - I'm finding it interesting now, at Christmas 2025, that I'm using the past tense where I stayed in the present for most of this statement. 
+    - What's changed?
+    - I have a sense of safety I did not previously have now that I know the truth.
+    - Why use the present tense?
+    - Because I was still inside the prolonged trauma, the lie, reliving it constantly in the present; and also maybe because I was still being drugged in the UK so I would not find out the truth.
+
+- It's curious that I spoke to all the hackers I thought were the trumpet teacher as if they were one man, but I found all but one of them repellant.
+
 - I write messages like this:
+
     - "Vigas Vigas, put me in the movies. Oh wait, you did already."
     - "How quickly we went from 'I'm a lowly school teacher to I control all the women in the Marina Alta'."
     - "Vigas Vigas, is it true what they're saying, that the women of the Marina Alta have stopped locking their doors since you fell in love with me".
+
 - A lot of it was jokes, but there was serious stuff too.
 - It's a two way conversation. 
-- He tells me he's pure blood gypsy. He repeats, "I am a people".
+- He tells me he's pure blood gypsy.
+- He repeats, "I am a people".
 - I tell him I don't care, I'll learn his language.
 - He tells me his family will never accept me.
-- He tells me he's married. I say I don't care, I hope he's happy, and we can all be friends.
-- We talk about work and I send him job adverts for developers with salaries up to 300K; work that I should be doing with my skills and experience except the industry unilaterally hates women. I tell him he can go to the meetings and I'll help him with the coding.
-- He tells me that he has targeted 100s of women in the region and starts sending pictures of some of them.
-- I realize this is exactly what has happened to Patricia and, coupled with the fact she has a daughter and granddaughter, this is why she doesn't talk.
-- I see pictures on fake accounts of young and old women. I screenshot some of them.
-- He's also feeding me information regarding secret filming, spiking, and drug taking.
-- There is some suggestion that the gang has been involved in targeting children online as part of the global online child-sexual-abuse pornography epidemic. After he talks to me about this a little, I see fake accounts with scared-looking children holding plastic toys in their hands. I did not save or screenshot any of these. 
-- I'm reminded of the [game they invited me to play in May](may.md#telegramsignal).
+- He tells me he's married.
+- I say I don't care, I hope he's happy, and we can all be friends.
+- We talk about work and I send him job adverts for developers with salaries up to 300K; work that I should be doing with my skills and experience except the industry unilaterally hates women.
+- I tell him he can go to the meetings and I'll help him with the coding (probably should be the other way around).
+- He tells me that the gangs have targeted a multitude of women, young and old, in the region and he starts sending pictures of them.
+- He already told me about [Rocio Vidal](../2023/october.md#rocio-vidal) back in October 2023.
+- I had no idea what this meant.
+- Now I do.
+- I understand the true nature of the [state of Domingo's female students](../2022/june.md#maria-and-domingo) and ask him about that.
+
+![whipped up into a frenzy](../../content/images/whipped-up-into-a-frenzy.png)
+
+- He confirms my fears.
+- I realize that Patricia and other British women have been targeted.
+- I'm terrified for Trish's daughter and granddaughter, and realize this is why she doesn't talk to me normally, and why her son lives for long periods in his car in the UK (.. the gangs getting rid of any men who might raise the alarm).
+- It's not Vigas, the `@beams_game` account that is speaking to me about these things, the tone is completely different; genuine, caring, exhausted.
+- I screenshot some of the women; especially the ones I see again and again.
+- There is also some suggestion that the gang has been involved in targeting children online as part of the global online child-sexual-abuse pornography epidemic. 
+- After he talks to me about this a little, I see fake accounts with scared-looking children holding up plastic toys, or kitchen utensils, in their hands.
+- I did not save or screenshot any of these. 
+- I'm reminded of the [game they invited me to play in May](may.md#telegramsignal) and how it was attempting to lure me in.
 - I sense whoever I'm talking to wants out of this dreadful life.
-- I ask "How many more like me?". The answer is two more.
+- I ask "How many more are you monitoring like me right now?".
+
+![twitter message](../../content/images/example%20message.png)
+
+- The answer comes, two more.
 
 ### Signal and Telegram
 
@@ -145,7 +189,6 @@ function googleTranslateElementInit() {
 - I tell my friend from Lourdes that the trumpet teacher has told me he was in porn. She is horrified and asks me if I really want to be with someone like that.
 - I say I don't know but I also tell her that I'm devoted somehow; that something's going on that I have no control over so I just have to trust that it is all in God's plan.
 - I now wonder if everything I felt was just the long-term effects of narcotics I did not know I was ingesting.
-
 
 ## I realize I have been poisoned and drugged
 

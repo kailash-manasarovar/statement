@@ -64,7 +64,7 @@ function googleTranslateElementInit() {
 - It was always weird and, now, it is extremely concerning.
 
 !!! tip "Excited and nervous females"
-    - In 2024, as I am having a [close and intimate chat with the criminal gangs online](../2024/august.md#conversation-with-the-hacker) I realize this is *exactly* how I used to feel in class at the conservatory with the trumpet teacher, and at other times too.
+    - In 2024, as I am having a [close and intimate chat with the criminal gangs online](../2024/august.md#interview-with-the-hacker) I realize this is *exactly* how I used to feel in class at the conservatory with the trumpet teacher, and at other times too.
     - Nervous, anxious, flushed, heart-racing, confused, sexually aroused.
     - It's around this time I start to realize the full extent of the clandestine drugging I was a victim of.
 

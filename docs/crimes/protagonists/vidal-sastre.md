@@ -121,7 +121,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - Due to the age of these numerous YouTube films, I'm pretty sure they function as *music-student-porn-genre* adverts which means the danger to children studying music in Spain could be country-wide.
 - I also recognize this man as the same man who [interviewed me for a job where I would be looking at genitals all day](../../timeline/early-years/2016.md#march) in 2016, and who I saw in the town not long after.
-- I believe he told me his name is Viktor, and that he is the man with [the nickname Vigas](../../timeline/2024/august.md#conversation-with-the-hacker) who is running the [Beams grooming account](../../timeline/2024/may.md#beams).
+- I believe he told me his name is Viktor, and that he is the man with [the nickname Vigas](../../timeline/2024/august.md#interview-with-the-hacker) who is running the [Beams grooming account](../../timeline/2024/may.md#beams).
 - He is the man depicted as a monster on this [police statement's book cover](../../index.md) sitting alongside Domingo Cano Lopez.
 - It's possible there's a group of similar looking men who may be brothers and cousins with curly black hair, some tall some not so, with chunky bodies.
 - He looks similar again to the [man who bumped into me at EthCC](../../timeline/2024/july.md#meeting-a-weird-guy), a man I had not seen before.
