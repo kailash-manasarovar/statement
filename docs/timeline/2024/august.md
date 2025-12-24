@@ -195,17 +195,22 @@ function googleTranslateElementInit() {
 
 ### Hidden camera account
 
-- One morning, I wake up and I see an account that has liked one of my posts from the night before.
-- It has an eagle as profile pic. The same eagle profile pic on the account that posted about [peeping at preschoolers in April](april.md#fake-account-posts-about-peeping-at-pre-schoolers).
-- The account writes in the Hebrew language and I translate the pinned post.
-- The post details being targeted by someone who he had trusted, and had sex with, and was consequently stalked and filmed by secret cameras.
-- The account is here: https://x.com/Cr7Rival3711.
-- The pinned message is translated here:
+- One morning, I wake up and I see an [account](https://x.com/Cr7Rival3711) that has liked one of my posts from the night before.
+- It has an eagle as a profile pic; the same eagle profile pic on the account that posted about [peeping at preschoolers](april.md#fake-account-posts-about-peeping-at-pre-schoolers) in April.
+- The account writes in the Hebrew language.
+- I translate the pinned post.
+- The writer details being targeted by someone who he had trusted, and had sex with, and was consequently stalked and filmed with secret cameras.
+- The "he brought me back to him under different pretext", sounds like the way Domingo and Hazel lured me back to Denia again and again.
+- I think it's a man's voice; the trumpet teacher.
+- This is the message with translation:
 
 ![hidden cameras](../../content/images/fake-accounts/hidden-cameras.png)
 
-- I respond to this terrible tweet thread that I have just read: https://x.com/1FRGVN/status/1823957507728896499.
-- I start to think seriously about the possibility of hidden cameras in my apartment.
+- I respond to this terrible tweet thread that I have just read. 
+
+[![Spotless in the eyes of the Lord](../../content/tweets/spotless-in-the-eyes-of-the-Lord.png)](https://x.com/1FRGVN/status/1823957507728896499.)
+
+- This is the first moment I start to think seriously about the possibility of hidden cameras in my apartment.
 
 ### Conversations about porn
 
