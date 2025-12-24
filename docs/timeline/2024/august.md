@@ -337,7 +337,11 @@ function googleTranslateElementInit() {
 - When I see the daughter, she is in suggestive poses; post sex wearing the man's shirt, that sort of thing.
 - There were also a bunch of photos of her where she is *very clearly* underage, like 11 or 12.
 - Are they trying to say to me - along with the sexual arousal and constant porn bombardment - look, this is what women we know do, you could do it too?
-- I have a feeling that was always their game.
+- I have a feeling that was always their end goal for me.
+
+## Having a baby with the trumpet teacher
+
+- wip
 
 ## Hundreds of women like me
 
