@@ -133,6 +133,8 @@ function googleTranslateElementInit() {
 ![](../../content/images/signal-2.jpg)
 ![](../../content/images/signal-3.jpg)
 
+- It's worth considering the possibility that they all thought I was talking to them personally.
+
 ### Carmen Cano
 
 - The conversation continues even when I'm out hiking.
