@@ -103,7 +103,7 @@ function googleTranslateElementInit() {
 - He confirms my fears.
 - I realize that Patricia and other British women have been targeted.
 - I'm terrified for Trish's daughter and granddaughter, and realize this is why she doesn't talk to me normally, and why her son lives for long periods in his car in the UK (.. the gangs getting rid of any men who might raise the alarm).
-- It's not Vigas, the `@beams_game` account that is speaking to me about these things, the tone is completely different; genuine, caring, exhausted.
+- It's not Vigas, the `@beams_game` account, the [fourth man I remember from the trumpet teacher gang](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) that is speaking to me about these things, the tone is completely different; genuine, caring, exhausted.
 - I screenshot some of the women; especially the ones I see again and again.
 - There is also some suggestion that the gang has been involved in targeting children online as part of the global online child-sexual-abuse pornography epidemic. 
 - After he talks to me about this a little, I see fake accounts with scared-looking children holding up plastic toys, or kitchen utensils, in their hands.
@@ -120,11 +120,18 @@ function googleTranslateElementInit() {
 
 ### Signal and Telegram
 
-- I get messaged on various chat applications by weird account.
-- Here's one I added to the [Signal page](../../evidence/signal.md#signal)
-- I did enjoy winding them up, but it was relentless; missed calls, X profiles with Spanish mobile numbers in... 
+- Since the run up to the [Polygon Bali conference](may.md#bali), I constantly receive messages on my various chat applications from weird accounts.
+- I did enjoy winding them up at times, but it was relentless; missed calls, X profiles with Spanish mobile numbers, WhatsApps from sinister-looking people I don't know.
+
+![](../../content/images/signal-1.jpg)
+
 - At least I kept them busy. 
-- Did they know I was writing scores of letters by hand, I wonder?
+- Here's an example from August in which I replied to a fake account on Signal.
+- At the time I thought it must be [Hazel Smith](../early-years/2007.md#hazel-smith).
+- Reading this back today, I wonder if I was, in fact, speaking to [Ugly](#followed-by-the-gypsy-in-france), and he thought it was an invitation?
+
+![](../../content/images/signal-2.jpg)
+![](../../content/images/signal-3.jpg)
 
 ### Carmen Cano
 
@@ -391,6 +398,7 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 
 - I also send a copy of the first page of my [denuncia from March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
 - The conversation with the hacker continues as I do this.
+- Did they know I was writing scores of letters by hand, I wonder?
 
 ## Gabriel Silva's first team meeting as manager
 
