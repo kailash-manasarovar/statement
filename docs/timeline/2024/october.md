@@ -96,7 +96,7 @@ function googleTranslateElementInit() {
 - I am followed by older men the whole way along, men in their 50s and 60s.
 - On the way back home a couple starts walking in front of me.
 - The woman on the left is someone I've seen on a Twitter fake account and I had a screenshot of this prior to losing access to my machine on 1st December. She has quite a masculine body.
-- She has the same tattoo as the [innocent lady who gets into porn](august.md#photos-of-abused-women-and-girls) on her arm and she takes pains to show me.
+- She has the same tattoo as the [innocent lady who gets into porn](august.md#grooming-an-innocent-girl-into-porn-101) on her arm and she takes pains to show me.
 - The man on her right smiles and shows me his face. He looks like a possum.
 - I have this on camera.
 - I never go to the beach again.

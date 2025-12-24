@@ -295,7 +295,7 @@ function googleTranslateElementInit() {
 - The conversation I'm having with the hacker is about these women, who they are, and how appalled I am.
 - They all look either that they believe they are in private, or they are drugged and in situations it is not clear they would agree to if they were in their right minds. 
 - Many of the pics he sends via fake accounts appear to be a moment of shocked realization at having been filmed without consent or worse.
-- I asked the hacker how long it takes for them to (drug and) groom a woman like this.
+- I ask the hacker how long it takes for them to (drug and) groom a woman like this.
 - He responds; about six months.
 
 ### The woman's daughter
