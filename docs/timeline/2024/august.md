@@ -323,21 +323,21 @@ function googleTranslateElementInit() {
 
 ### The woman's daughter
 
-- Pictures of this woman are posted to me every day, relentlessly.
-- After a few weeks of this (although the first time I saw the woman was June 2023 most likely) another woman starts popping up.
-- She looks about 18 and has exactly the same facial features.
+- I see [this woman](#grooming-an-innocent-girl-into-porn-101) every day, relentlessly.
+- After a few weeks of this, I start to see another woman.
+- She looks young, maybe 14, and she has exactly the same facial features at the innocent woman.
 - It is her daughter.
-- Whoever the father is, looks a little bit like [number three trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) and of all the men who I remember this would be the only possible father due to skin color.
-- I realize that it is likely the original pics of the woman were taken maybe twenty years ago.
-- They got a baby from her.
+- Whoever the father is, looks like [number three trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) and of all the men pretending to be [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) that I remember he would be the only possible father due to skin color.
+- I realize that the woman was targeted decades ago, and they got a baby from her.
 - Here she is:
 
 ![The baby](../../content/images/fake-accounts/nov-24/daughter-of-innocent-lady.png)
 
 - More product.
-- When I see the daughter, she is in suggestive poses, post sex wearing the man's shirt, that sort of thing.
-- There were also a bunch of photos of her where she is *clearly* underage.
-- Are they trying to say - along with the sexual arousal and constant porn bombardment - look, this is what women we know do, you could do it too?
+- When I see the daughter, she is in suggestive poses; post sex wearing the man's shirt, that sort of thing.
+- There were also a bunch of photos of her where she is *very clearly* underage, like 11 or 12.
+- Are they trying to say to me - along with the sexual arousal and constant porn bombardment - look, this is what women we know do, you could do it too?
+- I have a feeling that was always their game.
 
 ## Hundreds of women like me
 
