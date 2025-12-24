@@ -195,12 +195,12 @@ function googleTranslateElementInit() {
 
 ### Hidden cameras trigger
 
-- One morning, I wake up and I see an [account](https://x.com/Cr7Rival3711) that has liked one of my posts from the night before.
-- It has an eagle as a profile pic; the same eagle profile pic on the account that posted about [peeping at preschoolers](april.md#fake-account-posts-about-peeping-at-pre-schoolers) in April.
+- One morning, I wake up and I see an [account](https://x.com/Cr7Rival3711) has liked one of my posts from the night before.
+- It has an eagle as a profile pic; the same eagle profile pic on the account that posted about [peeping at pre-schoolers](april.md#fake-account-posts-about-peeping-at-pre-schoolers) in April.
 - The account writes in the Hebrew language.
 - I translate the pinned post.
 - The writer details being targeted by someone who he had trusted, and had sex with, and was consequently stalked and filmed with secret cameras.
-- The "he brought me back to him under different pretext", sounds like the way Domingo and Hazel lured me back to Denia again and again.
+- The "he brought me back to him under different pretexts", sounds like the way Domingo and Hazel lured me back to Dénia again and again.
 - I think it's a man's voice; the trumpet teacher.
 - This is the message with translation:
 
