@@ -190,7 +190,7 @@ function googleTranslateElementInit() {
 - I had walked straight past him [when he attempted a personal meeting before](../2023/june.md#sunday-18th-june-alicante-airport), but I had recognized him.
 - The sight of him there made me shudder.
 - The interference with other men's pictures make everything confused online.
-- Were other trying the same thing?
+- Were other men trying for the same thing?
 - Was it open season on *me*?
 
 ### Hidden camera account
