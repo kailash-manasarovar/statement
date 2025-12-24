@@ -118,7 +118,7 @@ function googleTranslateElementInit() {
 - I ask him why doesn't he just stop, put down his headphones, turn off his computer, and leave, do something else?
 - He says they'll kidnap his daughters.
 
-### Signal and Telegram
+### Signal & Telegram harassment
 
 - Since the run up to the [Polygon Bali conference](may.md#bali), I constantly receive messages on my various chat applications from weird accounts.
 - I did enjoy winding them up at times, but it was relentless; missed calls, X profiles with Spanish mobile numbers, Telegram and Signal invitations to chat with fake accounts, WhatsApps from sinister-looking men I don't know.
@@ -128,7 +128,7 @@ function googleTranslateElementInit() {
 - At least I kept them busy. 
 - Here's an example from August in which I replied to a fake account on Signal.
 - At the time I thought it must be [Hazel Smith](../early-years/2007.md#hazel-smith).
-- Reading this back today, I wonder if I was, in fact, speaking to [Ugly](#followed-by-the-gypsy-in-france), and mistook it for an invitation, and took me up on it?
+- Reading this back today, I wonder if I was, in fact, speaking to [Ugly](#followed-by-the-gypsy-in-france), and he mistook it for an invitation, and took me up on it?
 
 ![](../../content/images/signal-2.jpg)
 ![](../../content/images/signal-3.jpg)
