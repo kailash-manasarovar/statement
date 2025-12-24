@@ -328,7 +328,7 @@ function googleTranslateElementInit() {
 - She looks young, maybe 14, and she has exactly the same facial features at the innocent woman.
 - It is her daughter.
 - Whoever the father is, looks like [number three trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) and of all the men pretending to be [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) that I remember he would be the only possible father due to skin color.
-- I realize that the woman was targeted decades ago, and they got a baby from her.
+- I realize that the woman was targeted over a decade ago, and they got a baby from her.
 - Here she is:
 
 ![The baby](../../content/images/fake-accounts/nov-24/daughter-of-innocent-lady.png)
