@@ -831,7 +831,7 @@ function googleTranslateElementInit() {
 ### Same account in August 
 
 - In August, a similar account likes something I've posted.
-- I detail this [in the August section of this police statement](august.md#hidden-camera-account).
+- I detail this [in the August section of this police statement](august.md#hidden-cameras-trigger).
 - The account has the same eagle trigger and Hebrew language as the one just mentioned.
 - I'm not sure if it is the same account. It could be.
 - I believe it to be the trumpet teacher I love, yet again.

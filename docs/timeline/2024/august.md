@@ -193,7 +193,7 @@ function googleTranslateElementInit() {
 - Were other men trying for the same thing?
 - Was it open season on *me*?
 
-### Hidden camera account
+### Hidden cameras trigger
 
 - One morning, I wake up and I see an [account](https://x.com/Cr7Rival3711) that has liked one of my posts from the night before.
 - It has an eagle as a profile pic; the same eagle profile pic on the account that posted about [peeping at preschoolers](april.md#fake-account-posts-about-peeping-at-pre-schoolers) in April.
