@@ -215,7 +215,7 @@ function googleTranslateElementInit() {
 ### Conversations about porn
 
 - The hacker starts to make references to having done porn, mainly gay porn, throughout his life.
-- The video results on the Google search for "1frgvn x" now include gay porn.
+- Video results on Google search for *@1frgvn x* now include gay porn.
 - I feel like the trumpet teacher is baring his soul, telling me the truth about his life.
 - It just seems to get worse and worse for him. 
 - I empathize. I do not judge him.
@@ -223,7 +223,7 @@ function googleTranslateElementInit() {
 - It makes sense to me now that he would not judge me when I made [my child sexual abuse disclosure](../2023/april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher) and perhaps he saw something of himself in me at that moment.
 - I tell Sandra Diaz that the trumpet teacher has told me he was in porn. 
 - She is horrified and asks me if I really want to be with someone like that.
-- I say I don't know but I also tell her that I'm devoted somehow; that something's going on that I have no control over so I just have to trust that it is all in God's plan.
+- I say I don't know but I also tell her that I'm devoted somehow; that something's going on that I have no control over so I just have to trust that it is all part of God's plan.
 
 ## I realize I have been poisoned and drugged
 
