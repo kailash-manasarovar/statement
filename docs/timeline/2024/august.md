@@ -115,6 +115,8 @@ function googleTranslateElementInit() {
 ![twitter message](../../content/images/example%20message.png)
 
 - The answer comes, two more.
+- I ask him why doesn't he just stop, put down his headphones, turn off his computer, and leave, do something else?
+- He says they'll kidnap his daughters.
 
 ### Signal and Telegram
 
