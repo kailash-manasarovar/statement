@@ -306,7 +306,7 @@ function googleTranslateElementInit() {
 !!! tip "A curiousity"
     - Isn't it curious I never told anyone about Hazel. Or other extraordinary things I knew about too. And they managed to get me run out of town with the lie that I'm a grass. Most marvelous karma kicking in, isn't it...
 
-- I tell her about the [innocent lady groomed into porn](august.md#photos-of-abused-women-and-girls) and the [sedated woman in the car](september.md#another-upsetting-targeted-woman), and the many pictures I received that I believe are targeted women, including [a picture of one of Domingo's students](../2023/october.md#choir) Elsa.
+- I tell her about the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101) and the [sedated woman in the car](september.md#another-upsetting-targeted-woman), and the many pictures I received that I believe are targeted women, including [a picture of one of Domingo's students](../2023/october.md#choir) Elsa.
 - Paloma looks briefly at my friend and says my story sounds like devil worship.
 - I'm even more dismayed. I know what this means.
 - I know she's not going to help me and she will be looking at covering it all up first and foremost.
