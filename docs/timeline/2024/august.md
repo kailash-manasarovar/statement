@@ -149,30 +149,40 @@ function googleTranslateElementInit() {
 - I believe now it was Carmen Cano I was conversing with at that time.
 - Seeing her prostate and humble in my mind's eye has been somewhat helpful, especially when I bump into [her and another woman coming out of my apartment building and smiling at me](october.md#serious-poisoning-with-intent-to-harm-or-kill) during an attempt at murdering me by poisoning at the end of October 2024.
 
-### The trumpet teacher pics
+### The trumpet teacher sends me photos of himself and his family
 
-- He sends interactions with accounts that have pictures that could be the trumpet teacher and his family from a long while back.
+- Whoever I'm talking to starts sending me photos of himself and his family.
+- This one I believe to be of [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) and his family.
 
 ![family](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
 
-- He talks about the above picture being the "lonely years" and there may be references to him being in the navy or armed services of some variety.
-- The following pic is apparently his dad, an extremely violent man who bullied his children appallingly, I'm told. I'm really sad for him when I hear all this.
+- His name may be Ivan.
+- The girl in the photo always looked familiar and I wonder if it is Gloria the conservatory receptionist.
+- The boy the trumpet teacher has his arm around I believe to be [the man that blew in my face](march/13-end.md#wednesday-13th-march) in March.
+- The hacker talks about the above picture being his *lonely years*; he made references to being in the navy or armed services for some time.
+- The picture, if indeed of trumpet teacher number four and Gloria, would be over 40 years old.
+- He made sinister references to his dad, the dark figure in the background, even to the point of suggesting he and his brother had murdered him.
+- The following photo is apparently his dad again, an extremely violent man who bullied his children appallingly, I was told.
 
 ![family](../../content/images/fake-accounts/family/Vigas%20dad.png)
 
-- I believe the pic below is the trumpet teacher's son, but of course I'm not at all sure about any of this and it could be an extremely elaborate con.
+- I'm really sad for him when I hear all this.
+- The photo below was sent and looks like the trumpet teacher's son; in this case [trumpet teacher number two](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013).
 
 ![family](../../content/images/fake-accounts/family/son.JPG)
 
-- Me and my mother discuss how sad this young man looks.
-- I'm not entirely sure if these are genuine pics or not.
-- However, I am delighted to receive them and I feel again a strong personal connection with whoever it is I'm communicating with.
-- These pics, coupled with the pics of the two boys that always show up on Google search, make me feel like I have a collection of personal pics sent by the trumpet teacher. 
-- I also have the strange sensation the brother (possible twin) is called Andre.
+- He also looks a lot like *Sara de Pastor* who joined [the harmony classes in 2022-2023](../2022/september.md#harmony).
+- My mother and I discuss how sad this young man looks.
+- I'm not sure if anything I'm being sent is genuine.
+- Nevertheless, I am delighted to receive them and I feel again a strong personal connection with whoever it is I'm communicating with.
+- I believe this exuberance was manipulated online and with drugs.
+- The set of photos I have now, including the two boys that always show up on Google search, make me feel like I have a decent collection of personal photos sent to me by the trumpet teacher. 
 
 ![family](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
 ![family](../../content/images/fake-accounts/family/andrew%20the%20brother.png)
 ![family](../../content/images/fake-accounts/family/curious%20boy%20family.png)
+
+- I also have the strange sensation that the brother is called Andre because the name flies by incessantly online from dodgy stalker accounts; but I could be mistaking all the Andrew references to [the Greek man with a twitch from 2015](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie).
 
 ### Hidden camera account
 
@@ -393,7 +403,7 @@ This pic looks exactly like a student of the conservatory studying under Domingo
 - I do this for two reasons:
     - Justice for the good people of Dénia and the Marina Alta region; especially the children, women, and girls.
     - To ensure my safety in some way because these people clearly have no intention of leaving me alone.
-- Along with the letter, I send some of the pictures that have been sent on fake accounts that may be related. I send all the [trumpet teacher pics](#the-trumpet-teacher-pics). 
+- Along with the letter, I send some of the pictures that have been sent on fake accounts that may be related. I send all the [trumpet teacher photos](#the-trumpet-teacher-sends-me-photos-of-himself-and-his-family). 
 - I also send pics of Rocio Vidal who I believe has been targeted since, as I mentioned, I saw a fake account pic of her on the bed about to take her clothes off.
 
 ![Rocio Vidal](../../content/images/Rocio-Vidal-on-Google-search.png)
