@@ -225,7 +225,7 @@ function googleTranslateElementInit() {
 - She is horrified and asks me if I really want to be with someone like that.
 - I say I don't know but I also tell her that I'm devoted somehow; that something's going on that I have no control over so I just have to trust that it is all part of God's plan.
 - I bet this was lies. 
-- Things had never gone as planned for the p£rn gangs of Dénia, and were continuing to spiral out of control.
+- Things had never gone as planned for the porn gangs of Dénia, and were continuing to spiral out of control.
 
 ## I realize I have been poisoned and drugged
 
