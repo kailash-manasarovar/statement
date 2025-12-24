@@ -229,18 +229,18 @@ function googleTranslateElementInit() {
 
 ### I realize I have been poisoned and drugged
 
-- It took a while but I finally realize why I got [rhabdo at class](../2023/january.md#serious-poisoning-at-chamber-music-class).
+- It took a while but I finally realize why I got [rhabdo at chamber music class](../2023/january.md#serious-poisoning-at-chamber-music-class) in January 2023.
 - It was something I would never have suspected. 
 - I had such a high regard for the teachers and staff at the conservatory.
-- I tweet a message out to Domingo Cano about it.
+- I tweet a message out to Domingo Cano Lopez about it.
 
 [![Rhabdo from drugging at class](../../content/tweets/rhabdo-august-2024.png)](https://x.com/1FRGVN/status/1825575948257009675)
 
 - A hacker responds, *I am so sorry*.
 - I start to think about my state of mind in general over the last two years.
-- It's all becoming clear to me, finally, at least the drugging and poisoning is.
+- It's all becoming clear to me, finally; at least the drugging and poisoning is.
 - On November 1st 2024, when I'm back in Dénia, the hacker uses a fake account to tell me something about this.
-- I was back home from Fatima, where [I had been fired from my job at Polygon](october.md#polygon-fires-the-whole-writing-team).
+- I was back home from Fatima, where [I had just been fired from my job at Polygon](october.md#polygon-fires-the-whole-writing-team).
 - A fake account with the name *Fatima* pops up with the word "medico" - doctor in Spanish.
 - I'm triggered to translate the profile message.
 
@@ -249,14 +249,16 @@ function googleTranslateElementInit() {
 
 - I wonder what they're trying to tell me; that the doctors in Dénia are poisoning people?
 - Could it be true?
-- I suspect this is also a warning to me because that last week I was my apartment in Dénia, sorry porn studio, I am certain I am being seriously poisoned.
-- In fact, I believe [they tried to murder me that week](october.md#serious-poisoning-with-intent-to-harm-or-kill).
-- The hacker says sorry again in a similar way, in July 2025, as I write to Moorfields Eye Hospital to report deteriorating peripheral vision.
+- I suspect this is also a warning to me because that last week I lived in my apartment in Dénia, sorry porn studio, I was being seriously poisoned.
+- In fact, [they tried to murder me that week](october.md#serious-poisoning-with-intent-to-harm-or-kill) by poisoning my water, food, toiletries, everything.
+- They had also doused all my belongings in pesticide while I was away in Fatima.
+- The hacker says sorry again in a similar way, in July 2025, as I'm writing to Moorfields Eye Hospital to report deteriorating peripheral vision.
 
 ![Hacker says sorry](../../content/images/hacker-says-sorry.jpg)
 
-- This is just before [another failed murder attempt](../2025/july.md#lourdes) in Lourdes, carried out by a woman Domingo knows well.
+- This is just before [another failed murder attempt](../2025/july.md#lourdes) in Lourdes, carried out by a woman Domingo knows well who may be called Taya.
 - They're not at all sorry, are they.
+- Do they think that saying sorry before they murder someone, or telling them what the plan is ten years before they carry it out, somehow absolves them?
 
 ## Photos of abused women and girls
 
