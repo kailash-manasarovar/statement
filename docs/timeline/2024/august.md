@@ -221,9 +221,9 @@ function googleTranslateElementInit() {
 - I empathize. I do not judge him.
 - He is as he is.
 - It makes sense to me now that he would not judge me when I made [my child sexual abuse disclosure](../2023/april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher) and perhaps he saw something of himself in me at that moment.
-- I tell my friend from Lourdes that the trumpet teacher has told me he was in porn. She is horrified and asks me if I really want to be with someone like that.
+- I tell Sandra Diaz that the trumpet teacher has told me he was in porn. 
+- She is horrified and asks me if I really want to be with someone like that.
 - I say I don't know but I also tell her that I'm devoted somehow; that something's going on that I have no control over so I just have to trust that it is all in God's plan.
-- I now wonder if everything I felt was just the long-term effects of narcotics I did not know I was ingesting.
 
 ## I realize I have been poisoned and drugged
 
