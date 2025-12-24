@@ -26,3 +26,9 @@
     - Does the tech-bro-porn-addict's hatred blind him to the truth? 
     - Hatred blinds completely.
     - Has the tech-bro hatred of women broken all boundaries to justify the most outrageous evil towards innocent people, and no-one that can do anything about it cares?
+
+## A dream
+
+- Maybe.
+- It's on deso.
+- Under consideration.
