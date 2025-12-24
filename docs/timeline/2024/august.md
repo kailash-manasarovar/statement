@@ -265,7 +265,7 @@ function googleTranslateElementInit() {
 
 - I start to see a woman on multiple fake accounts repeatedly.
 - I have been seeing her probably for over a year already but only now and then.
-- I think the earliest screenshot I have of her is from April 2024 but I had been seeing for a much longer time back, probably even from back in May 2023.
+- I think the earliest screenshot I have of her is from April 2024 but I had been seeing her for a much longer time back, probably even from back in May 2023.
 - The pictures start innocently and modestly, as if she is getting some professional pictures taken.
 
 ![photo shoot](../../content/images/targeted-women/innocent-lady/1.png)
@@ -288,7 +288,7 @@ function googleTranslateElementInit() {
 
 ![photo shoot](../../content/images/targeted-women/innocent-lady/8.png)
 
-- I then see her masturbating in private and filming it on her mobile where in my screenshot below you can only see her head. She is completely naked.
+- I then see her masturbating in private and filming it on her mobile where, in my screenshot below, you can only see her head. She is completely naked.
 
 ![photo shoot](../../content/images/targeted-women/innocent-lady/3.5.png)
 
@@ -312,10 +312,10 @@ function googleTranslateElementInit() {
 ![photo shoot](../../content/images/targeted-women/innocent-lady/7.png)
 
 - Note the tattoo on her stomach. 
-- I see this tattoo again on my last walks along [Las Marinas beach in October](october.md#sunday-6th-october) where I was so high I was hallucinating, and I was stalked and followed by middle-aged men for the whole walk which I eventually cut short it was so threatening.
+- I see this tattoo again on my last walk along [Las Marinas beach in October](october.md#sunday-6th-october) where I was so high I was hallucinating, and I was stalked and followed by middle-aged men for the whole walk which I eventually cut short it was so threatening.
 - I had the presence of mind to take my hiker's cam with me that day, and it was filming, and I believe I have images of them all.
 - It was very disturbing to see this woman over and over; I've only posted a small selection of the images I saw of her.
-- I started to see other women targeted for porn, just like this too; images going from privately sending nudes to ending up in a porn shoot sedated, non-consensual, and violent.
+- This was just the beginning of multiple women I saw in fake accounts; with images going from them privately sending nudes to ending up in a porn shoot non-consensual,sedated, and likely violent.
 - The conversation with the hacker is about these women; who they are, and how appalled I am.
 - Some of the pics are of women in even more shocking scenarios.
 - I ask the hacker how long it takes for them to (drug and) groom a woman like this.

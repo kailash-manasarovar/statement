@@ -102,6 +102,10 @@ function googleTranslateElementInit() {
 | ![pic]( ../../content/images/targeted-women/car-woman/7.png ) 
 This picture has the bananas and reminds me of the nude the woman sends while eating a banana. This fake account was sent to me at the beginning of October and references "home made poison". |
 
+## TEB in Dublin
+
+- One of the participants alludes to this woman.
+
 ## The conversation continues
 
 - The conservation with the hacker continues while I'm in France up until the 21st September.
