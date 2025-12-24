@@ -240,20 +240,22 @@ function googleTranslateElementInit() {
 - I start to think about my state of mind in general over the last two years.
 - It's all becoming clear to me, finally, at least the drugging and poisoning is.
 - On November 1st 2024, when I'm back in Dénia, the hacker uses a fake account to tell me something about this.
-- I just got back home from Fatima, two days after being [fired from my job at Polygon](october.md#polygon-fires-the-whole-writing-team).
-- A fake account with the name Fatima pops up with the word "medico" - doctor in Spanish.
+- I was back home from Fatima, where [I had been fired from my job at Polygon](october.md#polygon-fires-the-whole-writing-team).
+- A fake account with the name *Fatima* pops up with the word "medico" - doctor in Spanish.
 - I'm triggered to translate the profile message.
 
 ![doctor pic](../../content/images/doctor-1.png)
 ![doctor pic](../../content/images/doctor-2.png)
 
-- I also suspect this is a warning because the week I am in Dénia at my flat, from 27th October until I leave for London on the 3rd November 2024, I am certain I am being poisoned, and quite seriously too.
+- I wonder what they're trying to tell me; that the doctors in Dénia are poisoning people?
+- Could it be true?
+- I suspect this is also a warning to me because that last week I was my apartment in Dénia, sorry porn studio, I am certain I am being seriously poisoned.
 - In fact, I believe [they tried to murder me that week](october.md#serious-poisoning-with-intent-to-harm-or-kill).
 - The hacker says sorry again in a similar way, in July 2025, as I write to Moorfields Eye Hospital to report deteriorating peripheral vision.
 
 ![Hacker says sorry](../../content/images/hacker-says-sorry.jpg)
 
-- This is just before [another failed murder attempt](../2025/july.md#lourdes) by a woman Domingo knows well.
+- This is just before [another failed murder attempt](../2025/july.md#lourdes) in Lourdes, carried out by a woman Domingo knows well.
 - They're not at all sorry, are they.
 
 ## Photos of abused women and girls
