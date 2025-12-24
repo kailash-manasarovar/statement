@@ -141,13 +141,13 @@ function googleTranslateElementInit() {
 - The day I visit the Viscos mountain, we chat again in the same way, except I am using the mobile instead of desktop.
 - I find a curious parallel between [a book written by Paulo Coelho](https://fondationpaulocoelho.com/books/paulo-coelho-the-devil-and-miss-prym/) based in the village of Viscos, and the strange things going on between myself and the Dénia criminals.
 - I realize at the time of writing this section (July 2025) and looking back at that time that I was totally high during this period in the mountains in 2024 as well as in 2023, and probably even in 2022 and 2021.
-- I had no idea.
+- I had no idea I was being drugged.
 - While I'm hiking up towards the Viscos peak, I see in my mind's eye Carmen Cano on her knees begging for forgiveness or rather, begging someone, a man I believe, to take a different decision than the one they are taking which is causing her enormous upset.
 - It's such a vivid picture in my mind, and I see it repeatedly while I'm at the mountain.
 - I mention *Carmen* in some way to the hacker I'm communicating with at that moment - who I believe to be the trumpet teacher as usual.
 - There is a curt retort.
 - I believe now it was Carmen Cano I was conversing with at that time.
-- Seeing her prostate and humble in my mind's eye has been somewhat helpful, especially when I bump into [her and another woman coming out of my apartment building and smiling at me](october.md#serious-poisoning-with-intent-to-harm-or-kill) during her attempt at murdering me at the end of October 2024.
+- Seeing her prostate and humble in my mind's eye has been somewhat helpful, especially when I bump into [her and another woman coming out of my apartment building and smiling at me](october.md#serious-poisoning-with-intent-to-harm-or-kill) during an attempt at murdering me by poisoning at the end of October 2024.
 
 ### The trumpet teacher pics
 
