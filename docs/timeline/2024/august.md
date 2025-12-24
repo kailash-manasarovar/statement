@@ -167,7 +167,7 @@ function googleTranslateElementInit() {
 ![family](../../content/images/fake-accounts/family/Vigas%20dad.png)
 
 - I'm really sad for him when I hear all this.
-- The photo below was sent and looks like the trumpet teacher's son; in this case [trumpet teacher number two](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013).
+- The photo below was sent and looks like the trumpet teacher's son; in this case [trumpet teacher number two](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013), the Mark version.
 
 ![family](../../content/images/fake-accounts/family/son.JPG)
 
@@ -183,6 +183,15 @@ function googleTranslateElementInit() {
 ![family](../../content/images/fake-accounts/family/curious%20boy%20family.png)
 
 - I also have the strange sensation that the brother is called Andre because the name flies by incessantly online from dodgy stalker accounts; but I could be mistaking all the Andrew references to [the Greek man with a twitch from 2015](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie).
+
+#### Why would they do this?
+
+- I can only assume a sick, honey-trap, violent and pornographic relationship is intended for me by Ivan, [the third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), and the pictures ensure I will recognize the man when I eventually see him.
+- I had walked straight past him [when he attempted a personal meeting before](../2023/june.md#sunday-18th-june-alicante-airport), but I had recognized him.
+- The sight of him there made me shudder.
+- The interference with other men's pictures make everything confused online.
+- Were other trying the same thing?
+- Was it open season on *me*?
 
 ### Hidden camera account
 
