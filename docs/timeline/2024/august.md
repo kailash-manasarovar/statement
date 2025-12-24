@@ -227,30 +227,34 @@ function googleTranslateElementInit() {
 - I bet this was lies. 
 - Things had never gone as planned for the porn gangs of Dénia, and were continuing to spiral out of control.
 
-## I realize I have been poisoned and drugged
+### I realize I have been poisoned and drugged
 
 - It took a while but I finally realize why I got [rhabdo at class](../2023/january.md#serious-poisoning-at-chamber-music-class).
-- It was something I would never have suspected. I had such a high regard for the teachers and staff at the conservatory.
-- https://x.com/1FRGVN/status/1825575948257009675
+- It was something I would never have suspected. 
+- I had such a high regard for the teachers and staff at the conservatory.
+- I tweet a message out to Domingo Cano about it.
+
+[![Rhabdo from drugging at class](../../content/tweets/rhabdo-august-2024.png)](https://x.com/1FRGVN/status/1825575948257009675)
+
+- A hacker responds, *I am so sorry*.
 - I start to think about my state of mind in general over the last two years.
-- It's all becoming clear to me, finally.
-- I say "omg, you drugged me at class and gave me rhabdo".
-- He responds, "I am so sorry".
-- On November 1st 2024, when I'm back in Dénia, and although the conversation by that time has stopped mostly, the hacker uses a fake account to tell me something about this.
-- I've just recently got back from Fatima, and I see the word "medico" which is doctor in Spanish, so I'm triggered to translate the profile message.
+- It's all becoming clear to me, finally, at least the drugging and poisoning is.
+- On November 1st 2024, when I'm back in Dénia, the hacker uses a fake account to tell me something about this.
+- I just got back home from Fatima, two days after being [fired from my job at Polygon](october.md#polygon-fires-the-whole-writing-team).
+- A fake account with the name Fatima pops up with the word "medico" - doctor in Spanish.
+- I'm triggered to translate the profile message.
 
 ![doctor pic](../../content/images/doctor-1.png)
 ![doctor pic](../../content/images/doctor-2.png)
 
 - I also suspect this is a warning because the week I am in Dénia at my flat, from 27th October until I leave for London on the 3rd November 2024, I am certain I am being poisoned, and quite seriously too.
+- In fact, I believe [they tried to murder me that week](october.md#serious-poisoning-with-intent-to-harm-or-kill).
 - The hacker says sorry again in a similar way, in July 2025, as I write to Moorfields Eye Hospital to report deteriorating peripheral vision.
 
 ![Hacker says sorry](../../content/images/hacker-says-sorry.jpg)
 
-- It's difficult to know what to think about this.
-- I would obviously accept a genuine request for forgiveness.
-- I don't think it could possibly be the Cano's and associates who seemed to delight in the idea of my deteriorating health.
-- I still have samples.
+- This is just before [another failed murder attempt](../2025/july.md#lourdes) by a woman Domingo knows well.
+- They're not at all sorry, are they.
 
 ## Photos of abused women and girls
 
