@@ -93,7 +93,7 @@ function googleTranslateElementInit() {
 ![Choir student](../../content/images/fake-accounts/choir-student.png)
 
 - Note the dog collar.
-- This photo was sent the same time I was being bombarded with multiple fake accounts with pictures of women who were clearly being sexually abused in some way, or that was the inference one was supposed to make; including women [going from doing innocent photo shoots to doing porn](../2024/august.md#photos-of-abused-women-and-girls), and women [groomed from unwittingly sending nudes](../2024/september.md#another-upsetting-targeted-woman) into what looked to me like a sedated attack in a car with multiple people around.
+- This photo was sent the same time I was being bombarded with multiple fake accounts with pictures of women who were clearly being sexually abused in some way, or that was the inference one was supposed to make; including women [going from doing innocent photo shoots to doing porn](../2024/august.md#grooming-an-innocent-girl-into-porn-101), and women [groomed from unwittingly sending nudes](../2024/september.md#another-upsetting-targeted-woman) into what looked to me like a sedated attack in a car with multiple people around.
 - I was concerned enough to send the pic of Elsa to the Policia's trafficking email (which is supposed to be anonymous) in October 2024.
 - I got a reply from Dénia Police which, at the time of writing, I have not responded to given their [total lack of interest when I visited them](../2024/february.md#my-first-trip-to-the-spanish-police-in-denia) and my subsequent certainty, after two more visits to the Policia in Madrid, that I cannot trust them at all.
 

@@ -261,7 +261,7 @@ function googleTranslateElementInit() {
 - They're not at all sorry, are they.
 - Do they think that saying sorry before they murder someone, or telling them what their evil plan is ten years before they carry it out, somehow absolves them?
 
-## Photos of abused women and girls
+## Grooming an innocent girl into porn 101
 
 - At this time, I start to see a woman on fake accounts repeatedly.
 - In fact, I have seen her probably for over a year, I think the earliest pic I have of her is from April this year but I was receiving them for a much longer time back also.
@@ -295,6 +295,8 @@ function googleTranslateElementInit() {
 - The conversation I'm having with the hacker is about these women, who they are, and how appalled I am.
 - They all look either that they believe they are in private, or they are drugged and in situations it is not clear they would agree to if they were in their right minds. 
 - Many of the pics he sends via fake accounts appear to be a moment of shocked realization at having been filmed without consent or worse.
+- I asked the hacker how long it takes for them to (drug and) groom a woman like this.
+- He responds; about six months.
 
 ### The woman's daughter
 

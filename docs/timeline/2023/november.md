@@ -143,7 +143,7 @@ function googleTranslateElementInit() {
 - Fake accounts and constant online communications with nefarious players keep mentioning the name *Tonya*.
 - I don't know why.
 - I initially think Tonya is [the estate agent from La Xara](#the-woman-from-inmoxara-in-la-xara) but I'm wrong about that.
-- The following summer, another candidate for [who Tonya could be](../2024/august.md#photos-of-abused-women-and-girls) pops up every day on numerous fake accounts.
+- The following summer, another candidate for [who Tonya could be](../2024/august.md#grooming-an-innocent-girl-into-porn-101) pops up every day on numerous fake accounts.
 
 ![Who is Tonya](../../content/images/targeted-women/innocent-lady/1.png)
 

@@ -685,7 +685,7 @@ function googleTranslateElementInit() {
 ## Elbow-length white silk gloves
 
 - I see a fake account profile pic of a young girl.
-- I've seen this girl before and may see her again in August 2024 amongst [the bombardment of online porn I endure at that time](../2024/august.md#photos-of-abused-women-and-girls).
+- I've seen this girl before and may see her again in August 2024 amongst [the bombardment of online porn I endure at that time](../2024/august.md#grooming-an-innocent-girl-into-porn-101).
 - The girl looks young, about 18.
 - She is naked and sitting on a sofa.
 - She looks upset.
