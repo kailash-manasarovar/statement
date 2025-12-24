@@ -263,38 +263,61 @@ function googleTranslateElementInit() {
 
 ## Grooming an innocent girl into porn 101
 
-- At this time, I start to see a woman on fake accounts repeatedly.
-- In fact, I have seen her probably for over a year, I think the earliest pic I have of her is from April this year but I was receiving them for a much longer time back also.
-- The pictures start innocently and modestly, as if she is doing a modeling photo shoot.
+- I start to see a woman on multiple fake accounts repeatedly.
+- I have been seeing her probably for over a year already but only now and then.
+- I think the earliest screenshot I have of her is from April 2024 but I had been seeing for a much longer time back, probably even from back in May 2023.
+- The pictures start innocently and modestly, as if she is getting some professional pictures taken.
 
 ![photo shoot](../../content/images/targeted-women/innocent-lady/1.png)
-![photo shoot](../../content/images/targeted-women/innocent-lady/2.png)
 
-- They then appear to show her privately sending nudes to someone, and these private pics escalate into sexual activity.
+- Perhaps her and the photographer start up a relationship and he asks for personal photos from her phone.
 
 ![photo shoot](../../content/images/targeted-women/innocent-lady/2.1.png)
-![photo shoot](../../content/images/targeted-women/innocent-lady/2.2.png)
 ![photo shoot](../../content/images/targeted-women/innocent-lady/2.5.png)
+
+- The ducks are significant as this woman has been targeted by the porn gangs and is steadily being groomed and probably drugged too.
+- For some reason, she is a "sitting duck".
+
+![photo shoot](../../content/images/targeted-women/innocent-lady/2.png)
+
+- The photos then evolve into pictures of her privately sending nudes to someone.
+
+![photo shoot](../../content/images/targeted-women/innocent-lady/2.2.png)
+
 ![photo shoot](../../content/images/targeted-women/innocent-lady/3.png)
 
-- They then become her masturbating in private and probably filming it on her mobile. I deleted this one but kept a screenshot of the account where it showed up. The pic of her masturbating is the bottom pic where you can only see her head. She is completely naked in this picture.
+![photo shoot](../../content/images/targeted-women/innocent-lady/8.png)
+
+- I then see her masturbating in private and filming it on her mobile where in my screenshot below you can only see her head. She is completely naked.
 
 ![photo shoot](../../content/images/targeted-women/innocent-lady/3.5.png)
 
-- The pics then become a process towards being involved in serious porn or prostitution.
+- The professional "photo shoots" also evolve into something sexual, with more naked skin showing each time.
 
 ![photo shoot](../../content/images/targeted-women/innocent-lady/4.png)
+
 ![photo shoot](../../content/images/targeted-women/innocent-lady/5.png)
+
+- The pics then appear to be part of actual porn or prostitution. 
+- In the first here, she is only wearing a vest top.
+- I mention [vest tops](../2023/may.md#elvira) previously with regards to one of the children at the conservatory - Domingo's student - wearing a vest top just like this one for the choir concert.
+
+![photo shoot](../../content/images/targeted-women/innocent-lady/7.5.png)
+
+- [Trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) was in the audience that evening.
+
+- Finally, I see photos where the woman appears to be doing professional porn.
+
 ![photo shoot](../../content/images/targeted-women/innocent-lady/6.png)
 ![photo shoot](../../content/images/targeted-women/innocent-lady/7.png)
-![photo shoot](../../content/images/targeted-women/innocent-lady/7.5.png)
-![photo shoot](../../content/images/targeted-women/innocent-lady/8.png)
 
-- It was very disturbing to see this woman over and over. And this is only a small selection of the images I saw of her.
-- There were other women just like this too, going from privately sending nudes to clearly ending up in porn, likely sedated, non-consensual, and violent.
-- The conversation I'm having with the hacker is about these women, who they are, and how appalled I am.
-- They all look either that they believe they are in private, or they are drugged and in situations it is not clear they would agree to if they were in their right minds. 
-- Many of the pics he sends via fake accounts appear to be a moment of shocked realization at having been filmed without consent or worse.
+- Note the tattoo on her stomach. 
+- I see this tattoo again on my last walks along [Las Marinas beach in October](october.md#sunday-6th-october) where I was so high I was hallucinating, and I was stalked and followed by middle-aged men for the whole walk which I eventually cut short it was so threatening.
+- I had the presence of mind to take my hiker's cam with me that day, and it was filming, and I believe I have images of them all.
+- It was very disturbing to see this woman over and over; I've only posted a small selection of the images I saw of her.
+- I started to see other women targeted for porn, just like this too; images going from privately sending nudes to ending up in a porn shoot sedated, non-consensual, and violent.
+- The conversation with the hacker is about these women; who they are, and how appalled I am.
+- Some of the pics are of women in even more shocking scenarios.
 - I ask the hacker how long it takes for them to (drug and) groom a woman like this.
 - He responds; about six months.
 
