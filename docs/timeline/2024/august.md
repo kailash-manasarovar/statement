@@ -341,7 +341,16 @@ function googleTranslateElementInit() {
 
 ## Having a baby with the trumpet teacher
 
-- wip
+- This was another set of psychological triggers and symbolism coming from their manipulation tech.
+- The suggestion was that we were going to have a child, myself and the trumpet teacher.
+- The manipulation was extremely powerful and while I was high I did indeed believe this.
+- I saw a newborn in my arms while sitting on the sofa in Carrer Furs one evening probably at the end of April.
+- They posted pictures of a boy who might have been our child grown up.
+- It was relentless, again, especially over this period of intense targeting and drugging.
+- It's curious because I hadn't considered having children at my great (not really) age, but now I am open to it in a sane and healthy way, so they shot themselves in the foot a little there.
+- Also, this particularly evil form of the psychological manipulation they subject women to was now revealed, for me to report on.
+- It made me start thinking about all the babies these men must have had, and for what sick purposes; especially considering the hacker had been telling me about how a big part of their recent business had been manipulating children online into porn.
+- Makes Epstein & Co look like pipsqueaks.
 
 ## Hundreds of women like me
 
