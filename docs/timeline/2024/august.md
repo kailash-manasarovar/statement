@@ -354,14 +354,39 @@ function googleTranslateElementInit() {
 
 ## Communication with Patricia
 
-- Patricia sends me WhatsApp messages over this period which are rather unusual.
-- I'm very candid with her on [WhatsApp chats](../../evidence/whatsapps.md#patricia).
-- I wonder if she is being asked to check up on me.
-- She ignores everything I say in my messages but keeps communicating with me.
-- I assume she is not allowed to make comments on anything I have said.
-- It is very sinister. She sounds tired and too hot to be sat at her laptop. I wonder if her man is being kind to her.
+- Patricia sends me a WhatsApp message over this period which I find a little unusual.
+- Trish rarely sends me WhatsApps and in the midst of intense targeting and drugging by the porn gangs, I find it suspicious, especially the piano content and no mention of how I've been driven out of the conservatory in fear for my life.
+- Just like everything's normal... or is it supposed to be a tiny psychological wounding?
+- It is not the first time she did something like that.
+- *Best of luck with whatever you do next*, is more than sinister if everyone's expecting me to end up in the field with the horse.
+
+![](../../content/whatsapps/trish-1.jpg){width=35%}
+
+- I'm reply candidly with her on WhatsApp chats.
+- It's astonishing to me to read these chats that reveal how something evil has gotten a hold of my mind and how I'm constantly rewriting it into love.
+- Nevertheless, I know that was happening to me, which is bad, has happened to her.
+
+![](../../content/whatsapps/trish-2.jpg){width=35%}
+![](../../content/whatsapps/trish-3.jpg){width=35%}
+
+- It's so curious I mention Marc, then Vigas.
+- The random canvas she sends me looks a bit like a man and woman in bed.
+- I wonder if it comes from a still of events at my apartment (sorry, sedated porn studio).
+- It is supposed to be another psychological wounding?
+- That she completely ignores everything I have said to her, and then ignores my next messages, I find extremely sinister.
+
+![](../../content/whatsapps/trish-4.jpg){width=35%}
+![](../../content/whatsapps/trish-5.jpg){width=35%}
+
+- She sounds tired and too hot to be sat at her laptop.
+- Trish is in her seventies.
+- I wonder if her husband is being kind to her or not.
+- He's younger than her by quite a bit, Spanish.
+- I wonder what's in the tea he brings her every morning.
 
 ![Patricia communicating with me weirdly](../../content/images/p-and-dodgy-bloke-2.PNG)
+
+- I wonder what happened to her British husband and why she married the man that probably came out to [terrorize me at Halloween 2023](../2023/october.md#halloween).
 
 ## Followed by the gypsy in France
 
