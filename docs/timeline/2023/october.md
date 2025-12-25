@@ -539,7 +539,7 @@ function googleTranslateElementInit() {
 - Everyone is listening to our conversation.
 - I turn to Alex and say; "Sometimes, it takes an outsider".
 - I sing a song loudly that everyone can hear.
-- It's a cockney song, [`You Made Me Love You`](https://youtu.be/bMaCoxOGXPM), with apt lyrics for a manipulated and honey-trapped woman.
+- It's a cockney song, [`You Made Me Love You`](https://youtu.be/bMaCoxOGXPM), with apt lyrics for a manipulated woman repeatedly sedated for rape-porn.
 
 ![You made me love you](../../content/images/irish-pub-halloween.png)
 

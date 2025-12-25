@@ -389,7 +389,7 @@ function googleTranslateElementInit() {
 
 - I wonder what happened to her British husband and why she married the man that probably came out to [terrorize me at Halloween 2023](../2023/october.md#halloween); the man who could be a brother of [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) who [I actually saw in my bed](../2023/april.md#dreaming-of-the-trumpet-teacher), thinking it must have been a dream, back in those heady nights of sedated switcheroo after chamber music class at the conservatory.
 
-## Followed by the gypsy in France
+## Ugly
 
 - There comes a point in the conversation with the hacker over this time that feels like other people are now involved.
 - Peppered into the conversation are threats of violence, porn references, references to Ana again, wind up messages, the usual harassment.
