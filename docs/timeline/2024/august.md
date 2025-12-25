@@ -356,7 +356,7 @@ function googleTranslateElementInit() {
 
 - Patricia Penny, one of the British ex-pat hikers, sends me a WhatsApp message over this period which I find a little unusual.
 - Trish rarely sends me WhatsApps and in the midst of intense targeting and drugging by the porn gangs, I find it suspicious; especially the piano content and no mention of how I've been driven out of the conservatory in fear for my life.
-- Just like everything's normal... or is it supposed to be a tiny psychological wounding?
+- Just like everything's normal... is it supposed to be a tiny psychological wounding?
 - It is not the first time she did something like that.
 - *Best of luck with whatever you do next*, is more than sinister if everyone's expecting me to end up in the field with the horse.
 

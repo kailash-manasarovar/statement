@@ -557,7 +557,7 @@ function googleTranslateElementInit() {
 - I guess he could be Hazel Smith's partner in crime too; the elusive Paco Sendra.
 - He also looked a bit like the [man Patricia Penny was with at Christmas 2021](../2021/december.md#christmas).
 - Are these three men one and the same?
-- I get home and I am horribly unwell until the morning of the 2nd of November when I have to get up to start my new job.
+- I get home and I am horribly unwell until the morning of the 2nd of November when I have to get up to start my new job at Polygon.
 - I believe I drank water directly from the tap that night.
 - I'm in bed and my right kidney feels like it explodes.
 - I vomit profusely until late in the evening of 1st November.
