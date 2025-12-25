@@ -143,6 +143,22 @@ function googleTranslateElementInit() {
 - Flipping interesting isn't it.
 - She'll remember that.
 
+### Samayabura
+
+- After my detox at the Spa, I move to the hotel next door for a few more days of my holiday.
+- I've stayed there many times over the years and like it very much.
+- A woman is working there; she's a bit wild.
+- I'm not sure if she is really working there; she's not like a staff member.
+- She keeps saying she's "helping out".
+- She looks like a friend of mine, Eva.
+- I remember my brother telling us all about how one of his Thai "friends" had looked exactly like Eva.
+- She sort of tries to upset me a little, but I'm not biting.
+- The management seem to be a bit embarrassed by her.
+- I think nothing of it.
+- I rebook for [July 2023](../2023/july.md#thailand) and everything is confirmed.
+- At the last minute, literally two days before I arrive, they cancel my reservation saying they are doing renovations.
+- I am forced to move to the Poolsawat instead where I bump into [Hala](../2023/july.md#hala).
+
 ## Madrid
 
 - I stay in Madrid for a few days on the way home as my Thai flight lands there.
