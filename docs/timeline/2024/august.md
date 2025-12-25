@@ -386,7 +386,7 @@ function googleTranslateElementInit() {
 
 ![Patricia communicating with me weirdly](../../content/images/p-and-dodgy-bloke-2.PNG)
 
-- I wonder what happened to her British husband and why she married the man that probably came out to [terrorize me at Halloween 2023](../2023/october.md#halloween).
+- I wonder what happened to her British husband and why she married the man that probably came out to [terrorize me at Halloween 2023](../2023/october.md#halloween); the man who could be a brother of [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) who [I actually saw in my bed](../2023/april.md#dreaming-of-the-trumpet-teacher), thinking it must have been a dream, in those heady nights of switcheroo after chamber music class at the conservatory.
 
 ## Followed by the gypsy in France
 
