@@ -362,8 +362,8 @@ function googleTranslateElementInit() {
 
 ![](../../content/whatsapps/trish-1.jpg){width=35%}
 
-- I'm reply candidly with her on WhatsApp chats.
-- It's astonishing to me to read these chats that reveal how something evil has gotten a hold of my mind and how I'm constantly rewriting it into love.
+- I reply candidly.
+- It's astonishing to read these chats that reveal how something evil has gotten a hold of my mind and how I'm constantly rewriting it into love.
 - Nevertheless, I know that was happening to me, which is bad, has happened to her.
 
 ![](../../content/whatsapps/trish-2.jpg){width=35%}
