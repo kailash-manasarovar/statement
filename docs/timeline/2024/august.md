@@ -398,7 +398,7 @@ function googleTranslateElementInit() {
 - I've detailed numerous examples of that already. 
 - So the same pattern had developed within this intimate conversation about [the targeted women](#suspected-targets) while I was seeing photo after photo of them on fake accounts.
 - One evening, breaking into a communication I felt was genuine, a fake account likes one of my posts.
-- I check the profile and I see an extraordinarily ugly looking man and numerous photos of him with a young girl of about eight years old.
+- I check the profile and I see an extraordinarily ugly-looking man and numerous photos of him with a young girl of about eight years old.
 - It's a classic fake account, just a few pics, all of him, some with the girl.
 - He's brown-skinned and when I think back he may have been bare-chested.
 - He was wearing kilos of gold chains.
@@ -410,13 +410,13 @@ function googleTranslateElementInit() {
 - Someone had intended to kill him decades ago, I guess, and failed, it looked like.
 - The child with him looks exactly like Marie Fielding or Henderson (Zoe BJ's friend) young daughter.
 - I don't notice this at the time although my brain registers it today. I had assumed it was his daughter.
-- Marie has two daughters, I met them back in 2012 probably; one was about eight and the other twelve or so.
+- Marie has two daughters, I met them back in 2012 or earlier; one was about eight and the other twelve or so.
 - The photo could have been either of the daughters when they were about eight.
 - A few days later, maybe even the next day, I'm at the thermal baths in Cauterets.
 - This exact same man is sitting in one of the bubble chairs facing my direction.
-- He's a lot older.
+- He's a lot older than his photos.
 - He is sitting in the same [bubbly chair](../2023/august.md#in-the-baths-at-cauterets-with-sandra-rita-diaz) where I told Sandra Rita Diaz I would tame the trumpet teacher.
-- He is with a younger woman with long curly reddish hair.
+- He is with a younger white-skinned woman with long curly reddish hair.
 - The next day, a Monday I believe, I see them both in Lourdes.
 
 ### Distract and drug activity
@@ -425,9 +425,10 @@ function googleTranslateElementInit() {
 - I see the ugly man and the woman he was with at the baths walking towards me.
 - I'm amazed.
 - He passes me quickly, leaving the woman behind him.
-- Then she starts to look concerned and worried, as if they're arguing, and she starts running after him.
+- She then starts to look concerned and worried, as if they're arguing, and she starts running after him.
 - As she goes, she runs beside me on my right side.
 - It's textbook gypsy poisoning tactics and I wonder today if he had gone around to my left while I was distracted and popped something into my ear, as they do.
+- Or maybe someone else did.
 - I would recognize him again.
 - If anyone has a pic, that'd be cool.
 - This happens after [I start writing the handwritten letters](#the-handwritten-letters), because I add a note about it at the end of my original letter as it was superlatively threatening and needed mentioning.
