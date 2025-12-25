@@ -391,29 +391,44 @@ function googleTranslateElementInit() {
 
 ## Ugly
 
-- There comes a point in the conversation with the hacker over this time that feels like other people are now involved.
-- Peppered into the conversation are threats of violence, porn references, references to Ana again, wind up messages, the usual harassment.
-- However, in our chat I was very clear that I could not feel jealousy towards any woman that might make a man I loved happy, so I wondered who was posting these things. 
-- It seemed like, somehow, this stalker activity was completely separate to the conversation I was having with the hacker who I believed was the trumpet teacher. Of course, I may have been "supposed to" think this.
-- I assume others, Carmen Cano mainly, found out that we were communicating again and got involved. The reason I say Carmen Cano is because of things the hacker told me at that time, certain warnings he gave.
-- This had always been the pattern. Communication starts in a way which seems relatively private. Then there seems to be other voices involved, then a lot of piss takes and wind ups, insults etc. And then finally there is some shocking threat of violence or similar and communication breaks down. This is the pattern from:
-    - April to June 2023 while conversing over Twitter.
-    - June to August 2023 while conversing over Twitter, although there were obviously more than one involved in this communication. As I mentioned to Matthew Copeland at the time, I felt I had an audience.
-    - After that, the pattern repeats mainly with fake account activity, such as the American account Matthew, the account from Madrid at Christmas, Beams, HierEncore, etc, any stalker account that communicated with me directly followed this pattern of abuse and harassment. 
-- So the same pattern has started to develop now within this intimate conversation we have been having that includes a discussion of targeted women over the years.
-- An account likes one of my posts one evening, and I see this extraordinarily ugly looking man on it with a young girl of about 8 years old.
-- It's a classic fake account, just a few pics, all of him, but he looks like an evil person.
-- The young girl looks exactly like Marie Henderson's (Zoe BJ's friend) young daughter.
-- I don't notice this at the time although my brain registers it.
-- In retrospect it could have been either of the daughters when they were about eight.
-- A few days later, I see this exact same guy with a woman at the baths in Cauterets while I'm there. I'm shocked.
+- The constant cyber-stalking with the porn bombardments, psychological manipulation, and all the rest of it was completely separate to the more intimate and genuine conversation I was having with someone I believed was the trumpet teacher. 
+- Of course, I may have been "supposed to" think this.
+- It felt like we would have some moments to communicate and then a whole bunch of other voices would enter the space and I would communicate with them in the same way.
+- If they were rude and ridiculous, I responded accordingly.
+- If they were kind and concerned, I responded accordingly.
+- This had always been the pattern. Communication starts in a way which seems relatively private. Then there seems to be other voices involved, then a lot of piss takes and wind ups, insults etc. And then finally there is some shocking threat of violence or similar and communication breaks down. 
+- I've detailed numerous examples of that already. 
+- So the same pattern had developed within this intimate conversation about targeted women.
+- One evening, in the same vein, a fake account likes one of my posts.
+- I check the profile and I see numerous photos of an extraordinarily ugly looking man on it with a young girl of about eight years old.
+- It's a classic fake account, just a few pics, all of him.
+- He looks, to me, like a very evil person.
+- I do not screenshot the profile or keep a link to it.
+- To be fair to the man, his ugliness looks like the result of being beaten up extraordinarily badly to end up disfigured.
+- Someone had intended to kill him decades ago, I guess, and failed, it looked like.
+- The young girl with him looks exactly like Marie Fielding or Henderson's (Zoe BJ's friend) young daughter.
+- I don't notice this at the time although my brain registers it today.
+- Marie had two daughters I met back in 2012 probably; one was about eight and the other older.
+- In retrospect, the photo could have been either of the daughters when they were about eight.
+- A few days later, maybe even the next day, I'm at the thermal baths in Cauterets.
+- This exact same man is sitting in one of the bubble chairs facing my direction.
+- I'm appalled.
+- He is with a woman.
 - He is sitting in the same [bubbly chair](../2023/august.md#in-the-baths-at-cauterets-with-sandra-rita-diaz) where I told Sandra Rita Diaz I would tame the trumpet teacher.
-- I see him again a couple of days later in Lourdes. He nearly walks into me and his girlfriend is running after behind him worried.
-- I believe this could have been a distract and drug... she came up on the right side...
+- Again, maybe the next day, a Monday, I see him in Lourdes.
+
+### Distract and drug activity
+
+- I'm walking alongside Les Halles heading towards the high street.
+- I see him and the woman he was with at the baths walking towards me.
+- I'm amazed.
+- He passes me and starts looks concerned and worried, as if they're arguing, and she starts running after him while she's right beside me on my right side.
+- It's textbook gypsy poisoning tactics and I wonder today if he had gone around to my left while I was distracted and popped something into my ear, as they do.
 - I would recognize him again.
-- I add a note to this effect in my handwritten letter which you will see at the back on [page 21 and 22](../../content/documents/letters/scanned-hand-written-letter.pdf).
-- I think I know who this person is, bizarrely.
-- Could he have been the same person [I saw in Amsterdam](../early-years/2001.md#amsterdam) all those years ago?
+- If anyone has a pic, that'd be cool.
+- This happens after [I start writing the handwritten letters](#the-handwritten-letters), because I add a note about these events at the end as it was superlatively threatening.
+- And most curiously, I think I know who this person is.
+- Was he the same ugly man [I saw in Amsterdam](../early-years/2001.md#amsterdam) all those years ago?
 
 ## Suspected targets 
 
