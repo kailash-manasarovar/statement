@@ -392,32 +392,32 @@ function googleTranslateElementInit() {
 ## Ugly
 
 - The constant cyber-stalking, porn bombardment, psychological manipulation, and all the rest of it was completely separate to the more intimate and genuine conversation I was having with someone I believed was the trumpet teacher I loved. 
-- Of course, I may have been *supposed to* think this, at least I felt this way often until recently.
-- It felt like we would have some moments to communicate and then a whole bunch of other voices would enter the space and I would communicate with them in the same way.
-- If they were rude and ridiculous, I responded appropriately.
-- If they were kind and concerned, I responded appropriately.
-- This had always been the pattern. 
-- Communication starts in a way which seems relatively private. Then there seems to be other voices involved, then a lot of piss takes and wind ups, insults, etc. And then finally there is some shocking threat of violence or similar and communication breaks down. 
+- Of course, I may have been *supposed to* think this, I thought often, until recently.
+- Communication starts in a way which seems relatively private. 
+- Then other voices get involved; there's a lot of piss takes and wind ups, insults, etc. And then finally there is some shocking threat of violence or similar and communication breaks down. 
 - I've detailed numerous examples of that already. 
-- So the same pattern had developed within this intimate conversation about [the targeted women](#suspected-targets) and I was seeing photo after photo of them on fake accounts.
-- One evening, breaking into a communications I felt was genuine, a fake account likes one of my posts.
-- I check the profile and I see numerous photos of an extraordinarily ugly looking man on it with a young girl of about eight years old.
+- So the same pattern had developed within this intimate conversation about [the targeted women](#suspected-targets) while I was seeing photo after photo of them on fake accounts.
+- One evening, breaking into a communication I felt was genuine, a fake account likes one of my posts.
+- I check the profile and I see an extraordinarily ugly looking man and numerous photos of him with a young girl of about eight years old.
 - It's a classic fake account, just a few pics, all of him, some with the girl.
+- He's brown-skinned and when I think back he may have been bare-chested.
+- He was wearing kilos of gold chains.
 - He looks, to me, like a very evil person.
-- It shocks me, in fact.
+- The profile shocks me.
+- I'm so appalled, I close down my laptop and go to bed.
 - I do not screenshot the profile or keep a link to it.
 - To be fair to the man, his ugliness looks like the result of being beaten up extraordinarily badly so that he ended up disfigured.
 - Someone had intended to kill him decades ago, I guess, and failed, it looked like.
-- The young girl with him looks exactly like Marie Fielding or Henderson's (Zoe BJ's friend) young daughter.
-- I don't notice this at the time although my brain registers it today.
-- Marie has two daughters I met back in 2012 probably; one was about eight and the other twelve or so.
-- In retrospect, the photo could have been either of the daughters when they were about eight.
+- The child with him looks exactly like Marie Fielding or Henderson (Zoe BJ's friend) young daughter.
+- I don't notice this at the time although my brain registers it today. I had assumed it was his daughter.
+- Marie has two daughters, I met them back in 2012 probably; one was about eight and the other twelve or so.
+- The photo could have been either of the daughters when they were about eight.
 - A few days later, maybe even the next day, I'm at the thermal baths in Cauterets.
 - This exact same man is sitting in one of the bubble chairs facing my direction.
+- He's a lot older.
 - He is sitting in the same [bubbly chair](../2023/august.md#in-the-baths-at-cauterets-with-sandra-rita-diaz) where I told Sandra Rita Diaz I would tame the trumpet teacher.
-- I'm appalled.
-- He is with a woman.
-- Again, the next day, a Monday I believe, I see him in Lourdes.
+- He is with a younger woman with long curly reddish hair.
+- The next day, a Monday I believe, I see them both in Lourdes.
 
 ### Distract and drug activity
 
@@ -425,14 +425,14 @@ function googleTranslateElementInit() {
 - I see the ugly man and the woman he was with at the baths walking towards me.
 - I'm amazed.
 - He passes me quickly, leaving the woman behind him.
-- Then she starts to look concerned and worried, as if they're arguing, and she starts running after.
-- She runs beside me on my right side.
+- Then she starts to look concerned and worried, as if they're arguing, and she starts running after him.
+- As she goes, she runs beside me on my right side.
 - It's textbook gypsy poisoning tactics and I wonder today if he had gone around to my left while I was distracted and popped something into my ear, as they do.
 - I would recognize him again.
 - If anyone has a pic, that'd be cool.
 - This happens after [I start writing the handwritten letters](#the-handwritten-letters), because I add a note about it at the end of my original letter as it was superlatively threatening and needed mentioning.
 - And most curiously, I think I know who this person is.
-- Was he the same ugly man [I saw in Amsterdam](../early-years/2001.md#amsterdam) all those years ago?
+- And was he the same ugly man [I saw in Amsterdam](../early-years/2001.md#amsterdam) all those years ago?
 
 ## Suspected targets 
 
