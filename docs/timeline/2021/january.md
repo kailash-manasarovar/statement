@@ -29,6 +29,16 @@
 
 ## A dream
 
-- Maybe.
-- It's on deso.
-- Under consideration.
+- I had an interesting dream shortly after my aunt died.
+- A cherub - that reminded me of something in Dénia, and I even went looking for it when I moved back - flew in through the door and picked me up in its arms and we flew over to the rock at Massabielle and went inside.
+- There were cherubs sitting in a circle and I was brought into the circle and I sat very closely to the cherub who had picked me up, who reminded me of a girl I went to school with, Fiona.
+- But the cherub's face wasn't like Fiona's really, but for some reason it reminded me of her.
+- And then the boss came, Archangel Michael, and he was like an enormous ... I don't have words really ... and I was so scared I started crying and the cherub comforted me.
+- On Deso, I said it had felt like a job interview, and it had somehow.
+
+![The dream inside the rock at Massabielle](../../content/images/lourdes-dreaming.webp)
+
+- From that moment, I knew Archangel Michael as the boss.
+- I even told Sandra Diaz about this dream, and I now go to the rock to pay respect as much as possible whenever I am in Lourdes.
+- I had thought that there were paintings of these cherubs just like the one who whisked me off in one of the churches in Dénia, and in 2022 I went to look for them, but there weren't any.
+- When I did the detox in Glastonbury in 2022, the female host was called Fiona, and I thought maybe the dream was something to do with her, but that really didn't make any sense.

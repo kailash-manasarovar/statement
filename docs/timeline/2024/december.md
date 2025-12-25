@@ -10,7 +10,7 @@
     - More pictures of targeted women.
     - Pictures of possums.
     - A picture of a woman I saw on the beach but about 20 years younger.
-    - A very threatening picture of a man (rather like the [picture of the gypsy I saw in France](august.md#followed-by-the-gypsy-in-france)).
+    - A very threatening picture of a man (rather like the [picture of the gypsy I saw in France](august.md#ugly)).
     - Direct references to Domingo and Carmen Cano, poison and murder.
     - I see a picture of a man I know very well. He is with his family, but they're people I’ve never met before; a wife, grown up kids. For nearly 20 years, this man has been pretending to be the boyfriend (partner she said for a time) of a *once* very wealthy woman I know, a family member. I often remember him being at her home, whenever we had planned I would go over, but I never saw any of his stuff. It was always like he was visiting. Their baby was taken off them immediately. I'm glad about that. Did someone already know what was going on and that people's children were in peril? He may have taken half-a-million from her, more even, over this time; and was likely involved in drugging and psychologically terrorizing her in EXACTLY the same way I have experienced. Unfortunately, the woman I know was not able to stand up to them; the same gang.
 

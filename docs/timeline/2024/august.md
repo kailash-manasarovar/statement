@@ -128,7 +128,7 @@ function googleTranslateElementInit() {
 - At least I kept them busy. 
 - Here's an example from August in which I replied to a fake account on Signal.
 - At the time I thought it must be [Hazel Smith](../early-years/2007.md#hazel-smith).
-- Reading this back today, I wonder if I was, in fact, speaking to [Ugly](#followed-by-the-gypsy-in-france), and he mistook it for an invitation, and took me up on it?
+- Reading this back today, I wonder if I was, in fact, speaking to [Ugly](#ugly), and he mistook it for an invitation, and took me up on it?
 
 ![](../../content/images/signal-2.jpg)
 ![](../../content/images/signal-3.jpg)
