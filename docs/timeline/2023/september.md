@@ -647,17 +647,18 @@ function googleTranslateElementInit() {
 - I feel small stones hitting my bare legs painfully.
 - The car goes by and the young men whoop from inside.
 
-## My friend the fruit and vegetable seller
+## My friend the German translator
 
 - Turns out, I do have a good friend in Dénia, Elke Kopmann; one of the very few people in the world I love dearly; a woman with strong integrity and a powerful spiritual practice.
 - I do not attempt to see her until this time for two reasons. First, I had been depressed and didn't see anyone as a rule. Second, my head was spinning with what was going on for me and it was difficult to know how to deal with anything outside of prayer, and fighting the cyber-stalkers online.
 - In 2016, I was concerned that she was interacting with [Hazel Smith](../early-years/2007.md#hazel-smith) in some manner, I can't remember how, and I warned her about Hazel.
 - I told Elke that Hazel is not a good person.
 - I hadn't seen my friend since 2016. Since then, we only chatted a few times online and I hadn't had any contact with her since 2020.
-- She had been selling fruit and vegetables in the market for some years with her new boyfriend who I hadn't met yet.
-- The supply some of the best restaurants in the region, she told me.
+- Normally a German translator, she had a new job selling fruit and vegetables in the market for some years with her new boyfriend, who I hadn't met yet.
+- She also worked hard-labour in the fields growing the produce.
+- They supply some of the best restaurants in the region, she told me.
 - A common friend of ours is [Klara Sarkadi](../../crimes/introduction-agents.md#klara-sarkadi), the Orfeo choir master who is a close associate of Domingo and possibly a porn-gang victim introduction agent and side-line shepherdess (the name they use for anyone who plays a part in choreographed events that support the porn-gang's destruction of a lone drugged target).
-- Klara told me, repeatedly, how tired my friend was from working in the fields. 
+- Klara told me, repeatedly, how tired Elke was from working in the fields. 
 - "She's very tired," she'd say, repeatedly.
 - I go to buy some vegetables from Elke.
 - As I walk towards the stall, I see [Paqui Fornet Pastor](../../crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor) talking to Elke. 
@@ -666,7 +667,7 @@ function googleTranslateElementInit() {
 - We hug and exchange a few words.
 - She mentions how she and her boyfriend had seen me walking up the Calle La Mar towards the tunnel from the conservatory, on [Monday 12th June in the evening](june.md#monday-12th-june-2023). 
 - They were driving by me precisely at that moment. Why?
-- They had beeped at me apparently.
+- They had beeped at me and called my name apparently.
 - Hearing my name called as I walked up towards the tunnel that evening rings a bell.
 - I file the information away.
 - I buy some vegetables and leave.
@@ -681,18 +682,17 @@ function googleTranslateElementInit() {
 - She could only have known that if someone had been watching me in my flat (is there a camera in the kitchen too?), or going through my bins even, and then made sure she asked me about it.
 - To see if I'd lie?
 - It's safe to assume the criminals of Dénia would be over-interested in any and all genuine relationships I had with anyone in the town, and therefore all of our interactions.
-- At that moment, I began to become concerned my friend had been tricked too.
+- At that moment, I became concerned that my friend had been tricked too.
 - Could she have been honey-trapped and then enslaved to work in the fields?
 - She has no money but she is physically strong.
-- Her profession is German translator and she works for the court.
 - Why is she slaving away in the fields every day? She's over 60.
 - Her man, who was weird with me, is probably more than 20 years younger than her, and has delicate hands and doesn't look overworked at all.
-- Does he spend all his time with her at her home? She told me they both live there. (The litmus test for a honey-trap relationship where a man has another family.)
+- Does he spend all his time with her at her home? She told me they both live there. (The litmus test for a honey-trap relationship where a man has another life.)
 - I remembered she was always going to a local psychic/match-maker in 2016 looking for a man, and knowing what I now know about this town and the monstrous but powerful minority that controls it, I shuddered.
-- Another time I go for vegetables, [Thao](may.md#acupuncture-with-thao-qi) is there. Is she waiting for me too? 
+- Another time I go for vegetables, [Thao](may.md#acupuncture-with-thao-qi) is there, the acupuncturist who told me I had diabetes and I must see my GP about it. Is she waiting for me too? 
 - She says hi, and asks if I went back to classes at the conservatory after the attack.
 - I say yes I did, strongly.
-- Another time I go for vegetables, [Domingo](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) is there, on his own, with the two little girls from Madrid that he teaches, and who [I told Paloma about](../2024/october.md#madrid-and-paloma) in October 2024.
+- Another time I go for vegetables, [Domingo](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) is there, on his own, accompanying the two little girls from Madrid that he teaches, and who [I told Paloma about](../2024/october.md#madrid-and-paloma) in October 2024.
 - I give him a [therapy card](#praying-at-cauterets).
 - He shouts, "ooooh, touch", elongating the word *touch* in a salacious manner, and leaves with the little girls.
 - My friend says, oh you know him, and tells me that she sees him all the time with his daughters.
@@ -726,6 +726,7 @@ function googleTranslateElementInit() {
 - I see much online content related to "pandas" during his visit.
 - *Panda* is typically how online stalkers referenced my Tibetan monk friend; while he was visiting and ongoing, including making [references to the exact amount of a monetary gift I send to him online at Christmas](../2024/march/1-12.md#fake-accounts-reference-payments-i-have-made-online).
 - Two years after the events, it occurs to me that my Tibetan friend, Lama Ashak, could be [involved in the conspiracy](#could-my-tibetan-friend-have-been-involved-in-the-porn-conspiracy).
+- Does he have a porn subscription?
 
 ### Gang stalking on the beach
 
