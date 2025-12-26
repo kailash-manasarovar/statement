@@ -536,10 +536,25 @@ function googleTranslateElementInit() {
 - The hacker started posting this pic on my Google search results [back in October 2023](../2023/october.md#rocio-vidal).
 - A Spanish official confirmed to me that she had been hacked in [October 2024](../2024/october.md#madrid-and-paloma).
 
+##### 7.
+
+![pic]( ../../content/images/targeted-women/8.png ) 
+
+- Who is she?
+
+##### 8.
+
+![pic]( ../../content/images/targeted-women/9.png ) 
+
+- Who is she?
+
+##### 9.
+
+![pic]( ../../content/images/targeted-women/10.png )  
+
+- Who is she?
+
 <!--
-| ![pic]( ../../content/images/targeted-women/8.png ) |
-| ![pic]( ../../content/images/targeted-women/9.png ) |
-| ![pic]( ../../content/images/targeted-women/10.png )  |
 | ![pic]( ../../content/images/targeted-women/11.png )  |
 | ![pic]( ../../content/images/targeted-women/12.png )  |
 | ![pic]( ../../content/images/targeted-women/13.png )  |
