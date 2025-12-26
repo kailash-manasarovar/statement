@@ -42,3 +42,4 @@
 - I even told Sandra Diaz about this dream, and I now go to the rock to pay respect as much as possible whenever I am in Lourdes.
 - I had thought that there were paintings of cherubs just like the one who whisked me off in one of the churches in Dénia, and in 2022 I went to look for them, but there weren't any.
 - When I did [the detox in Glastonbury in 2022](../2022/july.md#glastonbury), the female host was called Fiona, and I thought maybe the dream was something to do with her, but that really didn't make any sense.
+- You know, I wonder, could Hazel Smith's real name be Fiona?
