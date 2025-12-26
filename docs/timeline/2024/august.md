@@ -529,6 +529,7 @@ function googleTranslateElementInit() {
 ![pic]( ../../content/images/targeted-women/7.png ) 
 
 - This is Rocio Vidal, famous Spanish YouTuber who was hacked by the gangs, and, I believe, forced into doing porn for them.
+- I wonder if that means porn-addicts can "request" a particular woman is targeted and, if there's enough interest to make it financially worthwhile, they go for it.
 - I saw another fake account where she is sitting on a bed, looking at the camera, about to take her top off.
 - It looks like she's been in hair-and-makeup in this photo.
 - I mention Rocio Vidal throughout this statement.
