@@ -690,17 +690,15 @@ function googleTranslateElementInit() {
 
 ### The excessive porn on X begins
 
-- Suddenly I'm seeing a lot of porn on my X timeline and google searches.
+- Suddenly I'm seeing a lot more porn on my X timeline and google searches.
 - It feels like Domingo and his cohort are teasing me; posting things that they hope will upset me.
-- A porn video pops up on my timeline and the people in it look like the trumpet teacher ([trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man)) and Ana so I look at it.
+- A porn video pops up on my timeline and the people in it look like the trumpet teacher ([trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man)) and Ana Requena so I look at it.
 - It is extremely violent.
 - He is holding her by the neck and flinging her around the kitchen.
 - It certainly wasn't Ana but the woman was of a similar build and look.
 - She actually looked like one of the bank tellers at the ING bank in the Marquis de Campo.
 - I don't believe the woman was aware she was being filmed.
 - The man's back was to the camera - as usual, such cowardice.
-- Before I was aware of the switcheroo, I noticed he was the same height and build of the man that I was always *shown* wearing the dirty brown leather jacket; at the [choir concert](../2022/december.md#choir-concert), when I was [drugged outside the tunnel](../2024/april.md#drugged-in-the-street-by-denia-gypsies), at [the beach](../2023/september.md#gang-stalking-on-the-beach), and elsewhere.
-- Could one of those stand-ins have been Lorraine Blackbourn's ex-husband?
 
 ### Interesting tweets from this period that suggest communication with online groups unknown
 
