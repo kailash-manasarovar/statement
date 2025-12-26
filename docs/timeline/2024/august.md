@@ -424,16 +424,19 @@ function googleTranslateElementInit() {
 - I'm walking alongside Les Halles heading towards the high street.
 - I see the ugly man and the woman he was with at the baths walking towards me.
 - I'm amazed.
+
+![Ugly and co](../../content/images/ugly-and-co.png)
+
 - He passes me quickly, leaving the woman behind him.
-- She then starts to look concerned and worried, as if they're arguing, and she starts running after him.
+- She immediately looks concerned and worried, as if they're arguing, and starts running after him.
 - As she goes, she runs beside me on my right side.
 - It's textbook gypsy poisoning tactics and I wonder today if he had gone around to my left while I was distracted and popped something into my ear, as they do.
 - Or maybe someone else did.
 - I would recognize him again.
-- If anyone has a pic, that'd be cool.
 - This happens after [I start writing the handwritten letters](#the-handwritten-letters), because I add a note about it at the end of my original letter as it was superlatively threatening and needed mentioning.
 - And most curiously, I think I know who this person is.
 - And was he the same ugly man [I saw in Amsterdam](../early-years/2001.md#amsterdam) all those years ago?
+- And ChatGPT is working miracles today because I believe that's *exactly* what they were wearing!
 
 ## Suspected targets 
 
