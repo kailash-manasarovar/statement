@@ -408,13 +408,13 @@ function googleTranslateElementInit() {
 - I do not screenshot the profile or keep a link to it.
 - To be fair to the man, his ugliness looks like the result of being beaten up extraordinarily badly so that he ended up disfigured.
 - Someone had intended to kill him decades ago, I guess, and failed, it looked like.
-- The child with him looks exactly like Marie Fielding or Henderson (Zoe BJ's friend) young daughter.
+- The child with him looks exactly like Marie Fielding's (or Henderson, Zoe BJ's friend) young daughter.
 - I don't notice this at the time although my brain registers it today. I had assumed it was his daughter.
 - Marie has two daughters, I met them back in 2012 or earlier; one was about eight and the other twelve or so.
 - The photo could have been either of the daughters when they were about eight.
 - A few days later, maybe even the next day, I'm at the thermal baths in Cauterets.
 - This exact same man is sitting in one of the bubble chairs facing my direction.
-- He's a lot older than his photos.
+- He's a lot older than his photos, thinner.
 - He is sitting in the same [bubbly chair](../2023/august.md#in-the-baths-at-cauterets-with-sandra-rita-diaz) where I told Sandra Rita Diaz I would tame the trumpet teacher.
 - He is with a younger white-skinned woman with long curly reddish hair.
 - The next day, a Monday I believe, I see them both in Lourdes.
