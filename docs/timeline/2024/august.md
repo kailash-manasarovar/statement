@@ -518,10 +518,13 @@ function googleTranslateElementInit() {
 
 ##### 5.
 
+![pic]( ../../content/images/targeted-women/6.png ) 
+
+- Bunny girl ballerinas at a photo or video shoot.
+- The girls look young. 
+- Who is she?
 
 <!--
-| ![pic]( ../../content/images/targeted-women/6.png ) 
-Referencing bunny girls maybe. Surely this is a photo shoot but the girls look extremely young. |
 | ![pic]( ../../content/images/targeted-women/7.png ) |
 | ![pic]( ../../content/images/targeted-women/8.png ) |
 | ![pic]( ../../content/images/targeted-women/9.png ) |
