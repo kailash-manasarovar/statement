@@ -651,7 +651,8 @@ function googleTranslateElementInit() {
 
 - Turns out, I do have a good friend in Dénia, Elke Kopmann; one of the very few people in the world who I love dearly, and will always love; a woman with strong integrity and a powerful spiritual practice.
 - I do not attempt to see her until this time for two reasons. First, I had been depressed and didn't see anyone as a rule. Second, my head was spinning with what was going on for me and it was difficult to know how to deal with anything outside of prayer, and fighting the cyber-stalkers online.
-- I hadn't seen my friend since 2016. We only chatted a few times online and I hadn't had any contact with her since 2020.
+- I hadn't seen my friend since 2016. Since then, we only chatted a few times online and I hadn't had any contact with her since 2020.
+- In 2016, I was concerned that she was interacting with Hazel Smith in some manner, I can't remember what the connection was, and I told her that Hazel is not a good person.
 - She had been selling fruit and vegetables in the market for some years with her new boyfriend who I hadn't met yet.
 - A common friend of ours is Klara Sarkadi, the Orfeo choir master who is a close associate of Domingo and possibly a porn-gang victim introduction agent and side-line shepherdess (the name they use to call anyone who plays a part in choreographed events that support the porn-gang's destruction of a lone target).
 - Klara told me repeatedly how tired my friend was from working in the fields. 
