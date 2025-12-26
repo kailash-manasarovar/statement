@@ -675,19 +675,22 @@ function googleTranslateElementInit() {
 - The next time I see my friend, she asks me if my vegetables were OK in an overly concerned manner.
 - I lie and say yes they were fine.
 - How did she know my onion was rotten?
-- She could only have known that if someone had been watching me in my flat, or going through my bins even, and made sure she asked me about it.
+- She could only have known that if someone had been watching me in my flat, or going through my bins even, and then made sure she asked me about it.
 - To see if I'd lie?
 - It's safe to assume the criminals of Dénia would be over-interested in any and all genuine relationships I had with anyone in the town, and therefore all of our interactions.
 - At that moment, I began to become concerned my friend had been tricked too.
 - Could she have been honey-trapped and then enslaved to work in the fields?
-- She has no money but she is very strong.
-- Her man, who was weird with me, is probably about 20 years younger than her, and has delicate hands and doesn't look overworked at all.
+- She has no money but she is physically strong.
+- Her profession is German translator and she works for the court.
+- Why is she slaving away in the fields every day. She's over 60.
+- Her man, who was weird with me, is probably more than 20 years younger than her, and has delicate hands and doesn't look overworked at all.
+- Does he spend all his time with her at her home? She told me they both live there. (The litmus test for a honey-trap relationship where a man has another family.)
 - I remembered she was always going to a local psychic/match-maker in 2016 looking for a man, and knowing what I now know about this town and the monstrous but powerful minority that controls it, I shuddered.
 - Another time I go for vegetables, [Thao](may.md#acupuncture-with-thao-qi) is there. Is she waiting for me too? 
 - She says hi, and asks if I went back to classes at the conservatory after the attack.
-- I say yes I did, very strongly.
+- I say yes I did, strongly.
 - Another time I go for vegetables, [Domingo](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) is there, on his own, with the two little girls from Madrid that he teaches, and who [I told Paloma about](../2024/october.md#madrid-and-paloma) in October 2024.
-- I give him a [therapy card](#praying-at-cauterets) in person.
+- I give him a [therapy card](#praying-at-cauterets).
 - He shouts, "ooooh, touch", elongating the word *touch* in a salacious manner, and leaves with the little girls.
 - My friend says, oh you know him, and tells me that she sees him all the time with his daughters.
 - I tell her they are not his daughters.
