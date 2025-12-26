@@ -467,11 +467,13 @@ function googleTranslateElementInit() {
 
 ### Victims posted in August 
 
+##### 1.
+
 ![pic]( ../../content/images/targeted-women/1.png ) 
 
 - This looks like a first meeting. 
 - Has she traveled to meet someone? 
-- She appears to have her overnight back with her.  
+- She appears to have her overnight bag with her.  
 - I see photos in September which show her again with much longer hair and revealing herself a little, just like the [innocent girl](#grooming-an-innocent-girl-into-porn-101) - see the next pic. 
 - The weirdest thing about this woman is I think I know her. 
 - Could it be my colleague from Diabetes UK who met a French bus driver and moved to France in 1999? 
@@ -486,8 +488,16 @@ function googleTranslateElementInit() {
 - Now, still, I'm not so sure.
 - But here we are, and anything can happen now.
 
+##### 2.
+
+![pic]( ../../content/images/targeted-women/2.png )
+
+- I believe I also saw a profile pic of this woman in a bedroom, crouched down at the wall crying.
+- The photo I saw had to be coming from a spy-cam up in the corner of the room.
+- It looked a lot like one of the master bedrooms at Joan Fuster, nearly exactly like mine except a different arrangement.
+- This may be a close up of the other pic I saw.
+
 <!--
-| ![pic]( ../../content/images/targeted-women/2.png ) |
 | ![pic]( ../../content/images/targeted-women/3.png ) The profile message on this pic mentioned three blows to the head. |
 | ![pic]( ../../content/images/targeted-women/4.png ) |
 | ![pic]( ../../content/images/targeted-women/5.png ) 
