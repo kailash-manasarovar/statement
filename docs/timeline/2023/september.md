@@ -649,16 +649,18 @@ function googleTranslateElementInit() {
 
 ## My friend the fruit and vegetable seller
 
-- Turns out, I do have a good friend in Dénia, Elke Kopmann; one of the very few people in the world who I love dearly, and will always love; a woman with strong integrity and a powerful spiritual practice.
+- Turns out, I do have a good friend in Dénia, Elke Kopmann; one of the very few people in the world I love dearly; a woman with strong integrity and a powerful spiritual practice.
 - I do not attempt to see her until this time for two reasons. First, I had been depressed and didn't see anyone as a rule. Second, my head was spinning with what was going on for me and it was difficult to know how to deal with anything outside of prayer, and fighting the cyber-stalkers online.
+- In 2016, I was concerned that she was interacting with [Hazel Smith](../early-years/2007.md#hazel-smith) in some manner, I can't remember how, and I warned her about Hazel.
+- I told Elke that Hazel is not a good person.
 - I hadn't seen my friend since 2016. Since then, we only chatted a few times online and I hadn't had any contact with her since 2020.
-- In 2016, I was concerned that she was interacting with Hazel Smith in some manner, I can't remember what the connection was, and I told her that Hazel is not a good person.
 - She had been selling fruit and vegetables in the market for some years with her new boyfriend who I hadn't met yet.
-- A common friend of ours is Klara Sarkadi, the Orfeo choir master who is a close associate of Domingo and possibly a porn-gang victim introduction agent and side-line shepherdess (the name they use to call anyone who plays a part in choreographed events that support the porn-gang's destruction of a lone target).
-- Klara told me repeatedly how tired my friend was from working in the fields. 
+- The supply some of the best restaurants in the region, she told me.
+- A common friend of ours is [Klara Sarkadi](../../crimes/introduction-agents.md#klara-sarkadi), the Orfeo choir master who is a close associate of Domingo and possibly a porn-gang victim introduction agent and side-line shepherdess (the name they use for anyone who plays a part in choreographed events that support the porn-gang's destruction of a lone drugged target).
+- Klara told me, repeatedly, how tired my friend was from working in the fields. 
 - "She's very tired," she'd say, repeatedly.
 - I go to buy some vegetables from Elke.
-- As I walk towards the stall, I see [Paqui Fornet Pastor](../../crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor) talking to my Elke. 
+- As I walk towards the stall, I see [Paqui Fornet Pastor](../../crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor) talking to Elke. 
 - She gives me the side-eye and walks away.
 - I meet my friend Elke.
 - We hug and exchange a few words.
@@ -675,15 +677,15 @@ function googleTranslateElementInit() {
 - I throw it away.
 - The next time I see my friend, she asks me if my vegetables were OK in an overly concerned manner.
 - I lie and say yes they were fine.
-- How did she know my onion was rotten?
-- She could only have known that if someone had been watching me in my flat, or going through my bins even, and then made sure she asked me about it.
+- Did she know my onion was rotten?
+- She could only have known that if someone had been watching me in my flat (is there a camera in the kitchen too?), or going through my bins even, and then made sure she asked me about it.
 - To see if I'd lie?
 - It's safe to assume the criminals of Dénia would be over-interested in any and all genuine relationships I had with anyone in the town, and therefore all of our interactions.
 - At that moment, I began to become concerned my friend had been tricked too.
 - Could she have been honey-trapped and then enslaved to work in the fields?
 - She has no money but she is physically strong.
 - Her profession is German translator and she works for the court.
-- Why is she slaving away in the fields every day. She's over 60.
+- Why is she slaving away in the fields every day? She's over 60.
 - Her man, who was weird with me, is probably more than 20 years younger than her, and has delicate hands and doesn't look overworked at all.
 - Does he spend all his time with her at her home? She told me they both live there. (The litmus test for a honey-trap relationship where a man has another family.)
 - I remembered she was always going to a local psychic/match-maker in 2016 looking for a man, and knowing what I now know about this town and the monstrous but powerful minority that controls it, I shuddered.
