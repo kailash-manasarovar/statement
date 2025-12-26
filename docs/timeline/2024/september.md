@@ -155,8 +155,6 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 | ![pic]( ../../content/images/targeted-women/25.png ) |
 | ![pic]( ../../content/images/targeted-women/26.png ) |
 | ![pic]( ../../content/images/targeted-women/27.png ) |
-| ![pic]( ../../content/images/targeted-women/28.png ) 
-The above pic shows the woman from a previous pic in August with shorter hair. In this pic, she is revealing underwear which is something the innocent lady did too. I wonder if these are stages of grooming into porn. She looks like she has been professionally made up. |
 | ![pic]( ../../content/images/targeted-women/29.png ) 
 I think the above pic is probably a well-known Spanish actress but it came up on a fake account. |
 | ![pic]( ../../content/images/targeted-women/30.png )  |

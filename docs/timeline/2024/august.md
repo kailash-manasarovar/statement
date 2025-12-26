@@ -451,12 +451,12 @@ function googleTranslateElementInit() {
 - Also, please note that this is only a small proportion of the photos I saw.
 - It was impossible to collect everything. 
 - It would have meant taking constant screenshots.
-- It is my belief that as soon as law enforcement starts to take action on what's been happening to me for so many years, we will find out exactly how many women, children, and babies have been targeted, and if they're still unwell, brain damaged, or murdered.
+- It is my belief that as soon as law enforcement starts to take action on what's been happening to me for so many years, we will find out exactly how many women, children, and babies have been targeted, and if they're unwell, brain damaged, or murdered.
 - They tried to murder me multiple times so of course there were murders.
 - It's essential we know how many were murdered and when, who they were, and where they are now.
 - Someone recently told me they feed the murdered women to the pigs.
 - I believe there could be hundreds of victims, maybe thousands, in Dénia alone over many decades.
-- The hacker told me they were old and young, and that the British expat community and other foreign communities were perfect targets.
+- The hacker told me they were old and young, and that the British expat community and other foreign communities were the perfect targets.
 - He suggested that one older woman may have dropped down dead from the shock of finding out, possibly in October 2022; that moment they *let you know*.
 - I bet it's not just one.
 - One of the hackers stated he loved every one of them!
@@ -465,19 +465,27 @@ function googleTranslateElementInit() {
 - If the hackers that helped me are still out there, feel free to send more in, or the ones I missed.
 - I'll post them one-by-one.
 
-| Suspected targets posted in August |
-|-|
-| ![pic]( ../../content/images/targeted-women/1.png ) 
-- This looks like a first meeting. </br>
-- Has she traveled to meet someone? </br>
-- She appears to have her overnight back with her.  </br>
-- I see photos in [September](september.md#suspected-targets) which show her in a video shoot of some sort with much longer hair and revealing herself a little, like the [innocent girl](#grooming-an-innocent-girl-into-porn-101). </br>
-- The weirdest thing about this woman is I think I know her. </br>
-- Could it be my colleague from Diabetes UK who met a French bus driver and moved to France in 1999? </br>
-- The woman I knew moved to Tarbes and had two daughters with the bus driver, Emmanuel. I can't remember her name. </br>
-- I met them once on a trip to Lourdes. We met in Tarbes at the shopping centre for lunch. </br>
-- She told me she had been suffering from anxiety and depression. </br>
-- Someone tell me I'm wrong. </br> |
+### Victims posted in August 
+
+![pic]( ../../content/images/targeted-women/1.png ) 
+
+- This looks like a first meeting. 
+- Has she traveled to meet someone? 
+- She appears to have her overnight back with her.  
+- I see photos in September which show her again with much longer hair and revealing herself a little, just like the [innocent girl](#grooming-an-innocent-girl-into-porn-101) - see the next pic. 
+- The weirdest thing about this woman is I think I know her. 
+- Could it be my colleague from Diabetes UK who met a French bus driver and moved to France in 1999? 
+- The woman I knew moved to Tarbes and had two daughters with the bus driver, Emmanuel. I can't remember her name. 
+- I met them once on a trip to Lourdes. We met in Tarbes at the shopping centre for lunch. 
+- She told me she had been suffering from quite bad anxiety and depression. 
+- Here's the pic from September:
+
+![pic]( ../../content/images/targeted-women/28.png ) 
+
+- If it's her, I saw her out of context and even though I registered the similarities, and thought about it a bit, I decided it wasn't her.
+- Now, I'm not so sure.
+
+<!--
 | ![pic]( ../../content/images/targeted-women/2.png ) |
 | ![pic]( ../../content/images/targeted-women/3.png ) The profile message on this pic mentioned three blows to the head. |
 | ![pic]( ../../content/images/targeted-women/4.png ) |
@@ -501,7 +509,7 @@ This woman does not know she is being photographed. |
 | ![pic]( ../../content/images/targeted-women/19.png ) 
 The two pics above are the same woman I often see dressed as a sexy nurse on a bed about to engage in sexual activity. It's never clear if she's aware of being filmed. I wonder if she is the nurse that lived at my apartment for a couple of weeks. Note the vile profile message that suggests she is dead in an umarked grave.  |
 | ![pic]( ../../content/images/targeted-women/20.png )
-This pic looks exactly like a student of the conservatory studying under Domingo the piano teacher: [Elsa](../2023/october.md#gang-stalking-by-conservatory-civil-servants) who I have mentioned before. |
+This pic looks exactly like a student of the conservatory studying under Domingo the piano teacher: [Elsa](../2023/october.md#gang-stalking-by-conservatory-civil-servants) who I have mentioned before. |-->
 
 ## Irene, the plate lady
 
