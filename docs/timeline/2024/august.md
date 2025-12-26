@@ -440,24 +440,44 @@ function googleTranslateElementInit() {
 
 ## Suspected targets 
 
-- I realize I'm one of hundreds, maybe thousands of targets.
-- women and girls lured into relationships that don't exist with the intention of blackmail and exploitation, or silencing.
+- I realize I'm one of hundreds, maybe thousands of targeted women and girls.
+- Women and girls lured online into relationships that don't exist with the intention of sedated rape, conscious rape, earnings from the porn, further blackmail and exploitation, then silencing.
 - I'm seeing pictures of women that could be decades old. 
-- I can't believe it could be just one man doing all this.
-- I don't know I've been brain damaged and it will take a miracle in September 2025 for me to realize that four or more men had turned up to the conservatory of Denia on Monday evenings pretending to be the same one man.
-- In this section, I'll publish all the accounts I believe had pics of targets on them but please understand some may be incorrect due to the ephemeral nature of the interactions.
-- Also, please note that this is only a small proportion of what I saw. It has been impossible to collect everything. It would have meant taking constant screenshots.
-- It is my belief that as soon as law enforcement starts to take action on what's been happening to me for so many years, we will be able to find out exactly how many women, children, and babies have been targeted, if they're still unwell, or murdered, how many were murdered and when, and where they are now.
-- I believe it could be in the hundreds, maybe thousands in Denia alone.
-- The hacker told me there were old and young, that the British expat community and other foreigners were targeted often, and he suggested one older woman may have dropped down dead from the shock of finding out, possibly in October 2022.
-- He also stated he loved every one of them! I think this must have been Ivan speaking, Gloria's brother, the man who was probably planning on devouring me somehow, so safe he felt he was, he sent me a pic!
-- Some of these photos I believe are illicit and the subject doesn't know she is being photographed. I believe many of these to be the "when she finds out" content and I wonder if this is a porn genre.
-- Maybe we can start the whole thing up again and get some more photo evidence, the ones I didn't screenshot maybe.
+- I can't believe it's just one man doing all this.
+- I don't know I've been brain damaged and it will take a miracle in September 2025 for me to realize that [four or more men had turned up to the conservatory of Dénia on Monday evenings](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) pretending to be the same one man.
+- In this section, I'm publishing all the fake account profile pics I was sent that I believe could be victims.
+- Please understand that I may be incorrect due to the ephemeral nature of my interactions with the hacker who was helping me.
+- Perhaps, if you see someone you know in this selection of photos, you could tell us who she is and we can either eliminate her or keep her included, with maybe a name and some information.
+- Also, please note that this is only a small proportion of the photos I saw.
+- It was impossible to collect everything. 
+- It would have meant taking constant screenshots.
+- It is my belief that as soon as law enforcement starts to take action on what's been happening to me for so many years, we will find out exactly how many women, children, and babies have been targeted, and if they're still unwell, brain damaged, or murdered.
+- They tried to murder me multiple times so of course there were murders.
+- It's essential we know how many were murdered and when, who they were, and where they are now.
+- Someone recently told me they feed the murdered women to the pigs.
+- I believe there could be hundreds of victims, maybe thousands, in Dénia alone over many decades.
+- The hacker told me they were old and young, and that the British expat community and other foreign communities were perfect targets.
+- He suggested that one older woman may have dropped down dead from the shock of finding out, possibly in October 2022; that moment they *let you know*.
+- I bet it's not just one.
+- One of the hackers stated he loved every one of them!
+- Some of these photos I believe are illicit, i.e. the subject doesn't know she is being photographed. 
+- Many of them, I believe, are the *when she finds out* content and I guess this is also a porn genre.
+- If the hackers that helped me are still out there, feel free to send more in, or the ones I missed.
+- I'll post them one-by-one.
 
 | Suspected targets posted in August |
 |-|
 | ![pic]( ../../content/images/targeted-women/1.png ) 
-This looks like a first meeting. Has she traveled over? She appears to have her overnight back with her. There are pictures later on which show her in a video shoot of some sort with much longer hair. |
+- This looks like a first meeting. </br>
+- Has she traveled to meet someone? </br>
+- She appears to have her overnight back with her.  </br>
+- I see photos in [September](september.md#suspected-targets) which show her in a video shoot of some sort with much longer hair and revealing herself a little, like the [innocent girl](#grooming-an-innocent-girl-into-porn-101). </br>
+- The weirdest thing about this woman is I think I know her. </br>
+- Could it be my colleague from Diabetes UK who met a French bus driver and moved to France in 1999? </br>
+- The woman I knew moved to Tarbes and had two daughters with the bus driver, Emmanuel. I can't remember her name. </br>
+- I met them once on a trip to Lourdes. We met in Tarbes at the shopping centre for lunch. </br>
+- She told me she had been suffering from anxiety and depression. </br>
+- Someone tell me I'm wrong. </br> |
 | ![pic]( ../../content/images/targeted-women/2.png ) |
 | ![pic]( ../../content/images/targeted-women/3.png ) The profile message on this pic mentioned three blows to the head. |
 | ![pic]( ../../content/images/targeted-women/4.png ) |
