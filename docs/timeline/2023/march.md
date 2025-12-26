@@ -170,6 +170,7 @@ function googleTranslateElementInit() {
 !!! tip "Show and tell"
     - I now believe Paqui engineered this situation in order that her husband might see me, the target.
     - Does this mean Paqui's husband did not turn up at my house as part of the [switcheroo porn special](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero)?
+    - Or was he just curious to see how I was handling three-nights-a-week of sedated rape?
 
 ## Work stress
 
