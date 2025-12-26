@@ -524,8 +524,18 @@ function googleTranslateElementInit() {
 - The girls look young. 
 - Who is she?
 
+##### 6.
+
+![pic]( ../../content/images/targeted-women/7.png ) 
+
+- This is Rocio Vidal, famous Spanish YouTuber who was hacked by the gangs, and, I believe, forced into doing porn for them.
+- I saw another fake account where she is sitting on a bed, looking at the camera, about to take her top off.
+- It looks like she's been in hair-and-makeup in this photo.
+- I mention Rocio Vidal throughout this statement.
+- The hacker started posting this pic on my Google search results [back in October 2023](../2023/october.md#rocio-vidal).
+- A Spanish official confirmed to me that she had been hacked in [October 2024](../2024/october.md#madrid-and-paloma).
+
 <!--
-| ![pic]( ../../content/images/targeted-women/7.png ) |
 | ![pic]( ../../content/images/targeted-women/8.png ) |
 | ![pic]( ../../content/images/targeted-women/9.png ) |
 | ![pic]( ../../content/images/targeted-women/10.png )  |
