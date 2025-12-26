@@ -497,11 +497,27 @@ function googleTranslateElementInit() {
 - It looked a lot like one of the master bedrooms at Joan Fuster, nearly exactly like mine except a different arrangement.
 - This may be a close up of that pic.
 
+##### 3.
+
+![pic]( ../../content/images/targeted-women/3.png ) 
+
+- The profile message on this pic mentioned three blows to the head. 
+
+##### 4.
+
+![pic]( ../../content/images/targeted-women/4.png ) 
+
+![pic]( ../../content/images/targeted-women/5.png ) 
+
+- The obvious inference of the above two pics is clear and extremely disturbing. 
+- The account name `@fullbanga` makes it even more clear.
+- I felt I was being tormented with this account whenever it popped up liking a post, which was often.
+- Who is she?
+
+##### 5.
+
+
 <!--
-| ![pic]( ../../content/images/targeted-women/3.png ) The profile message on this pic mentioned three blows to the head. |
-| ![pic]( ../../content/images/targeted-women/4.png ) |
-| ![pic]( ../../content/images/targeted-women/5.png ) 
-The obvious inference of the above two pics is clear and extremely disturbing. |
 | ![pic]( ../../content/images/targeted-women/6.png ) 
 Referencing bunny girls maybe. Surely this is a photo shoot but the girls look extremely young. |
 | ![pic]( ../../content/images/targeted-women/7.png ) |
