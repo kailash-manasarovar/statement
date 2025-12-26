@@ -484,6 +484,7 @@ function googleTranslateElementInit() {
 
 - If it's her, I saw her out of context and even though I registered the similarities, and thought about it a bit, I decided it wasn't her.
 - Now, I'm not so sure.
+- But here we are, and anything can happen now.
 
 <!--
 | ![pic]( ../../content/images/targeted-women/2.png ) |
