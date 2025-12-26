@@ -511,6 +511,8 @@ function googleTranslateElementInit() {
 
 - The obvious inference of the above two pics is clear and extremely disturbing. 
 - The account name `@fullbanga` makes it even more clear.
+- The account is on auto-post.
+- I guess it's a go-to for the gangs when they're knuckling down on a target.
 - I felt I was being tormented with this account whenever it popped up liking a post, which was often.
 - Who is she?
 
