@@ -161,7 +161,8 @@ function googleTranslateElementInit() {
 ## Choir rehearsal at the boat club
 
 - At the end of term we have a choir rehearsal at the boat club in Dénia.
-- Concha is the choir master. Paqui Fornet is there filming and that's apparently the reason for the extra rehearsal. 
+- Concha is the choir master. 
+- Paqui Fornet is there filming; and that's apparently the reason for the extra rehearsal. 
 - It's all a bit contrived and time-wasting.
 - Paqui Fornet's husband is there too. He sits scowling and glaring at everyone. I feel him looking at me.
 - He looks extremely angry.
