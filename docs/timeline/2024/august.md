@@ -520,7 +520,7 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/6.png ) 
 
-- Bunny girl ballerinas at a photo or video shoot.
+- Bunny-girl ballerinas at a photo or video shoot.
 - The girls look young. 
 - Who is she?
 
