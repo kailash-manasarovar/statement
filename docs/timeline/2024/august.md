@@ -408,7 +408,7 @@ function googleTranslateElementInit() {
 - I do not screenshot the profile or keep a link to it.
 - To be fair to the man, his ugliness looks like the result of being beaten up extraordinarily badly so that he ended up disfigured.
 - Someone had intended to kill him decades ago, I guess, and failed, it looked like.
-- The child with him looks exactly like Marie Fielding's (or Henderson, Zoe BJ's friend) young daughter.
+- The child with him looks exactly like Marie Fielding's (or Henderson, [Zoe BJ's](../early-years/2008.md#zoe-bj) friend) young daughter.
 - I don't notice this at the time although my brain registers it today. I had assumed it was his daughter.
 - Marie has two daughters, I met them back in 2012 or earlier; one was about eight and the other twelve or so.
 - The photo could have been either of the daughters when they were about eight.
