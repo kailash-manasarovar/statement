@@ -441,12 +441,12 @@ function googleTranslateElementInit() {
 ## Suspected targets 
 
 - I realize I'm one of hundreds, maybe thousands of targeted women and girls.
-- Women and girls lured online into relationships that don't exist with the intention of sedated rape, conscious rape, earnings from the porn, further blackmail and exploitation, then silencing.
+- Women and girls lured online into relationships (maybe wives, daughters, and girlfriends too) with the intention of sedated rape, conscious rape, earnings from the porn, further blackmail and exploitation, then silencing.
 - I'm seeing pictures of women that could be decades old. 
 - I can't believe it's just one man doing all this.
 - I don't know I've been brain damaged and it will take a miracle in September 2025 for me to realize that [four or more men had turned up to the conservatory of Dénia on Monday evenings](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) pretending to be the same one man.
 - In this section, I'm publishing all the fake account profile pics that I believe could be victims.
-- Please understand that I may be incorrect due to the ephemeral nature of my interactions with the hacker who was helping me.
+- I understand I may have made a mistake here, and because of the constant interaction from multiple sources it's highly likely I have.
 - Perhaps, if you see someone you know in this selection of photos, you could tell us who she is and we can either eliminate her or keep her included, with maybe a name and some information.
 - Also, please note that this is only a small proportion of the photos I saw.
 - It was impossible to collect everything. 
@@ -495,7 +495,7 @@ function googleTranslateElementInit() {
 - I believe I also saw a profile pic of this woman in a bedroom, crouched down at the wall crying.
 - The photo I saw had to be coming from a spy-cam up in the corner of the room.
 - It looked a lot like one of the master bedrooms at Joan Fuster, nearly exactly like mine except a different arrangement.
-- This may be a close up of the other pic I saw.
+- This may be a close up of that pic.
 
 <!--
 | ![pic]( ../../content/images/targeted-women/3.png ) The profile message on this pic mentioned three blows to the head. |
