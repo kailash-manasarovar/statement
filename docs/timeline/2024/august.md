@@ -445,7 +445,7 @@ function googleTranslateElementInit() {
 - I'm seeing pictures of women that could be decades old. 
 - I can't believe it's just one man doing all this.
 - I don't know I've been brain damaged and it will take a miracle in September 2025 for me to realize that [four or more men had turned up to the conservatory of Dénia on Monday evenings](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) pretending to be the same one man.
-- In this section, I'm publishing all the fake account profile pics I was sent that I believe could be victims.
+- In this section, I'm publishing all the fake account profile pics that I believe could be victims.
 - Please understand that I may be incorrect due to the ephemeral nature of my interactions with the hacker who was helping me.
 - Perhaps, if you see someone you know in this selection of photos, you could tell us who she is and we can either eliminate her or keep her included, with maybe a name and some information.
 - Also, please note that this is only a small proportion of the photos I saw.
@@ -463,7 +463,7 @@ function googleTranslateElementInit() {
 - Some of these photos I believe are illicit, i.e. the subject doesn't know she is being photographed. 
 - Many of them, I believe, are the *when she finds out* content and I guess this is also a porn genre.
 - If the hackers that helped me are still out there, feel free to send more in, or the ones I missed.
-- I'll post them one-by-one.
+- I'll post them one-by-one. Every last one of them.
 
 ### Victims posted in August 
 
