@@ -106,7 +106,7 @@
 - I'm surprised.
 - I say I was expecting to have the full investigation like in Bangkok, and the letter told me to expect that.
 - He tells me he doesn't understand why the letter says this, it shouldn't have said this, he says something silly about things never getting updated and giggles.
-- I'm surprised by all this, including his behavior.
+- I'm surprised by all this, more so his behavior.
 - It's tiring having to think the worst of everyone all the time, and I don't want to do that, so I assume everything's OK with what they're going to test.
 - Another man takes me through the series of tests.
 - There's something going on though.
@@ -114,10 +114,18 @@
 - Something's happening that they're not telling me about, and it's important I should know.
 - When I get the results, a few weeks later, they say I'm fine and I don't need any further investigation; but they do make a point of saying my angles are indeed narrow.
 - It turns out, one of the probably multiple vision issues I have - which I was unaware of until after I remembered the [switcheroo at the conservatory](../2025/september.md#thunderbolt-clarity) - is neurological, brain damage from poisoning, which means I struggle to recognize objects out of context.
-- The porn gangs of Denia damaged my brain in this way so that I would believe four or more different men were the same one man, which I did.
+- The porn gangs of Denia damaged my brain in this way so that I would believe four or more completely different men were the same one man, which I did.
 - Did they know about the switcheroo and how it requires brain and not vision damage?
 - Is that why they didn't do the in-depth test as arranged?
 - Is that why they were snickering?
+- In September 2025, after [another murder-by-poisoning attempt at Lourdes which failed](../2025/july.md#lourdes), my vision was battered yet again.
+- I can feel my eye pressure levels are way up and I'm really really concerned about it.
+- I go to Vision Express in Tesco's Colney Hatch to ask them to check my pressures; they're up in the 19, 20s.
+- I tell the ophthalmologist that my normal pressures are 12/13.
+- She looks alarmed.
+- I eventually tell her I was poisoned. 
+- She advises getting another appointment at Moorfields, and says she is organizing it for me.
+- I'm never called for an appointment.
 
 ## Conservatory news
 
