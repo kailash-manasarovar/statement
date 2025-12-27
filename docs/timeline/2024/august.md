@@ -441,7 +441,7 @@ function googleTranslateElementInit() {
 ## Suspected targets 
 
 - I realize I'm one of hundreds, maybe thousands of targeted women and girls.
-- Women and girls lured online into relationships (maybe wives, daughters, and girlfriends too) with the intention of sedated rape, conscious rape, earnings from the porn, further blackmail and exploitation, then silencing.
+- Women and girls lured online into relationships (maybe wives, daughters, and girlfriends too) with the intention of sedated rape, conscious rape, earnings from the spy-cam porn, further blackmail and exploitation, then silencing.
 - I'm seeing pictures of women that could be decades old. 
 - I can't believe it's just one man doing all this.
 - I don't know I've been brain damaged and it will take a miracle in September 2025 for me to realize that [four or more men had turned up to the conservatory of Dénia on Monday evenings](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) pretending to be the same one man.
@@ -615,8 +615,8 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/20.png )
 
-- This is Elsa, a student at the conservatory.
-- She is one of Domingo Cano's students.
+- This is Elsa, a student at the conservatory; a minor approaching majority at the time.
+- She is one of Domingo Cano's piano students.
 - Note the dog collar.
 - I told numerous officials about Elsa and how worried I was for her safety including: [a Spanish foreign office official](../2024/october.md#meeting-inma-and-paloma-the-spanish-official), [the Madrid police](../2025/january.md#madrid-policia), and [I even reported her to the Spanish police's trafficking helpline on 29th October 2024](october.md#the-police-trafficking-email), while I was being poisoned at home, and just after meeting [Inma and Paloma in Madrid](october.md#meeting-inma-and-paloma-the-spanish-official).
 - I did so because I was certain no-one was coming to help the children of Dénia.
