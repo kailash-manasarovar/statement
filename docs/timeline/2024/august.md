@@ -608,6 +608,7 @@ function googleTranslateElementInit() {
 - It's not clear if she's aware she's being filmed. 
 - Note the profile message that suggests she is dead in an unmarked grave. 
 - I found the message extremely threatening.
+- Was she murdered?
 - Who is she?
 
 ##### 18.
