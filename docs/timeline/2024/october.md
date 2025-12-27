@@ -192,103 +192,9 @@ function googleTranslateElementInit() {
 - He'll be in the LinguaLogic records and I'd recognize him in an instant.
 - I'm guessing at this stage everyone in the town expected me to be dead within weeks.
 
-## VSSH collects his aware at the Palau d'Arts
-
-- The L'Amistat band are awarded the *best band in the Valencian region*.
-- Extraordinary given every knows what's going on.
-
-## Fatima 20-26th October
-
-- I head to Madrid on 19th October to stay one night before traveling to Fatima in Portugal. I need to be away from Dénia as much as possible for my nervous system.
-
-!!! warning "Why didn't you leave Dénia?"
-    - If I leave, then the story gets buried, the police do not investigate, and it happens again and again, and maybe someone is driven, again?, to suicide, or maybe they, again?, murder someone with poison, and children, again?, could be groomed into goodness knows what.
-    - I felt a sense of obligation to the vulnerable and I've been waiting for my intuition to tell me what to do.
-    - I was always working so hard, I had to think about that above and beyond everything else.
-    - It was never clear where I could go to either. I still don't know. My family home in London is non-optimal.
-
-- Just before I leave on Saturday 19th October, I empty the bins. 
-- There is a man in the driver's seat of a car staring at me angrily. 
-- His wife is embarrassed and looking down in the passenger seat. 
-- They look familiar, and I think they might be part of the Denia TV crowd I've seen online.
-- They also remind me of people that attended the [June 2023 piano concert](../2023/june.md#june-9th-piano-concert) and sat in the row in front of us.
-- I remain amazed that anyone could be angry at the person they have been terrorizing relentlessly.
-- I guess it's guilt. I tweet about it and suggest the man, if he didn't like the porn of me masturbating that everyone has seen, he should take it up with the local porn technicians.
-- I tweet about it: https://x.com/1FRGVN/status/1847579824128139602.
-- I guess the truth was he expected me to be dead in weeks, and he was concerned about there being an unpleasant investigation, and if he was the TV Denia guy... well I wouldn't blame him.
-- As I'm driving to the hotel I've booked in Madrid, all of a sudden, the volume disappears on Google maps so I'm lost on the busy M30/M40 junctions.
-- When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back. Nothing works.
-- When I arrive in Fatima the following evening, even though my iPhone camera is blocked, I get notifications on fake accounts of items in my hotel room. Of course, only the camera facing me is blocked, not the one looking out.
-
-### Madrid
-
-- I see [my friend](../2024/march/13-end.md#madrid) again and explain how much danger I am in.
-- She tells me she knows someone who can help me; a lady who works for the Spanish foreign office in London.
-- My friend says she can visit Madrid the following week as I'm passing through on my way home and talk to her.
-
-## The router malfunctions while I'm in Fatima
-
-- On Tuesday 22nd October around 11am, my router at home malfunctions.
-
-![camera offline](../../content/images/camera-offline.JPG){width=55%}
-
-- My home security camera is unavailable.
-- I wonder if my home was accessed over the few days before I returned.
-
-!!! danger
-    - Given the next week's experience with my health, and the ongoing health problems over the next months, including declining eyesight and a diagnosis of PACS, I believe it is highly likely Domingo the piano teacher's family or associates accessed my home and were able to apply poison to food and even toiletries that I have taken with me.
-
-- Here is the [WhatsApp chat with Movistar](../../content/whatsapps/WhatsApp%20Chat%20with%20Movistar.zip) where I explain I have been hacked and ask them to investigate.
-- I also send them a video of what it's doing.
-
-<video controls>
-    <source src="/content/vids/router-malfunction.mp4" type="video/mp4">
-</video>
-
-## Intense online stalking and hacking
-
-- Hackers post pictures of my hotel room seen from the front camera of my phone.
-- There is constant X activity.
-- tbc.
-
-## Polygon fires the whole writing team
-
-- I'm fired summarily on 25th October, [as expected](#bullying-at-polygon).
-- The constant dehumanizing up to now didn't work so they had to think of something more formal.
-- I'm buzzed into a meeting with HR.
-- Gabriel Silva reads from a script with Jonathan the HR guy standing beside him.
-- Gabe is very *very* nervous. His voice is shaking. He looks terrified.
-- Jonathan is extremely aggressive with me when I try to talk to them.
-- I'm told the whole team is dismissed as they are no longer required.
-- I used to think it was because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy was able to cause enormous trouble with the tech systems, and consequently find out about my private political activities and manage to stick the boot in for me, just weeks after I started.
-- I now believe this was incorrect, and it was instead due to the [porn fatwa](../early-years/2003.md#porn-fatwa) which had gotten so out of control everything I did in my life was monitored and manipulated by porn addicts, often working alongside me in tech companies.
-- I had just given a public online interview stating I believed I was being drugged and filmed in my flat.
-- Furthermore, anyone in Polygon management knowing what was happening to me in Denia will have known I was about to be [murdered by poisoning by Carmen Cano and her associates](#serious-poisoning-with-intent-to-harm-or-kill). 
-- They couldn't have me turn up to meetings while that was happening now, could they?
-- Did Gabriel know what was coming next for me?
-- I wonder if VSSH and the L'Amistat band were also aware of this about to happen.
-- The dismissal letter explains the company is aware it is an unlawful dismissal, but I'm supposed to accept it.
-- I instruct a lawyer to help me who appears to be on Polygon's side.
-- I suspect they continue to hire one of my team, [Hansraj Bodani](../2023/november.md#polygon); a man who was outrageously insubordinate towards me when I was his manager.
-- The other member of my team, Anthony, is given work with one of Polygon's strong partners, `gateway.fm`, but doesn't stay long (maybe they found out what I was saying was true).
-- Hans appeared to have been instructed to be insubordinate towards me (possibly by James Dawes who he had worked with before, or more like directly from Gabriel Silva and the founders).
-- His behavior included shouting me down in meetings, constant heckling, not doing any work at all, complaining about me to my manager, and more.
-- Whenever I asked for help from my managers with him, I was ignored.
-- Hans clearly knew he could say and do whatever he liked, and he did so.
-- Hans was good as gold with Gabriel Silva when he took over.
-- I suspect he's working there now still.
-- Polygon, and other human resources agents and companies, are beginning to look very suspect.
-
-## Couple in hotel room
-
-- Fake accounts post profile pics of couples in hotels rooms.
-- I see a young Spanish couple lying down together.
-- I know it is a hotel room as the furniture is sparse and the hotel style is very familiar to me.
-- I'll see if I can dig this up.
-
 ## Madrid and Paloma
 
-- My friend and I meet Paloma; she has flown in from London where she works at the Spanish foreign office or similar.
+- My friend and I meet Paloma on Sunday 20th October; she has flown in from London where she works at the Spanish foreign office or similar.
 - There is a lot of talk about how secure her phone is, and how it can pick up any sort of hacking interference and shutdown the whole network in a building.
 - Paloma doesn't really listen to me when I speak, she talks directly to my friend.
 - I tell her about [Irene](august.md#irene-the-plate-lady), about [Rocio Vidal](../2023/october.md#rocio-vidal), about the hundreds of other women.
@@ -324,6 +230,108 @@ function googleTranslateElementInit() {
 - Is that why Carmen Cano, et al, were so utterly unconcerned about being seen while they tampered with my water pipes or entered my apartment, and seemed indeed to want me to see and hear them, and know about their vile intentions. 
 - Had Paloma decided I knew too much already?
 - Are the school-board supported sex offenders and murderers protected from the very top? Well that's an obvious answer isn't it.
+
+## Fatima 20-26th October
+
+- I head to Madrid on 19th October to stay one night before traveling to Fatima in Portugal. I need to be away from Dénia as much as possible for my nervous system.
+
+!!! warning "Why didn't you leave Dénia?"
+    - If I leave, then the story gets buried, the police do not investigate, and it happens again and again, and maybe someone is driven, again?, to suicide, or maybe they, again?, murder someone with poison, and children, again?, could be groomed into goodness knows what.
+    - I felt a sense of obligation to the vulnerable and I've been waiting for my intuition to tell me what to do.
+    - I was always working so hard, I had to think about that above and beyond everything else.
+    - It was never clear where I could go to either. I still don't know. My family home in London is non-optimal.
+
+- Just before I leave on Saturday 19th October, I empty the bins. 
+- There is a man in the driver's seat of a car staring at me angrily. 
+- His wife is embarrassed and looking down in the passenger seat. 
+- They look familiar, and I think they might be part of the Denia TV crowd I've seen online.
+- They also remind me of people that attended the [June 2023 piano concert](../2023/june.md#june-9th-piano-concert) and sat in the row in front of us.
+- I remain amazed that anyone could be angry at the person they have been terrorizing relentlessly.
+- I guess it's guilt. I tweet about it and suggest the man, if he didn't like the porn of me masturbating that everyone has seen, he should take it up with the local porn technicians.
+- I tweet about it: https://x.com/1FRGVN/status/1847579824128139602.
+- I guess the truth was he expected me to be dead in weeks, and he was concerned about there being an unpleasant investigation, and if he was the TV Denia guy... well I wouldn't blame him.
+- As I'm driving to the hotel I've booked in Madrid, all of a sudden, the volume disappears on Google maps so I'm lost on the busy M30/M40 junctions.
+- When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back. Nothing works.
+- When I arrive in Fatima the following evening, even though my iPhone camera is blocked, I get notifications on fake accounts of items in my hotel room. Of course, only the camera facing me is blocked, not the one looking out.
+
+### The router malfunctions while I'm in Fatima
+
+- On Tuesday 22nd October around 11am, my router at home malfunctions.
+
+![camera offline](../../content/images/camera-offline.JPG){width=55%}
+
+- My home security camera is unavailable.
+- I wonder if my home was accessed over the few days before I returned.
+
+!!! danger
+    - Given the next week's experience with my health, and the ongoing health problems over the next months, including declining eyesight and a diagnosis of PACS, I believe it is highly likely Domingo the piano teacher's family or associates accessed my home and were able to apply poison to food and even toiletries that I have taken with me.
+
+- Here is the [WhatsApp chat with Movistar](../../content/whatsapps/WhatsApp%20Chat%20with%20Movistar.zip) where I explain I have been hacked and ask them to investigate.
+- I also send them a video of what it's doing.
+
+<video controls>
+    <source src="/content/vids/router-malfunction.mp4" type="video/mp4">
+</video>
+
+### Polygon fires the whole writing team
+
+- I'm fired summarily on 25th October, [as expected](#bullying-at-polygon).
+- The constant dehumanizing up to now didn't work so they had to think of something more formal.
+- I'm buzzed into a meeting with HR.
+- Gabriel Silva reads from a script with Jonathan the HR guy standing beside him.
+- Gabe is very *very* nervous. His voice is shaking. He looks terrified.
+- Jonathan is extremely aggressive with me when I try to talk to them.
+- I'm told the whole team is dismissed as they are no longer required.
+- I used to think it was because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy was able to cause enormous trouble with the tech systems, and consequently find out about my private political activities and manage to stick the boot in for me, just weeks after I started.
+- I now believe this was incorrect, and it was instead due to the [porn fatwa](../early-years/2003.md#porn-fatwa) which had gotten so out of control everything I did in my life was monitored and manipulated by porn addicts, often working alongside me in tech companies.
+- I had just given a public online interview stating I believed I was being drugged and filmed in my flat.
+- Furthermore, anyone in Polygon management knowing what was happening to me in Denia will have known I was about to be [murdered by poisoning by Carmen Cano and her associates](#serious-poisoning-with-intent-to-harm-or-kill). 
+- They couldn't have me turn up to meetings while that was happening now, could they?
+- Did Gabriel know what was coming next for me?
+- I wonder if VSSH and the L'Amistat band were also aware of this about to happen.
+- The dismissal letter explains the company is aware it is an unlawful dismissal, but I'm supposed to accept it.
+- I instruct a lawyer to help me who appears to be on Polygon's side.
+- I suspect they continue to hire one of my team, [Hansraj Bodani](../2023/november.md#polygon); a man who was outrageously insubordinate towards me when I was his manager.
+- The other member of my team, Anthony, is given work with one of Polygon's strong partners, `gateway.fm`, but doesn't stay long (maybe they found out what I was saying was true).
+- Hans appeared to have been instructed to be insubordinate towards me (possibly by James Dawes who he had worked with before, or more like directly from Gabriel Silva and the founders).
+- His behavior included shouting me down in meetings, constant heckling, not doing any work at all, complaining about me to my manager, and more.
+- Whenever I asked for help from my managers with him, I was ignored.
+- Hans clearly knew he could say and do whatever he liked, and he did so.
+- Hans was good as gold with Gabriel Silva when he took over.
+- I suspect he's working there now still.
+- Polygon, and other human resources agents and companies, are beginning to look very suspect.
+
+### VSSH collects his aware at the Palau d'Arts
+
+- The L'Amistat band are awarded the *best band in the Valencian region*.
+- Extraordinary given every knows what's going on.
+
+## Madrid
+
+- On my way home from Fatima, I stop in Madrid and see [my friend](../2024/march/13-end.md#madrid) again on Sunday 26th October.
+- She tells me Paloma thinks we're both in danger.
+- I ask her what am I going to do if they try to murder me when I get home.
+- She says I should call the police.
+- Paloma told us that the police in the Marina Alta, indeed in the whole region, cannot be trusted.
+- Why is my friend telling me to call the police?
+- Have they decided to throw me to the wolves? Like everyone else does.
+
+### Intense online stalking and hacking
+
+- Hackers post pictures of my hotel room seen from the front camera of my phone.
+- There is constant X activity.
+- tbc.
+
+## Driving back to Madrid from Fatima
+
+- 
+
+## Couple in hotel room
+
+- Fake accounts post profile pics of couples in hotels rooms.
+- I see a young Spanish couple lying down together.
+- I know it is a hotel room as the furniture is sparse and the hotel style is very familiar to me.
+- I'll see if I can dig this up.
 
 ## Serious poisoning with intent to harm or kill
 
