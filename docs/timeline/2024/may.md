@@ -492,7 +492,7 @@ function googleTranslateElementInit() {
 - Brian talks to me as if someone has told him I'm a total idiot.
 - [Ajay, Alicia, and mushroom man's teams](#ajay-alicia-aman-pandey-and-mushroom-man-perform-a-military-coup-on-my-job) are up to their old tricks again.
 - I complain to my current manager about it, Paul O'Leary, referencing an earlier complaint I had made to him about the military-coup style bullying operations I'm enduring daily.
-- When I speak to Paul O'Leary about this in Bali, he sort of [groans with familiarity](october.md#madrid-and-paloma), in exactly the same way a Spanish government official groans when I tell her about the porn-gang activity and pedophilia going on at the conservatory of Dénia.
+- When I speak to Paul O'Leary about this in Bali, he sort of [groans with familiarity](october.md#meeting-inma-and-paloma-the-spanish-official), in exactly the same way a Spanish government official groans when I tell her about the porn-gang activity and pedophilia going on at the conservatory of Dénia.
 - Groans of familiarity and inconvenience!
 - I believe a preponderance of Polygon Spanish male founders and other global developers knew exactly what was going on for me in Dénia, and are 100% involved in the conspiracy, and have got me to Bali for one sick purpose only.
 - They must be aware that someone like me ends up in hardcore porn, robbed, blind, perhaps murdered. 

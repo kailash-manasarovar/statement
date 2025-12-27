@@ -39,7 +39,7 @@ function googleTranslateElementInit() {
 
 ![Carmen @sinremite](../../content/images/sin-remite.jpg)
 
-- I will find out over a year later, from a [Spanish foreign office official](../2024/october.md#madrid-and-paloma), that the woman who owns the `@SchrodingerGata` account, Rocío Vidal, suffered a serious hacking attack.
+- I will find out over a year later, from a [Spanish foreign office official](../2024/october.md#meeting-inma-and-paloma-the-spanish-official), that the woman who owns the `@SchrodingerGata` account, Rocío Vidal, suffered a serious hacking attack.
 - She is a successful business woman, of course.
 - I also see Rocío Vidal in photos which remind me of [plate lady](#plate-lady-early-in-the-month) in that they imply non-consensually filmed sexual activity.
 - In summer 2024, the porn-gangs bring Rocío Vidal to Cauterets France and set it up so that I see her.

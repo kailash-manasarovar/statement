@@ -268,7 +268,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - In this section I will post important points published in earlier commits.
 - I believe that whoever [the original man](#the-best-band-in-the-valencian-region) is that I continue to have a good feeling about; his role was *bait*.
 - I wonder why they chose him when I guess they could have picked anyone at all.
-- I found the name Vidal Sastre Sanchez Hornero registered in the Generalitat Valenciana systems even though a [government official](../../timeline/2024/october.md#madrid-and-paloma) told me no record of this person could be found.
+- I found the name Vidal Sastre Sanchez Hornero registered in the Generalitat Valenciana systems even though a [government official](../../timeline/2024/october.md#meeting-inma-and-paloma-the-spanish-official) told me no record of this person could be found.
 - When she told me this, at exactly the same time, I was looking at his name on official Generalitat government lists.
 
 ![Generalitat list](../../content/images/hornero/guv-records.png)

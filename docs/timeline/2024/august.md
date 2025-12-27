@@ -534,7 +534,7 @@ function googleTranslateElementInit() {
 - It looks like she's been in hair-and-makeup in this photo.
 - I mention Rocio Vidal throughout this statement.
 - The hacker started posting this pic on my Google search results [back in October 2023](../2023/october.md#rocio-vidal).
-- A Spanish official confirmed to me that she had been hacked in [October 2024](../2024/october.md#madrid-and-paloma).
+- A Spanish official confirmed to me that she had been hacked in [October 2024](../2024/october.md#meeting-inma-and-paloma-the-spanish-official).
 
 ##### 7.
 

@@ -606,7 +606,7 @@ function googleTranslateElementInit() {
 
 - We can only guess at why they didn't have a cursory look at the [L'Amistat band](../../../crimes/protagonists/vidal-sastre.md#email-address) which this man apparently directed.
 - They might have noticed a whole bunch of historical complaints.
-- It makes me even more curious why the [Spanish government official](../../2024/october.md#madrid-and-paloma) would insist this man was *not* in the Generalitat systems, on or around the same day he was picking up his government prize at the Palau de Arts in Valencia.
+- It makes me even more curious why the [Spanish government official](../../2024/october.md#meeting-inma-and-paloma-the-spanish-official) would insist this man was *not* in the Generalitat systems, on or around the same day he was picking up his government prize at the Palau de Arts in Valencia.
 - Are women and girls in Spain born and raised to be porn-gang fodder? 
 
 ### Cyber expert

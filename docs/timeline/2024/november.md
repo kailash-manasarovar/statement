@@ -32,7 +32,7 @@ function googleTranslateElementInit() {
 
 ## I start writing this statement
 
-- As suggested by [Paloma in Madrid](october.md#madrid-and-paloma), I begin writing my police statement at the end of October when I get back from Fatima.
+- As suggested by [Paloma in Madrid](october.md#meeting-inma-and-paloma-the-spanish-official), I begin writing my police statement at the end of October when I get back from Fatima.
 - I start locally without uploading to Git.
 - I will not create the Git repo until 11th November.
 - No one should know what I'm doing, except of course they know because they are monitoring everything I do online.

@@ -192,44 +192,48 @@ function googleTranslateElementInit() {
 - He'll be in the LinguaLogic records and I'd recognize him in an instant.
 - I'm guessing at this stage everyone in the town expected me to be dead within weeks.
 
-## Madrid and Paloma
+## Meeting Inma and Paloma, the Spanish official
 
-- My friend and I meet Paloma on Sunday 20th October; she has flown in from London where she works at the Spanish foreign office or similar.
-- There is a lot of talk about how secure her phone is, and how it can pick up any sort of hacking interference and shutdown the whole network in a building.
-- Paloma doesn't really listen to me when I speak, she talks directly to my friend.
+- My friend and I meet Paloma on Sunday 20th October; she has flown in from London where she works at the Spanish foreign office.
+- Inma has told me the woman can help me.
+- I'm very grateful and relieved that finally someone is going to help me.
+- We meet in a posh area in the North of Madrid near the M30 in a cafe.
+- There is another woman with Inma initially, Blanca and her Russian son.
+- Paloma arrives directly off the flight.
+- There is a lot of talk about how secure Paloma's phone is, how it can pick up any sort of hacking interference and shutdown the whole network in a building.
+- Blanca's son leaves.
+- They won't talk about anything serious in front of him.
+- Then Blanca leaves about twenty minutes later.
+- I try to tell Paloma what's been going on.
+- Paloma doesn't really listen to me when I speak, she talks directly to Inma.
 - I tell her about [Irene](august.md#irene-the-plate-lady), about [Rocio Vidal](../2023/october.md#rocio-vidal), about the hundreds of other women.
 - I have to push to be heard; although she sort of groans at every new horror I mention, as if none of this is unfamiliar to her.
-- She doesn't seem to be interested in what I have to say, until one moment when I mention that the trumpet teacher's daughters might be threatened with kidnap if he didn't do what they say.
-- At that moment, her eyes light up and she says, oh we can do something with that.
+- She looks at her phone and says, *oh, yes, Rocio Vidal was hacked*.
+- I tell her about my trips to the police and how they're ignoring me.
+- She tells us both that the police in the whole region are not to be trusted. 
+- *You can't go to the police down there*, she says. I knew it already.
+- She doesn't seem to be interested in anything I have to say, until one moment when I mention that the trumpet teacher's daughters might be threatened with kidnap if he doesn't do what they say.
+- At that moment, her eyes light up and she says, *oh we can do something with that*.
 - I'm dismayed.
-- A woman can go through years of torture and no-one cares, and the minute a man, someone essentially involved in creating this hell is in trouble, they'll spring into action.
-- It feels like industrial woman-hating and accepted sexual grooming of minors.
+- A woman can go through years of torture and no-one cares, but the minute one man is in trouble, someone essentially involved in creating the hell for women and children, they'll spring into action.
+- It feels like industrial-scale woman-hating and accepted sexual grooming of minors and worse.
 - Her words suggest thousands of ignored complaints.
-- She looks at her phone and says, oh, yes, Rocio Vidal was hacked.
-- I then tell her about Hazel and Sandra Smith and how I have known who and what they are since 2006, about how they've been free to target the ex-pat elderly, and how they targeted me at that time.
-- My friend remembers me mentioning them in 2007. I told her that I had seen British criminals in the Marina Alta, Las Marinas to be precise.
-
-!!! tip "A curiousity"
-    - Isn't it curious I never told anyone about Hazel. Or other extraordinary things I knew about too. And they managed to get me run out of town with the lie that I'm a grass. Most marvelous karma kicking in, isn't it...
-
+- No wonder Denia happened.
+- I then tell her about Hazel and Sandra Smith and how I have known who and what they are since 2006, about how they've been free to target the ex-pat elderly, about how Hazel is the accountant for maybe hundreds of them, and how she tried to kill me by poison in 2007.
+- My friend remembers me mentioning them in 2007.
+- I mentioned that I had seen British criminals in the Marina Alta, Las Marinas to be precise.
 - I tell her about the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101) and the [sedated woman in the car](september.md#another-upsetting-targeted-woman), and the many pictures I received that I believe are targeted women, including [a picture of one of Domingo's students](../2023/october.md#choir) Elsa.
 - Paloma looks briefly at my friend and says my story sounds like devil worship.
-- I'm even more dismayed. I know what this means.
-- I know she's not going to help me and she will be looking at covering it all up first and foremost.
-- She does say, it sounds like a chaos doesn't it, to my friend.
-- She advises I write a timeline down.
+- I'm even more dismayed. 
+- I know what this means.
+- I know she's not going to help me, it's gonna be a cover up.
+- She does say, *it sounds like a chaos doesn't it*, to my friend, and advises I write a timeline.
+- Thank you Paloma!
 - She tells me she can help me, maybe get Interpol involved.
 - She says once we have the information, then we can help [Irene](august.md#irene-the-plate-lady) and the other targeted women.
 - I hug her and thank her, but I don't expect to see or hear from her again.
-- Over the next few weeks, accounts fly by with names like "dubious government official", and similar.
+- Over the next few weeks, accounts fly by with names like *dubious government official*, and similar.
 - They know.
-- When I see my friend again, she tells me Paloma thinks we are both in danger.
-- She also tells me that Paloma had looked Vidal SASTRE SANCHEZ HORNERO in the Generalitat systems and found not record of a man with that name.
-- Curiously, at the same time, someone called Vidal SASTRE SANCHEZ HORNERO is [picking up a prize at the Palau de Arts in Valencia](../../crimes/protagonists/vidal-sastre.md#the-lamistat-quart-band).
-- I have to wonder if Paloma or her superiors gave the OK for my immediate dispatching, Denia poisoners informed immediately they can do what they want to me?
-- Is that why Carmen Cano, et al, were so utterly unconcerned about being seen while they tampered with my water pipes or entered my apartment, and seemed indeed to want me to see and hear them, and know about their vile intentions. 
-- Had Paloma decided I knew too much already?
-- Are the school-board supported sex offenders and murderers protected from the very top? Well that's an obvious answer isn't it.
 
 ## Fatima 20-26th October
 
@@ -301,30 +305,32 @@ function googleTranslateElementInit() {
 - I suspect he's working there now still.
 - Polygon, and other human resources agents and companies, are beginning to look very suspect.
 
-### VSSH collects his aware at the Palau d'Arts
-
-- The L'Amistat band are awarded the *best band in the Valencian region*.
-- Extraordinary given every knows what's going on.
-
-## Madrid
-
-- On my way home from Fatima, I stop in Madrid and see [my friend](../2024/march/13-end.md#madrid) again on Sunday 26th October.
-- She tells me Paloma thinks we're both in danger.
-- I ask her what am I going to do if they try to murder me when I get home.
-- She says I should call the police.
-- Paloma told us that the police in the Marina Alta, indeed in the whole region, cannot be trusted.
-- Why is my friend telling me to call the police?
-- Have they decided to throw me to the wolves? Like everyone else does.
-
 ### Intense online stalking and hacking
 
 - Hackers post pictures of my hotel room seen from the front camera of my phone.
 - There is constant X activity.
 - tbc.
 
-## Driving back to Madrid from Fatima
+### VSSH collects his aware at the Palau d'Arts
 
-- 
+- The L'Amistat band are awarded the *best band in the Valencian region*.
+- Extraordinary given every knows what's going on.
+
+## Inma again in Madrid
+
+- On my way home from Fatima, I stop in Madrid and see [my friend](../2024/march/13-end.md#madrid) Inma Bascones again on Sunday 26th October.
+- As I'm driving into Madrid, the same lethal Google maps app hack is happening.
+- They're trying to make me crash the car.
+- I meet Inma and ask her what Paloma has said.
+- She tells me Paloma thinks we are both in danger.
+- She also tells me that Paloma had looked up *Vidal SASTRE SANCHEZ HORNERO* in the Generalitat systems and found no record of a man with that name.
+- When I hear that I know I'm being fobbed off.
+- I wasn't to know until a lot later that, just a day or so before, someone with the name Vidal SASTRE SANCHEZ HORNERO is [picking up a prize at the Palau de Arts in Valencia](../../crimes/protagonists/vidal-sastre.md#the-lamistat-quart-band).
+- I ask her what am I going to do if they try to murder me when I get home.
+- She says I should call the police.
+- I remember what Paloma told us about the police in the region.
+- I'm obviously not going to call the police if they try to murder me by poison, and Inma and Paloma know it.
+- They decided to throw me to the wolves. Like everyone else.
 
 ## Couple in hotel room
 
@@ -361,6 +367,7 @@ function googleTranslateElementInit() {
 ![doctor pic](../../content/images/doctor-2.png)
 
 - That day, Friday 1st November, in the afternoon, I'm certain I see Carmen Cano and the woman I have seen going in and out of number 18 leaving the building together. They smile at me as I walk by.
+- They were utterly unconcerned about being seen while they tampered with my water pipes or entered my apartment, and seemed to want me to see and hear them, smiling at me when I did, talking about me through the walls at night. 
 
 ### Mary breaks
 
@@ -445,6 +452,7 @@ function googleTranslateElementInit() {
 ## Silvia
 
 - The hackers imply that Silvia is the trumpet teacher's daughter and post pictures of a child who is supposed to be her.
+- This has been an ongoing theme.
 - The implication is that the trumpet teacher had a drug debt that he couldn't pay off and the pornographers had threatened to target his daughter Silvia.
 - In order to avoid this, the trumpet teacher had agreed to target and drug me at the conservatory of Dénia.
 
