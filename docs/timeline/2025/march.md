@@ -112,6 +112,9 @@
 - When I do the peripheral test, I notice I can hardly see any dots in the left peripheral.
 - They don't dilate and investigate further.
 - When I get the results, a few weeks later, they say I'm fine and I don't need any further investigation; but they do make a point of saying my angles are indeed narrow.
+- It turns out, one of the vision issues I have - which I was unaware of until I remembered the [switcheroo at the conservatory](../2025/september.md#thunderbolt-clarity) is neurological, brain damage from poisoning.
+- Did they know this? Is that why they didn't do the in-depth test as arranged?
+- Is that why the men were snicking?
 
 ## Conservatory news
 
