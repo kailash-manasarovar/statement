@@ -200,7 +200,7 @@ function googleTranslateElementInit() {
 - Inma told me previously that the woman could maybe help me and had arranged everything with her friend Blanca.
 - I'm very grateful and relieved that finally someone is going to help me.
 - We meet in a posh area in the North of Madrid near the M30 in a high-end shopping-centre's cafe (I'll remember the exact place at some point).
-- Inma, Blanca, and her Russian son arrive together.
+- Inma, Blanca and her Russian son arrive together.
 - There is a lot of talk about how secure Paloma's phone is, how it can pick up any sort of hacking interference and shutdown the whole network in a building.
 - Blanca's son leaves.
 - They wouldn't talk about anything serious in front of him and shut me down when I mentioned something while he was there.
@@ -221,7 +221,7 @@ function googleTranslateElementInit() {
 - At that moment, her eyes light up and she says, *oh we can do something with that*.
 - I'm dismayed.
 - A woman can go through years of torture and no-one cares, but the minute one man is in trouble, even a man involved in creating the hell for women and children, they'll spring into action.
-- It feels like industrial-scale woman-hating and the tacitly-accepted sexual grooming of minors, and worse.
+- It feels like industrial-scale woman-hating and tacitly-accepted sexual grooming of minors, and worse.
 - Her words suggest thousands of ignored complaints.
 - No wonder Denia happened.
 - I then tell her about Hazel and Sandra Smith and how I have known who and what they are since 2006, about how they've been free to target the ex-pat elderly, about how Hazel is the accountant for maybe hundreds of them, and how she tried to kill me by poison in 2007.
@@ -328,15 +328,17 @@ function googleTranslateElementInit() {
 - On my way home from Fátima, I stop in Madrid and see [Inma again](../2024/march/13-end.md#madrid) on Sunday 26th October.
 - As I'm driving into Madrid, the same lethal Google maps app hack fires up.
 - They're trying to make me crash the car.
-- I meet Inma and ask her what Paloma has said.
+- I meet Inma and ask her what [Paloma the Spanish official](#meeting-inma-and-paloma-the-spanish-official) has said.
 - She tells me Paloma thinks we are both in danger.
 - She also tells me that Paloma had looked up *Vidal SASTRE SANCHEZ HORNERO* in the Generalitat systems and found no record of a man with that name.
 - When I hear that I know I'm being fobbed off.
-- Outrageously - I wasn't to know until a lot later that - two days before, someone with the name Vidal SASTRE SANCHEZ HORNERO was [picking up a prize at the Palau de Arts in Valencia](../../crimes/protagonists/vidal-sastre.md#the-lamistat-quart-band).
+- Outrageously - I wasn't to know until a lot later that - two days before, someone with the name Vidal SASTRE SANCHEZ HORNERO was [picking up a Generalitat-funded prize at the Palau de Arts in Valencia](../../crimes/protagonists/vidal-sastre.md#the-lamistat-quart-band).
 - Inma then tells me that Paloma did speak to her sister in La Sella as she said she would and yes, indeed, everyone in Denia knows who I am and not in a good way.
 - She does not elaborate on that apart from a suggestion that everyone found me horribly offensive.
-- I ask her what am I going to do if they try to murder me when I get home.
-- She says I should call the police.
+- I tell her they [shutdown my security-cam](#the-router-malfunctions-while-im-in-fatima) while I was away and they must have been coming into my apartment.
+- I'm concerned for my safety.
+- I ask her what am I going to do if they try to murder me by poison when I get home.
+- She says, strangely, I should call the police.
 - I remember what Paloma told us about the police in the region.
 - I'm obviously not going to call the police if they try to murder me by poison, and Inma and Paloma know it.
 - They decided to throw me to the wolves. Like everyone else.
