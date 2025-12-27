@@ -93,11 +93,17 @@
 ## Moorfields Eye Hospital
 
 - Given I've had a diagnosis of pre-glaucoma from [Rutnin Eye Hospital in Bangkok](../2024/november.md#pre-glaucoma-diagnosis), I need the same in the UK so it's on my NHS record.
+- My vision continues to be permanently blurred without reading glasses and I'm worried.
+- I've stopped doing headstand in yoga.
 - I arrange an appointment at Moorfields in Brent Cross.
 - Something weird is going on at the appointment.
 - I'm met by a male clinician who talks to me in an extremely strange way, like he's acting.
 - He speaks in a low voice, hurriedly, and repeats himself over and over.
+- They're only going to do a basic eye exam without the in-depth tests.
+- I brought my mum because the letter said they were going to dilate me.
+- I tell him I have a pre-glaucoma condition, out of the blue, and worryingly high eye-pressure readings over the last three years only.
 - He tells me that it doesn't matter, we're not going to do the in-depth tests, we don't need to dilate my eyes or look closely inside.
+- I'm surprised.
 - I say I was expecting to have the full investigation like in Bangkok, and the letter told me to expect that.
 - He tells me he doesn't understand why the letter says this, it shouldn't have said this, he says something silly about things never getting updated and giggles.
 - I'm surprised by all this, including his behavior.
@@ -106,15 +112,12 @@
 - There's something going on though.
 - These two men are a bit snickery and giggly with each other, like they're winking and grinning at me.
 - Something's happening that they're not telling me about, and it's important I should know.
-- Do they both have dark-web porn subscriptions to live target action genres?
-- They remind me of countless situations I've been in over the last few years where people seem to know more about me than I do, and none of it is good.
-- Have they seen the porn I'm in? The snickering would suggest so.
-- When I do the peripheral test, I notice I can hardly see any dots in the left peripheral.
-- They don't dilate and investigate further.
 - When I get the results, a few weeks later, they say I'm fine and I don't need any further investigation; but they do make a point of saying my angles are indeed narrow.
-- It turns out, one of the vision issues I have - which I was unaware of until I remembered the [switcheroo at the conservatory](../2025/september.md#thunderbolt-clarity) is neurological, brain damage from poisoning.
-- Did they know this? Is that why they didn't do the in-depth test as arranged?
-- Is that why the men were snicking?
+- It turns out, one of the probably multiple vision issues I have - which I was unaware of until after I remembered the [switcheroo at the conservatory](../2025/september.md#thunderbolt-clarity) - is neurological, brain damage from poisoning, which means I struggle to recognize objects out of context.
+- The porn gangs of Denia damaged my brain in this way so that I would believe four or more different men were the same one man, which I did.
+- Did they know about the switcheroo and how it requires brain and not vision damage?
+- Is that why they didn't do the in-depth test as arranged?
+- Is that why they were snickering?
 
 ## Conservatory news
 
