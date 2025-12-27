@@ -605,7 +605,7 @@ function googleTranslateElementInit() {
 
 - I saw this woman dressed in the same sexy nurses outfit I saw many women wearing.
 - She was on a bed about to engage in sexual activity.
-- It's not clear if she's aware of being filmed. 
+- It's not clear if she's aware she's being filmed. 
 - Note the profile message that suggests she is dead in an unmarked grave. 
 - I found the message extremely threatening.
 - Who is she?
