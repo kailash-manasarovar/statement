@@ -194,18 +194,23 @@ function googleTranslateElementInit() {
 
 ## Meeting Inma and Paloma, the Spanish official
 
-- My friend and I meet Paloma on Sunday 20th October; she has flown in from London where she works at the Spanish foreign office.
-- Inma has told me the woman can help me.
+- My friend Inma Bascones and I meet Paloma on Sunday 20th October.
+- She has flown in from London where she works at the Spanish foreign office.
+- I got confused about the dates, but it's definitely this day as I wanted to leave early as I had a five hour drive to Fátima, on unknown roads, with a maliciously-hacked Google maps app.
+- Inma told me previously that the woman could maybe help me and had arranged everything with her friend Blanca.
 - I'm very grateful and relieved that finally someone is going to help me.
-- We meet in a posh area in the North of Madrid near the M30 in a cafe.
-- There is another woman with Inma initially, Blanca and her Russian son.
-- Paloma arrives directly off the flight.
+- We meet in a posh area in the North of Madrid near the M30 in a high-end shopping-centre's cafe (I'll remember the exact place at some point).
+- Inma, Blanca, and her Russian son arrive together.
 - There is a lot of talk about how secure Paloma's phone is, how it can pick up any sort of hacking interference and shutdown the whole network in a building.
 - Blanca's son leaves.
-- They won't talk about anything serious in front of him.
-- Then Blanca leaves about twenty minutes later.
-- I try to tell Paloma what's been going on.
+- They wouldn't talk about anything serious in front of him and shut me down when I mentioned something while he was there.
+- Once he's gone, we start talking.
+- I tell them that everyone knows me in Denia, and not in a good way.
+- Blanca leaves about twenty minutes later. As she leaves, she gives me a dirty look.
+- I file it away.
+- I try to explain to Paloma what's been going on.
 - Paloma doesn't really listen to me when I speak, she talks directly to Inma.
+- They both keep telling me to keep my voice down.
 - I tell her about [Irene](august.md#irene-the-plate-lady), about [Rocio Vidal](../2023/october.md#rocio-vidal), about the hundreds of other women.
 - I have to push to be heard; although she sort of groans at every new horror I mention, as if none of this is unfamiliar to her.
 - She looks at her phone and says, *oh, yes, Rocio Vidal was hacked*.
@@ -215,8 +220,8 @@ function googleTranslateElementInit() {
 - She doesn't seem to be interested in anything I have to say, until one moment when I mention that the trumpet teacher's daughters might be threatened with kidnap if he doesn't do what they say.
 - At that moment, her eyes light up and she says, *oh we can do something with that*.
 - I'm dismayed.
-- A woman can go through years of torture and no-one cares, but the minute one man is in trouble, someone essentially involved in creating the hell for women and children, they'll spring into action.
-- It feels like industrial-scale woman-hating and accepted sexual grooming of minors and worse.
+- A woman can go through years of torture and no-one cares, but the minute one man is in trouble, even a man involved in creating the hell for women and children, they'll spring into action.
+- It feels like industrial-scale woman-hating and the accepted sexual grooming of minors, and worse.
 - Her words suggest thousands of ignored complaints.
 - No wonder Denia happened.
 - I then tell her about Hazel and Sandra Smith and how I have known who and what they are since 2006, about how they've been free to target the ex-pat elderly, about how Hazel is the accountant for maybe hundreds of them, and how she tried to kill me by poison in 2007.
@@ -226,10 +231,11 @@ function googleTranslateElementInit() {
 - Paloma looks briefly at my friend and says my story sounds like devil worship.
 - I'm even more dismayed. 
 - I know what this means.
-- I know she's not going to help me, it's gonna be a cover up.
+- I know she's not going to help me; she's on a fact-finding mission for any potential cover up required.
 - She does say, *it sounds like a chaos doesn't it*, to my friend, and advises I write a timeline.
-- Thank you Paloma!
+- Thank you Paloma! 🙏🏼 It was a great idea.
 - She tells me she can help me, maybe get Interpol involved.
+- She says her sister lives in La Sella, just up the road from Denia, and she will talk to her to find out what's going on in Denia.
 - She says once we have the information, then we can help [Irene](august.md#irene-the-plate-lady) and the other targeted women.
 - I hug her and thank her, but I don't expect to see or hear from her again.
 - Over the next few weeks, accounts fly by with names like *dubious government official*, and similar.
@@ -318,19 +324,22 @@ function googleTranslateElementInit() {
 
 ## Inma again in Madrid
 
-- On my way home from Fatima, I stop in Madrid and see [my friend](../2024/march/13-end.md#madrid) Inma Bascones again on Sunday 26th October.
-- As I'm driving into Madrid, the same lethal Google maps app hack is happening.
+- On my way home from Fátima, I stop in Madrid and see [Inma again](../2024/march/13-end.md#madrid) on Sunday 26th October.
+- As I'm driving into Madrid, the same lethal Google maps app hack fires up.
 - They're trying to make me crash the car.
 - I meet Inma and ask her what Paloma has said.
 - She tells me Paloma thinks we are both in danger.
 - She also tells me that Paloma had looked up *Vidal SASTRE SANCHEZ HORNERO* in the Generalitat systems and found no record of a man with that name.
 - When I hear that I know I'm being fobbed off.
-- I wasn't to know until a lot later that, just a day or so before, someone with the name Vidal SASTRE SANCHEZ HORNERO is [picking up a prize at the Palau de Arts in Valencia](../../crimes/protagonists/vidal-sastre.md#the-lamistat-quart-band).
+- Outrageously - I wasn't to know until a lot later that - two days before, someone with the name Vidal SASTRE SANCHEZ HORNERO was [picking up a prize at the Palau de Arts in Valencia](../../crimes/protagonists/vidal-sastre.md#the-lamistat-quart-band).
+- Inma then tells me that Paloma did speak to her sister in La Sella as she said she would and yes, indeed, everyone in Denia knows who I am and not in a good way.
+- She does not elaborate on that apart from a suggestion that everyone found me horribly offensive.
 - I ask her what am I going to do if they try to murder me when I get home.
 - She says I should call the police.
 - I remember what Paloma told us about the police in the region.
 - I'm obviously not going to call the police if they try to murder me by poison, and Inma and Paloma know it.
 - They decided to throw me to the wolves. Like everyone else.
+- When I start writing this police statement in Thailand and build a website for it, Inma reaches out to ask me if I've built a website. I say yes. She says Paloma says it'll probably be shut down.
 
 ## Couple in hotel room
 
