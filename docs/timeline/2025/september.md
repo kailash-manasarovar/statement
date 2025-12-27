@@ -1,6 +1,6 @@
 # September 2025
 
-## The Red Lion Barnet with dad
+## The Red Lion in High Barnet with dad
 
 - Since I got back in February, dad insisted we went regularly to the Red Lion in High Barnet for the carvery.
 - I usually paid, of course.
