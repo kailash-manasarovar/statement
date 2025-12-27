@@ -342,7 +342,7 @@ function googleTranslateElementInit() {
 - I remember what Paloma told us about the police in the region.
 - I'm obviously not going to call the police if they try to murder me by poison, and Inma and Paloma know it.
 - They decided to throw me to the wolves. Like everyone else.
-- When I start writing this police statement in Thailand and build a website for it, Inma reaches out to ask me if I've built a website. I say yes. She says Paloma says it'll probably be shut down.
+- When I start writing this police statement in Thailand and build a website for it, Inma reaches out to ask me if I've built a website. I say yes. She says Paloma told her it'll probably be shut down.
 
 ## Couple in hotel room
 
