@@ -206,7 +206,7 @@ function googleTranslateElementInit() {
 - They wouldn't talk about anything serious in front of him and shut me down when I mentioned something while he was there.
 - Once he's gone, we start talking.
 - I tell them that everyone knows me in Denia, and not in a good way.
-- Blanca leaves about twenty minutes later. As she leaves, she gives me a dirty look.
+- Blanca leaves about twenty minutes later. As she leaves, she gives me a dirty look. She looks disgusted with me.
 - I file it away.
 - I try to explain to Paloma what's been going on.
 - Paloma doesn't really listen to me when I speak, she talks directly to Inma.
@@ -217,16 +217,16 @@ function googleTranslateElementInit() {
 - I tell her about my trips to the police and how they're ignoring me.
 - She tells us both that the police in the whole region are not to be trusted. 
 - *You can't go to the police down there*, she says. I knew it already.
-- She doesn't seem to be interested in anything I have to say, until one moment when I mention that the trumpet teacher's daughters might be threatened with kidnap if he doesn't do what they say.
+- She doesn't seem to be interested in anything I have to say, until one moment when I mention that the trumpet teacher's daughters might be kidnapped if he doesn't do what they say.
 - At that moment, her eyes light up and she says, *oh we can do something with that*.
 - I'm dismayed.
 - A woman can go through years of torture and no-one cares, but the minute one man is in trouble, even a man involved in creating the hell for women and children, they'll spring into action.
-- It feels like industrial-scale woman-hating and the accepted sexual grooming of minors, and worse.
+- It feels like industrial-scale woman-hating and the tacitly-accepted sexual grooming of minors, and worse.
 - Her words suggest thousands of ignored complaints.
 - No wonder Denia happened.
 - I then tell her about Hazel and Sandra Smith and how I have known who and what they are since 2006, about how they've been free to target the ex-pat elderly, about how Hazel is the accountant for maybe hundreds of them, and how she tried to kill me by poison in 2007.
-- My friend remembers me mentioning them in 2007.
-- I mentioned that I had seen British criminals in the Marina Alta, Las Marinas to be precise.
+- My friend remembers me mentioning something to her in 2007.
+- I had mentioned at the time that I had seen British criminals in the Marina Alta, Las Marinas to be precise, without giving any details.
 - I tell her about the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101) and the [sedated woman in the car](september.md#another-upsetting-targeted-woman), and the many pictures I received that I believe are targeted women, including [a picture of one of Domingo's students](../2023/october.md#choir) Elsa.
 - Paloma looks briefly at my friend and says my story sounds like devil worship.
 - I'm even more dismayed. 
@@ -235,9 +235,10 @@ function googleTranslateElementInit() {
 - She does say, *it sounds like a chaos doesn't it*, to my friend, and advises I write a timeline.
 - Thank you Paloma! 🙏🏼 It was a great idea.
 - She tells me she can help me, maybe get Interpol involved.
-- She says her sister lives in La Sella, just up the road from Denia, and she will talk to her to find out what's going on in Denia.
-- She says once we have the information, then we can help [Irene](august.md#irene-the-plate-lady) and the other targeted women.
+- She says her sister lives in La Sella, just up the road from Denia, and she will talk to her to find out what's going on there.
+- She says once we have the information, we can help [Irene](august.md#irene-the-plate-lady) and the other targeted women.
 - I hug her and thank her, but I don't expect to see or hear from her again.
+- As I leave, I hand her the names of [the two little girls that Domingo teaches](../2023/september.md#my-friend-the-german-translator) and I tell her I'm very concerned about them, and their single and wealthy mother who was persuaded to buy a Steinway: 
 - Over the next few weeks, accounts fly by with names like *dubious government official*, and similar.
 - They know.
 
