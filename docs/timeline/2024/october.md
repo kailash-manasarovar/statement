@@ -238,7 +238,7 @@ function googleTranslateElementInit() {
 - She says her sister lives in La Sella, just up the road from Denia, and she will talk to her to find out what's going on there.
 - She says once we have the information, we can help [Irene](august.md#irene-the-plate-lady) and the other targeted women.
 - I hug her and thank her, but I don't expect to see or hear from her again.
-- As I leave, I hand her the names of [the two little girls that Domingo teaches](../2023/september.md#my-friend-the-german-translator) and I tell her I'm very concerned about them, and their single and wealthy mother who was persuaded to buy a Steinway: 
+- As I leave, I hand her, written down by hand, the names of [the two little girls that Domingo teaches](../2023/september.md#my-friend-the-german-translator) and I tell her I'm very concerned about them, and their single and wealthy mother who was persuaded to buy a Steinway. 
 - Over the next few weeks, accounts fly by with names like *dubious government official*, and similar.
 - They know.
 
