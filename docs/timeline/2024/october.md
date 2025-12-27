@@ -332,14 +332,14 @@ function googleTranslateElementInit() {
 - She tells me Paloma thinks we are both in danger.
 - She also tells me that Paloma had looked up *Vidal SASTRE SANCHEZ HORNERO* in the Generalitat systems and found no record of a man with that name.
 - When I hear that I know I'm being fobbed off.
-- Outrageously - I wasn't to know until a lot later that - two days before, someone with the name Vidal SASTRE SANCHEZ HORNERO was [picking up a Generalitat-funded prize at the Palau de Arts in Valencia](../../crimes/protagonists/vidal-sastre.md#the-lamistat-quart-band).
+- Outrageously - I wasn't to know until a lot later - two days before, someone with the name Vidal SASTRE SANCHEZ HORNERO was [picking up a Generalitat-funded prize at the Palau de Arts in Valencia](../../crimes/protagonists/vidal-sastre.md#the-lamistat-quart-band).
 - Inma then tells me that Paloma did speak to her sister in La Sella as she said she would and yes, indeed, everyone in Denia knows who I am and not in a good way.
 - She does not elaborate on that apart from a suggestion that everyone found me horribly offensive.
 - I tell her they [shutdown my security-cam](#the-router-malfunctions-while-im-in-fatima) while I was away and they must have been coming into my apartment.
 - I'm concerned for my safety.
 - I ask her what am I going to do if they try to murder me by poison when I get home.
 - She says, strangely, I should call the police.
-- I remember what Paloma told us about the police in the region.
+- Never mind what Paloma told us about the police in the region, Inma knows I went to the police and was ignored, [she came with me in Madrid in March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
 - I'm obviously not going to call the police if they try to murder me by poison, and Inma and Paloma know it.
 - They decided to throw me to the wolves. Like everyone else.
 - When I start writing this police statement in Thailand and build a website for it, Inma reaches out to ask me if I've built a website. I say yes. She says Paloma told her it'll probably be shut down.
