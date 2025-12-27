@@ -18,9 +18,9 @@
 - I'm really embarrassed actually, but he is 84, I guess.
 - I stand aside and put my head in my hand.
 - While he's doing this, a fast, red expensive car speeds up to us noisily, engine growling and screeching.
-- It stops, waits, then reverses away and drives off.
+- It stops, the driver and passenger look at us for a few moments, then it reverses away and drives off.
 - While we're in the carvery, I see men peering in the window to look at us.
-- My (our) presence is clearly antagonizing.
+- Our presence is clearly antagonizing.
 - I tell dad we have to stop coming here, I don't want to antagonize anyone.
 - After finding out that my dad is likely horribly connected with these people and the porn-gangs of Denia, and that the woman at the Red Lion probably told him to [stay away from Lourdes while they *finished me off*](july.md#the-woman-at-the-red-lion), and I was not finished off, this act, to me, is even more appalling that it already was.
 - And he still let them feed him.
