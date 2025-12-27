@@ -4,6 +4,19 @@
 
 - It's time to knuckle down and finish editing this statement in preparation for publishing it as a novel.
 
+## Bunny-girl nose-ring woman
+
+- I go to Brent Cross one afternoon for something.
+- When I get back to my car, I see a car parked beside, or in front maybe, of mine.
+- In the driver's seat is a black woman, and I think I know her.
+- She was the accomplice of the man that tried to rob H Samuels in Brent Cross with a fake credit card, where I worked when I was 16, the week before I was targeted by the Jamaican rape-gangs!
+- The same man that [bared his teeth at me](../2024/december.md#man-bares-his-teeth-at-me) at the Spa in December 2024.
+- She looked exactly like her, just a bit older.
+- She has aged well.
+- Was she an "introduction agent" for the rape gangs? 
+- Thinking back, another man who worked at H Samuels in Brent Cross that summer was at the Camden Palace the very night we meet Winston May and his cohort.
+- I believe he was Scottish.
+
 ## Reaching out to journalists
 
 - I reach out to multiple journalists with my story; none gets back to me.
