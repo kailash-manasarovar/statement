@@ -2,7 +2,8 @@
 
 ## The Red Lion Barnet with dad
 
-- Since I got back in February, dad insisted we went to the Red Lion in High Barnet for the carvery.
+- Since I got back in February, dad insisted we went regularly to the Red Lion in High Barnet for the carvery.
+- I usually paid, of course.
 - I started to realize something fishy was going on up there pretty much immediately.
 - Every time I took him up for the carvery dinner, some weird event occurred.
 - For example: the [Muslim men display](march.md#a-man-who-reminds-me-of-domingo) at the table right next to us in March.
@@ -10,16 +11,16 @@
 - He wants to go again.
 - I don't like going but I take him because he wants to go; I mean, it's OK but it's too much food for me.
 - Anyway, off we go and park close to the pub.
-- We walk from the car to the pub.
+- We are walking from the car to the pub.
 - In a disastrous error of judgment, for him, dad suddenly needs a wee. 
 - He stands in the middle of the pavement, in broad daylight, and pisses on the Red Lion pub's wall.
-- He even sort of sprays the urine up and down.
+- He even waggles his penis and sprays the urine up and down.
 - I'm really embarrassed actually, but he is 84, I guess.
-- I stand aside and sort of put my head in my hand.
-- While he's doing this, a fast expensive car speeds up to us very noisily, engine growling and screaming.
-- It stops, waits, then reverses away and drive off.
-- While we're in the carvery, I see men peering into look at me.
-- My presence is clearly antagonizing.
+- I stand aside and put my head in my hand.
+- While he's doing this, a fast, red expensive car speeds up to us noisily, engine growling and screeching.
+- It stops, waits, then reverses away and drives off.
+- While we're in the carvery, I see men peering in the window to look at us.
+- My (our) presence is clearly antagonizing.
 - I tell dad we have to stop coming here, I don't want to antagonize anyone.
 - After finding out that my dad is likely horribly connected with these people and the porn-gangs of Denia, and that the woman at the Red Lion probably told him to [stay away from Lourdes while they *finished me off*](july.md#the-woman-at-the-red-lion), and I was not finished off, this act, to me, is even more appalling that it already was.
 - And he still let them feed him.
