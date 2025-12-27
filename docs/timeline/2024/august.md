@@ -554,20 +554,72 @@ function googleTranslateElementInit() {
 
 - Who is she?
 
-<!--
-| ![pic]( ../../content/images/targeted-women/11.png )  |
-| ![pic]( ../../content/images/targeted-women/12.png )  |
-| ![pic]( ../../content/images/targeted-women/13.png )  |
-| ![pic]( ../../content/images/targeted-women/14.png ) 
-This woman does not know she is being photographed. |
-| ![pic]( ../../content/images/targeted-women/15.png )  |
-| ![pic]( ../../content/images/targeted-women/16.png )  |
-| ![pic]( ../../content/images/targeted-women/17.png )  |
-| ![pic]( ../../content/images/targeted-women/18.png )  |
-| ![pic]( ../../content/images/targeted-women/19.png ) 
-The two pics above are the same woman I often see dressed as a sexy nurse on a bed about to engage in sexual activity. It's never clear if she's aware of being filmed. I wonder if she is the nurse that lived at my apartment for a couple of weeks. Note the vile profile message that suggests she is dead in an umarked grave.  |
-| ![pic]( ../../content/images/targeted-women/20.png )
-This pic looks exactly like a student of the conservatory studying under Domingo the piano teacher: [Elsa](../2023/october.md#gang-stalking-by-conservatory-civil-servants) who I have mentioned before. |-->
+##### 10.
+
+![pic]( ../../content/images/targeted-women/11.png ) 
+
+- Who is she?
+
+##### 11.
+
+![pic]( ../../content/images/targeted-women/12.png ) 
+
+- Who is she?
+
+##### 12.
+
+![pic]( ../../content/images/targeted-women/13.png ) 
+
+- Who is she?
+
+##### 13.
+
+![pic]( ../../content/images/targeted-women/14.png ) 
+
+- This woman does not know she is being photographed. 
+- Who is she?
+
+##### 14. 
+
+![pic]( ../../content/images/targeted-women/15.png ) 
+
+- Who is she?
+
+##### 15.
+
+![pic]( ../../content/images/targeted-women/16.png ) 
+
+- Who is she?
+
+##### 16.
+
+![pic]( ../../content/images/targeted-women/17.png ) 
+
+- Who is she?
+
+##### 17.
+
+![pic]( ../../content/images/targeted-women/18.png ) 
+
+![pic]( ../../content/images/targeted-women/19.png )
+
+- I saw this woman dressed in the same sexy nurses outfit I saw many women wearing.
+- She was on a bed about to engage in sexual activity.
+- It's not clear if she's aware of being filmed. 
+- Note the profile message that suggests she is dead in an unmarked grave. 
+- I found the message extremely threatening.
+- Who is she?
+
+##### 18.
+
+![pic]( ../../content/images/targeted-women/20.png )
+
+- This is Elsa, a student at the conservatory.
+- She is one of Domingo Cano's students.
+- Note the dog collar.
+- I told numerous officials about Elsa and how worried I was for her safety including: [a Spanish foreign office official](../2024/october.md#meeting-inma-and-paloma-the-spanish-official), [the Madrid police](../2025/january.md#madrid-policia), and [I even reported her to the Spanish police's trafficking helpline on 29th October 2024](october.md#the-police-trafficking-email), while I was being poisoned at home, and just after meeting [Inma and Paloma in Madrid](october.md#meeting-inma-and-paloma-the-spanish-official).
+- I did so because I was certain no-one was coming to help the children of Dénia.
+- The police in Dénia got back to me about the trafficking alert, but I was hardly going to deal with them after [my experience in February 2024](february.md#my-first-trip-to-the-spanish-police-in-denia).
 
 ## Irene, the plate lady
 
