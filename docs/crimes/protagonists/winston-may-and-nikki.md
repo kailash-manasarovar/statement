@@ -52,3 +52,10 @@ function googleTranslateElementInit() {
 - Or, the Soho women know the fathers prior to scouting the daughters.
 - Who knows.
 - They're so lost in their hellscape, nothing would surprise me.
+
+## Once a victim, always a target
+
+- Criminal porn-gangs know that anyone experiencing sexual violence and remained unhealed from it has no personal boundaries; that's what they phish for online.
+- Is this why I remained on the database from 1989, as it were, and then when I got rich...
+- Winston May did call my home one time in the 90s.
+
