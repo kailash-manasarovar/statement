@@ -1,5 +1,13 @@
 # October 2025
 
+## Thunderbolt clarity
+
+- Right after getting home from Ireland, I suddenly become clear about who the trumpet teacher was.
+- A miracle.
+- The four men I remember as playing the role of *trumpet teacher* become clear in my mind and I realize I can detail them and may even have some pictures of them.
+- It is possible there are many more men involved.
+- I detail the [results of my new and sudden clarity](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
+
 ## Communication example
 
 - Here's a good example of how cyber-stalkers communicate with me.

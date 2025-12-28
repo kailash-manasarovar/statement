@@ -38,13 +38,6 @@
 - When there is no reasoning with arrogance and evil, what can you do?
 - Maybe just supply the means for healing and make them available, and leave the rest to God.
 
-## Thunderbolt clarity
-
-- Around the middle of this month, I suddenly become clear about who the trumpet teacher was.
-- The four men I remember as playing the role of *trumpet teacher* become clear in my mind and I realize I can detail them and may even have some pictures of them.
-- It is possible there are many more men involved.
-- I detail the [results of my new and sudden clarity](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
-
 ## Current health
 
 ### Eyes
