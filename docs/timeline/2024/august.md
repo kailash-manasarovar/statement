@@ -673,9 +673,12 @@ function googleTranslateElementInit() {
 - I send a copy of the first page of my [police report from March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
 - The conversation with the hacker continues as I do this.
 - Did they know what I was doing?
-- This is the extra page I wrote about [Ugly](#ugly) after I had started already.
+- This is the extra page I wrote about [Ugly](#ugly) after I had started writing already.
 
 ![Supplementary page about Ugly](../../content/images/supplementary-handwritten-letter.png)
+
+- You can see I'm steadily closing in on the truth.
+- Never give up. As they say.
 
 ## Gabriel Silva's first team meeting as manager
 
