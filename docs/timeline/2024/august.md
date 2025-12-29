@@ -713,5 +713,4 @@ function googleTranslateElementInit() {
 - Was Jonathan aware of what was going on too?
 - You can't imagine the intensity of the persecution I was feeling at work alongside constant terror from carefree criminal porn-gangs who had a very sinister end goal for me.
 - It was overwhelming and I'm surprised I'm here, sane, and able to tell my story.
-- I pray some good comes from my experiences and that perhaps women and girls might be able to study engineering and work in tech safely.
-- I guess none of this is surprising though.
+- I pray some good comes from my experiences and that perhaps women and girls might be able to study engineering and work in tech safely one day soon.

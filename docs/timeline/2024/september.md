@@ -104,6 +104,7 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 
 ## TEB in Dublin
 
+- The reason I see Inma in Madrid is because I'm traveling to Dublin for TEB so I drive to Madrid and fly from there.
 - One of the participants alludes to this woman.
 
 ## The conversation continues
