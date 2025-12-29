@@ -639,10 +639,10 @@ function googleTranslateElementInit() {
 - I am amazed!
 - Remember: the hackers are watching everything that I do online, in real time. 
 - And this is a real-time conversation.
-- Except, I am not sure how much they can see of the other side of the conversation, if there's multiple voices, unless I highlight it in some way.
+- Except, I am not sure how much they can see of the other side of the conversation - assuming multiple hackers have access to my online activity - unless I highlight it in some way.
 - I say, "that's her isn't it?".
-- The hacker responds, "noooooooo". 
-- But it is undoubtedly her.
+- A hacker responds, "noooooooo". 
+- It is undoubtedly her.
 - Irene is a well known ceramics artist running her ceramics business in Onda in the Valencia region.
 - I realize that the original stalker/honey trap pattern was to target successful women and women with money, the porn-addiction evolving into wealthy foreign women, minor girls approaching majority, and now children and babies. 
 - The pictures of Irene that I saw in July 2023 on the `@jctot19` and Carmen Cano's `@sinremite` accounts were at least 20 years old.
