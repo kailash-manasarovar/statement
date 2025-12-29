@@ -7,7 +7,7 @@
 - I'm feeling well too; free of a lot of the year's poison and toxins.
 - I go for a nap in the afternoon.
 - I'm not tired, I just need to rest for a bit.
-- I've been lying down a short while and I suddenly see something in my mind's eye which causes me unease.
+- I've been lying down a short while and I suddenly see something in my mind's eye which causes me unease...
 - I'm in my bed at Carrer Furs.
 - Sitting on the left side of the bed to me is a man.
 - He has no shirt on.
@@ -18,8 +18,8 @@
 
 - He would match most closely the build of [Marc, number two trumpet teacher](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013), the man who turned up to chamber music class at the conservatory the most.
 - He is wearing a face paint mask.
-- The top-half of his face is painted with demonish black and white vertical thin white stripes coming down his from the top of his head. 
-- I can see no facially defining features.
+- The top-half of his face is painted with demonish black and white, vertical thin white stripes coming down his from the top of his head. 
+- I can see nothing recognizable.
 - He is screaming and shouting and shaking his head around in a most bizarre manner.
 - In his hand he has what looks like one of my kitchen tea towels.
 
