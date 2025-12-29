@@ -624,32 +624,33 @@ function googleTranslateElementInit() {
 
 ## Irene, the plate lady
 
-- The conversation with the hacker has become very candida and intimate.
+- The conversation with the hacker has become very candid and intimate.
 - We are communicating about some extremely dark matters.
 - I ask:
 - "So who was [plate lady](../2023/july.md#plate-lady-early-in-the-month) then?".
 - An answer comes immediately:
 - "Irene".
-- I immediately look for her on Google: *Irene, ceramics artist, Valencia*... 
+- I immediately look her up on Google: *Irene, ceramics artist, Valencia*... 
 - And there she is.
 - Except she is about 50 now: [Irene Molina Pascual](https://alfarim.es/coneix-nos).
 - There is absolutely no doubt in my mind. 
-- This is the woman I saw as a 30 year old, or younger, in photos posted on my Google search in July 2023 while I was trying to figure out what was going on and searching on the `@jctot19` and `@sinremite` accounts and viewing the image results.
-- The woman who was very obviously being filmed sexually without her knowledge, and later exploited in some way by the photography.
+- This is the woman I saw as a 30 year old, or younger, in photos posted on my hacked Google search in July 2023 while I was trying to figure out what was going on.
+- The woman who was very obviously being filmed sexually without her knowledge, and later exploited in some way with the spy-cam photography.
 - I am amazed!
-- Remember: the hackers are watching everything that I do on online, in real time. 
+- Remember: the hackers are watching everything that I do online, in real time. 
 - And this is a real-time conversation.
 - Except, I am not sure how much they can see of the other side of the conversation, if there's multiple voices, unless I highlight it in some way.
 - I say, "that's her isn't it?".
 - The hacker responds, "noooooooo". 
 - But it is undoubtedly her.
 - Irene is a well known ceramics artist running her ceramics business in Onda in the Valencia region.
-- I realize that the stalker/honey trap pattern is to target successful women and women with money. 
+- I realize that the original stalker/honey trap pattern was to target successful women and women with money, the porn-addiction evolving into wealthy foreign women, minor girls approaching majority, and now children and babies. 
 - The pictures of Irene that I saw in July 2023 on the `@jctot19` and Carmen Cano's `@sinremite` accounts were at least 20 years old.
-- The hacker then tells me about another lady who may be being targeted, a sportswoman in Castellon: [Lidia Sanchez Puebla](https://worldathletics.org/athletes/spain/lidia-sanchez-puebla-14503616).
+- The hacker then tells me about another lady who may have been targeted, a sportswoman in Castellon: [Lidia Sanchez Puebla](https://worldathletics.org/athletes/spain/lidia-sanchez-puebla-14503616).
 - I'm stunned.
-- More recently, I believe the gangs commonly go for professional sportspeople.
-- I have enough evidence to share and I feel it's my responsibility to help these abused women.
+- More recently, I believe the gangs often go for professional sportspeople.
+- This is a turning-point for me.
+- I have enough evidence to share and I feel it's my responsibility to help.
 - But how can I share the information I have with the world without the hackers seeing what I'm doing?
 
 ## The handwritten letters
