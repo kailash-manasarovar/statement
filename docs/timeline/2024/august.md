@@ -656,6 +656,7 @@ function googleTranslateElementInit() {
 ## The handwritten letters
 
 - I write, painstakingly by hand, [a letter to my friend Inma Bascones in Madrid](../../content/documents/letters/scanned-hand-written-letter.pdf) explaining everything that's happened. 
+- The letter is 20+ pages long. I don't remember writing with a pen being this hard.
 
 ![The handwritten letters](../../content/images/the-handwritten-letters.png)
 
