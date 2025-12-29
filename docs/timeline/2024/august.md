@@ -433,7 +433,10 @@ function googleTranslateElementInit() {
 - It's textbook gypsy poisoning tactics and I wonder today if he had gone around to my left while I was distracted and popped something into my ear, as they do.
 - Or maybe someone else did.
 - I would recognize him again.
-- This happens after [I start writing the handwritten letters](#the-handwritten-letters), because I add a note about it at the end of my original letter as it was superlatively threatening and needed mentioning.
+- This happens after [I start writing the handwritten letters](#the-handwritten-letters), because I add an extra page with details about it at the end of my original letter as it was superlatively threatening and needed mentioning.
+
+![Supplementary handwritten letter](../../content/images/supplementary-handwritten-letter.png)
+
 - And most curiously, I think I know who this person is.
 - And was he the same ugly man [I saw in Amsterdam](../early-years/2001.md#amsterdam) all those years ago?
 - And ChatGPT is working miracles today because I believe that's *exactly* what they were wearing!
@@ -670,6 +673,9 @@ function googleTranslateElementInit() {
 - I send a copy of the first page of my [police report from March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
 - The conversation with the hacker continues as I do this.
 - Did they know what I was doing?
+- This is the extra page I wrote about [Ugly](#ugly) after I had started already.
+
+![Supplementary page about Ugly](../../content/images/supplementary-handwritten-letter.png)
 
 ## Gabriel Silva's first team meeting as manager
 
