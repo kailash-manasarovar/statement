@@ -18,11 +18,15 @@
 
 - He would match most closely the build of [Marc, number two trumpet teacher](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013), the man who turned up to chamber music class at the conservatory the most.
 - He is wearing a face paint mask.
-- It looks like the top-half of his face is painted in a sort of demonish black with vertical thin white stripes coming down his forehead. 
+- The top-half of his face is painted with demonish black and white vertical thin white stripes coming down his from the top of his head. 
 - I can see no facially defining features.
 - He is screaming and shouting and shaking his head around in a most bizarre manner.
-- In his hand he has what looks like one of my kitchen tea towels (is this where we get [the towel meme](../2024/march/13-end.md#an-account-i-believe-is-run-by-domingo-cano-the-piano-teacher) they've been using since 13th March 2024).
-- He is holding it taut at both ends, and stretching it, and twisting it.
+- In his hand he has what looks like one of my kitchen tea towels.
+
+![Towel man](../../content/images/man-with-a-towel.png)
+
+- Is this where we get [the towel meme](../2024/march/13-end.md#an-account-i-believe-is-run-by-domingo-cano-the-piano-teacher) they've been using since 13th March 2024?
+- He holds it taut at both ends, stretching it and twisting it.
 - He slaps the bed with it.
 - Rather like the [Jitendra Das lookalike did with his napkin at the Polygon conference in Bali](../2024/may.md#the-pakistani-yorkshire-man).
 - It feels too distressing to witness.
