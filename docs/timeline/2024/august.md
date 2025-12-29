@@ -644,14 +644,14 @@ function googleTranslateElementInit() {
 - A hacker responds, "noooooooo". 
 - It is undoubtedly her.
 - Irene is a well known ceramics artist running her ceramics business in Onda in the Valencia region.
-- I realize that the original stalker/honey trap pattern was to target successful women and women with money, the porn-addiction evolving into wealthy foreign women, minor girls approaching majority, and now children and babies. 
+- I realize that the original honey-trap pattern was to target wealthy and successful women, the porn-addiction evolving into wealthy foreign women, also minor girls approaching majority, and now children and babies. 
 - The pictures of Irene that I saw in July 2023 on the `@jctot19` and Carmen Cano's `@sinremite` accounts were at least 20 years old.
 - The hacker then tells me about another lady who may have been targeted, a sportswoman in Castellon: [Lidia Sanchez Puebla](https://worldathletics.org/athletes/spain/lidia-sanchez-puebla-14503616).
 - I'm stunned.
 - More recently, I believe the gangs often go for professional sportspeople.
 - This is a turning-point for me.
 - I have enough evidence to share and I feel it's my responsibility to help.
-- But how can I share the information I have with the world without the hackers seeing what I'm doing?
+- But how can I tell the world without the hackers seeing what I'm doing?
 
 ## The handwritten letters
 
