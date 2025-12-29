@@ -677,7 +677,7 @@ function googleTranslateElementInit() {
 
 ![Supplementary page about Ugly](../../content/images/supplementary-handwritten-letter.png)
 
-- You can see I'm steadily closing in on the truth.
+- I'm steadily closing in on the truth.
 - Never give up. As they say.
 
 ## Gabriel Silva's first team meeting as manager
