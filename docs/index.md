@@ -28,7 +28,7 @@ The crimes took place over the three years I lived in the apartment after [findi
 
 The crimes include distribution of spy-cam footage from my apartment where I was either masturbating, or sedated and raped, and attempted murder.
 
-Gang-stalking, cyber-terrorizing, constant online persecution, clandestine drugging, and poisoning (attempted murder) by criminal gangs continued since leaving Spain in February 2025, and up until I remembered [something extraordinary about the Tenor Cortis conservatory of Dénia in September 2025](timeline/2025/september.md#thunderbolt-clarity).
+Gang-stalking, cyber-terrorizing, constant online persecution, clandestine drugging, and poisoning (attempted murder) by criminal gangs continued since leaving Spain in February 2025, and up until I remembered [something extraordinary about the Tenor Cortis conservatory of Dénia in September 2025](timeline/2025/october.md#thunderbolt-clarity).
 
 ## Mass voyeurism, cyber-stalking, gang stalking, honey-trapping, sedated and spy-cam porn, and staggering levels of violence against women
 

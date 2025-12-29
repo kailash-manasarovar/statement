@@ -113,7 +113,7 @@
 - These two men are a bit snickery and giggly with each other, like they're winking and grinning at me.
 - Something's happening that they're not telling me about, and it's important I should know.
 - When I get the results, a few weeks later, they say I'm fine and I don't need any further investigation; but they do make a point of saying my angles are indeed narrow.
-- It turns out, one of the probably multiple vision issues I have - which I was unaware of until after I remembered the [switcheroo at the conservatory](../2025/september.md#thunderbolt-clarity) - is neurological, brain damage from poisoning, which means I struggle to recognize objects out of context.
+- It turns out, one of the probably multiple vision issues I have - which I was unaware of until after I remembered the [switcheroo at the conservatory](../2025/october.md#thunderbolt-clarity) - is neurological, brain damage from poisoning, which means I struggle to recognize objects out of context.
 - The porn gangs of Denia damaged my brain in this way so that I would believe four or more completely different men were the same one man, which I did.
 - Did they know about the switcheroo and how it requires brain and not vision damage?
 - Is that why they didn't do the in-depth test as arranged?

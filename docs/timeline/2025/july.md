@@ -192,7 +192,7 @@
 - Is whatever sedating rape-gangs use to drug women a powerful hallucinogenic plant, like ayahuasca which, also like ayahuasca, has a full come-back-down-to-normal duration of around six-to-eight months.
 - This is what I noticed about the effects of the plant when I tried ayahuasca around 2005 to help me access blocked memories from sedated experiences in 1989.
 - Did criminal gangs *have* to dose me up again, or finish me off, so I wouldn't remember, or get clear about, the [four distinct men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) posing as one man, the trumpet teacher, *Vidal Sastre Sanchez Hornero*?
-- When I look over this statement, I realize that I have been looking at photos of these very different men since June 2023 and believing them to be one man until I [got suddenly clear-headed in September 2025](september.md#thunderbolt-clarity).
+- When I look over this statement, I realize that I have been looking at photos of these very different men since June 2023 and believing them to be one man until I [got suddenly clear-headed in September 2025](october.md#thunderbolt-clarity).
 - It wore off, didn't it.
 - I guess targets rarely get free for long enough for it to wear off.
 - Is that why targets end up long-term on something from their GP which is, perhaps, not what it says it is on the label?

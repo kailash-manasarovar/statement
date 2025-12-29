@@ -82,7 +82,7 @@ function googleTranslateElementInit() {
 - I now believe that this response came from Hazel, and either herself or her associates had begun the horse meme trigger all the way back in 2016.
 - I believe the horse meme is 100% related to naked women running around a field after a horse, and I believe this field to be in the Marina Alta region.
 - I believe I was shown this video in 2016 so that I would shockingly remember seeing it while I was doing the same thing once the switcheroo porn show was over and I was handed over to the sickest pornographers of all for the animal-show training.
-- I only remember this as significant once the drugging has stopped for a long period and I have remembered the [switcheroo conspiracy](../timeline/2025/september.md#thunderbolt-clarity).
+- I only remember this as significant once the drugging has stopped for a long period and I have remembered the [switcheroo conspiracy](../timeline/2025/october.md#thunderbolt-clarity).
 
 ![Remembering the horse meme](../content/tweets/remembering-the-horse-meme.jpg)
 

@@ -675,7 +675,7 @@ function googleTranslateElementInit() {
 - It's obvious to me what's going on, apart from the *switcheroo* reference at this stage.
 - I start thinking about what I'm going to do.
 - It's hard to get clear about what to do about anything else while I'm receiving [picture-after-picture of targeted women](#suspected-targets), and trying to get [the handwritten letters out](#the-handwritten-letters) to as many people as I can.
-- Since understanding Gabe's reference to *switcheroo* in [September 2025](../2025/september.md#thunderbolt-clarity), I wonder if he is aware that for something so vile to work, the target has to be brain-damaged so that she can't identify objects out of context, including people.
+- Since understanding Gabe's reference to *switcheroo* in [September 2025](../2025/october.md#thunderbolt-clarity), I wonder if he is aware that for something so vile to work, the target has to be brain-damaged so that she can't identify objects out of context, including people.
 - She also has to be continuously drugged to make her confused in situations in which those men appear.
 - Of course, given the whole *switcheroo* at the conservatory thing had finished on [12th June 2023](../2023/june.md#monday-12th-june-2023) and I was obviously still of the mind there was *only one man*, everyone must have thought I'd never figure it out.
 - But I had been looking at actual photos of the [minimum four distinct men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) who made up the *switcheroo* team at the conservatory since June 2023.
