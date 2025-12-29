@@ -655,22 +655,20 @@ function googleTranslateElementInit() {
 
 ## The handwritten letters
 
-- Given my laptop is fully accessed by hackers, I write, painstakingly by hand, a letter to my friend explaining everything that's happened.
+- I write, painstakingly by hand, [a letter to my friend Inma Bascones in Madrid](../../content/documents/letters/scanned-hand-written-letter.pdf) explaining everything that's happened. 
 
-    - [The handwritten letter explaining what's going on](../../content/documents/letters/scanned-hand-written-letter.pdf).
+![The handwritten letters](../../content/images/the-handwritten-letters.png)
 
-- I also copy and send this letter to 40+ agencies, newspapers, and well known people, all over the world.
+- I also copy the letter to 40+ agencies, newspapers, and well known people all over the world.
 - I do this for two reasons:
-    - Justice for the good people of Dénia and the Marina Alta region; especially the children, women, and girls.
-    - To ensure my safety in some way because these people clearly have no intention of leaving me alone.
-- Along with the letter, I send some of the pictures that have been sent on fake accounts that may be related. I send all the [trumpet teacher photos](#the-trumpet-teacher-sends-me-photos-of-himself-and-his-family). 
-- I also send pics of Rocio Vidal who I believe has been targeted since, as I mentioned, I saw a fake account pic of her on the bed about to take her clothes off.
-
-![Rocio Vidal](../../content/images/Rocio-Vidal-on-Google-search.png)
-
-- I also send a copy of the first page of my [denuncia from March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
+    - Justice for the good people of Dénia and the Marina Alta region; especially the women, children, and babies.
+    - To ensure my safety in some way because these people clearly have no intention of *ever* leaving me alone.
+- Along with the letter, I send some of the pictures that I received on fake accounts that may be related.
+- I send all the [trumpet teacher photos](#the-trumpet-teacher-sends-me-photos-of-himself-and-his-family). 
+- I send a picture of [Rocio Vidal](#6).
+- I send a copy of the first page of my [police report from March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
 - The conversation with the hacker continues as I do this.
-- Did they know I was writing scores of letters by hand, I wonder?
+- Did they know what I was doing?
 
 ## Gabriel Silva's first team meeting as manager
 
