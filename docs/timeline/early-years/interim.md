@@ -109,6 +109,9 @@ function googleTranslateElementInit() {
     - I keep thinking of British Jess at the Buddhist retreat centre near Avila at Christmas.
     - Was she a gone wrong porn-addict?
 
+- Looking back, I believe two men may have had intentions of getting me into a sexual relationship at the office. The first man "popped up" on the first day and I just got this awful feeling from him. It had been planned he would sit with us but then he didn't. A couple of weeks later another guy joins, the web developer, and sits in front of me. I liked him, not romantically obviously, but he seemed like a cool guy. I just wonder about him now... or maybe they were hoping something would happen and then they'd bring him in. He never replied to my messages after I left.
+- Also, Jo, another developer there was the husband of an Iyengar yoga teacher from Maida Vale, my yoga school. I wonder if he noticed what was going on for me?
+
 ## January 2019
 
 - An old friend Willow comes round, I wonder what prompted her to visit, it was not a good time.
