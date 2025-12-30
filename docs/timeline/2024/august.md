@@ -708,10 +708,10 @@ function googleTranslateElementInit() {
 - Time was ticking and my memory would be coming back...
 - Is this the main reason behind the vicious persecution at work to get me to leave as soon as possible? 
 - It is certainly the main reason behind continued drugging and poisoning in Spain and the UK in 2025.
-- One wonders, if an absolutely certainty of my demise made my colleagues feel they could safely make references to what they knew was happening to me at the hands of a criminal gang.
-- I have to thank Gabriel for using this term so egregiously; because it was the first thing I remembered after realizing there were at least four distinct trumpet teachers at the conservatory (and/or in my apartment).
+- One wonders if an absolutely certainty of my demise made my colleagues feel they could safely make references to what they knew was happening to me at the hands of a criminal gang.
 - Who told everyone I'd never have the time to remember what was staring at me in the face?
 - And why was everyone OK with what was happening to me?
+- I have to thank Gabriel for using this term so egregiously; because it was the first thing I remembered after realizing there were at least four distinct trumpet teachers at the conservatory (and/or in my apartment).
 
 ### Reprimanding me
 
