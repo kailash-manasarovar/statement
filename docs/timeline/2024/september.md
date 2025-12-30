@@ -27,6 +27,14 @@ function googleTranslateElementInit() {
 - I tell her about the trumpet teacher, how I'm still hopelessly in love with him, that he's the love of my life, that I don't care if he did gay porn, he must have been groomed and coerced if not outright blackmailed, and how I'm still being terrorized by Domingo's family and others in Denia.
 - I tell her about [Irene](august.md#irene-the-plate-lady) and [the handwritten letters](august.md#the-handwritten-letters).
 
+### Letters
+
+- I send as many letters as I can while I'm in France to as many people as possible.
+- The reason I do this is because this is the only way I can communicate with anyone without the hackers and the whole criminal gang being aware of it.
+- I add photos that he has sent to me too, even thought I'm not sure if they are legit or not.
+- Certainly the screenshot of the concert I see in [June 2023 on Youtube](../2023/june.md#another-young-girls-funeral) is legit and I send a copy of that in the pack.
+- At some point back in Dénia, I see a giant message come up on my screen "thank you", and then it's gone.
+
 ### The Royalty
 
 - We go for dinner one Sunday evening at the Royalty restaurant.
@@ -111,14 +119,6 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 
 - The conservation with the hacker continues while I'm in France up until the 21st September.
 - However, it is not as intimate as before, and the threats and porn are back again.
-
-## Letters
-
-- I send as many letters as I can while I'm in France to as many people as possible.
-- The reason I do this is because this is the only way I can communicate with anyone without the hackers and the whole criminal gang being aware of it.
-- I add photos that he has sent to me too, even thought I'm not sure if they are legit or not.
-- Certainly the screenshot of the concert I see in [June 2023 on Youtube](../2023/june.md#another-young-girls-funeral) is legit and I send a copy of that in the pack.
-- At some point back in Dénia, I see a giant message come up on my screen "thank you", and then it's gone.
 
 ### Rocio Vidal
 
