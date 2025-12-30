@@ -417,12 +417,12 @@ function googleTranslateElementInit() {
 - He's a lot older than his photos, thinner.
 - He is sitting in the same [bubbly chair](../2023/august.md#in-the-baths-at-cauterets-with-sandra-rita-diaz) where I told Sandra Rita Diaz I would tame the trumpet teacher.
 - He is with a younger white-skinned woman with long curly reddish hair.
-- The next day, a Monday I believe, I see them both in Lourdes.
+- The very next day, I see them both in Lourdes.
 
 ### Distract and drug activity
 
 - I'm walking alongside Les Halles heading towards the high street.
-- I see the ugly man and the woman he was with at the baths walking towards me.
+- I see the ugly man and the woman he was with at the baths the evening before walking towards me.
 - I'm amazed.
 
 ![Ugly and co](../../content/images/ugly-and-co.png)
@@ -432,6 +432,7 @@ function googleTranslateElementInit() {
 - As she goes, she runs beside me on my right side.
 - It's textbook gypsy poisoning tactics and I wonder today if he had gone around to my left while I was distracted and popped something into my ear, as they do.
 - Or maybe someone else did.
+- I'm curious about what happened next, I have no recollection.
 - I would recognize him again.
 - This happens after [I start writing the handwritten letters](#the-handwritten-letters), because I add an extra page with details about it at the end of my original letter as it was superlatively threatening and needed mentioning.
 
@@ -658,6 +659,8 @@ function googleTranslateElementInit() {
 
 ## The handwritten letters
 
+### My cubic-centimeter of chance
+
 - I write, painstakingly by hand, [a letter to my friend Inma Bascones in Madrid](../../content/documents/letters/scanned-hand-written-letter.pdf) explaining everything that's happened. 
 - The letter is 20+ pages long. I don't remember writing with a pen being this hard.
 
@@ -669,6 +672,7 @@ function googleTranslateElementInit() {
     - To ensure my safety in some way because these people clearly have no intention of *ever* leaving me alone.
 - Along with the letter, I send some of the pictures that I received on fake accounts that may be related.
 - I send all the [trumpet teacher photos](#the-trumpet-teacher-sends-me-photos-of-himself-and-his-family). 
+- I make sure to include a screenshot from the [YouTube I first see online in June 2023](../2023/june.md#another-young-girls-funeral) starring [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) and a drugged target (the flautist behind him).
 - I send a picture of [Rocio Vidal](#6).
 - I send a copy of the first page of my [police report from March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
 - The conversation with the hacker continues as I do this.
