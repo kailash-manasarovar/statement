@@ -440,7 +440,7 @@ function googleTranslateElementInit() {
 
 - And most curiously, I think I know who this person is.
 - And was he the same ugly man [I saw in Amsterdam](../early-years/2001.md#amsterdam) all those years ago?
-- And ChatGPT is working miracles today because I believe that's *exactly* what they were wearing!
+- And ChatGPT is working miracles today because that's *exactly* what they were wearing!
 
 ## Suspected targets 
 
@@ -681,8 +681,9 @@ function googleTranslateElementInit() {
 
 ![Supplementary page about Ugly](../../content/images/supplementary-handwritten-letter.png)
 
-- I'm steadily closing in on the truth.
-- Never give up. As they say.
+- I send the letters over the first few weeks of September.
+- I send Inma's letter last as I am meeting her in Madrid shortly and I was going to hand it to her in person.
+- I don't think I included the supplementary page in Inma's batch for some reason.
 
 ## Gabriel Silva's first team meeting as manager
 
