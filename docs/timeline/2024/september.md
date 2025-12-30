@@ -110,6 +110,17 @@ function googleTranslateElementInit() {
 | ![pic]( ../../content/images/targeted-women/car-woman/7.png ) 
 This picture has the bananas and reminds me of the nude the woman sends while eating a banana. This fake account was sent to me at the beginning of October and references "home made poison". |
 
+## Lourdes with dad
+
+- My dad was aware of everything that was going on, I had explained everything to him in September 2024 in Lourdes and he appeared to understand the nature of my situation and how much danger I was in.
+- As I told him my story, he kept saying: *heavy*, *heavy*,; I thought it was just him taking the piss, as he usually does. He then told me to be careful as I could be beaten by a man and made to be a prostitute.
+- Did he pretend to understand the nature of what was going on, and be supportive to me, and then tell my mother and brother I was not to be believed?
+- One evening we took a walk through the sanctuary. As we passed the baths, at the men's side, one of the doors was completely open and you could see all the way into a bathing chamber.
+- This was unprecedented, something you *never* see in Lourdes.
+- I took it to mean Mary was extending my father an invitation to bathe, to cleanse, to redeem himself.
+- He did not accept the invitation.
+- I made sure to remind him the invitation is always open; doing the right thing is always an option.
+
 ## TEB in Dublin
 
 - The reason I see Inma in Madrid is because I'm traveling to Dublin for TEB so I drive to Madrid and fly from there.
@@ -124,17 +135,6 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 
 - My eyesight's not very good so I don't really trust it too much, but I swear to God I thought I saw Rocio Vidal in Cauterets while all this was going on.
 - Could she have been there?
-
-## Lourdes with dad
-
-- My dad was aware of everything that was going on, I had explained everything to him in September 2024 in Lourdes and he appeared to understand the nature of my situation and how much danger I was in.
-- As I told him my story, he kept saying: *heavy*, *heavy*,; I thought it was just him taking the piss, as he usually does. He then told me to be careful as I could be beaten by a man and made to be a prostitute.
-- Did he pretend to understand the nature of what was going on, and be supportive to me, and then tell my mother and brother I was not to be believed?
-- One evening we took a walk through the sanctuary. As we passed the baths, at the men's side, one of the doors was completely open and you could see all the way into a bathing chamber.
-- This was unprecedented, something you *never* see in Lourdes.
-- I took it to mean Mary was extending my father an invitation to bathe, to cleanse, to redeem himself.
-- He did not accept the invitation.
-- I made sure to remind him the invitation is always open; doing the right thing is always an option.
 
 ## Driving back to Dénia
 
@@ -237,4 +237,3 @@ The message coming up again that I [showed Alessandra in December 2023](../2023/
 The pic of Jack Nicholson here was significant. |
 | ![pic]( ../../content/images/google-searches/sept-24/google-search-6.png ) 
 The [stalker gaslighting message from March](march/1-12.md#aniloviator) still coming up and in first place, next to Paqui. Wow. |
-
