@@ -672,7 +672,7 @@ function googleTranslateElementInit() {
     - To ensure my safety in some way because these people clearly have no intention of *ever* leaving me alone.
 - Along with the letter, I send some of the pictures that I received on fake accounts that may be related.
 - I send all the [trumpet teacher photos](#the-trumpet-teacher-sends-me-photos-of-himself-and-his-family). 
-- I make sure to include a screenshot from the [YouTube I first see online in June 2023](../2023/june.md#another-young-girls-funeral) starring [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) and a drugged target (the flautist behind him).
+- I make sure to include a screenshot from the [YouTube video I first see online in June 2023](../2023/june.md#another-young-girls-funeral) starring [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) and a drugged target (the young flautist behind him).
 - I send a picture of [Rocio Vidal](#6).
 - I send a copy of the first page of my [police report from March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
 - The conversation with the hacker continues as I do this.
@@ -681,8 +681,8 @@ function googleTranslateElementInit() {
 
 ![Supplementary page about Ugly](../../content/images/supplementary-handwritten-letter.png)
 
-- I send the letters over the first few weeks of September.
-- I send Inma's letter last as I am meeting her in Madrid shortly and I was going to hand it to her in person.
+- I send the letters, all registered and guaranteed, during the first couple of weeks of September from the post office in Cauterets.
+- I send Inma's letter last as I am meeting her in Madrid shortly and I was going to hand it to her in person (hence the first page's warning).
 - I don't think I included the supplementary page in Inma's batch for some reason.
 
 ## Gabriel Silva's first team meeting as manager
