@@ -19,6 +19,7 @@ function googleTranslateElementInit() {
 - Often, when I leave the hotel I'm staying at, I see young men dressed in black with pale skin and black hair, (techs), entering my hotel building and going to the elevator I just got out of with a look of intent in their eyes.
 - I'm suspicious of them. 
 - They time it so I see them.
+- I'm also suspicious of the hotel cleaning staff who come once-a-week, they're Spanish. Normally I don't let people come in my room but this year I did for some reason.
 - The walking guides I use talk about how the *Spanish are crazy* in a way that makes me think of the Pelicot men and their total lack of concern towards a targeted woman as if they completely forgot women are also human beings.
 - Do some of the men in Cauterets know who I am?
 - My "friend" [Sandra Rita Diaz](../early-years/2014.md#sandra-rita-diaz), often visits my room for five minutes and uses my bathroom.
@@ -81,7 +82,22 @@ function googleTranslateElementInit() {
 
 ### Sainte Bernadette
 
-- wup wup
+- Before I leave Cauterets, I go to the church to pray for better things to come.
+- I'm sitting in front of the altar with the Mary she used to pray with, the little menora, and a picture of the saint.
+
+![Sainte Bernadette in Cauterets](../../content/images/bernadettes-altar.jpg)
+
+- I can't remember for sure but I was doing back-to-back novenas in those days so it may have been the end of a series.
+- I am high, without realizing it.
+- I have the sensation the trumpet teacher is with me.
+- It's not like in [May when I felt trumpet teacher number four was in my hotel room with me](may.md#madrid) in Madrid.
+- I can see no figure, just a sensation he is with me.
+- We're very close.
+- Someone says: *we'll be meeting here again this time next year*, I think it was me.
+- Suddenly I can feel an overwhelming sense of *no way, not possible*.
+- Incredulity.
+- I'm so surprised at the change in emotion. It came out of nowhere.
+- I kept the faith about that and tweeted about something related that day, I think..
 
 ## Who Is This?
 
