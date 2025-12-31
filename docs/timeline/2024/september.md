@@ -65,7 +65,7 @@ function googleTranslateElementInit() {
 - I repeat my answer, *30 years*, and say nothing more.
 - She asks if she can use my toilet again on the way home so I let her come up again.
 - When we're in my room, I show her one of [the handwritten letters](august.md#the-handwritten-letters).
-- She read a page or two for a while; she's very quiet, thinking.
+- She reads a page or two for a while; she's very quiet, thinking.
 - She doesn't know what to say.
 - Then she says, in her giggly naive-little-girl voice, "are you going to study again at the conservatory when you get back?"
 - I am AMAZED! 
