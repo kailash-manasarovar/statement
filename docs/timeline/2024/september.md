@@ -10,20 +10,20 @@ function googleTranslateElementInit() {
 
 - I spend most of the month in Cauterets.
 - I leave Cauterets around the third week of the month and drive to Madrid where I fly to Dublin for my Transforming Touch course.
-- When I'm in Madrid I see Inma who has already received her letter.
+- When I'm in Madrid, I see Inma who has already received [her letter](august.md#the-handwritten-letters).
 - She tells me she thinks she knows someone who can help me.
 
 ## In Cauterets
 
 - I am highly sexually aroused and I think about the trumpet teacher constantly.
-- When I'm scheduled to be away from my room, I see young "gypsy-looking" men dressed in black with pale skin and black hair, (techs), entering my hotel building and going to the elevator I just got out of with a look of intent in their eyes.
+- Often, when I leave the hotel I'm staying at, I see young men dressed in black with pale skin and black hair, (techs), entering my hotel building and going to the elevator I just got out of with a look of intent in their eyes.
 - I'm suspicious of them. 
 - They time it so I see them.
 - The walking guides I use talk about how the *Spanish are crazy* in a way that makes me think of the Pelicot men and their total lack of concern towards a targeted woman as if they completely forgot women are also human beings.
-- Do the men in Cauterets know who I am?
+- Do some of the men in Cauterets know who I am?
 - My "friend" [Sandra Rita Diaz](../early-years/2014.md#sandra-rita-diaz), often visits my room for five minutes and uses my bathroom.
 - I have always had my suspicions but something's not right with Sandra. 
-- She is constantly talking about the old women she sings with in the choir; in particular one woman, Mireille, who is apparently evil, *everyone says so*, giggle.
+- She is constantly talking about the old women she sings with in the choir at Lourdes; in particular one woman, Mireille, who is apparently evil, *everyone says so*, giggle.
 - Sandra says, repeatedly, that she thinks Mireille is poisoning her.
 - She also says, contradicting herself, that Mireille loves her so much she wants her to live in the flat next door and look after her when she's old.
 - She constantly talks about devil worship at Lourdes.
@@ -78,6 +78,10 @@ function googleTranslateElementInit() {
 
 - I get a bunch of random messages on Signal, Telegram, and WhatsApp.
 - Here's one from a [random Peruvian](../../content/whatsapps/WhatsApp%20Chat%20with%20random%20Peruvian%20+51%20943%20801%20768.zip) who is asking for lodgings for the night.
+
+### Sainte Bernadette
+
+- wup wup
 
 ## Who Is This?
 
