@@ -98,7 +98,7 @@ function googleTranslateElementInit() {
 - Suddenly I can feel an overwhelming sense of *no way, not possible*.
 - Incredulity.
 - I'm so surprised at the change in emotion. It came out of nowhere.
-- I kept the faith that we would be meeting, and tweeted about something related that day, I think..
+- I kept the faith that we would be meeting, I may have posted a profile message that I no longer have...
 
 ## Who Is This?
 
