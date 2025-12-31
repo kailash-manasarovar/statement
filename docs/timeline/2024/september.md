@@ -56,29 +56,32 @@ function googleTranslateElementInit() {
 - We drink wine.
 - Sandra is talking about men again and giggling as if she's embarrassed and naive.
 - It seems like an act.
-- I can't remember the exact words of our conversation, but I said something that implied I didn't trust Sandra.
+- I can't remember the exact words of our conversation, but I said something that implied I knew a lot more about what was going on that she thought I did.
 - She picked up on it immediately.
 - She wanted to know what I meant.
 - She was insistent.
-- I told her I'd tell her in 20 years.
-- She asks again and again.
-- I repeat my answer and say nothing more.
-- She asks to use my toilet again on the way home.
-- When we're in my room, I show her one of the letters.
-- She reads a bit and then she says, in her giggly naive voice, "are you starting studies again at the conservatory when you get back?"
+- I told her I'd tell her in 30 years.
+- She asks again and again, *what did you mean?*
+- I repeat my answer, 30 years, and say nothing more.
+- She asks if she can use my toilet again on the way home so I let her come up again.
+- When we're in my room, I show her one of [the handwritten letters](august.md#the-handwritten-letters).
+- She reads for a while; she's very quiet, thinking.
+- She doesn't know what to say.
+- Then she says, in her giggly naive-little-girl voice, "are you going to study again at the conservatory when you get back?"
 - I am AMAZED! 
 - I shout, "Are you insane?"
 - She keeps her head down and doesn't say anything.
 - After about a minute, she says softly, no I am not insane.
 - The next day she is upset with me, different, anxious.
+- Has she finally realized, after a decade of interactions, that I'm not as stupid as she's been told I am?
 
-### The hairdresser
+#### The hairdresser
 
 - I'm having my haircut in Cauterets.
-- I ask if Sandra wouldn't mind explaining to the hairdresser what I need to have done because my French is so appalling.
+- I ask Sandra if she wouldn't mind explaining to the hairdresser what I need to have done because my French is so appalling.
 - She does, but I see Sandra telling the woman something else too, in low tones.
-- I wonder what it was.
-- Whatever it was [rears its ugly head](../2025/august.md#haircut) in August 2025.
+- I know it's poison.
+- Whatever she did says [rears its ugly head](../2025/august.md#haircut) in August 2025.
 
 ### Random messages
 
