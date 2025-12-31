@@ -33,17 +33,22 @@ function googleTranslateElementInit() {
 - I tell her about the trumpet teacher, how I'm still hopelessly in love with him, that he's the love of my life, that I don't care if he did gay porn, he must have been groomed and coerced if not outright blackmailed, and how I'm still being terrorized by Domingo's family and others in Dénia.
 - I tell her about [Irene](august.md#irene-the-plate-lady) and [the handwritten letters](august.md#the-handwritten-letters).
 
-### Letters
+### Letters and a thank you
 
-- I send as many letters as I can while I'm in France to as many people as possible.
-- The reason I do this is because this is the only way I can communicate with anyone without the hackers and the whole criminal gang being aware of it.
-- I add photos that he has sent to me too, even thought I'm not sure if they are legit or not.
-- Certainly the screenshot of the concert I see in [June 2023 on Youtube](../2023/june.md#another-young-girls-funeral) is legit and I send a copy of that in the pack.
-- At some point back in Dénia, I see a giant message come up on my screen "thank you", and then it's gone.
+- While I'm in Cauterets, I post as many of the [handwritten letters](august.md#the-handwritten-letters) as I can.
+- I believe it is the only way I can communicate with law enforcement without my persecutors being aware of it.
+- A few days after I get back to Dénia in October, I see a giant message come up on my screen saying "thank you".
+- And then it's gone.
+- It's not like the porn-gang tech activity, my whole screen is taken over for a few seconds.
+- It gives me hope.
+- I tell Inma about it.
 
 #### Rocio Vidal
 
-- I see [Rocio Vidal](../2023/october.md#rocio-vidal) in the cafe with a bunch of Spanish men. They ensure she stands up so I see her as I pass.
+- One afternoon, while I'm going back and forth from my hotel room to the library to photocopy the letters and photos, I think I see [Rocio Vidal](august.md#6).
+- A group of young Spanish men is chattering away in the cafe as I pass.
+- A woman stands up in the middle of them and faces me.
+- I think it was Rocio Vidal.
 
 ### The Royalty
 
