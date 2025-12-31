@@ -148,6 +148,7 @@ This picture has the bananas and reminds me of the nude the woman sends while ea
 ## Lourdes with dad
 
 - My dad was aware of everything that was going on, I had explained everything to him in September 2024 in Lourdes and he appeared to understand the nature of my situation and how much danger I was in.
+- He is the first person in the world I told [I was poisoned by Hazel Smith](../early-years/2007.md#hazel-smith) in 2007.
 - As I told him my story, he kept saying: *heavy*, *heavy*,; I thought it was just him taking the piss, as he usually does. He then told me to be careful as I could be beaten by a man and made to be a prostitute.
 - Did he pretend to understand the nature of what was going on, and be supportive to me, and then tell my mother and brother I was not to be believed?
 - One evening we took a walk through the sanctuary. As we passed the baths, at the men's side, one of the doors was completely open and you could see all the way into a bathing chamber.
