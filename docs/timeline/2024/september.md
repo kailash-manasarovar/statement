@@ -50,10 +50,10 @@ function googleTranslateElementInit() {
 - A woman stands up in the middle of them and faces me.
 - I think it was Rocio Vidal.
 
-### Sandra Diaz and me at the Royalty
+### Sandra Diaz at the Royalty
 
-- We go for dinner one Sunday evening at the Royalty restaurant.
-- We drink wine.
+- Sandra Diaz and I go for dinner one Sunday evening at the Royalty restaurant in Cauterets.
+- We drink some wine.
 - Sandra is talking about men again and giggling as if she's embarrassed and naive.
 - It seems like an act.
 - I can't remember the exact words of our conversation, but I said something that implied I knew a lot more about what was going on that she thought I did.
@@ -62,16 +62,16 @@ function googleTranslateElementInit() {
 - She was insistent.
 - I told her I'd tell her in 30 years.
 - She asks again and again, *what did you mean?*
-- I repeat my answer, 30 years, and say nothing more.
+- I repeat my answer, *30 years*, and say nothing more.
 - She asks if she can use my toilet again on the way home so I let her come up again.
 - When we're in my room, I show her one of [the handwritten letters](august.md#the-handwritten-letters).
-- She reads for a while; she's very quiet, thinking.
+- She read a page or two for a while; she's very quiet, thinking.
 - She doesn't know what to say.
 - Then she says, in her giggly naive-little-girl voice, "are you going to study again at the conservatory when you get back?"
 - I am AMAZED! 
 - I shout, "Are you insane?"
 - She keeps her head down and doesn't say anything.
-- After about a minute, she says softly, no I am not insane.
+- After about a minute, she says softly, "no I am not insane".
 - The next day she is upset with me, different, anxious.
 - Has she finally realized, after a decade of interactions, that I'm not as stupid as she's been told I am?
 
