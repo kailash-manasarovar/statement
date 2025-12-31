@@ -33,10 +33,6 @@ function googleTranslateElementInit() {
 - I tell her about the trumpet teacher, how I'm still hopelessly in love with him, that he's the love of my life, that I don't care if he did gay porn, he must have been groomed and coerced if not outright blackmailed, and how I'm still being terrorized by Domingo's family and others in Dénia.
 - I tell her about [Irene](august.md#irene-the-plate-lady) and [the handwritten letters](august.md#the-handwritten-letters).
 
-### Rocio Vidal
-
-- I see [Rocio Vidal](../2023/october.md#rocio-vidal) in the cafe with a bunch of Spanish men. They ensure she stands up so I see her as I pass.
-
 ### Letters
 
 - I send as many letters as I can while I'm in France to as many people as possible.
@@ -44,6 +40,10 @@ function googleTranslateElementInit() {
 - I add photos that he has sent to me too, even thought I'm not sure if they are legit or not.
 - Certainly the screenshot of the concert I see in [June 2023 on Youtube](../2023/june.md#another-young-girls-funeral) is legit and I send a copy of that in the pack.
 - At some point back in Dénia, I see a giant message come up on my screen "thank you", and then it's gone.
+
+#### Rocio Vidal
+
+- I see [Rocio Vidal](../2023/october.md#rocio-vidal) in the cafe with a bunch of Spanish men. They ensure she stands up so I see her as I pass.
 
 ### The Royalty
 
@@ -83,7 +83,7 @@ function googleTranslateElementInit() {
 ### Sainte Bernadette
 
 - Before I leave Cauterets, I go to the church to pray for better things to come.
-- I'm sitting in front of the altar with the Mary she used to pray with, the little menora, and a picture of the saint.
+- I'm sitting in front of the altar with the little statue of Mary she used to pray with, the little menora, and a picture of the saint.
 
 ![Sainte Bernadette in Cauterets](../../content/images/bernadettes-altar.jpg)
 
