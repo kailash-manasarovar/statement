@@ -82,8 +82,9 @@ function googleTranslateElementInit() {
 
 ### Sainte Bernadette
 
-- Before I leave Cauterets, I go to the church to pray for better things to come.
-- I'm sitting in front of the altar with the little statue of Mary she used to pray with, the little menora, and a picture of the saint.
+- Before I leave Cauterets, I go to the church where Saint Bernadette used to pray when she came to Cauterets to take the healing waters.
+- I pray for better days to come.
+- I'm sitting in front of the altar with the statue of Mary she used to pray with, the little menora, and a picture of the saint.
 
 ![Sainte Bernadette in Cauterets](../../content/images/bernadettes-altar.jpg)
 
@@ -97,7 +98,7 @@ function googleTranslateElementInit() {
 - Suddenly I can feel an overwhelming sense of *no way, not possible*.
 - Incredulity.
 - I'm so surprised at the change in emotion. It came out of nowhere.
-- I kept the faith about that and tweeted about something related that day, I think..
+- I kept the faith that we would be meeting, and tweeted about something related that day, I think..
 
 ## Who Is This?
 
