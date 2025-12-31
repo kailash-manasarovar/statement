@@ -50,7 +50,7 @@ function googleTranslateElementInit() {
 - A woman stands up in the middle of them and faces me.
 - I think it was Rocio Vidal.
 
-### The Royalty
+### Sandra Diaz and me at the Royalty
 
 - We go for dinner one Sunday evening at the Royalty restaurant.
 - We drink wine.
