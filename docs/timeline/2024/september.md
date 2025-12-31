@@ -77,11 +77,11 @@ function googleTranslateElementInit() {
 
 #### The hairdresser
 
-- I'm having my haircut in Cauterets.
+- A few days later, I'm having my haircut in Cauterets.
 - I ask Sandra if she wouldn't mind explaining to the hairdresser what I need to have done because my French is so appalling.
-- She does, but I see Sandra telling the woman something else too, in low tones.
+- She does so, but I see Sandra telling the woman something else too, in low tones.
 - I know it's poison.
-- Whatever she did says [rears its ugly head](../2025/august.md#haircut) in August 2025.
+- Whatever she says [rears its ugly head](../2025/august.md#haircut) in August 2025, not unexpectedly.
 
 ### Random messages
 
