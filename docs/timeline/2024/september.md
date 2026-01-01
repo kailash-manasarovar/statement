@@ -92,7 +92,7 @@ function googleTranslateElementInit() {
 
 - Before I leave Cauterets, I go to the church where Saint Bernadette used to pray when she came to Cauterets to take the healing waters.
 - I pray for better days to come.
-- I'm sitting in front of the altar with the statue of Mary she used to pray with, the little menora, and a picture of the saint.
+- I'm sitting in front of the altar with the statue of Mary she used to pray with, the little menorah, and a picture of the saint.
 
 ![Sainte Bernadette in Cauterets](../../content/images/bernadettes-altar.jpg)
 

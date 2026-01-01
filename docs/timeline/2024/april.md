@@ -769,9 +769,12 @@ function googleTranslateElementInit() {
 
 ![Lizarran](../../content/images/lizarran.jpg)
 
-- The man has the same build as [trumpet teacher number two](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013) and Lorraine's ex-husband.
+- The man has the same build as [trumpet teacher number one or two](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013).
 - He's wearing the same dirty brown leather jacket he wore to class, and his back is to me.
-- Beside him is a tiny young-looking blond woman (Carmen Cano maybe?).
+- Beside him is a young girl with blond hair.
+- It's set up so that I see her clearly (although I remember nothing specific about how she looked) but not him.
+- Is it his daughter?
+- If it is, the world just wobbled on its axis a little.
 - He looks exactly like he did at the [choir concert set up in December 2022](../2022/december.md#choir-concert) and other occasions. 
 - I immediately see the trap and decide to ignore them completely.
 - I walk past them.
