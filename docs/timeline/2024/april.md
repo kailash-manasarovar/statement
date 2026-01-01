@@ -769,7 +769,7 @@ function googleTranslateElementInit() {
 
 ![Lizarran](../../content/images/lizarran.jpg)
 
-- The man has the same build as [trumpet teacher number one or two](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013); the height (which would pinpoint either or) is unclear because he's sitting down.
+- The man has the same build as [trumpet teacher number one](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) or [two](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013); the height (which would pinpoint either/or) is unclear because he's sitting down.
 - He's wearing the same dirty brown leather jacket he wore to class, and his back is to me.
 - Beside him is a young girl with blond hair.
 - It's set up so that I see her clearly (although I remember nothing specific about how she looked) but not him.
