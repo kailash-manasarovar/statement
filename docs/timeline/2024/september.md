@@ -116,7 +116,7 @@ function googleTranslateElementInit() {
 ## Who Is This?
 
 - I start a Twitter hashtag [#WhoIsThisSeries](https://x.com/hashtag/WhoIsThisSeries?src=hashtag_click&f=live) and post some of the pics I've been seeing of [women who look like they've been targeted by the porn gangs](august.md#suspected-targets).
-- A few weeks later, Trish sends an email round with the subject "Who Is This".
+- A few weeks later, Trish sends an email round with the subject "who is this?".
 - I consider this more confirmation that Patricia knows exactly what is going on, but I also realize she's likely been told to do this by someone controlling her.
 
 ![who is this](../../content/images/who%20is%20this.png)
