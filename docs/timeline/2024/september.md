@@ -123,8 +123,8 @@ function googleTranslateElementInit() {
 
 - Her suggestion is, of course, Cindy has been targeted.
 - This would be unsurprising knowing some of Cindy's medical background and given she is a single woman living alone.
-- Cindy was prescribed heart medicine (digitalis I believe) for a sudden-onset heart-condition; she never had any sign of it before. 
-- It began when she woke up on three different occasions in the middle of the night - weeks or months apart, you can ask her - with a panic attack which she thought was a heart attack.
+- Cindy was prescribed heart medicine (digitalis I believe) for a sudden-onset inexplicable heart condition.
+- It began when she woke up on three or more different occasions in the middle of the night - weeks or months apart, you can ask her - with a panic attack which she thought was a heart attack.
 - She had the ambulance out every time, and the first few times the doctors told her nothing was wrong with her.
 - But she was insistent, something was wrong.
 - So they found something, and medicated her.
