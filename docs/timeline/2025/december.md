@@ -25,6 +25,9 @@
 ![Towel man](../../content/images/man-with-a-towel.png)
 
 - Is this where we get [the towel meme](../2024/march/13-end.md#an-account-i-believe-is-run-by-domingo-cano-the-piano-teacher) they've been using since 13th March 2024?
+
+![Towel](../../content/tweets/towel.png)
+
 - He holds it taut at both ends, stretching and twisting it.
 - He slaps the bed with it.
 - Just like the [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) lookalike did with his napkin at dinner one night at the [Polygon conference in Bali](../2024/may.md#the-pakistani-yorkshire-man).
