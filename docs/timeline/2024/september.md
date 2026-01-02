@@ -85,8 +85,13 @@ function googleTranslateElementInit() {
 
 ### Random messages
 
-- I get a bunch of random messages on Signal, Telegram, and WhatsApp.
+- As usual, I receive random messages on Signal, Telegram, and WhatsApp; some threatening.
 - Here's one from a [random Peruvian](../../content/whatsapps/WhatsApp%20Chat%20with%20random%20Peruvian%20+51%20943%20801%20768.zip) who is asking for lodgings for the night.
+
+![Random Peruvian](../../content/images/random-peruvian.png)
+
+- I have to wonder if they were coming into my apartment in Cauterets.
+- Did they bring Rocio Vidal in with them?
 
 ### Sainte Bernadette
 
