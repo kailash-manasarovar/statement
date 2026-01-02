@@ -115,23 +115,23 @@ function googleTranslateElementInit() {
 
 ## Who Is This?
 
-- I start a Twitter hashtag [#WhoIsThisSeries](https://x.com/hashtag/WhoIsThisSeries?src=hashtag_click&f=live) and post some of the pics I've been seeing of women who look like they're being abused.
-- Patricia sends an email around with the subject "Who Is This".
-- I consider this more confirmation that Patricia knows exactly what is going on.
+- I start a Twitter hashtag [#WhoIsThisSeries](https://x.com/hashtag/WhoIsThisSeries?src=hashtag_click&f=live) and post some of the pics I've been seeing of [women who look like they've been targeted by the porn gangs](august.md#suspected-targets).
+- A few weeks later, Trish sends an email round with the subject "Who Is This".
+- I consider this more confirmation that Patricia knows exactly what is going on, but I also realize she's likely been told to do this by someone controlling her.
 
 ![who is this](../../content/images/who%20is%20this.png)
 
-- Her suggestion is, of course, Cindy has been targeted too.
+- Her suggestion is, of course, Cindy has been targeted.
 - This would be unsurprising knowing some of Cindy's medical background and given she is a single woman living alone.
-- Cindy was prescribed heart medicine (digitalis I believe) for a sudden onset heart condition; she never had any sign of it before. 
-- The condition began when she woke up on three different occasions in the middle of the night with a panic attack which she thought was a heart attack.
+- Cindy was prescribed heart medicine (digitalis I believe) for a sudden-onset heart-condition; she never had any sign of it before. 
+- It began when she woke up on three different occasions in the middle of the night - weeks or months apart, you can ask her - with a panic attack which she thought was a heart attack.
 - She had the ambulance out every time, and the first few times the doctors told her nothing was wrong with her.
 - But she was insistent, something was wrong.
 - So they found something, and medicated her.
 
 - The [email sparks off some conversations between us](../../content/documents/emails/who-is-this.pdf) and I get a chance to express my anger at Chris BJ who was supposed to be my friend.
 - She only lies about the "porn" reference which I 100% remember her saying.
-- A few fake accounts on X give opinions on my email after I've sent it. 
+- A few fake accounts on X give their salient and unwanted opinions on my email after I've sent it. 
 - One said they liked what I said at the end, that *we're all in porn*, which is probably true.
 
 ## Another upsetting targeted woman
