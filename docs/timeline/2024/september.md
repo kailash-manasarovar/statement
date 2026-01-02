@@ -129,9 +129,8 @@ function googleTranslateElementInit() {
 - But she was insistent, something was wrong.
 - So they found something, and medicated her.
 
-- The [email sparks off some conversations between us](../../content/documents/emails/who-is-this.pdf) and I get a chance to express my anger at Chris BJ who was supposed to be my friend.
-- She only lies about the "porn" reference which I 100% remember her saying.
-- A few fake accounts on X give their salient and unwanted opinions on my email after I've sent it. 
+- The [email sparks off some conversations between us](../../content/documents/emails/who-is-this.pdf) and I get a chance to express my anger at Chris BJ who was supposed to be my friend. (She lies about the "porn" reference which I 100% remember.)
+- Fake accounts on X give their salient and unwanted opinions on my email after I've sent it. 
 - One said they liked what I said at the end, that *we're all in porn*, which is probably true.
 
 ## Another upsetting targeted woman
