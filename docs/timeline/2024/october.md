@@ -132,6 +132,15 @@ function googleTranslateElementInit() {
 
 - There's no reply.
 
+## A little black plastic box
+
+- Somewhere in the house on the floor I see a little, black plastic item.
+- I can't figure out what it is. 
+- It looks a bit like lego, or a part from some bigger plastic item or machinery.
+- I'm wondering now if it was a part off some farming machinery that came in with them when they got the OK to murder me and doused all my belongings in pesticides over those few days while the router was down.
+- Or, I also thought that their sedating mechanisms might come in little remote control plastic boxes like these which you could bring in when your target was out, and leave somewhere they won't look, and then trigger from the next apartment when she's gone to bed.
+- But that might be a bit risky.
+
 ## Threats and a woman at the laundry
 
 - Whenever I go to the laundry, there is some stalker activity or another.
