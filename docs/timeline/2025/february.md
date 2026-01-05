@@ -1,10 +1,10 @@
 ## Car detailing in Madrid 
 
 - I am getting continuous warnings on X not to drive the car.
-- They started while I was in Thailand in December 2024 getting ready to return to Europe.
+- They started while I was in Thailand in December 2024 while I was getting ready to return to Europe.
 - When I pick up the car from the carpark at Madrid airport, I immediately have that feeling of toxicity in the air and things I'm touching.
-- My mouth and throat was dry the whole night after first picking it up in early January.
-- I suspect criminals accessed the car while it was in the carpark in Madrid airport and sprayed pesticides all over the upholstery and plastics, just as [they have done in my apartment](../2024/october.md#the-router-malfunctions-while-im-in-fatima).
+- My mouth and throat is dry and scratchy the whole night.
+- I suspect criminals accessed the car while it was in the carpark in Madrid airport and sprayed pesticides all over the upholstery and plastics, just as [they did in my apartment](../2024/october.md#the-router-malfunctions-while-im-in-fatima).
 - I wonder if they're able to add continuous doses of toxins through the air vents too.
 - [I picked Paul up at the same time](january.md#paul) and I ask him what to do about this as he works on cars.
 - I already asked him to bring industrial masks and gloves from London.
@@ -16,7 +16,7 @@
 
 - There's a hotel just a step away also.
 - I book the car in for detailing and book a few days at the hotel while they do it.
-- Obviously, my searches are controlled by criminal gangs and I'm aware of this but I have no choice.
+- Obviously, my online search results are controlled by criminal gangs, and I'm aware of this, but I have no choice.
 - When I pick up the car from the detailers and start driving, it feels like the whole dashboard section has been moved closer inwards.
 - I'm not able to put the same things back in the glove compartment that were there previously without issue; they don't fit!
 - My feet are misfiring as they step on the clutch because it's in a different place; it's too close and it's not the position of the car seat
