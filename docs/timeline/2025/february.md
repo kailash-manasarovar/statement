@@ -11,6 +11,9 @@
 - He says to find a detailer and get it cleaned.
 - I search for a car detailer online.
 - I find [a detailer near the El Pais offices in San Blas](https://garagedetail.es/) in Madrid.
+
+![Detailers](../../content/images/detailers.png)
+
 - There's a hotel just a step away also.
 - I book the car in for detailing and book a few days at the hotel while they do it.
 - Obviously, my searches are controlled by criminal gangs and I'm aware of this but I have no choice.
