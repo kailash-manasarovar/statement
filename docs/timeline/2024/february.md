@@ -790,7 +790,7 @@ function googleTranslateElementInit() {
 - I actually talk to someone about this: Andy Clarke <andy.clarke@fact-uk.org.uk>.
 - He said he was unable to help me and gave me no advice about what to do next.
 
-## The British girl at the conservatory
+## The British/Russian girl at the conservatory
 
 - I go to my piano lesson one Tuesday evening.
 - I am waiting for class to start and sitting on the bench outside the classroom.
@@ -804,11 +804,12 @@ function googleTranslateElementInit() {
 - I know who she is.
 - She is the half-British/half-Ukrainian-or-Russian girl that I have seen singing in concerts.
 - She's beautiful, really lovely.
+- Paqui Fornet is her piano teacher; her class is often after mine.
 - I know she is British because of her very British accent whenever she speaks English, but her name is something Russian so I assume she has mixed-parents.
 - She has a Russian or Ukrainian friend of about the same age who is always with her and looks a little surly.
 - They do piano duets together at the concerts.
 - In the rehearsal for the end of term concerts, they are both there in room 11, with a few others and me.
-- They perform God Save The Queen as a duet.
+- They perform *God Save The Queen* as a duet.
 - The girl with a British accent then sings a solo accompanied by her teacher.
 - She is so sweet, and with such a clear voice, I'm delighted and it must show on my face.
 - Joan Carles glares at me angrily.
@@ -816,8 +817,11 @@ function googleTranslateElementInit() {
 - I realized this child must be a major target for the gangs shortly afterwards, and when I eventually realized I had been drugged continuously, even in classes at the conservatory, I realized that she too was high when she had walked down the stairs that evening, just as I realized the same about [the two girls Domingo had with him for me to see](../2022/june.md#maria-and-domingo) in June 2022.
 - They must have set this whole thing up for me to see.
 - The arrogance is staggering.
+- The psycho-pedo-sexual pathology is staggering.
 - I warned the British embassy about this girl, along with all the other children in what I believe to be imminent danger.
-- They did not want to know. The reason I say this is because I was blocked from talking to them - they literally put the phone down on me one time - and my numerous emails and DMs were always ignored.
+- They did not want to know.
+- The reason I say this is because I was blocked from talking to them - they literally put the phone down on me in February 2025 - and my numerous emails and DMs were always ignored.
+- Is she safe and well now? Or brain damaged and traumatized; like me and so many others?
 
 ## X.com
 
