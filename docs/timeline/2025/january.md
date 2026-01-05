@@ -148,12 +148,16 @@
 ## Madrid policia 
 
 - TBC
-
-## Major warning to not drive the car
-
-- I'm getting continuous warnings not to drive the car.
-- I picked my friend up from Barajas Airport and drove it to the hotel. My mouth has been dry all night.
-- It felt like there was something toxic in the air in the car. It was just 5 minutes.
+- With Inma.
+- I've sent Paul home so it's only Inma and I who attend the police in early January to report poisoning and bring samples.
+- They're totally disinterested.
+- They tell me I have to get a private laboratory to confirm poisoning before they'll investigate.
+- I give them my 200 page report (an earlier draft of this statement)... the boss sort of throws it on the table and says to the officer who was detailing with me, "send it to Denia".
+- But not before he flicks through and points to some of the women - photos I have printed in high res - including Elsa and the innocent women, saying "who's that".
+- I tell him that Elsa is a student at the conservatory and I don't know who the innocent woman is.
+- He says nothing.
+- They want nothing to do with me.
+- I suspect the report goes in the bin.
 
 ## Seonaid Dawn and Granny Smith
 

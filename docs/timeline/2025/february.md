@@ -1,6 +1,25 @@
 ## Car detailing in Madrid 
 
-- TBC
+- I am getting continuous warnings on X not to drive the car.
+- They started while I was in Thailand in December 2024 getting ready to return to Europe.
+- When I pick up the car from the carpark at Madrid airport, I immediately have that feeling of toxicity in the air and things I'm touching.
+- My mouth and throat was dry the whole night after first picking it up in early January.
+- I suspect criminals accessed the car while it was in the carpark in Madrid airport and sprayed pesticides all over the upholstery and plastics, just as [they have done in my apartment](../2024/october.md#the-router-malfunctions-while-im-in-fatima).
+- I wonder if they're able to add continuous doses of toxins through the air vents too.
+- [I picked Paul up at the same time](january.md#paul) and I ask him what to do about this as he works on cars.
+- I already asked him to bring industrial masks and gloves from London.
+- He says to find a detailer and get it cleaned.
+- I search for a car detailer online.
+- I find [a detailer near the El Pais offices in San Blas](https://garagedetail.es/) in Madrid.
+- There's a hotel just a step away also.
+- I book the car in for detailing and book a few days at the hotel while they do it.
+- Obviously, my searches are controlled by criminal gangs and I'm aware of this but I have no choice.
+- When I pick up the car from the detailers and start driving, it feels like the whole dashboard section has been moved closer inwards.
+- I'm not able to put the same things back in the glove compartment that were there previously without issue; they don't fit!
+- My feet are misfiring as they step on the clutch because it's in a different place; it's too close and it's not the position of the car seat
+- I wonder about this with Paul, and suggest the gangs might have got the detailers to put something in the car, or create a space in the car between the engine and the dashboard.
+- I suspect a poisoning system or drugs.
+- Paul, curiously, spends a great detail of energy in talking me down from my fears about this, and indeed everything criminal I have suspicions about with regards to the car and my apartment.
 
 ## El Pais
 
@@ -30,16 +49,6 @@
 - He keeps telling me about his urinary symptom of "diabetes" that matches exactly my urinary symptom from poisoning.
 - I believe he is keeping an eye on me for the Adams family and will be paid for his services in cocaine.
 - I believe the medication he takes every day is either cocaine or something similar to keep him going.
-
-### Picking up the car
-
-- I have the car detailed in Madrid close to where I'm staying.
-- I'm hoping this will remove any toxins the gangs managed to put in my car.
-- I use this company: https://garagedetail.es/, close to the El Pais offices.
-- When I pick up the car and start driving, it feels like the whole dash has been moved closer inwards.
-- I'm not able to put the same things back in the glove compartment that were there previously without issue; they don't fit.
-- My feet are misfiring as they step on the clutch because it's in a different place.
-- I wonder about this with Paul, and suggest the gangs might have got the detailers to put something in the car.
 
 ### Child gang-rape porn
 
