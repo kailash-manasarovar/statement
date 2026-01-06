@@ -135,28 +135,50 @@ function googleTranslateElementInit() {
 
 ## Another upsetting targeted woman
 
-- I start to see another woman, over and over, every day.
-- It's the same pattern [as before](august.md#grooming-an-innocent-girl-into-porn-101). 
-- The woman appears to be innocently on a date, then she is sending nudes. 
-- There are a whole bunch of "nearly nudes" where she is in see-through lingerie and taking selfies of herself probably in her sitting room: https://x.com/StantonHan27273/status/1837180521790546020/photo/1.
-- Finally, I saw a whole series of pics where she is in the passenger seat of a car. You can see people (men) close by to her that are not the person with the camera. 
-- I saw a small man crouching down near the driver's seat.
-- I wonder if it started as a regular date.
-- She is being photographed with clothes, then less clothes, then naked, and she looks like she's likely sedated and can't do anything about her situation.
-- The inference is that something very dreadful and violent happens to her in the back of the car with a bunch of men around her.
+- I start to see another woman on fake X accounts; over and over, every day.
+- It's the same pattern [as the innocent woman I saw previously](august.md#grooming-an-innocent-girl-into-porn-101); a chronology of what seems to start off as a normal relationship which is then steadily groomed into something evil. 
+- In the beginning, the woman appears to be innocently on dates with someone who takes photos of her.
 
-| Car woman |
-|-|
-| ![pic]( ../../content/images/targeted-women/car-woman/1.png ) |
-| ![pic]( ../../content/images/targeted-women/car-woman/1.5.png ) |
-| ![pic]( ../../content/images/targeted-women/car-woman/2.png ) |
-| ![pic]( ../../content/images/targeted-women/car-woman/2.2%20-%20ballet%20pose.png ) She looks like she is doing a ballet pose and I wonder if she was a dancer in the Generalitat's conservatory systems. |
-| ![pic]( ../../content/images/targeted-women/car-woman/2.5.png ) |
-| ![pic]( ../../content/images/targeted-women/car-woman/2.9.png ) |
-| ![pic]( ../../content/images/targeted-women/car-woman/3.png ) |
-| ![pic]( ../../content/images/targeted-women/car-woman/4.png ) |
-| ![pic]( ../../content/images/targeted-women/car-woman/7.png ) 
-This picture has the bananas and reminds me of the nude the woman sends while eating a banana. This fake account was sent to me at the beginning of October and references "home made poison". |
+![pic]( ../../content/images/targeted-women/car-woman/1.png )
+
+- She also takes selfies.
+
+![pic]( ../../content/images/targeted-women/car-woman/2.png )
+
+- I then see her sending nudes. 
+- There are a whole bunch of "nearly nudes" where she is in see-through lingerie and taking selfies of herself in what looks like a sitting room while she's eating a banana.
+- I cut off those pictures but you can see the ceiling of the room, and I snipped a close up of her eating the banana.
+
+![pic]( ../../content/images/targeted-women/car-woman/1.5.png )
+![pic]( ../../content/images/targeted-women/car-woman/2.5.png ) 
+![pic]( ../../content/images/targeted-women/car-woman/2.9.png ) 
+![pic]( ../../content/images/targeted-women/car-woman/3.png )
+
+- In the profile pic below, she looks like she is doing a ballet pose, and I do wonder if she was a dancer in the Generalitat's conservatory systems. 
+
+![pic]( ../../content/images/targeted-women/car-woman/2.2%20-%20ballet%20pose.png ) 
+
+- Finally, I saw a whole series of pics where she is in the passenger seat of a car.
+- She looks sedated.
+- I saw people (men) close by to her that are not the person with the camera; a small chubby hispanic looking man crouching down in the drivers footwell.
+
+![pic]( ../../content/images/targeted-women/car-woman/4.png )
+
+- I cannot believe she is conscious of what's happening to her with all these men around.
+- First, she is in her clothes, next she is in her underwear (the picture above).
+- Then she has no clothes on at all and someone has placed car seat belts over her breasts.
+- Then we see her is in the back of the same car.
+- Fake accounts suggest that something very dreadful and violent happens to her in the back of the car with a bunch of men around her.
+
+### A TT participant in Dublin  mentions the woman
+
+- A woman who attended two cycles of Transforming Touch; one in Galway and another in Dublin seemed to be running distraction and disruption and it only recently occurred to me she may have been asked to do so.
+- Given it took nearly three years for me to see the difference in four different men's faces, you might expect criminal gangs making millions on switcheroo porn to be doing their very best to make sure I didn't remember, and running interference on Steve's courses seems like a good place to start.
+- This woman had spoken to me about the rave scene in breaks and seemed to know very personal information about me that only people who had been watching my every move online for twenty-odd years would know.
+- I thought nothing much of it at the time. 
+- I was still perma-high and incessantly cyber-stalked those days so it was difficult to gather my thoughts about anything clearly.
+- On the September 2024 session in Dublin, she says something apparently random and meaningless, that suggests, to me, she is talking about this woman in the car; something like *in the back of the car they beat and violated her*, or similar.
+- I filed it away.
 
 ## Lourdes with dad
 
