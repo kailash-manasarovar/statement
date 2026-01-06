@@ -154,30 +154,30 @@ function googleTranslateElementInit() {
 ![pic]( ../../content/images/targeted-women/car-woman/2.9.png ) 
 ![pic]( ../../content/images/targeted-women/car-woman/3.png )
 
-- In the profile pic below, she looks like she is doing a ballet pose, and I do wonder if she was a dancer in the Generalitat's conservatory systems. 
+- In the profile pic below, she looks like she is doing a ballet pose, and I have to wonder if she was a dancer in the Generalitat's conservatory systems. 
 
 ![pic]( ../../content/images/targeted-women/car-woman/2.2%20-%20ballet%20pose.png ) 
 
 - Finally, I saw a whole series of pics where she is in the passenger seat of a car.
 - She looks sedated.
-- I saw people (men) close by to her that are not the person with the camera; a small chubby hispanic looking man crouching down in the drivers footwell.
+- I saw people (men) close by to her that are not the person with the camera; a small chubby hispanic looking man crouching down in the drivers footwell, for example.
 
 ![pic]( ../../content/images/targeted-women/car-woman/4.png )
 
 - I cannot believe she is conscious of what's happening to her with all these men around.
 - First, she is in her clothes, next she is in her underwear (the picture above).
 - Then she has no clothes on at all and someone has placed car seat belts over her breasts.
-- Then we see her is in the back of the same car.
+- Then we see her in the back of the same car.
 - Fake accounts suggest that something very dreadful and violent happens to her in the back of the car with a bunch of men around her.
 
-### A TT participant in Dublin  mentions the woman
+### A TT participant in Dublin mentions the woman
 
-- A woman who attended two cycles of Transforming Touch; one in Galway and another in Dublin seemed to be running distraction and disruption and it only recently occurred to me she may have been asked to do so.
-- Given it took nearly three years for me to see the difference in four different men's faces, you might expect criminal gangs making millions on switcheroo porn to be doing their very best to make sure I didn't remember, and running interference on Steve's courses seems like a good place to start.
-- This woman had spoken to me about the rave scene in breaks and seemed to know very personal information about me that only people who had been watching my every move online for twenty-odd years would know.
+- A woman who attended two successive cycles of Transforming Touch - one in Galway and another in Dublin - seemed to be running distractions and class disruptions and it only recently occurred to me she may have been asked to do so.
+- Given it took nearly three years for me to see four different men were *not* the same man, you might expect criminal gangs making millions on [switcheroo porn filmed in a Spanish school with Spanish school children starring](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) to be doing their very best to make sure I didn't get clear about this in my mind, and running interference on Steve's healing courses seems like a good place to start.
+- This woman spoke to me repeatedly about the 1989 rave scene in breaks, about telepathic masturbation, and she also seemed to know very personal information about me that only people who had been watching my every move online for twenty-odd years would know.
 - I thought nothing much of it at the time. 
-- I was still perma-high and incessantly cyber-stalked those days so it was difficult to gather my thoughts about anything clearly.
-- On the September 2024 session in Dublin, she says something apparently random and meaningless, that suggests, to me, she is talking about this woman in the car; something like *in the back of the car they beat and violated her*, or similar.
+- I was still perma-high and incessantly cyber-stalked those days so it was difficult to gather my thoughts about anything in a normal way.
+- On the September 2024 session in Dublin, she says something apparently random and meaningless to the whole class, that suggests, to me, she is talking about this woman in the car; something like *in the back of the car they beat and violated her*, or similar.
 - I filed it away.
 
 ## Lourdes with dad
@@ -191,11 +191,6 @@ function googleTranslateElementInit() {
 - I took it to mean Mary was extending my father an invitation to bathe, to cleanse, to redeem himself.
 - He did not accept the invitation.
 - I made sure to remind him the invitation is always open; doing the right thing is always an option.
-
-## TEB in Dublin
-
-- The reason I see Inma in Madrid is because I'm traveling to Dublin for TEB so I drive to Madrid and fly from there.
-- One of the participants alludes to this woman.
 
 ## The conversation continues
 
