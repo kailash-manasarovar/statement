@@ -9,9 +9,29 @@ function googleTranslateElementInit() {
 </script>
 
 - I spend most of the month in Cauterets.
+- At the beginning of the month, my dad visits and we stay in Lourdes together for a few days.
 - I leave Cauterets around the third week of the month and drive to Madrid where I fly to Dublin for my Transforming Touch course.
 - When I'm in Madrid, I see Inma who has already received [her letter](august.md#the-handwritten-letters).
 - She tells me she thinks she knows someone who can help me.
+
+## Lourdes with dad
+
+- At my suggestion, dad visits Lourdes for a few days at the beginning of the month and we stay in the Hotel Saint Sauveur.
+- I tell dad everything.
+- I tell him I'm being stalked, that teachers and staff at the conservatory threatened my life, about my love the gypsy trumpeter, that Domingo Lopez Cano and his family are behind everything... I tell dad everything I know at the time.
+- He keeps saying; *heavy, heavy*, and I ask him why he keeps saying this.
+- He tells me about an African leader who was so fat, they called him heavy, and he fell through the stage he was so fat.
+- It's a funny story. I don't notice it doesn't relate to him saying *heavy* as I tell him my story.
+- Dad is the first person in the world I told that [Hazel Smith poisoned me](../early-years/2007.md#hazel-smith) in 2007.
+- He says; *heavy*.
+- Dad then tells me I need to be careful as I could be beaten by a man and put in prostitution.
+- He's telling me things without telling me, and I'm not seeing it.
+- One evening we take a walk through the sanctuary. 
+- As we pass the baths, at the men's side, one of the doors was completely open and you could see all the way into a bathing chamber.
+- This was unprecedented; something you *never* see in Lourdes.
+- I took it to mean Mary was extending my father an invitation to bathe, to cleanse, to redeem himself.
+- He did not accept the invitation.
+- I made sure to remind him the invitation is always open; that doing the right thing is always an option.
 
 ## In Cauterets
 
@@ -179,18 +199,6 @@ function googleTranslateElementInit() {
 - I was still perma-high and incessantly cyber-stalked those days so it was difficult to gather my thoughts about anything in a normal way.
 - On the September 2024 session in Dublin, she says something apparently random and meaningless to the whole class, that suggests, to me at that moment, that she is talking about this woman in the car; something like *in the back of the car they beat and violated her*, or similar.
 - I filed it away.
-
-## Lourdes with dad
-
-- My dad was aware of everything that was going on, I had explained everything to him in September 2024 in Lourdes and he appeared to understand the nature of my situation and how much danger I was in.
-- He is the first person in the world I told [I was poisoned by Hazel Smith](../early-years/2007.md#hazel-smith) in 2007.
-- As I told him my story, he kept saying: *heavy*, *heavy*,; I thought it was just him taking the piss, as he usually does. He then told me to be careful as I could be beaten by a man and made to be a prostitute.
-- Did he pretend to understand the nature of what was going on, and be supportive to me, and then tell my mother and brother I was not to be believed?
-- One evening we took a walk through the sanctuary. As we passed the baths, at the men's side, one of the doors was completely open and you could see all the way into a bathing chamber.
-- This was unprecedented, something you *never* see in Lourdes.
-- I took it to mean Mary was extending my father an invitation to bathe, to cleanse, to redeem himself.
-- He did not accept the invitation.
-- I made sure to remind him the invitation is always open; doing the right thing is always an option.
 
 ## The conversation continues
 
