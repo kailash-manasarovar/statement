@@ -27,17 +27,19 @@ function googleTranslateElementInit() {
 - He tells me about an African leader who was so fat, they called him *heavy*, and once when he was giving a speech he fell through the stage as they were shouting *heavy, heavy*.
 - It's a funny story.
 - I don't notice it doesn't relate to him saying *heavy* as I tell him my story.
-- Dad is the first person in the world I tell that [Hazel Smith poisoned me](../early-years/2007.md#hazel-smith) in 2007.
+- Dad is the first person in the world I tell that [Hazel Smith poisoned me in 2007](../early-years/2007.md#hazel-smith).
 - He says; *heavy, heavy*.
 - Dad then tells me I need to be careful as I could be beaten by a man and put into prostitution.
 - It's a little incongruous.
 - He's telling me things without telling me, and I'm not seeing it.
+- Who would? But I guess it was kind of unsurprising... :(
 - One evening we take a walk through the sanctuary. 
-- As we pass the baths, at the men's side, one of the bath entrances is completely open, both doors swung open, and we could see all the way into a bathing chamber.
+- As we pass the baths, at the men's side, one of the bath entrances is completely open, both doors swung wide, and we could see all the way into a bathing chamber.
 - This is unprecedented; something you *never* see in Lourdes.
 - I took it to mean Mary was extending my father an invitation to bathe, to cleanse, to redeem himself.
 - He did not accept.
 - I made sure to remind him the invitation is always open; that doing the right thing is always an option.
+- I told Sandra about Mary's invitation to my dad. She was unusually reticent. I guess she knew too.
 
 ## In Cauterets
 
