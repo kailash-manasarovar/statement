@@ -32,7 +32,6 @@ function googleTranslateElementInit() {
 - Dad then tells me I need to be careful as I could be beaten by a man and put into prostitution.
 - It's a little incongruous.
 - He's telling me things without telling me, and I'm not seeing it.
-- Who would? But I guess it was kind of unsurprising... :(
 - One evening we take a walk through the sanctuary. 
 - As we pass the baths, at the men's side, one of the bath entrances is completely open, both doors swung wide, and we could see all the way into a bathing chamber.
 - This is unprecedented; something you *never* see in Lourdes.
