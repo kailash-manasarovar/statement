@@ -198,6 +198,13 @@ function googleTranslateElementInit() {
 - Then she has no clothes on at all and someone has placed car seat belts over her breasts.
 - Then we see her in the back of the same car.
 - Fake accounts suggest that something very dreadful and violent happens to her in the back of the car with a bunch of men around her.
+- All I can do is repost the images in the hope that someone knows her.
+
+![Tweeting about car woman](../../content/images/targeted-women/car-woman/car-woman-tweets.png)
+
+- And I disagree with `@blahblahfishcakes`. 
+- This is the mass and *very hidden* immolation of young women and now children and babies, and the only reason it goes on without hindrance is because it stays hidden from anyone who might care. 
+- Remember: pics like these are *not hidden* from a billion porn addicts; those men we work shoulder-to-shoulder with, travel with, live with, are our family members, our leaders, 75% of all men everywhere who, statistically, would rape their daughters if they thought they'd get away with it.
 
 ### A TT participant in Dublin mentions the woman
 
