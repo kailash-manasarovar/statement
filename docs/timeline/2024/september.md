@@ -265,6 +265,9 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/24.png ) 
 
+- This one feels like a red-herring.
+- Who is she?
+
 ##### 5.
 
 ![pic]( ../../content/images/targeted-women/25.png ) 
