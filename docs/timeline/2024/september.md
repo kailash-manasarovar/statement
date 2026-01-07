@@ -289,6 +289,10 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/27.png ) 
 
+- A really old photo of a target?
+- Or a porn-gang red-herring?
+- Regardless, who is she?
+
 ##### 8.
 
 ![pic]( ../../content/images/targeted-women/29.png ) 
