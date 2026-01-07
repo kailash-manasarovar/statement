@@ -297,7 +297,9 @@ function googleTranslateElementInit() {
 ##### 8.
 
 ![pic]( ../../content/images/targeted-women/29.png ) 
-I think the above pic is probably a well-known Spanish actress but it came up on a fake account.
+
+- This one feels to me like a well-known Spanish actress, but it came up on a fake account as usual.
+- Regardless, who is she?
 
 ##### 9.
 
