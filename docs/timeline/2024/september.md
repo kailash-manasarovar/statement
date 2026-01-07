@@ -257,7 +257,7 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/23.png ) 
 
-- This looks like someone Lorraine Blackbourn knew from Chester.
+- This looks like someone Lorraine Blackbourn knew from Chester, UK.
 - I could be wrong but I think I've seen her before in private photos Lorraine showed me.
 - Who is she?
 
