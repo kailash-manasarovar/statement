@@ -21,16 +21,17 @@ function googleTranslateElementInit() {
 - I tell him I'm being stalked constantly wherever I am in the world, physically and online.
 - I tell him again how teachers and staff at the conservatory threatened my life and I had to stop my studies.
 - I tell him about my love the gypsy trumpeter.
+- I tell dad that I believe I'm in serious danger and I prepare a pack for him containing a copy of the handwritten letters, including the supplementary page, and a memory stick with archives of both my X accounts: `@1frgvn` and `@jackchardwood`.
 - I tell dad that Domingo Lopez Cano and his family are behind everything that's happening to me...
 - As I tell him my story, what I know at the time, dad keeps saying; *heavy, heavy*.
 - I ask him why he keeps saying this.
 - He tells me about an African leader who was so fat, they called him *heavy*, and once when he was giving a speech he fell through the stage as they were shouting *heavy, heavy*.
 - It's a funny story.
-- I don't notice it doesn't relate to him saying *heavy* as I tell him my story.
+- I don't notice it doesn't really relate to him saying *heavy* as I tell him my story.
 - Dad is the first person in the world I tell that [Hazel Smith poisoned me in 2007](../early-years/2007.md#hazel-smith).
 - He says; *heavy, heavy*.
 - Dad then tells me I need to be careful as I could be beaten by a man and put into prostitution.
-- It's a little incongruous.
+- It's a little incongruous, and unhelpful.
 - He's telling me things without telling me, and I'm not seeing it.
 - One evening we take a walk through the sanctuary. 
 - As we pass the baths, at the men's side, one of the bath entrances is completely open, both doors swung wide, and we could see all the way into a bathing chamber.
