@@ -232,38 +232,112 @@ function googleTranslateElementInit() {
 
 ## Suspected targets
 
-| Suspected targets posted in September |
-|-|
-| ![pic]( ../../content/images/targeted-women/21.png )  
-| ![pic]( ../../content/images/targeted-women/22.png ) |
-| ![pic]( ../../content/images/targeted-women/23.png ) |
-| ![pic]( ../../content/images/targeted-women/24.png ) |
-| ![pic]( ../../content/images/targeted-women/25.png ) |
-| ![pic]( ../../content/images/targeted-women/26.png ) |
-| ![pic]( ../../content/images/targeted-women/27.png ) |
-| ![pic]( ../../content/images/targeted-women/29.png ) 
-I think the above pic is probably a well-known Spanish actress but it came up on a fake account. |
-| ![pic]( ../../content/images/targeted-women/30.png )  |
-| ![pic]( ../../content/images/targeted-women/31.png )  |
-| ![pic]( ../../content/images/targeted-women/32.png )  |
-| ![pic]( ../../content/images/targeted-women/33.png )  |
-| ![pic]( ../../content/images/targeted-women/34.png ) 
-Is the pic above hidden camera footage? Over a bathtub? |
-| ![pic]( ../../content/images/targeted-women/35.png ) 
-This picture must be of a woman seeing evidence of herself being filmed without her knowledge.  |
-| ![pic]( ../../content/images/targeted-women/36.png ) 
-The full profile mentions "intense embarrassment" and I wonder if I'm seeing the shocking moments of when targets "find out" prior to blackmailing or sexual exploitation. I wonder if the men delight at these moments and roar with laughter at the tricked and suffering women. |
-| ![pic]( ../../content/images/targeted-women/37.png ) 
-New profile pic of this one posted January 2025 |
-| ![pic]( ../../content/images/targeted-women/38.png ) 
-Curious pic, it's not clear what/where the camera is that the woman is looking at |
-| ![pic]( ../../content/images/targeted-women/39-ai-mix-now.png ) 
-This view of her looks like a face that has been AI'ed into other stalker accounts |
-| ![pic]( ../../content/images/targeted-women/40.png )  |
-| ![pic]( ../../content/images/targeted-women/41.png ) 
-Feels like a red herring or AI mix. |
+- Pics of suspected Spanish/British porn-gang targets continue to fly into my X UI this month on fake accounts.
+- However, I am now seeing the odd photo which looks like a red-herring; someone famous maybe, a Spanish actress, a picture from the television?
+- Have the porn-gangs realized that someone is helping me?
+- Are they doing their best to muddy the waters?
+- As before, I list these women, every last one of them, as suspected targets without knowing for sure whether they were targeted or not, although some do look extremely vulnerable.
 
-- I must mention that I also saw a woman crying in her bedroom, crouched down against the wall. I wish I'd screenshot this pic as it looked like it came from a secret camera probably around the air vents, maybe in a screw?
+### Victims posted in September 
+
+##### 1.
+
+![pic]( ../../content/images/targeted-women/21.png )  
+
+##### 2.
+
+![pic]( ../../content/images/targeted-women/22.png ) 
+
+##### 3. 
+
+![pic]( ../../content/images/targeted-women/23.png ) 
+
+##### 4.
+
+![pic]( ../../content/images/targeted-women/24.png ) 
+
+##### 5.
+
+![pic]( ../../content/images/targeted-women/25.png ) 
+
+##### 6.
+
+![pic]( ../../content/images/targeted-women/26.png ) 
+
+##### 7.
+
+![pic]( ../../content/images/targeted-women/27.png ) 
+
+##### 8.
+
+![pic]( ../../content/images/targeted-women/29.png ) 
+I think the above pic is probably a well-known Spanish actress but it came up on a fake account.
+
+##### 9.
+
+![pic]( ../../content/images/targeted-women/30.png )  
+
+##### 10.
+
+![pic]( ../../content/images/targeted-women/31.png ) 
+
+##### 11.
+
+![pic]( ../../content/images/targeted-women/32.png )  
+
+##### 12.
+
+![pic]( ../../content/images/targeted-women/33.png )  
+
+##### 13.
+
+![pic]( ../../content/images/targeted-women/34.png ) 
+Is the pic above hidden camera footage? Over a bathtub? 
+
+##### 14.
+
+![pic]( ../../content/images/targeted-women/35.png ) 
+This picture must be of a woman seeing evidence of herself being filmed without her knowledge.  
+![pic]( ../../content/images/targeted-women/36.png ) 
+The full profile mentions "intense embarrassment" and I wonder if I'm seeing the shocking moments of when targets "find out" prior to blackmailing or sexual exploitation. I wonder if the men delight at these moments and roar with laughter at the tricked and suffering women. 
+![pic]( ../../content/images/targeted-women/37.png ) 
+New profile pic of this one posted January 2025 
+![pic]( ../../content/images/targeted-women/38.png ) 
+Curious pic, it's not clear what/where the camera is that the woman is looking at 
+![pic]( ../../content/images/targeted-women/39-ai-mix-now.png ) 
+This view of her looks like a face that has been AI'ed into other stalker accounts 
+![pic]( ../../content/images/targeted-women/39-margaret-thatcher.png )
+
+##### 15.
+
+![pic]( ../../content/images/targeted-women/40.png ) 
+
+##### 16.
+
+![pic]( ../../content/images/targeted-women/41.png ) 
+Feels like a red herring or AI mix. 
+
+From here are more recent ones (time of writing January 2026) which I remember seeing during this horrible period of my life.
+
+##### 17.
+
+![pic]( ../../content/images/targeted-women/42.jpg) 
+
+##### 18.
+
+![pic]( ../../content/images/targeted-women/43.png ) 
+
+##### 19.
+
+![pic]( ../../content/images/targeted-women/44.png ) 
+
+##### 20.
+
+![pic]( ../../content/images/targeted-women/45-cindy-lynn.png )
+
+##### 21.
+
+![pic]( ../../content/images/targeted-women/46.png ) 
 
 ## Driving back to Dénia
 
