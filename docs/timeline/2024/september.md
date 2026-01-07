@@ -209,19 +209,18 @@ function googleTranslateElementInit() {
 - On the September 2024 session in Dublin, she says something apparently random and meaningless to the whole class, that suggests, to me at that moment, that she is talking about this woman in the car; something like *in the back of the car they beat and violated her*, or similar.
 - I filed it away.
 
-## The conversation continues
+## The conversation continues until I leave for Madrid
 
-- The conservation with the hacker continues while I'm in France up until the 21st September.
-- However, it is not as intimate as before, and the threats and porn are back again.
-
-## Driving back to Dénia
-
-- As I drive into Dénia I notice the huge billboard for the swinger club, Hedonia.
-- I've seen it before.
-- I tweet about it in October: https://x.com/1FRGVN/status/1845101018746343666.
-- Something on it strikes me this time, however, which is the pictures of robot masks which I have seen on Google searches, and the mention of "special events".
-- I mention it to the hacker. I wonder if "special events" includes groomed and sedated women that aren't really consenting, and well know men in the community hidden behind masks.
-- I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport); my very own "special event".
+- The conservation with the hacker continues while I'm in France.
+- On or around the 21st I leave Cauterets and I drive to Madrid.
+- I meet Inma.
+- She's received her letter.
+- She says she knows a woman who can help me and asks when I'm going to be back in Madrid.
+- I tell her I'll be back on my way home to Dénia in about a week, as I'm going to my Transforming Touch therapy course in Dublin and flying from Madrid.
+- She says it's too soon.
+- I tell her I'm coming through again on my way to Fatima in October.
+- Inma says that will probably work; she'll let me know and confirm.
+- Themes from our conversation are repeated back to me on X account profiles when I get back to my hotel.
 
 ## Suspected targets
 
@@ -257,6 +256,15 @@ This view of her looks like a face that has been AI'ed into other stalker accoun
 Feels like a red herring or AI mix. |
 
 - I must mention that I also saw a woman crying in her bedroom, crouched down against the wall. I wish I'd screenshot this pic as it looked like it came from a secret camera probably around the air vents, maybe in a screw?
+
+## Driving back to Dénia
+
+- As I drive into Dénia I notice the huge billboard for the swinger club, Hedonia.
+- I've seen it before.
+- I tweet about it in October: https://x.com/1FRGVN/status/1845101018746343666.
+- Something on it strikes me this time, however, which is the pictures of robot masks which I have seen on Google searches, and the mention of "special events".
+- I mention it to the hacker. I wonder if "special events" includes groomed and sedated women that aren't really consenting, and well know men in the community hidden behind masks.
+- I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport); my very own "special event".
 
 ## Threats
 
