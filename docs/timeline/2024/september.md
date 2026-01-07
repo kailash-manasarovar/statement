@@ -232,17 +232,20 @@ function googleTranslateElementInit() {
 
 ## Suspected targets
 
-- Pics of suspected Spanish/British porn-gang targets continue to fly into my X UI this month on fake accounts.
-- However, I am now seeing the odd photo which looks like a red-herring; someone famous maybe, a Spanish actress, a picture from the television?
+- Photos of suspected Spanish/British porn-gang targets continue to fly intentionally onto my X UI this month via fake accounts.
+- Although I've started to notice the odd photo which looks like a red-herring; someone famous maybe, a Spanish actress, a still from a film, a scene from the television?
 - Have the porn-gangs realized that someone is helping me?
 - Are they doing their best to muddy the waters?
-- As before, I list these women, every last one of them, as suspected targets without knowing for sure whether they were targeted or not, although some do look extremely vulnerable.
+- As before, I list all these women - every last one of them - as suspected targets without knowing for sure whether they were targeted or not, although some do look extremely vulnerable.
 
 ### Victims posted in September 
 
 ##### 1.
 
 ![pic]( ../../content/images/targeted-women/21.png )  
+
+- Seems to be an old picture; maybe decades old.
+- Who is she?
 
 ##### 2.
 
