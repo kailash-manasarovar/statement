@@ -202,8 +202,8 @@ function googleTranslateElementInit() {
 
 [![Tweeting about car woman](../../content/images/targeted-women/car-woman/car-woman-tweets.png)](https://x.com/blablafishcakes/status/1841032028596150616)
 
-- And I disagree with `@blahblahfishcakes`. 
-- This is the mass and *very hidden* immolation of young women, and now children and babies, and the only reason it goes on without hindrance is because it stays hidden from anyone who might care. 
+- And I disagree with `@blahblahfishcakes` who didn't think I should be posting these photos sent to me by the porn-gangs.
+- This is the mass and *very hidden* immolation of young women, now children and babies, and the only reason it goes on without hindrance is because it stays hidden from anyone who might care. 
 - Remember: pics like these are *not hidden* from a billion porn addicts; those men we work shoulder-to-shoulder with, travel with, live with, shop with, eat with, our family members, our leaders, our sons, fathers, brothers, the bus driver; 75% of all men everywhere who, statistically, would rape their daughters if they thought they'd get away with it.
 
 ### A TT participant in Dublin mentions the woman
