@@ -222,10 +222,11 @@ function googleTranslateElementInit() {
 - On or around the 21st I leave Cauterets and I drive to Madrid.
 - I meet Inma.
 - She's received her letter.
-- She says she knows a woman who can help me and asks when I'm going to be back in Madrid.
+- She says she knows a woman who works for the Spanish government who can help me.
+- She asks when I'm going to be back in Madrid.
 - I tell her I'll be back on my way home to Dénia in about a week, as I'm going to my Transforming Touch therapy course in Dublin and flying from Madrid.
 - She says it's too soon.
-- I tell her I'm coming through again on my way to Fatima in October.
+- I tell her I'm coming through again on my way to Fatima in mid-to-late October.
 - Inma says that will probably work; she'll let me know and confirm.
 - Themes from our conversation are repeated back to me on X account profiles when I get back to my hotel.
 
