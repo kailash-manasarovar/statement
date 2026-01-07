@@ -270,7 +270,11 @@ function googleTranslateElementInit() {
 
 ##### 5.
 
-![pic]( ../../content/images/targeted-women/25.png ) 
+![pic]( ../../content/images/targeted-women/25.png )
+
+- Again, possibly a red-herring.
+- If not, this woman is likely being filmed without her knowledge.
+- Who is she?
 
 ##### 6.
 
