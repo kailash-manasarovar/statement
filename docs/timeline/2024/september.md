@@ -305,6 +305,8 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/30.png )  
 
+- Who is she?
+
 ##### 10.
 
 ![pic]( ../../content/images/targeted-women/31.png ) 
