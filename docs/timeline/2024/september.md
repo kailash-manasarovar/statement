@@ -21,8 +21,9 @@ function googleTranslateElementInit() {
 - I tell him I'm being stalked constantly wherever I am in the world, physically and online.
 - I tell him again how teachers and staff at the conservatory threatened my life and I had to stop my studies.
 - I tell him about my love the gypsy trumpeter.
-- I tell dad that I believe I'm in serious danger and I prepare a pack for him containing a copy of the handwritten letters, including the supplementary page, and a memory stick with archives of both my X accounts: `@1frgvn` and `@jackchardwood`.
-- I tell dad that Domingo Lopez Cano and his family are behind everything that's happening to me...
+- I tell dad that I believe I'm in serious danger.
+- I tell him that if anything happens to me, I've prepared a pack for him containing a copy of the handwritten letters, including the supplementary page, and a memory stick with archives of both my X accounts: `@1frgvn` and `@jackchardwood`, and he is to give it to the police.
+- I tell dad that Domingo Lopez Cano and his family are behind everything that's happening to me and checks that [he remembers meeting Domingo in 2014](../early-years/2014.md#trip-to-london) at Christmas.
 - As I tell him my story, what I know at the time, dad keeps saying; *heavy, heavy*.
 - I ask him why he keeps saying this.
 - He tells me about an African leader who was so fat, they called him *heavy*, and once when he was giving a speech he fell through the stage as they were shouting *heavy, heavy*.
