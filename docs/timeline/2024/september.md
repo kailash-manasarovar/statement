@@ -237,6 +237,7 @@ function googleTranslateElementInit() {
 - Have the porn-gangs realized that someone is helping me?
 - Are they doing their best to muddy the waters?
 - As before, I list all these women - every last one of them - as suspected targets without knowing for sure whether they were targeted or not, although some do look extremely vulnerable.
+- Remember: the fake account around the photo usually, if not always, was an advert for Only Fans or similar.
 
 ### Victims posted in September 
 
