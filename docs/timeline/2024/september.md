@@ -339,6 +339,10 @@ From here are more recent ones (time of writing January 2026) which I remember s
 
 ![pic]( ../../content/images/targeted-women/46.png ) 
 
+##### 22.
+
+![pic]( ../../content/images/targeted-women/47.png ) 
+
 ## Driving back to Dénia
 
 - As I drive into Dénia I notice the huge billboard for the swinger club, Hedonia.
