@@ -280,6 +280,11 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/26.png ) 
 
+- This one troubles me.
+- It feels like a sneak photo of someone who's just learned or experienced something horrible.
+- I could be wrong of course.
+- Regardless, who is she?
+
 ##### 7.
 
 ![pic]( ../../content/images/targeted-women/27.png ) 
