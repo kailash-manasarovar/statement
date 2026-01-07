@@ -251,9 +251,15 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/22.png ) 
 
+- Who is she?
+
 ##### 3. 
 
 ![pic]( ../../content/images/targeted-women/23.png ) 
+
+- This looks like someone Lorraine Blackbourn knew from Chester.
+- I could be wrong but I think I've seen her before in private photos Lorraine showed me.
+- Who is she?
 
 ##### 4.
 
