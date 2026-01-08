@@ -311,20 +311,29 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/31.png ) 
 
+- Who is she?
+
 ##### 11.
 
 ![pic]( ../../content/images/targeted-women/32.png )  
+
+- Who is she?
 
 ##### 12.
 
 ![pic]( ../../content/images/targeted-women/33.png )  
 
+- Who is she?
+
 ##### 13.
 
 ![pic]( ../../content/images/targeted-women/34.png ) 
-Is the pic above hidden camera footage? Over a bathtub? 
 
-##### 14.
+- This looks like spy-cam footage.
+- Where is this?
+- Who is she?
+
+##### 14. `@dattyhed`
 
 ![pic]( ../../content/images/targeted-women/35.png ) 
 This picture must be of a woman seeing evidence of herself being filmed without her knowledge.  
