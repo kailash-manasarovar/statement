@@ -387,9 +387,9 @@ function googleTranslateElementInit() {
 ##### 16.
 
 ![pic]( ../../content/images/targeted-women/41.png ) 
-Feels like a red herring or AI mix. 
 
-From here are more recent ones (time of writing January 2026) which I remember seeing during this horrible period of my life.
+- This lady feels familiar to me and for that reason I suspect a red-herring or AI mix. 
+- Nevertheless, who is she?
 
 ##### 17.
 
