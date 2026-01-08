@@ -403,6 +403,10 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/43.png ) 
 
+- This lady looks very familiar; a bit like Zoe BJ and her mum.
+- Is she a relation?
+- Who is she?
+
 ##### 19.
 
 ![pic]( ../../content/images/targeted-women/44.png ) 
