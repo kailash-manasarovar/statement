@@ -27,6 +27,10 @@ function googleTranslateElementInit() {
 - Sending it to my landlady on WhatsApp.
 - She *slow claps* back.
 
+## Porn-gangs in schools
+
+[![Porn gangs in schools](../../content/tweets/porn-gangs-in-schools.png)](https://x.com/1FRGVN/status/1845076405328937129)
+
 ## Bullying at Polygon
 
 !!! tip "In retrospect"
