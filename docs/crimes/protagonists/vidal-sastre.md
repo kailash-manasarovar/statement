@@ -139,22 +139,20 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - They are 100% protected by Spanish authorities who prefer to wait for complainants to be murdered than do anything to protect the children these monsters have constant access to.
 - Bold and confident, they even AI'ed their faces together, mixing the conservatory receptionist Gloria's face in too (as [the third man](#an-unknown-man-i-may-have-a-picture-of) is likely her brother Ivan).
 - They then tormented me endlessly with a fake AI-auto-posting account, `@Susan_E_J_USA`, that had this photo as a profile.
-- The vile auto-posting misandry spouting from it was prompted using process-heavy criminal AI systems, I believe, by Hazel and Sandra Smith. 
+- The vile auto-posting misandry spouting from the account appears to be prompted using process-heavy criminal AI systems and I suspect managed by Hazel and Sandra Smith. 
 
 ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/ai-mix-of-trumpet-teachers-and-gloria.png)
 
 - Gloria's face, the music school receptionist, is the clearest image in this AI photo.
-- The face of the [first man](#the-older-slimmer-greyer-man) is missing.
-- The eyes are from [the deep-set man](#dark-thick-curly-haired-deep-set-man), the face shape is the [third man](#an-unknown-man-i-may-have-a-picture-of), probably Gloria's brother Ivan.
-- I don't think I see the [second man](#the-brother-or-mark-from-english-class-in-2013) in here.
-- Gloria's face, the school receptionist, stands out the most.
+- The face of the [first man](#the-older-slimmer-greyer-man) and the [second men](#the-brother-or-mark-from-english-class-in-2013) are missing.
+- The eyes are from [the deep-set monstrous man](#dark-thick-curly-haired-deep-set-man), and the face shape is the [third man](#an-unknown-man-i-may-have-a-picture-of), probably Gloria's brother Ivan.
 - The arrogance of the gang and their absolute certainty they will never be brought to justice is staggering.
-- The account in January 2026 has the back of someone's head as a profile pic and is posting the same wild and sexist content as before.
+- The account today in January 2026 has the back of someone's head as a profile pic and is posting the same wild and sexist content as before.
 
 ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/ai-mix-of-trumpet-teachers-and-gloria-now.png)
 
 - This continuing account suggests to me that the porn-gangs are heavily involved in disrupting women's rights as the most significant threat to their criminal porn genres.
-- I believe this is further evidence towards my suspicion regarding the porn-gangs of UK and Spain being heavily involved in the production and protection of the online self-harming and transing of children, mainly girls; a very lucrative porn genre.
+- I believe this is further evidence towards my suspicion regarding the porn-gangs of UK and Spain being heavily involved in the production and protection of the online self-harming and transing of children, mainly girls; another lucrative porn genre.
 
 ### The L'Amistat Quart band
 
