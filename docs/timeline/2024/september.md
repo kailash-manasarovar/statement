@@ -411,6 +411,9 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/44.png ) 
 
+- Is she sedated in this photo?
+- Who is she?
+
 ##### 20.
 
 ![pic]( ../../content/images/targeted-women/45-cindy-lynn.png )
