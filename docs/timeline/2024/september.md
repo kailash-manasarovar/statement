@@ -379,6 +379,11 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/40.png ) 
 
+- I'm 90% sure this profile pic was part of a fake porn account originally.
+- It looks like it's been cleaned up; they can do that you know.
+- I could be hugely wrong about this, however, and I'm aware of it and hope I am.
+- Who is she?
+
 ##### 16.
 
 ![pic]( ../../content/images/targeted-women/41.png ) 
