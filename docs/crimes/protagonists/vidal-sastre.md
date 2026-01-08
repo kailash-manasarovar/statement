@@ -133,19 +133,19 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ### AI mix of the trumpet teachers faces
 
-- Everyone in Dénia knows who these men are, and their families.
+- Everyone in Dénia knows who these men are; and their families and multiple assistants.
 - They have been targeting, coercing into porn and prostitution, honey-trapping and extorting women and girls for decades.
 - Their business has now evolved into procuring babies for porn and infiltrating the Spanish school system to set up porn studios in children's classrooms.
 - They are 100% protected by Spanish authorities who prefer to wait for complainants to be murdered than do anything to protect the children these monsters have constant access to.
 - Bold and confident, they even AI'ed their faces together, mixing the conservatory receptionist Gloria's face in too (as [the third man](#an-unknown-man-i-may-have-a-picture-of) is likely her brother Ivan).
 - They then tormented me endlessly with a fake AI-auto-posting account, `@Susan_E_J_USA`, that had this photo as a profile.
-- The vile auto-posting misandry spouting from the account appears to be prompted using process-heavy criminal AI systems and I suspect managed by Hazel and Sandra Smith. 
+- The vile auto-posting misandry spouting from the account appears to be coming from prompted and process-heavy criminal AI systems and I suspect managed by Hazel and Sandra Smith. 
 
 ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/ai-mix-of-trumpet-teachers-and-gloria.png)
 
 - Gloria's face, the music school receptionist, is the clearest image in this AI photo.
 - The face of the [first man](#the-older-slimmer-greyer-man) and the [second men](#the-brother-or-mark-from-english-class-in-2013) are missing.
-- The eyes are from [the deep-set monstrous man](#dark-thick-curly-haired-deep-set-man), and the face shape is the [third man](#an-unknown-man-i-may-have-a-picture-of), probably Gloria's brother Ivan.
+- The eyes are from [the deep-set monstrous man](#dark-thick-curly-haired-deep-set-man), and the overall face shape is the [third man](#an-unknown-man-i-may-have-a-picture-of), probably Gloria's brother Ivan.
 - The arrogance of the gang and their absolute certainty they will never be brought to justice is staggering.
 - The account today in January 2026 has the back of someone's head as a profile pic and is posting the same wild and sexist content as before.
 
