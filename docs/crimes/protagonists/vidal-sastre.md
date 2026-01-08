@@ -138,7 +138,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Their business has now evolved into procuring babies for porn and infiltrating the Spanish school system.
 - They are 100% protected by Spanish authorities who prefer to wait for complainants to be murdered than do anything to protect the children these monsters have constant access to.
 - Bold and confident, they even AI'ed their faces together, mixing the conservatory receptionist Gloria's face in too.
-- They then tormented me endlessly with a fake AI-auto-posting account with this photo as a profile; the vile misandry spouted from it was managed, I believe, by Hazel and Sandra Smith. I'll remember the account name shortly.
+- They then tormented me endlessly with a fake AI-auto-posting account with this photo as a profile; the vile misandry spouted from it was managed, I believe, by Hazel and Sandra Smith. 
 
 ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/ai-mix-of-trumpet-teachers-and-gloria.png)
 
@@ -147,6 +147,11 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - The eyes are from [the deep-set man](#dark-thick-curly-haired-deep-set-man), the face shape is the [third man](#an-unknown-man-i-may-have-a-picture-of), and I don't think I can see the [second man](#the-brother-or-mark-from-english-class-in-2013) in here either.
 - Gloria's face, the school receptionist, stands out the most.
 - The arrogance of the gang and their absolute certainty they will never be brought to justice is staggering.
+- The account now has the back of someone's head as a profile pic with the same content as before.
+
+![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/ai-mix-of-trumpet-teachers-and-gloria-now.png)
+
+- This account suggests to me that the porn-gangs are heavily involved in disrupting women's right, especially with regards to the transing of children, a very lucrative porn genre no doubt.
 
 ### The L'Amistat Quart band
 

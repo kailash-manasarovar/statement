@@ -440,12 +440,31 @@ function googleTranslateElementInit() {
 
 ## Driving back to Dénia
 
+- After Transforming Touch in Dublin, I fly back to Madrid and drive down to Dénia and home in Carrer Furs.
+- As I'm driving through the countryside, I suddenly remember something peculiar about the day in 2014 that [Mike Wenham's wife emails everyone to ask for help because he's been arrested for murder](../early-years/2014.md#mike-wenham-murders-a-woman).
+
+### Remembering the woman in the picture with the scissors
+
+- That was the first morning of my first service to Mary at Lourdes.
+- I had stayed in the Best Western in Lourdes for one night and was moving to the hospitalite's accommodation that day.
+- In my bedroom, was an unusual painting of a woman in a conservatory with some sheers.
+- It was a sinister painting and I didn't get much sleep in the night either.
+- I have [written about this before](../early-years/2014.md#mike-wenham-murders-a-woman).
+- Remembering this in the car was startling; the implication of the sheers in relation to Mike Wenham's botched penis enlargement surgery.
+- I tweet about it extensively when I got home, in reply to a stalker account tweet now deleted.
+
+[![Dicks falling off](../../content/tweets/dicks-falling-off.png)](https://x.com/1FRGVN/status/1840530260061999506)
+
+### The swingers club
+
 - As I drive into Dénia I notice the huge billboard for the swinger club, Hedonia.
 - I've seen it before.
 - I tweet about it in October: https://x.com/1FRGVN/status/1845101018746343666.
 - Something on it strikes me this time, however, which is the pictures of robot masks which I have seen on Google searches, and the mention of "special events".
-- I mention it to the hacker. I wonder if "special events" includes groomed and sedated women that aren't really consenting, and well know men in the community hidden behind masks.
+- I mention it to the hacker.
+- I wonder if "special events" includes groomed and sedated women that aren't really consenting, and know the men in the community hidden behind masks.
 - I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport); my very own "special event".
+- I'm not aware that this was [the third man of the conservatory's porn-gang trumpet teacher actors](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) and probably Gloria's brother Ivan.
 
 ## Threats
 
