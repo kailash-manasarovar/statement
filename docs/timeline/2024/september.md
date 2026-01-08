@@ -335,14 +335,14 @@ function googleTranslateElementInit() {
 
 ##### 14. `@dattyhed`
 
-- The `@dattyhed` fake account has been stalking me for well over a year, perhaps even since [19th June 2023](../2023/june.md#sunday-18th-june-alicante-airport), the day after Gloria the school receptionist's brother, the [third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), attempted to take physical control over me, as per the pinned tweet.
+- The `@dattyhed` fake account has been stalking me for well over a year, perhaps even since [19th June 2023 (the pinned tweet's date)](../2023/june.md#sunday-18th-june-alicante-airport), the day after Gloria the school receptionist's brother, the [third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), attempted to take physical control over me.
 - The account owner, still party to everything I do online, even liked a post of mine this morning (the time of writing being 8th January 2026).
 
 ![pic]( ../../content/images/targeted-women/39-ai-mix-now.png ) 
 
-- My view is that Hazel Smith controls this account and was using it to either muddy the waters, or to demonstrate how little she cares about the results of her murderous activities in the world.
-- The woman's face looks like it could have been AI'ed into the photos of the `@BertDalziel` stalker account holder, along with [Samuel from harmony class](../2022/september.md#harmony) and the [crazy yoga teacher](../early-years/2015.md#nati-de-prati-yoga) from 2015.
-- Like the other accounts, the account profile is bogus but the profile pic is genuine.
+- My view is that Hazel Smith controls this account and has been using it to either muddy the waters, or to demonstrate how little she cares about the results of her murderous activities in the world.
+- The woman's face also looks like it could have been AI'ed into the photos of the `@BertDalziel` stalker account holder, along with [Samuel from harmony class](../2022/september.md#harmony) and the [crazy yoga teacher](../early-years/2015.md#nati-de-prati-yoga) from 2015.
+- Like the other targeted-women accounts, the account profile is bogus but the profile pic is genuine and thoroughly incongruent.
 - I was initially startled to see an expression that looks shocked and upset while viewing something on a computer screen.
 
 ![pic]( ../../content/images/targeted-women/35.png ) 
@@ -354,11 +354,11 @@ function googleTranslateElementInit() {
 
 - I did click this link one time and it redirected to porn.
 - *Cope* is also derogatory, to me and all victims, and, moreover, unbelievably arrogant.
-- My view is that not only is spy-cam porn used to blackmail and exploit victims, it may be in and of itself a *porn genre*.
+- My view is that not only is spy-cam porn used to blackmail and exploit victims, the big reveal may be in and of itself a *porn genre*.
 - Knowing very well the sick state of minds of porn-addicts the world over, and how much they're willing to pay for their addictions, I assume they delight at seeing a target's expression when she is humiliated.
-- Perhaps this was going on continuously during my professional life.
-- The snickering will be off the scale.
-- But this account kept coming back, with new pictures and messages for me; a stalker's personal favorite perhaps?
+- Perhaps this was going on continuously during my online professional life.
+- The snickering will be undoubtedly off the scale.
+- But this account kept coming back, with new pictures and messages for me; a stalker's personal favorite, or someone known personally to Hazel perhaps?
 - Here she is again, away from her computer screen; are there spy-cams all over her house?
 - It's not clear what she's looking at; maybe the networked-up doorbell?
 
