@@ -335,17 +335,41 @@ function googleTranslateElementInit() {
 
 ##### 14. `@dattyhed`
 
-![pic]( ../../content/images/targeted-women/35.png ) 
-This picture must be of a woman seeing evidence of herself being filmed without her knowledge.  
-![pic]( ../../content/images/targeted-women/36.png ) 
-The full profile mentions "intense embarrassment" and I wonder if I'm seeing the shocking moments of when targets "find out" prior to blackmailing or sexual exploitation. I wonder if the men delight at these moments and roar with laughter at the tricked and suffering women. 
-![pic]( ../../content/images/targeted-women/37.png ) 
-New profile pic of this one posted January 2025 
-![pic]( ../../content/images/targeted-women/38.png ) 
-Curious pic, it's not clear what/where the camera is that the woman is looking at 
+- The `@dattyhed` fake account has been stalking me for well over a year and even liked a post of mine this morning (the time of writing being 8th January 2026).
+
 ![pic]( ../../content/images/targeted-women/39-ai-mix-now.png ) 
-This view of her looks like a face that has been AI'ed into other stalker accounts 
+
+- My view is that Hazel Smith controls this account and was using it to either muddy the waters, or to demonstrate how little she cares about the results of her murderous activities in the world.
+- The woman's face looks like it could have been AI'ed into the photos of the `@BertDalziel` stalker account holder, along with [Samuel from harmony class](../2022/september.md#harmony) and the [crazy yoga teacher](../early-years/2015.md#nati-de-prati-yoga) from 2015.
+- Like the other accounts, the account profile is bogus but the profile pic is genuine.
+- I was initially startled to see an expression that looks shocked while viewing something on a computer screen.
+
+![pic]( ../../content/images/targeted-women/35.png ) 
+
+- It looks like she could be viewing footage of herself filmed sexually or otherwise without her knowledge.  
+- When you look at the full profile, you see a URL to a site named *intenseembarrassment*.
+
+![pic]( ../../content/images/targeted-women/36.png ) 
+
+- I did click this link one time and it redirected to porn.
+- My view is that not only is spy-cam porn used to blackmail and exploit victims, it may be in and of itself a *porn genre*.
+- Knowing very well the sick state of minds of porn-addicts the world over, and how much they're willing to pay for their addictions, I assume they delight at seeing a target's expression when she is humiliated.
+- The snickering will be off the scale.
+- But this account kept coming back, with new pictures and messages for me.
+- Here she is again, away from her computer screen; are there spy-cams all over her house?
+- It's not clear what she's looking at; maybe the networked up door bell?
+
+![pic]( ../../content/images/targeted-women/37.png ) 
+
+- In January 2025, when I'm back at home in East Finchley, the account is still stalking me.
+
+![pic]( ../../content/images/targeted-women/38.png ) 
+
+- Shortly afterwards, perhaps a couple of months later, the profile message changes to: *Basically Margaret Thatcher*.
+
 ![pic]( ../../content/images/targeted-women/39-margaret-thatcher.png )
+
+- I believe this message relates to top-secret information (that most of the Labour Party in East Finchley know about) that my father gave Domingo Lopez Cano and his gang in 2014, and by extension Hazel Smith and the British porn gangs; unless they already knew via the Red Lion pub connection from 1989, which is also likely.
 
 ##### 15.
 
