@@ -341,7 +341,7 @@ function googleTranslateElementInit() {
 ![pic]( ../../content/images/targeted-women/39-ai-mix-now.png ) 
 
 - My view is that Hazel Smith controls this account and has been using it to either muddy the waters, or to demonstrate how little she cares about the results of her murderous activities in the world.
-- The woman's face also looks like it could have been AI'ed into the photos of the `@BertDalziel` stalker account holder, along with [Samuel from harmony class](../2022/september.md#harmony) and the [crazy yoga teacher](../early-years/2015.md#nati-de-prati-yoga) from 2015.
+- The woman's face also looks like it could have been AI'ed into the photos of the `@BertDalziel` stalker account holder, along with [Samuel from harmony class](../2022/september.md#harmony) and the [crazy yoga teacher](../early-years/2015.md#nati-de-prati-yoga) from 2015 who, along with multiple other conspirators, military-couped Natalia's professional life into the porn-gang's hands.
 - Like the other targeted-women accounts, the account profile is bogus but the profile pic is genuine and thoroughly incongruent.
 - I was initially startled to see an expression that looks shocked and upset while viewing something on a computer screen.
 
@@ -354,7 +354,7 @@ function googleTranslateElementInit() {
 
 - I did click this link one time and it redirected to porn.
 - *Cope* is also derogatory, to me and all victims, and, moreover, unbelievably arrogant.
-- My view is that not only is spy-cam porn used to blackmail and exploit victims, the big reveal may be in and of itself a *porn genre*.
+- My view is that not only is spy-cam porn used to blackmail and exploit victims, the *big reveal* may be in and of itself a *porn genre*.
 - Knowing very well the sick state of minds of porn-addicts the world over, and how much they're willing to pay for their addictions, I assume they delight at seeing a target's expression when she is humiliated.
 - Perhaps this was going on continuously during my online professional life.
 - The snickering will be undoubtedly off the scale.
