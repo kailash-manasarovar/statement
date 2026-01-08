@@ -418,6 +418,9 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/45-cindy-lynn.png )
 
+- I believe this fake account references two targets: Cindy and Lynn from the British walkers.
+- Who is the woman in the photo?
+
 ##### 21.
 
 ![pic]( ../../content/images/targeted-women/46.png ) 
