@@ -425,8 +425,11 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/46.png ) 
 
-- This fake account and similar ones popped up in September 2023 while I was being followed and stalked daily on the Las Marinas beach, and I would smile at them and they'd get scared.
-- The message was for me.
+- This fake account, and similar ones with the same message, popped up in September 2023 while [I was being followed and stalked daily on the Las Marinas beach](../2023/september.md#rape-gang-reminders), and I would smile at the stalkers, and they'd get very visibly fearful.
+- And I'd know.
+- I never stopped doing that; and they'd *always* get scared when I did.
+- Guilt.
+- Just the tiniest nudge for this lot and the whole thing is going to collapse in on them.
 - Who is this woman?
 
 ##### 22.
