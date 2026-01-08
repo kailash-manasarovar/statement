@@ -238,6 +238,7 @@ function googleTranslateElementInit() {
 - Have the p$rn-gangs realized that someone is helping me?
 - Are they doing their best to muddy the waters?
 - As before, I list all these women - every last one of them - as suspected targets without knowing for sure whether they were targeted or not, although some do look extremely vulnerable.
+- The last set - from 17. onwards - I have been seeing more recently; however, I remember them from before and I did ask Hazel, good-hackers, et al. to send any outstanding ones I might have missed.
 
 ### Victims posted in September 
 
@@ -394,6 +395,9 @@ function googleTranslateElementInit() {
 ##### 17.
 
 ![pic]( ../../content/images/targeted-women/42.jpg) 
+
+- Another extremely legit-looking account.
+- Who is she?
 
 ##### 18.
 
