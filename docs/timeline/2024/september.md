@@ -459,12 +459,14 @@ function googleTranslateElementInit() {
 
 - As I drive into Dénia I notice the huge billboard for the swinger club, Hedonia.
 - I've seen it before.
-- I tweet about it in October: https://x.com/1FRGVN/status/1845101018746343666.
 - Something on it strikes me this time, however, which is the pictures of robot masks which I have seen on Google searches, and the mention of "special events".
-- I mention it to the hacker.
+- I tweet about it in October:
+
+[![Pelicot style rape gangs in Denia](../../content/tweets/pelicot-style-rape-gangs.png)](https://x.com/1FRGVN/status/1845101018746343666)
+
 - I wonder if "special events" includes groomed and sedated women that aren't really consenting, and know the men in the community hidden behind masks.
 - I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport); my very own "special event".
-- I'm not aware that this was [the third man of the conservatory's porn-gang trumpet teacher actors](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) and probably Gloria's brother Ivan.
+- I'm not aware that this was [the third man of the conservatory's porn-gang trumpet-teacher actors](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) and probably Gloria's brother Ivan.
 
 ## Threats
 
