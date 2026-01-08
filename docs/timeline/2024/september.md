@@ -425,6 +425,10 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/46.png ) 
 
+- This fake account and similar ones popped up in September 2023 while I was being followed and stalked daily on the Las Marinas beach, and I would smile at them and they'd get scared.
+- The message was for me.
+- Who is this woman?
+
 ##### 22.
 
 ![pic]( ../../content/images/targeted-women/47.png ) 
