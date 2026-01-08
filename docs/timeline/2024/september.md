@@ -411,6 +411,7 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/44.png ) 
 
+- Could this woman be sedated in this photo?
 - Who is she?
 
 ##### 20.
