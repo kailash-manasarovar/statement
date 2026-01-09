@@ -470,6 +470,7 @@ function googleTranslateElementInit() {
 
 [![Pelicot style rape gangs in Denia](../../content/tweets/pelicot-style-rape-gangs.png)](https://x.com/1FRGVN/status/1845101018746343666)
 
+- You can see from my tweet how little I knew of the truth; although I knew enough to be a candidate for murder.
 - I wonder if "special events" includes groomed and sedated women that aren't consenting, even if their eyes are open; women who know the men in the community hidden behind masks.
 - I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport); my very own "special event".
 - I'm not aware at the time that I'm addressing [the third man of the four conservatory-porn-gang trumpet-teacher actors](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) and probably Gloria the receptionists brother Ivan.
