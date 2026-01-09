@@ -441,7 +441,7 @@ function googleTranslateElementInit() {
 ## Driving back to Dénia
 
 - After Transforming Touch in Dublin, I fly back to Madrid, meet Inma briefly, and then drive back down to Dénia and home in Carrer Furs.
-- Inma tells me that the woman she knows will visit Madrid in about three weeks when I stop on my drive to Fatima.
+- Inma tells me that the woman she knows will visit Madrid in about three weeks to meet me when I stop on my drive to Fatima.
 - On my way home, driving through the countryside, I suddenly remember something peculiar about the hotel I stayed in on the March morning in 2014 when [Mike Wenham's wife emails everyone to ask for help because he's been arrested for murder](../early-years/2014.md#mike-wenham-murders-a-woman).
 
 ### Remembering the woman in the picture with the scissors
@@ -460,10 +460,12 @@ function googleTranslateElementInit() {
 ### The swingers club
 
 - As I drive into Dénia, I once again notice the huge billboard for the swingers club, Hedonia.
-- Zoe BJ went on about the swingers club a lot.
+- Zoe BJ went on about the swingers club, a lot, one of her excruciating topics.
 - It's very distasteful and I have noticed every time I drove in.
-- However, something on it strikes me this time.
-- It is the pictures of robot masks which I have seen on Google searches, and the mention of "special events".
+- However, something on the billboard strikes me this time.
+- It is the pictures of robot masks.
+- I have seen the same on Google searches.
+- The billboard also mentions of "special events".
 - I tweet about it in early October:
 
 [![Pelicot style rape gangs in Denia](../../content/tweets/pelicot-style-rape-gangs.png)](https://x.com/1FRGVN/status/1845101018746343666)
@@ -471,6 +473,7 @@ function googleTranslateElementInit() {
 - I wonder if "special events" includes groomed and sedated women that aren't consenting, even if their eyes are open; women who know the men in the community hidden behind masks.
 - I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport); my very own "special event".
 - I'm not aware at the time that I'm addressing [the third man of the four conservatory-porn-gang trumpet-teacher actors](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) and probably Gloria the receptionists brother Ivan.
+- As I'm tweeting about the club, messages are flying past; *Oh we're not going there anymore, hahahaaa*.
 
 ## Threats
 
