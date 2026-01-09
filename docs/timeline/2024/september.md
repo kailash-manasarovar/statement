@@ -473,7 +473,11 @@ function googleTranslateElementInit() {
 - I wonder if "special events" includes groomed and sedated women that aren't consenting, even if their eyes are open; women who know the men in the community hidden behind masks.
 - I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport); my very own "special event".
 - I'm not aware at the time that I'm addressing [the third man of the four conservatory-porn-gang trumpet-teacher actors](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) and probably Gloria the receptionists brother Ivan.
-- As I'm tweeting about the club, messages are flying past; *Oh we're not going there anymore, hahahaaa*.
+- I look the club up online and see the same robot masks.
+- I also see a strange skinny woman with her back to the camera in a blond wig.
+- She's wearing a top hat.
+- I'm reminded of Hazel.
+- As I'm tweeting about the club, messages fly past on my UI; *Oh we're not going there anymore, hahahaaa*.
 
 ## Threats
 
