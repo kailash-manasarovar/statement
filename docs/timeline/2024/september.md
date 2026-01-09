@@ -450,8 +450,7 @@ function googleTranslateElementInit() {
 - I had stayed in the Best Western in Lourdes for one night and was moving to the hospitalite's accommodation that day.
 - In my bedroom, was an unusual painting of a woman in a conservatory.
 - She was holding garden sheers in a sinister manner.
-- It was a threatening painting and I didn't get much sleep that night either.
-- I have [written about this before](../early-years/2014.md#mike-wenham-murders-a-woman).
+- It was a threatening painting and I didn't get much sleep that night.
 - Remembering this in the car was startling; specifically the implication of the sheers in relation to Mike Wenham's botched penis enlargement surgery.
 - I tweet about it when I got home; initially in reply to a stalker account's tweet, now deleted.
 
@@ -461,17 +460,17 @@ function googleTranslateElementInit() {
 
 - As I drive into Dénia, I once again notice the huge billboard for the swingers club, Hedonia.
 - Zoe BJ went on about the swingers club, a lot, one of her excruciating topics.
-- It's very distasteful and I have noticed every time I drove in.
+- It’s very distasteful and I noticed it every time I drove in, you can't miss it.
 - However, something on the billboard strikes me this time.
 - It is the pictures of robot masks.
-- I have seen the same on Google searches.
-- The billboard also mentions of "special events".
+- I have seen the same masks on my tailored Google search results.
+- The billboard also mentions "special events".
 - I tweet about it in early October:
 
 [![Pelicot style rape gangs in Denia](../../content/tweets/pelicot-style-rape-gangs.png)](https://x.com/1FRGVN/status/1845101018746343666)
 
 - You can see from my tweet how little I knew of the truth; although I knew enough to be a candidate for murder.
-- I wonder if "special events" includes groomed and sedated women that aren't consenting, even if their eyes are open; women who know the men in the community hidden behind masks.
+- I wonder if "special events" includes groomed and sedated women that aren't consenting, even if their eyes are open; women who know the men in the community, and in the porn, hidden behind masks.
 - I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport); my very own "special event".
 - I'm not aware at the time that I'm addressing [the third man of the four conservatory-porn-gang trumpet-teacher actors](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) and probably Gloria the receptionists brother Ivan.
 - I look the club up online and see the same robot masks.
