@@ -477,6 +477,7 @@ function googleTranslateElementInit() {
 - I also see a strange skinny woman with her back to the camera in a blond wig.
 - She's wearing a top hat.
 - I'm reminded of Hazel.
+- All these images are gone from the website today.
 - As I'm tweeting about the club, messages fly past on my UI; *Oh we're not going there anymore, hahahaaa*.
 
 ## Threats
