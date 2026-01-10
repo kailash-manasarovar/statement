@@ -495,7 +495,7 @@ function googleTranslateElementInit() {
 
 ## Threats
 
-- At some point I see this pic in my Google searches on `@1frgvn X`.
+- At some point I see this pic in my Google search results from `@1frgvn X`.
 
 ![monster](../../content/images/threats/monster.png)
 
