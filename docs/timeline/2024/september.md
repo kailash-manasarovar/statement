@@ -106,7 +106,7 @@ function googleTranslateElementInit() {
 
 #### Proteinuria and/or overwhelmed kidney function from poisoning
 
-- I show Sandra, in person, my frothy urine and explain to her this is happening because I have been poisoned or drugged by the gangs.
+- I show Sandra, in person, my frothy urine and explain to her this is happening every time I go to the toilet because I have been poisoned or drugged by the gangs.
 - This was one evening when she came back to use my toilet!
 
 ![proteinuria](../../content/images/my%20urine%20pretty%20much%20every%20day%20at%20this%20point.png)
@@ -114,7 +114,7 @@ function googleTranslateElementInit() {
 - She doesn't have anything to say about it.
 - I believe it is caused by weakness from a previous attack I'm aware of ([January 28th 2023](../2023/january.md#serious-poisoning-at-chamber-music-class)).
 - I'm not aware that my toiletries and food are being accessed continuously by poisoners entering my hotel room while I'm not there, or by Sandra whenever she uses my toilet.
-- My urine has been frothy ever since I got a chest infection which came on a day or two after [seeing Ugly](august.md#ugly) at the end of August.
+- My urine was fine but turned frothy ever since I got a chest infection which came on a day or two after [seeing Ugly](august.md#ugly) at the end of August.
 - I consequently notice that every time the porn-gangs drugged or poisoned me excessively - with the intent to maim or kill - my urine became frothy, my kidneys ached, my sight was detrimentally affected, and my brain and nervous system was damaged so that I wouldn't recognize people had changed if they were wearing the same clothes or playing the same role in the same contextual set ups, i.e. turning up to the conservatory to teach a chamber music class.
 
 #### The hairdresser
