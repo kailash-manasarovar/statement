@@ -519,10 +519,12 @@ function googleTranslateElementInit() {
 ![I just killed a man to watch him die](../../content/images/fake-accounts/i%20just%20killed%20a%20man.png)
 
 - And a warning to me about murder maybe. 
-- I was going back to my flat at the end of September and I think they really intended to poison me to get rid of me seeing as I just wouldn't leave Dénia.
-- It must have been extremely annoying that I never left, but I'm conscious, even now, that leaving Dénia means I'm open to being targeted out of sight, in a far worse manner probably.
+- From when I was back in my apartment at Carrer Furs, I think they really intended to poison me to get rid of me seeing as I refused to leave my home that I loved (with no clue about what was really happening there) and Dénia, a town I have loved since October 1997.
+- It must have been extremely annoying for the porn-gangs that I never left, but I was extremely conscious of the fact, and still am, that leaving would have made me open to being targeted out of sight, in a far worse manner most likely.
 
 ![Murder warning](../../content/images/fake-accounts/murder-warning.png)
+
+- I also had nowhere else to go; my family in London were a very last resort and I would only return there if things became utterly untenable for me in Spain.
 
 ### Poisoning
 
