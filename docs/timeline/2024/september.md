@@ -518,9 +518,9 @@ function googleTranslateElementInit() {
 
 ![I just killed a man to watch him die](../../content/images/fake-accounts/i%20just%20killed%20a%20man.png)
 
-- From when I arrived back in my apartment at Carrer Furs, I believe their intention was to poison me, and get rid of me.
+- From when I arrived back in my apartment at Carrer Furs, I believe the porn-gang's intention was to poison me, and get rid of me.
 - I thought it was because I refused to leave my home that I loved (with no clue about what was really happening there), and Dénia, a town I have loved since October 1997.
-- It must have been extremely annoying for the porn-gangs that I never left, or stopped writing about my experiences online in tweets, but I was extremely conscious of the fact, and still am, that leaving Dénia would have made me open to being targeted out of sight, in a far worse manner most likely.
+- It must have been extremely annoying for the porn-gangs that I never left, or stopped writing about my experiences online in tweets, but I was extremely conscious of the fact that leaving Dénia would have made me open to being targeted out of sight, in a far worse manner most likely.
 
 ![Murder warning](../../content/images/fake-accounts/murder-warning.png)
 
