@@ -504,11 +504,12 @@ function googleTranslateElementInit() {
 
 [![Reporting UI hacks](../../content/tweets/reporting-ui-hacks.png)](https://x.com/1FRGVN/status/1835765992556818662)
 
-- It refers to a when I had made a derogatory comment towards teachers and staff at the conservatory on X.
+- It refers to when I had made a derogatory comment towards teachers and staff at the conservatory on X.
 - Suddenly, a monster face like the one in the picture here appears in the middle of my Twitter timeline, completely out of nowhere!
+- It's animated, and it roars directly at me.
 - It was shocking, actually.
-- I realized that criminal-gangs had total control of everything I could see, on Twitter at least.
-- However, I was so stressed at the time, I filed it away to think about later.
+- At that moment, I realized that criminal-gangs had total control of everything I could see, on Twitter at least.
+- However, I was so stressed at that time, I filed it away to think about later.
 
 ### Murder
 
