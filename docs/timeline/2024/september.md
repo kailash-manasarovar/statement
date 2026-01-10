@@ -104,7 +104,7 @@ function googleTranslateElementInit() {
 - The next day she is upset with me, different, anxious.
 - Has she finally realized, after a decade of interactions, that I'm not as stupid as she's been told I am?
 
-#### Proteinuria and/or overwhelmed kidney function from poisoning
+#### Proteinuria and/or overwhelmed kidney function from constant poisoning
 
 - I show Sandra, in person, my frothy urine and explain to her this is happening every time I go to the toilet because I have been poisoned or drugged by the gangs.
 - This was one evening when she came back to use my toilet!
