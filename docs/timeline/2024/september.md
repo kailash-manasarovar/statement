@@ -513,18 +513,22 @@ function googleTranslateElementInit() {
 
 ### Murder
 
-- Around the end of September beginning of October 2024, the theme of murder became predominant on my X timeline.
-- Here's a threatening message example.
+- Around the end of September, beginning of October 2024, the theme of *murder* became predominant on my X timeline.
+- Here's a threatening example.
 
 ![I just killed a man to watch him die](../../content/images/fake-accounts/i%20just%20killed%20a%20man.png)
 
-- And a warning to me about murder maybe. 
-- From when I was back in my apartment at Carrer Furs, I think they really intended to poison me to get rid of me seeing as I refused to leave my home that I loved (with no clue about what was really happening there) and Dénia, a town I have loved since October 1997.
-- It must have been extremely annoying for the porn-gangs that I never left, but I was extremely conscious of the fact, and still am, that leaving would have made me open to being targeted out of sight, in a far worse manner most likely.
+- From when I arrived back in my apartment at Carrer Furs, I believe their intention was to poison me, and get rid of me.
+- I thought it was because I refused to leave my home that I loved (with no clue about what was really happening there), and Dénia, a town I have loved since October 1997.
+- It must have been extremely annoying for the porn-gangs that I never left, or stopped writing about my experiences online in tweets, but I was extremely conscious of the fact, and still am, that leaving Dénia would have made me open to being targeted out of sight, in a far worse manner most likely.
 
 ![Murder warning](../../content/images/fake-accounts/murder-warning.png)
 
 - I also had nowhere else to go; my family in London were a very last resort and I would only return there if things became utterly untenable for me in Spain.
+- This was also a period where I was so high in my home I was hallucinating, badly.
+- This strikes me as the gangs not really wanting me to leave at all - I couldn't think straight about anything.
+- Was their sole intention to murder me, for their subscribers' pleasure live and direct on the porn networks?
+- Were my soon-to-be ex-colleagues at Polygon excited about that?
 
 ### Poisoning
 
