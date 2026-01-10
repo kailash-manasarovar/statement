@@ -500,14 +500,14 @@ function googleTranslateElementInit() {
 ![monster](../../content/images/threats/monster.png)
 
 - It reminds me of a hacked response to a tweet in March, probably around the time the [cyber stalking and threats were most intense](march/13-end.md#wednesday-13th-march).
-- I tweet about it: 
+- Later, I see it on my X timeline and tweet a reply to the author (likely a criminal-gang fake account).
 
 [![Reporting UI hacks](../../content/tweets/reporting-ui-hacks.png)](https://x.com/1FRGVN/status/1835765992556818662)
 
-- I had been on twitter and made a derogatory comment towards teachers and staff at the conservatory.
-- Suddenly, a monster face like the one in the picture here appeared in the middle of my Twitter timeline, completely out of nowhere!
+- It refers to a when I had made a derogatory comment towards teachers and staff at the conservatory on X.
+- Suddenly, a monster face like the one in the picture here appears in the middle of my Twitter timeline, completely out of nowhere!
 - It was shocking, actually.
-- I realized they had total control of everything I could see, on Twitter at least.
+- I realized that criminal-gangs had total control of everything I could see, on Twitter at least.
 - However, I was so stressed at the time, I filed it away to think about later.
 
 ### Murder
