@@ -495,17 +495,24 @@ function googleTranslateElementInit() {
 
 ## Threats
 
-- At some point I see this pic in Google search.
+- At some point I see this pic in my Google searches on `@1frgvn X`.
 
 ![monster](../../content/images/threats/monster.png)
 
-- It reminds me of a response to a tweet in March, probably when the [cyber stalking and threats were most intense](march/1-12.md#tuesday-12th-march) just before or after the piano concert.
-- I tweet about it: https://x.com/1FRGVN/status/1835765992556818662.
-- At that moment, a monster face like the one in the pic simply appeared in the middle of my Twitter timeline, completely out of nowhere.
-- It was shocking and I realized they had total control of everything I could see on Twitter but I was so stressed I had to file it away to think about later.
+- It reminds me of a hacked response to a tweet in March, probably around the time the [cyber stalking and threats were most intense](march/13-end.md#wednesday-13th-march).
+- I tweet about it: 
+
+[![Reporting UI hacks](../../content/tweets/reporting-ui-hacks.png)](https://x.com/1FRGVN/status/1835765992556818662)
+
+- I had been on twitter and made a derogatory comment towards teachers and staff at the conservatory.
+- Suddenly, a monster face like the one in the picture here appeared in the middle of my Twitter timeline, completely out of nowhere!
+- It was shocking, actually.
+- I realized they had total control of everything I could see, on Twitter at least.
+- However, I was so stressed at the time, I filed it away to think about later.
 
 ### Murder
 
+- Around the end of September beginning of October 2024, the theme of murder became predominant on my X timeline.
 - Here's a threatening message example.
 
 ![I just killed a man to watch him die](../../content/images/fake-accounts/i%20just%20killed%20a%20man.png)
