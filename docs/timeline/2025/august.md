@@ -84,3 +84,21 @@
 - I thought I would check with the company just to make sure my suspicions were correct.
 - They were.
 - Here's my [email to them](../../content/documents/emails/Philip-Parmour-client-server.pdf).
+
+## Brittany Ferries
+
+- On the boat home, I see they're doing karaoke.
+- I decide to sing.
+- I meet a British couple there and we chat.
+- They buy me a drink.
+- I've already had a few drinks; it won't sit well on [my overwhelmed kidneys from poisoning](july.md#lourdes), but I don't care.
+- I need to sing to my love, to express how I'm feeling.
+
+![Frankie boy](https://youtu.be/YFham2Xu6nA)
+
+- I get them to raise the tone a fifth before I do or I won't make the low notes.
+- I sing for my love, resoundingly; even the brass flourishes are ours.
+- I sit back down.
+- I tell the British couple that the middle-aged British woman is a force to be reckoned with.
+- They like it that I said that.
+- I never had braves like this before in my life.
