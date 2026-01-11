@@ -450,6 +450,24 @@ function googleTranslateElementInit() {
 - I'm told I have to go to report the matter in person to the police.
 - I decide, very reluctantly and with a heavy heart, to go to the police the following morning.
 
+### Babies and politics
+
+```txt
+    Feb 19, 2024, 9:28 PM</br>
+    I want my 21-year-old daughter to not be terrified at the idea of bringing 
+    a new human being into this world.</br>
+    Feb 19, 2024, 9:29 PM</br>
+    why is she terrified?</br>
+    Feb 19, 2024, 9:30 PM</br>
+    Politics</br>
+```
+
+- Is this an admission from the porn-gangs that they are using all the babies they can get their hands on in the region for porn, even the babies born to their own family-members, and the (potential) mothers know it?
+- Have the gangs become so bold now that, not only have they successfully infiltrated the school system, but all the women in the region know exactly what's been happening to the babies over the last decades; generations of children growing up severely traumatized?
+- Is the Mark Moseley character the [second trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013), the [third, Gloria's brother, known to have fathered multiple children in the region](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), or [the monster](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man)?
+- Would all those men be involved in procuring babies for Hazel Smith and the British porn-gangs most lucrative porn made by their baby-rape department?
+- Was this a line that, once crossed, a tiny segment of the community could not live with?
+
 ## Documenting my conscious awareness on X
 
 - It's the same evening. 
