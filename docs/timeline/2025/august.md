@@ -93,6 +93,7 @@
 - They buy me a drink.
 - I've already had a few drinks; it won't sit well on [my overwhelmed kidneys from poisoning](july.md#lourdes), but I don't care.
 - I need to sing to my love, to express how I'm feeling.
+- I'm certain he'll hear it.
 
 <iframe width="696" height="391" src="https://www.youtube.com/embed/YFham2Xu6nA" title="The Way You Look Tonight (2008 Remastered)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
