@@ -534,20 +534,20 @@ function googleTranslateElementInit() {
 
 - Poisoning, like [murder](#murder), becomes another major *theme* online from the end of September.
 - Is it warning or threat?
-- The fake account `@criticalfemme` below pops-up with an explanation of how they drugged at the conservatory.
-- The references to "cat ear medicine" suggests a debilitating substance is administered into the ear while a target (cat = Katharine) is distracted.
+- The fake account `@criticalfemme` below pops-up with an explanation of how they drugged me at the conservatory.
+- The references to "cat ear medicine" suggest a debilitating substance is administered into the ear while a target (cat = Katharine) is distracted.
 
 ![cat ear medicine](../../content/images/poisoning-in-the-ear.png)
 
 - I realize that could very well have happened to me every time I went to the conservatory for classes.
-- Often, I was surrounded by a crowd of people while entering the building and going up the stairs.
+- Often, I was surrounded by a crowd of people - adults and children - while entering the building and going up the stairs.
 - I start to think about this more seriously and I wonder if teachers and staff at the conservatory could be spiking students continuously over long periods with drugs. 
 - I tweet about it.
 - The content is translated, a lot.
 
 ![translated drug spiking tweet](../../content/images/translated%20posts%20about%20spiking.png)
 
-- I also post a picture of the proteinuria which has been bad since [I was targeted by Ugly in France](august.md#ugly) and my thoughts on how secret drugging and poisoning can explain it.
+- I also post a picture of the proteinuria (which has been bad since [I was targeted by Ugly in France](august.md#ugly)) and my thoughts on how secret drugging and poisoning can explain it.
 
 ![proteinuria](../../content/images/my%20urine%20pretty%20much%20every%20day%20at%20this%20point.png)
 
