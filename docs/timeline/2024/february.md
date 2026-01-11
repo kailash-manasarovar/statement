@@ -254,14 +254,14 @@ function googleTranslateElementInit() {
 - He is, apparently, a homeless drug addict from Portland Oregon but he baits me with information only the people of Dénia would know.
 - For a few days or maybe a week or so running up to the 19th February, I see his irrelevant and sporadic posts on my timeline, at the top; posts that suggest he is enduring a romantic obsession.
 - I empathize; and I think it could be the trumpet teacher, or someone close to him. 
-- He gives many details of things only he, the Canos, or their associates could know.
+- He gives many details of things only he, the Cano-Lopezes, or their associates could know.
 - To be honest, I'm so desperate to communicate with the trumpet teacher, I believe everyone I interact with online could be him.
 - I'm aware, also, that even if these people are not the trumpet teacher, something I'm pretty sure is the case, the trumpet teacher will see all my attempts at communication anyways.
 - (That was really my state of mind, and my approach to the online abuse the whole time.)
 - I tell him I don't believe he is who he says he is. 
-- He posts an identification document for Mark Moseley from Portland Oregon, in exactly the same way other accounts have done; for example [`@lucyinbetween`](https://x.com/lucyinbetween).
+- He posts an identification document for Mark Moseley from Portland Oregon, in exactly the same way other accounts have done; for example [`@lucyinbetween`](https://x.com/lucyinbetween) (Lucy Adams from North London, Paul's friend).
 - I guess now that the account was another delegate, hacked, or stolen account.
-- It concerns me these people have copies of apparently genuine identity documents.
+- It concerns me these people have copies of apparently genuine identity documents from all over the world.
 - He tells me how he had prayed incessantly for something, for help, and I came along. 
 - It seemed reasonable to me, still does.
 - He asks me would I die for him. I do not respond.
@@ -425,20 +425,20 @@ function googleTranslateElementInit() {
 ![What do you think I should do](../../content/tweets/what-do-you-think-i-should-do.png)
 
 - You can see some of their replies here: https://x.com/1FRGVN/status/1759685644278723021.
-- At the time of writing, Sunday 24th November 2024, the account is deleted (now suspended) and so I am unable to see any past messages I didn't screenshot.
-
-![Threat of violence from Mark Mosely account](../../content/images/threats/threat-2.png)
-
 - I see some other threats which are unsettling, including replies from fake quick-spin-up accounts the following morning before I go to the police. An example:
 
 ![Threat of violence from Mark Mosely account](../../content/images/threats/threats-around-threats.png)
 
-- Interestingly, only a few days prior to drafting this section up, on Wednesday 20th November 2024 in Bangkok, I checked this account and it was still live and posting.
+- On Sunday 24th November 2024, the account was deleted (now suspended) and so I am unable to see any past messages I didn't screenshot.
+
+![Threat of violence from Mark Mosely account](../../content/images/threats/threat-2.png)
+
+- Only a few days prior to drafting this section up, on Wednesday 20th November 2024 in Bangkok, I checked the account and it was still live and posting.
 
 ![Account still live and posting just a few days ago](../../content/images/threats/threat-of-violence-ac-open-a-few-days-back.png)
 
 - When I got around to drafting this section, just days later, the account had been deleted.
-- I consider that to demonstrate how the porn-gang hackers were/are monitoring everything I do in real-time.
+- I consider that to demonstrate how the porn-gang hackers monitor everything I do in real-time.
 - Going back to the original threat, I consider the threat to be credible and to mean that someone may throw acid on my face. 
 - I send a copy of the threat to the Alicante directorate too, asking them if they will now do something.
 
@@ -465,7 +465,7 @@ function googleTranslateElementInit() {
 - Is this an admission from the porn-gangs that they are using all the babies they can get their hands on in the region for porn, even the babies born to their own family-members, and the (potential) mothers know it?
 - Have the gangs become so bold now that, not only have they successfully infiltrated the school system, but all the women in the region know exactly what's been happening to the babies over the last decades; generations of children growing up severely traumatized?
 - Is the Mark Moseley character the [second trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013), the [third, Gloria's brother, known to have fathered multiple children in the region](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), or [the monster](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man)?
-- Would all those men be involved in procuring babies for Hazel Smith and the British porn-gangs most lucrative porn made by their baby-rape department?
+- Would all those men be involved in procuring babies for Hazel Smith and the British porn-gang's most lucrative product made by their flourishing baby-rape department?
 - Was this a line that, once crossed, a tiny segment of the community could not live with?
 
 ## Documenting my conscious awareness on X
