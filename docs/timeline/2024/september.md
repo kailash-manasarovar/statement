@@ -532,30 +532,31 @@ function googleTranslateElementInit() {
 
 ### Poisoning
 
-- Poisoning becomes another major *theme* online from the end of September.
-- Am I being warned?
-- The fake account `@criticalfemme` below contains an explanation of how they drugged at the conservatory.
-- The references to "cat ear medicine" suggesting some substance is administered into the ear while you are distracted.
+- Poisoning, like [murder](#murder), becomes another major *theme* online from the end of September.
+- Is it warning or threat?
+- The fake account `@criticalfemme` below pops-up with an explanation of how they drugged at the conservatory.
+- The references to "cat ear medicine" suggests a debilitating substance is administered into the ear while a target (cat = Katharine) is distracted.
 
 ![cat ear medicine](../../content/images/poisoning-in-the-ear.png)
 
-- I realize that could very wll have happened every time I went to the conservatory for classes.
+- I realize that could very well have happened to me every time I went to the conservatory for classes.
 - Often, I was surrounded by a crowd of people while entering the building and going up the stairs.
-- I start to think about this more seriously and I wonder if people could be spiked continuously over long periods with drugs. 
-- I tweet about it and the content is translated a lot.
+- I start to think about this more seriously and I wonder if teachers and staff at the conservatory could be spiking students continuously over long periods with drugs. 
+- I tweet about it.
+- The content is translated, a lot.
 
 ![translated drug spiking tweet](../../content/images/translated%20posts%20about%20spiking.png)
 
-- I also post an example of the proteinuria which has been bad since [I was targeted by Ugly in France](august.md#ugly) and got a chest infection shortly afterwards.
-- I explain my thinking on drugging and poisoning and the resulting affects on a person.
+- I also post a picture of the proteinuria which has been bad since [I was targeted by Ugly in France](august.md#ugly) and my thoughts on how secret drugging and poisoning can explain it.
 
 ![proteinuria](../../content/images/my%20urine%20pretty%20much%20every%20day%20at%20this%20point.png)
 
-- The *cat ear medicine* account says *I'm so sorry!*; another too common occurrence.
+- The *cat ear medicine* account says *I'm so sorry!*.
+- Another too common occurrence.
 
 ![I'm so sorry](../../content/images/i'm%20so%20sorry.png)
 
-- They're not sorry at all.
+- They're not sorry at all, obviously.
 
 ## Google searches
 
