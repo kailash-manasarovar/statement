@@ -520,7 +520,7 @@ function googleTranslateElementInit() {
 
 - From when I arrived back in my apartment at Carrer Furs, I believe the porn-gang's intention was to poison me, and get rid of me.
 - I thought it was because I refused to leave my home that I loved (with no clue about what was really happening there), and Dénia, a town I have loved since October 1997.
-- It must have been extremely annoying for the porn-gangs that I never left, or stopped writing about my experiences online in tweets, but I was extremely conscious of the fact that leaving Dénia would have made me open to being targeted out of sight, in a far worse manner most likely.
+- It must have been extremely annoying for the porn-gangs that I never left, or stopped writing about my experiences online in tweets, but I was extremely conscious of the fact that leaving Dénia would have left me open to being targeted out of sight, in a far worse manner most likely.
 
 ![Murder warning](../../content/images/fake-accounts/murder-warning.png)
 
@@ -528,7 +528,7 @@ function googleTranslateElementInit() {
 - This was also a period where I was so high in my home I was hallucinating, badly.
 - This strikes me as the gangs not really wanting me to leave at all - I couldn't think straight about anything.
 - Was their sole intention to murder me, for their subscribers' pleasure live and direct on the porn networks?
-- Were my soon-to-be ex-colleagues at Polygon excited about that?
+- Were my soon-to-be ex-colleagues at Polygon and the lucrative tech-bro-porn-addict community excited about that?
 
 ### Poisoning
 
