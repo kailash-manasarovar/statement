@@ -532,22 +532,30 @@ function googleTranslateElementInit() {
 
 ### Poisoning
 
-- I wonder if this fake account contains an explanation of how they managed to drug me in class at the conservatory, some sort of "cat ear medicine" meaning did they manage to put a puff of powder in my ear?
-- Could that have happened while going into the conservatory before class and being surrounded by a crowd of people while going up the stairs?
+- Poisoning becomes another major *theme* online from the end of September.
+- Am I being warned?
+- The fake account `@criticalfemme` below contains an explanation of how they drugged at the conservatory.
+- The references to "cat ear medicine" suggesting some substance is administered into the ear while you are distracted.
 
 ![cat ear medicine](../../content/images/poisoning-in-the-ear.png)
 
-- I tweet about how people could be being spiked over long periods with drugs. The tweet is translated a lot.
+- I realize that could very wll have happened every time I went to the conservatory for classes.
+- Often, I was surrounded by a crowd of people while entering the building and going up the stairs.
+- I start to think about this more seriously and I wonder if people could be spiked continuously over long periods with drugs. 
+- I tweet about it and the content is translated a lot.
 
 ![translated drug spiking tweet](../../content/images/translated%20posts%20about%20spiking.png)
 
-- I post an example of my proteinuria which has been bad since I had a chest infection at the end of August.
+- I also post an example of the proteinuria which has been bad since [I was targeted by Ugly in France](august.md#ugly) and got a chest infection shortly afterwards.
+- I explain my thinking on drugging and poisoning and the resulting affects on a person.
 
 ![proteinuria](../../content/images/my%20urine%20pretty%20much%20every%20day%20at%20this%20point.png)
 
-- The cat ear medicine account says they are so sorry.
+- The *cat ear medicine* account says *I'm so sorry!*; another too common occurrence.
 
 ![I'm so sorry](../../content/images/i'm%20so%20sorry.png)
+
+- They're not sorry at all.
 
 ## Google searches
 
