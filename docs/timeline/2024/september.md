@@ -571,7 +571,7 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/google-searches/sept-24/google-search-1.png )
 
-- On the "@jctot19 X" results below, we still see the Carmen Lopez-Canos account `@sinremite` - now deleted - and [Rocio Vidal](august.md#6) is in first place.
+- On the "@jctot19 X" results below, we still see Carmen Lopez-Cano's account `@sinremite` - now deleted - and [Rocio Vidal](august.md#6) is in first place.
 
 ![pic]( ../../content/images/google-searches/sept-24/google-search-2.png )
 
@@ -585,7 +585,7 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/google-searches/sept-24/google-search-4.png )
 
-- It's curious it was coming up in September... the message was probably a response to something specific, I can't remember now.
+- It’s curious it was coming up in September and the tweet was from April… the message was probably a response to something specific, I can’t remember now... or is it a side-effect of tailoring search results from specific dates in the past?
 
 [![smiling at dickheads](../../content/tweets/smiling-at-dickheads.png)](https://x.com/1FRGVN/status/1784612259953528892)
 
@@ -598,7 +598,7 @@ function googleTranslateElementInit() {
 
  ![pic]( ../../content/images/google-searches/sept-24/google-search-5.png ) 
 
-- To make sure and certain I did not think about signing up for the conservatory again, they must have moved the pic of Paqui Fornet and the stalker message up to first place.
+- To make sure and certain I did not think about signing up for the conservatory again, they moved the pic of Paqui Fornet and the stalker message up to first place.
 
 ![pic]( ../../content/images/google-searches/sept-24/google-search-6.png ) 
 
