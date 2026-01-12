@@ -560,16 +560,49 @@ function googleTranslateElementInit() {
 
 ## Google searches
 
-| Google searches from September |
-|-|
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-1.png )
-Paqui Fornet Pastor still coming up. |
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-2.png )
-Carmen still coming up. |
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-3.png ) 
-The message coming up again that I [showed Alessandra in December 2023](../2023/december.md#meeting-alessandra). |
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-4.png ) |
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-5.png ) 
-The pic of Jack Nicholson here was significant. |
-| ![pic]( ../../content/images/google-searches/sept-24/google-search-6.png ) 
-The [stalker gaslighting message from March](march/1-12.md#aniloviator) still coming up and in first place, next to Paqui. Wow. |
+- This is a selection of porn-gang-tailored Google search results coming up this month.
+- In the first set below, coming from the "@1frgvn X" search, you see Paqui Fornet again, my piano teacher at the conservatory and director of the [outrageous piano concert where someone dressed up to look like Lorraine Blackbourn deceased](march/1-12.md#the-piano-concert).
+- She hadn't popped up since April 2024, making sure I didn't return to classes after Easter.
+- To the left of her is a stalker post from March's vicious attacks - see [`@aniloviator`](march/1-12.md#aniloviator) - and one they will have seen me pondering over.
+- They must have added Paqui back in September, next to this poisonous message, to make sure I wasn't high enough from whatever they were dosing me up on at home to sign up for conservatory classes again as the new school year was just starting!
+- Is this why [Sandra asked me if I was going to return to classes](#sandra-diaz-at-the-royalty) again? Were they genuinely concerned I would try to return?
+- (I wasn't high enough to go back to the conservatory again, but I was high enough to [make a YouTube video](october.md#youtube-with-kelly-oliver-dougall) and tell the world what was going on though... :-))
+- You can also see one of the [trumpet-teacher as a boy pics](august.md#the-trumpet-teacher-sends-me-photos-of-himself-and-his-family) on the second row - a pic that was sticky enough to remain for over 18 months in nearly first place, and is now gone.
+
+![pic]( ../../content/images/google-searches/sept-24/google-search-1.png )
+
+- On the "@jctot19 X" results below, we still see the Carmen Lopez-Canos account `@sinremite` - now deleted - and [Rocio Vidal](august.md#6) is in first place.
+
+![pic]( ../../content/images/google-searches/sept-24/google-search-2.png )
+
+- The message that feels like it is for me is still coming up in these results; the one I showed and described to [Alessandra in December 2023](../2023/december.md#meeting-alessandra).
+- Translating something like: they thought you were an idiot, but you weren't, and now it just keeps getting worse for them.
+- This message is still valid, most marvelously.
+
+![pic]( ../../content/images/google-searches/sept-24/google-search-3.png ) 
+
+- Oh, I added this again to just mentioned, ahem, how JK Rowling had liked one of my tweets, ahem.
+
+![pic]( ../../content/images/google-searches/sept-24/google-search-4.png )
+
+- It's curious it was coming up in September... the message was probably a response to something specific, I can't remember now.
+
+[![smiling at dickheads](../../content/tweets/smiling-at-dickheads.png)](https://x.com/1FRGVN/status/1784612259953528892)
+
+- There's a few things to mention about the "@jctot19 X" search results below.
+- I wonder about the first pic with the woman. Is she a target?
+- The camera pic which says *one every 8 hours*, may have been a direct response to a question I had, something like *how many women are being targeted online?*.
+- The lists may be from the Generalitat - I saw a lot of Generalitat documentation on this account's results around October 2023 which prompted me to [make my first complaint in writing](../2023/october.md#first-letter-to-the-generalitat).
+- I can't remember why specifically, but the Jack Nicholson pic was significant.
+- Often, when I had won a minor skirmish online, the `@jctot19` account would post something relevant in response and, in this case, the murderer dying in the cold referred to something I had posted about Domingo, I believe.
+
+ ![pic]( ../../content/images/google-searches/sept-24/google-search-5.png ) 
+
+- To make sure and certain I did not think about signing up for the conservatory again, they must have moved the pic of Paqui Fornet and the stalker message up to first place.
+
+![pic]( ../../content/images/google-searches/sept-24/google-search-6.png ) 
+
+### Google conspirators?
+
+- Do the gangs steal or buy backend Google logins?
+- Or do they have misogynist insiders at Google who are happy to target women for discounts on the *tech-colleague you hate* porn subscriptions?
