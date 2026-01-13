@@ -60,6 +60,7 @@ nav:
       - "2008": timeline/early-years/2008.md
       - "2009": timeline/early-years/2009.md
       - "2010": timeline/early-years/2010.md
+      - "2011": timeline/early-years/2011.md
       - "2012": timeline/early-years/2012.md
       - "2013": timeline/early-years/2013.md
       - "2014": timeline/early-years/2014.md
@@ -123,6 +124,8 @@ nav:
       - October: timeline/2025/october.md
       - November: timeline/2025/november.md
       - December: timeline/2025/december.md
+    - "2026":
+      - January: timeline/2026/january.md
   - Crimes:
     - Protagonists: 
       - Vidal Sastre Sanchez Hornero: crimes/protagonists/vidal-sastre.md

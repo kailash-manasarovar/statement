@@ -1027,6 +1027,7 @@ function googleTranslateElementInit() {
 - A man is taking his trousers down to show his penis.
 - I mention [dick pics on Twitter in January 2024](../2024/january.md#dick-pics-from-the-choir-teacher), right before choir class.
 - During the class, he receives a WhatsApp message, reads it, and becomes apoplectic.
+- His choice of repertoire is significant; *Can't help falling in love*, being one obvious choice just for me and everyone who knows what's happening to me and other students at the school.
 
 ## Apes beating their chests
 

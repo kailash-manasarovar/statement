@@ -192,8 +192,12 @@ function googleTranslateElementInit() {
 
 ### Targeted by online scammers
 
-- I quickly fall into the clutches of an extraordinarily unpleasant company Key 1 Properties who I book a flat to stay in for two weeks in December 2019 while I'm looking for permanent accommodation.
+- I quickly fall into the clutches of an extraordinarily unpleasant company [Key 1 Properties](https://www.keyoneproperty.co.uk/) run by a wild man and his family.
+- The website has changed, and the street address for the business has also changed since 2020.
+- He is called Mark.
+- I book a flat to stay in for two weeks in December 2019 while I'm looking for permanent accommodation.
 - I book or find them through Hotels.com. 
+- It's the only option coming up.
 - I end up having to pay them directly, I think, which is why their scam is successful.
 - I wonder if I'm lured online to this result or if it's just bad luck.
 - The property is an upstairs apartment on Ravenhill Court and may have been the scene of a horrific violent murder in the past.
@@ -202,10 +206,31 @@ function googleTranslateElementInit() {
 - The apartment has security cameras all over it. I only knew this in retrospect when I bought some myself and realized what these strange items were on the kitchen surface and bedside table.
 - I'm very uneasy, I have a terrible night in dread and fear, a living nightmare, and I leave the following morning.
 - My car was keyed while parked outside that night.
-- The company insists they will not refund me and, although I do get most of my money back as I paid by credit card, I attempt to take them to small claims but they bully and threaten me so much I give up.
-- When I research them, I find out that they are very likely a criminal gang.
+- The company insists they will not refund me; they are extremely wild people.
+- I do get most of my money back as I paid by credit card, I attempt to take them to small claims but they bully and threaten me so much I give up.
+- This business went on for months in the year I stayed in Belfast.
+- When I research them online, I find out that they are very likely a criminal gang; a lot of complaints just like mine, he's apparently driving around in a Ferrari, that sort of thing.
 - This is the first moment I feel like I have ants all over me and I cannot get them off.
 - I will feel this way until August 14th 2025.
+
+### Finding a flat in Belfast
+
+- I stay at the Marriott in Belfast and look for a rental property.
+- Again, looking back, it seems I'm lured to places online.
+- A curious incident occurs at the first apartment I look at where as we're coming out of the apartment a small wiry man who gives me a bad feeling is coming out of the opposite apartment with a scantily clad woman.
+- Is he Mark from Key One?
+- I always thought something was weird about that; staged.
+- I eventually rent an apartment at the Obel Tower.
+- It turns out the whole building is accessible by anyone and everyone.
+- There is a bunch of skeleton keys that the caretakers have that open every single apartment in the building.
+- The caretakers are rough Belfast men.
+- It's not possible to secure your apartment from the inside. They can enter at any time. Apparently this is health and safety now!
+- I am very uneasy the whole time I live there and I have a feeling someone could come into the flat at anytime.
+- I even sleep with a knife close to my hand I'm so convinced I'm in danger. I kid you not. I even tweet about that.
+- Could the Key 1 event be the *outrageous and traumatic event* they set up to explains continued fear and anxiety (like the conservatory bullying) which is actually instead coming from the regular sedation after going to sleep and men entering my apartment without my knowledge?
+- Just like Denia?
+- Are remote control sedating mechanisms placed in my bedroom by men who manage the building, or gangs that pay them for access to the keys and the whole building is being used for spy-cam sedated rape porn of single vulnerable women?
+- Could it be possible?
 
 ### Transforming the experienced-based brain
 
