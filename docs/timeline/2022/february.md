@@ -15,6 +15,8 @@ function googleTranslateElementInit() {
 
 ![Sainte Baume grotto](../../content/images/Sainte-Baume-Grotto.webp)
 
+- Before I leave, I ask Mary Magdalene to help get justice for Noah Donohoe.
+
 ## Moving back to Dénia
 
 - I drive through France and down into Spain.

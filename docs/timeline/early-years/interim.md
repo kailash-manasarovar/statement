@@ -212,6 +212,8 @@ function googleTranslateElementInit() {
 - When I research them online, I find out that they are very likely a criminal gang; a lot of complaints just like mine, he's apparently driving around in a Ferrari, that sort of thing.
 - This is the first moment I feel like I have ants all over me and I cannot get them off.
 - I will feel this way until August 14th 2025.
+- I speak to my mother on the phone. I explain everything that has happened with this people. It's as if I had said nothing at all. She completely ignores me.
+- The gangs will have been listening, noting it, assuring themselves even further that I am a worthy target and no-one will ever help me.
 
 ### Finding a flat in Belfast
 
