@@ -4,6 +4,8 @@
 
 - Word on the street is I had a date in Barcelona.
 - I'm wondering when now.
-- I was up and down to Barcelona many times between 2005-2016 when I lived in Denia.
-- Let's list those visits here - as much as possible - and see which one is the most likely although I'm going for the time I visited Barcelona in 2016 probably to do a yoga class with P Jois's daughter who had flown in from India and I stayed in a hotel outside the city in a small town with the most expensive parking meters in Spain, probably.
-- wip
+- I was up and down to Barcelona so many times between 2005-2016 when I lived in Denia.
+- Let's list those visits here - as much as possible - and see which one (or more) is the most likely although I'm going for the time I visited Barcelona in 2016 probably to do a yoga class with P Jois's daughter who had flown in from India and I stayed in a hotel outside the city in a small town with the most expensive parking meters in Spain, probably.
+- Of course, there was the invitation from Grace to meet her and Nadim (and others I suppose) in Barcelona just after I started at Polygon too.
+- wip.. will editorial this one shortly...
+
