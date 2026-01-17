@@ -112,6 +112,23 @@ function googleTranslateElementInit() {
 - Looking back, I believe two men may have had intentions of getting me into a sexual relationship at the office. The first man "popped up" on the first day and I just got this awful feeling from him. It had been planned he would sit with us but then he didn't. A couple of weeks later another guy joins, the web developer, and sits in front of me. I liked him, not romantically obviously, but he seemed like a cool guy. I just wonder about him now... or maybe they were hoping something would happen and then they'd bring him in. He never replied to my messages after I left.
 - Also, Jo, another developer there was the husband of an Iyengar yoga teacher from Maida Vale, my yoga school. I wonder if he noticed what was going on for me?
 
+## December 2018
+
+- Heading off to France.
+- I get a huge wad of cash for my trip ready.
+- It's in the top of my handbag, I haven't closed my handbag.
+- I'm using my phone, the camera is operational; anyone with a view of my hacked phone camera will see the wad of cash at the top of my handbag.
+- I leave the house and walk to the car.
+- A man is approaching me, he is walking in the road smiling at me, saying something weird.
+- I don't like the look of him.
+- Black hair, pale skin, medium build, a little overweight.
+- He walks over to me and reaches out to put his hand in my bag.
+- At that moment my neighbor Charlie comes out of his house (which I'm parked right outside).
+- The man turns and leaves very quickly.
+- He literally had his hand very nearly in my bag; as if he knew what was in there!
+- I report this to the local community officer Jan.
+- She says; oh he was probably just a bit drunk and being friendly!
+
 ## January 2019
 
 - An old friend Willow comes round, I wonder what prompted her to visit, it was not a good time.
