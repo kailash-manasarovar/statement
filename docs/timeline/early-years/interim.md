@@ -114,11 +114,12 @@ function googleTranslateElementInit() {
 
 ## December 2018
 
-- Heading off to France for Christmas.
+- I'm heading off to France for Christmas by car.
 - I get a huge wad of cash for my trip ready.
 - It's in an envelope resting on the top of my handbag.
 - I haven't closed my handbag.
 - I'm using my phone, the camera is operational; anyone with a view of my hacked phone camera will see the wad of cash at the top of my handbag as I constantly use it with the camera pointed to my bag on the table in front of me.
+- I may have been pointing the phone's camera at the top of my handbag for hours.
 - Eventually, I leave the house and go outside to the car.
 - A man is approaching me from the top of the street.
 - He's on the pavement, then he sees me and steps out on the road, walking towards me, smiling at me, saying something weird.
@@ -133,7 +134,9 @@ function googleTranslateElementInit() {
 - He literally had his hand very nearly in my bag; as if he knew what was in there!
 - I report the incident to the local community police officer Jan.
 - She says; *oh he was probably just a bit drunk and being friendly!*
-- I think he was going to rob me and he had inside information from his associates who were hacking my phone and monitoring my every move.
+- I think he was going to rob me and he had inside information about the 500 euros in the top of my bag from his associates who were hacking my phone, seeing the money, and monitoring my every move.
+- *Why not ay?*; they probably thought.
+- Perhaps they made a loss on the [lack of a suicide after getting sacked from Adaptive](#hired-for-sport-again) and were annoyed about it.
 
 ## January 2019
 
