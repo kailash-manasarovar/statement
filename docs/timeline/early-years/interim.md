@@ -118,8 +118,8 @@ function googleTranslateElementInit() {
 - I get a huge wad of cash for my trip ready.
 - It's in an envelope resting on the top of my handbag.
 - I haven't closed my handbag.
-- I'm using my phone, the camera is operational; anyone with a view of my hacked phone camera will see the wad of cash at the top of my handbag as I constantly use it with the camera pointed to my bag on the table in front of me.
-- I may have been pointing the phone's camera at the top of my handbag for hours.
+- I'm using my phone, the camera is operational; anyone with a view from my hacked phone camera will see the wad of cash at the top of my handbag as I'm constantly using the phone with the camera pointed to my handbag sitting on the table in front of me.
+- I was probably pointing the phone's camera at the top of my handbag for hours.
 - Eventually, I leave the house and go outside to the car.
 - A man is approaching me from the top of the street.
 - He's on the pavement, then he sees me and steps out on the road, walking towards me, smiling at me, saying something weird.
@@ -128,15 +128,15 @@ function googleTranslateElementInit() {
 - He walks towards me and he's getting really close.
 - I can't remember what he's saying, something ridiculous I told Jan about. It'll be in the records.
 - He's about a metre away from me now, and reaches his hand towards my open handbag which I have hanging on my arm.
-- It's very surprising and I feel threatened by it.
+- It's very surprising and I feel threatened.
 - At that moment, my neighbor across from us, Charlie, comes out of his house (which I'm parked right outside).
 - The man turns and leaves very quickly.
 - He literally had his hand very nearly in my bag; as if he knew what was in there!
 - I report the incident to the local community police officer Jan.
 - She says; *oh he was probably just a bit drunk and being friendly!*
-- I think he was going to rob me and he had inside information about the 500 euros in the top of my bag from his associates who were hacking my phone, seeing the money, and monitoring my every move.
+- I think he was going to rob me and he had inside information about the 500+ euros in the top of my bag from his associates who were hacking my phone, seeing the money, and monitoring my every move.
 - *Why not ay?*, they probably thought.
-- Perhaps they made a loss on the [lack of my suicide after I got sacked from Adaptive](#hired-for-sport-again) and were annoyed with me.
+- Perhaps they made a huge loss on the [lack of my suicide after I got sacked from Adaptive](#hired-for-sport-again) and were annoyed with me.
 
 ## January 2019
 
