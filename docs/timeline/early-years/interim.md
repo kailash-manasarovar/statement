@@ -135,8 +135,8 @@ function googleTranslateElementInit() {
 - I report the incident to the local community police officer Jan.
 - She says; *oh he was probably just a bit drunk and being friendly!*
 - I think he was going to rob me and he had inside information about the 500 euros in the top of my bag from his associates who were hacking my phone, seeing the money, and monitoring my every move.
-- *Why not ay?*; they probably thought.
-- Perhaps they made a loss on the [lack of a suicide after getting sacked from Adaptive](#hired-for-sport-again) and were annoyed about it.
+- *Why not ay?*, they probably thought.
+- Perhaps they made a loss on the [lack of my suicide after I got sacked from Adaptive](#hired-for-sport-again) and were annoyed with me.
 
 ## January 2019
 
