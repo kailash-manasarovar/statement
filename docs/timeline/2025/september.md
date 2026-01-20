@@ -157,16 +157,16 @@
 - I remain assured whatever it is will be nothing I can't handle.
 
 !!! info "Remembering a *whole bunch* of things"
-    - Around a week after the course I remember [the four distinct men who acted as trumpet teacher](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) at the conservatory in the switcheroo porn and [how Gabriel Silva had used the word "switcheroo" in the process of trying to bully me out of my job in August 2024](../2024/august.md#gabriel-silvas-first-team-meeting-as-manager).
+    - Around a week after the course I remember [the four distinct men who acted as trumpet teacher](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) at the conservatory in the switcheroo porn scam and [how Gabriel Silva had used the word "switcheroo" in the process of trying to bully me out of my job in August 2024](../2024/august.md#gabriel-silvas-first-team-meeting-as-manager).
     - I remember [my father's involvement](../early-years/2015.md#inexplicable-anal-fissure) with Domingo Lopez Cano from 2013 onwards.
     - I remember [my cousin Igor's unusual interest in my apartment at Ramon Ortega](../early-years/2012.md#passeig-periodista-ramon-ortega) that my father had repeatedly and excitedly told him about, insisting he must bring his young family there to visit.
     - I remember that, even though I had moved out of the apartment at Ramon Ortega, my cousin did [bring his young family on their summer holiday to Denia](../early-years/2014.md#marie-carmen-from-tlc) for a few weeks in 2014.
     - I mentioned this fact to dad, with horror; he becomes angry and says, *I'd better speak to Igor* in a tone that sounded like he was condemning me for something.
-    - Both my parents, at that moment, start going on about my previous interest in Haitian spiritual practices as if that assures the world I'm not worth listening to.
+    - Both my parents, at that moment, start going on about my previous interest in Haitian spiritual practices as if that will assure the world I'm not worth listening to.
     - My aunt Patricia would also do that.
-    - Inma also did this in January just after [we went to the police to report poisoning](january.md#madrid-policia) and I was ignored.
+    - Inma also did this in January just after [we went to the police in Madrid to report poisoning](january.md#madrid-policia) and I was ignored.
     - I wonder why they're all so keen to find something to condemn me about.
-    - In late November, someone told me I would never, ever have to return here... and I believed them because I was suffering from the revelations.
+    - In late November, in Bangkok near Lupini Park, someone told me I would never, ever have to return to this hideous environment that has always sought to destroy me… and I believed them as I was suffering from these horrible revelations.
     - And here I am, about to go back there.
     - So I don't trust anyone near Lupini anymore, and probably someone warned me in any case so I was on the alert.
     - And I keep hearing Philip Seymour Hoffman in my head... as you might imagine.
@@ -175,12 +175,15 @@
 
 - The gangs know I am still of the opinion there was only one man at the conservatory acting as trumpet teacher.
 - In about a week's time I will remember the [full switcheroo scandal at the Spanish music school](october.md#thunderbolt-clarity) and start to realize the extent of the scandal outwards into the professional world of technology, international terrorism, and beyond.
-- On the course, the gangs, I assume, send...
-    - A wild and aggressive pro-Pally woman who keeps giving me bear hugs with her giant watermelon earings swinging freely.
-    - A man who makes a pass at me by putting his name badge into my handbag in a secure space while it is unattended and I find it when I get to my room.
-    - A German woman who keeps calling me Saint Catherine.
-- They sit very close to me.
+- I realize I was not blinded by poison, I was brain-damaged; I have been looking at the photos of numerous different men for nearly 3 years and my mind only registering one man!
+- Soon, someone will do an impromptu test on brain function and confirm brain injury. He also mentions how stroke victims struggle to identify objects out of context and this sounds like EXACTLY what the porn-gangs of Denia require of their victims.
+- What a scam! You could literally set up one person to be the fall-guy for every crime you do if you brain-damage all your victims!!!!
+- On the course, the gangs (still panicking about my continued survival) I assume, send...
+    - A wild and aggressive pro-Pally woman who keeps giving me bear hugs with her giant watermelon earrings swinging freely.
+    - A man who makes a pass at me by putting his name badge into an inside pocket of my handbag while it is briefly unattended and I find it when I get to my room.
+    - A German woman who keeps calling me Saint Catherine and makes light of the man's boundary-breaking advance.
+- They sit very close to me in class.
 - It's all a bit disconcerting.
 - I realize I can't work with anyone online without informing them I'm hacked by criminal gangs.
-- I also have a feeling if I return, in January, I might end up in some sort of Guantanimo situation, or spend the rest of my life on my own in a hotel room somewhere with only a manipulative and lying ChatGPT for company, helping no-one at all.
+- I also have a feeling if I return to Dublin, in January 2026, I might end up in some sort of Guantanimo situation, or spend the rest of my life on my own in a hotel room somewhere with only a manipulative and lying ChatGPT for company, helping no-one at all.
 - I'd rather risk the devil I know than become a full time lab-rat.
