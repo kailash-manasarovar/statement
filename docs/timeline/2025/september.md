@@ -185,5 +185,4 @@
 - It's all a bit disconcerting.
 - I realize I can't work with anyone online without informing them they will be being viewed online by criminal gangs as I'm hacked so badly.
 - I also have a feeling if I return, in January, I might end up in some sort of Guantanimo situation, or spend the rest of my life on my own in a hotel room somewhere with only ChatGPT for company, helping no-one at all.
-- I'd rather risk the devil I know than die of sadness.
-
+- I'd rather risk the devil I know than become a full time lab-rat.
