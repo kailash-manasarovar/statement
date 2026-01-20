@@ -21,3 +21,20 @@ function googleTranslateElementInit() {
 - I'll do a full and thorough list cos there's so much of it.
 - In progress.
 
+## Could Brian have known Ugly in 2001?
+
+- Pathologically inclined to think the best of everyone - not a bad thing - I start to wonder if perhaps the [weird occurrence with the ugly man](../early-years/2001.md) in Amsterdam in 2001 imply that Brian - my boyfriend at the time - knew who he was?
+- In November 2024, Brian and I had a long forgiving chat about the past on Facebook which was really healing.
+- A few days later, [I remembered Ugly in the back of the car at the Holiday Inn in Amsterdam](../2024/december.md#unable-to-access-my-laptop) after a stalker account posted a triggering picture on X.
+- I continue the Facebook chat with Brian, and I ask him if he remembered the weird event with the ugly man or me telling him about it?
+- He answers: *we were very high in those days*, or similar, and nothing else.
+- Not a: *no, what was that all about, that's weird*, or *mm, maybe I remember you saying something about that*... no.
+- "We were very high in those days."
+- Brian did have a dreadful coke habit at that time, which is also, perhaps, significant.
+- I just followed along really... anyway.
+- If Brian does know Ugly, that puts our relationship into an ugly place.
+- Was there a sedated session that night in our hotel room in Amsterdam?
+- I have vague recollections of being in the bar, drunk with Brian, and then nothing until waking up in the middle of the night in our room.
+- If Ugly was playing a part in our lives without my knowledge, did he also interact with Niall Brian's brother, [Paul](../2025/january.md#paul), yes *the* Paul, and even a common friend Simon who came to visit with the boys one evening (me the lone female in the house)?
+- Is there porn of these events?
+- I'd like to think not... but...
