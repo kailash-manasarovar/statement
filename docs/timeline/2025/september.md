@@ -158,31 +158,26 @@
 - I remain assured it will be nothing I can't handle.
 
 !!! info "Remembering a whole bunch of things"
-    - Yes, it happened.
-    - Update: [I'm handling it](../early-years/2015.md#inexplicable-anal-fissure), but there is no doubt the information, and my family's reactions to it, would have killed me outright not that long ago.
-    - The betrayal is immense, incomprehensible.
-    - I was thrown to the wolves and left for dead by my own family, again and again.
-    - At any moment, my father could have told the police what was going on, and at the very least warned me about what was happening so I could stop it.
-    - At any moment, my father could have told the police what Domingo showed him in the toilet at the Casa Cultura.
-    - The emotional wound from what happened undoubtedly caused my suicidal depression from 2016-2023 and would have killed me outright.
-    - It's curious that going back to that situation in 2022 somehow healed me of it. God was with me, every second, and still is.
-    - I'm reminded, yet again so no big surprises, of how evil the people closest to me are after my mother blamed me once again for apparently *choosing* to be a multiple rape-gang victim which now possibly includes my father's involvement - he has not denied it - and my brother called me a *tart* repeatedly looking at me as if I was dirt on his shoe.
-    - Again, BAU for the people here whenever the unwelcome truth pops up...
-    - I pray the whole truth emerges unhindered for me and other victims, and for the rape-apologists too who might be finally held to account by people they can't simply insult and silence.
-    - I myself am fully done with them.
-    - I've been waiting for apologies for years already.
-    - There's more important stuff to be getting on with than pandering to perverts and their supporters.
-    - I make ask him stuff though. That seems to be a good idea.
+    - Around a week after the course I remember [the four distinct men who acted as trumpet teacher](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) at the conservatory in the switcheroo porn and [how Gabriel Silva had used the word "switcheroo" in the process of trying to bully me out of my job in August 2024](../2024/august.md#gabriel-silvas-first-team-meeting-as-manager).
+    - I remember [my father's involvement](../early-years/2015.md#inexplicable-anal-fissure) with Domingo Lopez Cano from 2013 onwards.
+    - I remember [my cousin Igor's unusual interest in my apartment at Ramon Ortega](../early-years/2012.md#passeig-periodista-ramon-ortega) that my father had repeatedly and excitedly told him about, insisting he must bring his young family there to visit.
+    - I remember that, even though I had moved out of the apartment at Ramon Ortega, my cousin did [bring his young family on their summer holiday to Denia](../early-years/2014.md#marie-carmen-from-tlc) for a few weeks in 2014.
+    - I mentioned this facts to dad, with horror; he became very angry and started saying, *I'd better speak to Igor* in a tone that sounded like he was condemning me for something.
+    - In late November, someone at Lupini told me I would never, ever have to go back here... and I believed them.
+    - And here I am, about to go back there.
+    - So I don't trust anyone at Lupini anymore, and probably someone warned me in any case so I was on the alert.
+    - And I keep hearing Philip Seymour Hoffman in my head...
 
 ### Also at TT
 
 - The gangs know I am still of the opinion there was only one man at the conservatory acting as trumpet teacher.
-- In about a week's time I will remember the [switcheroo scandal at the school](october.md#thunderbolt-clarity).
-- The gangs, I assume, send...
-    - A wild and aggressive pro-Pally woman.
-    - A man who makes a pass at me by putting his name badge into my handbag in a secure space while it is unattended.
+- In about a week's time I will remember the [full switcheroo scandal at the school](october.md#thunderbolt-clarity) and start to realize the extent of the scandal outwards into the professional world of technology, international terrorism, and beyond.
+- On the course, the gangs, I assume, send...
+    - A wild and aggressive pro-Pally woman who keeps giving me bear hugs with her giant watermelon earings swinging freely.
+    - A man who makes a pass at me by putting his name badge into my handbag in a secure space while it is unattended and I find it when I get to my room.
     - A German woman who keeps calling me Saint Catherine.
+- They sit very close to me.
 - It's all a bit disconcerting.
-- I realize I can't work with anyone online without informing them they will be being viewed online by criminal gangs as I'm hacked so badly.
+- I realize I can't work with anyone online without informing them I'm hacked by criminal gangs.
 - I also have a feeling if I return, in January, I might end up in some sort of Guantanimo situation, or spend the rest of my life on my own in a hotel room somewhere with only a manipulative and lying ChatGPT for company, helping no-one at all.
 - I'd rather risk the devil I know than become a full time lab-rat.
