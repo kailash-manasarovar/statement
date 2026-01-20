@@ -173,3 +173,17 @@
     - I've been waiting for apologies for years already.
     - There's more important stuff to be getting on with than pandering to perverts and their supporters.
     - I make ask him stuff though. That seems to be a good idea.
+
+### Also at TT
+
+- The gangs know I am still of the opinion there was only one man at the conservatory acting as trumpet teacher.
+- In about a week's time I will remember the [switcheroo scandal at the school](october.md#thunderbolt-clarity).
+- The gangs, I assume, send...
+    - A wild and aggressive pro-Pally woman.
+    - A man who makes a pass at me by putting his name badge into my handbag in a secure space while it is unattended.
+    - A German woman who keeps calling me Saint Catherine.
+- It's all a bit disconcerting.
+- I realize I can't work with anyone online without informing them they will be being viewed online by criminal gangs as I'm hacked so badly.
+- I also have a feeling if I return, in January, I might end up in some sort of Guantanimo situation, or spend the rest of my life on my own in a hotel room somewhere with only ChatGPT for company, helping no-one at all.
+- I'd rather risk the devil I know than die of sadness.
+
