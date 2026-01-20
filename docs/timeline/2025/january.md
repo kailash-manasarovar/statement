@@ -157,6 +157,13 @@
 - He says nothing.
 - They want nothing to do with me.
 - I suspect the report goes in the bin.
+- Later that evening over tea, Inma talks about how I used to be interested in Haitian spiritual practices (I wrote a novel with it as a theme) in a semi-condemning manner.
+- I explain that Mary introduced me to the practice and it turned out to be a strong psychological protective barrier against my fear of the Jamaican rape-gangs.
+- She gives me a slice of Reyes cake.
+- In it, is the black King.
+- She's telling me something... and I think it is that I'm the one everyone is condemning because I was raped by black men when I was a child.
+- Something is telling me that this fact makes all Spanish people detest me and justify anything against me, including murder or driving me to suicide.
+- Is she really telling me this?
 - A few days later, Inma tells me that the poisoning laboratory told her they would not test my samples without an order from the police.
 
 ## Seonaid Dawn and Granny Smith

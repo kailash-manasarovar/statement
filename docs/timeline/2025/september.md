@@ -145,13 +145,13 @@
 
 ## Healing process
 
-- On the therapy table I have lain extremely still for the five full years I have been doing the practice; like a stone.
-- Since March this year, while doing shares in Jerusalem at Purim, I cried a little, and since then my therapy process changed.
-- I started experiencing eye-twitching very slightly, and, as usual given I had no memory of anything else, I assumed this was something from 1989.
+- On the therapy table I have lain extremely still for the full five years I have been doing the practice; like a stone.
+- In March this year, while doing shares in Jerusalem at Purim, I cried a little, and since then my therapy process changed.
+- I started experiencing eye-twitching very slightly, and, as usual given I had no memory of anything else, I assumed this was coming from experiences in 1989.
 - In June, on an intensive, this eye-twitching became more pronounced.
-- On the course this month, the eye-twitching became quite extreme. It's as if some physical shocks are happening to the body and I'm registering it in the eyes alone.
+- On the course this month, the eye-twitching became quite extreme. It's as if physical shocks are happening to the body and I'm registering it in the eyes alone.
 - The changes also include fierce high-frequency head-shaking like I'm saying no repeatedly but can't vocalize or move my body.
-- I see this as confirmation of repeated sedated rape and/or worse.
+- I see this as confirmation of repeated sedated rape and attempted murder.
 - I'm looking forward to more healing and peace.
 - I guess I might remember a whole bunch of things now... (stated at the time of writing, check commit date).
 - I remain assured whatever it is will be nothing I can't handle.
@@ -162,12 +162,13 @@
     - I remember [my cousin Igor's unusual interest in my apartment at Ramon Ortega](../early-years/2012.md#passeig-periodista-ramon-ortega) that my father had repeatedly and excitedly told him about, insisting he must bring his young family there to visit.
     - I remember that, even though I had moved out of the apartment at Ramon Ortega, my cousin did [bring his young family on their summer holiday to Denia](../early-years/2014.md#marie-carmen-from-tlc) for a few weeks in 2014.
     - I mentioned this fact to dad, with horror; he becomes angry and says, *I'd better speak to Igor* in a tone that sounded like he was condemning me for something.
-    - Both my parents, at that moment, start going on about my previous interest in Haitian spiritual practices as if that makes me a bad person.
+    - Both my parents, at that moment, start going on about my previous interest in Haitian spiritual practices as if that assures the world I'm not worth listening to.
     - My aunt Patricia would also do that.
+    - Inma also did this in January just after [we went to the police to report poisoning](january.md#madrid-policia) and I was ignored.
     - I wonder why they're all so keen to find something to condemn me about.
-    - In late November, someone told me I would never, ever have to return here... and I believed them.
+    - In late November, someone told me I would never, ever have to return here... and I believed them because I was suffering from the revelations.
     - And here I am, about to go back there.
-    - So I don't trust anyone near anymore, and probably someone warned me in any case so I was on the alert.
+    - So I don't trust anyone near Lupini anymore, and probably someone warned me in any case so I was on the alert.
     - And I keep hearing Philip Seymour Hoffman in my head... as you might imagine.
 
 ### Also at TT training this month...
