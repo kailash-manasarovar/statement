@@ -37,5 +37,6 @@ function googleTranslateElementInit() {
 - Was there a sedated session that night in our hotel room in Amsterdam?
 - I have vague recollections of being in the bar, drunk with Brian, perhaps chatting with people there, and then nothing until waking up in the middle of the night in our room apparently after going to bed and sleep.
 - If Ugly was playing a part in our lives without my knowledge, did he also interact with Niall Brian's brother, [Paul](../2025/january.md#paul), yes *the* Paul, and even a common friend Simon who came to visit with the boys one evening (me the lone female in the house)?
-- Is there porn of these events?
-- I'd like to think not... but...
+- I have a feeling I remember Brian and Niall talking about a man they called "Ugly"... 
+- "Who's Ugly", I asked them..
+
