@@ -147,23 +147,31 @@
 
 ## Madrid policia 
 
-- I've sent Paul home so it's only Inma and I who attend the police in Calle Huertas in early January to report poisoning and bring samples, our [second visit](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
+- I send Paul home because his drug-addiction has made him a beggar man and I can't possibly bring him to the police station with me.
+- I had wanted a man to come with me for support, but Paul needs help way more than anyone else.
+- He also seems to be on something because he cannot shut up; or the North London gangs, still panicking about my continued survival, have instructed him to distract me, to not let me think, and so he's shouting continuously at me.
+- So I send him home.
+- He tells me they give him a DNA test at the airport in the UK on arrival; a cheek swab. I find that extremely interesting.
+- So, only Inma and I attend the police station in Calle Huertas on 7th January to report malicious poisoning and bring samples; our [second visit](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
 - They're totally disinterested.
-- They tell me I have to get a private laboratory to confirm poisoning before they'll investigate.
-- I give them my 200 page printed report (an early draft of this statement and the original intention for writing it)...
-- The boss throws it on the table in disgust and says to the officer who was detailing with me, "send it to Denia".
-- But not before he flicks through and points to some of the women - photos I have printed in high res - including Elsa and the innocent women, saying "who's that?".
-- I tell him that Elsa is Domingo Cano Lopez's student at the conservatory and I don't know who the innocent woman is.
+- I tell them I have samples of poisoned items for testing.
+- Just like they told me I had to privately prove hacking before they'd investigate hacking, they tell me I have to get a private laboratory to confirm poisoning before they'll investigate poisoning.
+- I hand them my 200 page printed report (an early draft of this statement and the original intention for writing it)...
+- The chief throws it on the table in disgust, and says to the officer who was detailing with me, "send it to Dénia".
+- But not before flicking through it and pointing to some of the women - photos I have printed in high res - including [Elsa](../2024/august.md#18) and the [innocent women](../2024/august.md#grooming-an-innocent-girl-into-porn-101) groomed (and probably drugged) into doing porn.
+- The chief says, "who's that?", pointing to them.
+- I tell him that Elsa is Domingo Cano Lopez's piano student at the conservatory and I don't know who the innocent woman is.
 - He says nothing.
 - They want nothing to do with me.
-- I suspect the report goes in the bin.
-- Later that evening over tea, Inma talks about how I used to be interested in Haitian spiritual practices (I wrote a novel with it as a theme) in a semi-condemning manner.
-- I explain that Mary introduced me to the practice and it turned out to be a strong psychological protective barrier against my fear of the Jamaican rape-gangs.
-- She gives me a slice of Reyes cake.
-- In it, is the black King.
-- She's telling me something... and I think it is that I'm the one everyone is condemning because I was raped by black men when I was a child.
+- I suspect the report goes in the bin once we've left.
+- Later that evening over tea, Inma talks about how I used to be interested in Haitian spiritual practices ([I wrote a novel in Lourdes using Haiti as a theme](https://www.amazon.co.uk/Life-Without-Liar-Margaret-Murphy/dp/1500734381)) in a semi-condemning manner.
+- I explain that Mother Mary had introduced me to the practice and it turned out to be a strong psychological protective barrier against my fear of the Jamaican rape-gangs from 1989.
+- She goes into the kitchen and returns after a while with a slice of Reyes cake.
+- I bite into something hard. It's the black wise man of the three kings.
+- She's telling me something... 
+- I think it is that I'm the guilty one because I was raped by black men when I was a child.
 - Something is telling me that this fact makes all Spanish people detest me and justify anything against me, including murder or driving me to suicide.
-- Is she really telling me this?
+- Is she really telling me that whatever I have uncovered about porn industry infiltration of Spanish schools is irrelevant because I was sedated and raped as a child by groups of Jamaican men in North London?
 - A few days later, Inma tells me that the poisoning laboratory told her they would not test my samples without an order from the police.
 
 ## Seonaid Dawn and Granny Smith
