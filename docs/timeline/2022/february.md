@@ -11,12 +11,16 @@ function googleTranslateElementInit() {
 ## Mary Magdalene’s Cave; the Sainte Baume Grotto
 
 - I do a [Transforming Touch intensive](https://www.austinattach.com/transforming-the-experience-based-brain/online-training/) course online before leaving Lourdes.
-- I then drive to the [Sainte Baume](https://perfectlyprovence.co/mary-magdalenes-cave-the-sainte-baume-grotto/) grotto and hang out with the Dominicans and the spirit of Mary Magdalene who spent her later life in meditation in a cave there.
+- I then pack up the car and drive to the [Sainte Baume](https://perfectlyprovence.co/mary-magdalenes-cave-the-sainte-baume-grotto/) grotto.
+- I hang out with the Dominicans, and some pilgrims, and the spirit of Mary Magdalene who spent her later life in meditation in a cave close to the retreat centre.
 - It's really beautiful; a special place.
 
 ![Sainte Baume grotto](../../content/images/Sainte-Baume-Grotto.webp)
 
+- The area around Sainte Baume reminds me of India.
 - Before I leave, I write a long prayer asking Mary Magdalene to get justice for Noah Donohoe and I leave it at one of her altars in the cave.
+
+![Mary's cave](../../content/images/marys-cave.webp)
 
 ## Moving back to Dénia
 
