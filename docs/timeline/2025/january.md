@@ -147,7 +147,7 @@
 
 ## Madrid policia 
 
-- I send Paul home because his drug-addiction has made him a beggar man and I can't possibly bring him to the police station with me.
+- I send Paul home because his drug-addiction has made him a beggar man and I can't possibly bring him to the police station with me looking like he does.
 - I had wanted a man to come with me for support, but Paul needs more help than anyone else.
 - He also seems to be on something because he cannot shut up; or the North London porn gangs, still panicking about my continued survival, have instructed him to distract me, to not let me think, and so he's shouting continuously at me.
 - I buy him a plane ticket and send him home.
