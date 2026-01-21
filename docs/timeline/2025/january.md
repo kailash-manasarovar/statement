@@ -166,13 +166,13 @@
 - They want nothing to do with me.
 - I suspect the report goes in the bin once we've left.
 - Later that evening over tea, Inma talks about how I used to be interested in Haitian spiritual practices ([I wrote a novel in Lourdes using Haiti as a theme](https://www.amazon.co.uk/Life-Without-Liar-Margaret-Murphy/dp/1500734381)) in a semi-condemning manner.
-- I explain that Mother Mary had introduced me to the practice and it turned out to be a strong psychological protective barrier against my fear of the Jamaican rape-gangs from 1989.
-- She goes into the kitchen and returns after a while with a slice of Reyes cake.
+- I explain that Mother Mary introduced me to the practice, and it turned out to be a strong psychological protective barrier against my fear of the Jamaican rape-gangs from 1989.
+- Inma goes into the kitchen and returns after a while with a slice of Reyes cake.
 - I bite into something hard. It's a little figure of the black wise-man of the three kings.
 - She's telling me something... 
 - I think it is that everyone believes I'm the guilty one because I was raped by black men when I was a child.
 - Is she really telling me that whatever I have uncovered about porn-industry infiltration of Spanish schools is irrelevant because I was sedated and raped as a child by groups of Jamaican men in North London?
-- A few days later, Inma tells me that the poisoning laboratory told her they would not test my samples without an order from the police.
+- A few days later, Inma tells me that the poisoning laboratory told her they will not test my samples without an order from the police.
 
 ## Seonaid Dawn and Granny Smith
 
