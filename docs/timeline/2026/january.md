@@ -56,9 +56,9 @@ function googleTranslateElementInit() {
 
 ### A sinister man in the newsagents
 
-- I feel, again, like if I leave the house anything could happen to me.
+- Back in London I feel, again, like if I leave the house anything could happen to me.
 - I pop up the road to get pizza and a loaf of bread.
-- A sinister cockney man comes into the newsagents right behind me and says "nice weather for ducks".
-- The shopkeeper is concerned about him and watches his every move.
+- A sinister cockney man comes into the newsagents right behind me and says at my shoulder; "nice weather for ducks".
+- The shopkeeper is concerned about him and is watching his every move.
 - I wonder if he is suggesting I'm a sitting duck.
 
