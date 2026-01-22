@@ -21,7 +21,7 @@ function googleTranslateElementInit() {
 - Sometimes, when I'm coming out of my apartment, he comes out of the one beside mine at exactly the same time, and he always looks at me.
 - He makes sure I see his face. He needs me to [recognize him in the future](../../crimes/protagonists/vidal-sastre.md#the-younger-brother-of-the-first-man).
 - The reception staff know him to be Portuguese. 
-- He looks like [the Benijembla trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013), except I'm not to meet the trumpet teacher for 18-24 months still.
+- He looks like [the Benijembla trumpet teacher](../2022/november.md#walking-in-benijembla-with-the-english-ladies), except I'm not to meet the trumpet teacher for 18-24 months still.
 - Whenever he visited, on usually a Sunday or Monday night, he got together with some of the younger men there and they had loud drinking sessions into the night and played loud rave music.
 - The staff at the Acacia will remember him; as will the male residents who drank with him, some of whom I will know too.
 - Was he sent by British criminal gangs to hack into my home network and begin poisoning me so that I became brain damaged, making me unable to recognize differences in objects out of context - and so believe [four different men to be the same one man](../../crimes/protagonists/vidal-sastre.md#four-distinct-men)?
@@ -32,7 +32,7 @@ function googleTranslateElementInit() {
     - It appears this man, and the gang he works for, has been tracking and stalking me for years; this being more proof of that.
     - My suspicions are that he came to access my network and online activity at that time, and possibly needed to be close enough physically to do so because I was running a 4g router that pinged off a French telecommunications tower.
     - I'm also now wondering if he managed to gain access to my room too to begin the brain-damage poisoning.
-    - I'm curious about a very unwell feeling I had the day I left for holiday in Spain, and the invasive bed bug problem, a situation which prompted me to change all my plans for Christmas and go to Dénia instead, where I found and rented the flat in Carrer Furs.
+    - I'm curious about a very unwell feeling I had the day I left for holiday in Spain, and the invasive bed bug problem, a situation which prompted me to change all my plans for Christmas and go to Dénia instead, where I found and rented the flat in Carrer Furs via online manipulation.
 
 ## Qredo
 
