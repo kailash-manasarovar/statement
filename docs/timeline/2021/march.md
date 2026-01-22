@@ -48,7 +48,7 @@ function googleTranslateElementInit() {
 - We reconnect, and I'm friendly and happy to see her.
 - I am delighted to see her, in fact, and remember only the good things I always loved about her when we were at school together.
 - Nevertheless, something is off.
-- She keeps mentioning things related to me being targeted by the North London rape gangs back in 1989, and, as she says these things - *oh you loved the rave scene didn't you*, etc, I'm certain she is doing it to upset me.
+- She keeps mentioning things related to me being targeted by the North London rape gangs back in 1989, and, as she says these things - *oh you loved the rave scene didn't you*, etc - I'm certain she is doing it to upset me.
 - I file it away.
 - Did Matthew her husband tell her to say these things?
 - Anyway, Qredo was a scam company.
