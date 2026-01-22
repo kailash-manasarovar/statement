@@ -40,15 +40,21 @@ function googleTranslateElementInit() {
 - I have a feeling I remember Brian and Niall talking about a man they called "Ugly"... 
 - "Who's Ugly", I asked them..
 
-## Strange messages about dying for friends
+## Continuing threats
+
+### Strange messages about dying for friends
 
 - Over the last week or so, I have seen, repeatedly, a quote from the bible in the Gospel of John about friends who are willing to die for their friends.
 - I even looked it up to see if it really existed as the language was a bit strange and I hadn't heard this quote before.
 - It is from John 15, verse 13.
 - Seeing this every day feels like a threat of some sort, a message, but I'm not sure what it's about.
 - I haven't been watching the news.
+- When I see the news about the Spanish train derailment I start to worry about Inma.
+- I tried to email her from my `katharinejchardwood@gmail` account and lost access to the account.
+- I emailed her from the Jack Chardwood account.
+- Praying to God she's safe and well.
 
-## A sinister man in the newsagents
+### A sinister man in the newsagents
 
 - I feel, again, like if I leave the house anything could happen to me.
 - I pop up the road to get pizza and a loaf of bread.

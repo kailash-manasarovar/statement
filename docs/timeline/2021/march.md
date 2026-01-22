@@ -77,3 +77,7 @@ function googleTranslateElementInit() {
 - Was the Qredo role with Anita Diamond a staggering overplay by the global male porn-addict tech elite? 
 - Or an investigatory gauge on how much dedicated effort would be required - like how would I react to 1989 triggers - and how many tech-bro porn addicts were expected to sign up and pay for expensive subscriptions for the [*switcheroo* sedated rape-porn planned for me on my inevitable and already-being-prepared return to Dénia](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
 - Or both?
+
+### Anita tells me about her experience as a despised-female-tech-colleague
+
+-
