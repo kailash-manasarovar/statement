@@ -40,3 +40,11 @@ function googleTranslateElementInit() {
 - I have a feeling I remember Brian and Niall talking about a man they called "Ugly"... 
 - "Who's Ugly", I asked them..
 
+## Strange messages about dying for friends
+
+- Over the last week or so, I have seen, repeatedly, a quote from the bible in the Gospel of John about friends who are willing to die for their friends.
+- I even looked it up to see if it really existed as the language was a bit strange and I hadn't heard this quote before.
+- It is from John 15, verse 13.
+- Seeing this every day feels like a threat of some sort, a message, but I'm not sure what it's about.
+- I haven't been watching the news.
+
