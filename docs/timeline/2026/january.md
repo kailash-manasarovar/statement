@@ -53,6 +53,8 @@ function googleTranslateElementInit() {
 - I tried to email her from my `katharinejchardwood@gmail` account and lost access to the account.
 - I emailed her from the Jack Chardwood account.
 - Praying to God she's safe and well.
+- She is.
+- Porn gang wind ups, as usual.
 
 ### A sinister man in the newsagents
 
@@ -61,4 +63,3 @@ function googleTranslateElementInit() {
 - A sinister cockney man comes into the newsagents right behind me and says at my shoulder; "nice weather for ducks".
 - The shopkeeper is concerned about him and is watching his every move.
 - I wonder if he is suggesting I'm a sitting duck.
-
