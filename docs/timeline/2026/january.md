@@ -50,16 +50,17 @@ function googleTranslateElementInit() {
 - Seeing this every day feels like a threat of some sort, a message, but I'm not sure what it's about.
 - I haven't been watching the news.
 - When I see the news about the Spanish train derailment I start to worry about Inma.
-- I tried to email her from my `katharinejchardwood@gmail` account and lost access to the account.
-- I emailed her from the Jack Chardwood account.
-- Praying to God she's safe and well.
-- She is.
-- Porn gang wind ups, as usual.
+- I tried to email her from my `katharinejchardwood@gmail` account and as I was responding to one of her emails, I instantly lost access to the account.
+- I try to access the gmail account, but I'm blocked from doing so, the normal options are not appearing.
+- I get a response from her from a different email which is good.
+- The email I cannot access has so much porn-gang data in it; I wonder if Google backend developers are blocking my access.
+
+![Ask the Google community](../../content/images/ask-the-google-community.png)
 
 ### A sinister man in the newsagents
 
 - Back in London I feel, again, like if I leave the house anything could happen to me.
 - I pop up the road to get pizza and a loaf of bread.
-- A sinister cockney man comes into the newsagents right behind me and says at my shoulder; "nice weather for ducks".
+- A sinister cockney man comes into the newsagents right behind me and growls at my shoulder; "nice weather for ducks".
 - The shopkeeper is concerned about him and is watching his every move.
 - I wonder if he is suggesting I'm a sitting duck.
