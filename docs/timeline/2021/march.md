@@ -38,14 +38,14 @@ function googleTranslateElementInit() {
 
 - Soon after the [Chronicle Software](january.md#chronicle-software) role goes sour, I'm offered a new contract with a crypto company [Qredo](https://www.qredo.com/).
 - On the first day, I see a name fly-by on Slack: *Anita Diamond*.
-- You may remember [Anita and her husband visiting me in Dénia in 2006](../early-years/2006.md#matthew-goes-upstairs-on-his-own), just before the [Dave Porter Guardian Soulmates porn-fatwa fiasco](../early-years/2006.md#guardian-soulmates), orchestrated online by [world-famous poisoner and serial-killer Hazel Smith](../early-years/2007.md#hazel-smith) and her manipulation-tech associates.
+- You may remember [Anita and her husband visiting me in Dénia in 2006](../early-years/2006.md#matthew-goes-upstairs-on-his-own), just before the [Dave Porter Guardian Soulmates porn-fatwa fiasco](../early-years/2006.md#guardian-soulmates), orchestrated online by [world-famous poisoner and serial-killer Hazel (Fiona) Smith](../early-years/2007.md#hazel-smith) and her manipulation-tech associates.
 - This is a huge coincidence - or is it?
 - Anita Diamond, it turns out, is also working as a technical writer for the company, the role I've just been hired for.
 - Did they really need two?
 - I'm very surprised to see Anita, an old, dear, and vulnerable friend who has suffered from serious mental health issues ever since she was a teenager.
 - Like all porn-gang-tailored relationships, something happens when they're done with you that ensures you don't maintain communication.
-- Anita and Matthew had been [rather unpleasant with me](../early-years/2006.md#matthew-and-anita-say-something-i-only-mentioned-online) after they visited, so I'm not entirely thrilled to see her and wonder how things are going to be with her.
-- Of course, we reconnect, and I'm friendly and happy to see her.
+- Anita and Matthew had been [rather unpleasant with me](../early-years/2006.md#matthew-and-anita-say-something-i-only-mentioned-online) after they visited, so I'm not entirely thrilled to see her and wonder how things are going to be.
+- We reconnect, and I'm friendly and happy to see her.
 - I am delighted to see her, in fact, and remember only the good things I always loved about her when we were at school together.
 - Nevertheless, something is off.
 - She keeps mentioning things related to me being targeted by the North London rape gangs back in 1989, and, as she says these things - *oh you loved the rave scene didn't you*, etc, I'm certain she is doing it to upset me.
@@ -53,10 +53,10 @@ function googleTranslateElementInit() {
 - Did Matthew her husband tell her to say these things?
 - Anyway, Qredo was a scam company.
 - They had a backend system which was supposed to run millions of crypto transactions safely and securely, but in truth it was eight [Raspberry Pis](https://www.raspberrypi.com/), that kept failing, networked together with string, knots, and bandages.
-- Raspberry Pis are how schoolkids learn about computing.
+- (Raspberry Pis are how schoolkids learn about computing.)
 - I'm scratching my chin now, just like [Harsha did in 2018](../early-years/interim.md#hired-for-sport-again) at Adaptive.
 - I'm tasked with writing their Whitepaper.
-- I produce a detailed and honest description of everything they have, without ever once saying *it's never gonna work*.
+- I produce a detailed and honest description of everything they have, without ever once saying *it's never gonna work*, which it won't and doesn't.
 - They quietly hire another writer I never meet, who works with the CTO (*he's the man*, Anita told me, in a kind of breathless reverence), who had been out of the company for a short period while he was in rehab - I was told. 
 - I wondered if they meant prison.
 - Anyway, the first time I notice that my entire UI can be hacked and rewritten (I'm on a company laptop), they publish my Whitepaper on their website, the honest one, but I can only see it from my laptop.
@@ -74,7 +74,7 @@ function googleTranslateElementInit() {
 - The lawyer tells me they're not interested in taking it any further - small fry, I guess.
 - Of course it's only now thinking back I realize that all those communications were monitored by international porn gangs, perhaps even with Qredo's knowledge.
 - Horrifyingly, when I join ConsenSys, I find out that one of my teams is working closely with Qredo and this is one of the reasons they were interested in hiring me.
-- I've no option but to tell ConsenSys the truth, which probably explains the tantrums and ridiculousness from French male engineers, some of whom most definitely will have had a subscription to the sedated switcheroo.
+- I've no option but to tell ConsenSys the truth, which probably explains the tantrums and ridiculousness from French male engineers, some of whom most definitely will have had a subscription to [the sedated switcheroo](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) at the music school.
 - Was the Qredo role with Anita Diamond a staggering overplay by the global male porn-addict tech elite? 
 - Or an investigatory gauge on how much dedicated effort would be required - like how would I react to 1989 triggers - and how many tech-bro porn addicts were expected to sign up and pay for expensive subscriptions for the [*switcheroo* sedated rape-porn planned for me on my inevitable and already-being-prepared return to Dénia](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
 - Or both?
@@ -85,5 +85,5 @@ function googleTranslateElementInit() {
 - She details word-for-word the sort of thing I have experienced continually in my contract tech roles, and her story very much reminds me of [my time at Adaptive](../early-years/interim.md#hired-for-sport-again) and [working for Mike Wenham](../early-years/2010.md#mike-wenham).
 - I wondered if men had gone so totally mad that they only hire us for sport these days.
 - But we've had good experiences at work too, so it doesn't make any real sense to generalize like this.
-- Today, I wonder if Anita had also starred in a series of the *female-tech-colleague-you-despise* porn genre at that role.
+- Today, I wonder if Anita had also starred in a series of the *female-tech-colleague-you-despise* porn genre.
 - I also wonder if her reverence for the CTO at Qredo was indicative of something terribly sinister and porn-network related.
