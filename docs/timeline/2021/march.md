@@ -81,8 +81,8 @@ function googleTranslateElementInit() {
 ### Anita tells me about her experience as a despised-female-tech-colleague
 
 - During one of our early chats before our relationship breaks down (monitored online and manipulated no doubt), Anita describes a time she was working for another crypto tech-firm in the City of London, pre-covid.
-- She details word-for-word the sort of thing I have experienced continually in my contract tech roles, and her story very much reminds me of [my time at Adaptive](../early-years/interim.md#hired-for-sport-again).
-- I wondered if men had gone so mad that they hate all women and only hire us for sport now.
-- But we've had good experiences at work too, so it doesn't make any sense.
+- She details word-for-word the sort of thing I have experienced continually in my contract tech roles, and her story very much reminds me of [my time at Adaptive](../early-years/interim.md#hired-for-sport-again) and [working for Mike Wenham](../early-years/2010.md#mike-wenham).
+- I wondered if men had gone so totally mad that they only hire us for sport these days.
+- But we've had good experiences at work too, so it doesn't make any real sense to generalize like this.
 - Today, I wonder if Anita had also starred in a series of the *female-tech-colleague-you-despise* porn genre at that role.
 - I also wonder if her reverence for the CTO at Qredo was indicative of something terribly sinister and porn-network related.
