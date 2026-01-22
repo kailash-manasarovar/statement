@@ -48,3 +48,11 @@ function googleTranslateElementInit() {
 - Seeing this every day feels like a threat of some sort, a message, but I'm not sure what it's about.
 - I haven't been watching the news.
 
+## A sinister man in the newsagents
+
+- I feel, again, like if I leave the house anything could happen to me.
+- I pop up the road to get pizza and a loaf of bread.
+- A sinister cockney man comes into the newsagents right behind me and says "nice weather for ducks".
+- The shopkeeper is concerned about him and watches his every move.
+- I wonder if he is suggesting I'm a sitting duck.
+
