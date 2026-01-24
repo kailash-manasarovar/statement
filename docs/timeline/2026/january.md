@@ -70,3 +70,9 @@ function googleTranslateElementInit() {
 - A sinister cockney man comes into the newsagents right behind me and growls at my shoulder; "nice weather for ducks".
 - The shopkeeper is concerned about him and is watching his every move.
 - I wonder if he is suggesting I'm a sitting duck.
+
+### Have the caliphate found out about me
+
+- I'm in Decathlon paying for my items.
+- A man dressed in traditional Islamic gear - plus trainers and a coat - comes in asking the staff if they're Indian.
+- I hurry off.
