@@ -103,6 +103,10 @@
 - He was either Alkesh from North Finchley who went to prison for theft; or, more likely, he was the father of Winston May's sister's twins; the man that had brought down a bunch of Northern Pakistanis to sedate and rape us back in 1989.
 - He looked unwell.
 
+## Purim
+
+- The next day I think.
+
 ## Moorfields Eye Hospital
 
 - Given I've had a diagnosis of pre-glaucoma from [Rutnin Eye Hospital in Bangkok](../2024/november.md#pre-glaucoma-diagnosis), I need the same in the UK so it's on my NHS record.
