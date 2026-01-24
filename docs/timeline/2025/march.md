@@ -76,10 +76,10 @@
 - It is a Wednesday evening and very quiet.
 - We sit at a table for two.
 - No-one else is around.
-- Suddenly, a man comes and sits at the round table right beside us.
+- Suddenly, a man comes and sits at the big round table right beside us.
 - There are ample empty tables throughout the pub he could have sat at, but he chose to sit next to us.
 - He is with a couple of British Muslim men who sit with him.
-- The man is a little camp and I assume he's gay.
+- The man is loud, and a little camp, and I assume he's gay.
 - He barks questions at the men, relentlessly.
 - They answer him assiduously in a semi-scared manner.
 - More British Muslim men turn up and sit with them.
@@ -88,8 +88,7 @@
 - The white man's posture is straight and upright, while the Asian men are a bit cowed; he's above them somehow.
 - His questions are banal and meaningless; he's disinterested in the answers. 
 - He's already asking the next question before the one before is answered.
-- How are your children? What's your wife doing now? Are you still studying? How's so-and-so? Each question delivered like a bullet firing.
-- The men are below him in rank, somehow, and they all answer him respectfully, reverently even, cowed.
+- How are your children? What's your wife doing now? Are you still studying? How's so-and-so? Each question delivered like a fired-bullet.
 - I assume this is preliminary chat before he gets to the real business.
 - The bar staff address the man by name, which I have forgotten.
 - The interrogator reminds me of someone, but I don't place it for a few weeks.
@@ -98,10 +97,11 @@
 - The way Domingo spoke at that time was as if everyone had no choice but to listen to him, and smile, and agree, and that was exactly what I was seeing at the Red Lion.
 - Who was this overbearing, slightly camp 50-year-old white man with a moustache presiding over a table of British Muslim Asian men who may well have been second-generation Pakistanis?
 - And why did they sit right beside us instead of in one of the more private areas elsewhere?
-- Was he trying to understand what was going on with my continued survival from the Dénia porn-gang's brain-damaging, poisoning, drugging, and sedated rape; knowing full well my history with the Jamaican rape gangs and their connections to Islamicist rape gangs?
+- Was he trying to understand what was going on with my continued survival from the Dénia porn-gang's relentless brain-damaging, poisoning, drugging, and sedated rape; knowing full well my history with the Jamaican rape gangs and their connections to Islamicist rape gangs?
 - Did his attempt at communication inadvertently reveal a far more sinister connection between the caliphate and gitano mass-manipulation AI tech?
 - As we left, another British Muslim man turned up and walked past me, and I possibly recognized him.
 - He was either Alkesh from North Finchley who went to prison for theft; or, more likely, he was the father of Winston May's sister's twins; the man that had brought down a bunch of Northern Pakistanis to sedate and rape us back in 1989.
+- He looked unwell.
 
 ## Moorfields Eye Hospital
 
