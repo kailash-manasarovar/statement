@@ -13,7 +13,7 @@ function googleTranslateElementInit() {
 - Word on the street is I had a "date" in Barcelona: meaning yet another sedated rape event I'm only now aware of having occurred.
 - I'm wondering when that could have been.
 - I was up and down to Barcelona so many times between 2005-2016 when I lived in Dénia and Madrid.
-- Let's list those visits here - as much as possible - and see which of them are the most likely:
+- Let's list those visits here - as much as possible - and see which of them are the most likely - I'll add any more I remember as we go along:
     
     1. I visited Barcelona in 2016 to do a yoga class with Pattabhi Jois's daughter who had flown in from India. I stayed at the Gran Hotel Rey Don Jaime, just outside the city in a small town called Castelldefels, which had the most expensive parking meters in Spain. This is the favorite as I was living at spy-cam-networked Joan Fuster at the time and I was likely being sedated and filmed two or three times a week.
     2. I had an extremely suspicious time at the Amma retreat in Barcelona in October 2015. The Spanish organizer became apoplectic with me for asking, politely, for a private room. She raged at me for days and even told me she hoped I would crash the car on the way home! If a sedated event had happened there, it would have been with another woman as I was sharing with an Angolan woman. Sandra Rita Diaz had been interested in all this.
@@ -21,7 +21,11 @@ function googleTranslateElementInit() {
     4. Of course, there was [the invitation from Grace to meet her and Nadim](../2023/november.md#starting-my-new-job) (and others I suppose) in Barcelona just after I started at Polygon which didn't happen because I found out [Nadim is an actor](../2023/november.md#nadim-kobesi).
     5. In 2005, I traveled to Barcelona to attend a women's well-being retreat with [Sat Santokh](../early-years/2005.md#womens-retreat-with-sat-santokh) and three other women, but we all slept on the floor in the Kundalini yoga studio... but you never know.
     6. In December 2005, on my way to the Iboga retreat near Montpelier from Madrid, where I would remember, for the first time, gang rape by Jamaican rape-gangs in Tottenham in 1989, I stayed one night at the hotel inside the main train station. My room had a picture of a lounging devil with a huge phallus over the bed which I found sinister and unsettling. I had a terrible bunch of dreams that night. I dreamt of Jitendra Das's teeth (realizing this was so when I meet him five years later). I also dreamt of a young Spanish man at the foot of the bed on his knees and pleading for his life with a bunch of horrible men standing over him pointing guns at his head and threatening to kill him. I guess this night is also a favorite.
-    7. I'll add anymore I can remember as I go along...
+
+    !!! tip "Iboga retreats"
+        - The gangs would have been aware I was going on these retreats, and aware that they often surface hidden events from the past.
+        - I wonder if they felt it imperative to attempt to undermine any healing I might have had from attending this retreat.
+        - In retrospect, the criminal-element I oftentimes met on some of these shamanic retreats I was going on to try to access hidden memories - and numerous odd experiences I had with them - could well have been part of the distract-and-discredit massive don't you think.
 
 ## Could Brian have known who Ugly was back in 2001?
 
