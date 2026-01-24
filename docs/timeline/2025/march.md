@@ -91,7 +91,7 @@
 - How are your children? What's your wife doing now? Are you still studying? How's so-and-so? Each question delivered like a fired-bullet.
 - I assume this is preliminary chat before he gets to the real business.
 - The bar staff address the man by name, which I have forgotten.
-- The interrogator reminds me of someone, but I don't place it for a few weeks.
+- The interrogator reminds me of someone, but I don't place it for a few weeks...
 - It's Domingo.
 - The whole scene reminded me of the time we went out for dinner at the Japanese restaurant in Dénia in 2014 (before [he came to London](../early-years/2014.md#trip-to-london))and he kind of *performed* for the people sitting around the table, as if he knew them, and they had to respect him, even though his loud behavior was terribly ignorant.
 - The way Domingo spoke at that time was as if everyone had no choice but to listen to him, and smile, and agree, and that was exactly what I was seeing at the Red Lion.
