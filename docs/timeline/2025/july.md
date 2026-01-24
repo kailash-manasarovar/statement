@@ -24,7 +24,7 @@
 - She talks *at* us.
 - She is over-talkative, in fact, but not in a friendly way.
 - She reminds me of the [white man interrogating the group of British Islamic Asian men](march.md#a-man-who-reminds-me-of-domingo) that had sat right next to us in March in another completely empty seating area.
-- They could be related; her son maybe?
+- They could be related; her son maybe, or younger brother?
 - I go and get our dinners, leaving dad alone with the woman.
 - What do they talk about?
 - When I bring the dinners back, the waitress is taking her order.
