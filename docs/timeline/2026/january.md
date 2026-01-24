@@ -10,16 +10,18 @@ function googleTranslateElementInit() {
 
 ## A "date" in Barcelona
 
-- Word on the street is I had a "date" in Barcelona: meaning yet another sedated rape event.
+- Word on the street is I had a "date" in Barcelona: meaning yet another sedated rape event I'm only now aware of having occurred.
 - I'm wondering when that could have been.
-- I was up and down to Barcelona so many times between 2005-2016 when I lived in Denia and Madrid.
-- Let's list those visits here - as much as possible - and see which one (or more) is the most likely; although I'm going for the time I visited Barcelona in 2016 to do a yoga class with P Jois's daughter who had flown in from India and I stayed in a hotel outside the city in a small town with the most expensive parking meters in Spain, probably.
-- There was a very suspicious time at the Amma retreat in Barcelona in 2015 maybe. If a sedated event had happened there, it would have been with others as I was sharing a room.
-- Then there was the Cleargreen retreat where I was again sharing with others if something had happened, which is possible as we were staying in the homes of people who were living there at the same time.
-- Was Jess from the [Avila meditation retreat centre cum porn studio in December 2023](../2023/december.md#vipasana-meditation) at the Cleargreen retreat also?
-- Of course, there was the invitation from Grace to meet her and Nadim (and others I suppose) in Barcelona just after I started at Polygon too.
-- I'll do a full and thorough list cos there's so much of it.
-- In progress.
+- I was up and down to Barcelona so many times between 2005-2016 when I lived in Dénia and Madrid.
+- Let's list those visits here - as much as possible - and see which of them are the most likely:
+    
+    1. I visited Barcelona in 2016 to do a yoga class with Pattabhi Jois's daughter who had flown in from India. I stayed at the Gran Hotel Rey Don Jaime, just outside the city in a small town called Castelldefels, which had the most expensive parking meters in Spain. This is the favorite as I was living at spy-cam-networked Joan Fuster at the time and I was likely being sedated and filmed two or three times a week.
+    2. I had an extremely suspicious time at the Amma retreat in Barcelona in October 2015. The Spanish organizer became apoplectic with me for asking, politely, for a private room. She raged at me for days and even told me she hoped I would crash the car on the way home! If a sedated event had happened there, it would have been with another woman as I was sharing with an Angolan woman. Sandra Rita Diaz had been interested in all this.
+    3. Then there was the Cleargreen retreat where [I met Gammadian Freeman/Richard](../early-years/2011.md#gammadian-freeman-and-his-mate). I was sharing with others in this apartment if something had happened there. Was Jess from the [Avila meditation retreat centre cum porn studio in December 2023](../2023/december.md#vipasana-meditation) at the Cleargreen retreat also?
+    4. Of course, there was [the invitation from Grace to meet her and Nadim](../2023/november.md#starting-my-new-job) (and others I suppose) in Barcelona just after I started at Polygon which didn't happen because I found out [Nadim is an actor](../2023/november.md#nadim-kobesi).
+    5. In 2005, I traveled to Barcelona to attend a women's well-being retreat with [Sat Santokh](../early-years/2005.md#womens-retreat-with-sat-santokh) and three other women, but we all slept on the floor in the Kundalini yoga studio... but you never know.
+    6. In December 2005, on my way to the Iboga retreat near Montpelier from Madrid, where I would remember, for the first time, gang rape by Jamaican rape-gangs in Tottenham in 1989, I stayed one night at the hotel inside the main train station. My room had a picture of a lounging devil with a huge phallus over the bed which I found sinister and unsettling. I had a terrible bunch of dreams that night. I dreamt of Jitendra Das's teeth (realizing this was so when I meet him five years later). I also dreamt of a young Spanish man at the foot of the bed on his knees and pleading for his life with a bunch of horrible men standing over him pointing guns at his head and threatening to kill him. I guess this night is also a favorite.
+    7. I'll add anymore I can remember as I go along...
 
 ## Could Brian have known who Ugly was back in 2001?
 
