@@ -73,22 +73,35 @@
 ## A man who reminds me of Domingo
 
 - My father and I go to the Red Lion pub in Barnet for a meal.
-- It is a Wednesday and very quiet, only we are there to eat.
-- We sit in a quiet table for two. No-one else is around.
-- Suddenly, a white man comes and sits in the round table next to us.
-- He is joined by numerous Asian men, maybe four or five, who sit around him.
-- He has a kind of camp voice and he barks questions at the men relentlessly.
-- How are your children? What's your wife doing now? Are you still studying? Each question like the firing of a bullet.
-- The men are below him in rank, somehow, and they all answer him respectfully, reverently even.
-- Before a man has finished answering a question, the main dude barks another one out, as if he's not really listening, or doesn't care.
-- The bar staff address the man by name.
-- The main dude reminds me of someone, but I don't place it for a few weeks.
+- It is a Wednesday evening and very quiet.
+- We sit at a table for two.
+- No-one else is around.
+- Suddenly, a man comes and sits at the round table right beside us.
+- There are ample empty tables throughout the pub he could have sat at, but he chose to sit next to us.
+- He is with a couple of British Muslim men who sit with him.
+- The man is a little camp and I assume he's gay.
+- He barks questions at the men, relentlessly.
+- They answer him assiduously in a semi-scared manner.
+- More British Muslim men turn up and sit with them.
+- I know they're Muslim by their accents.
+- There's probably about five British Muslim men sitting with the interrogating white man while dad and I eat.
+- The white man's posture is straight and upright, while the Asian men are a bit cowed; he's above them somehow.
+- His questions are banal and meaningless; he's disinterested in the answers. 
+- He's already asking the next question before the one before is answered.
+- How are your children? What's your wife doing now? Are you still studying? How's so-and-so? Each question delivered like a bullet firing.
+- The men are below him in rank, somehow, and they all answer him respectfully, reverently even, cowed.
+- I assume this is preliminary chat before he gets to the real business.
+- The bar staff address the man by name, which I have forgotten.
+- The interrogator reminds me of someone, but I don't place it for a few weeks.
 - It's Domingo.
-- The whole scene reminded me of the time we went out for dinner at the Japanese restaurant in Dénia and he kind of *performed* for the people sitting around the table, as if he knew them and they had to respect him, even though his behavior was rather ignorant, in my view.
-- The way he spoke, as if everyone had no choice but to listen to him and smile and agree was exactly what I saw at the Red Lion.
-- Who was this overbearing, slightly camp 50-year-old white man with a moustache presiding over a table of Asian men who may well have been second-generation Pakistanis?
+- The whole scene reminded me of the time we went out for dinner at the Japanese restaurant in Dénia in 2014 (before [he came to London](../early-years/2014.md#trip-to-london))and he kind of *performed* for the people sitting around the table, as if he knew them, and they had to respect him, even though his loud behavior was terribly ignorant.
+- The way Domingo spoke at that time was as if everyone had no choice but to listen to him, and smile, and agree, and that was exactly what I was seeing at the Red Lion.
+- Who was this overbearing, slightly camp 50-year-old white man with a moustache presiding over a table of British Muslim Asian men who may well have been second-generation Pakistanis?
 - And why did they sit right beside us instead of in one of the more private areas elsewhere?
-- Are they trying to make deals?
+- Was he trying to understand what was going on with my continued survival from the Dénia porn-gang's brain-damaging, poisoning, drugging, and sedated rape; knowing full well my history with the Jamaican rape gangs and their connections to Islamicist rape gangs?
+- Did his attempt at communication inadvertently reveal a far more sinister connection between the caliphate and gitano mass-manipulation AI tech?
+- As we left, another British Muslim man turned up and walked past me, and I possibly recognized him.
+- He was either Alkesh from North Finchley who went to prison for theft; or, more likely, he was the father of Winston May's sister's twins; the man that had brought down a bunch of Northern Pakistanis to sedate and rape us back in 1989.
 
 ## Moorfields Eye Hospital
 
