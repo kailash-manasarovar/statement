@@ -25,18 +25,18 @@
 - She is over-talkative, in fact, but not in a friendly way.
 - She reminds me of the [white man interrogating the group of British Islamic Asian men](march.md#a-man-who-reminds-me-of-domingo) that had sat right next to us in March in another completely empty seating area.
 - They could be related; her son maybe, or younger brother?
+- They have the same manner of speaking.
 - I go and get our dinners, leaving dad alone with the woman.
-- What do they talk about?
 - When I bring the dinners back, the waitress is taking her order.
 - She calls the woman by her first name; Claire maybe.
 - Dad seems cowed, a bit scared of her.
-- He tells me she kept saying things he doesn't like.
+- He tells me that she kept saying things to him he didn't like.
 - He says he thinks she's the boss.
-- I tell him not to worry about her.
+- I tell him not to worry about her, and that I won't leave him alone with her.
 - As dad and I leave, we have to walk past the woman.
 - As I pass her, she makes an unnecessary hand-gesture to me; the prayer gesture that the Thai's and Indian's make to each other after speaking; a specific thing I did often at the conservatory that teachers and staff jeered at and persecuted me about.
 - I note it.
-- Just like the guy from March, she had the air of someone who only speaks to people who are very afraid of her.
+- Just like the man from March, she had the air of someone who only speaks to people who are very afraid of her.
 
 ## Dad is unable to go to Lourdes with me
 
