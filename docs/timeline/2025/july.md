@@ -7,7 +7,7 @@
 - He's holding his phone in one hand and the package in the other, which he hands to me.
 - He looks at me, grinning and sniggering in a perverted way.
 - It's as if he knows who I am.
-- Does he have a dark-web porn subscription to live target action genres?
+- Does he have a dark-web porn subscription to live-target action genres?
 
 ## ChatGPT
 
@@ -18,16 +18,23 @@
 ## The woman at the Red Lion
 
 - Dad and I go to the Red Lion in High Barnet for a Sunday dinner.
-- We sit down.
-- A woman comes and sits next to us.
-- She is over-talkative but not-friendly.
-- She reminds me a little of the [white man interrogating the Asians](march.md#a-man-who-reminds-me-of-domingo) from before.
-- They could be related.
-- I go and get our dinners, leaving dad alone with her.
+- We sit down in the empty seating area.
+- A woman comes in right behind us and sits close by to us while I'm getting dad sat down.
+- She's blond, late 50s, pale, chatty.
+- She talks *at* us.
+- She is over-talkative, in fact, but its not-friendly.
+- She reminds me of the [white man interrogating the group of British Islamic Asian men](march.md#a-man-who-reminds-me-of-domingo) that had sat right next to us in March in the empty seating area.
+- They could be related; her son maybe?
+- I go and get our dinners, leaving dad alone with the woman.
 - What do they talk about?
-- As we leave, she makes an unnecessary hand-gesture to me which is a specific thing I did that the teachers and staff at the conservatory jeered at.
-- The bar staff address the woman by name.
-- Dad said he thinks she's the boss. 
+- When I bring the dinners back, the waitress is taking her order.
+- She calls the woman by her first name; Claire maybe.
+- Dad seems cowed, a bit scared.
+- He tells me he thinks she's the boss.
+- I tell him not to worry about her.
+- As dad and I leave, we have to pass by the woman.
+- As I pass her, she makes an unnecessary hand-gesture to me, the prayer gesture that the Thai's and Indian's make to each other after speaking; a specific thing I did often at the conservatory that teachers and staff jeered at and persecuted me about.
+- I note it.
 - Just like the guy from March, she had the air of someone who only speaks to people who are very afraid of her.
 
 ## Dad is unable to go to Lourdes with me
