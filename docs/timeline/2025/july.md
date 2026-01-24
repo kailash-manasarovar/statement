@@ -33,6 +33,7 @@
 - He tells me that she kept saying things to him he didn't like.
 - He says he thinks she's the boss.
 - I tell him not to worry about her, and that I won't leave him alone with her.
+- I wonder if I started feeling high again at that moment...
 - As dad and I leave, we have to walk past the woman.
 - As I pass her, she makes an unnecessary hand-gesture to me; the prayer gesture that the Thai's and Indian's make to each other after speaking; a specific thing I did often at the conservatory that teachers and staff jeered at and persecuted me about.
 - I note it.
