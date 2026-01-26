@@ -10,16 +10,22 @@ function googleTranslateElementInit() {
 
 ## Poison warnings
 
-- I start to see references (warnings?) about poisoning.
+- Back in Carrer Furs, I am high every day, all day, I'm even hallucinating - I will realize to what extent when [I return in February 2025](../2025/february.md#paul-helps-me-move-back-to-uk) to collect my belongings.
+- My kidneys are screaming, every single day I spend at Carrer Furs.
+- Online, I start to see a lot of references to poisoning.
+- Is someone trying to warn me about something?
 - The reference to gay men and muscle men here makes me think of Domingo.
 
 ![referencing poison](../../content/images/targeted-women/car-woman/7.png)
+
+- I translate the profile message.
+- It says: "Enjoy my homemade poison. The poison made by my own family..".
+
 ![translation](../../content/images/translated-poison.png)
 ![translation](../../content/images/poison-translation.png)
 
-- The message says: "Enjoy my homemade poison. The poison made by my own family..".
-- Over the month I see numerous messages about my strength; *you're really strong*, I read, particularly towards the end of the month.
-- I wonder what that means for other targets.
+- Over the month I see numerous messages about my strength; *you're really strong*, I read, particularly towards the end of this month when I'm back from Fatima and the poisoning is so strong I'm certain they were trying to murder me.
+- At the time, I'm so high it's difficult to think straight about anything but I do wonder how other targets have faired over the decades if they consider me strong.
 
 ## YouTube with Kelly Oliver Dougall
 
