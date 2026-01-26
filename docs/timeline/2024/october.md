@@ -11,21 +11,24 @@ function googleTranslateElementInit() {
 ## Poison warnings
 
 - Back in Carrer Furs, I am high every day, all day, I'm even hallucinating - I will realize to what extent when [I return in February 2025](../2025/february.md#paul-helps-me-move-back-to-uk) to collect my belongings.
-- My kidneys are screaming, every single day I spend at Carrer Furs.
+- My kidneys are screaming and I'm unstable on my feet. 
+- My vision is extremely blurry.
 - Online, I start to see a lot of references to poisoning.
 - Is someone trying to warn me about something?
-- The reference to gay men and muscle men here makes me think of Domingo.
+- The reference to gay men and muscle men in this fake account makes me think of Domingo.
 
 ![referencing poison](../../content/images/targeted-women/car-woman/7.png)
 
 - I translate the profile message.
-- It says: "Enjoy my homemade poison. The poison made by my own family..".
+- It says: "Enjoy my homemade poison...".
 
 ![translation](../../content/images/translated-poison.png)
 ![translation](../../content/images/poison-translation.png)
 
-- Over the month I see numerous messages about my strength; *you're really strong*, I read, particularly towards the end of this month when I'm back from Fatima and the poisoning is so strong I'm certain they were trying to murder me.
-- At the time, I'm so high it's difficult to think straight about anything but I do wonder how other targets have faired over the decades if they consider me a strong person.
+- Over the month I see numerous messages about my strength; *you're really strong*, I read regularly. 
+- Towards the end of this month these become even more common.
+- This is when I'm back from [Fatima](#fatima-20-26th-october) and the poisoning is so strong - they have doused all my belongings in pesticides - that I'm certain their intention was murder.
+- At the time, I'm so high it's difficult to think straight about anything, but I do wonder how other targets have fared over the decades if the gangs consider me a strong person.
 
 ## YouTube with Kelly Oliver Dougall
 
