@@ -26,6 +26,8 @@ function googleTranslateElementInit() {
 - I will detail this section in full at some point... just to say, for me, it felt like I was unable to speak at all without people becoming angry at me. Meanwhile, I'm in meetings where men behave in extraordinarily aggressive ways to each other. I know that if I behaved like that I'd be out the door in an eye-blink. The silencing is difficult to deal with; not knowing what I can or can't say without someone getting upset.
 - What I want to highlight now is that, while I was working for them and living at Carrer Furs, in March/April 2022, I was being manipulated online with strong romantic ideas about Lubin, and very specifically the offsite that he was planning for the whole business!
 - The offsite never took place, for some reason, thank God.
+- The romantic ideas I was having about him just disappeared, I didn't even notice.
+- I remember now.
 - Interesting, isn't it.
 
 ## Going no-contact
