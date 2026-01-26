@@ -26,8 +26,9 @@ function googleTranslateElementInit() {
 ![translation](../../content/images/poison-translation.png)
 
 - Over the month I see numerous messages about my strength; *you're really strong*, I read regularly. 
-- Towards the end of this month these become even more common.
-- This is when I'm back from [Fatima](#fatima-20-26th-october) and the poisoning is so strong - they have doused all my belongings in pesticides - that I'm certain their intention was murder.
+- Towards the end of this month these messages become even more frequent.
+- This is when I'm back from [Fatima](#fatima-20-26th-october) and the poison I'm ingesting is worse and they have also doused all my belongings in pesticides. 
+- I'm certain the intention was murder.
 - At the time, I'm so high it's difficult to think straight about anything, but I do wonder how other targets have fared over the decades if the gangs consider me a strong person.
 
 ## YouTube with Kelly Oliver Dougall
