@@ -10,7 +10,9 @@ function googleTranslateElementInit() {
 
 ## ConsenSys
 
-- wip section.
+!!! tip "Work in progress"
+    - This section is a work-in-progress first sketchy draft.
+
 - I get an amazing online role with ConsenSys but again I'm surrounded by a lot of men, and some women, who appear to loathe me.
 - I move to Denia while I'm working for ConsenSys.
 - Somehow, they all seem to know about my online terfing activities - which they absolutely shouldn't - and I'm bullied on the basis that I have unwelcome opinions about drag queens in schools, etc...
