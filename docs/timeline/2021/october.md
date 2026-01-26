@@ -21,7 +21,7 @@ function googleTranslateElementInit() {
 - I'm then bullied by the wider team, ostensibly for my response to the tantruming Frenchman.
 - I'm then ignored completely by all the teams I'm working for - I take a side role contract with another firm for about four months so that I don't go mad with boredom.
 - There is also the fact that [I whistle-blew about Qredo](march.md#qredo) who were working very closely with one of the ConsenSys teams I worked with; what else could I do?
-- I don't really understand how people can know so much evil is going on and just ignore it. For me, not doing anything about it actually causes me visceral pain!
+- I don't understand how people can know so much evil is going on and just ignore it. For me, not doing anything about it actually causes me visceral pain!
  - The men that are bullying me stop giving me work, and whenever they do give me some they take the opportunity to have another go, tantrum-styley.
 - My *bad* name spreads out; probably that I'm a *difficult transphobe, a Karen* or something similar.
 - My manager is pretty decent and is obviously on my side, but only as much as he can be.
@@ -33,7 +33,7 @@ function googleTranslateElementInit() {
 - I can pinpoint exactly when this manipulation started; it was while I was staying at the Port Dénia hotel in December 2021 waiting to move into my new apartment at Carrer Furs and working online in the hotel.
 - The offsite never took place, for some reason, thank God.
 - Once cancelled, the romantic ideas I was having about Lubin stopped - they were fundamentally connected to this offsite and the thought I'd meet him in person.
-- So weird.
+- So weird and sinister.
 - I wonder if that was when the (criminal-porn-subscriber) bullying started to ramp up, so they could get me to leave and go somewhere else so I could attend a different offsite.
 - Interesting, isn't it.
 
