@@ -32,6 +32,14 @@ function googleTranslateElementInit() {
 - I'm certain the intention was murder.
 - At the time, I'm so high it's difficult to think straight about anything, but I do wonder how other porn-gang targets have fared over the decades if the gangs consider me a strong person.
 
+### Is there a bible in the house?
+
+- I start to see continued X posts that refer to whether there is a "bible in the house".
+- This is usually written as a question.
+- I bought a bible during this time.
+- I believe someone was trying to warn me that the poison dose was going up and murder was the intention. Hence, a bible in the house for the priest to perform the last rights.
+- These posts were in English and Spanish sometimes too.
+
 ## YouTube with Kelly Oliver Dougall
 
 - https://www.youtube.com/watch?v=VIYsj4OgiYA
@@ -62,14 +70,6 @@ function googleTranslateElementInit() {
 - Polygon hires a [man who targeted me at zkSync](../2023/june.md#work-stress), Coogan.
 - I guess there are so few technical female-workers in the industry, you're bound to be targeted by the wider community.
 - I wonder if James Dawes and the HR team had seen me [starring in child rape-gang porn](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) too?
-
-## Is there a bible in the house?
-
-- I start to see continued X posts that refer to whether there is a "bible in the house".
-- This is usually written as a question.
-- I bought a bible during this time.
-- I believe someone was trying to warn me that the poison dose was going up and murder was the intention. Hence, a bible in the house for the priest to perform the last rights.
-- These posts were in English and Spanish sometimes too.
 
 ## Activity in apartment number 18 next door
 
