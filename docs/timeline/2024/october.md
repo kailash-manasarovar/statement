@@ -19,17 +19,17 @@ function googleTranslateElementInit() {
 
 ![referencing poison](../../content/images/targeted-women/car-woman/7.png)
 
-- I translate the profile message.
-- It says: "Enjoy my homemade poison...".
+- The profile message says: "Enjoy my homemade poison...".
+- I translate the rest of it.
 
 ![translation](../../content/images/translated-poison.png)
 ![translation](../../content/images/poison-translation.png)
 
 - Over the month I see numerous messages about my strength; *you're really strong*, I read regularly. 
-- Towards the end of this month these messages become even more frequent.
+- Towards the end of the month, these messages become even more frequent.
 - This is when I'm back from [Fatima](#fatima-20-26th-october) and the poison I'm ingesting is worse and they have also doused all my belongings in pesticides. 
 - I'm certain the intention was murder.
-- At the time, I'm so high it's difficult to think straight about anything, but I do wonder how other targets have fared over the decades if the gangs consider me a strong person.
+- At the time, I'm so high it's difficult to think straight about anything, but I do wonder how other porn-gang targets have fared over the decades if the gangs consider me a strong person.
 
 ## YouTube with Kelly Oliver Dougall
 
