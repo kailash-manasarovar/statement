@@ -25,7 +25,7 @@ function googleTranslateElementInit() {
 ![translation](../../content/images/poison-translation.png)
 
 - Over the month I see numerous messages about my strength; *you're really strong*, I read, particularly towards the end of this month when I'm back from Fatima and the poisoning is so strong I'm certain they were trying to murder me.
-- At the time, I'm so high it's difficult to think straight about anything but I do wonder how other targets have faired over the decades if they consider me strong.
+- At the time, I'm so high it's difficult to think straight about anything but I do wonder how other targets have faired over the decades if they consider me a strong person.
 
 ## YouTube with Kelly Oliver Dougall
 
