@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 ## Poison warnings
 
-- Back in Carrer Furs, I am high every day, all day, I'm even hallucinating - I will realize to what extent when [I return in February 2025](../2025/february.md#paul-helps-me-move-back-to-uk) to collect my belongings.
+- Back in Carrer Furs, I am high every day, all day; I'm even hallucinating - I will realize to what extent when [I return in February 2025](../2025/february.md#paul-helps-me-move-back-to-uk) to collect my belongings.
 - My kidneys are screaming and I'm unstable on my feet. 
 - My vision is extremely blurry.
 - Online, I start to see a lot of references to poisoning.
@@ -25,6 +25,7 @@ function googleTranslateElementInit() {
 ![translation](../../content/images/translated-poison.png)
 ![translation](../../content/images/poison-translation.png)
 
+- *The poison prepared by my own family*, to me, points to the Lopez-Canos, including Carmen Cano who will pass me when leaving my apartment building at the end of this month, and smile at me.
 - Over the month I see numerous messages about my strength; *you're really strong*, I read regularly. 
 - Towards the end of the month, these messages become even more frequent.
 - This is when I'm back from [Fatima](#fatima-20-26th-october) and the poison I'm ingesting is worse and they have also doused all my belongings in pesticides. 
