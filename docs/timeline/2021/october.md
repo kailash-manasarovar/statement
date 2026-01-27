@@ -12,7 +12,7 @@ function googleTranslateElementInit() {
 
 - I get an amazing online role with ConsenSys and I work for them from October 2021 to October 2022 but, again, I'm immediately surrounded by a lot of men, and some women, who appear to loathe me.
 
-### Set up, for sport, again
+### Hired for sport, again
 
 - I'm hired as the lead technical writer for department A (Codefi) where I will build and manage their numerous documentation sites (some of which they already have but mostly will be new).
 - Initially, I will be a team of one person only.
@@ -106,7 +106,7 @@ function googleTranslateElementInit() {
 - I had created an excellent presentation about technical docs strategy and showed her at one of these meetings.
 - She stole it from me and gave the presentation herself! 
 - Then she and Byron told me she had done so!
-- I feel really really unlucky.
+- I felt really really unlucky.
 - I found myself in an impossible situation, right from the start, which I responded to in a rational and self-assertive way.
 - I'm then bullied by the wider team, apparently for my response to the tantruming Frenchman.
 - I'm then ignored completely by all the teams I'm working for - I take a side contract with another firm for about four months so that I don't go mad with boredom.
