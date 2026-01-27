@@ -15,20 +15,23 @@ function googleTranslateElementInit() {
 ### Set up, for sport, again
 
 - I'm hired as the lead technical writer for department A (Codefi) where I will build and manage their numerous documentation sites (some of which they already have but mostly will be new).
-- As part of my work I'll collaborate with department B (Madeline's department) who already run multiple documentation sites.
+- Initially, I will be a team of one person only.
+- As part of my work, I'll collaborate with department B (Madeline's department) who already run multiple documentation sites.
 - I will use the same docs platform they use.
 - Madeline's department has been running documentation systems for years. They're extremely efficient and all their systems are working well.
-
-- It becomes clear to me very quickly that Nicolas (and by extension Madeline's) team expect me to work for them too, as their underling and as a new colleague. 
-- I find it extremely strange. They have a lead already. Why would I be OK about working two jobs?
-- I meet Byron, their lead early on.
-- One of the first things he mentions is how we'll be having an offsite soon.
-- I'm a little surprised at this as it is mostly covid lock-down in the world and he and Madeline are based in Australia.
-- Byron seems exited about his department's offsite and mentions is multiple time.
+- I don't meet Madeline until week two.
+- I meet Byron, the team lead, and Nicolas the docs engineer early on, week one.
+- It becomes clear to me very quickly that Nicolas (and by extension Madeline's) team expect me to work for them too; as an underling team member. 
+- I find it extremely strange. They have a lead already. Why would I be OK about working two jobs, one of which I was not hired for?
+- One of the first things Byron mentions is how we'll be having an offsite soon.
+- I'm a little surprised at this as it is still mostly covid lock-down in the world and he and Madeline are based in Australia.
+- Byron seems exited about his department's offsite and mentions it multiple times.
 - Again, I'm unclear why I would be invited to another department's offsite.
 - To add context, there are numerous technical writers all over the business; why invite just me from outside the department?
-- It's all very strange and inexplicable and no-one is clear about any of it; what's expected from me with regards to this external team.
+- It's all very strange and inexplicable and no-one is clear about any of it; as in what's expected from me with regards to this external team.
+- My manager does not add any clarity when I talk to him about it.
 - It feels like they're trying to poach me - that's my explanation for it anyway.
+- I wonder if it's intentional; an impossible situation which can only result in conflict?
 
 ### Nicolas 
 
@@ -36,10 +39,12 @@ function googleTranslateElementInit() {
 - He schedules meetings that last an hour and talks for two hours and I do not get to speak.
 - Nicolas tells me he is a light aircraft pilot in Brittany Northern France; I assume hobbyist.
 - He is building a new system for the docs. It's not clear why. They don't need one. Everything's working well.
-- Not only that, he is customizing what they have already - an efficient, flexible, and extremely functional platform running multiple websites - into something inflexible, liable to break, and a single-point-of-failure potentially.
-- He expects me to use this system for all my work with my department.
-- It's unworkable and full of problems; it errors immediately.
-- I explain I'm going to use the platform without his customizations until such time as he has fixed all his issues.
+- Not only that, he is customizing what they have already - an efficient, flexible, and extremely functional platform running millions of websites worldwide - into something inflexible, liable to break, and a single-point-of-failure potentially.
+- He expects me to use this new system for *all* my work with my department.
+- But the system is unworkable and full of problems; it errors immediately.
+- I ask him why he's building something new when he already has a brilliant backend set up? He doesn't have a good answer to this question.
+- I explain I'm going to use the platform as normal, without his customizations, until such time as he has fixed the issues and when what he has is better than what we have already.
+- He has told me repeatedly he's dedicated to open-source technologies and I suggest he reach out to the community for advice.
 - He tantrums.
 - I try to reason with him calmly on Slack.
 - I tell him I trust him, and I'll let him figure it out, and then we can reconvene, and of course I'll help him with his issues if he needs it.
@@ -48,9 +53,8 @@ function googleTranslateElementInit() {
 - He's actually lost his mind and behaving like an irrational person.
 - Remember: this is week two of my role.
 - Reluctantly, I talk to my manager about it.
-- I tell my manager what has happened.
-- My manager does not clear up the problem of a completely external team expecting me to go work for them as well as the job I was hired for.
-- I screenshot some of the tantrum including where Nicolas told me I shouldn't trust anyone.
+- My manager does not clear up my confusion around a completely external team expecting me to go work for them as well as the job I was hired for.
+- I screenshot some of Nicolas' tantrum including where Nicolas told me I shouldn't trust anyone.
 - My manager says: *he shouldn't have said that*.
 
 ### Mediation
