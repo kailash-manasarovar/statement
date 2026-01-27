@@ -66,48 +66,52 @@ function googleTranslateElementInit() {
 
 ### Mediation
 
-- I ask for mediation with him.
-- This is where I meet Madeline; his boss.
+- I ask for mediation.
+- This is when I first meet Madeline; his boss.
 - My manager (can't remember his name yet), Madeline, Nicolas and I meet for mediation on Zoom.
 - Nicolas talks. I do not talk.
-- Before we begin, he tells us about his wife's depression and how she had to quit her job.
-- Nicolas then suggests I'm a disrespectful and rude person, and says a bunch of slightly-offensive things about me personally which are irrelevant to what's happening.
-- It's hard for me to say anything. I'm under attack and no-one is standing up for me.
-- I write a report about Nicolas' system and how it is unworkable at the current time (my view it is completely unnecessary and will never be workable).
+- Before we begin, he tells us a lot about his wife's depression and how she had to quit her job.
+- Nicolas then suggests I'm a disrespectful and rude person, and says a bunch of slightly-offensive things about me personally which are irrelevant to the work.
+- It's hard for me to say anything. 
+- I'm new, and I'm under attack, and no-one is standing up for me.
+- I write a report about Nicolas' system and how it is unworkable at the current time (my view is it completely unnecessary and will never be workable).
+- I wonder if he's trying to build something that only he can use so as to ensure his role somehow.
+- I don't have a rational explanation for any of this until the time of writing, January 2026.
 
-#### Nicolas' system
+#### Ugly underlying intentions
 
-- I'm just wondering now if the whole thing with this system was to get me to use something that was going to break all the time, and to make sure I was the one to blame for it so I could be in a continued state of stress.
+- I'm just wondering now if the true intention was to get me to use something that was going to break all the time, and to make sure I was the one to blame for it so I could be in a continued state of stress.
 - Was this the *give her a reason for being stressed and anxious* needed to explain any depression and anxiety after sedated off-sites events?
 - Was Nicolas apoplectic because I (kind-of) saw the trap before they were able to set it properly?
 
 ### The Codefi team and their UI hack
 
-- From here, I'm bullied full-on by nearly everyone.
+- From here, I'm bullied full-on by nearly everyone I work with; although I do meet and interact with some amazing people at ConsenSys, they're sadly not people I work with.
 - I carry on with what I'm doing and build some really cool and efficient sites for the Codefi department, the department I was hired to work for.
-- One interesting event was how the Codefi team (Frenchmen buddies with Nicolas) hacked my laptop to make it look like my sites were failing, and then called a meeting with me where they were going to be very oppressive about this "error" which was a UI hack (they made sure to set up the hack on their own machines so they could "show me" and "shame me").
-- The hack disappeared a day or two later after I spoke to a few people about it.
-- I was flabbergasted; it was absolutely ridiculous.
-- This, I now see, was the second time I experienced my hacked laptop's browser UIs.
+- One interesting event was how the Codefi team (Frenchmen buddies in support of their mate Nicolas) hacked into my company laptop to make it look like my sites were failing, and then called a meeting to show me this dreadful "error" which was a UI hack (they made sure to set up the hack on their own machines so they could shame me).
+- I was appalled at their juvenile behavior which was really obvious and ridiculous.
+- The hack was only apparent on my ConsenSys laptop and disappeared quickly, and after I spoke to a few people about it.
+- This, I now see, was the second time I experienced a hacked laptop's browser UI rewrites.
 - They had somehow got in and interfered with the CSS on my browser.
 - [The first time I saw this hack was at Qredo](march.md#qredo) where they published my whitepaper on their website, but it was only live on my machine, the rest of the world saw something completely different.
-- I was using the company laptop at the time.
 - This is exactly how the porn-gangs of Dénia terrorized me for years, and somewhat still do except I don't care anymore, at all.
+- I'm guessing millions-upon-millions of women and children's browser UIs are hacked just like this by sexual predators today.
 
 ### Continued bullying
 
 - So it went on like this.
 - Somehow, everyone seemed to know about my online terfing activities - which they absolutely shouldn't - and it feels like I'm being bullied on the basis that I have unwelcome opinions about drag queens in schools, etc...
-- I spoke not at all about these things to anyone!
-- Madeline scheduled a bi-weekly chat where she was keeping tabs on me. We did not work.
+- I spoke not at all about these things to anyone at work!
+- Madeline scheduled a bi-weekly chat where she was keeping tabs on me. We did no work, just nattered.
 - I had created an excellent presentation about technical docs strategy and showed her at one of these meetings.
 - She stole it from me and gave the presentation herself! 
 - Then she and Byron told me she had done so!
-- I find myself in an impossible situation, right from the start, which I responded to in a rational and self-assertive way.
+- I feel really really unlucky.
+- I found myself in an impossible situation, right from the start, which I responded to in a rational and self-assertive way.
 - I'm then bullied by the wider team, ostensibly for my response to the tantruming Frenchman.
 - I'm then ignored completely by all the teams I'm working for - I take a side role contract with another firm for about four months so that I don't go mad with boredom.
 - There is also the fact that [I had to whistle-blow about Qredo](march.md#qredo) who were working very closely with one of the Codefi teams I worked with; what else could I do?
-- I don't understand how people can know so much evil is going on and just ignore it. For me, not doing anything about it actually causes me visceral pain!
+- I don't understand how people can know so much evil is going on and just ignore it. For me, not doing anything about it, however small, actually causes me visceral pain!
  - The men that are bullying me stop giving me work, and whenever they do give me some they take the opportunity to have another go, tantrum-styley.
 - My *bad* name spreads out; probably that I'm a *difficult transphobe, a Karen* or something similar.
 - I do get more work with other parts of the business, specifically Infura, which is really great and I enjoy but, again, I feel I am not particularly welcome although it's much much better than core ConsenSys teams.
@@ -116,14 +120,14 @@ function googleTranslateElementInit() {
 
 ### Manipulated romantic attraction to the CEO 
 
-- I move to Dénia during the time I'm working for ConsenSys.
+- I move to Dénia just a few months after I start my new job at ConsenSys.
 - What I want to highlight today is that, while I was working for them and living at Carrer Furs, even before this, I was being manipulated online with *strong* romantic ideas about Joseph Lubin, the CEO, and very specifically an offsite that he was planning for the whole business!
-- I can pinpoint exactly when this manipulation started; it was while I was staying at the Port Dénia hotel in December 2021 waiting to move into my new apartment at Carrer Furs and working online in the hotel.
+- I can pinpoint exactly when this manipulation started; it was while I was staying at the Port Dénia hotel in December 2021, waiting to move into my new apartment at Carrer Furs, and I was working online in the hotel.
 - The offsite never took place, for some reason, thank God.
-- Once cancelled, the romantic ideas I was having about Lubin stopped - they were fundamentally connected to this offsite and the thought I'd meet him in person.
+- It was not rescheduled either; the idea of a company offsite happening just sort of disintegrated and no-one spoke about it anymore.
+- Once cancelled, probably around April 2022 at the same time I was signing up for [the conservatory switcheroo porn](../../crimes/protagonists/vidal-sastre.md#four-distinct-men), the romantic ideas I was having about Lubin stopped - they were fundamentally connected to the offsite and the thought I'd meet him in person.
 - So weird and sinister.
 - I wonder if that was when the (criminal-porn-subscriber) bullying started to ramp up, so they could get me to leave and go somewhere else so I could attend a different offsite.
-- Interesting, isn't it.
 
 ## Going no-contact
 
