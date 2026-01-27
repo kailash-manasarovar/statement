@@ -108,8 +108,8 @@ function googleTranslateElementInit() {
 - Then she and Byron told me she had done so!
 - I feel really really unlucky.
 - I found myself in an impossible situation, right from the start, which I responded to in a rational and self-assertive way.
-- I'm then bullied by the wider team, ostensibly for my response to the tantruming Frenchman.
-- I'm then ignored completely by all the teams I'm working for - I take a side role contract with another firm for about four months so that I don't go mad with boredom.
+- I'm then bullied by the wider team, apparently for my response to the tantruming Frenchman.
+- I'm then ignored completely by all the teams I'm working for - I take a side contract with another firm for about four months so that I don't go mad with boredom.
 - There is also the fact that [I had to whistle-blow about Qredo](march.md#qredo) who were working very closely with one of the Codefi teams I worked with; what else could I do?
 - I don't understand how people can know so much evil is going on and just ignore it. For me, not doing anything about it, however small, actually causes me visceral pain!
  - The men that are bullying me stop giving me work, and whenever they do give me some they take the opportunity to have another go, tantrum-styley.
