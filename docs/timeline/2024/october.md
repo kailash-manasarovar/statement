@@ -29,18 +29,20 @@ function googleTranslateElementInit() {
 - Over the month I see numerous messages about my strength; *you're really strong*, I read regularly. 
 - Towards the end of the month, these messages become even more frequent.
 - This is when I'm back from [Fatima](#fatima-20-26th-october) and the poison I'm ingesting is worse, and they have also doused all my belongings in pesticides. 
-- I'm certain the intention was murder.
+- I'm certain the intention is murder.
 - At the time, I'm so high it's difficult to think straight about anything, but I do wonder how other porn-gang targets have fared over the decades if the gangs consider me a strong person.
 
 ### Is there a bible in the house?
 
-- I start to see continued X posts that refer to whether there is a "bible in the house".
-- This is usually written as a question.
-- I bought a bible during this time.
-- I believe someone was trying to warn me that the poison dose was going up and murder was the intention. Hence, a bible in the house for the priest to perform the last rights.
+- I see constant X posts asking whether there is a "bible in the house".
+- Incidentally, I had bought a bible during at Lourdes and was reading it regularly. 
+- You can see some of my screenshot tabs have the chapter details I was looking at; my bible was in Spanish so I needed to translate everything.
+- The constant posts make me think someone is warning me that the gangs intend to murder me; i.e. a bible in the house for the priest to perform the last rights.
 - These posts were in English and Spanish sometimes too.
 
 ### Porn-gangs in schools
+
+- I fight back, as usual.
 
 [![Porn gangs in schools](../../content/tweets/porn-gangs-in-schools.png)](https://x.com/1FRGVN/status/1845076405328937129)
 
