@@ -21,7 +21,7 @@ function googleTranslateElementInit() {
 - Madeline's department has been running documentation systems for years. They're extremely efficient and all their systems are working well.
 - I don't meet Madeline until week two.
 - I meet Byron, the team lead, and Nicolas the docs engineer early on, week one.
-- It becomes clear to me very quickly that Nicolas (and by extension Madeline's) team expect me to work for them too; as an underling team member. 
+- It becomes clear to me very quickly that Nicolas and Byron expect me to work for them too; as an underling team member. 
 - I find it extremely strange. They have a lead already. Why would I be OK about working two jobs, one of which I was not hired for?
 - One of the first things Byron mentions is how we'll be having an offsite soon.
 - I'm a little surprised at this as it is still mostly covid lock-down in the world and he and Madeline are based in Australia.
@@ -31,13 +31,13 @@ function googleTranslateElementInit() {
 - It's all very strange and inexplicable and no-one is clear about any of it; as in what's expected from me with regards to this external team.
 - My manager does not add any clarity when I talk to him about it.
 - It feels like they're trying to poach me - that's my explanation for it anyway.
-- I wonder if it's intentional; an impossible situation which can only result in conflict?
+- I wonder today if the whole thing was intentional; an impossible situation which can only result in conflict?
 
 ### Nicolas 
 
-- Madeline's docs op engineer, Nicolas, reaches out and is of the mind that I will be coming to their department to work for them, for him.
+- Nicolas reaches out and is clearly of the mind that I will be coming to his department to work for them, for him.
 - He schedules meetings that last an hour and talks for two hours and I do not get to speak.
-- Nicolas tells me he is a light aircraft pilot in Brittany Northern France; I assume hobbyist.
+- Nicolas tells me he is a light-aircraft pilot in Brittany Northern France; I assume hobbyist.
 - He is building a new system for the docs. It's not clear why. They don't need one. Everything's working well.
 - Not only that, he is customizing what they have already - an efficient, flexible, and extremely functional platform running millions of websites worldwide - into something inflexible, liable to break, and a single-point-of-failure potentially.
 - He expects me to use this new system for *all* my work with my department.
@@ -56,6 +56,12 @@ function googleTranslateElementInit() {
 - My manager does not clear up my confusion around a completely external team expecting me to go work for them as well as the job I was hired for.
 - I screenshot some of Nicolas' tantrum including where Nicolas told me I shouldn't trust anyone.
 - My manager says: *he shouldn't have said that*.
+
+#### Single-point-of-failure
+
+- Nicolas takes enormous exception to me having used this expression.
+- Gabriel Silva from Polygon will describe me as a single-point-of-failure in 2024 to developers while I'm being drugged, poisoned, sedated, raped, and live-streamed onto porn-networks by the porn-gangs of Dénia.
+- Interesting, isn't it.
 
 ### Mediation
 
