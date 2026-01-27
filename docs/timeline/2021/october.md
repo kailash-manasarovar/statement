@@ -62,6 +62,7 @@ function googleTranslateElementInit() {
 - Nicolas takes enormous exception to me having used this expression.
 - Gabriel Silva from Polygon will describe me as a single-point-of-failure in 2024 to developers while I'm being drugged, poisoned, sedated, raped, and live-streamed onto porn-networks by the porn-gangs of Dénia.
 - Interesting, isn't it.
+- Is almost as if I've had my own personal criminal porn-series running on the networks for years.
 
 ### Mediation
 
