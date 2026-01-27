@@ -40,13 +40,7 @@ function googleTranslateElementInit() {
 - I believe someone was trying to warn me that the poison dose was going up and murder was the intention. Hence, a bible in the house for the priest to perform the last rights.
 - These posts were in English and Spanish sometimes too.
 
-## YouTube with Kelly Oliver Dougall
-
-- https://www.youtube.com/watch?v=VIYsj4OgiYA
-- Sending it to my landlady on WhatsApp.
-- She *slow claps* back.
-
-## Porn-gangs in schools
+### Porn-gangs in schools
 
 [![Porn gangs in schools](../../content/tweets/porn-gangs-in-schools.png)](https://x.com/1FRGVN/status/1845076405328937129)
 
@@ -147,14 +141,11 @@ function googleTranslateElementInit() {
 
 - There's no reply.
 
-## A little black plastic box
+## YouTube with Kelly Oliver Dougall
 
-- Somewhere in the house on the floor I see a little, black plastic item.
-- I can't figure out what it is. 
-- It looks a bit like lego, or a part from some bigger plastic item or machinery.
-- I'm wondering now if it was a part off some farming machinery that came in with them when they got the OK to murder me and doused all my belongings in pesticides over those few days while the router was down.
-- Or, I also thought that their sedating mechanisms might come in little remote control plastic boxes like these which you could bring in when your target was out, and leave somewhere they won't look, and then trigger from the next apartment when she's gone to bed.
-- But that might be a bit risky.
+- https://www.youtube.com/watch?v=VIYsj4OgiYA
+- Sending it to my landlady on WhatsApp.
+- She *slow claps* back.
 
 ## Threats and a woman at the laundry
 
@@ -367,6 +358,15 @@ function googleTranslateElementInit() {
 - I'm obviously not going to call the police if they try to murder me by poison, and Inma and Paloma know it.
 - They decided to throw me to the wolves. Like everyone else.
 - When I start writing this police statement in Thailand and build a website for it, Inma reaches out to ask me if I've built a website. I say yes. She says Paloma told her it'll probably be shut down.
+
+## A little black plastic box
+
+- Somewhere in the house on the floor I see a little, black plastic item.
+- I can't figure out what it is. 
+- It looks a bit like lego, or a part from some bigger plastic item or machinery.
+- I'm wondering now if it was a part off some farming machinery that came in with them when they got the OK to murder me and doused all my belongings in pesticides over those few days while the router was down.
+- Or, I also thought that their sedating mechanisms might come in little remote control plastic boxes like these which you could bring in when your target was out, and leave somewhere they won't look, and then trigger from the next apartment when she's gone to bed.
+- But that might be a bit risky.
 
 ## Couple in hotel room
 
