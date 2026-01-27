@@ -57,7 +57,8 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Did they use and abuse Saint Valentine in evil rituals designed for controlling women and girls?
 - It would not surprise me, at all.
 - Regardless, the fact is that without these extremely good feelings I had for this man, and still do, and these short moments in time, we probably wouldn't be where we are today which is becoming something rather marvelous in my view.
-- It is my view that this man made a mistake being involved with these criminals and is innocent. Perhaps he doesn't feel this way. That would be normal.
+- I believe, also, this is the man who would take the blame if I ever went to the police while still brain-damaged and believing that four very different-looking men were the same one man. 
+- Has that happened in Spain before?
 
 ### The brother, or Mark from English class in 2013
 
