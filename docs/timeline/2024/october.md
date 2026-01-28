@@ -122,6 +122,10 @@ function googleTranslateElementInit() {
 - I do not know what any of this means. Is it more tricks to scare me? Why would they put so much effort into it. I don't understand. The whole thing makes no sense.
 - And how is anyone supposed to know what's going on if no one ever talks to you and if they can only lie anyway?
 
+## Las Rotas
+
+- https://x.com/1FRGVN/status/1844468797044052150/photo/1 - Valencia holiday
+
 ## Job offer
 
 - The following day I'm contacted on LinkedIn by a yacht company based in Altea with a job offer which I refuse because I'm certain it's a scam.
