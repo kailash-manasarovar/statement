@@ -83,12 +83,15 @@ function googleTranslateElementInit() {
 ## During, after, now
 
 - Here's two pictures of me.
-- The picture on the left was taken in September 2023, just after [the Dénia hackers revealed themselves](../2023/august.md#the-hackers-reveal-themselves) in France and I'm so scared about going back home [I go public on Twitter](../2023/september.md#going-public-on-twitter).
+
+![During, after](../../content/images/during-after.jpeg)
+
+- The picture on the left was taken in September 2023, just after [the Dénia hackers revealed themselves](../2023/august.md#the-hackers-reveal-themselves) in France and I was so terrified about going back to my home in Carrer Furs [I go public on Twitter](../2023/september.md#going-public-on-twitter).
 - At that time, I had no idea I had been starring in [sedated switcheroo porn at the music school](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) between 28th November 2022 and June 12th 2023.
 - I also had no idea I was being poisoned and drugged continually in my apartments in Dénia, over decades, and wherever the Dénia gypsy gangs could access my room, my toiletries, and my food while I was away traveling.
-- I find out later that the purpose of continued drugging and poisoning was regular episodes of sedation, rape, and starring on criminal porn networks.
-- No-one expected me to [not have stopped at Alicante airport](../2023/june.md#sunday-18th-june-alicante-airport) for the [third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) and ended up, soon after, running around naked in a field after a horse, live-streamed to the paying perverts, and then murdered and fed to the pigs.
-- I hadn't behaved like their thousands of other victims, and the porn gangs of Dénia were in a state of pure panic.
+- I find out later that the purpose of continued drugging and poisoning was regular episodes of sedated rape, live-streamed on criminal porn networks.
+- No-one expected me to [not have stopped at Alicante airport](../2023/june.md#sunday-18th-june-alicante-airport) for the [third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of); ending, soon after, running around naked in a field after a horse, live-streamed to the paying perverts, and then murdered and fed to the pigs.
+- I hadn't behaved like thousands of their other victims, and the porn gangs of Dénia were in a state of pure panic.
 - The cyber-and-in-person stalking at that time was intense and relentless.
 - I can see fear and frustration in my expression.
 - The picture on the right was taken in September 2025, after at least three serious attempts at poisoning me with the intention of murder and/or severe maiming, all of which failed.
@@ -97,42 +100,42 @@ function googleTranslateElementInit() {
     - [Halloween 2024's intense poisoning at my apartment](../2024/october.md#serious-poisoning-with-intent-to-harm-or-kill)
     - [July 2025's even more intense poisoning of my bathroom products and food supplies at Lourdes](../2025/july.md#lourdes)
 
-![During, after](../../content/images/during-after.jpeg)
-
 - Now, my situation is unlike anyone in the world you can imagine due, wholly, to how famous I am in the world of criminal-porn-subscribers.. 1 in 3, I'm told.
-- Two years ago I was earning more that 200K. Today, I cannot work for any tech company (my profession) for a few reasons:
+- Two years ago I was earning more than 200K. Today, I cannot work for any tech company (my profession) for a few reasons:
     - I'm hacked by criminal gangs: they can rewrite my UI, they can control my cameras, they can add calendar dates to my Google calendar, they have total admin access to all my devices, they can jump from my devices to my colleague's, they can do whatever they like.
     - Any tech company I work for is guaranteed to have a criminal-porn-subscriber working there who will be contacted by the criminal gangs and given instructions (which he cannot refuse because... well he's been looking at criminal porn hasn't he).
 - I cannot access healthcare like a normal person:
     - Given I've been poisoned so badly for such a long time, I do have some health issues around that.
     - My eyesight suffered and I was diagnosed with a pre-glaucoma condition in Thailand.
     - On returning to the UK, I requested the same investigation at [Moorfields in Brent Cross](../2025/march.md#moorfields-eye-hospital). The men there snickered at me and told me there was no issue.
-    - It turns out I was brain-damaged by poison and this did affect my eyesight, but in a neurological manner (I cannot distinguish between objects out of context - and that brain injury made it possible for the gangs to get me to believe four different men were the same one man).
+    - It turns out I was brain-damaged by poison and this did affect my eyesight, but in a neurological manner (I cannot distinguish between objects out of context - a brain injury that made it possible for the gangs to manipulate me into believing four very different men were the same one man) - is that why the men at Moorfields were so sure I had no vision issue, they knew?
     - I have [told my GP](../2025/september.md#rutland-house-surgery-muswell-hill) the full extent of the poisoning and they did a blood test, and that's it.
     - If I insist on full neurological analysis, will the technician be snickering at me?
 - If something bad happens to me, I cannot call any law enforcement organization because they will ignore me.
-    - Spanish police did care at all about what was happening to me. I reported three time:
+    - Spanish police didn't care at all about what was happening to me. 
+    - I reported to them three times about:
         - [Cyber stalking in February 2024](../2024/february.md#my-first-trip-to-the-spanish-police-in-denia)
         - [Gang stalking and hacking in March 2024](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid)
         - [Poisoning and attempted murder in January 2025](../2025/january.md#madrid-policia)
-    - I was told it was a civil matter, or I'd have to pay for expensive private analysis of hacked devices and poison samples before they would investigate.
+    - I was told initially it was a civil matter, and then I was told I'd have to pay for expensive private analysis of hacked devices and poison samples before they would investigate.
     - I have spoken to the UK police countless times about what has been happening to me. They ignore me or [suggest it's nothing](../2025/january.md#i-call-the-police).
 - I have spoken to embassies, newspapers, famous people... no-one wants to help me.
 - It's difficult to know what to do with myself.
-- I turns out even [my family members](../early-years/2015.md#inexplicable-anal-fissure) were targeted by Domingo's family gang (my piano teacher - you can see him sitting proudly with his Lourdes poisoning associate to the left and a new victim beside him in [the first picture in this section](../2025/july.md#lourdes)) to conspire in sedated porn events with me and my mother.
-- I believe the porn gangs of Dénia, with hacking capabilities that put them in equal place with global security services, were left to blossom and bloom by police (protect-the-rapists-and-porn.com) and control the world, more or less; at least, anyone with a criminal porn subscription, they own.
+- I turns out even [my family members](../early-years/2015.md#inexplicable-anal-fissure) were targeted by North London gangs working closely with Domingo's family gang (my piano teacher - you can see him sitting proudly and triumphantly with his Lourdes poisoning associate to the far left, and a new victim beside him in [the first picture in this section](../2025/july.md#lourdes)) to conspire in sedated porn events with me and even my mother.
+- I believe the porn gangs of Dénia, with hacking capabilities that put them in equal place to global security services, were left to blossom and bloom by law enforcement everywhere (protect-the-rapists-and-porn.com) and they now control the world, more or less; at least, anyone with a criminal porn subscription, they own.
 - What can they not do?
 - And what stupidity might their evil be wreaking on our beautiful world?
 - I know what I think they've done. And it's horrific.
-- I believe the porn gangs of Dénia sold their very effective manipulation tech to the caliphate and blackmailed the startup tech-bros to run the tech on mass AI systems, direct from London and California.
-- I also believe it is no accident that the mass manipulation of vulnerable girls into believing they're boys happened at the same time, and was essentially a porn-genre, and now an (single-figure-years-old) ideology that has infested legislation, top to bottom.
-- Doesn't anyone see what I see?
+- I believe the porn gangs of Dénia sold their very effective manipulation tech to the caliphate and blackmailed the multiple product-less startup tech-bros, distracted by porn genres like *the-female-tech-colleague-you-despise*, so that they are now running the caliphate's manipulation tech on their mass AI backend systems, direct from London and California.
+- I also believe it is no accident that the mass manipulation of vulnerable girls into believing they're boys happened at the same time, and was essentially a porn-genre, and now an (single-figure-years-old) ideology that has infested Western legislation, top to bottom.
+- Doesn't anyone else see what I'm seeing?
+- Isn't it so obvious?
 - Perhaps neurological-brain-damaging a PhD in Computer Science takes the physical sight function inside...
 - Anyway...
 - God I'm so cross.
 - I believe we're worth fighting for; the West, Great Britain my country, Ireland my other country, America where my buddies live, Israel which is holding everything together for all of us, so precariously and under so much manipulated fire, while the porn gangs of Dénia have literally handed the keys over to the caliphate on the basis that more erections make them more money.
 - God help us please.
-- A miracle, please, for all of us.
+- A miracle, please, for Your beautiful world that dark forces amongst us are so successfully threatening.
 - A miracle, please, for me, so I know what to do next.
 
 !!! quote "No order of difficulty in miracles"
@@ -145,5 +148,5 @@ function googleTranslateElementInit() {
 - She didn't disagree.
 - A little later I said, *I believe miracles can save the world*.
 - She said, *yes, but one miracle's not probably going to be enough*.
-- And I said, *well, if miracles exist, and given I'm an example of one, then they must be unlimited*.
-- Any maybe that will save us.
+- And I said, *well, if miracles exist, and given I'm an example of one of them, then they must be unlimited*.
+- Any maybe that fact will save us.
