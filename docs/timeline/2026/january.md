@@ -82,18 +82,18 @@ function googleTranslateElementInit() {
 
 ## During, after, now
 
-- Here's two pictures of me.
+- Here's two pictures of me, taken just two years apart.
 
 ![During, after](../../content/images/during-after.jpeg)
 
-- The picture on the left was taken in September 2023, just after [the Dénia hackers revealed themselves](../2023/august.md#the-hackers-reveal-themselves) in France and I was so terrified about going back to my home in Carrer Furs [I go public on Twitter](../2023/september.md#going-public-on-twitter).
+- The picture on the left was taken in September 2023, just after [the Dénia hackers revealed themselves](../2023/august.md#the-hackers-reveal-themselves) and I was so terrified about going back to my home in Carrer Furs [I go public on Twitter](../2023/september.md#going-public-on-twitter).
 - The cyber-and-in-person stalking at that time was intense and relentless.
 - I can see fear and frustration in my expression.
 - At that time, I had no idea I had been starring in [sedated switcheroo porn at the music school](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) between 28th November 2022 and June 12th 2023.
 - I also had no idea I was being poisoned and drugged continually in my apartments in Dénia, over decades, and wherever the Dénia gypsy gangs could access my room, my toiletries, and my food while I was away traveling.
-- I find out later that the purpose of behind that was regular episodes of sedated rape, live-streamed on criminal porn networks.
+- I find out later that the purpose behind that was regular episodes of sedated rape, live-streamed on criminal porn networks.
 - No-one expected me to [not have stopped at Alicante airport](../2023/june.md#sunday-18th-june-alicante-airport) for the [third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) just after the conservatory switcheroo-porn-special ended; with me eventually running around naked in a field after a horse, live-streamed to the paying perverts, and then murdered and fed to the pigs.
-- I hadn't behaved like the thousands of their other victims, and the porn gangs of Dénia were in a state of pure panic.
+- I hadn't behaved like the thousands of other victims, and the porn gangs of Dénia were in a state of pure panic.
 - The picture on the right was taken in September 2025, after at least three serious attempts at poisoning me with the intention of murder and/or severe maiming, all of which failed.
 
     - [Halloween 2023's exploding kidney](../2023/october.md#halloween).
@@ -131,7 +131,7 @@ function googleTranslateElementInit() {
 - And what stupidity might their evil be wreaking on our beautiful world?
 - I know what I think they've done. And it's horrific yet unsurprising.
 - I believe the porn gangs of Dénia sold their very effective manipulation tech to the caliphate and blackmailed multiple product-less startup tech-bros, distracted by porn genres like *the-female-tech-colleague-you-despise*, so that they are now running the caliphate's manipulation tech on their mass AI backend systems, direct from London and California.
-- I also believe it is no accident that the mass manipulation of vulnerable girls into believing they're boys happened at the same time, and was essentially a porn-genre, and now an (single-figure-years-old) ideology that has infested Western legislation, top to bottom.
+- I also believe it is no accident that the mass manipulation of vulnerable girls into believing they're boys happened at the same time, and was essentially a porn-genre, and now a (single-figure-years-old) ideology that has infested Western legislation, top to bottom.
 - Doesn't anyone else see what I'm seeing?
 - Isn't it so obvious?
 - Perhaps neurological-brain-damaging a PhD in Computer Science takes the physical sight function inside...
