@@ -148,5 +148,5 @@ function googleTranslateElementInit() {
 - She didn't disagree.
 - A little later I said, *I believe miracles can save the world*.
 - She said, *yes, but one miracle's not probably going to be enough*.
-- And I said, *well, if miracles exist, and given I'm an example of one of them, then they must be unlimited*.
+- And I said, *well, if miracles exist, and given I'm an example of one of them they do, then God's hardly gonna just give us one each... if they exist, they must be unlimited*.
 - Any maybe that fact will save us.
