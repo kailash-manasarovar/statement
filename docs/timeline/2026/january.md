@@ -130,4 +130,20 @@ function googleTranslateElementInit() {
 - Perhaps neurological-brain-damaging a PhD in Computer Science takes the physical sight function inside...
 - Anyway...
 - God I'm so cross.
+- I believe we're worth fighting for; the West, Great Britain my country, Ireland my other country, America where my buddies live, Israel which is holding everything together for all of us, so precariously and under so much manipulated fire, while the porn gangs of Dénia have literally handed the keys over to the caliphate on the basis that more erections make them more money.
 - God help us please.
+- A miracle, please, for all of us.
+- A miracle, please, for me, so I know what to do next.
+
+!!! quote "No order of difficulty in miracles"
+    There is no order of difficulty in miracles. 
+    One is not “harder” or “bigger” than another. 
+    They are all the same. 
+    All expressions of love are maximal. 
+
+- As I said to my military friend last summer, *I am a miracle*.
+- She didn't disagree.
+- A little later I said, *I believe miracles can save the world*.
+- She said, *yes, but one miracle's not probably going to be enough*.
+- And I said, *well, if miracles exist, and given I'm an example of one, then they must be unlimited*.
+- Any maybe that will save us.
