@@ -63,39 +63,40 @@ function googleTranslateElementInit() {
 - I wonder if that was the deal with Hans; no work, just a tax-free life in Dubai for significant abuse of the *female-tech-colleague-you-despise* after the [Bali offsite](may.md#bali)... so I'd leave.
 - Could they be that messed up?
 - Gabriel then ramps up the bullying even more; for example, he tells me he's getting another colleague, Mitch Egen from marketing, to write technical docs for us (my job again).
-- Mitch then repeats verbatim how I have always described the technical author role, as if he's reading a script taken from a recording (hacked Zoom meetings?).
-- The most aggressive part of this is that whenever I said those things to Gabriel, he always told me I was wrong about it and had another immature idea which was better than mine.
-- Gabriel then sets me up to fail again; specifically with Anthony making a lot of mistakes in a busy sprint cycle with the CDK team (Anthony was not skilled enough for the role). 
+- Mitch then repeats verbatim how I have always described the technical author role, as if he's reading a script taken from a recording of me (hacked Zoom meetings?).
+- The most aggressive part of this is that whenever I said those things to Gabriel, he always told me I was wrong about it and had another immature idea which was better than mine; silencing.
+- Gabriel then sets me up to fail again; specifically by giving Anthony tasks he was unskilled for, ensuring he will make a lot of mistakes in a busy sprint cycle with the CDK team.
 - Anthony has stopped talking to me as if I'm a normal person whenever I try to help and advise him.
-- I see the tripwire and don't fall.
+- I see the tripwire and step over it.
 - However, I can see Gabriel is very confident with his plans, and Anthony's dismissive communication style says to me: *you're not going to be here in a few weeks anyway, I don't even have to talk to you politely*.
 - I have no other choice but to complain about victimization to save my job.
 - I contact Alyssa from HR on Slack and tell her I'm being victimized for my political views and it has been going on since I started.
 - I tell her I won't give her a full and complete explanation until I understand the company process.
 - I request a non-biased mediator also.
-- I do tell Alyssa that I've been viciously stalked and hacked in Dénia by criminal gangs throughout my tenure at Polygon (something Gabriel, Hans, Anthony, Vincent, and numerous others are aware of because I told them).
+- I do tell Alyssa about the [Pakistani Yorkshireman who made sexually violent threats to me at dinner in Bali](may.md#the-pakistani-yorkshire-man) and that I had informed Miriam about it the following morning.
+- I also do tell Alyssa that I've been viciously stalked and hacked in Dénia by criminal gangs throughout my tenure at Polygon (something Gabriel, Hans, Anthony, Vincent, and numerous others are aware of because I told them).
 - At this stage, I'm unaware the two situations are intertwined.
-- Rebecca Rettig, Head of Legal, reaches out on Slack probably mid-month sometime (the date on the screenshot is probably a week later, when I took the screenshot).
+- Rebecca Rettig, Head of Legal, reaches out on Slack - the date on the screenshot is probably a week later, when I started screen-shotting everything.
 
 ![Slack 1](../../content/images/polygon/hr1.png)
 ![Slack 2](../../content/images/polygon/hr2.png)
 
-- I wait some time for a process document for these event which the company doesn't really have.
+- I wait some time for a process document which the company doesn't really have.
 - Around this time, the HR team has a company-wide meeting in which they mention my experience as a *female-tech-colleague-you-despise* in an underhand way.
 - James Dawes (ex-colleague of [Hans Bodani](../2023/november.md#polygon) at Mantle) leads the meeting and alludes to something exciting coming up.
 - He starts to mention the word [Fetch](../early-years/interim.md#fetchai) over and over for no particular reason.
 - "Remember", Alyssa says laughing, "Remember the word Fetch"!
 - Fetch is a direct reference to the company in Cambridge UK, Fetch.Ai, [where a man flashed at me in an online meeting](../early-years/interim.md#fetchai).
-- I tell the HR woman when I meet her again about my experience at Fetch without mentioning the company.
+- When I meet Alyssa again, I tell her about my experience at Fetch without mentioning the company name.
 - At our next team meeting, Gabriel Silva makes sure to mention we *must* all watch this meeting if we haven't already, especially me.
-- Polygon then hires a [man who targeted me at zkSync](../2023/june.md#work-stress in April 2023 while the [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) was in full swing, Coogan.
-- The HR woman asks me if Rebecca Rettig can talk to me about what's been going on and I agree.
+- Polygon then hires a [man who targeted me at zkSync](../2023/june.md#work-stress) in April 2023 while the [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) was in full swing, Coogan.
+- Alyssa tells me Rebecca Rettig wants to talk to me about what's been going on and I agree to talk to her when I understand the process fully.
 - We never speak. 
 - They fire me first.
 
 !!! tip "Give her a reason to be stressed..."
     - We know that sedated rape makes women depressed and anxious without knowing why.
-    - Professional sedating rape-gangs, therefore, must give women a *reason* to be stressed.
+    - Professional sedating rape-gangs making money on this lucrative genre, therefore, must give women a *reason* to be stressed to avoid suspicion.
     - This explains the outrageous behavior of teachers and staff at the conservatory towards me.
     - It also explains the presence of Nadim, Hans, and the bullying events at Polygon most especially [the engineer who looked like Jitendra Das making sexually violent threats towards me](../2024/may.md#the-pakistani-yorkshire-man) at dinner in Bali.
     - I assume Spanish gitano misogynist terrorists have known for centuries that a *hysterical*, stressed, depressed, and anxious woman is never believed.
