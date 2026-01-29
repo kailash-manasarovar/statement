@@ -71,22 +71,22 @@ function googleTranslateElementInit() {
 - However, I can see Gabriel is very confident with his plans, and Anthony's dismissive communication style says to me: *you're not going to be here in a few weeks anyway, I don't even have to talk to you politely*.
 - I have no other choice but to complain about victimization to save my job.
 - I contact Alyssa from HR on Slack and tell her I'm being victimized for my political views and it has been going on since I started.
-- I tell her I won't give her a full and complete explanation until I understand the company process.
+- I tell her I won't give her a full and complete description until I understand the company process.
 - I request a non-biased mediator also.
 - I do tell Alyssa about the [Pakistani Yorkshireman who made sexually violent threats to me at dinner in Bali](may.md#the-pakistani-yorkshire-man) and that I had informed Miriam about it the following morning.
-- I also do tell Alyssa that I've been viciously stalked and hacked in Dénia by criminal gangs throughout my tenure at Polygon (something Gabriel, Hans, Anthony, Vincent, and numerous others are aware of because I told them).
+- I also do tell Alyssa that I'm being viciously stalked and hacked in Dénia by criminal gangs and it has been going on throughout my tenure at Polygon (something Gabriel, Hans, Anthony, Vincent, and numerous others are aware of because I told them).
 - At this stage, I'm unaware the two situations are intertwined.
 - Rebecca Rettig, Head of Legal, reaches out on Slack - the date on the screenshot is probably a week later, when I started screen-shotting everything.
 
 ![Slack 1](../../content/images/polygon/hr1.png)
 ![Slack 2](../../content/images/polygon/hr2.png)
 
-- I wait some time for a process document which the company doesn't really have.
-- Around this time, the HR team has a company-wide meeting in which they mention my experience as a *female-tech-colleague-you-despise* in an underhand way.
+- I wait some time for a process document which the company doesn't seem to have.
+- While this is going on, the HR team has a company-wide meeting in which they mention my experience as a *female-tech-colleague-you-despise* in an underhand way.
 - James Dawes (ex-colleague of [Hans Bodani](../2023/november.md#polygon) at Mantle) leads the meeting and alludes to something exciting coming up.
 - He starts to mention the word [Fetch](../early-years/interim.md#fetchai) over and over for no particular reason.
-- "Remember", Alyssa says laughing, "Remember the word Fetch"!
-- Fetch is a direct reference to the company in Cambridge UK, Fetch.Ai, [where a man flashed at me in an online meeting](../early-years/interim.md#fetchai).
+- "Remember", Alyssa says laughing later on, "Remember the word Fetch"!
+- Fetch is a direct reference to the company in Cambridge UK, Fetch.Ai, [where a man flashed at me in an online meeting](../early-years/interim.md#fetchai) a week after I started.
 - When I meet Alyssa again, I tell her about my experience at Fetch without mentioning the company name.
 - At our next team meeting, Gabriel Silva makes sure to mention we *must* all watch this meeting if we haven't already, especially me.
 - Polygon then hires a [man who targeted me at zkSync](../2023/june.md#work-stress) in April 2023 while the [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) was in full swing, Coogan.
@@ -104,12 +104,17 @@ function googleTranslateElementInit() {
 ### Update
 
 - For this section, I had saved countless Slack screenshots between myself, Polygon HR, and Rebecca Rettig.
-- In Bangkok, staying near Lupini Park beside the American embassy, I saved everything I had onto all my Google drives.
-- I had backups in three different places.
-- Arriving back home in the UK, I'm denied access to one of my Google accounts and there is no reason I'm not being asked for a screen-lock, or an email to my backup accounts, to gain access as before.
+- Because I was so high and couldn't remember things from the day before; I took duplicates, triplicates.. I had hundreds. 
+- I wasn't looking forward to collating them tbh so I saved them.
+- In Bangkok, staying near Lupini Park beside the American embassy, I laboriously backed up everything I had onto all my Google drives.
+- I had backups in three different places; giant humongous backups.
+- And all the originals mailed to me in my katharinejc account.
+- Arriving back home in the UK in January 2026, I'm denied access to this Google accounts and there is no reason for it.
+- I'm not asked for a screen-lock, or an email to my backup accounts, to gain access as before.
 - All the Google drive information pertaining to this police statement on my other two Google accounts is deleted.
 - I guess the porn-gangs and the caliphate are the winners, protected at the highest level.
 - Bye bye beautiful world...
+- Perhaps there's other backups...
 
 ## Activity in apartment number 18 next door
 
