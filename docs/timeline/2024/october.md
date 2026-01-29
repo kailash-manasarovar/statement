@@ -46,26 +46,69 @@ function googleTranslateElementInit() {
 
 [![Porn gangs in schools](../../content/tweets/porn-gangs-in-schools.png)](https://x.com/1FRGVN/status/1845076405328937129)
 
-## Bullying at Polygon
+## Bullying ramps up at Polygon
 
-!!! tip "In retrospect"
-    - I wonder if Polygon's role from the porn-gang perspective - apart from financial and operational - was to add even more *bullying* alibi they could use to destabilize me and, if they needed to, charge me with hysteria or a vivid imagination, or whatever they do when they do it all together against one woman's complaints.
-    - This makes even more sense given I had no choice but to leave the conservatory in fear for my life and so they could not be used anymore as alibi for elaborate claims.
+- The oppression at Polygon is fever-pitched and panicky.
+- They are very obviously building up to firing me.
+- Rather like [refusing to stop my piano studies at the conservatory in June 2023](../2023/june.md#monday-19th-june), I have no reason to leave the job I love and am very good at (brain-damage from years of poisoning notwithstanding).
+- However, my colleagues' demeanor towards me at the [Bali offsite](may.md#bali) - which Elon may have briefly attended - solidified in my mind what had been going on since the previous November when I started my job; especially with [Nadim Kobesi](../2023/november.md#nadim-kobesi), [Hans Bodani](../2023/november.md#hans-bodani), and [the military coup on my role by the marketing teams](../2024/may.md#ajay-alicia-aman-pandey-and-mushroom-man-perform-a-military-coup-on-my-job).
+- I have no idea I'm being targeted because I'm a sedated Dénia porn-gang sensation and had been starring in [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) and live-stream spy-cam porn direct from my apartment for years.
+- I had no idea.
+- The only possible reason I could come up with for the constant abuse at work was my political views on trans ideology and women's rights.
+- Gabriel meets me and I ask him what he's going to do about Hans's and Anthony's outrageous insubordination.
+- Gabriel explains he's starting afresh, he's going to forget about the past and move forward.
+- It sounds reasonable.
+- He then takes away all my work and gives it to Hans and Anthony.
+- At a later meeting, I ask Gabriel about his experience with Hans. He says: *oh, he doesn't seem to be doing any work*.
+- I wonder if that was the deal with Hans; no work, just a tax-free life in Dubai for significant abuse of the *female-tech-colleague-you-despise* after the [Bali offsite](may.md#bali)... so I'd leave.
+- Could they be that messed up?
+- Gabriel then ramps up the bullying even more; for example, he tells me he's getting another colleague, Mitch Egen from marketing, to write technical docs for us (my job again).
+- Mitch then repeats verbatim how I have always described the technical author role, as if he's reading a script taken from a recording (hacked Zoom meetings?).
+- The most aggressive part of this is that whenever I said those things to Gabriel, he always told me I was wrong about it and had another immature idea which was better than mine.
+- Gabriel then sets me up to fail again; specifically with Anthony making a lot of mistakes in a busy sprint cycle with the CDK team (Anthony was not skilled enough for the role). 
+- Anthony has stopped talking to me as if I'm a normal person whenever I try to help and advise him.
+- I see the tripwire and don't fall.
+- However, I can see Gabriel is very confident with his plans, and Anthony's dismissive communication style says to me: *you're not going to be here in a few weeks anyway, I don't even have to talk to you politely*.
+- I have no other choice but to complain about victimization to save my job.
+- I contact Alyssa from HR on Slack and tell her I'm being victimized for my political views and it has been going on since I started.
+- I tell her I won't give her a full and complete explanation until I understand the company process.
+- I request a non-biased mediator also.
+- I do tell Alyssa that I've been viciously stalked and hacked in Dénia by criminal gangs throughout my tenure at Polygon (something Gabriel, Hans, Anthony, Vincent, and numerous others are aware of because I told them).
+- At this stage, I'm unaware the two situations are intertwined.
+- Rebecca Rettig, Head of Legal, reaches out on Slack probably mid-month sometime (the date on the screenshot is probably a week later, when I took the screenshot).
 
-- Polygon are more obviously building up to firing me.
-- Colleagues' demeanor towards me in [Bali](may.md#bali) really solidified what had been going on since the previous November.
-- I request an investigation done with regards to being targeted continually for my [women's rights activism](june.md#uk-general-election).
-- I don't realize that I've been targeted because of the [porn fatwa](../early-years/2003.md#porn-fatwa) which has gotten totally out of control; my women's rights activities are an extra gift for them I expect.
-- The HR team has a company-wide meeting in which they mention me specifically in a underhand way.
-- James Dawes (ex-colleague of [Hans Bodani](../2023/november.md#polygon)) leads the meeting and alludes to something exciting coming up.
+![Slack 1](../../content/images/polygon/hr1.png)
+![Slack 2](../../content/images/polygon/hr2.png)
+
+- I wait some time for a process document for these event which the company doesn't really have.
+- Around this time, the HR team has a company-wide meeting in which they mention my experience as a *female-tech-colleague-you-despise* in an underhand way.
+- James Dawes (ex-colleague of [Hans Bodani](../2023/november.md#polygon) at Mantle) leads the meeting and alludes to something exciting coming up.
 - He starts to mention the word [Fetch](../early-years/interim.md#fetchai) over and over for no particular reason.
-- "Remember", the HR woman who takes over says laughing, (incidentally the same woman I'm reporting bullying to), "Remember the word Fetch".
-- Fetch is a direct reference to when [I was working at a company in Cambridge and a man flashed at me in an online meeting](../early-years/interim.md#fetchai).
-- HR professionals share stories like these so that women will eventually be driven out of tech for good. They've very nearly achieved this goal.
-- Gabriel Silva makes sure to mention we *must* all watch this meeting if we didn't attend, especially me.
-- Polygon hires a [man who targeted me at zkSync](../2023/june.md#work-stress), Coogan.
-- I guess there are so few technical female-workers in the industry, you're bound to be targeted by the wider community.
-- I wonder if James Dawes and the HR team had seen me [starring in child rape-gang porn](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) too?
+- "Remember", Alyssa says laughing, "Remember the word Fetch"!
+- Fetch is a direct reference to the company in Cambridge UK, Fetch.Ai, [where a man flashed at me in an online meeting](../early-years/interim.md#fetchai).
+- I tell the HR woman when I meet her again about my experience at Fetch without mentioning the company.
+- At our next team meeting, Gabriel Silva makes sure to mention we *must* all watch this meeting if we haven't already, especially me.
+- Polygon then hires a [man who targeted me at zkSync](../2023/june.md#work-stress in April 2023 while the [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) was in full swing, Coogan.
+- The HR woman asks me if Rebecca Rettig can talk to me about what's been going on and I agree.
+- We never speak. 
+- They fire me first.
+
+!!! tip "Give her a reason to be stressed..."
+    - We know that sedated rape makes women depressed and anxious without knowing why.
+    - Professional sedating rape-gangs, therefore, must give women a *reason* to be stressed.
+    - This explains the outrageous behavior of teachers and staff at the conservatory towards me.
+    - It also explains the presence of Nadim, Hans, and the bullying events at Polygon most especially [the engineer who looked like Jitendra Das making sexually violent threats towards me](../2024/may.md#the-pakistani-yorkshire-man) at dinner in Bali.
+    - I assume Spanish gitano misogynist terrorists have known for centuries that a *hysterical*, stressed, depressed, and anxious woman is never believed.
+
+### Update
+
+- For this section, I had saved countless Slack screenshots between myself, Polygon HR, and Rebecca Rettig.
+- In Bangkok, staying near Lupini Park beside the American embassy, I saved everything I had onto all my Google drives.
+- I had backups in three different places.
+- Arriving back home in the UK, I'm denied access to one of my Google accounts and there is no reason I'm not being asked for a screen-lock, or an email to my backup accounts, to gain access as before.
+- All the Google drive information pertaining to this police statement on my other two Google accounts is deleted.
+- I guess the porn-gangs and the caliphate are the winners, protected at the highest level.
+- Bye bye beautiful world...
 
 ## Activity in apartment number 18 next door
 
@@ -307,7 +350,7 @@ function googleTranslateElementInit() {
 
 ### Polygon fires the whole writing team
 
-- I'm fired summarily on 25th October, [as expected](#bullying-at-polygon).
+- I'm fired summarily on 25th October, [as expected](#bullying-ramps-up-at-polygon).
 - The constant dehumanizing up to now didn't work so they had to think of something more formal.
 - I'm buzzed into a meeting with HR.
 - Gabriel Silva reads from a script with Jonathan the HR guy standing beside him.

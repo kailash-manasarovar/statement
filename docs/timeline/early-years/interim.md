@@ -190,7 +190,7 @@ function googleTranslateElementInit() {
 - Furthermore, I am a contractor so I cannot make an official complaint about sexual harassment anyway.
 - Was this man connected up to online porn-addict communities and did he know who I was from the [porn fatwa](../early-years/2003.md#porn-fatwa) now getting out of control?
 - Did he upload that morning meeting to the tech-bro porn-networks?
-- James Dawes and his team [use the word "Fetch" over and over in their October 2024](../2024/october.md#bullying-at-polygon) meeting at Polygon in 2024, which I believe was specifically done to terrorize and persecute me, with management's awareness and complicity in the bigger story.
+- James Dawes and his team [use the word "Fetch" over and over in their October 2024](../2024/october.md#bullying-ramps-up-at-polygon) meeting at Polygon in 2024, which I believe was specifically done to terrorize and persecute me, with management's awareness and complicity in the bigger story.
 
 ## October 2019
 
