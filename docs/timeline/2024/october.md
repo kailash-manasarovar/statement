@@ -54,7 +54,7 @@ function googleTranslateElementInit() {
 - However, my colleagues' demeanor towards me at the [Bali offsite](may.md#bali) - which Elon may have briefly attended - solidified in my mind what had been going on since the previous November when I started my job; especially with [Nadim Kobesi](../2023/november.md#nadim-kobesi), [Hans Bodani](../2023/november.md#hans-bodani), and [the military coup on my role by the marketing teams](../2024/may.md#ajay-alicia-aman-pandey-and-mushroom-man-perform-a-military-coup-on-my-job).
 - I have no idea I'm being targeted because I'm a sedated Dénia porn-gang sensation and had been starring in [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) and live-stream spy-cam porn direct from my apartment for years.
 - I had no idea.
-- The only possible reason I could come up with for the constant abuse at work was my political views on trans ideology and women's rights.
+- The only possible reason I could come up with for the constant abuse at work were my political views on trans ideology and women's rights.
 - Gabriel Silva meets me and I ask him what he's going to do about Hans's and Anthony's outrageous insubordination.
 - Gabriel explains he's starting afresh, he's going to forget about the past and move forward.
 - It sounds reasonable.
@@ -73,7 +73,7 @@ function googleTranslateElementInit() {
 - I contact Alyssa from HR on Slack and tell her I'm being victimized for my political views and it has been going on since I started.
 - I tell her I won't give her a full and complete description until I understand the company process.
 - I request a non-biased mediator also.
-- I do tell Alyssa about the [Pakistani Yorkshireman who made sexually violent threats to me at dinner in Bali](may.md#the-pakistani-yorkshire-man) and that I had informed Miriam about it the following morning.
+- I do tell Alyssa about the [Pakistani Yorkshireman who made sexually violent threats to me at dinner in Bali](may.md#the-pakistani-yorkshire-man) and that I had informed Miriam from Spanish HR about it the following morning.
 - I also do tell Alyssa that I'm being viciously stalked and hacked in Dénia by criminal gangs and it has been going on throughout my tenure at Polygon (something Gabriel, Hans, Anthony, Vincent, and numerous others are aware of because I told them).
 - At this stage, I'm unaware the two situations are intertwined.
 - Rebecca Rettig, Head of Legal, reaches out on Slack - the date on the screenshot is probably a week later, when I started screen-shotting everything.
@@ -86,7 +86,7 @@ function googleTranslateElementInit() {
 - James Dawes (ex-colleague of [Hans Bodani](../2023/november.md#polygon) at Mantle) leads the meeting and alludes to something exciting coming up.
 - He starts to mention the word [Fetch](../early-years/interim.md#fetchai) over and over for no particular reason.
 - "Remember", Alyssa says laughing later on, "Remember the word Fetch"!
-- Fetch is a direct reference to the company in Cambridge UK, Fetch.Ai, [where a man flashed at me in an online meeting](../early-years/interim.md#fetchai) a week after I started.
+- Fetch is a direct reference to the company in Cambridge UK, Fetch.AI, [where a man flashed at me in an online meeting](../early-years/interim.md#fetchai) a week after I started.
 - When I meet Alyssa again, I tell her about my experience at Fetch without mentioning the company name.
 - At our next team meeting, Gabriel Silva makes sure to mention we *must* all watch this meeting if we haven't already, especially me.
 - Polygon then hires a [man who targeted me at zkSync](../2023/june.md#work-stress) in April 2023 while the [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) was in full swing, Coogan.
