@@ -104,8 +104,8 @@ function googleTranslateElementInit() {
 ### Update
 
 - For this section, I had saved countless Slack screenshots between myself, Polygon HR, Gabriel Silva, Rebecca Rettig and others.
-- Because I was so high and couldn't focus enough to remember or remind myself about actions on previous days; I took duplicates, triplicates.. I had hundreds.
-- I did this because I was aware that my mind was not functioning properly. 
+- Because I was so high and couldn't focus enough to remember or remind myself about actions I had on previous days; I took duplicates, triplicates.. I had hundreds.
+- I did this because, at some level, I was aware that my mind was not functioning properly. 
 - I wasn't looking forward to collating them there were so many, so I saved them.
 - In Bangkok in November 2025, staying near Lupini Park beside the American embassy, I laboriously backed up everything I had onto all my Google drives.
 - I had backups in three different places; giant, humongous backups.
