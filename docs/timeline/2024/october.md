@@ -103,17 +103,26 @@ function googleTranslateElementInit() {
 
 ### Update
 
-- For this section, I had saved countless Slack screenshots between myself, Polygon HR, and Rebecca Rettig.
-- Because I was so high and couldn't remember things from the day before; I took duplicates, triplicates.. I had hundreds. 
-- I wasn't looking forward to collating them tbh so I saved them.
-- In Bangkok, staying near Lupini Park beside the American embassy, I laboriously backed up everything I had onto all my Google drives.
-- I had backups in three different places; giant humongous backups.
-- And all the originals mailed to me in my katharinejc account.
-- Arriving back home in the UK in January 2026, I'm denied access to this Google accounts and there is no reason for it.
+- For this section, I had saved countless Slack screenshots between myself, Polygon HR, Gabriel Silva, Rebecca Rettig and others.
+- Because I was so high and couldn't focus enough to remember or remind myself about actions on previous days; I took duplicates, triplicates.. I had hundreds.
+- I did this because I was aware that my mind was not functioning properly. 
+- I wasn't looking forward to collating them there were so many, so I saved them.
+- In Bangkok in November 2025, staying near Lupini Park beside the American embassy, I laboriously backed up everything I had onto all my Google drives.
+- I had backups in three different places; giant, humongous backups.
+- And all the originals I had mailed to myself in my katharinejc Google account.
+- Arriving back in London in January 2026, I'm denied access to this Google account and there is no reason for it.
 - I'm not asked for a screen-lock, or an email to my backup accounts, to gain access as before.
-- All the Google drive information pertaining to this police statement on my other two Google accounts is deleted.
-- I guess the porn-gangs and the caliphate are the winners, protected at the highest level.
+- I raise [an issue on the Google community help pages](https://support.google.com/accounts/thread/403846478/hacked-laptop-home-router-blocking-account-recovery), but it drifts into silence.
+
+![Google community help request](../../content/images/google-community-help.png)
+
+- Today, I go to find my Slack screenshot back ups from October 2024.
+- There are none.
+- All Google drive information pertaining to this police statement on my other two Google accounts has been deleted.
+- It's as if I didn't spend three whole days backing up gigabytes of data to my Google drives online in Bangkok.
+- I guess the porn-gangs and the caliphate, proud sponsors of the male erection, are the winners, protected at the highest level.
 - Bye bye beautiful world...
+- Or...
 - Perhaps there's other backups...
 
 ## Activity in apartment number 18 next door
