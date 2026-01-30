@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 ## Too-good-to-be-true on the 8th December
 
-- I had planned a trip to Egypt in December for Christmas but my flat in Lourdes (I had just moved apartment that October to a bigger one in the same complex) had a serious and intolerable bedbug problem.
+- I had planned a trip to Egypt in December for Christmas but my flat in Lourdes (I had just moved apartments that October to a bigger one in the same complex) had a serious and intolerable bedbug problem.
 - It was about three weeks before I was due to leave for Egypt (I like climbing the mountain there... anyway).
 - The [trumpet teacher guy](../../crimes/protagonists/vidal-sastre.md#the-younger-brother-of-the-first-man) had been in and out of this apartment regularly before I moved into it and discovered it had a horrific bedbug problem.
 - I couldn't understand how he had put up with it, at the time!
@@ -20,13 +20,13 @@ function googleTranslateElementInit() {
 - I had been doing a lot of apartment searches since August and had found nothing at all.
 - On December 8th, however, a very significant day for me spiritually (the Feast of the Immaculate Conception), while I was in Dénia, an apartment came up for rent which was perfect; too good to be true even.
 - Carrer Furs 15, Bloque 1 Escalera 2 Piso 3 Apartamento 17, Dénia 03700 Alicante.
-- I contacted the landlady, Beatriz Garcia Morales, and signed the agreement.
+- I contacted the landlady, Beatriz Garcia Morales, viewed the property and signed the agreement.
 - Beatriz and her husband run a local architects company: [QB arquitectos](https://qbarquitectos.com/). 
 - The landlady, Beatriz, was angry with me, and disagreeable.
-- I told her I'd be one day interested in her building me a beautiful house on the Montgo and she looked at me like I was insane.
+- I told her I'd one day be interested in her building me a beautiful house on the Montgo and she looked at me like I was insane.
 - I thought: *what a weird woman*.
 - She barked at me when I said; *I hope I'm not going to regret this*, as I signed the lease, having reservations based on her demeanor.
-- Hackers mentioned her grumpy demeanor online to me over the summer in 2024 in a, as usual, derogatory manner.
+- Hackers mentioned her grumpy demeanor online to me over the summer in 2024 in an, as usual, derogatory manner.
 - Was she angry about having to essentially be involved in murdering a woman? Had it happened before in her apartment? What happened to the previous tenant, the nurse from Dénia hospital she was constantly talking about? Are all the properties her company is involved with fitted with high-res spy-cam systems streaming directly onto porn-networks?
 - I signed the [rental contract](../../content/documents/contracto/rental-contract.pdf) and moved in on December 15th.
 
@@ -36,7 +36,7 @@ function googleTranslateElementInit() {
 - It appears to relieve the owner of all indemnity enforced by Spanish law.
 - For a contract with an initial term of 1 year, this seems a little strange, sinister even.
 - I have never seen a clause like that in a rental contract before and I have read a great many.
-- Did someone get caught up in a legal situation previously in a case of a targeted person who did not have a clause like this in their rental contract?
+- Did someone get caught up in a legal situation previously in a case of a targeted person who did not have a clause like this in their rental contract, and was murdered?
 - Click to read the [death clause](../../content/documents/contracto/death%20clause.jpeg) in my rental contract.
 
 ### Keys
@@ -49,7 +49,7 @@ function googleTranslateElementInit() {
 
 ### Rent
 
-- The landlady changed the account I pay rent to twice in three years.
+- The landlady changed the account I paid rent to twice in three years.
 - I paid rent to three different accounts in three year's of tenancy.
 - I didn't believe all these accounts were hers, initially, and suspected Lopez Cano skullduggery, I even thought Paqui Fornet might be cashing in on the local sedated sex slave.
 
@@ -81,7 +81,7 @@ function googleTranslateElementInit() {
 - On moving in day, 15th December, Bea, her parents, and her husband turned up.
 - They parked in the garage and I saw Bea bark at her husband to stay in the car and he did as he was told.
 - I never met him.
-- Was she making sure he didn't see me and get a taste for the old sedated-sex-slave scam that they all knew was about to start up again?
+- Was she making sure he didn't see me and get a taste for the ole sedated-sex-slave scam that they all knew was about to start up again?
 
 ## Something not right with the air-conditioning unit
 
