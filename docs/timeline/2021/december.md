@@ -10,18 +10,24 @@ function googleTranslateElementInit() {
 
 ## Too-good-to-be-true on the 8th December
 
-- I had planned a trip to Egypt in December for Christmas but my flat in Lourdes got serious bedbugs about three weeks before I was due to leave.
+- I had planned a trip to Egypt in December for Christmas but my flat in Lourdes (I had just moved apartment that October to a bigger one in the same complex) had a serious and intolerable bedbug problem.
+- It was about three weeks before I was due to leave for Egypt (I like climbing the mountain there... anyway).
+- The [trumpet teacher guy](../../crimes/protagonists/vidal-sastre.md#the-younger-brother-of-the-first-man) had been in and out of this apartment regularly before I moved into it and discovered it had a horrific bedbug problem.
+- I couldn't understand how he had put up with it, at the time!
 - I changed all my plans and spent most of December in Dénia instead.
 - I stayed at two hotels and logged into their networks.
+- I was working for ConsenSys at the time and I started to have [romantic feelings about the CEO Joseph Lubin](../2021/october.md#consensys) while I was working from the Hotel Port Dénia.
 - I had been doing a lot of apartment searches since August and had found nothing at all.
-- On December 8th, however, a very significant day for me spiritually, while I was in Dénia, an apartment came up for rent which was perfect; too good to be true even.
+- On December 8th, however, a very significant day for me spiritually (the Feast of the Immaculate Conception), while I was in Dénia, an apartment came up for rent which was perfect; too good to be true even.
 - Carrer Furs 15, Bloque 1 Escalera 2 Piso 3 Apartamento 17, Dénia 03700 Alicante.
 - I contacted the landlady, Beatriz Garcia Morales, and signed the agreement.
 - Beatriz and her husband run a local architects company: [QB arquitectos](https://qbarquitectos.com/). 
 - The landlady, Beatriz, was angry with me, and disagreeable.
+- I told her I'd be one day interested in her building me a beautiful house on the Montgo and she looked at me like I was insane.
+- I thought: *what a weird woman*.
 - She barked at me when I said; *I hope I'm not going to regret this*, as I signed the lease, having reservations based on her demeanor.
-- Hackers recently mentioned her grumpy demeanor online to me over the summer in 2024 in a, as usual, derogatory manner.
-- Was she angry about having to essentially be involved in murdering a woman? Had it happened before in her apartment? What happened to the previous tenant, the nurse, she was constantly talking about? Are all the properties her company is involved with fitted with high-res spy-cam systems streaming directly to porn-networks?
+- Hackers mentioned her grumpy demeanor online to me over the summer in 2024 in a, as usual, derogatory manner.
+- Was she angry about having to essentially be involved in murdering a woman? Had it happened before in her apartment? What happened to the previous tenant, the nurse from Dénia hospital she was constantly talking about? Are all the properties her company is involved with fitted with high-res spy-cam systems streaming directly onto porn-networks?
 - I signed the [rental contract](../../content/documents/contracto/rental-contract.pdf) and moved in on December 15th.
 
 ### Death clause
@@ -38,31 +44,37 @@ function googleTranslateElementInit() {
 - She only gave me one key, of a set of four, and there was a bit of a drama about where the other keys were which seemed contrived.
 - I didn't trust Beatriz Garcia Morales and, from her weird behavior and manner, I felt it likely she would enter my apartment without my knowledge.
 - A few days later I suspected someone had been in without my knowledge.
-- I got the locks changed soon after by a British locksmith Carl Barclay.
-- Even so, I believe people were entering my house whenever I was not there on a regular basis the whole time I lived there. It's not clear how they got entry after I changed the locks. I guess that would be a simple matter for a criminal gang.
+- I got the locks changed soon after by a British locksmith [Carl Barclay](https://barclayskeyholding.com/).
+- Even so, I believe people were entering my house whenever I was not there on a regular basis the whole time I lived there. It's not clear how they gained entry after I changed the locks. I guess that would be a simple matter for a criminal gang.
 
 ### Rent
 
-!!! danger "Who has been receiving my rent payments?"
-    - The landlady changed the account I pay rent to twice in three years.
-    - I paid rent to three different accounts in three year's of tenancy.
-    - I don't believe all these accounts are hers and I suspect that finding out who in fact owns these accounts may be very enlightening to law enforcement.
+- The landlady changed the account I pay rent to twice in three years.
+- I paid rent to three different accounts in three year's of tenancy.
+- I didn't believe all these accounts were hers, initially, and suspected Lopez Cano skullduggery, I even thought Paqui Fornet might be cashing in on the local sedated sex slave.
+
         - ES7320950444909122412071
         - ES1201280601880100047345
         - ES6800865106190015755620
 
+- Now I wonder if Bea was money laundering for the gangs.
+
 ### Bea's parents' apartment
 
 - Bea's dad was a Spanish naval officer, apparently.
-- I have his mobile number on WhatsApp on my very hacked phone that I don't use anymore.
+- I have his mobile number on WhatsApp on my very hacked phone that I don't use anymore, the one I'm saving for law enforcement (eyes-cast-down).
 - He's wearing a naval uniform on his WhatsApp profile.
-- They lived at another apartment in the apartment complex, here:
+- They lived at another apartment in the complex, here:
 
 ![Bea's parents' apartment](../../content/images/beas-parents-apartment.png)
 
 - They met me and showed me the apartment initially.
-- They were available at there apartment for about two weeks after I moved in.
+- They were available at their apartment for about two weeks after I moved in.
 - I never saw them again in the complex.
+- I don't believe that's their apartment.
+- They did not want to tell me where their main home was and side-stepped my question when I asked them.
+- Were they involved so that I would feel safer and more secure about the whole thing?
+- Without them, Bea's anger might have been too off-putting for me.
 
 ## Something not right with the air-conditioning unit
 
