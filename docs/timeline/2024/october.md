@@ -125,7 +125,7 @@ function googleTranslateElementInit() {
 - Or...
 - Perhaps there's other backups...
 
-## Activity in apartment number 18 next door
+## Activity in the nextdoor apartment, number 18
 
 - The next door apartment at Carrer Furs is barely used. 
 - I heard people in there maybe twice for no more than a week in nearly three years of living there.
@@ -165,6 +165,13 @@ function googleTranslateElementInit() {
 - Now, not only do I think the sedation mechanism was probably coming from number 18 through that particular vent, I also believe the cigarette smoke at the beginning of my stay was intentional; the way they tell you what they're going to do before they do it.
 - Is that their weird way of alleviating personal guilt and divine retribution for their evil - we know how devout the gypsies are?
 - Or is it just plain evil?
+
+### The housing register
+
+- Just before I escape the poisoned apartment and attempted murder at the end of the month, I get the owner's details from the public register.
+- The property owner is: MANUEL BALLESTEROS LOPEZ; sharing the name of Concha the guitar teacher who I wrote to initially and was bullied relentlessly by Domingo Cano Lopez and his students, and Domingo.
+- I can't imagine in a tiny town like Denia these people would be unrelated.
+- Of course, I was so badly hacked by Spanish gangs controlling the whole area, they could have easily rewritten this document to suit themselves before sending it.
 
 ## Iceland
 
