@@ -128,25 +128,32 @@ function googleTranslateElementInit() {
 ## Activity in the nextdoor apartment, number 18
 
 - The next door apartment at Carrer Furs is barely used. 
-- I heard people in there maybe twice for no more than a week in nearly three years of living there.
+- I heard people in there maybe twice, for no more than a week, in nearly three years.
 - There may have been people there for the summer holidays, while I was away, so I never thought it odd because that's quite normal in the area.
-- Whenever my neighbor Marie Carmen, or Pedro the caretaker, referred to the people at number 18, it was always in a derogatory way, with a turned up nose, as if there was something not good about them.
-- However, from the moment I arrive back in Dénia at the end of September 2024, there is a lot of activity in this apartment.
+- Whenever my neighbor at number 16, Marie Carmen, or Pedro the caretaker, referred to the people at number 18, it was always in a derogatory way, with a turned up nose, as if there was something not good about them.
+- They told me they were never there.
+- However, from the moment I arrive back in Dénia at the end of September 2024, and throughout October, there is constant activity in this apartment.
 - People coming and going at all times. 
-- People talking loudly at night.
-- I saw a slim woman with shortish dark curly hair, of about 60 years old, going in and out every day nearly.
-- One night, I hear a woman say in Spanish, loudly enough for me to hear, "and nothing was ever good enough for her", and I presumed she was referring to me. 
-- I guess that this is the main lie the non-porn-watching people of Dénia (very few I imagine) have been told about me, and why they all support the gang stalkers and join in if they're so inclined. 
+- People talking loudly day and night.
+- It got so unusual that, whenever there was activity outside my front door, I would look through my front door's viewer to see what was going on.
+- I saw a skinny woman with shortish dark curly hair, of about 60 years old, going in and out nearly every day.
+- She was always doing something at the water cupboard.
+
+![Water pipes](../../content/images/water-pipes.JPG)
+
+- The woman had a husky smoker's voice that sounded like a slow-motion machine gun.
+- One night, I hear her say in Spanish - from behind the wall while I'm in bed - "and nothing was ever good enough for her", and I presumed she was referring to me. 
+- I guess that this is the main lie the non-porn-watching people of Dénia (very few I imagine) were told about me, and why they all support the gang stalkers and join in if they're so inclined, or bored. 
 - I'm *the uppity foreigner who thought nothing was good enough in Dénia*, which is as far from the truth as possible.
 - They only needed a couple of people who I had contentious interactions with over the years to support that. 
-- One of those could possibly be my neighbor from Cami Llavador, Charo, who really didn't like me at all (she was a weird woman).
-- Another could be a woman Magpie I had been friends with years ago in 2006.
+- One of those was likely my neighbor from Cami Llavador 5, Charo, who really didn't like me at all (she was a weird woman).
+- Another could be a woman Magpie I had been friends with years ago in 2008.
 - She was married to the drummer from Wings, Geoff Britton.
-- I may have seen them both - been introduced again - on a trip with the British walkers. 
-- I hope they weren't demonstrating my brain-damage to them...
-- She was someone who got extremely angry with me one afternoon after I said something rather innocuous yet truthful, something she found extremely hurtful.
+- I may have seen them both - been introduced again - on a trip with the British walkers, another unusual event that seemed a bit staged. 
+- I hope my "friends" weren't demonstrating my brain-damage to them...
+- Magpie got extremely angry with me one afternoon after I said something rather innocuous yet truthful to her, something she found extremely hurtful.
 - It wasn't intended to be hurtful, at all.
-- I guess manipulating a whole town to hate someone can be really easy.
+- I guess manipulating a whole small town to hate someone can be really easy.
 
 ### Cigarette smoke the first week I move in
 
@@ -155,25 +162,25 @@ function googleTranslateElementInit() {
 - My bedroom wall, and bed, backed onto apartment number 18.
 - Not only that, but I could smell the cigarette smoke even with the bedroom door shut.
 - I assumed it was coming through the air-conditioning vents and so I blocked up the vent beside my bed with plastic, at which point the smell stopped.
-- Furthermore, while wondering about this, I opened the vent to see what was going on behind it, to see if there could be an outlet into nextdoor.
+- Furthermore, while wondering about this, I opened the vent to see what was going on behind it, to see if there could be an outlet into the next door apartment.
 - I put my phone inside and filmed what was behind the vent.
 - It looked like completely unfinished brickwork. 
-- There was no smooth air ventilation system, it was just brick.
+- There was no smooth air ventilation system, it was just rough broken and unfinished brickwork.
 - Not only that, but the brick tunnel moved towards the outside wall - away from the air-conditioning system which was on the other side of the room in the bathroom and up onto the roof on the opposite side of the building to where this tunnel was heading.
-- And even more concerning, was that, the tunnelling which looked like someone had gone through with a workman's drill and never finished up the job, had an inlet to the right, which was the direction of the neighbor's apartment at number 18.
+- And even more concerning, was that, the tunnelling which looked like someone had gone through with a workman's drill and never finished up the job, had an inlet to the right, which was right into the neighboring apartment at number 18.
 - At the time I didn't really know what I was looking at.
-- Now, not only do I think the sedation mechanism was probably coming from number 18 through that particular vent, I also believe the cigarette smoke at the beginning of my stay was intentional; the way they tell you what they're going to do before they do it.
+- Now, not only do I think the sedation mechanism was probably coming from number 18 through that particular vent which was right beside my bed, I also believe the cigarette smoke at the beginning of my stay was intentional; the way they tell you what they're going to do before they do it (I've demonstrated a lot of that already).
 - Is that their weird way of alleviating personal guilt and divine retribution for their evil - we know how devout the gypsies are?
 - Or is it just plain evil?
 
 ### The housing register
 
-- Just before I escape the poisoned apartment and attempted murder at the end of the month, I get the owner's details from [the public register](#nota-simple-from-the-neighbors-flats).
-- The property owner is: MANUEL BALLESTEROS LOPEZ; sharing the name of Concha the guitar teacher who [I wrote to in the beginning when I had no idea what was going on](../2023/july.md#first-letter-to-concha).
+- Just before I escape the poisoned apartment and attempted murder at the end of the month, I have the presence of mind to request the owner's details from [the public register](#nota-simple-from-the-neighbors-flats).
+- The property owner is: MANUEL BALLESTEROS LOPEZ; sharing the name of Concha the guitar teacher who [I wrote to asking for help in the beginning when I had no idea what was going on](../2023/july.md#first-letter-to-concha).
 - She was bullied relentlessly by Domingo Cano Lopez and his students.
 - LOPEZ is of course one of Domingo's surnames.
 - I can't imagine in a tiny town like Denia these people wouldn't be somehow related.
-- Of course, I was so badly hacked by Spanish gangs that control the whole area, they could have easily rewritten this document to suit themselves before sending it.
+- Of course, I was so badly hacked by Spanish criminal gangs that have the whole area's internet ring-fenced for their sinister purposes, they could have easily rewritten this document to suit themselves before sending it.
 
 ## Iceland
 
