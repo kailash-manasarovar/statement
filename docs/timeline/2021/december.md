@@ -76,6 +76,12 @@ function googleTranslateElementInit() {
 - Were they involved so that I would feel safer and more secure about the whole thing?
 - Without them, Bea's anger might have been too off-putting for me.
 
+### Bea's husband on moving in day
+
+- On moving in day, 15th December, Bea, her parents, and her husband turned up.
+- They parked in the garage and I saw Bea bark at her husband to stay in the car and he did as he was told.
+- I never met him.
+
 ## Something not right with the air-conditioning unit
 
 - I quickly noticed that the heating was sub-optimal, it didn't seem to have power and it never heated the rooms up properly.
