@@ -81,6 +81,7 @@ function googleTranslateElementInit() {
 - On moving in day, 15th December, Bea, her parents, and her husband turned up.
 - They parked in the garage and I saw Bea bark at her husband to stay in the car and he did as he was told.
 - I never met him.
+- Was she making sure he didn't see me and get a taste for the old sedated-sex-slave scam that they all knew was about to start up again?
 
 ## Something not right with the air-conditioning unit
 
