@@ -168,10 +168,12 @@ function googleTranslateElementInit() {
 
 ### The housing register
 
-- Just before I escape the poisoned apartment and attempted murder at the end of the month, I get the owner's details from the public register.
-- The property owner is: MANUEL BALLESTEROS LOPEZ; sharing the name of Concha the guitar teacher who I wrote to initially and was bullied relentlessly by Domingo Cano Lopez and his students, and Domingo.
-- I can't imagine in a tiny town like Denia these people would be unrelated.
-- Of course, I was so badly hacked by Spanish gangs controlling the whole area, they could have easily rewritten this document to suit themselves before sending it.
+- Just before I escape the poisoned apartment and attempted murder at the end of the month, I get the owner's details from [the public register](#nota-simple-from-the-neighbors-flats).
+- The property owner is: MANUEL BALLESTEROS LOPEZ; sharing the name of Concha the guitar teacher who [I wrote to in the beginning when I had no idea what was going on](../2023/july.md#first-letter-to-concha).
+- She was bullied relentlessly by Domingo Cano Lopez and his students.
+- LOPEZ is of course one of Domingo's surnames.
+- I can't imagine in a tiny town like Denia these people wouldn't be somehow related.
+- Of course, I was so badly hacked by Spanish gangs that control the whole area, they could have easily rewritten this document to suit themselves before sending it.
 
 ## Iceland
 

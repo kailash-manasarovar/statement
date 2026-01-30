@@ -445,7 +445,7 @@ function googleTranslateElementInit() {
 
 ![Rose petals in Samui](../../content/images/samui-rose-petals.PNG)
 
-### My first request for help
+### First letter to Concha
 
 - While I'm away, I decide to write to Concha to tell her everything, and apologize for mentioning on X that she was being bullied by Domingo's students.
 - Concha was my friend so I felt I could reach out to her.
