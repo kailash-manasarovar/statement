@@ -51,6 +51,19 @@ function googleTranslateElementInit() {
         - ES1201280601880100047345
         - ES6800865106190015755620
 
+### Bea's parents' apartment
+
+- Bea's dad was a Spanish naval officer, apparently.
+- I have his mobile number on WhatsApp on my very hacked phone that I don't use anymore.
+- He's wearing a naval uniform on his WhatsApp profile.
+- They lived at another apartment in the apartment complex, here:
+
+![Bea's parents' apartment](../../content/images/beas-parents-apartment.png)
+
+- They met me and showed me the apartment initially.
+- They were available at there apartment for about two weeks after I moved in.
+- I never saw them again in the complex.
+
 ## Something not right with the air-conditioning unit
 
 - I quickly noticed that the heating was sub-optimal, it didn't seem to have power and it never heated the rooms up properly.
