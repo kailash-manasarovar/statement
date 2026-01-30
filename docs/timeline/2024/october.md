@@ -135,21 +135,21 @@ function googleTranslateElementInit() {
 - However, from the moment I arrive back in Dénia at the end of September 2024, and throughout October, there is constant activity in this apartment.
 - People coming and going at all times. 
 - People talking loudly day and night.
-- It got so unusual that, whenever there was activity outside my front door, I would look through my front door's viewer to see what was going on.
+- It got so unusual that, whenever there was activity outside my front door, I would look to see what was going on.
 - I saw a skinny woman with shortish dark curly hair, of about 60 years old, going in and out nearly every day.
 - She was always doing something at the water cupboard.
 
 ![Water pipes](../../content/images/water-pipes.JPG)
 
 - The woman had a husky smoker's voice that sounded like a slow-motion machine gun.
-- One night, I hear her say in Spanish - from behind the wall while I'm in bed - "and nothing was ever good enough for her", and I presumed she was referring to me. 
+- One night, I hear her say in Spanish - from behind the wall while I'm in bed - "and nothing was ever good enough for her", and I presumed she was referring to me; a gang-stalker's psychological wounding tactic. 
 - I guess that this is the main lie the non-porn-watching people of Dénia (very few I imagine) were told about me, and why they all support the gang stalkers and join in if they're so inclined, or bored. 
 - I'm *the uppity foreigner who thought nothing was good enough in Dénia*, which is as far from the truth as possible.
 - They only needed a couple of people who I had contentious interactions with over the years to support that. 
 - One of those was likely my neighbor from Cami Llavador 5, Charo, who really didn't like me at all (she was a weird woman).
 - Another could be a woman Magpie I had been friends with years ago in 2008.
 - She was married to the drummer from Wings, Geoff Britton.
-- I may have seen them both - been introduced again - on a trip with the British walkers, another unusual event that seemed a bit staged. 
+- I may have seen them both - been introduced again in 2022 - on a trip with the British walkers, another unusual event that seemed a bit staged. 
 - I hope my "friends" weren't demonstrating my brain-damage to them...
 - Magpie got extremely angry with me one afternoon after I said something rather innocuous yet truthful to her, something she found extremely hurtful.
 - It wasn't intended to be hurtful, at all.
@@ -157,7 +157,7 @@ function googleTranslateElementInit() {
 
 ### Cigarette smoke the first week I move in
 
-- Incidentally, in the first weeks I moved into Carrer Furs I could smell cigarette smoke in my bedroom.
+- Incidentally, in the first weeks I moved into Carrer Furs in December 2021 I could smell cigarette smoke in my bedroom.
 - I assumed it was Marie Carmen next door, who smoked like a chimney, but it was confusing because my bedroom was the room furthest away from her apartment.
 - My bedroom wall, and bed, backed onto apartment number 18.
 - Not only that, but I could smell the cigarette smoke even with the bedroom door shut.
@@ -165,9 +165,9 @@ function googleTranslateElementInit() {
 - Furthermore, while wondering about this, I opened the vent to see what was going on behind it, to see if there could be an outlet into the next door apartment.
 - I put my phone inside and filmed what was behind the vent.
 - It looked like completely unfinished brickwork. 
-- There was no smooth air ventilation system, it was just rough broken and unfinished brickwork.
-- Not only that, but the brick tunnel moved towards the outside wall - away from the air-conditioning system which was on the other side of the room in the bathroom and up onto the roof on the opposite side of the building to where this tunnel was heading.
-- And even more concerning, was that, the tunnelling which looked like someone had gone through with a workman's drill and never finished up the job, had an inlet to the right, which was right into the neighboring apartment at number 18.
+- There was no smooth air ventilation system, it was just rough broken and damaged brickwork.
+- Not only that, but the brick tunnel moved towards the outside wall - away from the air-conditioning system which was on the other side of my bedroom in the bathroom and up onto the roof on the opposite side of the building to where this tunnel was heading.
+- And even more concerning, was that, the tunnelling which looked like someone had gone through with a workman's drill and never finished up the job, had an inlet to the right, which was right into the neighbor's apartment at number 18.
 - At the time I didn't really know what I was looking at.
 - Now, not only do I think the sedation mechanism was probably coming from number 18 through that particular vent which was right beside my bed, I also believe the cigarette smoke at the beginning of my stay was intentional; the way they tell you what they're going to do before they do it (I've demonstrated a lot of that already).
 - Is that their weird way of alleviating personal guilt and divine retribution for their evil - we know how devout the gypsies are?
@@ -179,7 +179,7 @@ function googleTranslateElementInit() {
 - The property owner is: MANUEL BALLESTEROS LOPEZ; sharing the name of Concha the guitar teacher who [I wrote to asking for help in the beginning when I had no idea what was going on](../2023/july.md#first-letter-to-concha).
 - She was bullied relentlessly by Domingo Cano Lopez and his students.
 - LOPEZ is of course one of Domingo's surnames.
-- I can't imagine in a tiny town like Denia these people wouldn't be somehow related.
+- I can't imagine in a tiny town like Dénia these people wouldn't be somehow related.
 - Of course, I was so badly hacked by Spanish criminal gangs that have the whole area's internet ring-fenced for their sinister purposes, they could have easily rewritten this document to suit themselves before sending it.
 
 ## Iceland
