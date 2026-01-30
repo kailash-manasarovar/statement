@@ -127,17 +127,44 @@ function googleTranslateElementInit() {
 
 ## Activity in apartment number 18 next door
 
-- The next door apartment is barely used. I've heard people in there maybe twice for no more than a week in nearly three years.
-- There may have been people there for the summer holidays, while I was away, so I never thought it odd.
+- The next door apartment at Carrer Furs is barely used. 
+- I heard people in there maybe twice for no more than a week in nearly three years of living there.
+- There may have been people there for the summer holidays, while I was away, so I never thought it odd because that's quite normal in the area.
 - Whenever my neighbor Marie Carmen, or Pedro the caretaker, referred to the people at number 18, it was always in a derogatory way, with a turned up nose, as if there was something not good about them.
-- However, from the moment I arrive back in Dénia at the end of September 2024, there is a lot of activity in this apartment. People coming and going at all times. People talking loudly at night.
+- However, from the moment I arrive back in Dénia at the end of September 2024, there is a lot of activity in this apartment.
+- People coming and going at all times. 
+- People talking loudly at night.
 - I saw a slim woman with shortish dark curly hair, of about 60 years old, going in and out every day nearly.
 - One night, I hear a woman say in Spanish, loudly enough for me to hear, "and nothing was ever good enough for her", and I presumed she was referring to me. 
-- I guess that this is the main lie the people of Dénia have been told about me and why they all support the gang stalkers and join in if they're so inclined. The foreign woman who thought nothing was good enough in Dénia, which is as far from the truth as possible.
+- I guess that this is the main lie the non-porn-watching people of Dénia (very few I imagine) have been told about me, and why they all support the gang stalkers and join in if they're so inclined. 
+- I'm *the uppity foreigner who thought nothing was good enough in Dénia*, which is as far from the truth as possible.
 - They only needed a couple of people who I had contentious interactions with over the years to support that. 
-- One of those could possibly be my neighbor from Cami Llavador, Charo, who really didn't like me at all.
-- Another could be a woman Magpie I had been friends with years ago in 2006, someone who got extremely angry with me one afternoon after I said something rather innocuous yet truthful, something she found extremely hurtful.
+- One of those could possibly be my neighbor from Cami Llavador, Charo, who really didn't like me at all (she was a weird woman).
+- Another could be a woman Magpie I had been friends with years ago in 2006.
+- She was married to the drummer from Wings, Geoff Britton.
+- I may have seen them both - been introduced again - on a trip with the British walkers. 
+- I hope they weren't demonstrating my brain-damage to them...
+- She was someone who got extremely angry with me one afternoon after I said something rather innocuous yet truthful, something she found extremely hurtful.
+- It wasn't intended to be hurtful, at all.
 - I guess manipulating a whole town to hate someone can be really easy.
+
+### Cigarette smoke the first week I move in
+
+- Incidentally, in the first weeks I moved into Carrer Furs I could smell cigarette smoke in my bedroom.
+- I assumed it was Marie Carmen next door, who smoked like a chimney, but it was confusing because my bedroom was the room furthest away from her apartment.
+- My bedroom wall, and bed, backed onto apartment number 18.
+- Not only that, but I could smell the cigarette smoke even with the bedroom door shut.
+- I assumed it was coming through the air-conditioning vents and so I blocked up the vent beside my bed with plastic, at which point the smell stopped.
+- Furthermore, while wondering about this, I opened the vent to see what was going on behind it, to see if there could be an outlet into nextdoor.
+- I put my phone inside and filmed what was behind the vent.
+- It looked like completely unfinished brickwork. 
+- There was no smooth air ventilation system, it was just brick.
+- Not only that, but the brick tunnel moved towards the outside wall - away from the air-conditioning system which was on the other side of the room in the bathroom and up onto the roof on the opposite side of the building to where this tunnel was heading.
+- And even more concerning, was that, the tunnelling which looked like someone had gone through with a workman's drill and never finished up the job, had an inlet to the right, which was the direction of the neighbor's apartment at number 18.
+- At the time I didn't really know what I was looking at.
+- Now, not only do I think the sedation mechanism was probably coming from number 18 through that particular vent, I also believe the cigarette smoke at the beginning of my stay was intentional; the way they tell you what they're going to do before they do it.
+- Is that their weird way of alleviating personal guilt and divine retribution for their evil - we know how devout the gypsies are?
+- Or is it just plain evil?
 
 ## Iceland
 
