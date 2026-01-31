@@ -157,7 +157,7 @@ function googleTranslateElementInit() {
 
 ## A message to Arul
 
-- I start remembering more and more evil that took place over the years that helped protect the North London's Jamaican rape-gangs and their bosses.
+- I start remembering more and more evil that took place over the years that helped protect North London's Jamaican rape-gangs and their porn-gang bosses.
 - I message an old friend Arul on Facebook.
 
 ![Messaging Arul](../../content/images/message-to-arul.png)
@@ -179,6 +179,7 @@ function googleTranslateElementInit() {
 - He made a beeline for me and was extremely pervy.
 - My mates, boys my age - Robin and the electrician's apprentice - were a bit surprised.
 - We all decided Alan was a pervert due to his behavior.
+- He seemed to be following us around the shops, and whenever we saw him we laughed and hid from him.
 
 ![Message to Arul about Jesse Brough](../../content/images/message-to-arul-2.png)
 
