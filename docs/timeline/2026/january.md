@@ -223,3 +223,5 @@ function googleTranslateElementInit() {
 - Anyway, there was no reason for it really, unless they had been instructed or manipulated against me by the Labour-party parents, because of my dad's obvious behavior in scuppering the East Finchley Labour candidate's chances against Margaret Thatcher in 1979... which is ridiculous anyway, there's no way she wouldn't have got in.
 - But even world-famous poisoner [Hazel Smith](../early-years/2007.md#hazel-smith) knew about that, somehow, didn't she, so it is important to the story, and I'll keep tying it all together in the hope that I may continue to avoid murder and maybe, one day, someone will help the women and children of the Marina Alta, Spain.
 - Incidentally, I really fancied the Labour Party guy... he looked like Mr Hooper from Jaws.
+
+![Hooper](../../content/images/hooper.gif)
