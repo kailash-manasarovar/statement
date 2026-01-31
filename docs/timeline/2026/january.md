@@ -157,7 +157,7 @@ function googleTranslateElementInit() {
 
 ## A message to Arul
 
-- I start remembering more and more evil that took place over the years to help protect Jamaican rape gangs and others.
+- I start remembering more and more evil that took place over the years that helped protect the North London's Jamaican rape-gangs and their bosses.
 - I message an old friend Arul on Facebook.
 
 ![Messaging Arul](../../content/images/message-to-arul.png)
@@ -175,46 +175,50 @@ function googleTranslateElementInit() {
 - Arul and Alan had been good friends.
 - I was 17 and on the bus going to Brent Cross with some friends.
 - Alan got on, he was in his twenties.
-- He saw me and the expression on his face was as if he'd seen his favorite food and he was going to devour it, the grin.
+- He saw me and the expression on his face was as if he'd seen his favorite food and he was excited about devouring it; that grin again.
 - He made a beeline for me and was extremely pervy.
-- My mates, boys, were a bit surprised and we all decided he was a pervert.
+- My mates, boys my age - Robin and the electrician's apprentice - were a bit surprised.
+- We all decided Alan was a pervert due to his behavior.
 
 ![Message to Arul about Jesse Brough](../../content/images/message-to-arul-2.png)
 
-!!! tip "Message about Jesse Brough
+!!! tip "Message about Jesse Brough"
     so many did know so many things about me that i didn't know.. it was awful.. especially what my boss said to me at the Red Star film company (with Hammer & Tongs) ... i guess after speaking to jesse... gossip is pure poison
 
 - This is in reference to over 5 years later when I was working for a company called Red Star Films in West London as a runner. 
 - Incidentally, this is where I met Garth Jennings and Nick Goldsmith who were running their film company from the same offices: Hammer & Tongs.
-- Garth Jennings witnessed me go into PTSD freeze one morning in a meeting; he couldn't understand it. Neither could I. I was just holding onto life as best I could and sometimes I had no resources and went into a freeze state.
+- Garth Jennings witnessed me go into PTSD freeze one morning in a meeting; he couldn't understand it. Neither could I. I was just holding onto life as best I could and sometimes things would trigger me and I had no resources to manage it and went into a freeze state.
 - Anyway, it was my first job after graduating.
 - I had been given a responsible role leading a film shoot for a band in Soho.
 - We had already filmed for a day in Essex.
 - Arul had turned up with Jesse Brough who was going to be camerawoman for the evening. 
 - They were seeing each other.
-- Everything was going well, and then suddenly, out of the blue, I was cold-shouldered by everyone, everyone; literally during the shoot!
-- Jesse Brough took over.
+- Everything had been going well until they arrived.
+- Then, out of the blue, I was cold-shouldered by everyone, everyone; literally during the shoot!
+- Jesse Brough took over and told me to leave.
 - I could not understand it at all.
-- I went home with Arul not long after but always had strong suspicions he had been instrumental somehow in darkening my name with everyone that night.
-- The same happened at Red Star films afterwards, I was cold-shouldered, so I left.
+- I went home with Arul and left them to it, but I always had a strong suspicion that he had been instrumental somehow in darkening my name with everyone that night.
+- The same happened at Red Star films when I went back to the office.
+- I was cold-shouldered by everyone, so I left.
 - Gavin Piggott, the boss, started talking to me as if I was dirt on his shoe.
-- Jesse Brough ended up going out with Garth Jennings.
+- Incidentally, Jesse Brough ended up going out with Garth Jennings.
 - A year or so later, randomly, I was working for a property company in Finchley Central, Newcrest.
-- I would field calls from people looking to rent flats.
+- I took calls from people looking to rent flats.
 - A woman rang up about a flat in Ladbroke Grove and told me she worked for Red Star Films.
-- I was amazed and said that I had used to work there, told her my name, said to say hi to everyone.
-- Ten minutes later, the phone rings.
-- I picked it up.
+- I was amazed and told her I used to work there, gave her my name, and said to say hi to everyone.
+- Ten minutes later, the phone rings again.
+- I pick it up.
 - It's Gavin Piggott.
 - He shouts: "SLUT!".
-- And puts the phone down.
+- And slams the phone down.
 
 ![Message to Arul](../../content/images/message-to-arul-3.png)
 
 - It's so curious to me how I was viciously bullied as a child by everyone, including my close friends.
 - There was never a good reason for it; it was so vile.
-- My girlfriends use to run after me in the school playground when I was about 7, corner me somewhere, and start singing "Die, Die, Die" at me.
+- My girlfriends use to run after me in the school playground when I was about 7, corner me somewhere, and start singing "Die, Die, Die" at me while swinging their hands in prayer, left to right.
 - Curiously, in my pathologically-inclined-to-think-the-best-of-everyone's mind, I didn't realize they were wishing me dead until decades later.
-- I thought it was just a silly song but it was obvious they hated me.
-- Anyway, there was no reason for it really, unless they had been instructed or manipulated against me by the parents because of my dad's obvious behavior in scuppering the East Finchley Labour candidate's chances against Margaret Thatcher in 1980... which is ridiculous anyway, there's no way she wouldn't have got in.
+- I thought it was just a silly song, but it was obvious they hated me.
+- Anyway, there was no reason for it really, unless they had been instructed or manipulated against me by the Labour-party parents, because of my dad's obvious behavior in scuppering the East Finchley Labour candidate's chances against Margaret Thatcher in 1980... which is ridiculous anyway, there's no way she wouldn't have got in.
 - But even world-famous poisoner [Hazel Smith](../early-years/2007.md#hazel-smith) knew about that, somehow, didn't she, so it is important to the story, and I'll keep tying it all together in the hope that I may continue to avoid murder and maybe, one day, someone will help the women and children of the Marina Alta.
+- Incidentally, I really fancied the Labour Party guy... he looked like Mr Hooper from Jaws.
