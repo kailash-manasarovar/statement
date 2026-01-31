@@ -184,20 +184,20 @@ function googleTranslateElementInit() {
 ![Message to Arul about Jesse Brough](../../content/images/message-to-arul-2.png)
 
 !!! tip "Message about Jesse Brough"
-    so many did know so many things about me that i didn't know.. it was awful.. especially what my boss said to me at the Red Star film company (with Hammer & Tongs) ... i guess after speaking to jesse... gossip is pure poison
+    Me: so many did know so many things about me that i didn't know.. it was awful.. especially what my boss said to me at the Red Star film company (with Hammer & Tongs) ... i guess after speaking to jesse... gossip is pure poison
 
 - This is in reference to over 5 years later when I was working for a company called Red Star Films in West London as a runner. 
-- Incidentally, this is where I met Garth Jennings and Nick Goldsmith who were running their film company from the same offices: Hammer & Tongs.
-- Garth Jennings witnessed me go into PTSD freeze one morning in a meeting; he couldn't understand it. Neither could I. I was just holding onto life as best I could and sometimes things would trigger me and I had no resources to manage it and went into a freeze state.
+- Incidentally, this is where I met Garth Jennings and Nick Goldsmith who were running their film company, Hammer & Tongs, from the same offices.
+- Garth Jennings witnessed me go into PTSD freeze one morning in a meeting; he couldn't understand it. Neither could I. I was just holding onto life as best I could those days, for 35 years actually, and sometimes things would trigger me which I had no resources to manage and I went into a freeze state.
 - Anyway, it was my first job after graduating.
 - I had been given a responsible role leading a film shoot for a band in Soho.
-- We had already filmed for a day in Essex.
+- We already had a successful full day's filming in Essex.
 - Arul had turned up with Jesse Brough who was going to be camerawoman for the evening. 
-- They were seeing each other.
+- They were seeing each other romantically at the time.
 - Everything had been going well until they arrived.
 - Then, out of the blue, I was cold-shouldered by everyone, everyone; literally during the shoot!
 - Jesse Brough took over and told me to leave.
-- I could not understand it at all.
+- I could not understand it at all, and I was not able to manage the situation to my benefit.
 - I went home with Arul and left them to it, but I always had a strong suspicion that he had been instrumental somehow in darkening my name with everyone that night.
 - The same happened at Red Star films when I went back to the office.
 - I was cold-shouldered by everyone, so I left.
@@ -220,6 +220,6 @@ function googleTranslateElementInit() {
 - My girlfriends use to run after me in the school playground when I was about 7, corner me somewhere, and start singing "Die, Die, Die" at me while swinging their hands in prayer, left to right.
 - Curiously, in my pathologically-inclined-to-think-the-best-of-everyone's mind, I didn't realize they were wishing me dead until decades later.
 - I thought it was just a silly song, but it was obvious they hated me.
-- Anyway, there was no reason for it really, unless they had been instructed or manipulated against me by the Labour-party parents, because of my dad's obvious behavior in scuppering the East Finchley Labour candidate's chances against Margaret Thatcher in 1980... which is ridiculous anyway, there's no way she wouldn't have got in.
-- But even world-famous poisoner [Hazel Smith](../early-years/2007.md#hazel-smith) knew about that, somehow, didn't she, so it is important to the story, and I'll keep tying it all together in the hope that I may continue to avoid murder and maybe, one day, someone will help the women and children of the Marina Alta.
+- Anyway, there was no reason for it really, unless they had been instructed or manipulated against me by the Labour-party parents, because of my dad's obvious behavior in scuppering the East Finchley Labour candidate's chances against Margaret Thatcher in 1979... which is ridiculous anyway, there's no way she wouldn't have got in.
+- But even world-famous poisoner [Hazel Smith](../early-years/2007.md#hazel-smith) knew about that, somehow, didn't she, so it is important to the story, and I'll keep tying it all together in the hope that I may continue to avoid murder and maybe, one day, someone will help the women and children of the Marina Alta, Spain.
 - Incidentally, I really fancied the Labour Party guy... he looked like Mr Hooper from Jaws.
