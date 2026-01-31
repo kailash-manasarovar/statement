@@ -157,7 +157,7 @@ function googleTranslateElementInit() {
 
 ## A message to Arul
 
-- I start remembering more and more evil that took place over the years that helped protect North London's Jamaican rape-gangs and their porn-gang bosses.
+- I start remembering more and more evil that took place over the years that served to protect North London's Jamaican rape-gangs and their porn-gang bosses.
 - I message an old friend Arul on Facebook.
 
 ![Messaging Arul](../../content/images/message-to-arul.png)
@@ -221,7 +221,7 @@ function googleTranslateElementInit() {
 - Curiously, in my pathologically-inclined-to-think-the-best-of-everyone's mind, I didn't realize they were wishing me dead until decades later.
 - I thought it was just a silly song, but it was obvious they hated me.
 - Anyway, there was no reason for it really, unless they had been instructed or manipulated against me by the Labour-party parents, because of my dad's obvious behavior in scuppering the East Finchley Labour candidate's chances against Margaret Thatcher in 1979... which is ridiculous anyway, there's no way she wouldn't have got in.
-- But even world-famous poisoner [Hazel Smith](../early-years/2007.md#hazel-smith) knew about that, somehow, didn't she, so it is important to the story, and I'll keep tying it all together in the hope that I may continue to avoid murder and maybe, one day, someone will help the women and children of the Marina Alta, Spain.
+- But even world-famous serial-killing poisoner [Hazel Smith](../early-years/2007.md#hazel-smith) knew about that, somehow, didn't she, so it is important to the story, and I'll keep tying it all together in the hope that I may continue to avoid murder and maybe, one day, someone will help the women and children of the Marina Alta, Spain.
 - Incidentally, I really fancied the Labour Party guy... he looked like Mr Hooper from Jaws.
 
 ![Hooper](../../content/images/hooper.gif)
