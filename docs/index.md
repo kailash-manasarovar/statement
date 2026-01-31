@@ -142,7 +142,7 @@ If I'm right, I still can't believe they are all this insane. Are the good peopl
 
 Are the cyber-stalkers who fed me information and evidence about actual crimes simply decent Dénia citizens unable to get help via any normal security routes?
 
-Could such staggering criminality have been normalized by the Spanish police and governments in Spain, and abroad, because so many people know about it, and of course you have to be a porn-addict to know about it, and so many men are completely lost in porn, from all walks of life, and every echelon of society, hopeless hopelessly lost?
+Could such staggering criminality have been normalized by the Spanish police and governments in Spain, and abroad, because so many people know about it, and of course you have to be a porn-addict to know about it, and so many men are completely lost in porn, from all walks of life, and every echelon of society, hopelessly hopelessly lost?
 
 Did security services try to bring the porn-gang down years ago, and the gangs disappeared Madeline McCann as a warning?
 
