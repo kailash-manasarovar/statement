@@ -182,14 +182,22 @@ function googleTranslateElementInit() {
 - I can't imagine in a tiny town like Dénia these people wouldn't be somehow related.
 - Of course, I was so badly hacked by Spanish criminal gangs that have the whole area's internet ring-fenced for their sinister purposes, they could have easily rewritten this document to suit themselves before sending it.
 
-## Iceland
+## Iceland shopping
 
-- I pop to Iceland in Benissa to get some British products.
-- I wear my mask.
-- I'm served at the till by a nice-looking blond woman who smiles at me like I'm an idiot.
-- When I get home, on X, I see a fake account with with the woman in it.
-- She is sitting on a balcony wall somewhere in the Marina Alta region with a view of the sea and mountains.
+- I pop over to Iceland in Benissa to get some British products.
+- I'm wearing my face mask.
+- I wear it every time I leave the house now.
+- At the time of editing this section - January 2026 - I'm not sure if I thought I was *only* being drugged and poisoned when I left my home, and that's why I wore the mask.
+- As I mentioned, the drug dose in October 2024 was the highest it had ever been and I was even hallucinating.
+- For this reason, and due to my eyesight problems, I wondered if I was ingesting methanol somehow without my knowledge.
+- Anyway.
+- I'm served at the till by a nice-looking blond British woman who smiles at me like I'm an idiot.
+- When I get home, on X, I see a fake account with with the same woman in it.
+- It is morning and she is sitting on an apartment's balcony wall somewhere in the Marina Alta region with a view of the pines, sea, and mountains.
 - She is wearing a man's shirt.
+- It's yet another *after-sex* photo.
+- I don't know why, but I get the feeling the photographer is [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of).
+- I know I did say I was perma-high and hallucinating over this period, but a great deal of this is verifiable, which is nice.
 
 ## Saturday 5th October
 
