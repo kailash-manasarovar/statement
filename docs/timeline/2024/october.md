@@ -188,10 +188,10 @@ function googleTranslateElementInit() {
 - I'm wearing my face mask.
 - I wear it every time I leave the house now.
 - At the time of editing this section - January 2026 - I'm not sure if I thought I was *only* being drugged and poisoned when I left my home, and that's why I wore the mask.
-- As I mentioned, the drug dose in October 2024 was the highest it had ever been and I was even hallucinating.
+- As I mentioned, the drug/poison dose in October 2024 was the highest it had ever been and I was even hallucinating.
 - For this reason, and due to my eyesight problems, I wondered if I was ingesting methanol somehow without my knowledge.
 - Anyway.
-- I'm served at the till by a nice-looking blond British woman, who is smiling and grinning at me like I'm an idiot.
+- I'm served at the till by a nice-looking, blond, British woman who is smiling and grinning at me like I'm an idiot.
 - She knows who I am.
 - When I get home, on X, I see a fake account with a profile pic of the same woman.
 - It is morning and she is sitting on an apartment's balcony wall somewhere in the Marina Alta region with a view of the pines and mountains.
