@@ -194,10 +194,11 @@ function googleTranslateElementInit() {
 - I'm served at the till by a nice-looking blond British woman who smiles at me like I'm an idiot.
 - When I get home, on X, I see a fake account with with the same woman in it.
 - It is morning and she is sitting on an apartment's balcony wall somewhere in the Marina Alta region with a view of the pines, sea, and mountains.
-- She is wearing a man's shirt.
+- She is wearing a man's shirt and nothing else.
 - It's yet another *after-sex* photo.
-- I don't know why, but I get the feeling the photographer is [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of).
-- I know I did say I was perma-high and hallucinating over this period, but a great deal of this is verifiable, which is nice.
+- I saw so many of them, hundreds, many with underage girls in.
+- I don't know why, but I get the feeling the man behind the camera is [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of).
+- I know I said I was perma-high and hallucinating over this period, but a great deal of this is verifiable, which is nice.
 
 ## Saturday 5th October
 
