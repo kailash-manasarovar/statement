@@ -186,7 +186,7 @@ function googleTranslateElementInit() {
 !!! tip "Message about Jesse Brough"
     Me: so many did know so many things about me that i didn't know.. it was awful.. especially what my boss said to me at the Red Star film company (with Hammer & Tongs) ... i guess after speaking to jesse... gossip is pure poison
 
-- This is in reference to over 5 years later when I was working for a company called Red Star Films in West London as a runner. 
+- This is in reference to over 5 years later when I was working for a company called Red Star Films in West London as a runner in 1995. 
 - Incidentally, this is where I met Garth Jennings and Nick Goldsmith who were running their film company, Hammer & Tongs, from the same offices.
 - Garth is now a famous Hollywood director and I believe I saw him just a few weeks ago in Bangkok.
 - Garth Jennings witnessed me go into PTSD freeze one morning in a meeting in 1995; he couldn't understand it. Neither could I. I was just holding onto life as best I could those days, for 35 years actually, and sometimes things would trigger me which I had no resources to manage and I went into a freeze state.
@@ -198,12 +198,12 @@ function googleTranslateElementInit() {
 - They were seeing each other romantically at the time.
 - Everything had been going well until they arrived.
 - Then, out of the blue, I was cold-shouldered by everyone, everyone; literally during the shoot!
-- Jesse Brough took over and told me to leave.
-- I could not understand it at all, and I was not able to manage the situation to my benefit.
+- Jesse Brough took over, barked something incomprehensible at me, and told me to leave.
+- I could not understand it at all, and I was not able to manage the situation to my benefit. I was just an inexperienced tea girl.
 - I went home with Arul and left them to it, but I always had a strong suspicion that he had been instrumental somehow in darkening my name with everyone that night.
 - The same happened at Red Star films when I went back to the office.
 - I was cold-shouldered by everyone, so I left.
-- Gavin Piggott, the boss, started talking to me as if I was dirt on his shoe.
+- Gavin Piggott, the boss, had started talking to me as if I was dirt on his shoe.
 - Incidentally, Jesse Brough ended up going out with Garth Jennings.
 - A year or so later, randomly, I was working for a property company in Finchley Central, Newcrest.
 - I took calls from people looking to rent flats.
@@ -211,8 +211,8 @@ function googleTranslateElementInit() {
 - I was amazed and told her I used to work there, gave her my name, and said to say hi to everyone.
 - Ten minutes later, the phone rings again.
 - I pick it up.
-- It's Gavin Piggott.
-- He shouts: "SLUT!".
+- It's Gavin.
+- He shouts: "SLUT!"
 - And slams the phone down.
 
 ![Message to Arul](../../content/images/message-to-arul-3.png)
