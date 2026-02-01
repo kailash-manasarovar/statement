@@ -1412,7 +1412,7 @@ function googleTranslateElementInit() {
 - The purpose behind accounts like these I can only assume is in support of criminal gangs.
 - What's terrifying is that there are 1000s of them in any particular graph, all connected, and all in support of each other. One wonders if they have a Slack to keep contact while they work.
 - It makes me realize that when you send your kids onto social media, it's literally like sending them all alone and naked into a sex club.
-- Curiously, this account posted the pic I mention [in the first timeline entry](../../2001%20to%202010/2001.md#amsterdam) that reminded me of a weird event from so long before.
+- Curiously, this account posted the pic I mention [in the first timeline entry](../../2001-to-2010/2001.md#amsterdam) that reminded me of a weird event from so long before.
 
 ![wounded angel](../../../content/images/wounded-angel.jpeg)
 
