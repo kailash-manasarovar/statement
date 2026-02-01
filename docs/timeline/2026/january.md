@@ -189,7 +189,8 @@ function googleTranslateElementInit() {
 - This is in reference to over 5 years later when I was working for a company called Red Star Films in West London as a runner. 
 - Incidentally, this is where I met Garth Jennings and Nick Goldsmith who were running their film company, Hammer & Tongs, from the same offices.
 - Garth is now a famous Hollywood director and I believe I saw him just a few weeks ago in Bangkok.
-- Garth Jennings witnessed me go into PTSD freeze one morning in a meeting; he couldn't understand it. Neither could I. I was just holding onto life as best I could those days, for 35 years actually, and sometimes things would trigger me which I had no resources to manage and I went into a freeze state.
+- Garth Jennings witnessed me go into PTSD freeze one morning in a meeting in 1995; he couldn't understand it. Neither could I. I was just holding onto life as best I could those days, for 35 years actually, and sometimes things would trigger me which I had no resources to manage and I went into a freeze state.
+- I believe I added that information to my [2015 police statement](../early-years/2015.md#statement-to-the-metropolitan-police) that Hazel Smith and the Dénia porn-gangs were reading as I typed.
 - Anyway, it was my first job after graduating.
 - I had been given a responsible role leading a film shoot for a band in Soho.
 - We already had a successful full day's filming in Essex.
