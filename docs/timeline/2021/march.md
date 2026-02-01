@@ -25,7 +25,7 @@ function googleTranslateElementInit() {
 - Whenever he visited, on usually a Sunday or Monday night, he got together with some of the younger men there and they had loud drinking sessions into the night and played loud rave music.
 - The staff at the Acacia will remember him; as will the male residents who drank with him, some of whom I will know too.
 - Was he sent by British criminal gangs to hack into my home network and begin poisoning me so that I became brain damaged, making me unable to recognize differences in objects out of context - and so believe [four different men to be the same one man](../../crimes/protagonists/vidal-sastre.md#four-distinct-men)?
-- I also believe today that [he was one of Ugly's drivers](../early-years/2001.md#amsterdam) back in 2001, and he probably wanted to test I didn't recognize him from then either.
+- I also believe today that [he was one of Ugly's drivers](../2001%20to%202010/2001.md#amsterdam) back in 2001, and he probably wanted to test I didn't recognize him from then either.
 
 !!! tip "Thoughts on this startling realization"
     - Gypsies usually speak multiple languages fluently, and I suspect it would not be hard to convince the French staff he was Portuguese not Spanish, except for identification documents.

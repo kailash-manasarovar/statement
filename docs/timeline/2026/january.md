@@ -32,7 +32,7 @@ function googleTranslateElementInit() {
 
 ## Could Brian have known who Ugly was back in 2001?
 
-- Pathologically inclined to think the best of everyone - not a bad thing - I start to wonder if the [weird occurrence with the ugly man](../early-years/2001.md) in Amsterdam in 2001 implies that Brian - my boyfriend at the time - knew who he was?
+- Pathologically inclined to think the best of everyone - not a bad thing - I start to wonder if the [weird occurrence with the ugly man](../2001%20to%202010/2001.md) in Amsterdam in 2001 implies that Brian - my boyfriend at the time - knew who he was?
 - In November 2024, Brian and I had a long forgiving chat about the past on Facebook which was really healing.
 - A few days later, [I remembered Ugly in the back of the car at the Holiday Inn in Amsterdam](../2024/december.md#unable-to-access-my-laptop) after a stalker account posted a triggering picture on X.
 - I continue the Facebook chat with Brian, and I ask him if he remembered the weird event with the ugly man, or even me telling him about it?

@@ -439,7 +439,7 @@ function googleTranslateElementInit() {
 ![Supplementary handwritten letter](../../content/images/supplementary-handwritten-letter.png)
 
 - And most curiously, I think I know who this person is.
-- And was he the same ugly man [I saw in Amsterdam](../early-years/2001.md#amsterdam) all those years ago?
+- And was he the same ugly man [I saw in Amsterdam](../2001%20to%202010/2001.md#amsterdam) all those years ago?
 - And ChatGPT is working miracles today because that's *exactly* what they were wearing!
 
 ## Suspected targets 

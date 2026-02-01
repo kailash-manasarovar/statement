@@ -70,7 +70,7 @@ The report details the following:
 - Criminals had extraordinary private information about me including copies of [pedophile pornography made by a rape-gang in North London in 1989 with me in it](timeline/2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x). 
 - As the staggering criminality progressed, someone was helping me online in a clandestine manner. They sent me pictures of countless other female victims the gangs had targeted over many decades, some sexploitation blackmail victims, but many of whom I believe to have been murdered.
 - I intend this police statement to help every last one of those victims, dead or alive.
-- I believe that [**every daily event**](timeline/early-years/2001.md) I detail in the timeline of this police statement was videoed and broadcast to a mostly porn-addict and vile misogynist online audience as a kind of "show" which explains the townsfolk's total insanity and has also made criminal gangs very rich.
+- I believe that [**every daily event**](timeline/2001%20to%202010/2001.md) I detail in the timeline of this police statement was videoed and broadcast to a mostly porn-addict and vile misogynist online audience as a kind of "show" which explains the townsfolk's total insanity and has also made criminal gangs very rich.
 - This is, essentially, why so many people know who I am.
 - I was in a kind of Truman Show, except the "Truman" is a targeted individual, usually a woman but not always, can be a child, and these "Trumans" are expected to die by suicide or serious ill health from poisoning, or be outright murdered, and none have never escaped. 
 - Until now.
