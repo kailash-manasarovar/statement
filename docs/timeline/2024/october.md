@@ -219,7 +219,7 @@ function googleTranslateElementInit() {
 
 ![seeing carmen](../../content/images/seeing-carmen.png)
 
-- After seeing Carmen a few times this month - she makes no effort to hide herself - I realize with horror that the woman who had turned up to listen to the [chamber music concert in May 2023](../2023/may.md#chamber-music-concert), pretending to be Pablo's mum, the only parent that showed up, was her too!
+- After seeing Carmen a few times this month - she makes no effort to hide herself - I realize with horror that the woman who had turned up to listen to the [chamber music concert in May 2023](../2023/may.md#chamber-music-concert), pretending to be Pablo's mum, the only parent that showed up along with at least two of the [switcheroo porn trumpet-teacher team](../../crimes/protagonists/vidal-sastre.md#four-distinct-men), was her too!
 
 ## Sunday 6th October
 
