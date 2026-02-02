@@ -209,17 +209,17 @@ function googleTranslateElementInit() {
 - I go for a walk along Las Rotas.
 - I take my analog phone so that I'm not tracked and followed and I can still call the police if necessary.
 - I'm tracked and followed.
-- Just before I reach the restaurant Sendra, Carmen Cano passes me on a bicycle.
+- Just before I reach the restaurant Sendra, Carmen Lopez Cano passes me on a bicycle.
 - She u-turns abruptly and stops to stare at me, grins and cycles off.
-- I knew it was her because she looks like her brother.
-- I thought I had her on camera, although she may have stayed just out of shot knowing I was wearing my hiker's camera.
-- I'll post all the films of the walk shortly on this page.
+- I know it's her because she looks like her brother Domingo.
+- I thought I had her on film; although she may have stayed just out of shot knowing I was wearing my hiker's camera.
+- I'll post all the films of this walk shortly on this page.
 - What you can notice is that, after seeing her, I become nervous and start singing a little to self-sooth.
 - I tweet about this meeting later on, and it is translated a lot.
 
 ![seeing carmen](../../content/images/seeing-carmen.png)
 
-- After seeing Carmen a few times this month; I realize with horror that the woman who had turned up to the [chamber music concert in May 2023](../2023/may.md#chamber-music-concert), pretending to be Pablo's mum, was her too!
+- After seeing Carmen a few times this month - she makes no effort to hide herself - I realize with horror that the woman who had turned up to listen to the [chamber music concert in May 2023](../2023/may.md#chamber-music-concert), pretending to be Pablo's mum, the only parent that showed up, was her too!
 
 ## Sunday 6th October
 
