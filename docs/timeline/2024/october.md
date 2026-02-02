@@ -207,11 +207,15 @@ function googleTranslateElementInit() {
 ## Saturday 5th October
 
 - I go for a walk along Las Rotas.
-- I take my analog phone so I'm not tracked and followed.
+- I take my analog phone so that I'm not tracked and followed and I can still call the police if necessary.
 - I'm tracked and followed.
-- Just before the restaurant Sendra, Carmen Cano passes me on a bike, u-turns abruptly and stops to stare at me, grins and cycles off.
-- I have this on camera.
-- I tweet about this later on and it is translated a lot.
+- Just before I reach the restaurant Sendra, Carmen Cano passes me on a bicycle.
+- She u-turns abruptly and stops to stare at me, grins and cycles off.
+- I knew it was her because she looks like her brother.
+- I thought I had her on camera, although she may have stayed just out of shot knowing I was wearing my hiker's camera.
+- I'll post all the films of the walk shortly on this page.
+- What you can notice is that, after seeing her, I become nervous and start singing a little to self-sooth.
+- I tweet about this meeting later on, and it is translated a lot.
 
 ![seeing carmen](../../content/images/seeing-carmen.png)
 
