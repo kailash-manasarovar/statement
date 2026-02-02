@@ -103,9 +103,21 @@
 - He was either Alkesh from North Finchley who went to prison for theft; or, more likely, he was the father of Winston May's sister's twins; the man that had brought down a bunch of Northern Pakistanis to sedate and rape us back in 1989.
 - He looked unwell.
 
-## Purim
+## Israel
 
-- The next day I think.
+- The next day, I believe, I travel to Israel.
+- I'm visiting to assist my trauma therapy teacher, Stephen Terrell, who is giving module two of his course.
+- When I saw him in January for training in Dublin (a small section I still have to draft), I asked him if he needed an assistant.
+- He said yes.
+- So, delighted, I made my travel arrangements.
+- I hadn't visited Israel since 2012 when I fell in love with the country and its people.
+- It's Purim.
+- At the last minute, Steve has to cancel the course because of health issues.
+- I'm unable to cancel my travel plans and it's not clear when he's rescheduling, so I go on my own and have a blissful time wandering around Jerusalem and taking it all in; visiting The Wall every day and praying.
+- And, I never felt safer in my whole life than I did/do in Jerusalem and in Israel which you might find surprising but there it is.
+- I meet some of the people that would have been assisting, or have taken Steve's courses previously in the US, and we do some Transforming Touch trauma therapy shares... this might be when I first notice my eye-twitching and I remember things about that from the past...
+- Anyway, the reason I'm adding this now is because of the Course in Miracles lesson I was studying that week which gave me pause.
+- The lesson was [Lesson 160: I am at home. Fear is the stranger here](https://en.wikisource.org/wiki/A_Course_in_Miracles/Workbook_for_Students/I_am_at_home._Fear_is_the_stranger_here).
 
 ## Moorfields Eye Hospital
 
