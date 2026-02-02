@@ -104,7 +104,7 @@
 - He was either Alkesh from North Finchley who went to prison for theft; or, more likely, he was the father of Winston May's sister's twins; the man that had brought down a bunch of Northern Pakistanis to sedate and rape us back in 1989.
 - He looked unwell.
 
-## Israel (first draft)
+## Israel
 
 - The next day, I believe, I travel to Israel.
 - I'm visiting to assist my trauma therapy teacher, Stephen Terrell, who is giving module two of his course.
