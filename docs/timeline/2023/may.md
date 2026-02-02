@@ -49,19 +49,19 @@ function googleTranslateElementInit() {
 - It feels like a set up; a trap. I'm right about this with no details.
 - The concert is originally arranged for the [Casa de Cultura](https://www.denia.com/casa-de-cultura/) in the town.
 - After my groans of complaint, the venue somehow changes and the concert will take place at the conservatory instead. 
-- Myself and Pablo, and the autistic girl and her guitarist partner turn up to play.
+- Myself and Pablo, the autistic girl Candela and her guitarist partner, turn up to play.
 - I am, as usual, euphoric, anxious, and high.
 - We wait in the trumpet teaching room while he goes out (and conspires with the other teachers).
 - When it's time to set up, we all walk around to the concert room 5 at the conservatory.
 - Ana Girbes is standing outside her room which is on the way.
 - As I pass her, she asks me loudly, "Are you alright?". 
 - It's incongruous.
-- I have no idea why she would ask me this.
+- I have no idea why she would ask me this in such an ugly manner.
 
 !!! danger "Teachers repeat phrases from my police statement"
     - Someone told Ana to say this to me as I walked past her, and she did as she was told.
     - This came directly from my [statement to the police in 2015](../early-years/2015.md#statement-to-the-metropolitan-police) in which I detailed clear memories from that time, including things people had said to me.
-    - This phrase, specifically, was something an old school friend had said to me when I was in a traumatized freeze state after smoking pot. 
+    - This phrase, specifically, was something an old school friend had said to me when I was in a traumatized PTSD freeze state. 
     - I didn't know my police statement was being read by the original British porn and prostitution gangs themselves, and their Spanish counterparts in Dénia, and that a repeat of everything that had happened to me when I was 16 was being replayed in 2023.
     - On the run up to the 12th June 2023, when I was supposed to have been so terrorized I would leave my studies at the conservatory and never come back, these triggering events became more frequent.
     - We can only guess at what was originally intended for me beyond 12th June 2023 other than what was already happening to me with and without my knowledge.
@@ -81,14 +81,14 @@ function googleTranslateElementInit() {
     - Who told her to post that message at that moment?
 
 - As we are setting up for the concert, Ana Requena comes in again with her instrument, this time dressed up like she's going out for the evening; same old contrived love-triangle weirdness.
-- There is a door into the next room where Ana goes with her instrument. I believe the other trumpet teacher are waiting behind this door to make their switcheroo appearances on the porn special.
+- There is a door into the next room where Ana goes with her instrument. I believe the other trumpet teachers are waiting behind this door to make their switcheroo appearances on the porn special.
 - One of the trumpet teachers flirts with me outrageously in public. I flirt back. It's quite amusing.
 - I remember I have cause to say, after he asks me about my surname, and just after Ana has been in, that "Katharine is sufficient," and he giggles. He primes this, of course.
 - It's hard to remember which trumpet teacher that was.
 - For the next significant event, the trumpet teacher is played by [Gloria the school receptionist's brother Ivan](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of).
 - I'm sitting in my chair, he is standing in front of me, our eyes lock and there is a powerful and undeniably reciprocal sexual attraction which is rather overwhelming to both of us.
 - I will be reminded of the look I give him at this moment when I see [plate lady online in July](../../content/images/plate-lady/plate-lady-love.png).
-- This trumpet teacher heads to the back of the room, with his back to us, humming gently, for about 5 minutes, to collect himself.
+- This trumpet teacher heads to the back of the room, with his back to us, humming gently, for about 5 minutes, to collect himself. They may switch again at this point.
 - I sit as far away from him as possible in the room. I don't look at him again, and he gives me a wide birth too.
 - The sexual arousal I have for this man is overpowering!
 - They must have drugged and maybe even sedated me in the classroom itself.
@@ -99,7 +99,7 @@ function googleTranslateElementInit() {
 ![Chamber music concert](../../content/images/chamber-music-concert.png)
 
 - This trumpet teacher is [Mark from English class in 2014](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013).
-- Later, the [third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) without me noticing.
+- Later, the [third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) enters again without me noticing.
 - Carmen Lopez Cano, Domingo's sister, a tiny blond woman, was playing the role of Pablo's "mum" in the audience and she was the only other adult person in the room apart from the "teachers".
 - She brought a small child with her.
 - The concert ends and I leave to walk out.
@@ -110,7 +110,7 @@ function googleTranslateElementInit() {
 - As I think back, it's possible that [more of the team](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) turned up that afternoon and swapped a few times during this concert.
 - It's interesting to see how much of the conspiracy I had figured out by when I originally drafted this section over a year ago.
 - On the first draft, I had not yet realized I was being drugged continuously.
-- On the second or third drafts, I hadn't realized there were two trumpet teachers, and that I was sedated and rape-porn live-streamed from my apartment on a regular basis, probably for over a year by that time.
+- On the second or third drafts, I hadn't realized there were two trumpet teachers, and that I was sedated and starring in rape-porn live-streamed from my apartment on a regular basis, probably for over a year by that time.
 - On the most recent draft of this section which adds the notification box below, I'm aware there are [at least four trumpet teachers](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) playing porn-switcheroo with me.
 - I guess that means this chamber music concert itself must have been live-streamed, and there are copies of it all over the world.
 - The two Ana's (violin teacher and musical language teacher) made a great fuss of pretending that Ana the violin teacher was terribly jealous and angry with me for posting information about the concert while I was still attending classes in the winter of 2024.
