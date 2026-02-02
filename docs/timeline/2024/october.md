@@ -219,6 +219,8 @@ function googleTranslateElementInit() {
 
 ![seeing carmen](../../content/images/seeing-carmen.png)
 
+- After seeing Carmen a few times this month; I realize with horror that the woman who had turned up to the [chamber music concert in May 2023](../2023/may.md#chamber-music-concert), pretending to be Pablo's mum, was her too!
+
 ## Sunday 6th October
 
 - I go for a walk along Las Marinas beach in the afternoon.
