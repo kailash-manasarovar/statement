@@ -55,23 +55,23 @@ function googleTranslateElementInit() {
 - I have no idea I'm being targeted because I'm a sedated Dénia porn-gang sensation and had been starring in [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) and live-stream spy-cam porn direct from my apartment for years.
 - I had no idea.
 - The only possible reason I could come up with for the constant abuse at work were my political views on trans ideology and women's rights.
-- Gabriel Silva meets me and I ask him what he's going to do about Hans's and Anthony's outrageous insubordination.
+- Gabriel Silva meets me and I ask him what he's going to do about [Hans's and Anthony's outrageous insubordination](june.md#polygon).
 - Gabriel explains he's starting afresh, he's going to forget about the past and move forward.
 - It sounds reasonable.
 - He then takes away all my work and gives it to Hans and Anthony.
 - At a later meeting, I ask Gabriel about his experience with Hans. He says: *oh, he doesn't seem to be doing any work*.
 - I wonder if that was the deal with Hans; no work, just a tax-free life in Dubai for significant abuse of the *female-tech-colleague-you-despise* after the [Bali offsite](may.md#bali)... so I'd leave.
 - Could they be that messed up?
-- Gabriel then ramps up the bullying even more; for example, he tells me he's getting another colleague, Mitch Egen from marketing, to write technical docs for us (my job again).
-- Mitch then repeats verbatim how I have always described the technical author role, as if he's reading a script taken from a recording of me (hacked Zoom meetings?).
+- Gabriel then ramps up the bullying even more; for example, he tells me he's getting another colleague, Mitch Egen from marketing, to write technical docs for us (my job again, a job which Mitch is not skilled in).
+- Mitch, then, repeats verbatim how I have always described the software technical author role, as if he's reading a script taken from a recording of me (hacked Zoom meetings?).
 - The most aggressive part of this is that whenever I said those things to Gabriel, he always told me I was wrong and had another immature idea which was better than mine; silencing.
 - Gabriel then sets me up to fail again; specifically by giving Anthony tasks he was unskilled for, ensuring he will make a lot of mistakes in a busy sprint cycle with the CDK team.
 - Anthony has stopped talking to me as if I'm a normal person whenever I try to help and advise him.
 - I see the tripwire and step over it.
 - However, I can see Gabriel is very confident with his plans, and Anthony's dismissive communication style says to me: *you're not going to be here in a few weeks anyway, I don't even have to talk to you politely*.
-- I have no other choice but to complain about victimization to save my job.
+- I have no other choice but to make an official complaint about victimization to save my job.
 - I contact Alyssa from HR on Slack and tell her I'm being victimized for my political views and it has been going on since I started.
-- I tell her I won't give her a full and complete description until I understand the company process.
+- I tell her I won't give her a full and complete description of everything that's happened until I understand the company process.
 - I request a non-biased mediator also.
 - I do tell Alyssa about the [Pakistani Yorkshireman who made sexually violent threats to me at dinner in Bali](may.md#the-pakistani-yorkshire-man) and that I had informed Miriam from Spanish HR about it the following morning.
 - I also do tell Alyssa that I'm being viciously stalked and hacked in Dénia by criminal gangs and it has been going on throughout my tenure at Polygon (something Gabriel, Hans, Anthony, Vincent, and numerous others are aware of because I told them).
@@ -85,8 +85,8 @@ function googleTranslateElementInit() {
 - While this is going on, the HR team has a company-wide meeting in which they mention my experience as a *female-tech-colleague-you-despise* in an underhand way.
 - James Dawes (ex-colleague of [Hans Bodani](../2023/november.md#polygon) at Mantle) leads the meeting and alludes to something exciting coming up.
 - He starts to mention the word [Fetch](../early-years/interim.md#fetchai) over and over for no particular reason.
-- "Remember", Alyssa says laughing later on, "Remember the word Fetch"!
-- Fetch is a direct reference to the company in Cambridge UK, Fetch.AI, [where a man flashed at me in an online meeting](../early-years/interim.md#fetchai) a week after I started.
+- "Remember", Alyssa says laughing later on, "Remember the word Fetch!".
+- Fetch is a direct reference to the company in Cambridge UK, Fetch.AI, [where a man flashed his crotch at me in an online meeting](../early-years/interim.md#fetchai) a week after I started.
 - When I meet Alyssa again, I tell her about my experience at Fetch without mentioning the company name.
 - At our next team meeting, Gabriel Silva makes sure to mention we *must* all watch this meeting if we haven't already, especially me.
 - Polygon then hires a [man who targeted me at zkSync](../2023/june.md#work-stress) in April 2023 while the [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) was in full swing, Coogan.
@@ -98,36 +98,34 @@ function googleTranslateElementInit() {
     - We know that sedated rape makes women depressed and anxious without knowing why.
     - Professional sedating rape-gangs making money on this lucrative genre, therefore, must give women a *reason* to be stressed to avoid suspicion.
     - This explains the outrageous behavior of teachers and staff at the conservatory towards me.
-    - It also explains the presence of Nadim, Hans, and the bullying events at Polygon most especially [the engineer who looked like Jitendra Das making sexually violent threats towards me](../2024/may.md#the-pakistani-yorkshire-man) at dinner in Bali.
+    - It also explains the presence of Nadim, Hans, and the bullying events at Polygon, most especially [the engineer who looked like Jitendra Das making sexually violent threats towards me](../2024/may.md#the-pakistani-yorkshire-man) at dinner in Bali.
     - I assume Spanish gitano misogynist terrorists have known for centuries that a *hysterical*, stressed, depressed, and anxious woman is never believed.
 
-### Update
+### Criminal investigation data blocked by Google admins
 
-- For this section, I had saved countless Slack screenshots between myself, Polygon HR, Gabriel Silva, Rebecca Rettig and others.
-- Because I was so high and couldn't focus enough to remember or remind myself about actions I had on previous days; I took duplicates, triplicates.. I had hundreds.
+- For this section, I had saved countless Slack screenshots between myself, Polygon HR, Gabriel Silva, Rebecca Rettig, all the conversations on Slack between [myself and Gordon Bishop](march/1-12.md#reporting-hacking-to-polygon-labs) when I reported hacking to Polygon security teams in March, and more.
+- Because I was so high all the time (not realizing it), and couldn't focus enough to remember or remind myself about actions I had taken on previous days; I took duplicates, triplicates.. I saved hundreds of Slack screenshots.
 - I did this because, at some level, I was aware that my mind was not functioning properly. 
 - I wasn't looking forward to collating them there were so many, so I saved them.
 - In Bangkok in November 2025, staying near Lupini Park beside the American embassy, I laboriously backed up everything I had onto all my Google drives.
 - I had backups in three different places; giant, humongous backups.
 - And all the originals I had mailed to myself in my katharinejc Google account.
 - Arriving back in London in January 2026, I'm denied access to this Google account and there is no reason for it.
-- I'm not asked for a screen-lock, or an email to my backup accounts, to gain access as before.
+- I'm not asked for a screen-lock, and they don't offer the recovery email option, to gain access as normal.
 - I raise [an issue on the Google community help pages](https://support.google.com/accounts/thread/403846478/hacked-laptop-home-router-blocking-account-recovery), but it drifts into silence.
 
 ![Google community help request](../../content/images/google-community-help.png)
 
-- Today, I go to find my Slack screenshot back ups from October 2024.
-- There are none.
-- All Google drive information pertaining to this police statement on my other two Google accounts has been deleted.
-- It's as if I didn't spend three whole days backing up gigabytes of data to my Google drives online in Bangkok.
-- I guess the porn-gangs and the caliphate, proud sponsors of the male erection, are the winners, protected at the highest level.
-- Bye bye beautiful world...
-- Or...
-- Perhaps there's other backups...
+- Today, I go to find my Slack screenshot back ups from October 2024 for writing this section.
+- There are none!
+- All Google drive information pertaining to this police statement on my other two Google accounts - apart from [the larger files I have been linking out to](https://drive.google.com/drive/folders/1s5RhOEQ5hXZfcxGSUtbkEaJlb0M4u2Dy?usp=drive_link) since I started writing - has been deleted.
+- It's as if I didn't spend three whole days laboriously backing up multiple gigabytes of data to my Google drives online in Bangkok.
+- This sinister activity on my Google accounts happened the moment I arrived back in North London, and I do not think this is by accident.
+- I expect there's other backups.
 
 ### Recruitment agents contact me
 
-- During this time, I'm contacted by a few different recruitment agents about potential roles; Joel Barden at Hype is one of them.
+- During this time, I'm contacted by a few different recruitment agents about potential roles; Joel Barden at Hype is one of those recruiters reaching out.
 - Does he know I'm about to be fired?
 
 ## Activity in the nextdoor apartment, number 18
