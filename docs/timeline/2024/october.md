@@ -210,7 +210,7 @@ function googleTranslateElementInit() {
 - I take my analog phone so that I'm not tracked and followed and I can still call the police if necessary.
 - I'm tracked and followed.
 - Just before I reach the restaurant Sendra, Carmen Lopez Cano passes me on a bicycle.
-- She u-turns abruptly and stops to stare at me, grins and cycles off.
+- She u-turns abruptly and stops to stare at me, grins and cycles off the way she came.
 - I know it's her because she looks like her brother Domingo.
 - I thought I had her on film; although she may have stayed just out of shot knowing I was wearing my hiker's camera.
 - I'll post all the films of this walk shortly on this page.

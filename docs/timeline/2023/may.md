@@ -96,8 +96,8 @@ function googleTranslateElementInit() {
 - Carmen Cano, a tiny blond woman, may have been taking the part of Pablo's "mum" in the audience.
 - I leave to walk out.
 - As I'm at the door, a man's voice says "Katharine", and I turn around and catch the trumpet teacher's eyes.
-- Trumpet teacher number one and two have swapped at this stage; but at the time I don't notice because they have successfully merged into one person in my mind with the use of sedated sexual assaults, online manipulation, and drugging. 
-- As I think back, it's possible these two men swapped a couple of times during this concert.
+- Trumpet teacher number two and three have swapped at this stage; but at the time I don't notice because they have successfully merged into one person in my mind with the use of sedated sexual assaults, online manipulation, and drugging. 
+- As I think back, it's possible these two men, and more maybe, swapped a few times during this concert.
 - It's interesting to see how much of the conspiracy I had figured out by when I originally posted this; it wasn't much initially, and yet steadily the truth comes out.
 - When I first posted this section, I hadn't realized I was being drugged continuously.
 - On the second or third drafts, I hadn't realized there were two trumpet teachers, and that I was sedated and rape-porn live-streamed from my apartment on a regular basis, probably for over a year by that time.
