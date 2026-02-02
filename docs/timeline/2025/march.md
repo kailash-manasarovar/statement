@@ -107,7 +107,7 @@
 ## Israel
 
 - The next day, I believe, I travel to Israel.
-- I'm visiting to assist my trauma therapy teacher, Stephen Terrell, who is giving module two of his course.
+- I'm visiting to assist my trauma therapy teacher, Stephen Terrell, who is giving module two of the Transforming Touch course.
 - When I saw him in January for training in Dublin, I asked him if he needed an assistant for Israel.
 - I wasn't going to include any of this because I didn't think it relevant to the main story, but perhaps it is...
 - Anyway, he said yes.
@@ -122,6 +122,8 @@
 - I meet some of the people that would have been assisting, or have taken Steve's courses previously in the US, and we do some Transforming Touch trauma therapy shares... this might be when I first notice my eye-twitching and I remember things about that from the past...
 - Anyway, the reason I'm adding this now is because of the Course in Miracles lesson I was studying that week which was awesome.
 - The lesson was [Lesson 160: I am at home. Fear is the stranger here](https://en.wikisource.org/wiki/A_Course_in_Miracles/Workbook_for_Students/I_am_at_home._Fear_is_the_stranger_here).
+
+![Rainbow at the wall](../../content/images/rainbow-at-the-wall.jpeg)
 
 ## Moorfields Eye Hospital
 
