@@ -526,7 +526,7 @@ function googleTranslateElementInit() {
 - I'm worried they're going to steal my X account name, so I take steps to protect it.
 
 !!! warning "Acting in ignorance"
-    - I've no idea they have had full access to my online activity, and all my devices, and have been watching every thing I do in my apartment via spy-cams since I moved in.
+    - I've no idea they have had full access to my online activity, and all my devices, and have been watching everything I do in my apartment via spy-cams since I moved in.
     - I've no idea I've been hacked for over 20 years by North London criminal gangs working closely with the porn-gangs of Dénia.
     - I'm doing the best I can with the information I have at this time, which is not much.
     
@@ -552,6 +552,8 @@ function googleTranslateElementInit() {
 
     ![Laptop 1](../../content/images/laptop-1.jpg)
     ![Laptop 2](../../content/images/laptop-2.jpg)
+
+    - It has never happened before.
 
 ## Last session with the acupuncturist
 
