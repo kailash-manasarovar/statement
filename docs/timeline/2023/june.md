@@ -523,32 +523,32 @@ function googleTranslateElementInit() {
 ## Monday 19th June
 
 - I run a block list on `@jctot19`'s followers and everyone the account is following.
-- I'm worried they're after my X account name, so I take steps to protect it.
+- I'm worried they're going to steal my X account name, so I take steps to protect it.
 
 !!! warning "Acting in ignorance"
-    - I've no idea they have had full access to my online activity, and all my devices, via the router probably since I moved in and got connected, possibly from even earlier.
-    - Hackers could have taken over my account at any time. 
-    - It's not what they wanted.
-
-- I quit my job but I don't have another one to go to.
-- I'm wondering if my role at zkSync was also part of the conspiracy, as the men at that organization built up the stress and tension to extraordinary levels on the run up to the day of the concert, so much so I was determined to leave. Was this a manipulated response too?
-- To everyone's shock and surprise, I go to practice the piano at the conservatory.
+    - I've no idea they have had full access to my online activity, and all my devices, and are watching every thing I do in my apartment via spy-cams since I moved in.
+    - I've no idea I've been hacked for over 20 years by North London criminal gangs working closely with the porn-gangs of Dénia.
+    - I'm doing the best I can with the information I have at this time, which is not much.
+    
+- I quit my job at zkSync and I don't have another one to go to.
+- Much later, I start wondering if my role at zkSync was also part of the porn-gang conspiracy, as the men at that organization built up the stress and tension to extraordinary levels on the run up to the day of the concert; so much so I was determined to leave my job after only 3 months, again!
+- To everyone's shock and surprise, on the morning of Monday 19th June, after arriving back from Dublin the night before, I go into the conservatory to practice the piano.
 - This was not what they intended, and I knew that very well.
 - But how dare they treat a student like that! 
 - I couldn't believe at that time that such behavior could be considered normal, and protected by the school board, as I understand it is now.
 - I'm also stubborn and deeply against injustices of all kinds. 
-- Moreover, my child sexual abuse history has made me utterly intolerant of injustices to children and I knew very well that if Domingo and his associates were able to behave in such a way to an adult student, they would most definitely be doing similar to minors.
-- I remembered many extremely concerning incidents.
-- I also realized that if I backed down and ran away, the evil would just grow.
-- I had no idea that running away was not actually what they really wanted, although from the conservatory studies yes, and perhaps that's what some of the teachers assumed. 
-- It's unclear who knew about the mass voyeurism, drugging, and spy-cam porn connection.
-- There is also the important point that hackers will have known how much money I have for a long time, and it is not inconsiderable. I continued to be a honey-trap target on that basis alone.
-- I wasn't to know at that time how much money criminal gangs had been making from spy-cam porn of sexual abuse with me as victim.
+- Moreover, my child sexual abuse history has made me utterly intolerant of child abuse in any form and I knew very well that if Domingo and his associates were free to behave in such a way to an adult student, they would most definitely be doing the same to minors.
+- I remembered many concerning incidents at the conservatory and with Domingo that became more horribly meaningful after my experience at the hands of teachers and staff.
+- I also knew that if I backed down and ran away, the evil would just grow.
+- I had no idea that running away was not what they really wanted, although from the conservatory studies yes. 
+- I had no idea that [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) *had* been waiting for me at [Alicante airport](#sunday-18th-june-alicante-airport) the night before with deeply malevolent intentions.
+- It's still unclear how many teachers and staff knew about the voyeurism, poisoning, drugging, and spy-cam porn; sadly my experience, which was yet to worsen, suggests that the whole town of Dénia is aware of what's going on at the conservatory and elsewhere in the region.
+- I still think I'm dealing with a bunch of silly boys; not an international crime gang that makes billions on criminal porn genres.
 
 !!! tip "Laptop"
-    - On two occasions I go into practice, and there are someone elses belongings in the practice room.
+    - On two occasions I go into practice the piano, someone has left their belongings in the practice room.
     - One time, there is a laptop on the desk.
-    - I realize Domingo can set me up as looking like I stole something from the conservatory so I take a picture of these items.
+    - I realize Domingo is likely to set me up as looking like I stole something from the conservatory so I take a picture of these items for security.
 
     ![Laptop 1](../../content/images/laptop-1.jpg)
     ![Laptop 2](../../content/images/laptop-2.jpg)

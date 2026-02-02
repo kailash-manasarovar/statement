@@ -62,7 +62,7 @@ function googleTranslateElementInit() {
 - At a later meeting, I ask Gabriel about his experience with Hans. He says: *oh, he doesn't seem to be doing any work*.
 - I wonder if that was the deal with Hans; no work, just a tax-free life in Dubai for significant abuse of the *female-tech-colleague-you-despise* after the [Bali offsite](may.md#bali)... so I'd leave.
 - Could they be that messed up?
-- Gabriel then ramps up the bullying even more; for example, he tells me he's getting another colleague, Mitch Egen from marketing, to write technical docs for us (my job again, a job which Mitch is not skilled in).
+- Gabriel then ramps up the bullying even more; for example, he tells me he's getting another colleague, Mitch Eger from marketing, to write technical docs for us (my job again, a job which Mitch is not skilled in).
 - Mitch, then, repeats verbatim how I have always described the software technical author role, as if he's reading a script taken from a recording of me (hacked Zoom meetings?).
 - The most aggressive part of this is that whenever I said those things to Gabriel, he always told me I was wrong and had another immature idea which was better than mine; silencing.
 - Gabriel then sets me up to fail again; specifically by giving Anthony tasks he was unskilled for, ensuring he will make a lot of mistakes in a busy sprint cycle with the CDK team.
@@ -118,7 +118,7 @@ function googleTranslateElementInit() {
 
 - Today, I go to find my Slack screenshot back ups from October 2024 for writing this section.
 - There are none!
-- All Google drive information pertaining to this police statement on my other two Google accounts - apart from [the larger files I have been linking out to](https://drive.google.com/drive/folders/1s5RhOEQ5hXZfcxGSUtbkEaJlb0M4u2Dy?usp=drive_link) since I started writing - has been deleted.
+- All Google drive information pertaining to this police statement on my other two Google accounts - apart from the larger files I have been linking out to since I started writing - has been deleted.
 - It's as if I didn't spend three whole days laboriously backing up multiple gigabytes of data to my Google drives online in Bangkok.
 - This sinister activity on my Google accounts happened the moment I arrived back in North London, and I do not think this is by accident.
 - I expect there's other backups.
