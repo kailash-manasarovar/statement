@@ -125,6 +125,11 @@ function googleTranslateElementInit() {
 - Or...
 - Perhaps there's other backups...
 
+### Recruitment agents contact me
+
+- During this time, I'm contacted by a few different recruitment agents about potential roles; Joel Barden at Hype is one of them.
+- Does he know I'm about to be fired?
+
 ## Activity in the nextdoor apartment, number 18
 
 - The next door apartment at Carrer Furs is barely used. 
