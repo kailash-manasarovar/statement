@@ -10,10 +10,11 @@
 - When I get back to my car, I see a car parked beside, or in front maybe, of mine.
 - In the driver's seat is a black woman, and I think I know her.
 - She was the accomplice of the man that tried to rob H Samuels in Brent Cross with a fake credit card, my summer job when I was 16, the week before I was targeted by the Jamaican rape-gangs!
-- The same man that [bared his teeth at me](../2024/december.md#man-bares-his-teeth-at-me) at the Spa in December 2024.
+- The same man that [bared his teeth at me](../2024/december.md#man-bares-his-teeth-at-me) at the Spa in Koh Samui in December 2024.
 - She looked exactly like her, just a bit older.
 - She has aged well.
 - Was she an "introduction agent" for the rape gangs? 
+- I think her name was Denise.
 - Thinking back, another man who worked at H Samuels in Brent Cross that summer was at the Camden Palace the very night we meet Winston May and his cohort.
 - I believe he was Scottish.
 
@@ -103,18 +104,20 @@
 - He was either Alkesh from North Finchley who went to prison for theft; or, more likely, he was the father of Winston May's sister's twins; the man that had brought down a bunch of Northern Pakistanis to sedate and rape us back in 1989.
 - He looked unwell.
 
-## Israel
+## Israel (first draft)
 
 - The next day, I believe, I travel to Israel.
 - I'm visiting to assist my trauma therapy teacher, Stephen Terrell, who is giving module two of his course.
-- When I saw him in January for training in Dublin (a small section I still have to draft), I asked him if he needed an assistant.
+- When I saw him in January for training in Dublin (a small section I still have to draft, I wasn't going to include any of this because I didn't think it relevant to the main story, but perhaps it is...).
+- I asked him if he needed an assistant for Israel.
 - He said yes.
 - So, delighted, I made my travel arrangements.
-- I hadn't visited Israel since 2012 when I fell in love with the country and its people.
+- I hadn't visited Israel since 2012 when [I fell in love with the country and its people](../early-years/2012.md#tiferet).
 - It's Purim.
 - At the last minute, Steve has to cancel the course because of health issues.
 - I'm unable to cancel my travel plans and it's not clear when he's rescheduling, so I go on my own and have a blissful time wandering around Jerusalem and taking it all in; visiting The Wall every day and praying.
-- And, I never felt safer in my whole life than I did/do in Jerusalem and in Israel which you might find surprising but there it is.
+- I had a lot to pray about.
+- And, I have never felt safer in my whole life than I did/do in Jerusalem and in Israel which you might find surprising but there it is.
 - I meet some of the people that would have been assisting, or have taken Steve's courses previously in the US, and we do some Transforming Touch trauma therapy shares... this might be when I first notice my eye-twitching and I remember things about that from the past...
 - Anyway, the reason I'm adding this now is because of the Course in Miracles lesson I was studying that week which gave me pause.
 - The lesson was [Lesson 160: I am at home. Fear is the stranger here](https://en.wikisource.org/wiki/A_Course_in_Miracles/Workbook_for_Students/I_am_at_home._Fear_is_the_stranger_here).
