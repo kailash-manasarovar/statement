@@ -279,21 +279,25 @@ function googleTranslateElementInit() {
 
 ## Bumping into Paul again
 
-- Later on 6th October, on my way to the Indian restaurant, I bump into Paul Matthews who is having a beer at the Open 24 Market at Plaza Benidorm, the usual place I "bump" into him.
-- He's been asked to check up on me, again.
+- Later on Sunday 6th October, on my way to the Indian restaurant, I bump into Paul Matthews.
+- He is having a beer at the Open 24 Market at Plaza Benidorm, the usual place they tell him to go so I "bump" into him.
+- He's been asked to check up on me, yet again.
 - Sometimes when I've *bumped into him here* he has been extremely nervous, even chain smoking.
-- He's calm and quiet this evening.
-- We chat a bit. 
+- I didn't know he smoked.
+- At least he stopped blushing.
+- Anyway, he's calm and quiet this evening, although a lot remains unsaid.
+- We chat for a bit. 
 - He wants to know what I'm up to.
+- Am I staying? 
+- The main question.
 - I tell him I'm thinking about running women's rights activities in Dénia.
-- There is a lot unsaid.
-- He shows me his Irish ID card, I'm not sure why. 
-- What is he being asked to do this evening.
-- The last time I spoke to him, in the same spot probably sometime in July, I mentioned that I was willing to pay EUR 500 for copies of the hacked sexual videos.
-- There is no follow up on this today.
-- He had mentioned another guy at that time, an English man, being very popular with everyone, all the girls coming up to him and saying hello as if they knew him.
+- The last time I spoke to him, in the same spot probably sometime in July, I mentioned that I was willing to pay EUR 500 for copies of any spy-cam footage or sexual abuse videos from 1989.
+- Paul does not mention this to me.
+- He had mentioned at that time, an English man he knew, being very popular with everyone; all the girls coming up to him and saying hello as if they knew him.
 - I wasn't sure how this related to what I'd just said.
-- I mentioned Halloween was coming up and ask him did he think we should go out again.
+- Was he pointing out a male British ex-pat that had been spy-cammed?
+- I mentioned Halloween was coming up and asked him did he think we should go out again.
+- He didn't answer.
 - I said I would WhatsApp Alex about it.
 - I did. She didn't reply.
 - On Halloween I text the following:
@@ -301,6 +305,7 @@ function googleTranslateElementInit() {
 ![WhatsApp to Alex](../../content/whatsapps/whatsapp-to-alex.png)
 
 - There's no reply.
+- Everyone knows what's going on at some level.
 
 ## Las Rotas
 
