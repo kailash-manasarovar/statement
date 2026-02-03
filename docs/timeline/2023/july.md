@@ -105,6 +105,9 @@ function googleTranslateElementInit() {
 #### Seals
 
 - A significant *meme* was a baby seal.
+
+![Baby seal](../../content/images/baby-seal-1.png)
+
 - I complained bitterly that teachers and staff had treated me like hunters might bludgeon a baby seal.
 
 [![Baby seal](../../content/tweets/baby-seal.png)](https://x.com/1FRGVN/status/1703041567253016887)
