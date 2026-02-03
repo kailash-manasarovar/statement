@@ -229,9 +229,9 @@ function googleTranslateElementInit() {
 - I am followed by older men the whole way along; men in their 50s and 60s.
 - Everything is yellow; I'm hallucinating, hard.
 - I feel menace all around.
-- I see a man that I will often see in [Natalia's posts on Facebook](https://www.facebook.com/natideprati); the older man that we often see skippering the boat.
+- I see a man that recognize from [Natalia's posts on Facebook](https://www.facebook.com/natideprati); the older man that we often see skippering the boat.
 - Is he the same man that trolls me on X pretending to be the trumpet teacher; a sailor or someone connected to the sea?
-- Or is he [Rodrigo who does Vipasana meditation](../2023/december.md#vipasana-meditation)? He looks a lot like him.
+- Or is he [Rodrigo who does Vipasana meditation](../2023/december.md#a-mutual-friend)? He looks a lot like him.
 - Or is he Ivan's main alibi (switcheroo)?
 - I also see a short brown man with curly black hair and a protuberous nose. 
 - He's in his 50s but he looks like the adult version of the boy that always shows up in first place on my Google searches.
@@ -257,10 +257,10 @@ function googleTranslateElementInit() {
 - I never go to the beach again.
 - I never see possums again on my feed either.
 - At the laundry that evening drying my clothes, the lovely man there asks, without requiring an answer: "¿Todo claro?". 
-- I mention this in [another section about the laundry](../2023/november.md#the-laundry).
+- I mention this in [another section about the laundry](../2023/november.md#the-laundry), scene of many drugged-manipulation and stalker events. I wonder if Sunday, like Monday, was always a *special day* back at mine.
 - I hear it as: "Is everything clear now?", as if my experience at the beach has explained my situation somehow.
-- Back home that night a fake account says possum man is the boss - the account uses the word Caesar - and that he is looking for developers. 
-- The inference is I'm now being [offered a job in tech](#job-offer) by the criminal gang's boss!
+- Back home that night, a fake account tells me possum man is the boss - the account uses the word Caesar - and that he is looking for developers. 
+- The inference is I'm now being [offered a job in tech](#job-offer) by the criminal-gang's boss!
 - I do not know what any of this means.
 - Is it more tricks to scare me? 
 - Is it a way of explaining away everything that's been going on onto a foreign criminal?
@@ -270,30 +270,41 @@ function googleTranslateElementInit() {
 !!! tip "The video files"
     - You'll have to wait for access to these because I don't have a good option for content delivery of multiple large files at the current homeless-and-jobless time.
 
-## Las Rotas
-
-- https://x.com/1FRGVN/status/1844468797044052150/photo/1 - Valencia holiday 9th October.
-
 ## Job offer
 
 - The following day I'm contacted on LinkedIn by a yacht company based in Altea with a job offer which I refuse because I'm certain it's a scam.
+- I'm banned for life on LinkedIn in a few week's time.
 
 ## Bumping into Paul again
 
-- On 6th October, on my way to the Indian restaurant, I bump into Paul who is having a beer at the Open 24 Market at Plaza Benidorm, the usual place I "bump" into him.
-- He's clearly been asked to check up on me.
-- We chat a bit. I tell him I'm thinking about running women's rights activities in Dénia.
-- There is a lot unsaid. 
+- Later on 6th October, on my way to the Indian restaurant, I bump into Paul Matthews who is having a beer at the Open 24 Market at Plaza Benidorm, the usual place I "bump" into him.
+- He's been asked to check up on me, again.
+- Sometimes when I've *bumped into him here* he has been extremely nervous, even chain smoking.
+- He's calm and quiet this evening.
+- We chat a bit. 
+- He wants to know what I'm up to.
+- I tell him I'm thinking about running women's rights activities in Dénia.
+- There is a lot unsaid.
+- He shows me his Irish ID card, I'm not sure why. 
+- What is he being asked to do this evening.
 - The last time I spoke to him, in the same spot probably sometime in July, I mentioned that I was willing to pay EUR 500 for copies of the hacked sexual videos.
+- There is no follow up on this today.
 - He had mentioned another guy at that time, an English man, being very popular with everyone, all the girls coming up to him and saying hello as if they knew him.
 - I wasn't sure how this related to what I'd just said.
-- I mentioned Halloween was coming up and did he think we should go out again. I said I would WhatsApp Alex about it.
+- I mentioned Halloween was coming up and ask him did he think we should go out again.
+- I said I would WhatsApp Alex about it.
 - I did. She didn't reply.
 - On Halloween I text the following:
 
 ![WhatsApp to Alex](../../content/whatsapps/whatsapp-to-alex.png)
 
 - There's no reply.
+
+## Las Rotas
+
+- https://x.com/1FRGVN/status/1844468797044052150/photo/1 - Valencia holiday 9th October.
+
+
 
 ## YouTube with Kelly Oliver Dougall
 
