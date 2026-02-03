@@ -394,7 +394,7 @@ function googleTranslateElementInit() {
     - As I started writing this police statement, I began to wonder about corrupt machinations behind my employment with Polygon as the company is very Spanish and I was earning heaps of money! A honey-trappers wet-dream indeed.
     - It came just after the [Torus](august.md#head-hunted-by-ex-polygon-director) nonsense job which was obviously part of the extreme hacking I was subject to. 
     - Were Polygon founders involved in that and by extension everything else that was going on?
-    - In retrospect, my assignment with Polygon seems to be just another example of [the porn fatwa](../early-years/2003.md#porn-fatwa), especially when we consider [Nadim's outrageous behavior](#nadim-kobesi), [Hans Bodani's outrageous behavior](../2024/may.md#hans) and the [Pakistani Brit making threats of sexual violence towards me in Bali](../2024/may.md#the-pakistani-yorkshire-man), and other quite unbelievable Polygon events.
+    - In retrospect, my assignment with Polygon seems to be just another example of [the porn fatwa](../2001-to-2010/2003.md#porn-fatwa), especially when we consider [Nadim's outrageous behavior](#nadim-kobesi), [Hans Bodani's outrageous behavior](../2024/may.md#hans) and the [Pakistani Brit making threats of sexual violence towards me in Bali](../2024/may.md#the-pakistani-yorkshire-man), and other quite unbelievable Polygon events.
     - What's not clear is how many of the men I have worked with have seen the [child rape-gang porn with me in it](#first-time-they-flash-up-my-naked-16-year-old-body-on-x) and/or knew I was being drugged and sedated in my apartment in Dénia, and how many of them were aware that the criminal gangs intended to rob and murder me when I was run through, like they do with all the other women, and now children.
     - I'm wondering if my role at zkSync was also part of the conspiracy, as the men at that organization built up the stress and tension to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023), as if keeping in step with teachers and staff at the conservatory.
     - *It's what they do*, as [Paqui had said to me in class](../2024/january.md#i-tell-paqui-im-being-terrorized-by-teachers-and-staff-at-the-conservatory).
@@ -455,7 +455,7 @@ function googleTranslateElementInit() {
 - The tech failed and faltered again and again in early 2024. I think this is probably a red-herring though.
 - He, or other parties, added a lot of malicious code to my backend set up which broke our SEO for months before we could figure out what had happened, but I'm guessing this is another red-herring given how my own colleagues hacked my systems to *make me look incompetent*.
 - Was Nadim hired specifically with the intention of terrorizing me at work, for laughs alongside the other humiliation I didn't know I was suffering.
-- Did Nadim find something out he didn't like, about the [porn fatwa maybe](../early-years/2003.md#porn-fatwa), and realize it wasn't such a fun gig after all and got himself out of there quick?
+- Did Nadim find something out he didn't like, about the [porn fatwa maybe](../2001-to-2010/2003.md#porn-fatwa), and realize it wasn't such a fun gig after all and got himself out of there quick?
 - In any case, from the moment I gave Nadim my X account details and looked him up online in private, everything changed for me at Polygon. 
 - My boss Grace Torrellas starts to treat me with disdain and I am no longer given any work by Gabriel Silva who I am supposed to be working with closely. 
 - Was this all intentional though?
@@ -477,7 +477,7 @@ function googleTranslateElementInit() {
 - In early 2024, 20% of the workforce is let go.
 - Grace loses her job and she's only been doing it a short while.
 - She disappears in seconds but seems to be OK about it, which is a bit strange.
-- Did she also find out about the [porn fatwa](../early-years/2003.md#porn-fatwa) and want out quick, or was leaving at this time part of the deal for her?
+- Did she also find out about the [porn fatwa](../2001-to-2010/2003.md#porn-fatwa) and want out quick, or was leaving at this time part of the deal for her?
 - I step up to take the roll of team lead, I guess this was expected.
 - I'm not entirely happy about this but it's clear neither Hans or Anthony are going to do it.
 - It's a lot of work.
@@ -528,7 +528,7 @@ function googleTranslateElementInit() {
 - They're done with me after Bali, but what did they get from me being in Bali if they already hated me that much?
 - The other team member, Anthony Matlala, sides with Hans once he sees I'm getting no support from my managers, but perhaps he also knows what's really going on. He's good chums with David Z.
 - At a dinner [in Bali, I am threatened with sexual violence from an "apparent" Rust engineer Aziz](../2024/may.md#the-pakistani-yorkshire-man) who has started that week. 
-- He looks exactly like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life), the well-known to criminal porn gangs [porn-fatwa star](../early-years/2003.md#porn-fatwa) and perhaps another set of films everyone will be familiar with.
+- He looks exactly like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life), the well-known to criminal porn gangs [porn-fatwa star](../2001-to-2010/2003.md#porn-fatwa) and perhaps another set of films everyone will be familiar with.
 - This man is set up to meet me by mushroom man, one of Ajay's team just mentioned, and he has clearly been told to target me in this sinister manner.
 - Anthony is at the dinner table when this happens. Is Anthony there to provide a denial?
 
@@ -557,7 +557,7 @@ function googleTranslateElementInit() {
 - Anything I do write, he asks Hans to do over. 
 - He picks on me in meetings and gives me impossible backend tasks which I complete successfully.
 - By September/October, I'm getting really upset about it and contact HR to start harassment procedures because I believe I'm being forced out due to my political views.
-- I'm unaware of the [porn fatwa](../early-years/2003.md#porn-fatwa) at that time which is the underlying machinery behind everything.
+- I'm unaware of the [porn fatwa](../2001-to-2010/2003.md#porn-fatwa) at that time which is the underlying machinery behind everything.
 - Furthermore, porn gangs intend to consume me completely, and that would not look good if I was still working for Polygon, so I have to be got rid of.
 - In October, I make an online video about the spy-cams in my apartment, at which point, I believe, the porn gangs decide to murder me.
 - A couple of weeks later Polygon fires me, and the whole team, saying we're redundant, which is not true.

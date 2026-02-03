@@ -22,7 +22,7 @@ It was written under extraordinary pressures, and while the author was being poi
 
 ![Terrorized by Spanish men and their female slaves](content/images/planning-the-murder-of-innocents-2.png)
 
-The gangs had been stalking her for years, since at least 2003 when a [porn fatwa](timeline/early-years/2003.md#porn-fatwa) was issued against her as she was about to come into a *a lot* of money.
+The gangs had been stalking her for years, since at least 2003 when a [porn fatwa](timeline/2001-to-2010/2003.md#porn-fatwa) was issued against her as she was about to come into a *a lot* of money.
 
 The gangs lured her to a beautiful town on the Spanish coast where they were free to do whatever they wanted to her, knowing she would never be able to escape or complain or get help. They eventually tried to murder her because she was stubborn and blame-free, and she refused to leave the town and people she loved when the porn-gangs had finished with her. 
 

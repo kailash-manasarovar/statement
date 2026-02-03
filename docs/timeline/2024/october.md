@@ -482,7 +482,7 @@ function googleTranslateElementInit() {
 - Jonathan is extremely aggressive with me when I try to talk to them.
 - I'm told the whole team is dismissed as they are no longer required.
 - I used to think it was because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy was able to cause enormous trouble with the tech systems, and consequently find out about my private political activities and manage to stick the boot in for me, just weeks after I started.
-- I now believe this was incorrect, and it was instead due to the [porn fatwa](../early-years/2003.md#porn-fatwa) which had gotten so out of control everything I did in my life was monitored and manipulated by porn addicts, often working alongside me in tech companies.
+- I now believe this was incorrect, and it was instead due to the [porn fatwa](../2001-to-2010/2003.md#porn-fatwa) which had gotten so out of control everything I did in my life was monitored and manipulated by porn addicts, often working alongside me in tech companies.
 - I had just given a public online interview stating I believed I was being drugged and filmed in my flat.
 - Furthermore, anyone in Polygon management knowing what was happening to me in Denia will have known I was about to be [murdered by poisoning by Carmen Cano and her associates](#serious-poisoning-with-intent-to-harm-or-kill). 
 - They couldn't have me turn up to meetings while that was happening now, could they?

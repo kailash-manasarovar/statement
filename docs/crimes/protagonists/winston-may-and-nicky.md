@@ -59,6 +59,6 @@ function googleTranslateElementInit() {
 ## Once a victim, always a target
 
 - Criminal porn-gangs know that anyone experiencing sexual violence and remaining unhealed from it has no personal boundaries; that's typically how they phish for online victims using their manipulation tech.
-- Is this why I remained on the database from 1989, as it were, and then [when I got rich...](../../timeline/early-years/2003.md#porn-fatwa).
+- Is this why I remained on the database from 1989, as it were, and then [when I got rich...](../../timeline/2001-to-2010/2003.md#porn-fatwa).
 - Winston May did call my home one time in the 90s.
 

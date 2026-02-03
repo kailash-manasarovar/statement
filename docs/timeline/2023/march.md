@@ -189,7 +189,7 @@ function googleTranslateElementInit() {
 - They offered me a month's stay in New York to learn their programming language but I declined due to my conservatory studies - which was insane!
 - I believe all my decisions were being controlled by online manipulation and emotional triggering coupled with drugging.
 - I start my new role at zkSync.
-- Looking back, I'm certain some of the men at zkSync were aware of the [porn fatwa against me](../early-years/2003.md#porn-fatwa); perhaps not the full story or they might have taken pause.
+- Looking back, I'm certain some of the men at zkSync were aware of the [porn fatwa against me](../2001-to-2010/2003.md#porn-fatwa); perhaps not the full story or they might have taken pause.
 - My role at zkSync was another fabulous job which turns sour the minute you walk through the door, really sour.
 - The men at zkSync build up the stress and tension, in-step with teachers and staff at the porn-school conservatory of Dénia, to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023), my "funeral".
 - The week before the 12th June, the CTO, a British man living in California who knew Elon Musk closely from having worked with him at Tesla, pings me a gun emoji the day before a *firing day*.

@@ -34,7 +34,7 @@ Gang-stalking, cyber-terrorizing, constant online persecution, clandestine drugg
 
 The report details the following:
 
-- How I have been the subject of a [porn fatwa](timeline/early-years/2003.md#porn-fatwa) since at least 2003, issued by UK criminal gangs - the Adams family and likely others - due to receiving £250K compensation for the Lockerbie terrorist bombing in which my aunt Geraldine was murdered while working as purser for Pan Am flight 103.
+- How I have been the subject of a [porn fatwa](timeline/2001-to-2010/2003.md#porn-fatwa) since at least 2003, issued by UK criminal gangs - the Adams family and likely others - due to receiving £250K compensation for the Lockerbie terrorist bombing in which my aunt Geraldine was murdered while working as purser for Pan Am flight 103.
 - How, in Dénia itself, criminal gangs hacked my home network, mobile phones, and laptops - including gaining access to my work laptops from three different companies via my [home router](timeline/2024/march/1-12.md#reporting-hacking-to-polygon-labs). 
 - How I was hacked in a similar manner by the same criminal enterprise wherever I was in the world since 2003, possibly earlier, who were monitoring my online activity and likely my family's too.
 - How the same criminals targeted other family members, and [even other UK Lockerbie families](timeline/early-years/2006.md#lockerbie), to rob them of their Lockerbie compensation be it via honey-trapping, sexploitation and blackmail, or manipulated drug addictions.

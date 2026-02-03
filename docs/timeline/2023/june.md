@@ -133,7 +133,7 @@ function googleTranslateElementInit() {
 - I'm doing my best to do a good job but I feel like the *important men* are trying to make me look incompetent and get me to leave.
 - One man, Coogan, has become exceptionally offended that I corrected some work he did; so much so he aggressively tries to take over control of my machine in a meeting where he is ostensibly trying to show me how wrong I was. I tell him no and ask him to demonstrate how wrong I am on his machine.
 - He does so, but eventually comes up against the error I had corrected and has to back down.
-- He never forgives me for this; or he's aware of the [porn fatwa](../early-years/2003.md#porn-fatwa) and how I'm an international porn-addict target.
+- He never forgives me for this; or he's aware of the [porn fatwa](../2001-to-2010/2003.md#porn-fatwa) and how I'm an international porn-addict target.
 - I am managing one other writer on the team whose level of English is pre-school. He doesn't know where to put full stops and capital letters.
 - He was hired by someone who didn't know the job and he had been hacking away at the content for nearly a year.
 - I redirect him into things he can do which I don't have time for, things he's really good at like web development - although sometimes, he admits, he gets someone else to help him.
@@ -157,7 +157,7 @@ function googleTranslateElementInit() {
 - The day before the mass-firing where my writer was sacked, he posted a gun emoji to me on Slack.
 - Incidentally, his job prior to working at zkSync was with Elon Musk.
 - Did he know Elon?
-- Could Elon himself know about the [porn fatwa](../early-years/2003.md#porn-fatwa) and support it?
+- Could Elon himself know about the [porn fatwa](../2001-to-2010/2003.md#porn-fatwa) and support it?
 - Elon's posts [often strangely coincided](november.md#elons-violinist) with what was going on for me at the conservatory and with regards to the trumpet teacher.
 - Was this just coincidence?
 - Is Elon aware of the systemic targeting of women in tech by porn addicts?
