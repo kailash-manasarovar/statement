@@ -265,6 +265,7 @@ function googleTranslateElementInit() {
 - Is it more tricks to scare me? 
 - Is it a way of explaining away everything that's been going on onto a foreign criminal?
 - Does possum man run the criminal porn networks I've been starring in?
+- Was the deal from back in May 2023 for him to take ownership of the most recent sedated-sex-slave of Dénia once I was drugged and poisoned beyond all and any autonomy?
 
 !!! tip "The video files"
     - You'll have to wait for access to these because I don't have a good option for content delivery of multiple large files at the current homeless-and-jobless time.
