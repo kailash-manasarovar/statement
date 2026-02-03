@@ -40,9 +40,9 @@
 
 ## The geezer with the unsmiling girls
 
-- A cockney geezer is hanging out on the beach every day.
+- A cockney geezer is hanging out on Lamai beach every day.
 - He's about 60, black hair probably dyed, geezer.
-- He has two young girls with him who don't speak.
+- He has two young women with him who don't speak.
 - He speaks.
 - A lot.
 - He's always shouting on his phone.
