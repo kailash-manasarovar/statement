@@ -37,3 +37,15 @@
 - I get up and write about it.
 - I lose my sense of peace for a good few hours.
 - Something tells me that what I saw was related to events on [13th March 2024](../2024/march/13-end.md#wednesday-13th-march) when I woke up certain I was going to be murdered and texted everyone I knew (Chris BJ, Alessandra, Brenda, Sandra, maybe others) to that effect.
+
+## The geezer with the unsmiling girls
+
+- A cockney geezer is hanging out on the beach every day.
+- He's about 60, black hair probably dyed, geezer.
+- He has two young girls with him who don't speak.
+- He speaks.
+- A lot.
+- He's always shouting on his phone.
+- One day, I walk past him, and he says: *you mean all the way from twenty years ago*.
+- Seems like he's referring to me.
+- I think: *twenty-five*.
