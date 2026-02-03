@@ -213,7 +213,6 @@ function googleTranslateElementInit() {
 - She u-turns abruptly and stops to stare at me, grins and cycles off the way she came.
 - I know it's her because she looks like her brother Domingo.
 - I thought I had her on film; although she may have stayed just out of shot knowing I was wearing my hiker's camera.
-- I'll post all the films of this walk shortly on this page.
 - What you can notice is that, after seeing her, I become nervous and start singing a little to self-sooth.
 - I tweet about this meeting later on, and it is translated a lot.
 
@@ -221,30 +220,58 @@ function googleTranslateElementInit() {
 
 - After seeing Carmen a few times this month - she makes no effort to hide herself - I realize with horror that the woman who had turned up to listen to the [chamber music concert in May 2023](../2023/may.md#chamber-music-concert), pretending to be Pablo's mum, the only parent that showed up along with at least two of the [switcheroo-porn trumpet-teacher team](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) pretending to be the same one man, Vidal Sastre Sanchez Hornero, was her too!
 
+!!! tip "The video files"
+    - You'll have to wait for access to these because I don't have a good option for content delivery of multiple large files at the current homeless-and-jobless time.
+
 ## Sunday 6th October
 
-- I go for a walk along Las Marinas beach in the afternoon.
-- I am followed by older men the whole way along, men in their 50s and 60s.
-- On the way back home a couple starts walking in front of me.
-- The woman on the left is someone I've seen on a Twitter fake account and I had a screenshot of this prior to losing access to my machine on 1st December. She has quite a masculine body.
-- She has the same tattoo as the [innocent lady who gets into porn](august.md#grooming-an-innocent-girl-into-porn-101) on her arm and she takes pains to show me.
-- The man on her right smiles and shows me his face. He looks like a possum.
-- I have this on camera.
+- I go for a walk along the Las Marinas beach in the afternoon; my regular Sunday walk.
+- I am followed by older men the whole way along; men in their 50s and 60s.
+- Everything is yellow; I'm hallucinating, hard.
+- I feel menace all around.
+- I see a man that I will often see in [Natalia's posts on Facebook](https://www.facebook.com/natideprati); the older man that we often see skippering the boat.
+- Is he the same man that trolls me on X pretending to be the trumpet teacher; a sailor or someone connected to the sea?
+- Or is he [Rodrigo who does Vipasana meditation](../2023/december.md#vipasana-meditation)? He looks a lot like him.
+- Or is he Ivan's main alibi (switcheroo)?
+- I also see a short brown man with curly black hair and a protuberous nose. 
+- He's in his 50s but he looks like the adult version of the boy that always shows up in first place on my Google searches.
+
+![The boy](../../content/images/google-searches/google-search-young-man.png)
+
+- I'm wearing my hiking camera.
+- I have these two men, and lingering others, on film.
+- I can only sit for about 5 minutes before I feel so threatened I decide to leave and go home.
+- On the way back along the beach towards home, a couple falls in about two metres in front of me.
+- We're walking in step.
+- The woman on the left is someone I've seen on a Twitter fake account - I had a screenshot of this prior to losing access to my machine on 1st December 2024 in Bangkok.
+- She has a masculine body and I wondered if she was, in fact, a man.
+- She has the same tattoo as the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101) on her arm.
+- She's making sure I see it.
+
+![The tattoo](../../content/images/the-tattoo.png)
+
+- The man on her right smiles at her, and I see his face. 
+- His teeth, in profile, make him look like a possum.
+- You may remember, inexplicably, I have been seeing *possums* on my X feed since at least May 2023 when [the switcheroo porn](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) was in production at the conservatory.
+- I have these two on camera also.
 - I never go to the beach again.
-- At the laundry that evening, the lovely man there asks, without requiring an answer "¿Todo claro?". 
+- I never see possums again on my feed either.
+- At the laundry that evening drying my clothes, the lovely man there asks, without requiring an answer: "¿Todo claro?". 
 - I mention this in [another section about the laundry](../2023/november.md#the-laundry).
-- Back home that night a fake account says possum man is looking for developers. The inference is I'm being offered a job in tech.
+- I hear it as: "Is everything clear now?", as if my experience at the beach has explained my situation somehow.
+- Back home that night a fake account says possum man is the boss - the account uses the word Caesar - and that he is looking for developers. 
+- The inference is I'm now being [offered a job in tech](#job-offer) by the criminal gang's boss!
+- I do not know what any of this means.
+- Is it more tricks to scare me? 
+- Is it a way of explaining away everything that's been going on onto a foreign criminal?
+- Does possum man run the criminal porn networks I've been starring in?
 
-!!! warning
-    - Something I realize now is that throughout the intense cyber stalking period, I would say September 2023 to May 2024, accounts about possums would regularly pop up on my Twitter feed; e.g. a possum of the day account came up regularly for ages.
-    - Like other accounts I saw with great regularity, violence and porn specifically, I never followed any of these accounts and it never made any sense for me to see them.
-
-- I do not know what any of this means. Is it more tricks to scare me? Why would they put so much effort into it. I don't understand. The whole thing makes no sense.
-- And how is anyone supposed to know what's going on if no one ever talks to you and if they can only lie anyway?
+!!! tip "The video files"
+    - You'll have to wait for access to these because I don't have a good option for content delivery of multiple large files at the current homeless-and-jobless time.
 
 ## Las Rotas
 
-- https://x.com/1FRGVN/status/1844468797044052150/photo/1 - Valencia holiday
+- https://x.com/1FRGVN/status/1844468797044052150/photo/1 - Valencia holiday 9th October.
 
 ## Job offer
 
