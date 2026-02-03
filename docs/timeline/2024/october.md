@@ -281,23 +281,26 @@ function googleTranslateElementInit() {
 ## Bumping into Paul again
 
 - Later on Sunday 6th October, on my way to the Indian restaurant, I bump into Paul Matthews.
-- He is having a beer at the Open 24 Market at Plaza Benidorm, the usual place they tell him to go so I "bump" into him.
+- He is having a beer at the Open 24 Market at Plaza Benidorm, the usual place they tell him to go when they know I'm on my way so I "bump" into him.
 - He's been asked to check up on me, yet again.
 - Sometimes when I've *bumped into him here* he has been extremely nervous, even chain smoking.
 - I didn't know he smoked.
-- At least he stopped blushing.
+- At least [he's stopped blushing](../2023/october.md#paul-and-alessandra).
 - Anyway, he's calm and quiet this evening, although a lot remains unsaid.
 - We chat for a bit. 
 - He wants to know what I'm up to.
-- Am I staying? 
+- Am I staying in Dénia? 
 - The main question.
-- I tell him I'm thinking about running women's rights activities in Dénia.
-- The last time I spoke to him, in the same spot probably sometime in July, I mentioned that I was willing to pay EUR 500 for copies of any spy-cam footage or sexual abuse videos from 1989.
-- Paul does not mention this to me.
-- He had mentioned at that time, an English man he knew, being very popular with everyone; all the girls coming up to him and saying hello as if they knew him.
+- Have they a new target lined up to rent Bea's spy-cam-ridden apartment?
+- I tell him I'm thinking about running women's rights activities in Dénia for the following year.
+- He sort of mini-rolls his eyes and changes the subject.
+- The last time I spoke to him, in exactly the same spot sometime in July, I mentioned that I was offering 500 euros for copies of any spy-cam footage of sexual abuse videos from my hacked devices and from 1989.
+- I made that offer to Paul, to the caretaker at Carrer Furs, and to everyone reading my social media posts.
+- Paul does not mention it again.
+- He had mentioned at that time, however, an English man he knew being very popular with everyone; all the girls coming up to him and saying hello as if they knew him.
 - I wasn't sure how this related to what I'd just said.
-- Was he pointing out a male British ex-pat that had been spy-cammed?
-- I mentioned Halloween was coming up and asked him did he think we should go out again.
+- Was he pointing out to me a male British ex-pat that had been spy-cammed like I had, for sexploitation maybe?
+- I mentioned Halloween was coming up and asked him did he think we should go out again [like the year before](../2023/october.md#halloween).
 - He didn't answer.
 - I said I would WhatsApp Alex about it.
 - I did. She didn't reply.
@@ -306,7 +309,7 @@ function googleTranslateElementInit() {
 ![WhatsApp to Alex](../../content/whatsapps/whatsapp-to-alex.png)
 
 - There's no reply.
-- Everyone knows what's going on at some level.
+- Everyone in Dénia knows what's been happening, at some level.
 
 ## Las Rotas
 
