@@ -257,8 +257,9 @@ function googleTranslateElementInit() {
 - I never go to the beach again.
 - I never see possums again on my feed either.
 - At the laundry that evening drying my clothes, the lovely man there asks, without requiring an answer: "¿Todo claro?". 
-- I mention this in [another section about the laundry](../2023/november.md#the-laundry), scene of many drugged-manipulation and stalker events. I wonder if Sunday, like Monday, was always a *special day* back at mine.
 - I hear it as: "Is everything clear now?", as if my experience at the beach has explained my situation somehow.
+- I mention this in [another section about the laundry](../2023/november.md#the-laundry), scene of many drugged-manipulation and stalker events. I wonder if Sunday, like Monday, was always a *special day* back at mine.
+- There was always something happening at [the laundry](#threats-and-a-woman-at-the-laundry); particularly this month.
 - Back home that night, a fake account tells me possum man is the boss - the account uses the word Caesar - and that he is looking for developers. 
 - The inference is I'm now being [offered a job in tech](#job-offer) by the criminal-gang's boss!
 - I do not know what any of this means.
