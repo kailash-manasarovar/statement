@@ -291,12 +291,12 @@ function googleTranslateElementInit() {
 - He wants to know what I'm up to.
 - Am I staying in Dénia? 
 - The main question.
-- Have they a new target lined up to rent Bea's spy-cam-ridden apartment?
+- Have they a new target lined up and ready to rent Bea's spy-cam-ridden apartment?
 - I tell him I'm thinking about running women's rights activities in Dénia for the following year.
 - He sort of mini-rolls his eyes and changes the subject.
-- The last time I spoke to him, in exactly the same spot sometime in July, I mentioned that I was offering 500 euros for copies of any spy-cam footage of sexual abuse videos from my hacked devices and from 1989.
-- I made that offer to Paul, to the caretaker at Carrer Furs, and to everyone reading my social media posts.
-- Paul does not mention it again.
+- The last time I spoke to him, in exactly the same spot sometime in July, I mentioned that I was offering 500 euros for copies of any films from my hacked devices and the child rape p*rn from 1989.
+- I made that offer to Paul Matthews, to UK Paul, and to the caretaker at Carrer Furs Pedro, and I also told the UK rape-gang inquiry lawyer and everyone reading my social media posts.
+- No-one mentions it again.
 - He had mentioned at that time, however, an English man he knew being very popular with everyone; all the girls coming up to him and saying hello as if they knew him.
 - I wasn't sure how this related to what I'd just said.
 - Was he pointing out to me a male British ex-pat that had been spy-cammed like I had, for sexploitation maybe?
@@ -309,7 +309,7 @@ function googleTranslateElementInit() {
 ![WhatsApp to Alex](../../content/whatsapps/whatsapp-to-alex.png)
 
 - There's no reply.
-- Everyone in Dénia knows what's been happening, at some level.
+- Everyone in Dénia knows what's been happening, at some dubious level.
 
 ## Las Rotas
 
