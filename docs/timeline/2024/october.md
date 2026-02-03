@@ -272,8 +272,10 @@ function googleTranslateElementInit() {
 
 ## Job offer
 
-- The following day I'm contacted on LinkedIn by a yacht company based in Altea with a job offer which I refuse because I'm certain it's a scam.
-- I'm banned for life on LinkedIn in a few week's time.
+- The following day I'm contacted on LinkedIn mails by a yacht company based in Altea.
+- They're offering me a job as a tech QA. 
+- I'm certain it's a scam.
+- I'll be banned for life on LinkedIn in a few week's time, right after I survive another attempt on my life by poisoning.
 
 ## Bumping into Paul again
 

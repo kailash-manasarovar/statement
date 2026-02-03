@@ -145,6 +145,12 @@
 - I'm certain it was criminal gang activity, especially considering Paul's sudden "popping up".
 - Was the frenetic activity from criminal gangs in London... even getting a junkie involved - the most disloyal people in the universe - and all the harassment at that time early in the year, and during the general election the year before… is it because they know my dad, and my family in fact, would see me dead before helping me?
 
+## Michael from Wearyall Hill
+
+- I contact Michael to tell him I've written about [the dream I had while I was staying there](../2022/july.md#crystal-dreaming) in July 2022.
+- He is FURIOUS with me.
+- His reaction is unsettling, and very, very curious.
+
 ## Madrid policia 
 
 - I send Paul home because his drug-addiction has made him a beggar man and I can't possibly bring him to the police station with me looking like he does.
