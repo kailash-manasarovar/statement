@@ -147,9 +147,10 @@
 
 ## Michael from Wearyall Hill
 
-- I contact Michael to tell him I've written about [the dream I had while I was staying there](../2022/july.md#crystal-dreaming) in July 2022.
+- I contact Michael to tell him I've written about [the dream I had while I was staying at his house](../2022/july.md#crystal-dreaming) in July 2022.
 - He is FURIOUS with me.
-- His reaction is unsettling, and very, very curious.
+- It's irrational.
+- His reaction is unsettling; and very, very curious.
 
 ## Madrid policia 
 
