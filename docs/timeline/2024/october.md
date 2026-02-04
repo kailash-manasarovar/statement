@@ -252,7 +252,7 @@ function googleTranslateElementInit() {
 
 - The man on her right smiles at her, and I see his face. 
 - His teeth, in profile, make him look like a possum.
-- You may remember, inexplicably, I have been seeing *possums* on my X feed since at least May 2023 when [the switcheroo porn](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) was in production at the conservatory.
+- You may remember, inexplicably, [I have been seeing *possums* on my X feed](../2023/may.md#possums) since at least May 2023 when [the switcheroo porn](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) was in production at the conservatory.
 - I have these two on camera also.
 - I never go to the beach again.
 - I never see possums again on my feed either.
