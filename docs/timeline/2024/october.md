@@ -330,6 +330,9 @@ function googleTranslateElementInit() {
 - They all look very sad.
 - I believe I tweet about this too but can't be bother to look just now.
 
+!!! tip "The video files"
+    - You'll have to wait for access to these because I don't have a good option for content delivery of multiple large files at the current homeless-and-jobless time.
+
 ## YouTube with Kelly Oliver Dougall
 
 - https://www.youtube.com/watch?v=VIYsj4OgiYA
