@@ -320,10 +320,10 @@ function googleTranslateElementInit() {
 
 [![Walking on Las Rotas](../../content/images/las-rotas-9-october-2024.jpg)](https://x.com/1FRGVN/status/1844468797044052150/photo/1 )
 
-- There is significant online activity regarding this walk that appears to be coming from Trish Penny (from her suggestive emails and in the screenshots somewhere in the thousands I have yet to collate).
-- Trish or whoever (via the @january_myth account) informs me the twin trumpet-teacher brothers can't make the walk because they don't want to be photographed.
+- There is significant online activity regarding this walk that appears to be coming from Trish Penny (from her suggestive emails, and in the screenshots I have somewhere in the thousands we've yet to collate).
+- Trish or whoever (via the `@january_myth` account) informs me the twin trumpet-teacher brothers can't make the walk because they don't want to be photographed.
 - This is where I was at with my manipulated and very faulty understanding of everything that had happened to me by October 2024.
-- In my mind, there was still only one trumpet teacher I loved, but he had a twin brother that I'd seen in the street.
+- In my mind, there was still only one trumpet teacher I loved, but he had a twin brother that [I'd seen in the street](../2023/december.md#the-trumpet-teacher-has-a-brother).
 - This faulty understanding is further reinforced by [the angel picture](../2001-to-2010/2001.md#memories-of-the-past-triggered-on-x) soon to be posted on X, which will remind me of [something even more startling and related](../2001-to-2010/2001.md#amsterdam).
 - After I pass the Mena restaurant, I see a family out walking with a young person (clearly part of the trans cult) who looks very unwell.
 - I wonder if they've been taking puberty blockers, and it looks like they may have even had top surgery.
