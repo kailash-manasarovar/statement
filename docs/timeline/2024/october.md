@@ -313,16 +313,22 @@ function googleTranslateElementInit() {
 
 ## Las Rotas on 9th October
 
-- My first women's rights activity in Dénia is a walk along Las Rotas to stand up for the children being destroyed by trans ideology.
+- My first women's rights activity in Dénia - I mentioned it to [Paul the previous Sunday when I bumped into him](#bumping-into-paul-again) - is a walk along Las Rotas to stand up for the children being destroyed by trans ideology.
 - I advertise it online.
 - No-one turns up.
 - I wear my mask and camera, as usual, and tweet about it later on.
 
 [![Walking on Las Rotas](../../content/images/las-rotas-9-october-2024.jpg)](https://x.com/1FRGVN/status/1844468797044052150/photo/1 )
 
-- After I pass the Mena restaurant, I see a family walking with a young person who looks very unwell.
+- There is significant online activity regarding this walk that appears to be coming from Trish Penny (from her suggestive emails and in the screenshots somewhere in the thousands I have yet to collate).
+- Trish or whoever (via the @january_myth account) informs me the twin trumpet-teacher brothers can't make the walk because they don't want to be photographed.
+- This is where I was at with my manipulated and very faulty understanding of everything that had happened to me by October 2024.
+- In my mind, there was still only one trumpet teacher I loved, but he had a twin brother that I'd seen in the street.
+- This faulty understanding is further reinforced by [the angel picture](../2001-to-2010/2001.md#memories-of-the-past-triggered-on-x) soon to be posted on X, which will remind me of [something even more startling and related](../2001-to-2010/2001.md#amsterdam).
+- After I pass the Mena restaurant, I see a family out walking with a young person (clearly part of the trans cult) who looks very unwell.
 - I wonder if they've been taking puberty blockers, and it looks like they may have even had top surgery.
 - They all look very sad.
+- I believe I tweet about this too but can't be bother to look just now.
 
 ## YouTube with Kelly Oliver Dougall
 
