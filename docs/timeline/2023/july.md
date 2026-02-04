@@ -108,12 +108,12 @@ function googleTranslateElementInit() {
 
 ![Baby seal](../../content/images/baby-seal-1.png)
 
-- I complained bitterly that teachers and staff had treated me like hunters might bludgeon a baby seal, and enjoy it.
+- I complained bitterly that teachers and staff at the conservatory had treated me like hunters bludgeoning a baby seal, and enjoying it.
 
 [![Baby seal](../../content/tweets/baby-seal.png)](https://x.com/1FRGVN/status/1703041567253016887)
 
-- On both the `@jctot19` and `@sinremite` accounts, I start to see a video of a seal escaping sharks by jumping on a boat.
-- I realize this is in reference to [escaping the shark at Alicante airport](june.md#sunday-18th-june-alicante-airport), the [third man](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) of the [switcheroo team](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero), who may be Gloria's brother and who we believe to have fathered multiple children in the region for the sole purpose of baby-rape and pedophile porn.
+- On both the `@jctot19` and `@sinremite` accounts, I start to see the same video of a seal escaping sharks by jumping on a boat.
+- I realize this is in reference to [escaping the shark at Alicante airport](june.md#sunday-18th-june-alicante-airport), the [third man](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) of the [switcheroo team](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero), who may be Gloria the school receptionists brother, and who we believe to have fathered multiple children in the region for the purpose of baby-rape and pedophile porn.
 
 ### `@JackChardwood`
 
