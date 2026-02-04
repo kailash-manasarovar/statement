@@ -102,13 +102,13 @@ function googleTranslateElementInit() {
 
 ![I see you](../../content/tweets/july-comms/i-see-you.png)
 
-#### Seals
+#### Baby seal
 
-- A significant *meme* was a baby seal.
+- A significant meme I used to communicate online with the porn-gangs of Dénia (before I knew about the porn-gangs of Dénia) was a baby seal.
 
 ![Baby seal](../../content/images/baby-seal-1.png)
 
-- I complained bitterly that teachers and staff had treated me like hunters might bludgeon a baby seal.
+- I complained bitterly that teachers and staff had treated me like hunters might bludgeon a baby seal, and enjoy it.
 
 [![Baby seal](../../content/tweets/baby-seal.png)](https://x.com/1FRGVN/status/1703041567253016887)
 
