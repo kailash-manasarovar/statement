@@ -333,27 +333,31 @@ function googleTranslateElementInit() {
 !!! tip "The video files"
     - You'll have to wait for access to these because I don't have a good option for content delivery of multiple large files at the current homeless-and-jobless time.
 
-
 ## Threats and a woman at the laundry
 
-- Whenever I go to the laundry, there is some stalker activity or another.
-- This has been true since they started to drug me back in December 2022.
-- I mention this in more detail in the [November 2023 section](../2023/november.md#the-laundry).
-- Of course, they know where I'm going and what I'm doing so they can spring into action whenever they like.
+- Whenever I go to the La Colada laundry, there is always some stalker activity.
+- This is true since they started to drug me back in December 2022.
+- I always go to dry my clothes as they do not dry on the line.
+- Spy-cams in my apartment will show me collecting my laundry ready for drying and leaving it at the door.
+- The cams will then reveal when I leave my house for the laundry, carrying the laundry bag.
+- Stalkers then have five minutes to get ready and into place.
+- I mention the laundry activity in more detail in the [November 2023 section](../2023/november.md#the-laundry).
+- I also mention [the strange thing the manager said to me](#sunday-6th-october) right after the extraordinary event with possum-man and the woman with the same tattoo as [the innocent girl groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101).
 - On two occasions in October, threatening young men are in the laundry while I'm there. 
-- The first time, a small group of young men are speaking about 4 or 5 different languages. 
-- The second time, a group stares at me menacingly. I stare right on back.
+- The first time, a small group of young men have just come in and are speaking about 4 or 5 different languages. I guess that means they're Roma.
+- The second time, a group of young boys stares at me menacingly.
+- I stare right on back.
 
 ### The woman
 
-- The second time, I see a woman chatting with the lovely man there who manages the laundry.
+- The same afternoon as the staring competition, I see a woman chatting with the lovely man there who manages the laundry.
 - I know her, but I cannot think how.
-- She looks at me, our eyes meet. I smile.
-- I have no idea how I know her but I do.
+- She looks at me, our eyes meet.
+- I smile. She doesn't.
+- I have no idea how I know her, but I do.
 - I now wonder if she is a member of the Hospitalite de Lourdes, and does service at the baths, like myself.
 - Could that be where I know her from?
 - Did I work with her one session in one of the baths sometime between 2014-2018?
-- TBC.
 
 ## Rape porn gangs
 
