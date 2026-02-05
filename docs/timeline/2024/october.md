@@ -364,7 +364,7 @@ function googleTranslateElementInit() {
 
 - I tweet my suspicions about what is going on.
 - I'm getting steadily closer to the truth but I remain confused while I still believe [there's only one trumpet teacher](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero).
-- I'm also not aware that sedating happens *after* you have gone to bed, and this is why they could attack me in the afternoons because I always took a nap.
+- I'm also not aware yet that sedating happens *after* you have gone to bed, and this is why they could attack me in the afternoons because I always took a nap.
 
 [![Mu understanding at this time](../../content/tweets/my-understanding-october-24.png)](https://x.com/1FRGVN/status/1845101018746343666)
 
@@ -419,6 +419,7 @@ function googleTranslateElementInit() {
 - Except, it turns out, they have to drug and sedate us first.
 - [So, aka Janet, my election volunteer](../2024/june.md#volunteers-not-what-they-seem), posts a random line on X; "Hunters".
 - I'm starting to wonder about So.
+- Her behavior always benefitted those that want to silence me, whoever they may be.
 - She says I must come and stay at her house in London. 
 - She posts curious photos of rooms in her home that have a grainy brown/yellow hue and look exactly like the indoor scenes `@january_myth` and others might post.
 - I'm finally starting to see what's going on but it's difficult to think straight with the constant drugging and poisoning.
@@ -426,13 +427,13 @@ function googleTranslateElementInit() {
 ### Porn star outside my house
 
 - I come home from a quick trip to the shop.
-- On the bench outside my apartment building, an outrageously dressed woman is sitting.
+- On the bench outside my apartment building, an outrageously-dressed woman is sitting.
 - She's dressed ridiculously for a Tuesday afternoon in October.
 - She looks like she's about to do porn.
 - At the time I thought it was extremely weird.
 - Now I wonder were they bringing people like this into my apartment while they were sedating and assaulting me to spice up the shows.
 - Did they get a kick out of showing me who was going to be starring alongside me prior to the event?
-- I now have to wonder about the [upstairs neighbor and what I thought was his daughter in the lift](../2022/march.md#upstairs-neighbor-at-carrer-furs); a meeting obviously timed as they knew where I was every second.
+- I now have to wonder about the [upstairs neighbor and the young woman I thought was his daughter in the lift](../2022/march.md#upstairs-neighbor-at-carrer-furs); a meeting obviously timed as they knew where I was every second.
 - I guess it could have been another porn "actress" come to star with me in the [conservatory's sedated switcheroo specials](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero).
 
 ### English teacher outside my house with a woman
@@ -442,12 +443,13 @@ function googleTranslateElementInit() {
 - He is one of the British casual-work English teachers that would come and work for LinguaLogic at their summer school.
 - I met him in 2008 or so.
 - Lorraine knew him well.
-- I found him unsavory, and something about him reminded me of Matthew Diamond.
+- I always found him unsavory, and something about him reminded me of Matthew Diamond.
 - He seemed to be perma-seething; visually and vocally.
 - Martin could have been his name.
-- Anyway, there he was on the bench with this woman who reminded me a little bit of Marie Carmen, the owner of the TLC language academy; her daughter maybe.
+- Anyway, there he was on the bench with this woman who reminded me a little bit of Marie Carmen, the owner of the TLC language academy who had an apartment in [Joan Fuster](../early-years/2014.md#joan-fuster); her daughter maybe.
+- Neither of them acknowledged me although I was right in front of them and he knows me.
 - She's holding a clipboard and he's answering her questions.
-- It sounds like he's detailing a crime or some nuisance, like he's making a complaint, and she's making notes.
+- It sounds like he's detailing a crime or some nuisance, like he's making a complaint and she's taking notes about it.
 - It was extremely weird and appeared to be totally fake.
 - I have never seen him in the vicinity of my building before.
 - Did he come into my apartment after that? 
