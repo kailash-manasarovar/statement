@@ -623,19 +623,19 @@ function googleTranslateElementInit() {
     - How I'm completely healed of depression and anxiety...
     - I talk about the porn gangs of Dénia and how they've been drugging me.
     - How the porn gangs hacked my devices and took sensitive and sexual photos and videos of me.
-    - How I told my story in Madrid at Let Women Speak (I say April, it's May) and recognizing I was out of my mind at that time (a week before Bali).
+    - How I told my story in Madrid at Let Women Speak (I say April, it's May) and recognizing I was out of my mind at that time (a week before the Polygon offsite in Bali).
     - I explain my experiences with the Dénia porn-gangs since January 2023 as a re-enactment of the 1989 rape-gang events.
     - I tell her about working for crypto-giant Polygon, about Nadim's outrageous behavior and how he turned out to be an actor, and some of the weird stuff that happened there.
     - I give a good description of how the porn-gangs are hacking my X feed.
     - I tell her about Gabriel Silva's behavior towards me without mentioning his name.
     - I tell her about Ajay's teams military coup on my role.
-    - I explain the sexual threats at dinner in Bali (I do not make the Jitendra Das connection at this stage, or that the man's actions at the dinner table may have imitated something very evil that happened to me in my apartment while I was sedated on Wednesday 13th March that made me sure I was going to be murdered).
+    - I explain the sexual threats at dinner in Bali (I do not make the Jitendra Das connection at this stage, or that the man's actions at the dinner table may have imitated something very evil that happened to me in my apartment while I was sedated on Wednesday 13th March after which I was certain I was going to be murdered).
     - I tell her about Hans's outrageous behavior.
     - I tell her I've started a claim for harassment with Head of Legal at Polygon.
     - I tell her they fired me the Friday before.
     - I tell her I'm looking for a lawyer.
     - She asks me what's next, I tell her I'm going to Thailand.
-    - I tell her I feel in danger and that the whole town hates me.
+    - I tell her I feel in danger and that the whole town of Dénia hates me.
     - I explain I have to wear my camera even just going to the post office.
     - I tell her I think it's because I complained about a teacher's inappropriate behavior with children (Domingo, I don't tell her his name).
     - I tell her they targeted and gang-stalked me so badly, I believe their intention was I'd commit suicide.
@@ -650,7 +650,7 @@ function googleTranslateElementInit() {
 - I thought we had made the interview before they tried to kill me, while I was still working at Polygon.
 - I thought that this video was the *motivation* for murder by poison in my apartment. It wasn't.
 - The true motivation for murder was that I had multiple pictures of the trumpet-teacher switcheroo team, the four men pretending to be the one same man, and they knew that at some point I'd realize they were different people.
-- In November when Kelly publishes the video online, I send it to my landlady on WhatsApp.
+- In November when Kelly publishes the video online, I send it to my landlady Beatriz on WhatsApp.
 - She *slow claps* back.
 
 ## Challenging Sandra Rita Diaz
