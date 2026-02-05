@@ -456,6 +456,7 @@ function googleTranslateElementInit() {
     - It was never clear where I could go to either. 
     - I still don't know.
     - My family home in London is highly triggering.
+    - In any case, regardless of where I was in the world, the porn-gangs continued to terrorize me, drug me, and try to murder me and have not let up for a second to this day, and are *totally protected*!
 
 - Just before I leave on Saturday 19th October, I empty the bins. 
 - A man in the driver's seat of a parked car by the bins is staring at me angrily. 
