@@ -355,6 +355,7 @@ function googleTranslateElementInit() {
 - She looks at me, our eyes meet.
 - I smile. She doesn't.
 - I have no idea how I know her, but I do.
+- She has thick lensed glasses, like Domingo and his dad.
 - I now wonder if she is a member of the Hospitalite de Lourdes, and does service at the baths, like myself.
 - Could that be where I know her from?
 - Did I work with her one session in one of the baths sometime between 2014-2018?
