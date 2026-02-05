@@ -456,14 +456,14 @@ function googleTranslateElementInit() {
     - It was never clear where I could go to either. 
     - I still don't know.
     - My family home in London is highly triggering.
-    - In any case, regardless of where I was in the world, the porn-gangs continued to terrorize me, drug me, and try to murder me and have not let up for a second to this day, and are *totally protected*!
+    - In any case, regardless of where I was in the world, the porn-gangs continued to terrorize me, drug me, and try to murder me and have not let up for a second to this day, and are *totally protected*, Epstein-level, except I'm only talking about a bunch of music teachers.
 
 - Just before I leave on Saturday 19th October, I empty the bins. 
 - A man in the driver's seat of a parked car by the bins is staring at me angrily. 
 - His wife is embarrassed and looking down in the passenger seat. 
 - How does he know I'll be at the bins so he can glare at me? 
 - What's he trying to say to me?
-- The two look familiar, and I think they might be part of the Dénia TV crowd I've seen online or even on terrestrial TV back in the day.
+- The two look familiar, and I think they might be part of the Dénia TV crowd I've seen online or even on [terrestrial TV back in the day](../early-years/2008.md#denia-tv).
 - They also remind me of people that attended the [June 2023 piano concert](../2023/june.md#june-9th-piano-concert).
 - They sat in the row in front of us.
 - I remain amazed that anyone could be angry at the person they have been terrorizing relentlessly for years.
@@ -476,7 +476,7 @@ function googleTranslateElementInit() {
 - As I'm driving into Madrid on the fast circular roads there, all of a sudden, the volume disappears on Google maps so I'm completely lost on the busy M30/M40 junctions.
 - When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back.
 - Nothing works.
-- Later, I find out is a deeply embedded setting you would need full admin access to control, and I didn't even know it existed.
+- Later, I find out it is a deeply embedded setting you would need full admin access to control, and I didn't even know it existed.
 - They're trying to cause me to have an accident and crash the car now.
 
 ## Meeting Inma and Paloma, the Spanish official
