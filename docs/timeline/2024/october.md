@@ -363,7 +363,7 @@ function googleTranslateElementInit() {
 ## The sedated rape-porn gangs of Spain
 
 - I tweet my suspicions about what is going on.
-- I'm getting steadily closer to the truth but I remain confused about things while I still believe at least [four different men](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) are the same one trumpet teacher.
+- I'm getting steadily closer to the truth but I remain confused while I still believe [there's only one trumpet teacher](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero).
 - I'm also not aware that sedating happens *after* you have gone to bed, and this is why they could attack me in the afternoons because I always took a nap.
 
 [![Mu understanding at this time](../../content/tweets/my-understanding-october-24.png)](https://x.com/1FRGVN/status/1845101018746343666)
@@ -416,24 +416,24 @@ function googleTranslateElementInit() {
 
 - An aggressive message flies by "we take what we want", and the arrogant statement "we're hunters" flies by continuously.
 - The implication is that the older men [I saw on the beach](#sunday-6th-october) do whatever they like to women and children in the town, and they're proud of it too.
-- Except, it turns out, they have to sedate us first.
+- Except, it turns out, they have to drug and sedate us first.
 - [So, aka Janet, my election volunteer](../2024/june.md#volunteers-not-what-they-seem), posts a random line on X; "Hunters".
 - I'm starting to wonder about So.
 - She says I must come and stay at her house in London. 
-- She posts curious indoor scenes of her home which look exactly like the sort of indoor scenes `@january_myth` and others might post that have a sort of grainy brown/yellow hue.
+- She posts curious photos of rooms in her home that have a grainy brown/yellow hue and look exactly like the indoor scenes `@january_myth` and others might post.
 - I'm finally starting to see what's going on but it's difficult to think straight with the constant drugging and poisoning.
 
 ### Porn star outside my house
 
 - I come home from a quick trip to the shop.
 - On the bench outside my apartment building, an outrageously dressed woman is sitting.
-- I mean dressed ridiculously for a Tuesday evening in October, or whenever it was.
+- She's dressed ridiculously for a Tuesday afternoon in October.
 - She looks like she's about to do porn.
 - At the time I thought it was extremely weird.
 - Now I wonder were they bringing people like this into my apartment while they were sedating and assaulting me to spice up the shows.
-- Did they show me who was going to be starring alongside me prior to the event.
+- Did they get a kick out of showing me who was going to be starring alongside me prior to the event?
 - I now have to wonder about the [upstairs neighbor and what I thought was his daughter in the lift](../2022/march.md#upstairs-neighbor-at-carrer-furs); a meeting obviously timed as they knew where I was every second.
-- I guess it could have been another porn "actress" come to star with me in the [conservatory switcheroo specials](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero).
+- I guess it could have been another porn "actress" come to star with me in the [conservatory's sedated switcheroo specials](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero).
 
 ### English teacher outside my house with a woman
 
@@ -644,7 +644,7 @@ function googleTranslateElementInit() {
 - I really feel like I'm being poisoned over this week in my flat, and quite intensely too.
 - Someone wants me to get seriously sick and/or possibly die.
 - If my dad did not have an accident on the 1st of November, and I had to rush back to London, I believe that Domingo's family may have made good on their threats and killed me via poisoning.
-- I believe everyone knew this was planned and intended; the [angry man and his wife in his car as I'm leaving for Fatima](#fatima-20-26th-october), the [L'Amistat band](#vssh-collects-his-aware-at-the-palau-darts) who may be offering some sort of alibi, even my bosses at [Polygon](#polygon-fires-the-whole-writing-team) who clearly only intended to fire me for dubious reasons.
+- I believe everyone knew this was planned and intended; the [angry man and his wife in his car as I'm leaving for Fatima](#fatima-20-26th-october), the [L'Amistat band](#vssh-collects-his-award-at-the-palau-darts) who may be offering some sort of alibi, even my bosses at [Polygon](#polygon-fires-the-whole-writing-team) who clearly only intended to fire me for dubious reasons.
 - How did everyone know? Is that part of the porn-soap-opera too? Did the audience have constant access to my home cameras and see people come in and interfere with my bathroom products?
 - I take some samples of water and items related to the air vents to London in the hope that the police will one day find things serious enough to investigate and I will have evidence for them to analyze.
 - There is another warning and condemnation about poisoning given via a fake account on Halloween night, the 1st November.
