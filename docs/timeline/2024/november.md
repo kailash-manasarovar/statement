@@ -56,6 +56,12 @@ function googleTranslateElementInit() {
 - I organize to return to London as soon as I can, and leave the next day.
 - If this event had not occurred, I believe I would have been killed or permanently maimed by the poison being fed into my water at the apartment.
 
+### Alarm on my phone
+
+- As I'm driving out of Denia, my phone suddenly makes an unimaginably loud and alarming noise.
+- It's apparently a DANA warning, which is over.
+- They're trying to make me crash the car again.
+
 ## Drugs hair test
 
 - A nurse at the Royal London hospital in Whitechapel recommends I get a drugs test.

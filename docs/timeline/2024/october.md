@@ -360,45 +360,121 @@ function googleTranslateElementInit() {
 - Could that be where I know her from?
 - Did I work with her one session in one of the baths sometime between 2014-2018?
 
-## Rape porn gangs
+## The sedated rape-porn gangs of Spain
 
-- I tweet about my suspicions about what is going on: https://x.com/1FRGVN/status/1845101018746343666, and include some fake accounts to describe what I'm seeing.
+- I tweet my suspicions about what is going on.
+- I'm getting steadily closer to the truth but I remain confused about things while I still believe at least [four different men](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) are the same one trumpet teacher.
+- I'm also not aware that sedating happens *after* you have gone to bed, and this is why they could attack me in the afternoons because I always took a nap.
 
-### We take what we want
+[![Mu understanding at this time](../../content/tweets/my-understanding-october-24.png)](https://x.com/1FRGVN/status/1845101018746343666)
+
+??? "My understanding of what's going on: 12th October 2024"
+    ~
+    The latest on the Twittosphere suggests local rape p*rn gangs made up of "respectable" men, #Pelicot style.
+
+    We wonder if this is what is referred to on the local "swingers" club advertisement, the MASSIVE one on the road into Denia, where they advertise "special events", or perhaps it's more after-party style.
+
+    Anyway. Young Women are required for these "events" in which the men hide their faces with masks or robot helmets or whatever.
+
+    But #EveryoneKnows who they are. 
+
+    #EverybodyKnows 
+
+    And, now, of course, inevitably, the p*rn sick men need younger and younger victims, and where better to find them than at ... 
+
+    But why target me, I wonder? An aging radfem and suicidal depressive at the time it started?
+
+    Well, I'm guessing it's cos I (very informally) raised the alarm 10 years ago, and moreover the gang have made it very clear to me they have old gang r*pe child p*rn with me in it from 1989, so perhaps that makes for great marketing and drumming up interest in a repeat session so more sick men can make more money out of my suffering. Seems reasonable given how insane they are.
+
+    And I guess that was the intention for me, and why he was meeting me at Alicante airport on Sunday 18th June off my flight from Dublin, travel information he could NEVER HAVE HAD if they weren't accessing all my online activity. My special event.
+
+    And I guess that was why the acupuncturist gave me a needle, to warn me.
+
+    And yet, here I am still.
+
+    So why would the whole town support such sick and murderous intentions?
+
+    Well, that seems to me to be because one of the p*rn sick gang members may have been unable to pay a debt of some sort and his daughter was/and continues to be most likely (cos they never mean what they say) threatened with sexual grooming and the inevitable results.
+
+    And so the whole town rallied round to save a child which will likely not be saved, unless something big changes.
+
+    So that's where I'm at currently in my investigation.
+
+    #acim
+    @thames_pilgrim
+    
+    @guardiacivil
+    
+    @reduxx
+    
+    @WomenReadWomen
+    
+    @LadySoLucky
+    pass it on ....
+
+### We take what we want, they say, we're hunters, they say
 
 - An aggressive message flies by "we take what we want", and the arrogant statement "we're hunters" flies by continuously.
-- The implication is that older men I saw on the beach do whatever they like to women and children in Denia.
+- The implication is that the older men [I saw on the beach](#sunday-6th-october) do whatever they like to women and children in the town, and they're proud of it too.
 - Except, it turns out, they have to sedate us first.
 - [So, aka Janet, my election volunteer](../2024/june.md#volunteers-not-what-they-seem), posts a random line on X; "Hunters".
-- I'm starting to wonder about So. She says I can stay at hers in London. She posts curious indoor scenes of her home which look exactly like the sort of indoor scenes `@january_myth` and others might post; with a sort of grainy brown/yellow hue.
-- I'm finally starting to see what's going on but it's difficult to think straight as I'm constantly drugged with something I'm ingesting in my apartment.
+- I'm starting to wonder about So.
+- She says I must come and stay at her house in London. 
+- She posts curious indoor scenes of her home which look exactly like the sort of indoor scenes `@january_myth` and others might post that have a sort of grainy brown/yellow hue.
+- I'm finally starting to see what's going on but it's difficult to think straight with the constant drugging and poisoning.
 
 ### Porn star outside my house
 
 - I come home from a quick trip to the shop.
-- There is an outrageously dressed porn-star looking woman sitting on the bench outside my apartment building.
-- I mean dressed ridiculously for a Tuesday evening, or whenever it was.
-- Absolutely like a porn star.
-- At the time I thought it was weird.
-- Now I wonder were they bringing people like this into my apartment while they were sedating and assaulting me to spice up the shows; and showing me prior to the event (also probably filmed).
-- I now wonder about the [upstairs neighbor and what I thought was his daughter in the lift](../2022/march.md#upstairs-neighbor-at-carrer-furs); a meeting obviously timed as they knew where I was every second.
-- I guess it could have been another porn "actress" come to star with me in the weekly specials on Denia TV or wherever they were being shown to literally everyone and anyone in the world.
+- On the bench outside my apartment building, an outrageously dressed woman is sitting.
+- I mean dressed ridiculously for a Tuesday evening in October, or whenever it was.
+- She looks like she's about to do porn.
+- At the time I thought it was extremely weird.
+- Now I wonder were they bringing people like this into my apartment while they were sedating and assaulting me to spice up the shows.
+- Did they show me who was going to be starring alongside me prior to the event.
+- I now have to wonder about the [upstairs neighbor and what I thought was his daughter in the lift](../2022/march.md#upstairs-neighbor-at-carrer-furs); a meeting obviously timed as they knew where I was every second.
+- I guess it could have been another porn "actress" come to star with me in the [conservatory switcheroo specials](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero).
 
 ### English teacher outside my house with a woman
 
-- Another afternoon I'm walking back to my house up Carrer Furs.
-- Outside on the same bench is a man I know with a woman I recognize.
-- He is one of the British casual-work English teachers that would come and work for LinguaLogic at their summer school and I met him in 2008 or so.
-- An unsavory person, something off about him reminded me of Matthew Diamond. He seems to seethe, visually and vocally.
-- Martin, maybe.
-- Anyway, there he was on the bench with this woman who reminded me a little bit of Marie Carmen from the TLC academy.
-- She's holding a clipboard and he's answering questions.
+- On another afternoon, I'm walking back to my house from the shop again.
+- On the same bench, I see a man I know with a woman I recognize.
+- He is one of the British casual-work English teachers that would come and work for LinguaLogic at their summer school.
+- I met him in 2008 or so.
+- Lorraine knew him well.
+- I found him unsavory, and something about him reminded me of Matthew Diamond.
+- He seemed to be perma-seething; visually and vocally.
+- Martin could have been his name.
+- Anyway, there he was on the bench with this woman who reminded me a little bit of Marie Carmen, the owner of the TLC language academy; her daughter maybe.
+- She's holding a clipboard and he's answering her questions.
 - It sounds like he's detailing a crime or some nuisance, like he's making a complaint, and she's making notes.
 - It was extremely weird and appeared to be totally fake.
 - I have never seen him in the vicinity of my building before.
 - Did he come into my apartment after that? 
 - He'll be in the LinguaLogic records and I'd recognize him in an instant.
-- I'm guessing at this stage everyone in the town expected me to be dead within weeks so they were getting in quick.
+- I'm guessing at this stage everyone in the town expected me to be dead within weeks so they were getting in quick while they could.
+
+## Driving to Madrid on my way to Fatima
+
+- I head to Madrid on 19th October to stay one night before traveling to Fatima in Portugal. I need to be away from Dénia as much as possible for my nervous system.
+
+!!! warning "Why didn't you leave Dénia?"
+    - If I leave, then the story gets buried, the police do not investigate, and it happens again and again, and maybe someone is driven, again?, to suicide, or maybe they, again?, murder someone with poison, and children, again?, could be groomed into goodness knows what.
+    - I felt a sense of obligation to the vulnerable and I've been waiting for my intuition to tell me what to do.
+    - I was always working so hard, I had to think about that above and beyond everything else.
+    - It was never clear where I could go to either. I still don't know. My family home in London is non-optimal.
+
+- Just before I leave on Saturday 19th October, I empty the bins. 
+- There is a man in the driver's seat of a car staring at me angrily. 
+- His wife is embarrassed and looking down in the passenger seat. 
+- They look familiar, and I think they might be part of the Denia TV crowd I've seen online.
+- They also remind me of people that attended the [June 2023 piano concert](../2023/june.md#june-9th-piano-concert) and sat in the row in front of us.
+- I remain amazed that anyone could be angry at the person they have been terrorizing relentlessly.
+- I guess it's guilt. I tweet about it and suggest the man, if he didn't like the porn of me masturbating that everyone has seen, he should take it up with the local porn technicians.
+- I tweet about it: https://x.com/1FRGVN/status/1847579824128139602.
+- I guess the truth was he expected me to be dead in weeks, and he was concerned about there being an unpleasant investigation, and if he was the TV Denia guy... well I wouldn't blame him.
+- As I'm driving to the hotel I've booked in Madrid, all of a sudden, the volume disappears on Google maps so I'm lost on the busy M30/M40 junctions.
+- When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back. Nothing works.
 
 ## Meeting Inma and Paloma, the Spanish official
 
@@ -452,25 +528,6 @@ function googleTranslateElementInit() {
 
 ## Fatima 20-26th October
 
-- I head to Madrid on 19th October to stay one night before traveling to Fatima in Portugal. I need to be away from Dénia as much as possible for my nervous system.
-
-!!! warning "Why didn't you leave Dénia?"
-    - If I leave, then the story gets buried, the police do not investigate, and it happens again and again, and maybe someone is driven, again?, to suicide, or maybe they, again?, murder someone with poison, and children, again?, could be groomed into goodness knows what.
-    - I felt a sense of obligation to the vulnerable and I've been waiting for my intuition to tell me what to do.
-    - I was always working so hard, I had to think about that above and beyond everything else.
-    - It was never clear where I could go to either. I still don't know. My family home in London is non-optimal.
-
-- Just before I leave on Saturday 19th October, I empty the bins. 
-- There is a man in the driver's seat of a car staring at me angrily. 
-- His wife is embarrassed and looking down in the passenger seat. 
-- They look familiar, and I think they might be part of the Denia TV crowd I've seen online.
-- They also remind me of people that attended the [June 2023 piano concert](../2023/june.md#june-9th-piano-concert) and sat in the row in front of us.
-- I remain amazed that anyone could be angry at the person they have been terrorizing relentlessly.
-- I guess it's guilt. I tweet about it and suggest the man, if he didn't like the porn of me masturbating that everyone has seen, he should take it up with the local porn technicians.
-- I tweet about it: https://x.com/1FRGVN/status/1847579824128139602.
-- I guess the truth was he expected me to be dead in weeks, and he was concerned about there being an unpleasant investigation, and if he was the TV Denia guy... well I wouldn't blame him.
-- As I'm driving to the hotel I've booked in Madrid, all of a sudden, the volume disappears on Google maps so I'm lost on the busy M30/M40 junctions.
-- When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back. Nothing works.
 - When I arrive in Fatima the following evening, even though my iPhone camera is blocked, I get notifications on fake accounts of items in my hotel room. Of course, only the camera facing me is blocked, not the one looking out.
 
 ### The router malfunctions while I'm in Fatima
@@ -526,7 +583,7 @@ function googleTranslateElementInit() {
 - There is constant X activity.
 - tbc.
 
-### VSSH collects his aware at the Palau d'Arts
+### VSSH collects his award at the Palau d'Arts
 
 - The L'Amistat band are awarded the *best band in the Valencian region*.
 - Extraordinary given every knows what's going on.
