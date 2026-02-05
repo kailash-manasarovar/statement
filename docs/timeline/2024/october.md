@@ -336,16 +336,16 @@ function googleTranslateElementInit() {
 ## Threats and a woman at the laundry
 
 - Whenever I go to the La Colada laundry, there is always some stalker activity.
-- This is true since they started to drug me back in December 2022.
-- I always go to dry my clothes as they do not dry on the line.
+- This has been true since they started the trumpet-teacher scam back in December 2022, or before.
+- I always go to dry my clothes as they do not dry on my balcony.
 - Spy-cams in my apartment will show me collecting my laundry ready for drying and leaving it at the door.
 - The cams will then reveal when I leave my house for the laundry, carrying the laundry bag.
 - Stalkers then have five minutes to get ready and into place.
 - I mention the laundry activity in more detail in the [November 2023 section](../2023/november.md#the-laundry).
 - I also mention [the strange thing the manager said to me](#sunday-6th-october) right after the extraordinary event with possum-man and the woman with the same tattoo as [the innocent girl groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101).
 - On two occasions in October, threatening young men are in the laundry while I'm there. 
-- The first time, a small group of young men have just come in and are speaking about 4 or 5 different languages. I guess that means they're Roma.
-- The second time, a group of young boys stares at me menacingly.
+- The first time, a small group of young men have just come in and are speaking about 4 or 5 different languages. I assume that means they're Roma and they've been sent to keep an eye on me.
+- The second time, a group of young Spanish men stare at me menacingly.
 - I stare right on back.
 
 ### The woman
