@@ -445,25 +445,32 @@ function googleTranslateElementInit() {
 
 ## Driving to Madrid on my way to Fatima
 
-- I head to Madrid on 19th October to stay one night before traveling to Fatima in Portugal. I need to be away from Dénia as much as possible for my nervous system.
+- I head to Madrid on 19th October to stay one night before traveling on to Fatima in Portugal.
+- I need to be away from Dénia as much as possible for my nervous system.
 
 !!! warning "Why didn't you leave Dénia?"
-    - If I leave, then the story gets buried, the police do not investigate, and it happens again and again, and maybe someone is driven, again?, to suicide, or maybe they, again?, murder someone with poison, and children, again?, could be groomed into goodness knows what.
-    - I felt a sense of obligation to the vulnerable and I've been waiting for my intuition to tell me what to do.
-    - I was always working so hard, I had to think about that above and beyond everything else.
-    - It was never clear where I could go to either. I still don't know. My family home in London is non-optimal.
+    - If I leave, then the story gets buried, the police do not investigate, and it happens again and again.
+    - I felt a sense of obligation to the vulnerable and I was waiting for my intuition to tell me what to do.
+    - I was constantly high and terrorized so it was difficult to make sensible decisions about anything.
+    - I was always working so hard, and the bullying there was so excessive that I had to think about keeping my job above and beyond everything else.
+    - It was never clear where I could go to either. I still don't know. My family home in London is highly triggering.
 
 - Just before I leave on Saturday 19th October, I empty the bins. 
-- There is a man in the driver's seat of a car staring at me angrily. 
+- There is a man in the driver's seat of a parked car staring at me angrily. 
 - His wife is embarrassed and looking down in the passenger seat. 
-- They look familiar, and I think they might be part of the Denia TV crowd I've seen online.
-- They also remind me of people that attended the [June 2023 piano concert](../2023/june.md#june-9th-piano-concert) and sat in the row in front of us.
+- How does he know I'll be at the bins so he can glare at me.
+- The two look familiar, and I think they might be part of the Dénia TV crowd I've seen online or even on terrestrial TV back in the day.
+- They also remind me of people that attended the [June 2023 piano concert](../2023/june.md#june-9th-piano-concert).
+- They sat in the row in front of us.
 - I remain amazed that anyone could be angry at the person they have been terrorizing relentlessly.
-- I guess it's guilt. I tweet about it and suggest the man, if he didn't like the porn of me masturbating that everyone has seen, he should take it up with the local porn technicians.
+- I guess it's guilt. 
+- I tweet about it and suggest the man, if he didn't like the porn of me masturbating that everyone has seen, he should take it up with the local porn technicians.
 - I tweet about it: https://x.com/1FRGVN/status/1847579824128139602.
-- I guess the truth was he expected me to be dead in weeks, and he was concerned about there being an unpleasant investigation, and if he was the TV Denia guy... well I wouldn't blame him.
+- I guess the truth was he expected me to be dead in weeks, and he was concerned about there being an unpleasant investigation, and if he was the TV Dénia guy... well I wouldn't blame him.
 - As I'm driving to the hotel I've booked in Madrid, all of a sudden, the volume disappears on Google maps so I'm lost on the busy M30/M40 junctions.
-- When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back. Nothing works.
+- When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back.
+- Nothing works.
+- They're trying to cause me to have an accident and crash the car.
 
 ## Meeting Inma and Paloma, the Spanish official
 
