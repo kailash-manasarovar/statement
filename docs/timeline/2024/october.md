@@ -451,26 +451,32 @@ function googleTranslateElementInit() {
 !!! warning "Why didn't you leave Dénia?"
     - If I leave, then the story gets buried, the police do not investigate, and it happens again and again.
     - I felt a sense of obligation to the vulnerable and I was waiting for my intuition to tell me what to do.
-    - I was constantly high and terrorized so it was difficult to make sensible decisions about anything.
-    - I was always working so hard, and the bullying there was so excessive that I had to think about keeping my job above and beyond everything else.
-    - It was never clear where I could go to either. I still don't know. My family home in London is highly triggering.
+    - More importantly, I was constantly high and terrorized so it was difficult to make sensible decisions about anything.
+    - And, I was always working so hard, and the bullying at work was so excessive that I had to think about keeping my job above and beyond everything else.
+    - It was never clear where I could go to either. 
+    - I still don't know.
+    - My family home in London is highly triggering.
 
 - Just before I leave on Saturday 19th October, I empty the bins. 
-- There is a man in the driver's seat of a parked car staring at me angrily. 
+- A man in the driver's seat of a parked car by the bins is staring at me angrily. 
 - His wife is embarrassed and looking down in the passenger seat. 
-- How does he know I'll be at the bins so he can glare at me.
+- How does he know I'll be at the bins so he can glare at me? 
+- What's he trying to say to me?
 - The two look familiar, and I think they might be part of the Dénia TV crowd I've seen online or even on terrestrial TV back in the day.
 - They also remind me of people that attended the [June 2023 piano concert](../2023/june.md#june-9th-piano-concert).
 - They sat in the row in front of us.
-- I remain amazed that anyone could be angry at the person they have been terrorizing relentlessly.
+- I remain amazed that anyone could be angry at the person they have been terrorizing relentlessly for years.
 - I guess it's guilt. 
-- I tweet about it and suggest the man, if he didn't like the porn of me masturbating that everyone has seen, he should take it up with the local porn technicians.
-- I tweet about it: https://x.com/1FRGVN/status/1847579824128139602.
+- I tweet about it and suggest that the man, if he didn't like the porn of me masturbating that everyone has seen, he should take it up with the local porn-hack technicians.
+
+[![The man at the bins](../../content/tweets/the-man-at-the-bins.png)](https://x.com/1FRGVN/status/1847579824128139602)
+
 - I guess the truth was he expected me to be dead in weeks, and he was concerned about there being an unpleasant investigation, and if he was the TV Dénia guy... well I wouldn't blame him.
-- As I'm driving to the hotel I've booked in Madrid, all of a sudden, the volume disappears on Google maps so I'm lost on the busy M30/M40 junctions.
+- As I'm driving into Madrid on the fast circular roads there, all of a sudden, the volume disappears on Google maps so I'm completely lost on the busy M30/M40 junctions.
 - When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back.
 - Nothing works.
-- They're trying to cause me to have an accident and crash the car.
+- Later, I find out is a deeply embedded setting you would need full admin access to control, and I didn't even know it existed.
+- They're trying to cause me to have an accident and crash the car now.
 
 ## Meeting Inma and Paloma, the Spanish official
 
