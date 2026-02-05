@@ -446,10 +446,10 @@ function googleTranslateElementInit() {
 ## Driving to Madrid on my way to Fatima
 
 - I head to Madrid on 19th October to stay one night before traveling on to Fatima in Portugal.
-- I need to be away from Dénia as much as possible for my nervous system.
+- I need to be away from Dénia as much as possible for my nervous system, and Mary always helps my nervous system.
 
 !!! warning "Why didn't you leave Dénia?"
-    - If I leave, then the story gets buried, the police do not investigate, and it happens again and again.
+    - If I leave, then the story gets buried, the police do not investigate, and it happens again and again, always worsening dependent on porn-addict audience boredom levels.
     - I felt a sense of obligation to the vulnerable and I was waiting for my intuition to tell me what to do.
     - More importantly, I was constantly high and terrorized so it was difficult to make sensible decisions about anything.
     - And, I was always working so hard, and the bullying at work was so excessive that I had to think about keeping my job above and beyond everything else.
@@ -472,8 +472,8 @@ function googleTranslateElementInit() {
 
 [![The man at the bins](../../content/tweets/the-man-at-the-bins.png)](https://x.com/1FRGVN/status/1847579824128139602)
 
-- I guess the truth was he expected me to be dead in weeks, and he was concerned about there being an unpleasant investigation, and if he was the TV Dénia guy... well I wouldn't blame him.
-- As I'm driving into Madrid on the fast circular roads there, all of a sudden, the volume disappears on Google maps so I'm completely lost on the busy M30/M40 junctions.
+- I guess the truth was he expected me to be dead in weeks, and he was concerned about there being an unpleasant investigation, and if he was the TV Dénia guy... well, I wouldn't blame him.
+- As I'm driving into Madrid at rush hour in the dark, on the fast circular roads and complicated junctions, all of a sudden, the volume disappears on Google maps so I'm completely lost on the busy M30/M40 junctions.
 - When I stop, it's impossible to see how to fix this, and I try every permutation of getting the Google voice to come back.
 - Nothing works.
 - Later, I find out it is a deeply embedded setting you would need full admin access to control, and I didn't even know it existed.
