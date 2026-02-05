@@ -333,60 +333,6 @@ function googleTranslateElementInit() {
 !!! tip "The video files"
     - You'll have to wait for access to these because I don't have a good option for content delivery of multiple large files at the current homeless-and-jobless time.
 
-## YouTube with Kelly Oliver Dougall
-
-### Wednesday 30th October
-
-- Kelly Oliver Dougall, a woman who also stood for the Party Of Women at the General Election, interviews me for a YouTube video.
-
-[![Youtube video with Kelly Dougall](../../content/images/kelly-od-youtube.png)](https://www.youtube.com/watch?v=VIYsj4OgiYA)
-
-!!! tip "Transcript"
-    - Here's [the transcript](../../content/vids/kelly-od-transcript.txt) from the video.
-
-- I tell Kelly about:
-    - Being targeted by North London rape-gangs in 1989 when I was 16.
-    - How most of what happened to me then was sedated so I had no memory of it but it was obviously brutal due to the intensity of the PTSD.
-    - How my PTSD reaction made me a pariah in my social group afterwards.
-    - How PTSD took my life from me.
-    - The police report in 2006 and the half-hour video they took of me.
-    - The incongruous sexism of the detective.
-    - The second report 10 years later and how the CPS dropped the case.
-    - Suicidal depression and intense anxiety (which in retrospect didn't make sense and was because other things were happening to me sedated without my knowledge in Dénia).
-    - Not being able to get involved in relationships, politics, or community because of these reactions.
-    - How I joined Childline in 2020 and found out about trans ideology forced on children.
-    - How I was still in a suicidal depression in July 2022 when I first went to LWS in London and couldn't speak to people.
-    - How I'm completely healed of depression and anxiety...
-    - I talk about the porn gangs of Denia and how they've been drugging me somehow.
-    - How the porn gangs hacked my devices and took sensitive videos of me via hacking.
-    - How I told my story in Madrid at Let Women Speak (I say April, it's May) and recognizing I was out of my mind at that time (a week before Bali).
-    - I explain my current experience with the Dénia porn-gangs as a re-enactment of the 1989 rape-gang business.
-    - I tell her about Polygon, Nadim and how he was an actor, the weird stuff that happened there.
-    - I give a good description of how they are hacking my X feed.
-    - I tell her about Gabriel Silva's behavior towards me without mentioning his name.
-    - I tell her about Ajay's teams military coup on my role.
-    - I explain the Bali dinner sexually threatening man.
-    - I tell her about Hans's outrageous behavior.
-    - I tell her I've started a claim for harassment with Head of Legal.
-    - I tell her they fired me the Friday before.
-    - I tell her I'm looking for a lawyer.
-    - She asks me what's next I tell her I'm going to Thailand.
-    - I tell her I feel in danger and that the whole town hates me.
-    - I have to wear my camera just going to the post office.
-    - I tell her I think it's because I complained about a teacher's inappropriate behavior with children.
-    - I tell her they targeted and gang-stalked me so badly, I believe their intention was I'd commit suicide.
-    - I tell her the stalking had gone on for 2 years at the conservatory, and it included being drugged in class with some aphrodisiac type substance.
-    - I tell her about the rhabdo from January 2023 I got at chamber music class.
-    - I tell her I went to the police in Dénia and they told me to get a civil lawyer.
-    - I tell her about going to the police in Madrid. 
-    - I say, I expected people to "spring into action" if you tell them things about child safety, and this just did not happen, I've got targeted instead.
-    - I tell her about my strong concern for the safety of the children of Dénia.
-    - I tell her how the Generalitat employed a serial sex offender to groom me in class at the conservatory (I won't realize it was actually a switcheroo with multiple men for a year more as the brain damage by poison has been so effective).
-- It's 5th February 2026 as I write this section, and I'm astonished this video was taken the week I returned to Dénia when the porn-gangs tried to murder me by poison. I thought we made the interview before they tried to kill me while I was still working at Polygon.
-- I thought this video was the *motivation* for murder by poison in my apartment. It wasn't.
-- The true motivation for murder was that I had multiple pictures of the trumpet-teacher team, the four men pretending to be the one same man, and they knew that at some point I'd realize they were different men.
-- In November when Kelly publishes the video online, I send it to my landlady on WhatsApp.
-- She *slow claps* back.
 
 ## Threats and a woman at the laundry
 
@@ -650,6 +596,62 @@ function googleTranslateElementInit() {
 
 - On one evening over these few days before I left for London, I had my little statue of Mary in my hand and it was if she jumped out and onto the floor, smashing into pieces.
 - A sign, but not for me.
+
+## YouTube with Kelly Oliver Dougall
+
+### Wednesday 30th October
+
+- Kelly Oliver Dougall, a woman who also stood for the Party Of Women at the General Election, interviews me for a YouTube video.
+
+[![Youtube video with Kelly Dougall](../../content/images/kelly-od-youtube.png)](https://www.youtube.com/watch?v=VIYsj4OgiYA)
+
+!!! tip "Transcript"
+    - Here's [the transcript](../../content/vids/kelly-od-transcript.txt) from the video.
+
+- I tell Kelly about:
+    - Being targeted by North London rape-gangs in 1989 when I was 16.
+    - How I was sedated for most of what happened to me then, so I had no memory of it, but it was obviously brutal due to the intensity of the PTSD.
+    - How my PTSD reaction made me a pariah in my social group afterwards.
+    - How PTSD took my life from me.
+    - The police report I gave in 2006 and the half-hour video they took of me.
+    - The incongruous sexism of the detective.
+    - The second report I gave 10 years later, how they arrested one of the gang, and how the CPS eventually dropped it.
+    - Suicidal depression and intense anxiety (which in retrospect didn't make sense - it didn't happen in 2006. It turns out it was because other similar things had been happening to me sedated without my knowledge in Dénia).
+    - Not being able to get involved in relationships, politics, or community because of these reactions.
+    - How I joined Childline in 2020 and found out about the cult of trans being forced onto children.
+    - How I was still in a suicidal depression in July 2022 when I first went to LWS in London and couldn't speak to people.
+    - How I'm completely healed of depression and anxiety...
+    - I talk about the porn gangs of Dénia and how they've been drugging me.
+    - How the porn gangs hacked my devices and took sensitive and sexual photos and videos of me.
+    - How I told my story in Madrid at Let Women Speak (I say April, it's May) and recognizing I was out of my mind at that time (a week before Bali).
+    - I explain my experiences with the Dénia porn-gangs since January 2023 as a re-enactment of the 1989 rape-gang events.
+    - I tell her about working for crypto-giant Polygon, about Nadim's outrageous behavior and how he turned out to be an actor, and some of the weird stuff that happened there.
+    - I give a good description of how the porn-gangs are hacking my X feed.
+    - I tell her about Gabriel Silva's behavior towards me without mentioning his name.
+    - I tell her about Ajay's teams military coup on my role.
+    - I explain the sexual threats at dinner in Bali (I do not make the Jitendra Das connection at this stage, or that the man's actions at the dinner table may have imitated something very evil that happened to me in my apartment while I was sedated on Wednesday 13th March that made me sure I was going to be murdered).
+    - I tell her about Hans's outrageous behavior.
+    - I tell her I've started a claim for harassment with Head of Legal at Polygon.
+    - I tell her they fired me the Friday before.
+    - I tell her I'm looking for a lawyer.
+    - She asks me what's next, I tell her I'm going to Thailand.
+    - I tell her I feel in danger and that the whole town hates me.
+    - I explain I have to wear my camera even just going to the post office.
+    - I tell her I think it's because I complained about a teacher's inappropriate behavior with children (Domingo, I don't tell her his name).
+    - I tell her they targeted and gang-stalked me so badly, I believe their intention was I'd commit suicide.
+    - I tell her the stalking had gone on for 2 years at the conservatory, and it included being drugged in class with some aphrodisiac type substance.
+    - I tell her how I got rhabdo in January 2023 at chamber music class.
+    - I tell her I went to the police in Dénia and they told me to get a civil lawyer.
+    - I tell her about going to the police in Madrid. 
+    - I say, I expected people to "spring into action" if you tell them things about child safety, and this just did not happen, I got targeted instead.
+    - I explain my strong concern for the safety of the children of Dénia.
+    - I tell her how it looks like the Generalitat employed a serial sex offender to groom me in class at the conservatory (I won't realize it was actually a switcheroo with multiple men for a year as the brain damage by poison has been so effective).
+- When I write this section in February 2026, I'm astonished this video was taken during the week the porn-gangs tried to murder me by poison, the week after they doused all my belongings in pesticides.
+- I thought we had made the interview before they tried to kill me, while I was still working at Polygon.
+- I thought that this video was the *motivation* for murder by poison in my apartment. It wasn't.
+- The true motivation for murder was that I had multiple pictures of the trumpet-teacher switcheroo team, the four men pretending to be the one same man, and they knew that at some point I'd realize they were different people.
+- In November when Kelly publishes the video online, I send it to my landlady on WhatsApp.
+- She *slow claps* back.
 
 ## Challenging Sandra Rita Diaz
 
