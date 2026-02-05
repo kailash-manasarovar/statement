@@ -376,9 +376,9 @@ function googleTranslateElementInit() {
 
     Anyway. Young Women are required for these "events" in which the men hide their faces with masks or robot helmets or whatever.
 
-    But #EveryoneKnows who they are. 
+    But EveryoneKnows who they are. 
 
-    #EverybodyKnows 
+    EverybodyKnows 
 
     And, now, of course, inevitably, the p*rn sick men need younger and younger victims, and where better to find them than at ... 
 
@@ -400,18 +400,6 @@ function googleTranslateElementInit() {
 
     So that's where I'm at currently in my investigation.
 
-    #acim
-    @thames_pilgrim
-    
-    @guardiacivil
-    
-    @reduxx
-    
-    @WomenReadWomen
-    
-    @LadySoLucky
-    pass it on ....
-
 ### We take what we want, they say, we're hunters, they say
 
 - An aggressive message flies by "we take what we want", and the arrogant statement "we're hunters" flies by continuously.
@@ -430,7 +418,7 @@ function googleTranslateElementInit() {
 - On the bench outside my apartment building, an outrageously-dressed woman is sitting.
 - She looks like she's about to do porn.
 - At the time I thought it was extremely weird for a Tuesday afternoon in October.
-- Now I wonder were they bringing people like this into my apartment while they were sedating and assaulting me to spice up the shows.
+- Now I wonder were they bringing people like this into my apartment while they were sedating and assaulting me to spice up the shows; audience boredom kicking in.
 - Did they get a kick out of showing me who was going to be starring alongside me prior to the event?
 - I now have to wonder about the [upstairs neighbor and the young woman I thought was his daughter in the lift](../2022/march.md#upstairs-neighbor-at-carrer-furs); a meeting obviously timed as they knew where I was every second.
 - I guess it could have been another porn "actress" come to star with me in the [conservatory's sedated switcheroo specials](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero).
