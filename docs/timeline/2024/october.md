@@ -370,16 +370,17 @@ function googleTranslateElementInit() {
 - The implication is that older men I saw on the beach do whatever they like to women and children in Denia.
 - Except, it turns out, they have to sedate us first.
 - [So, aka Janet, my election volunteer](../2024/june.md#volunteers-not-what-they-seem), posts a random line on X; "Hunters".
-- I'm starting to see what's going on but it's difficult to think straight as I'm constantly drugged with something I'm ingesting in my apartment, or breathing in perhaps through the vents.
+- I'm starting to wonder about So. She says I can stay at hers in London. She posts curious indoor scenes of her home which look exactly like the sort of indoor scenes `@january_myth` and others might post; with a sort of grainy brown/yellow hue.
+- I'm finally starting to see what's going on but it's difficult to think straight as I'm constantly drugged with something I'm ingesting in my apartment.
 
 ### Porn star outside my house
 
-- I come home from the shop.
+- I come home from a quick trip to the shop.
 - There is an outrageously dressed porn-star looking woman sitting on the bench outside my apartment building.
 - I mean dressed ridiculously for a Tuesday evening, or whenever it was.
 - Absolutely like a porn star.
 - At the time I thought it was weird.
-- Now I wonder were they bringing people like this into my apartment while they were sedating and assaulting me to spice up the shows; and showing me them too (also probably filmed).
+- Now I wonder were they bringing people like this into my apartment while they were sedating and assaulting me to spice up the shows; and showing me prior to the event (also probably filmed).
 - I now wonder about the [upstairs neighbor and what I thought was his daughter in the lift](../2022/march.md#upstairs-neighbor-at-carrer-furs); a meeting obviously timed as they knew where I was every second.
 - I guess it could have been another porn "actress" come to star with me in the weekly specials on Denia TV or wherever they were being shown to literally everyone and anyone in the world.
 
@@ -387,7 +388,7 @@ function googleTranslateElementInit() {
 
 - Another afternoon I'm walking back to my house up Carrer Furs.
 - Outside on the same bench is a man I know with a woman I recognize.
-- He is one of the British casual-work teachers that would come and work for LinguaLogic at their summer school and I met him in 2008 or so.
+- He is one of the British casual-work English teachers that would come and work for LinguaLogic at their summer school and I met him in 2008 or so.
 - An unsavory person, something off about him reminded me of Matthew Diamond. He seems to seethe, visually and vocally.
 - Martin, maybe.
 - Anyway, there he was on the bench with this woman who reminded me a little bit of Marie Carmen from the TLC academy.
@@ -397,7 +398,7 @@ function googleTranslateElementInit() {
 - I have never seen him in the vicinity of my building before.
 - Did he come into my apartment after that? 
 - He'll be in the LinguaLogic records and I'd recognize him in an instant.
-- I'm guessing at this stage everyone in the town expected me to be dead within weeks.
+- I'm guessing at this stage everyone in the town expected me to be dead within weeks so they were getting in quick.
 
 ## Meeting Inma and Paloma, the Spanish official
 
