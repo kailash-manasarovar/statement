@@ -553,8 +553,8 @@ function googleTranslateElementInit() {
 - When I arrive back home the following week, I become unwell and it feels like I'm being poisoned.
 - My duvet seems to be toxic.
 - When I bring my toxic belongings back to the UK in February, I realize that while my security camera was down, they must have entered my property and doused all my belongings with pesticides or similar.
-- My view is that Paloma had told her superiors that the information I had was not actionable; and furthermore that no-one would believe me because I was a child rape survivor and I had been raped by predominantly black men.
-- I believe criminals then knew they were free to murder me, and this is why [Carmen Lopez Cano made no attempt to hide herself coming and going from my apartment](#serious-poisoning-with-intent-to-harm-or-kill) and, indeed, seemed to take pleasure in me seeing her doing so.
+- My view is that Paloma had told her superiors that the information I had was not actionable; and furthermore that no-one would believe me because I was a child rape survivor and I had been raped by predominantly black men (Blanca's dirty look).
+- I believe criminals then knew they were free to murder me, and this is why [Carmen Lopez Cano made no attempt to hide herself coming and going from my apartment](#serious-poisoning-with-intent-to-harm-or-kill) and, indeed, seemed to take pleasure in me seeing her do so.
 - When I arrive back home on 27th October, I report the router problem to Movistar.
 - Here is the [WhatsApp chat with Movistar](../../content/whatsapps/WhatsApp%20Chat%20with%20Movistar.zip).
 - I explain I have been hacked and I ask them to investigate. They ignore this.
@@ -565,6 +565,7 @@ function googleTranslateElementInit() {
 </video>
 
 - When the technician comes from Telco, he finds that the connection has been cut at the main telecommunications box to the building on the ground floor.
+- (Did the new caretaker have a telecommunications background? Is this why they fired Pedro. I believe Pedro got his job back once I'd left...)
 - He fixes the connection.
 - He also appears to [point out the spy-cam LAN network to me](#trying-to-find-the-cameras) in a surreptitious way.
 
@@ -577,25 +578,25 @@ function googleTranslateElementInit() {
 - Gabe is very *very* nervous. His voice is shaking. He looks terrified.
 - Jonathan is extremely aggressive with me when I try to talk to them.
 - I'm told the whole team is dismissed as they are no longer required.
-- I used to think it was because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy was able to cause enormous trouble with the tech systems, and consequently find out about my private political activities and manage to stick the boot in for me, just weeks after I started.
-- I now believe this was incorrect, and it was instead due to the [porn fatwa](../2001-to-2010/2003.md#porn-fatwa) which had gotten so out of control everything I did in my life was monitored and manipulated by porn addicts, often working alongside me in tech companies.
-- Anyone in Polygon management knowing what was happening to me in Denia will have known I was about to be [murdered by poisoning by Carmen Cano and her associates](#serious-poisoning-with-intent-to-harm-or-kill). 
+- I used to think it was because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy (Nadim) was able to cause enormous trouble with the tech systems, and find out about my private political activities and stick the boot in for me, just weeks after I started.
+- I was wrong about Nadim. [He was an actor](../2023/november.md#nadim-kobesi) hired to abuse me for a criminal porn-addict community.
+- The [porn fatwa](../2001-to-2010/2003.md#porn-fatwa) made me part of a very lucrative porn genre; the *female-tech-colleague-you-despise* genre.
+- Everything I did in my life was monitored and manipulated by hackers for the paying porn addicts, and there were often men working alongside me in tech companies.
+- Furthermore, anyone at Polygon who knew what had happened to me at [the Bali offsite](may.md#bali), and what was happening to me at the hands of criminal gangs in Dénia, will have probably known I was going to murdered soon; it's what they do.
+- Did they know when that was planned, and had to fire me before (turned out to be one working day before, in fact)? 
 - They couldn't have me turn up to meetings while that was happening now, could they?
-- Do the criminal porn-networks announce these things too? Do they offer one-off subscriptions for this version of snuff-porn maybe?
+- Do the criminal porn-networks announce the murder of hacked targets who they assume will never be missed?
+- Do they offer one-off subscriptions for this version of their newest snuff-porn genre maybe?
 - Did Gabriel know what was coming next for me?
-- It's an unlawful sacking as per my solid Spanish contract.
-- The dismissal letter explains the company is aware it is an unlawful dismissal, but I'm supposed to accept it.
-- I instruct a lawyer to help me who quickly appears to be on Polygon's side, but may turn out to be on mine.
-- I suspect they continue to hire one of my team, [Hansraj Bodani](../2023/november.md#polygon); a man who was outrageously insubordinate towards me when I was his manager.
-- Or maybe Hans's contract was always going to expire once I had left.
-- The other member of my team, Anthony, is given work with one of Polygon's strong partners, `gateway.fm` a few months later, but doesn't stay long (maybe they found out what I was saying about Anthony's lack of software skills was true).
-- Hans appeared to have been instructed to be insubordinate towards me (possibly by James Dawes who he had worked with before, or more like directly from Gabriel Silva and the founders).
-- His behavior included shouting me down in meetings, constant heckling, not doing any work at all, complaining about me to my manager, and more.
-- Whenever I asked for help from my managers with him, I was ignored.
-- Hans clearly knew he could say and do whatever he liked, and he did so.
-- Hans was good as gold with Gabriel Silva when he took over.
-- I suspect he's working there now still, perhaps for the Indian side of the business.
-- Polygon, and other human resources agents and companies, are beginning to look very suspect.
+- The dismissal was unlawful, as per my solid Spanish contract.
+- The dismissal letter even explains the company is aware it is unlawful, but I'm supposed to accept it.
+- I don't.
+- I instruct a lawyer in Madrid to help me who quickly appears to be on Polygon's side... but may turn out to be on mine which is nice.
+- Even though they said they had fired the whole team, I suspect  [Hansraj Bodani](../2023/november.md#polygon) keeps his job.
+- The other member of my team, Anthony, is given work with one of Polygon's strong partners, `gateway.fm` a few months later, but doesn't stay very long (maybe they found out what I was gently saying about Anthony's lack of software skills was, in fact, true).
+- As you can imagine, I'm devastated, and I know the whole thing is rotten to the core.
+- Again, while criminal gangs stalk me, poison and drug me, and continually attempt to finish me off, it's hard to think clearly about anything and make solid decisions a normal person having a normal peaceful life might.
+- From the dismissal at Polygon - the last link I had to an *apparently* lawful existence with a bunch of assumed human rights - I've just been trying to stay alive.
 
 ### Intense online stalking and hacking
 
