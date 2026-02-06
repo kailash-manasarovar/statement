@@ -4,7 +4,7 @@
 - They started while I was in Thailand in December 2024 while I was getting ready to return to Europe.
 - When I pick up the car from the carpark at Madrid airport, I immediately have that feeling of toxicity in the air and things I'm touching.
 - My mouth and throat is dry and scratchy the whole night.
-- I suspect criminals accessed the car while it was in the carpark in Madrid airport and sprayed pesticides all over the upholstery and plastics, just as [they did in my apartment](../2024/october.md#the-router-malfunctions-while-im-in-fatima).
+- I suspect criminals accessed the car while it was in the carpark in Madrid airport and sprayed pesticides all over the upholstery and plastics, just as [they did in my apartment](../2024/october.md#the-router-malfunctions).
 - I wonder if they're able to add continuous doses of toxins through the air vents too.
 - [I picked Paul up at the same time](january.md#paul) and I ask him what to do about this as he works on cars.
 - I already asked him to bring industrial masks and gloves from London.

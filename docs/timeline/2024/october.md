@@ -542,20 +542,20 @@ function googleTranslateElementInit() {
 - The week I'm in Fatima the online stalking is fever-pitched and relentless.
 - I remain high and in retrospect I'm sure I was being topped-up with something I had brought with me from my home in Dénia.
 
-### The router malfunctions while I'm in Fatima
+### The router malfunctions
 
 - On Tuesday 22nd October at around 11am, my home router in Carrer Furs malfunctions.
 
 ![camera offline](../../content/images/camera-offline.JPG){width=55%}
 
 - My home security camera is unavailable.
-- I'm concerned that criminals are accessing my apartment.
-- When I arrive back the following week, I become unwell and it feels like I'm being poisoned.
+- I'm concerned that criminals are accessing my apartment and I text Inma about it immediately and ask her to tell Paloma.
+- When I arrive back home the following week, I become unwell and it feels like I'm being poisoned.
 - My duvet seems to be toxic.
-- When I bring my belongings back to the UK in February, I realize that while my security camera was down when I was in Fatima, they must have come into my property and doused all my belongings with pesticides or similar.
+- When I bring my toxic belongings back to the UK in February, I realize that while my security camera was down, they must have entered my property and doused all my belongings with pesticides or similar.
 - My view is that Paloma had told her superiors that the information I had was not actionable; and furthermore that no-one would believe me because I was a child rape survivor and I had been raped by predominantly black men.
-- I believe criminals then knew they were free to murder me, and this is why Carmen Lopez Cano made no attempt to hide herself coming and going from my apartment and, indeed, seemed to take pleasure in me seeing her doing so.
-- When I arrive back home on 27th October, I report the router problem to Movistar immediately.
+- I believe criminals then knew they were free to murder me, and this is why [Carmen Lopez Cano made no attempt to hide herself coming and going from my apartment](#serious-poisoning-with-intent-to-harm-or-kill) and, indeed, seemed to take pleasure in me seeing her doing so.
+- When I arrive back home on 27th October, I report the router problem to Movistar.
 - Here is the [WhatsApp chat with Movistar](../../content/whatsapps/WhatsApp%20Chat%20with%20Movistar.zip).
 - I explain I have been hacked and I ask them to investigate. They ignore this.
 - I send them a video of the router to show them the error.
@@ -620,7 +620,7 @@ function googleTranslateElementInit() {
 - Outrageously - I wasn't to know until a lot later - two days before, someone with the name Vidal SASTRE SANCHEZ HORNERO was [picking up a Generalitat-funded prize at the Palau de Arts in Valencia](../../crimes/protagonists/vidal-sastre.md#the-lamistat-quart-band).
 - Inma then tells me that Paloma did speak to her sister in La Sella as she said she would and yes, indeed, everyone in Denia knows who I am and not in a good way.
 - She does not elaborate on that apart from a suggestion that everyone found me horribly offensive.
-- I tell her they [shutdown my security-cam](#the-router-malfunctions-while-im-in-fatima) while I was away and they must have been coming into my apartment.
+- I tell her they [shutdown my security-cam](#the-router-malfunctions) while I was away and they must have been coming into my apartment.
 - I'm concerned for my safety.
 - I ask her what am I going to do if they try to murder me by poison when I get home.
 - She says, strangely, I should call the police.
@@ -786,7 +786,7 @@ function googleTranslateElementInit() {
 ![Available networks](../../content/images/lan.png)
 
 - I'm also very interested in the group of networked devices named **Cascadas** which I believe are the hidden cameras but only an investigative team would be able to confirm this.
-- When the man from Telco comes to [fix the router](#the-router-malfunctions-while-im-in-fatima), he has obviously been told to tell me about the spy-cam LAN.
+- When the man from Telco comes to [fix the router](#the-router-malfunctions), he has obviously been told to tell me about the spy-cam LAN.
 - He asks me to come over to where he is standing, which is underneath where I believe there's a spy-cam and in front of the TV.
 - He starts talking about something particularly inconsequential, and while he's doing so he's pointing at the *Casa LANister* connections very slowly, and very pointedly, and looking at me meaningfully as he does while mumbling about something completely irrelevant.
 

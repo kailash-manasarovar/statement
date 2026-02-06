@@ -182,7 +182,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 #### The best band in the Valencian region
 
 - Further down the list, we see a [newspaper article dated 21st October 2024](https://www.levante-emv.com/horta/2024/10/21/amistat-quart-de-poblet-mejor-banda-comunitat-valenciana-109945426.html) reporting on an award ceremony that had taken place on the weekend of the 19th October.
-- This at the same time I left for Fatima, and was just before my [home security system went dead](../../timeline/2024/october.md#the-router-malfunctions-while-im-in-fatima) for a week before I returned home and was [severely poisoned in my apartment](../../timeline/2024/october.md#serious-poisoning-with-intent-to-harm-or-kill) over a few days.
+- This at the same time I left for Fatima, and was just before my [home security system went dead](../../timeline/2024/october.md#the-router-malfunctions) for a week before I returned home and was [severely poisoned in my apartment](../../timeline/2024/october.md#serious-poisoning-with-intent-to-harm-or-kill) over a few days.
 - One wonders if this was *quite* the alibi for a murder everyone knew was going to happen? And then didn't happen.
 - The [trumpet teacher](#the-older-slimmer-greyer-man) stands three men in from the right; a slim and not so tall man - certainly not large, muscular, and lumbering like the other men I remember.
 - Did the band know how bad things had got for me, and how I steadfastly refused to back down and leave the children of Dénia in peril, and how much everyone was implicated in their continued sacrifice?
