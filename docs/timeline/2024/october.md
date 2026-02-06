@@ -579,15 +579,15 @@ function googleTranslateElementInit() {
 - Gabe is very *very* nervous.
 - His voice is shaking.
 - He looks terrified.
-- Jonathan is extremely aggressive with me when I try to talk to reason with them.
-- I'm told the whole writing team is dismissed as they are no longer required.
+- Jonathan is extremely aggressive with me when I try to reason with them.
+- I'm told the whole writing team is dismissed as we are no longer required.
 - I used to think it was because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy (Nadim) was free to cause enormous trouble with the backend tech systems, and find out about my private political activities and stick the boot in for me, just weeks after I started.
 - I was wrong about Nadim.
 - [He was an actor](../2023/november.md#nadim-kobesi), hired to abuse me for a criminal porn-addict community.
 - The [porn fatwa](../2001-to-2010/2003.md#porn-fatwa) had made me part of a very lucrative porn genre; the *female-tech-colleague-you-despise* genre.
 - Everything I did in my life was monitored and manipulated by hackers for the paying porn addicts, and these were often men working alongside me in tech companies.
 - Furthermore, anyone at Polygon who knew what had happened to me at [the Bali offsite](may.md#bali), and what was happening to me at the hands of criminal gangs in Dénia, will have probably known I was going to murdered soon; it's what they do.
-- Did they get a tip off via Paloma or the criminals, and so were forced to fire me before the murder by poisoning.
+- Did they get a tip off via Paloma or the criminals, advising them to fire me before I was murdered?
 - The Polygon firing turned out to be the working day before I was supposed to start dying by poisoning at my home.
 - They couldn't have me turning up to meetings while that was happening now, could they?
 - Do the criminal porn-networks announce the murder of hacked targets who they assume will never be missed?
@@ -596,12 +596,13 @@ function googleTranslateElementInit() {
 - The dismissal was unlawful, as per my solid Spanish contract.
 - The dismissal letter even explains the company is aware it is unlawful, but I'm supposed to accept it anyway.
 - I don't.
-- I instruct a lawyer in Madrid to help me who quickly appears to be on Polygon's side... but may turn out to be on mine which is nice.
-- Even though they said they had fired the whole team, I suspect  [Hansraj Bodani](../2023/november.md#polygon) keeps his job.
+- I instruct a lawyer in Madrid to help me who quickly appears to be on Polygon's side... but may turn out to be on mine, which is nice.
+- Even though they said they had fired the whole team, I suspect  [Hansraj Bodani](../2023/november.md#polygon) kept his job.
 - The other member of my team, Anthony, is given work with one of Polygon's strong partners, `gateway.fm` a few months later.
 - As you can imagine, I'm devastated, and I know the whole thing is rotten to the core.
 - Again, while criminal gangs stalk me, poison and drug me, and continually attempt to finish me off, it's hard to think clearly about anything and make solid decisions a normal person having a normal peaceful life might.
-- From the dismissal at Polygon - the last link I had to an *apparently* lawful existence with a bunch of assumed human rights - I've just been trying to stay alive.
+- The dismissal at Polygon was the last link I had to an *apparently* lawful existence with a bunch of assumed human rights.
+- Since then, I've just been trying to stay alive.
 
 ### Intense online stalking and hacking
 
