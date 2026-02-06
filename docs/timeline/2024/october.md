@@ -604,16 +604,24 @@ function googleTranslateElementInit() {
 - The dismissal at Polygon was the last link I had to an *apparently* lawful existence with a bunch of assumed human rights.
 - Since then, I've just been trying to stay alive.
 
+### Vidal Sastre Sanchez Hornero collects a Generalitat award at the Palau d'Arts in Valencia
+
+- On the same day I was fired from Polygon, a man called Vidal Sastre Sanchez Hornero, the man Paloma will tell me does not exist in the Generalitat database as a teacher, the man I have seen countless records for in the Generalitat webpages, the man who came in (well, four of them did) and acted as trumpet teacher for students including children at the conservatory of Denia, collects an award at the Palau d'Arts in Valencia.
+- The man is, apparently, the director of L'Amistat band who have been awarded the *best band in the Valencian region*.
+- They make the newspapers.
+
+[![Award for the band of merry perverts](../../content/images/hornero/newspaper.png)](https://www.levante-emv.com/horta/2024/10/21/amistat-quart-de-poblet-mejor-banda-comunitat-valenciana-109945426.html)
+
+- It's not clear which of the men in the photo is Vidal Sastre Sanchez Hornero.
+- It's possible that the smaller man standing at the centre of the other four is [the first trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) from the switcheroo porn special, the man I still have good feelings for.
+- If so, then one of the other men must be Vidal Sastre Sanchez Hornero, unless the name is a fake name, and *only* exists to support the mass grooming of students in the conservatory system.
+- Does this award ceremony ensure that the first man takes the blame for it all?
+
 ### Intense online stalking and hacking
 
 - Hackers post pictures of my hotel room seen from the front camera of my phone.
 - There is constant X activity.
 - tbc.
-
-### VSSH collects his award at the Palau d'Arts
-
-- The L'Amistat band are awarded the *best band in the Valencian region*.
-- Extraordinary given every knows what's going on.
 
 ## Inma again in Madrid
 
