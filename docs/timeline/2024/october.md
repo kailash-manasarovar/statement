@@ -617,12 +617,6 @@ function googleTranslateElementInit() {
 - If so, then one of the other men must be Vidal Sastre Sanchez Hornero, unless the name is a fake name and *only* exists to support the mass grooming of students in the conservatory system.
 - Does this award ceremony and publicity ensure that the first man will take the blame for it all, brain-damaged students remembering him, in the absence of the others, as the teacher they fell in love with?
 
-### Intense online stalking and hacking
-
-- Hackers post pictures of my hotel room seen from the front camera of my phone.
-- There is constant X activity.
-- tbc.
-
 ## Inma again in Madrid
 
 - On my way home from Fátima, I stop in Madrid and see [Inma again](../2024/march/13-end.md#madrid) on Sunday 26th October.
