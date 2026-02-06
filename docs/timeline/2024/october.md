@@ -485,7 +485,7 @@ function googleTranslateElementInit() {
 - I arrange to meet Inma and her friend Blanca, and the woman who can help me, Paloma, who works for the Spanish foreign office, or similar, in London.
 - We meet in the cafe of an upscale shopping centre in a posh area in the North of Madrid, close to the M30, around 1pm on Sunday 20th October.
 - Paloma has flown in from London.
-- I'm so grateful to Inma, Blanca, and Paloma and truly relieved that finally someone is going to help me.
+- I'm so grateful to Inma, Blanca, and Paloma, and I'm truly relieved that finally someone is going to help me.
 - Inma, Blanca, and her adopted Russian son arrive together.
 - Paloma arrives a little later.
 - There is a lot of talk about how secure Paloma's phone is, how it will pick up any sort of hacking interference and shutdown the whole network in the building.
@@ -503,35 +503,35 @@ function googleTranslateElementInit() {
 - I have to push to be heard; although Paloma sort of groans at every new horror I mention, as if none of this is unfamiliar to her.
 - She looks at her phone and says, *oh, yes, Rocio Vidal was hacked*.
 - I tell her about my trips to the police and how they're ignoring me.
-- She tells us both that the police in the whole Valencian region cannot be trusted. 
+- She tells Inma and I that the police in the whole Valencian region cannot be trusted. 
 - *You can't go to the police down there, they won't help you*, she says. 
 - I knew it already.
 - She doesn't seem to be interested in anything I have to say, until one moment when I mention that the trumpet teacher's daughters might be kidnapped if he doesn't do what they say.
 - At that moment, her eyes light up and she says, *oh we can do something with that*.
 - I'm dismayed.
-- A woman or girl can go through years of torture and no-one cares, but the minute a man is in trouble, even a man involved in the torturing, and everyone's happy to spring into action.
+- A woman or child can go through years of torture and no-one cares, but the minute a man is in trouble, even a man involved in the torturing, everyone's happy to spring into action.
 - It feels like industrial-scale woman-hating and tacitly-accepted sexual grooming of minors, and worse.
 - Her words suggest thousands of ignored complaints.
 - No wonder Dénia happened.
-- I then tell her about Hazel and Sandra Smith, and how I have known who and what they are since 2007, about how they were at the Old Bailey for honey-trapping and poisoning wealthy elderly in London in the 90s and how they walked free, about how they've been free to target the ex-pat elderly in the Marina Alta, about how Hazel is the accountant for hundreds of vulnerable British people, and about how she tried to kill me by poison in 2007.
+- I then tell her about Hazel and Sandra Smith, and how I have known who and what they are since 2007, about how they were at the Old Bailey for honey-trapping, poisoning, and murdering wealthy elderly people in London in the 90s and how they were found not guilty, about how they've been free to target the ex-pat elderly in the Marina Alta, about how Hazel is the accountant for hundreds of vulnerable British people, and about how she tried to murder me by poisoning in 2007.
 - I tell Paloma that the Smiths are working with the Spanish criminals based at the conservatory.
 - Inma says she remembers me mentioning something in 2007.
 - I had told Inma back then that I had seen well-known British criminals in the Marina Alta, Las Marinas to be precise, without giving any details.
 - I tell Paloma about the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101) and the [sedated woman in the car](september.md#another-upsetting-targeted-woman), and the many pictures I received that I believe are targeted women, including [a picture of one of Domingo's students](../2023/october.md#choir) Elsa.
-- I tell her about the [ugly man](august.md#ugly) following me in France.
-- Paloma looks briefly at my friend, and says my story sounds like devil worship.
+- I tell her about the [ugly man](august.md#ugly) following me in France. I don't remember I had not sent Inma the supplementary page describing him for some reason.
+- Paloma looks briefly at Inma, and then at me saying my story sounds like devil worship.
 - I'm even more dismayed. 
 - I know what this means.
 - I know she's not going to help me; she's on a fact-finding mission for her bosses.
-- She does say, *it sounds like a chaos doesn't it*, to my friend, and advises I write a timeline.
+- She does say, *it sounds like a chaos doesn't it*, to Inma, and advises I write a timeline.
 - Thank you Paloma! 🙏🏼 It was a great idea.
 - She tells me that with a timeline, she can help me, and maybe get Interpol involved.
 - She says her sister lives in La Sella and she will talk to her to find out what's going on.
-- La Sella is just of few kilometers up the road from Dénia. It's where the [Scottish woman, close friends with Zoe BJ, who runs a charity lives](../early-years/2016.md#the-scottish-woman).
+- La Sella is just a few kilometers up the road from Dénia. It’s where the [Scottish woman lives, close friends with Zoe BJ, the one running a charity](../early-years/2016.md#the-scottish-woman).
 - Paloma tells me that once we have the timeline, we can help [Irene](august.md#irene-the-plate-lady) and the other women and children.
 - I hug her and thank her, but I don't expect to see or hear from her again.
-- As I leave, I hand her, written down by hand, the names of [the two little girls that Domingo teaches](../2023/september.md#my-friend-the-german-translator) and I tell her I'm very concerned about their safety, and the safety of their single and wealthy single mother whom he had persuaded to buy a Steinway. 
-- Over the next few weeks, I see accounts fly-by online with names like *dubious government official*, and similar.
+- As I leave, I hand her, written down by hand, the names of [the two little girls from Madrid that Domingo teaches](../2023/september.md#my-friend-the-german-translator) and I tell her I'm extremely concerned about their safety, and the safety of their wealthy single mother who he had persuaded to buy a Steinway. 
+- Over the next few weeks, I see fake accounts fly-by online with names like *dubious government official*, and similar.
 - They know.
 
 ## Fatima 20-26th October
