@@ -613,7 +613,7 @@ function googleTranslateElementInit() {
 [![Award for the band of merry perverts](../../content/images/hornero/newspaper.png)](https://www.levante-emv.com/horta/2024/10/21/amistat-quart-de-poblet-mejor-banda-comunitat-valenciana-109945426.html)
 
 - It's not clear which of the men in the photo is Vidal Sastre Sanchez Hornero.
-- It's possible that the smaller man standing to the centre-right of the other five is [the first trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) from the switcheroo porn special, the man I still have good feelings for.
+- It's possible that the man standing to the centre-right of the other five is [the first trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) from the switcheroo porn special, the man I still have good feelings for.
 - If so, then one of the other men must be Vidal Sastre Sanchez Hornero, unless the name is a fake name and *only* exists to support the mass grooming of students in the conservatory system.
 - Does this award ceremony and publicity ensure that the first man will take the blame for it all, brain-damaged students remembering him, in the absence of the others, as the teacher they fell in love with?
 
