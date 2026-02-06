@@ -536,26 +536,37 @@ function googleTranslateElementInit() {
 
 ## Fatima 20-26th October
 
-- When I arrive in Fatima the following evening, even though my iPhone camera is blocked, I get notifications on fake accounts of items in my hotel room. Of course, only the camera facing me is blocked, not the one looking out.
+- I arrive in Fatima on the evening of the 20th and stay at the Mercure.
+- Even though I have blocked my iPhone camera from hackers, I see photos of fake accounts of items in my hotel room. 
+- I realize that only the camera facing me is blocked, not the one looking out.
+- The week I'm in Fatima the online stalking is fever-pitched and relentless.
+- I remain high and in retrospect I'm sure I was being topped-up with something I had brought with me from my home in Dénia.
 
 ### The router malfunctions while I'm in Fatima
 
-- On Tuesday 22nd October around 11am, my router at home malfunctions.
+- On Tuesday 22nd October at around 11am, my home router in Carrer Furs malfunctions.
 
 ![camera offline](../../content/images/camera-offline.JPG){width=55%}
 
 - My home security camera is unavailable.
-- I wonder if my home was accessed over the few days before I returned.
-
-!!! danger
-    - Given the next week's experience with my health, and the ongoing health problems over the next months, including declining eyesight and a diagnosis of PACS, I believe it is highly likely Domingo the piano teacher's family or associates accessed my home and were able to apply poison to food and even toiletries that I have taken with me.
-
-- Here is the [WhatsApp chat with Movistar](../../content/whatsapps/WhatsApp%20Chat%20with%20Movistar.zip) where I explain I have been hacked and ask them to investigate.
-- I also send them a video of what it's doing.
+- I'm concerned that criminals are accessing my apartment.
+- When I arrive back the following week, I become unwell and it feels like I'm being poisoned.
+- My duvet seems to be toxic.
+- When I bring my belongings back to the UK in February, I realize that while my security camera was down when I was in Fatima, they must have come into my property and doused all my belongings with pesticides or similar.
+- My view is that Paloma had told her superiors that the information I had was not actionable; and furthermore that no-one would believe me because I was a child rape survivor and I had been raped by predominantly black men.
+- I believe criminals then knew they were free to murder me, and this is why Carmen Lopez Cano made no attempt to hide herself coming and going from my apartment.
+- When I arrive back home on 27th October, I report the router problem to Movistar immediately.
+- Here is the [WhatsApp chat with Movistar](../../content/whatsapps/WhatsApp%20Chat%20with%20Movistar.zip).
+- I explain I have been hacked and I ask them to investigate. They ignore this.
+- I send them a video of the router to show them the error.
 
 <video controls>
     <source src="/content/vids/router-malfunction.mp4" type="video/mp4">
 </video>
+
+- When the technician comes from Telco, he finds that the connection has been cut at the main telecommunications box to the building on the ground floor.
+- He fixes the connection.
+- He also appears to [point out the spy-cam LAN network to me](#trying-to-find-the-cameras) in a surreptitious way.
 
 ### Polygon fires the whole writing team
 
@@ -568,21 +579,22 @@ function googleTranslateElementInit() {
 - I'm told the whole team is dismissed as they are no longer required.
 - I used to think it was because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy was able to cause enormous trouble with the tech systems, and consequently find out about my private political activities and manage to stick the boot in for me, just weeks after I started.
 - I now believe this was incorrect, and it was instead due to the [porn fatwa](../2001-to-2010/2003.md#porn-fatwa) which had gotten so out of control everything I did in my life was monitored and manipulated by porn addicts, often working alongside me in tech companies.
-- I had just given a public online interview stating I believed I was being drugged and filmed in my flat.
-- Furthermore, anyone in Polygon management knowing what was happening to me in Denia will have known I was about to be [murdered by poisoning by Carmen Cano and her associates](#serious-poisoning-with-intent-to-harm-or-kill). 
+- Anyone in Polygon management knowing what was happening to me in Denia will have known I was about to be [murdered by poisoning by Carmen Cano and her associates](#serious-poisoning-with-intent-to-harm-or-kill). 
 - They couldn't have me turn up to meetings while that was happening now, could they?
+- Do the criminal porn-networks announce these things too? Do they offer one-off subscriptions for this version of snuff-porn maybe?
 - Did Gabriel know what was coming next for me?
-- I wonder if VSSH and the L'Amistat band were also aware of this about to happen.
+- It's an unlawful sacking as per my solid Spanish contract.
 - The dismissal letter explains the company is aware it is an unlawful dismissal, but I'm supposed to accept it.
-- I instruct a lawyer to help me who appears to be on Polygon's side.
+- I instruct a lawyer to help me who quickly appears to be on Polygon's side, but may turn out to be on mine.
 - I suspect they continue to hire one of my team, [Hansraj Bodani](../2023/november.md#polygon); a man who was outrageously insubordinate towards me when I was his manager.
-- The other member of my team, Anthony, is given work with one of Polygon's strong partners, `gateway.fm`, but doesn't stay long (maybe they found out what I was saying was true).
+- Or maybe Hans's contract was always going to expire once I had left.
+- The other member of my team, Anthony, is given work with one of Polygon's strong partners, `gateway.fm` a few months later, but doesn't stay long (maybe they found out what I was saying about Anthony's lack of software skills was true).
 - Hans appeared to have been instructed to be insubordinate towards me (possibly by James Dawes who he had worked with before, or more like directly from Gabriel Silva and the founders).
 - His behavior included shouting me down in meetings, constant heckling, not doing any work at all, complaining about me to my manager, and more.
 - Whenever I asked for help from my managers with him, I was ignored.
 - Hans clearly knew he could say and do whatever he liked, and he did so.
 - Hans was good as gold with Gabriel Silva when he took over.
-- I suspect he's working there now still.
+- I suspect he's working there now still, perhaps for the Indian side of the business.
 - Polygon, and other human resources agents and companies, are beginning to look very suspect.
 
 ### Intense online stalking and hacking
