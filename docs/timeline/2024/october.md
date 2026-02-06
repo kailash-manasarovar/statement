@@ -554,7 +554,7 @@ function googleTranslateElementInit() {
 - My duvet seems to be toxic.
 - When I bring my belongings back to the UK in February, I realize that while my security camera was down when I was in Fatima, they must have come into my property and doused all my belongings with pesticides or similar.
 - My view is that Paloma had told her superiors that the information I had was not actionable; and furthermore that no-one would believe me because I was a child rape survivor and I had been raped by predominantly black men.
-- I believe criminals then knew they were free to murder me, and this is why Carmen Lopez Cano made no attempt to hide herself coming and going from my apartment.
+- I believe criminals then knew they were free to murder me, and this is why Carmen Lopez Cano made no attempt to hide herself coming and going from my apartment and, indeed, seemed to take pleasure in me seeing her doing so.
 - When I arrive back home on 27th October, I report the router problem to Movistar immediately.
 - Here is the [WhatsApp chat with Movistar](../../content/whatsapps/WhatsApp%20Chat%20with%20Movistar.zip).
 - I explain I have been hacked and I ask them to investigate. They ignore this.
