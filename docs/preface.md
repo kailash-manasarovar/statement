@@ -32,7 +32,7 @@ People she had reached out to for help up to then were confused about what she w
 
 Her story sounded like a Hollywood spy-action blockbuster. It was difficult to accept that this tiny, not-very-good-looking, soft-spoken, middle-aged, rather boring and sometimes very annoying British lady could be the focus of so much evil and loathing, and require so many criminal resources.
 
-*"It sounds like a chaos, doesn't it?"*, a [Spanish government official had said](timeline/2024/october.md#meeting-inma-and-paloma-the-spanish-official). The same official advised her to write up a timeline of events and take it to the police.
+*"It sounds like a chaos, doesn't it?"*, a [Spanish government official had said](timeline/2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid). The same official advised her to write up a timeline of events and take it to the police.
 
 The author knew she only had a short time to write down everything she knew about the murderous evil that has taken over the small, but important, town of Dénia on the east coast of Spain where the boats go back-and-forth each day to the Balearic islands.
 

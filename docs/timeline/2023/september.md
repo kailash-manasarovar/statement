@@ -692,7 +692,7 @@ function googleTranslateElementInit() {
 - Another time I go for vegetables, [Thao](may.md#acupuncture-with-thao-qi) is there, the acupuncturist who told me I had diabetes and I must see my GP about it. Is she waiting for me too? 
 - She says hi, and asks if I went back to classes at the conservatory after the attack.
 - I say yes I did, strongly.
-- Another time I go for vegetables, [Domingo](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) is there, on his own, accompanying the two little girls from Madrid that he teaches, and who [I told Paloma about](../2024/october.md#meeting-inma-and-paloma-the-spanish-official) in October 2024.
+- Another time I go for vegetables, [Domingo](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) is there, on his own, accompanying the two little girls from Madrid that he teaches, and who [I told Paloma about](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid) in October 2024.
 - I give him a [therapy card](#praying-at-cauterets).
 - He shouts, "ooooh, touch", elongating the word *touch* in a salacious manner, and leaves with the little girls.
 - My friend says, oh you know him, and tells me that she sees him all the time with his daughters.

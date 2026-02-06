@@ -538,7 +538,7 @@ function googleTranslateElementInit() {
 - It looks like she's been in hair-and-makeup in this photo.
 - I mention Rocio Vidal throughout this statement.
 - The hacker started posting this pic on my Google search results [back in October 2023](../2023/october.md#rocio-vidal).
-- A Spanish official confirmed to me that she had been hacked in [October 2024](../2024/october.md#meeting-inma-and-paloma-the-spanish-official).
+- A Spanish official confirmed to me that she had been hacked in [October 2024](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid).
 
 ##### 7.
 
@@ -622,7 +622,7 @@ function googleTranslateElementInit() {
 - This is Elsa, a student at the conservatory; a minor approaching majority at the time.
 - She is one of Domingo Cano's piano students.
 - Note the dog collar.
-- I told numerous officials about Elsa and how worried I was for her safety including: [a Spanish foreign office official](../2024/october.md#meeting-inma-and-paloma-the-spanish-official), [the Madrid police](../2025/january.md#madrid-policia), and [I even reported her to the Spanish police's trafficking helpline on 29th October 2024](october.md#the-police-trafficking-email), while I was being poisoned at home, and just after meeting [Inma and Paloma in Madrid](october.md#meeting-inma-and-paloma-the-spanish-official).
+- I told numerous officials about Elsa and how worried I was for her safety including: [a Spanish foreign office official](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid), [the Madrid police](../2025/january.md#madrid-policia), and [I even reported her to the Spanish police's trafficking helpline on 29th October 2024](october.md#the-police-trafficking-email), while I was being poisoned at home, and just after meeting [Inma and Paloma in Madrid](october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid).
 - I did so because I was certain no-one was coming to help the children of Dénia.
 - The police in Dénia did get back to me about the trafficking alert, but I was hardly going to deal with them after [my experience in February 2024](february.md#my-first-trip-to-the-spanish-police-in-denia).
 

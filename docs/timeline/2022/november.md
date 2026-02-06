@@ -119,7 +119,7 @@ function googleTranslateElementInit() {
 - In the Generalitat Valenciana systems, his name was/is Vidal Sastre Sanchez Hornero, although I was told by a government official that this person doesn't exist! 
 
 !!! tip "The cover up continues in late 2024"
-    - In October 2024, a Spanish government official approaches me, [Paloma](../2024/october.md#meeting-inma-and-paloma-the-spanish-official), and wants to know what's going on.
+    - In October 2024, a Spanish government official approaches me, [Paloma](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid), and wants to know what's going on.
     - She can hardly hide her disgust with me, I assume it's because I told her about the sexual abuse I suffered as a child.
     - And, even though she tells me she is going to help me, it is very clear she is not on my side.
     - A few weeks later, she tells us there's no record of [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md) in the Generalitat systems.

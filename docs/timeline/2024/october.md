@@ -479,54 +479,59 @@ function googleTranslateElementInit() {
 - Later, I find out it is a deeply embedded setting you would need full admin access to control, and I didn't even know it existed.
 - They're trying to cause me to have an accident and crash the car now.
 
-## Meeting Inma and Paloma, the Spanish official
+## Meeting Inma and Paloma, the Spanish official, in Madrid
 
-- My friend Inma Bascones and I meet Paloma on Sunday 20th October.
-- She has flown in from London where she works at the Spanish foreign office.
-- I got confused about the dates, but it's definitely this day as I wanted to leave early as I had a five hour drive to Fátima, on unknown roads, with a maliciously-hacked Google maps app.
-- Inma told me previously that the woman could maybe help me and had arranged everything with her friend Blanca.
-- I'm very grateful and relieved that finally someone is going to help me.
-- We meet in a posh area in the North of Madrid near the M30 in a high-end shopping-centre's cafe (I'll remember the exact place at some point).
-- Inma, Blanca and her Russian son arrive together.
-- There is a lot of talk about how secure Paloma's phone is, how it can pick up any sort of hacking interference and shutdown the whole network in a building.
+- After receiving [my handwritten letter](august.md#the-handwritten-letters), Inma told me she had spoken to her friend Blanca about me, and they know a woman who can help me.
+- I arrange to meet Inma and her friend Blanca, and the woman who can help me, Paloma, who works for the Spanish foreign office, or similar, in London.
+- We meet in the cafe of an upscale shopping centre in a posh area in the North of Madrid, close to the M30, around 1pm on Sunday 20th October.
+- Paloma has flown in from London.
+- I'm so grateful to Inma, Blanca, and Paloma and truly relieved that finally someone is going to help me.
+- Inma, Blanca, and her adopted Russian son arrive together.
+- Paloma arrives a little later.
+- There is a lot of talk about how secure Paloma's phone is, how it will pick up any sort of hacking interference and shutdown the whole network in the building.
 - Blanca's son leaves.
-- They wouldn't talk about anything serious in front of him and shut me down when I mentioned something while he was there.
+- They wouldn't talk about anything serious in front of him, and the woman all shut me down when I mentioned being terrorized in Dénia while he was sitting with us.
 - Once he's gone, we start talking.
-- I tell them that everyone knows me in Denia, and not in a good way.
-- Blanca leaves about twenty minutes later. As she leaves, she gives me a dirty look. She looks disgusted with me.
-- I file it away.
+- I tell them that everyone knows me in Dénia, and not in a good way.
+- Blanca leaves about twenty minutes later. 
+- As she leaves, she gives me a foul dirty look. She looks disgusted with me.
+- It's too incongruous to think about. I file it away.
 - I try to explain to Paloma what's been going on.
 - Paloma doesn't really listen to me when I speak, she talks directly to Inma.
-- They both keep telling me to keep my voice down.
-- I tell her about [Irene](august.md#irene-the-plate-lady), about [Rocio Vidal](../2023/october.md#rocio-vidal), about the hundreds of other women.
-- I have to push to be heard; although she sort of groans at every new horror I mention, as if none of this is unfamiliar to her.
+- They both keep telling me to keep my voice down; I can't.
+- I tell Paloma about [Irene](august.md#irene-the-plate-lady), about [Rocio Vidal](../2023/october.md#rocio-vidal), about the hundreds of other women.
+- I have to push to be heard; although Paloma sort of groans at every new horror I mention, as if none of this is unfamiliar to her.
 - She looks at her phone and says, *oh, yes, Rocio Vidal was hacked*.
 - I tell her about my trips to the police and how they're ignoring me.
-- She tells us both that the police in the whole region are not to be trusted. 
-- *You can't go to the police down there*, she says. I knew it already.
+- She tells us both that the police in the whole Valencian region cannot be trusted. 
+- *You can't go to the police down there, they won't help you*, she says. 
+- I knew it already.
 - She doesn't seem to be interested in anything I have to say, until one moment when I mention that the trumpet teacher's daughters might be kidnapped if he doesn't do what they say.
 - At that moment, her eyes light up and she says, *oh we can do something with that*.
 - I'm dismayed.
-- A woman can go through years of torture and no-one cares, but the minute one man is in trouble, even a man involved in creating the hell for women and children, they'll spring into action.
+- A woman or girl can go through years of torture and no-one cares, but the minute a man is in trouble, even a man involved in the torturing, and everyone's happy to spring into action.
 - It feels like industrial-scale woman-hating and tacitly-accepted sexual grooming of minors, and worse.
 - Her words suggest thousands of ignored complaints.
-- No wonder Denia happened.
-- I then tell her about Hazel and Sandra Smith and how I have known who and what they are since 2006, about how they've been free to target the ex-pat elderly, about how Hazel is the accountant for maybe hundreds of them, and how she tried to kill me by poison in 2007.
-- My friend remembers me mentioning something to her in 2007.
-- I had mentioned at the time that I had seen British criminals in the Marina Alta, Las Marinas to be precise, without giving any details.
-- I tell her about the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101) and the [sedated woman in the car](september.md#another-upsetting-targeted-woman), and the many pictures I received that I believe are targeted women, including [a picture of one of Domingo's students](../2023/october.md#choir) Elsa.
-- Paloma looks briefly at my friend and says my story sounds like devil worship.
+- No wonder Dénia happened.
+- I then tell her about Hazel and Sandra Smith, and how I have known who and what they are since 2007, about how they were at the Old Bailey for honey-trapping and poisoning wealthy elderly in London in the 90s and how they walked free, about how they've been free to target the ex-pat elderly in the Marina Alta, about how Hazel is the accountant for hundreds of vulnerable British people, and about how she tried to kill me by poison in 2007.
+- I tell Paloma that the Smiths are working with the Spanish criminals based at the conservatory.
+- Inma says she remembers me mentioning something in 2007.
+- I had told Inma back then that I had seen well-known British criminals in the Marina Alta, Las Marinas to be precise, without giving any details.
+- I tell Paloma about the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101) and the [sedated woman in the car](september.md#another-upsetting-targeted-woman), and the many pictures I received that I believe are targeted women, including [a picture of one of Domingo's students](../2023/october.md#choir) Elsa.
+- I tell her about the [ugly man](august.md#ugly) following me in France.
+- Paloma looks briefly at my friend, and says my story sounds like devil worship.
 - I'm even more dismayed. 
 - I know what this means.
-- I know she's not going to help me; she's on a fact-finding mission for any potential cover up required.
+- I know she's not going to help me; she's on a fact-finding mission for her bosses.
 - She does say, *it sounds like a chaos doesn't it*, to my friend, and advises I write a timeline.
 - Thank you Paloma! 🙏🏼 It was a great idea.
-- She tells me she can help me, maybe get Interpol involved.
-- She says her sister lives in La Sella, just up the road from Denia, and she will talk to her to find out what's going on there.
-- She says once we have the information, we can help [Irene](august.md#irene-the-plate-lady) and the other targeted women.
+- She tells me that with a timeline, she can help me, and maybe get Interpol involved.
+- She says her sister lives in La Sella and she will talk to her to find out what's going on.
+- La Sella is just of few kilometers up the road from Dénia. It's where the [Scottish woman, close friends with Zoe BJ, who runs a charity lives](../early-years/2016.md#the-scottish-woman).
+- Paloma tells me that once we have the timeline, we can help [Irene](august.md#irene-the-plate-lady) and the other women and children.
 - I hug her and thank her, but I don't expect to see or hear from her again.
-- As I leave, I hand her, written down by hand, the names of [the two little girls that Domingo teaches](../2023/september.md#my-friend-the-german-translator) and I tell her I'm very concerned about them, and their single and wealthy mother who was persuaded to buy a Steinway. 
-- Over the next few weeks, accounts fly by with names like *dubious government official*, and similar.
+- As I leave, I hand her, written down by hand, the names of [the two little girls that Domingo teaches](../2023/september.md#my-friend-the-german-translator) and I tell her I'm very concerned about their safety, and the safety of their single and wealthy single mother whom he had persuaded to buy a Steinway. 
+- Over the next few weeks, I see accounts fly-by online with names like *dubious government official*, and similar.
 - They know.
 
 ## Fatima 20-26th October
@@ -596,7 +601,7 @@ function googleTranslateElementInit() {
 - On my way home from Fátima, I stop in Madrid and see [Inma again](../2024/march/13-end.md#madrid) on Sunday 26th October.
 - As I'm driving into Madrid, the same lethal Google maps app hack fires up.
 - They're trying to make me crash the car.
-- I meet Inma and ask her what [Paloma the Spanish official](#meeting-inma-and-paloma-the-spanish-official) has said.
+- I meet Inma and ask her what [Paloma the Spanish official](#meeting-inma-and-paloma-the-spanish-official-in-madrid) has said.
 - She tells me Paloma thinks we are both in danger.
 - She also tells me that Paloma had looked up *Vidal SASTRE SANCHEZ HORNERO* in the Generalitat systems and found no record of a man with that name.
 - When I hear that I know I'm being fobbed off.

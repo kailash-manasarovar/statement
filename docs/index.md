@@ -86,7 +86,7 @@ The report details the following:
 ## Everyone knows who I am
 
 - If you travel to Dénia and talk to just a few people; ask them if they know me. 
-- A [Spanish official confirmed](timeline/2024/october.md#meeting-inma-and-paloma-the-spanish-official) that they answer in the affirmative; everyone knows who I am.
+- A [Spanish official confirmed](timeline/2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid) that they answer in the affirmative; everyone knows who I am.
 - If you ask them why the whole town persecuted and terrorized me for 3 years, the answers will be quite interesting.
 - Try and find someone who's seen footage of me naked, maybe masturbating, privately in my flat. They will be easy to find.
 - Perhaps you can find someone who's seen me going to the toilet, or having a bath, doing yoga, or taking an enema, or maybe they heard me passing wind very loudly?
