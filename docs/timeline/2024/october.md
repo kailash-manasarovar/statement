@@ -606,7 +606,7 @@ function googleTranslateElementInit() {
 
 ### Vidal Sastre Sanchez Hornero collects a Generalitat award at the Palau d'Arts in Valencia
 
-- On the same day Polygon fires me, a man called Vidal Sastre Sanchez Hornero - the man Paloma will tell me does not exist in the Generalitat teacher databases, the man I have seen countless records for on the Generalitat webpages, the man who came in (well, four of them did) having the function of trumpet teacher for students, mostly children, at the conservatory of Dénia, the man who marked my work in the Generalitat databases - collects an award at the Palau d'Arts in Valencia.
+- On the same day I meet Paloma in Madrid, a man called Vidal Sastre Sanchez Hornero - the man Paloma will tell me does not exist in the Generalitat teacher databases, the man I have seen countless records for on the Generalitat webpages, the man who came in (well, four of them did) having the function of trumpet teacher for students, mostly children, at the conservatory of Dénia, the man who marked my work in the Generalitat databases - collects an award at the Palau d'Arts in Valencia.
 - The man is, apparently, the chair of L'Amistat band who have been awarded the *best band in the Valencian region* award, and he even receives an *honorable mention*.
 - They make the press.
 
