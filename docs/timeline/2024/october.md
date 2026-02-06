@@ -606,16 +606,16 @@ function googleTranslateElementInit() {
 
 ### Vidal Sastre Sanchez Hornero collects a Generalitat award at the Palau d'Arts in Valencia
 
-- On the same day I was fired from Polygon, a man called Vidal Sastre Sanchez Hornero, the man Paloma will tell me does not exist in the Generalitat database as a teacher, the man I have seen countless records for in the Generalitat webpages, the man who came in (well, four of them did) and acted as trumpet teacher for students including children at the conservatory of Denia, collects an award at the Palau d'Arts in Valencia.
-- The man is, apparently, the director of L'Amistat band who have been awarded the *best band in the Valencian region*.
-- They make the newspapers.
+- On the same day Polygon fires me, a man called Vidal Sastre Sanchez Hornero - the man Paloma will tell me does not exist in the Generalitat teacher databases, the man I have seen countless records for on the Generalitat webpages, the man who came in (well, four of them did) having the function of trumpet teacher for students, mostly children, at the conservatory of Dénia, the man who marked my work in the Generalitat databases - collects an award at the Palau d'Arts in Valencia.
+- The man is, apparently, the chair of L'Amistat band who have been awarded the *best band in the Valencian region* award, and he even receives an *honorable mention*.
+- They make the press.
 
 [![Award for the band of merry perverts](../../content/images/hornero/newspaper.png)](https://www.levante-emv.com/horta/2024/10/21/amistat-quart-de-poblet-mejor-banda-comunitat-valenciana-109945426.html)
 
 - It's not clear which of the men in the photo is Vidal Sastre Sanchez Hornero.
-- It's possible that the smaller man standing at the centre of the other four is [the first trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) from the switcheroo porn special, the man I still have good feelings for.
+- It's possible that the smaller man standing to the centre-right of the other five is [the first trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) from the switcheroo porn special, the man I still have good feelings for.
 - If so, then one of the other men must be Vidal Sastre Sanchez Hornero, unless the name is a fake name, and *only* exists to support the mass grooming of students in the conservatory system.
-- Does this award ceremony ensure that the first man takes the blame for it all?
+- Does this award ceremony and publicity ensure that the first man takes the blame for it all?
 
 ### Intense online stalking and hacking
 
@@ -679,7 +679,7 @@ function googleTranslateElementInit() {
 - I really feel like I'm being poisoned over this week in my flat, and quite intensely too.
 - Someone wants me to get seriously sick and/or possibly die.
 - If my dad did not have an accident on the 1st of November, and I had to rush back to London, I believe that Domingo's family may have made good on their threats and killed me via poisoning.
-- I believe everyone knew this was planned and intended; the [angry man and his wife in his car as I'm leaving for Fatima](#fatima-20-26th-october), the [L'Amistat band](#vssh-collects-his-award-at-the-palau-darts) who may be offering some sort of alibi, even my bosses at [Polygon](#polygon-fires-the-whole-writing-team) who clearly only intended to fire me for dubious reasons.
+- I believe everyone knew this was planned and intended; the [angry man and his wife in his car as I'm leaving for Fatima](#fatima-20-26th-october), the [L'Amistat band](#vidal-sastre-sanchez-hornero-collects-a-generalitat-award-at-the-palau-darts-in-valencia) who may be offering some sort of alibi, even my bosses at [Polygon](#polygon-fires-the-whole-writing-team) who clearly only intended to fire me for dubious reasons.
 - How did everyone know? Is that part of the porn-soap-opera too? Did the audience have constant access to my home cameras and see people come in and interfere with my bathroom products?
 - I take some samples of water and items related to the air vents to London in the hope that the police will one day find things serious enough to investigate and I will have evidence for them to analyze.
 - There is another warning and condemnation about poisoning given via a fake account on Halloween night, the 1st November.
