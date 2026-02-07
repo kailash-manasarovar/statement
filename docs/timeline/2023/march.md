@@ -184,7 +184,7 @@ function googleTranslateElementInit() {
 - I did an extensive search for the person in the company data and found no reference.
 - I even asked my Spanish colleague who he was, and he didn't know him.
 - Then suddenly there was a reference to him on Slack, so I left it.
-- All the fake accounts stalking my professional life are in my LinkedIn account which will need to be subpoenaed as they banned me for life on someone at Polygon's request after [they fired me in October 2024, a few days before the porn-gangs tried to murder me at home](../2024/october.md#serious-poisoning-with-intent-to-harm-or-kill).
+- All the fake accounts stalking my professional life are in my LinkedIn account which will need to be subpoenaed as they banned me for life on someone at Polygon's request after [they fired me in October 2024, a few days before the porn-gangs tried to murder me at home](../2024/october.md#serious-poisoning-with-intent-to-kill).
 - In retrospect, Digital Asset was probably a safe space and I should have continued with them.
 - They offered me a month's stay in New York to learn their programming language but I declined due to my conservatory studies - which was insane!
 - I believe all my decisions were being controlled by online manipulation and emotional triggering coupled with drugging.

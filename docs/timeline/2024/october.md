@@ -554,7 +554,7 @@ function googleTranslateElementInit() {
 - My duvet seems to be toxic.
 - When I bring my toxic belongings back to the UK in February, I realize that while my security camera was down, they must have entered my property and doused all my belongings with pesticides or similar.
 - My view is that Paloma had told her superiors that the information I had was not actionable; and furthermore that no-one would believe me because I was a child rape survivor and I had been raped by predominantly black men (Blanca's dirty look).
-- I believe criminals then knew they were free to murder me, and this is why [Carmen Lopez Cano made no attempt to hide herself coming and going from my apartment](#serious-poisoning-with-intent-to-harm-or-kill) and, indeed, seemed to take pleasure in me seeing her do so.
+- I believe criminals then knew they were free to murder me, and this is why [Carmen Lopez Cano made no attempt to hide herself coming and going from my apartment](#serious-poisoning-with-intent-to-kill) and, indeed, seemed to take pleasure in me seeing her do so.
 - When I arrive back home on 27th October, I report the router problem to Movistar.
 - Here is the [WhatsApp chat with Movistar](../../content/whatsapps/WhatsApp%20Chat%20with%20Movistar.zip).
 - I explain I have been hacked and I ask them to investigate. They ignore this.
@@ -624,7 +624,7 @@ function googleTranslateElementInit() {
 - Except, instead of just inconveniencing me, they're trying to make me crash the car.
 - I text a friend in Finchley & Golders Green about that, while it's happening. 
 - She's worried about me and tells me to come home.
-- I arrive in Madrid and meet with Inma on Sunday 26th October.
+- I arrive in Madrid and meet with Inma on Sunday 27th October.
 - She has updates from [Paloma, the Spanish official we met the week previous](#meeting-inma-and-paloma-the-spanish-official-in-madrid).
 - Inma tells me that Paloma said we are both in danger.
 - She also tells me that Paloma looked up *Vidal SASTRE SANCHEZ HORNERO* in the Generalitat databases and found no record of a man with that name.
@@ -641,48 +641,73 @@ function googleTranslateElementInit() {
 - Never mind what Paloma told us about the police in the region, Inma knows [I went to the police in Dénia](february.md#my-first-trip-to-the-spanish-police-in-denia) and they refused to take my name or record my visit, and [she came with me to report the matter in Madrid in March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid) when I was ignored again.
 - I'm obviously not going to call the police if the gangs try to murder me by poison, and Inma and Paloma know this very well.
 - In retrospect, it seems to me that, after [I wrote to everyone by hand](august.md#the-handwritten-letters), someone ordered my murder and everyone had to first make sure there'd be no serious repercussions, and once they were confident and certain that no-one would care if I was murdered - after a quick call to the Met maybe - they cast me off.
-- When I start writing this police statement in Thailand a few weeks later - after I survive [the poisoning attempt at my home](#serious-poisoning-with-intent-to-harm-or-kill) - and I build a website for it, Inma emails to ask me if I've built a website.
+- When I start writing this police statement in Thailand a few weeks later - after I survive [the poisoning attempt at my home](#serious-poisoning-with-intent-to-kill) - and I build a website for it, Inma emails to ask me if I've built a website.
 - I understand she's been told to contact me with this question.
 - I say yes.
 - She says Paloma told her it'll probably be shut down.
 - It wasn't, obviously, which told me that I am not entirely without friends.
 
-## Serious poisoning with intent to harm or kill
+## Serious poisoning with intent to kill
 
-- I arrive back in Dénia on 27th October.
-- The DANA hits the Valencian region.
-- On waking up on Monday 28th October, I have an inexplicable and excruciating headache at home which lasts a couple of days. 
+- I arrive back in Dénia on Sunday 27th October.
+- The storm that kills hundreds in the Valencian region, the DANA, has started.
+- As I'm driving along the coast, the weather becomes extremely stormy.
+- It feels like I'm racing to keep in front of the wind, or it will scoop me and the car up and carry us both off.
+- Somehow, the severity of the DANA passes over the Dénia area.
+- I arrive home, do a few things online, and go to bed.
+- On waking up on Monday 28th October, I have an inexplicable and excruciating headache which lasts a few days. 
+- It seems to be something to do with my duvet, so I eventually swap it for a thin blanket and the headache dissipates.
 - While sitting at my desk, on the Monday morning, drinking my coffee, I experience shooting nerve pains all over my face.
-- My kidneys start to really ache over the week; the dull aching gets worse and worse, left and right and starts that screaming pain thing.
+- Over the week, my kidneys start to ache more than they ever have.
+- The aching gets worse and worse; it's on both sides now, left and right, and always screaming at me.
+- I feel like I'm being poisoned.
+- It's difficult to know what to do.
 
 !!! info "Pain in kidneys"
-    - I have experienced pain like this (although not as intense) continuously while I'm in my flat in Dénia since, probably, January 2023.
-    - I can describe it as a dull backache at my kidney area on the right and left side that starts about midday and gets worse until I have to lie down for a bit.
+    - I have been experiencing this sort of kidney pain, although not as intense, continuously in my apartment in Dénia since January 2023, but likely from before too.
+    - I remember being unwell like this in Lindisfarne in July 2022, which means they had been accessing my bathroom products for far longer than I originally assumed.
+    - I'm guessing they need at least six months to properly brain-damage a person with poison.
+    - I can describe the feeling as a dull ache at my kidney area on the right and left side.
+    - In my spy-cam infested home, it would usually start around lunchtime, and get worse until I went to lie down for a bit!
+    - In January 2023, when they got the dose wrong and gave me rhabdo, I believe they caused serious injury to my right kidney.
+    - In October 2023, on Halloween, I believe they intended to cause me serious harm with anti-freeze in the water, and my right kidney took the hit then too.
+    - This week, I believe they intended to kill me outright.
 
-- My urine becomes extremely frothy and it was fine the week before in Fátima.
+- My urine becomes extremely frothy, every sitting, and it was fine the week before in Fátima.
 
 ![Frothy urine](../../content/images/frothy%20urine.png)
 
-- I really feel like I'm being poisoned over this week in my flat, and quite intensely too.
-- Someone wants me to get seriously sick and/or possibly die.
-- If my dad did not have an accident on the 1st of November, and I had to rush back to London, I believe that Domingo's family may have made good on their threats and killed me via poisoning.
-- I believe everyone knew this was planned and intended; the [angry man and his wife in his car as I'm leaving for Fátima](#fatima-20-26th-october), the [L'Amistat band](#vidal-sastre-sanchez-hornero-collects-a-generalitat-award-at-the-palau-darts-in-valencia) who may be offering some sort of alibi, even my bosses at [Polygon](#polygon-fires-the-whole-writing-team) who clearly only intended to fire me for dubious reasons.
-- How did everyone know? Is that part of the porn-soap-opera too? Did the audience have constant access to my home cameras and see people come in and interfere with my bathroom products?
-- I take some samples of water and items related to the air vents to London in the hope that the police will one day find things serious enough to investigate and I will have evidence for them to analyze.
-- There is another warning and condemnation about poisoning given via a fake account on Halloween night, the 1st November.
+- My eyesight has become extremely blurry and my eyes also ache.
+- I'm being poisoned, intensely, in my own home.
+- Someone is trying to kill me and I know who it is.
+- I'm only due to stay at home until 7 November. However, I end up having to leave sooner because my elderly father has a serious accident.
+- I believe if I had stayed the few days, I wouldn't have survived.
+- I also believe everyone was aware this was planned for me: the [angry man and his wife in his car as I'm leaving for Fátima](#fatima-20-26th-october), the [L'Amistat band](#vidal-sastre-sanchez-hornero-collects-a-generalitat-award-at-the-palau-darts-in-valencia) who were offering up a scapegoat; the founders at [Polygon](#polygon-fires-the-whole-writing-team), even [Paloma, the Spanish foreign-office representative](#meeting-inma-and-paloma-the-spanish-official-in-madrid). 
+- How did everyone know?
+- Is murder (snuff) a well known part of the Dénia porn-gang repertoire too?
+- Did the audience, and others, have constant access to the spy-cams in my home and witness people coming in and interfering with my belongings, food, water, and bathroom products?
+- When I leave, I take water samples and items related to the air vents to London for passing to law enforcement.
+- I see more warnings online about poisoning via fake accounts on Halloween night.
 
 ![doctor pic](../../content/images/doctor-1.png)
 ![doctor pic](../../content/images/doctor-2.png)
 
-- That day, Friday 1st November, in the afternoon, I'm certain I see Carmen Cano and the woman I have seen going in and out of number 18 leaving the building together. They smile at me as I walk by.
-- They were utterly unconcerned about being seen while they tampered with my water pipes or entered my apartment, and seemed to want me to see and hear them, smiling at me when I did, talking about me through the walls at night. 
+- On Friday 1st November, in the afternoon, I see Carmen Lopez Cano and [the woman I have seen going in and out of number 18 and constantly fiddling with the water mains pipes](#activity-in-the-nextdoor-apartment-number-18) leaving the building together just as I'm coming home.
+- Are they upping the dose because I just refuse to die for them?
+- They both smile at me as I walk by.
+- My eyesight is so damaged and blurry at this stage that I can hardly see anyone until they're right up close, but I would never mistake these two.
+
+### The upstairs neighbor
+
+- On the Monday evening I'm back in my apartment, the upstairs neighbor makes vomiting noises continually.
+- He's warning me about the pesticides and the poison.
 
 ### A small black plastic or rubber item
 
 - Somewhere in the house on the floor I see a little, black plastic item.
 - I can't figure out what it is. 
-- It looks a bit like lego, or a part from some bigger plastic item or machinery.
-- I'm wondering now if it was a part off some farming machinery that came in with them when they got the OK to murder me and doused all my belongings in pesticides over those few days while the router was down.
+- It looks a bit like lego, or a rubbery part from some larger item.
+- I'm wondering now if it was off some farming machinery that came in with them when they got the OK to murder me and doused all my belongings in pesticides over those few days while the router was down.
 - Or, I also thought that their sedating mechanisms might come in little remote control plastic boxes like these which you could bring in when your target was out, and leave somewhere they won't look, and then trigger from the next apartment when she's gone to bed.
 - But that might be a bit risky.
 

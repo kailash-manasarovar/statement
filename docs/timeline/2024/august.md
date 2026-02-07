@@ -147,7 +147,7 @@ function googleTranslateElementInit() {
 - I mention *Carmen* in some way to the hacker I'm communicating with at that moment - who I believe to be the trumpet teacher as usual.
 - There is a curt retort.
 - I believe now it was Carmen Cano I was conversing with at that time.
-- Seeing her prostate and humble in my mind's eye has been somewhat helpful, especially when I bump into [her and another woman coming out of my apartment building and smiling at me](october.md#serious-poisoning-with-intent-to-harm-or-kill) during an attempt at murdering me by poisoning at the end of October 2024.
+- Seeing her prostate and humble in my mind's eye has been somewhat helpful, especially when I bump into [her and another woman coming out of my apartment building and smiling at me](october.md#serious-poisoning-with-intent-to-kill) during an attempt at murdering me by poisoning at the end of October 2024.
 
 ### The trumpet teacher sends me photos of himself and his family
 
@@ -251,7 +251,7 @@ function googleTranslateElementInit() {
 - Could it be true?
 - There was a doctor from the hospital at the class before mine when they gave me rhabdo.
 - I suspect this is also a warning to me because that last week I lived in my apartment in Dénia, sorry porn studio, I was being seriously poisoned.
-- In fact, [they tried to murder me that week](october.md#serious-poisoning-with-intent-to-harm-or-kill) by poisoning my water, food, toiletries, everything.
+- In fact, [they tried to murder me that week](october.md#serious-poisoning-with-intent-to-kill) by poisoning my water, food, toiletries, everything.
 - They had also doused all my belongings in pesticides while I was away in Fátima.
 - The hacker says sorry again in a similar way, in July 2025, as I'm writing to Moorfields Eye Hospital to report deteriorating peripheral vision.
 

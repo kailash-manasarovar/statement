@@ -230,7 +230,7 @@ function googleTranslateElementInit() {
 - I don't see a reference saying anything like that online today.
 - More recently, I realize that they were creating cartoon animations of fellatio-porn with me starring while I was doing this.
 - I'm told the animations are professional and artistic; a quality service of sexual humiliation for their unique tech-bro-porn-addict subscribers hooked on the female-tech-colleague-you-hate genre.
-- When I am in Thailand in November 2024, having escaped a [murder attempt at home](october.md#serious-poisoning-with-intent-to-harm-or-kill), old white men walk towards me in the street and copy these very same head and mouth movements at me, and probably while filming my reaction too.
+- When I am in Thailand in November 2024, having escaped a [murder attempt at home](october.md#serious-poisoning-with-intent-to-kill), old white men walk towards me in the street and copy these very same head and mouth movements at me, and probably while filming my reaction too.
 
 ### Unusually lubricated
 

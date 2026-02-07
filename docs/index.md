@@ -59,7 +59,7 @@ The report details the following:
 - By the summer of 2024, the porn-gangs had finished with the *female tech-colleague you hate* porn genre, and were still drugging and stalking me continuously as they worked steadily towards my total destruction.
 - I was interviewed online in October 2024 by a fellow UK general election candidate. 
 - The video was made public on YouTube, where I stated I believed [I was being drugged and there were spy-cams in my apartment filming me](timeline/2024/october.md#youtube-with-kelly-oliver-dougall) and that I had been [targeted professionally at Polygon](timeline/2023/november.md#polygon) where I worked and I was about to take them to tribunal.
-- This was during the week I was supposed to die by poisoning with anti-freeze or similar, [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-harm-or-kill) and in my bathroom products.
+- This was during the week I was supposed to die by poisoning with anti-freeze or similar, [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-kill) and in my bathroom products.
 - The gangs were absolutely certain of my demise and their freedom to murder a woman without consequence.
 - One working day prior to the poisoning, [Polygon fires me](timeline/2024/october.md#polygon-fires-the-whole-writing-team).
 - I sustained an even more severe kidney injury (my kidneys had already suffered regular injury due to constant poisoning; see [rhabdo in January 2023](timeline/2023/january.md#serious-poisoning-at-chamber-music-class) and [kidney explosion at Halloween 2023](timeline/2023/october.md#halloween)) and my eyesight was severely affected. 

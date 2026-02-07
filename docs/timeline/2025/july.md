@@ -212,7 +212,7 @@
 - I'm walking in the mountains, like I do every year, and I simply can't see things on the left side.
 - Even the right side is different than before.
 - When I compare my sight to a year before in September when I was doing the same thing, it's obvious my eyes have suffered some serious harm.
-- I believe this eye problem comes from [poisoning in my apartment by my neighbors at Carrer Furs, and Carmen Cano and her associates in October 2024](../2024/october.md#serious-poisoning-with-intent-to-harm-or-kill).
+- I believe this eye problem comes from [poisoning in my apartment by my neighbors at Carrer Furs, and Carmen Cano and her associates in October 2024](../2024/october.md#serious-poisoning-with-intent-to-kill).
 - I mention the [appointment with Moorfields in March](march.md#moorfields-eye-hospital) and that I felt unconvinced by the results.
 - I mention the [diagnosis at Rutnin from November 2024](../2024/november.md#pre-glaucoma-diagnosis).
 - They are giving me the run around; they can't find my files now.

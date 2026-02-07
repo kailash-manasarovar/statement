@@ -97,7 +97,7 @@ function googleTranslateElementInit() {
 - The picture on the right was taken in September 2025, after at least three serious attempts at poisoning me with the intention of murder and/or severe maiming, all of which failed.
 
     - [Halloween 2023's exploding kidney](../2023/october.md#halloween).
-    - [Halloween 2024's intense poisoning at my apartment](../2024/october.md#serious-poisoning-with-intent-to-harm-or-kill).
+    - [Halloween 2024's intense poisoning at my apartment](../2024/october.md#serious-poisoning-with-intent-to-kill).
     - [July 2025's even more intense poisoning of my bathroom products and food supplies at Lourdes](../2025/july.md#lourdes).
 
 - Now, my situation is unlike anyone in the world you can imagine due, wholly, to how famous I am in the world of criminal-porn-subscribers.. 1 in 3, I'm told.

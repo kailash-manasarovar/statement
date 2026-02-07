@@ -70,7 +70,7 @@
 
 - On 18th September I visit my GP.
 - I speak to Dr Shirshana Davis.
-- I tell her I believe I was poisoned; low level and continuously over years at my apartment, and then twice maliciously with the intent to kill at the [end of October 2024](../2024/october.md#serious-poisoning-with-intent-to-harm-or-kill) and about [a month before in France](july.md#eyes-and-kidneys-again-and-heart-now-too) in July this year.
+- I tell her I believe I was poisoned; low level and continuously over years at my apartment, and then twice maliciously with the intent to kill at the [end of October 2024](../2024/october.md#serious-poisoning-with-intent-to-kill) and about [a month before in France](july.md#eyes-and-kidneys-again-and-heart-now-too) in July this year.
 - I also tell her that all my stuff was toxic when I brought it home from France in February this year as if it had been doused in pesticides or similar and it made me very unwell until I chucked it out or washed it multiple times.
 - I write a timeline of symptoms for her as it is so much to explain.
 
