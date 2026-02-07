@@ -645,7 +645,7 @@ function googleTranslateElementInit() {
 - I understand she's been told to contact me with this question.
 - I say yes.
 - She says Paloma told her it'll probably be shut down.
-- It wasn't, obviously.
+- It wasn't, obviously, which told me that I do have some friends, somewhere.
 
 ## A little black plastic box
 
