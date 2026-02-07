@@ -744,7 +744,7 @@ function googleTranslateElementInit() {
     - The police report I gave in 2006 and the half-hour video they took of me.
     - The incongruous sexism of the detective.
     - The second report I gave 10 years later, how they arrested one of the gang - the ringleader [Winston May](june.md#winston-may), and how the CPS eventually dropped it.
-    - Suicidal depression and intense anxiety (which in retrospect didn't make sense - it didn't happen in 2006. It turns out it was because other similar things had been happening to me sedated without my knowledge in Dénia).
+    - Suicidal depression and intense anxiety (which in retrospect didn't make sense, it didn't happen in 2006. It turns out it was because other similar things had been happening to me sedated without my knowledge in Dénia).
     - Not being able to get involved in relationships, politics, or community because of these reactions.
     - How I joined Childline in 2020 and found out about the cult of trans being forced onto children.
     - How I was still in a suicidal depression in July 2022 when I first went to LWS in London and couldn't speak to people.
@@ -777,7 +777,7 @@ function googleTranslateElementInit() {
 - When I write this section in February 2026, I'm astonished this video was taken during the week the porn-gangs tried to murder me by poison, the week after they doused all my belongings in pesticides.
 - I thought we had made the interview before they tried to kill me, while I was still working at Polygon.
 - I thought that this video was the *motivation* for murder by poison in my apartment. It wasn't.
-- The true motivation for murder was that I had multiple photos and videos of the trumpet-teacher switcheroo team - the four men pretending to be one man - and they knew that at some point I'd realize they were different people.
+- The true motivation for murder was that I had multiple photos and videos of the trumpet-teacher switcheroo team - the four men pretending to be one man - and they knew that at some point I'd realize they were different people and tell everyone.
 - In November when Kelly publishes the video online, I send it to my landlady Beatriz on WhatsApp.
 - She *slow claps* back.
 
