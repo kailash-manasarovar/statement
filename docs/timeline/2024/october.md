@@ -729,9 +729,7 @@ function googleTranslateElementInit() {
 
 ## YouTube with Kelly Oliver Dougall
 
-### Wednesday 30th October
-
-- Kelly Oliver Dougall, a woman who also stood for the Party Of Women at the General Election, interviews me for a YouTube video.
+- On Wednesday 30th October, Kelly Oliver Dougall, a woman who also stood for the Party Of Women at the General Election, interviews me for a YouTube video.
 
 [![Youtube video with Kelly Dougall](../../content/images/kelly-od-youtube.png)](https://www.youtube.com/watch?v=VIYsj4OgiYA)
 
@@ -779,7 +777,7 @@ function googleTranslateElementInit() {
 - When I write this section in February 2026, I'm astonished this video was taken during the week the porn-gangs tried to murder me by poison, the week after they doused all my belongings in pesticides.
 - I thought we had made the interview before they tried to kill me, while I was still working at Polygon.
 - I thought that this video was the *motivation* for murder by poison in my apartment. It wasn't.
-- The true motivation for murder was that I had multiple pictures of the trumpet-teacher switcheroo team, the four men pretending to be the one same man, and they knew that at some point I'd realize they were different people.
+- The true motivation for murder was that I had multiple photos and videos of the trumpet-teacher switcheroo team - the four men pretending to be one man - and they knew that at some point I'd realize they were different people.
 - In November when Kelly publishes the video online, I send it to my landlady Beatriz on WhatsApp.
 - She *slow claps* back.
 
