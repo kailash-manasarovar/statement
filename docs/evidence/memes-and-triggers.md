@@ -71,6 +71,7 @@ function googleTranslateElementInit() {
 ### Police documentary
 
 - While I was suicidally depressed in India in 2016 after leaving Dénia, I *stumbled across* a documentary about a woman who had rejoined the police and was undercover filming her male colleagues' appalling behavior.
+- I [wrote about this already](../timeline/early-years/2016.md#asia), then forgot I had.
 - We see two male police officers snickering over a video clip on a WhatsApp group on their phones.
 - They tell the female police officer they're looking at a naked woman running around a field somewhere after a horse.
 - I was horrified. 
@@ -79,15 +80,16 @@ function googleTranslateElementInit() {
 - When the more pernicious online stalking started, just after I moved back to Dénia in 2022, I once mentioned this video in an X post which I have yet to find.
 - Immediately, a fake account replies with the exact film clip, show name, URL even, saying, *Is this the one?*.
 - I reply *yes*, or similar.
-- I now believe that this response came from Hazel, and either herself or her associates had begun the horse meme trigger all the way back in 2016.
+- I now believe that this response came from Hazel & co, and either herself or her associates had begun the horse meme trigger all the way back in 2016.
+- The account has magically re-appeared with a new name: `@KimKarlstein`, and I have to wonder if they're goading the police with this name.
 - I believe the horse meme is 100% related to naked women running around a field after a horse, and I believe this field to be in the Marina Alta region.
 - I believe I was shown this video in 2016 so that I would shockingly remember seeing it while I was doing the same thing once the switcheroo porn show was over and I was handed over to the sickest pornographers of all for the animal-show training.
-- I only remember this as significant once the drugging has stopped for a long period and I have remembered the [switcheroo conspiracy](../timeline/2025/october.md#thunderbolt-clarity).
+- I only remember this as significant once the drugging had stopped for a long period and after I figured out the [switcheroo conspiracy](../timeline/2025/october.md#thunderbolt-clarity).
 
 ![Remembering the horse meme](../content/tweets/remembering-the-horse-meme.jpg)
 
 - The fact that I cannot find this tweet, or the reply to it coming from a stalker account, suggests collusion from backend X developers.
-- This is a tweet they would definitely not want me to screenshot.
+- This is a tweet I would hope they would definitely not want me to screenshot; or maybe they are so protected, so safe and confident, they are already planning on coming into your kids school.. SOON!
 
 ### Samuel is a dark horse
 
