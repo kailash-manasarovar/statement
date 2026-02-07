@@ -710,18 +710,19 @@ function googleTranslateElementInit() {
 - I can't figure out what it is. 
 - It looks like a bit of lego, or a part that fell off some larger object; like the rubber feet on kitchen chairs might.
 - I'm wondering now if the item was from farming machinery that they used in my apartment to douse all my belongings with pesticides.
-- Or, I also wondered if their remote-control sedating mechanisms might come in little plastic boxes like these which you could get the conspiring neighbor to leave under a victim's bed just before they came home and was this a remnant.
+- Or, I also wondered if their remote-control sedating mechanisms might come in little plastic boxes like these which you could get the conspiring neighbor to leave under a victim's bed just before they come home.
 - I guess thousands do know what it was; and maybe even saw it come off.
 
 ### Mary breaks
 
-- On one evening, I had my little statue of Mary in my hand, and it was if she jumped out and onto the floor, smashing into pieces.
+- On one evening, I had my little statue of Mary from Lourdes in my hand, and it was if she jumped out and onto the floor, smashing into pieces.
 - A sign, but not for me.
 
-### Couple in hotel room
+### Couple filmed by hotel room spy-cam
 
 - I start seeing really concerning and obvious spy-cam photography on fake accounts.
 - These are views of people in hotels rooms.
+- It seems like the cameras are installed high up in a corner of the room so they have a full view.
 - I see a young Spanish-looking couple lying down together on the bed about to have sex.
 - I know it is a hotel room, as the furniture is sparse and the hotel style is very familiar to me.
 - Someone is telling me everything that the porn-gangs of Spain are doing freely and with no fear of getting caught.
