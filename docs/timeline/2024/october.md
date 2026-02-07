@@ -632,20 +632,20 @@ function googleTranslateElementInit() {
 - Neither Inma nor I knew that, on the very day we met Paloma, someone with the name Vidal SASTRE SANCHEZ HORNERO was [picking up a Generalitat-funded prize at the Palau de Arts in Valencia](#vidal-sastre-sanchez-hornero-collects-a-generalitat-award-at-the-palau-darts-in-valencia).
 - If Paloma knew about that, she didn't think I'd ever find out.
 - Inma then tells me that Paloma did speak to her sister in La Sella, as she said she was going to and yes, indeed, everyone in Dénia knows who I am, and not in a good way.
-- She does not elaborate on that apart from suggesting, without details, that everyone finds me horribly offensive.
+- She does not elaborate on that apart from suggesting, without details, that everyone finds me horribly offensive... (is that the townsfolk's coping mechanism for any foreigner targeted for sedated spy-cam porn).
 - I remind Inma that the gangs [shutdown my security-cam](#the-router-malfunctions) while I was away and must have done so to gain access to my apartment.
 - I tell Inma I'm extremely concerned for my safety in Dénia.
 - I ask her what am I going to do if they try to murder me by poison when I get home.
 - Inma says, strangely, that I should call the police.
 - I'm a little shocked at her reply.
-- Never mind what Paloma told us about the police in the region, Inma knows I went to the police and was ignored in Dénia, and [she came with me to report the matter in Madrid in March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid) when I was ignored for the second time.
-- I'm obviously not going to call the police if they try to murder me by poison, and Inma and Paloma know this very well.
-- In retrospect, it seems to me that, after [I wrote to everyone by hand](august.md#the-handwritten-letters), someone ordered my murder and everyone had to first make sure there'd be no serious repercussions, and once they were confident about that, and certain that no-one would help me if I was murdered - after a quick call to the Met maybe - they cast me off.
-- When I start writing this police statement in Thailand a few weeks later - after I survive [the poisoning attempt at my home](#serious-poisoning-with-intent-to-harm-or-kill) - and I build a website for it, Inma reaches out to ask me if I've built a website.
+- Never mind what Paloma told us about the police in the region, Inma knows [I went to the police in Dénia](february.md#my-first-trip-to-the-spanish-police-in-denia) and they refused to take my name or record my visit, and [she came with me to report the matter in Madrid in March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid) when I was ignored again.
+- I'm obviously not going to call the police if the gangs try to murder me by poison, and Inma and Paloma know this very well.
+- In retrospect, it seems to me that, after [I wrote to everyone by hand](august.md#the-handwritten-letters), someone ordered my murder and everyone had to first make sure there'd be no serious repercussions, and once they were confident and certain that no-one would care if I was murdered - after a quick call to the Met maybe - they cast me off.
+- When I start writing this police statement in Thailand a few weeks later - after I survive [the poisoning attempt at my home](#serious-poisoning-with-intent-to-harm-or-kill) - and I build a website for it, Inma emails to ask me if I've built a website.
 - I understand she's been told to contact me with this question.
 - I say yes.
 - She says Paloma told her it'll probably be shut down.
-- It wasn't.
+- It wasn't, obviously.
 
 ## A little black plastic box
 
