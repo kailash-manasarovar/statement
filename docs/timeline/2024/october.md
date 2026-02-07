@@ -613,30 +613,39 @@ function googleTranslateElementInit() {
 [![Award for the band of merry perverts](../../content/images/hornero/newspaper.png)](https://www.levante-emv.com/horta/2024/10/21/amistat-quart-de-poblet-mejor-banda-comunitat-valenciana-109945426.html)
 
 - It's not clear which of the men in the photo is Vidal Sastre Sanchez Hornero.
-- It's possible that the man standing to the centre-right of the other five is [the first trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) from the switcheroo porn special, the man I still have good feelings for.
+- It's possible that the man standing at the centre-right of the other five is [the first trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) from the switcheroo porn special, the man I still have good feelings for.
 - If so, then one of the other men must be Vidal Sastre Sanchez Hornero, unless the name is a fake name and *only* exists to support the mass grooming of students in the conservatory system.
 - Does this award ceremony and publicity ensure that the first man will take the blame for it all, brain-damaged students remembering him alone, in the absence of the others, as the teacher they fell in love with?
 
-## Inma again in Madrid
+## Visiting Inma again in Madrid
 
-- On my way home from Fátima, I stop in Madrid and see [Inma again](../2024/march/13-end.md#madrid) on Sunday 26th October.
-- As I'm driving into Madrid, the same lethal Google maps app hack fires up.
-- They're trying to make me crash the car.
-- I meet Inma and ask her what [Paloma the Spanish official](#meeting-inma-and-paloma-the-spanish-official-in-madrid) has said.
-- She tells me Paloma thinks we are both in danger.
-- She also tells me that Paloma had looked up *Vidal SASTRE SANCHEZ HORNERO* in the Generalitat systems and found no record of a man with that name.
-- When I hear that I know I'm being fobbed off.
-- Outrageously - I wasn't to know until a lot later - two days before, someone with the name Vidal SASTRE SANCHEZ HORNERO was [picking up a Generalitat-funded prize at the Palau de Arts in Valencia](../../crimes/protagonists/vidal-sastre.md#the-lamistat-quart-band).
-- Inma then tells me that Paloma did speak to her sister in La Sella as she said she would and yes, indeed, everyone in Denia knows who I am and not in a good way.
-- She does not elaborate on that apart from a suggestion that everyone found me horribly offensive.
-- I tell her they [shutdown my security-cam](#the-router-malfunctions) while I was away and they must have been coming into my apartment.
-- I'm concerned for my safety.
+- On my way back from Fátima, I stop in Madrid for the night.
+- As I'm driving into Madrid, the same Google maps hack fires up that they've been using on me for years.
+- Except, instead of just inconveniencing me, they're trying to make me crash the car.
+- I text a friend in Finchley & Golders Green about that, while it's happening. 
+- She's worried about me and tells me to come home.
+- I arrive in Madrid and meet with Inma on Sunday 26th October.
+- She has updates from [Paloma, the Spanish official we met the week previous](#meeting-inma-and-paloma-the-spanish-official-in-madrid).
+- Inma tells me that Paloma said we are both in danger.
+- She also tells me that Paloma looked up *Vidal SASTRE SANCHEZ HORNERO* in the Generalitat databases and found no record of a man with that name.
+- When I hear that I know for sure Paloma is not going to help me.
+- Neither Inma nor I knew that, on the very day we met Paloma, someone with the name Vidal SASTRE SANCHEZ HORNERO was [picking up a Generalitat-funded prize at the Palau de Arts in Valencia](#vidal-sastre-sanchez-hornero-collects-a-generalitat-award-at-the-palau-darts-in-valencia).
+- If Paloma knew about that, she didn't think I'd ever find out.
+- Inma then tells me that Paloma did speak to her sister in La Sella, as she said she was going to and yes, indeed, everyone in Dénia knows who I am, and not in a good way.
+- She does not elaborate on that apart from suggesting, without details, that everyone finds me horribly offensive.
+- I remind Inma that the gangs [shutdown my security-cam](#the-router-malfunctions) while I was away and must have done so to gain access to my apartment.
+- I tell Inma I'm extremely concerned for my safety in Dénia.
 - I ask her what am I going to do if they try to murder me by poison when I get home.
-- She says, strangely, I should call the police.
-- Never mind what Paloma told us about the police in the region, Inma knows I went to the police and was ignored, [she came with me in Madrid in March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
-- I'm obviously not going to call the police if they try to murder me by poison, and Inma and Paloma know it.
-- They decided to throw me to the wolves. Like everyone else.
-- When I start writing this police statement in Thailand and build a website for it, Inma reaches out to ask me if I've built a website. I say yes. She says Paloma told her it'll probably be shut down.
+- Inma says, strangely, that I should call the police.
+- I'm a little shocked at her reply.
+- Never mind what Paloma told us about the police in the region, Inma knows I went to the police and was ignored in Dénia, and [she came with me to report the matter in Madrid in March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid) when I was ignored for the second time.
+- I'm obviously not going to call the police if they try to murder me by poison, and Inma and Paloma know this very well.
+- In retrospect, it seems to me that, after [I wrote to everyone by hand](august.md#the-handwritten-letters), someone ordered my murder and everyone had to first make sure there'd be no serious repercussions, and once they were confident about that, and certain that no-one would help me if I was murdered - after a quick call to the Met maybe - they cast me off.
+- When I start writing this police statement in Thailand a few weeks later - after I survive [the poisoning attempt at my home](#serious-poisoning-with-intent-to-harm-or-kill) - and I build a website for it, Inma reaches out to ask me if I've built a website.
+- I understand she's been told to contact me with this question.
+- I say yes.
+- She says Paloma told her it'll probably be shut down.
+- It wasn't.
 
 ## A little black plastic box
 
