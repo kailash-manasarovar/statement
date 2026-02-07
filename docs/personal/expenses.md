@@ -51,7 +51,7 @@ So there has been no safe place to go and I have had to stay in hotels a lot ins
 ### October 2024
 
 - 19th to 20th  | NH Alcorcon                   | 127.60
-- 20th to 26th  | Mercure Fatima                | 658.34
+- 20th to 26th  | Mercure Fátima                | 658.34
 - 26th to 27th  | Ibis Getafe Madrid            | 107.20
 
 ### November/December 2024

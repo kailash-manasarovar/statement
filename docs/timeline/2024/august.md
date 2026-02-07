@@ -240,8 +240,8 @@ function googleTranslateElementInit() {
 - I start to think about my state of mind in general over the last two years.
 - It's all becoming clear to me, finally; at least the drugging and poisoning is.
 - On November 1st 2024, when I'm back in Dénia, the hacker uses a fake account to tell me something about this.
-- I was back home from Fatima, where [I had just been fired egregiously from my job at Polygon](october.md#polygon-fires-the-whole-writing-team).
-- A fake account with the name *Fatima* pops up with the word "medico" - doctor in Spanish.
+- I was back home from Fátima, where [I had just been fired egregiously from my job at Polygon](october.md#polygon-fires-the-whole-writing-team).
+- A fake account with the name *Fátima* pops up with the word "medico" - doctor in Spanish.
 - I'm triggered to translate the profile message.
 
 ![doctor pic](../../content/images/doctor-1.png)
@@ -252,7 +252,7 @@ function googleTranslateElementInit() {
 - There was a doctor from the hospital at the class before mine when they gave me rhabdo.
 - I suspect this is also a warning to me because that last week I lived in my apartment in Dénia, sorry porn studio, I was being seriously poisoned.
 - In fact, [they tried to murder me that week](october.md#serious-poisoning-with-intent-to-harm-or-kill) by poisoning my water, food, toiletries, everything.
-- They had also doused all my belongings in pesticides while I was away in Fatima.
+- They had also doused all my belongings in pesticides while I was away in Fátima.
 - The hacker says sorry again in a similar way, in July 2025, as I'm writing to Moorfields Eye Hospital to report deteriorating peripheral vision.
 
 ![Hacker says sorry](../../content/images/hacker-says-sorry.jpg)

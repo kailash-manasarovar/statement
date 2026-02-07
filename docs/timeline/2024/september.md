@@ -239,7 +239,7 @@ function googleTranslateElementInit() {
 - She asks when I'm going to be back in Madrid.
 - I tell her I'll be back on my way home to Dénia in about a week, as I'm going to my Transforming Touch therapy course in Dublin and flying from Madrid.
 - She says it's too soon.
-- I tell her I'm coming through again on my way to Fatima in mid-to-late October.
+- I tell her I'm coming through again on my way to Fátima in mid-to-late October.
 - Inma says that will probably work; she'll let me know and confirm.
 - Themes from our conversation are repeated back to me on X account profiles when I get back to my hotel.
 
@@ -454,7 +454,7 @@ function googleTranslateElementInit() {
 ## Driving back to Dénia
 
 - After Transforming Touch in Dublin, I fly back to Madrid, meet Inma briefly, and then drive back down to Dénia and home in Carrer Furs.
-- Inma tells me that the woman she knows will visit Madrid in about three weeks to meet me when I stop on my drive to Fatima.
+- Inma tells me that the woman she knows will visit Madrid in about three weeks to meet me when I stop on my drive to Fátima.
 - On my way home, driving through the countryside, I suddenly remember something peculiar about the hotel I stayed in on the March morning in 2014 when [Mike Wenham's wife emails everyone to ask for help because he's been arrested for murder](../early-years/2014.md#mike-wenham-murders-a-woman).
 
 ### Remembering the woman in the picture with the scissors

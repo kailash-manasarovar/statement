@@ -28,7 +28,7 @@ function googleTranslateElementInit() {
 - *The poison prepared by my own family*, to me, points to the Lopez-Canos, including Carmen Cano who will pass me when leaving my apartment building at the end of this month, and smile at me.
 - Over the month I see numerous messages about my strength; *you're really strong*, I read regularly. 
 - Towards the end of the month, these messages become even more frequent.
-- This is when I'm back from [Fatima](#fatima-20-26th-october) and the poison I'm ingesting is worse, and they have also doused all my belongings in pesticides. 
+- This is when I'm back from [Fátima](#fatima-20-26th-october) and the poison I'm ingesting is worse, and they have also doused all my belongings in pesticides. 
 - I'm certain the intention is murder.
 - At the time, I'm so high it's difficult to think straight about anything, but I do wonder how other porn-gang targets have fared over the decades if the gangs consider me a strong person.
 
@@ -443,9 +443,9 @@ function googleTranslateElementInit() {
 - He'll be in the LinguaLogic records and I'd recognize him in an instant.
 - I'm guessing at this stage everyone in the town expected me to be dead within weeks so they were getting in quick while they could.
 
-## Driving to Madrid on my way to Fatima
+## Driving to Madrid on my way to Fátima
 
-- I head to Madrid on 19th October to stay one night before traveling on to Fatima in Portugal.
+- I head to Madrid on 19th October to stay one night before traveling on to Fátima in Portugal.
 - I need to be away from Dénia as much as possible for my nervous system, and Mary always helps my nervous system.
 
 !!! warning "Why didn't you leave Dénia?"
@@ -534,12 +534,12 @@ function googleTranslateElementInit() {
 - Over the next few weeks, I see fake accounts fly-by online with names like *dubious government official*, and similar.
 - They know.
 
-## Fatima 20-26th October
+## Fátima 20-26th October
 
-- I arrive in Fatima on the evening of the 20th and stay at the Mercure.
+- I arrive in Fátima on the evening of the 20th and stay at the Mercure.
 - Even though I have blocked my iPhone camera from hackers, I see photos of fake accounts of items in my hotel room. 
 - I realize that only the camera facing me is blocked, not the one looking out.
-- The week I'm in Fatima the online stalking is fever-pitched and relentless.
+- The week I'm in Fátima the online stalking is fever-pitched and relentless.
 - I remain high and in retrospect I'm sure I was being topped-up with something I had brought with me from my home in Dénia.
 
 ### The router malfunctions
@@ -633,7 +633,7 @@ function googleTranslateElementInit() {
 - If Paloma knew about that, she didn't think I'd ever find out.
 - Inma then tells me that Paloma did speak to her sister in La Sella, as she said she was going to and yes, indeed, everyone in Dénia knows who I am, and not in a good way.
 - She does not elaborate on that apart from suggesting, without details, that everyone finds me horribly offensive... (is that the townsfolk's coping mechanism for any foreigner targeted for sedated spy-cam porn).
-- I remind Inma that the gangs [shutdown my security-cam](#the-router-malfunctions) while I was away and must have done so to gain access to my apartment.
+- I remind Inma that the gangs [shutdown my security-cam](#the-router-malfunctions) while I was away and must have done so to gain unfettered access to my apartment.
 - I tell Inma I'm extremely concerned for my safety in Dénia.
 - I ask her what am I going to do if they try to murder me by poison when I get home.
 - Inma says, strangely, that I should call the police.
@@ -675,14 +675,14 @@ function googleTranslateElementInit() {
     - I have experienced pain like this (although not as intense) continuously while I'm in my flat in Dénia since, probably, January 2023.
     - I can describe it as a dull backache at my kidney area on the right and left side that starts about midday and gets worse until I have to lie down for a bit.
 
-- My urine becomes extremely frothy and it was fine the week before in Fatima.
+- My urine becomes extremely frothy and it was fine the week before in Fátima.
 
 ![Frothy urine](../../content/images/frothy%20urine.png)
 
 - I really feel like I'm being poisoned over this week in my flat, and quite intensely too.
 - Someone wants me to get seriously sick and/or possibly die.
 - If my dad did not have an accident on the 1st of November, and I had to rush back to London, I believe that Domingo's family may have made good on their threats and killed me via poisoning.
-- I believe everyone knew this was planned and intended; the [angry man and his wife in his car as I'm leaving for Fatima](#fatima-20-26th-october), the [L'Amistat band](#vidal-sastre-sanchez-hornero-collects-a-generalitat-award-at-the-palau-darts-in-valencia) who may be offering some sort of alibi, even my bosses at [Polygon](#polygon-fires-the-whole-writing-team) who clearly only intended to fire me for dubious reasons.
+- I believe everyone knew this was planned and intended; the [angry man and his wife in his car as I'm leaving for Fátima](#fatima-20-26th-october), the [L'Amistat band](#vidal-sastre-sanchez-hornero-collects-a-generalitat-award-at-the-palau-darts-in-valencia) who may be offering some sort of alibi, even my bosses at [Polygon](#polygon-fires-the-whole-writing-team) who clearly only intended to fire me for dubious reasons.
 - How did everyone know? Is that part of the porn-soap-opera too? Did the audience have constant access to my home cameras and see people come in and interfere with my bathroom products?
 - I take some samples of water and items related to the air vents to London in the hope that the police will one day find things serious enough to investigate and I will have evidence for them to analyze.
 - There is another warning and condemnation about poisoning given via a fake account on Halloween night, the 1st November.
