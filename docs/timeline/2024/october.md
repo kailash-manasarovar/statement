@@ -647,22 +647,6 @@ function googleTranslateElementInit() {
 - She says Paloma told her it'll probably be shut down.
 - It wasn't, obviously, which told me that I am not entirely without friends.
 
-## A little black plastic box
-
-- Somewhere in the house on the floor I see a little, black plastic item.
-- I can't figure out what it is. 
-- It looks a bit like lego, or a part from some bigger plastic item or machinery.
-- I'm wondering now if it was a part off some farming machinery that came in with them when they got the OK to murder me and doused all my belongings in pesticides over those few days while the router was down.
-- Or, I also thought that their sedating mechanisms might come in little remote control plastic boxes like these which you could bring in when your target was out, and leave somewhere they won't look, and then trigger from the next apartment when she's gone to bed.
-- But that might be a bit risky.
-
-## Couple in hotel room
-
-- Fake accounts post profile pics of couples in hotels rooms.
-- I see a young Spanish couple lying down together.
-- I know it is a hotel room as the furniture is sparse and the hotel style is very familiar to me.
-- I'll see if I can dig this up.
-
 ## Serious poisoning with intent to harm or kill
 
 - I arrive back in Dénia on 27th October.
@@ -693,10 +677,26 @@ function googleTranslateElementInit() {
 - That day, Friday 1st November, in the afternoon, I'm certain I see Carmen Cano and the woman I have seen going in and out of number 18 leaving the building together. They smile at me as I walk by.
 - They were utterly unconcerned about being seen while they tampered with my water pipes or entered my apartment, and seemed to want me to see and hear them, smiling at me when I did, talking about me through the walls at night. 
 
+### A small black plastic or rubber item
+
+- Somewhere in the house on the floor I see a little, black plastic item.
+- I can't figure out what it is. 
+- It looks a bit like lego, or a part from some bigger plastic item or machinery.
+- I'm wondering now if it was a part off some farming machinery that came in with them when they got the OK to murder me and doused all my belongings in pesticides over those few days while the router was down.
+- Or, I also thought that their sedating mechanisms might come in little remote control plastic boxes like these which you could bring in when your target was out, and leave somewhere they won't look, and then trigger from the next apartment when she's gone to bed.
+- But that might be a bit risky.
+
 ### Mary breaks
 
 - On one evening over these few days before I left for London, I had my little statue of Mary in my hand and it was if she jumped out and onto the floor, smashing into pieces.
 - A sign, but not for me.
+
+### Couple in hotel room
+
+- Fake accounts post profile pics of couples in hotels rooms.
+- I see a young Spanish couple lying down together.
+- I know it is a hotel room as the furniture is sparse and the hotel style is very familiar to me.
+- Someone is telling me everything that the porn-gangs of Spain are free to do without consequence.
 
 ## YouTube with Kelly Oliver Dougall
 
