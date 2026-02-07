@@ -669,7 +669,7 @@ function googleTranslateElementInit() {
     - I'm guessing they need at least six months to properly brain-damage a person with poison.
     - I can describe the feeling as a dull ache at my kidney area on the right and left side.
     - In my spy-cam infested home, it would usually start around lunchtime, and get worse until I went to lie down for a bit!
-    - In January 2023, when they got the dose wrong and gave me rhabdo, I believe they caused serious injury to my right kidney.
+    - In January 2023, when they got the dose wrong and gave me rhabdo at music class, I believe they caused serious injury to my right kidney.
     - In October 2023, on Halloween, I believe they intended to cause me serious harm with anti-freeze in the water, and my right kidney took the hit then too.
     - This week, I believe they intended to kill me outright.
 
@@ -681,11 +681,11 @@ function googleTranslateElementInit() {
 - I'm being poisoned, intensely, in my own home.
 - Someone is trying to kill me and I know who it is.
 - I'm only due to stay at home until 7 November. However, I end up having to leave sooner because my elderly father has a serious accident.
-- I believe if I had stayed the few days, I wouldn't have survived.
+- I believe if I had stayed the few extra days, I wouldn't have survived.
 - I also believe everyone was aware this was planned for me: the [angry man and his wife in his car as I'm leaving for Fátima](#fatima-20-26th-october), the [L'Amistat band](#vidal-sastre-sanchez-hornero-collects-a-generalitat-award-at-the-palau-darts-in-valencia) who were offering up a scapegoat; the founders at [Polygon](#polygon-fires-the-whole-writing-team), even [Paloma, the Spanish foreign-office representative](#meeting-inma-and-paloma-the-spanish-official-in-madrid). 
 - How did everyone know?
 - Is murder (snuff) a well known part of the Dénia porn-gang repertoire too?
-- Did the audience, and others, have constant access to the spy-cams in my home and witness people coming in and interfering with my belongings, food, water, and bathroom products?
+- Did the audience, and others, have constant access to the spy-cams in my home and, as well as the sex-offending, witness people coming in and interfering with my belongings, food, water, and bathroom products?
 - When I leave, I take water samples and items related to the air vents to London for passing to law enforcement.
 - I see more warnings online about poisoning via fake accounts on Halloween night.
 
@@ -699,29 +699,32 @@ function googleTranslateElementInit() {
 
 ### The upstairs neighbor
 
-- On the Monday evening I'm back in my apartment, the upstairs neighbor makes vomiting noises continually.
+- On the Monday evening I'm back in my apartment, the upstairs neighbor makes loud vomiting noises continually.
+- It's an act, he's not sick.
 - He's warning me about the pesticides and the poison.
+- He doesn't want me to die, but he'll be in danger if he formally helps me.
 
 ### A small black plastic or rubber item
 
-- Somewhere in the house on the floor I see a little, black plastic item.
+- Somewhere in the house on the floor I find a small black plastic or strong-rubber item.
 - I can't figure out what it is. 
-- It looks a bit like lego, or a rubbery part from some larger item.
-- I'm wondering now if it was off some farming machinery that came in with them when they got the OK to murder me and doused all my belongings in pesticides over those few days while the router was down.
-- Or, I also thought that their sedating mechanisms might come in little remote control plastic boxes like these which you could bring in when your target was out, and leave somewhere they won't look, and then trigger from the next apartment when she's gone to bed.
-- But that might be a bit risky.
+- It looks like a bit of lego, or a part that fell off some larger object; like the rubber feet on kitchen chairs might.
+- I'm wondering now if the item was from farming machinery that they used in my apartment to douse all my belongings with pesticides.
+- Or, I also wondered if their remote-control sedating mechanisms might come in little plastic boxes like these which you could get the conspiring neighbor to leave under a victim's bed just before they came home and was this a remnant.
+- I guess thousands do know what it was; and maybe even saw it come off.
 
 ### Mary breaks
 
-- On one evening over these few days before I left for London, I had my little statue of Mary in my hand and it was if she jumped out and onto the floor, smashing into pieces.
+- On one evening, I had my little statue of Mary in my hand, and it was if she jumped out and onto the floor, smashing into pieces.
 - A sign, but not for me.
 
 ### Couple in hotel room
 
-- Fake accounts post profile pics of couples in hotels rooms.
-- I see a young Spanish couple lying down together.
-- I know it is a hotel room as the furniture is sparse and the hotel style is very familiar to me.
-- Someone is telling me everything that the porn-gangs of Spain are free to do without consequence.
+- I start seeing really concerning and obvious spy-cam photography on fake accounts.
+- These are views of people in hotels rooms.
+- I see a young Spanish-looking couple lying down together on the bed about to have sex.
+- I know it is a hotel room, as the furniture is sparse and the hotel style is very familiar to me.
+- Someone is telling me everything that the porn-gangs of Spain are doing freely and with no fear of getting caught.
 
 ## YouTube with Kelly Oliver Dougall
 
