@@ -715,7 +715,7 @@ function googleTranslateElementInit() {
 
 ### Mary breaks
 
-- On one evening, I had my little statue of Mary from Lourdes in my hand, and it was if she jumped out and onto the floor, smashing into pieces.
+- One evening this week, I had my little statue of Mary from Lourdes in my hand, and it was if she jumped out and onto the floor, smashing into pieces.
 - A sign, but not for me.
 
 ### Couple filmed by hotel room spy-cam
@@ -742,15 +742,15 @@ function googleTranslateElementInit() {
     - Being targeted by North London rape-gangs in 1989 when I was 16.
     - How I was sedated for most of what happened to me then, so I had no memory of it, but it was obviously brutal due to the intensity of the PTSD.
     - How my PTSD reaction made me a pariah in my social group afterwards.
-    - How PTSD took my life from me.
+    - How PTSD took 35-years of my life from me.
     - The police report I gave in 2006 and the half-hour video they took of me.
     - The incongruous sexism of the detective.
-    - The second report I gave 10 years later, how they arrested one of the gang, and how the CPS eventually dropped it.
+    - The second report I gave 10 years later, how they arrested one of the gang - the ringleader [Winston May](june.md#winston-may), and how the CPS eventually dropped it.
     - Suicidal depression and intense anxiety (which in retrospect didn't make sense - it didn't happen in 2006. It turns out it was because other similar things had been happening to me sedated without my knowledge in Dénia).
     - Not being able to get involved in relationships, politics, or community because of these reactions.
     - How I joined Childline in 2020 and found out about the cult of trans being forced onto children.
     - How I was still in a suicidal depression in July 2022 when I first went to LWS in London and couldn't speak to people.
-    - How I'm completely healed of depression and anxiety...
+    - How I am now completely healed of depression and anxiety... (she didn't believe it possible).
     - I talk about the porn gangs of Dénia and how they've been drugging me.
     - How the porn gangs hacked my devices and took sensitive and sexual photos and videos of me.
     - How I told my story in Madrid at Let Women Speak (I say April, it's May) and recognizing I was out of my mind at that time (a week before the Polygon offsite in Bali).
@@ -761,9 +761,9 @@ function googleTranslateElementInit() {
     - I tell her about Ajay's teams military coup on my role.
     - I explain the sexual threats at dinner in Bali (I do not make the Jitendra Das connection at this stage, or that the man's actions at the dinner table may have imitated something very evil that happened to me in my apartment while I was sedated on Wednesday 13th March after which I was certain I was going to be murdered).
     - I tell her about Hans's outrageous behavior.
-    - I tell her I've started a claim for harassment with Head of Legal at Polygon.
-    - I tell her they fired me the Friday before.
-    - I tell her I'm looking for a lawyer.
+    - I tell her how I started a claim for harassment with Head of Legal at Polygon.
+    - And how they fired me the Friday before.
+    - I tell her I'm looking for a lawyer to help me with a claim for unfair dismissal and harassment.
     - She asks me what's next, I tell her I'm going to Thailand.
     - I tell her I feel in danger and that the whole town of Dénia hates me.
     - I explain I have to wear my camera even just going to the post office.
@@ -894,7 +894,7 @@ Looks like a minor. |
 | ![pic]( ../../content/images/targeted-women/oct-24/10.png)
 The profile account name references "car lady".  |
 | ![pic]( ../../content/images/targeted-women/oct-24/11.png)
-The picture above looks like it's coming from a hacked phone.  |
+The picture above looks like it's coming from a hacked phone. The young girl (minor?) is taking a photo of trainers in the sports shop in the Calle Loreto, Denia. |
 | ![pic]( ../../content/images/targeted-women/oct-24/11.5.png)
 The street is the Calle Loreto in Dénia.  |
 | ![pic]( ../../content/images/targeted-women/oct-24/12.png)  
