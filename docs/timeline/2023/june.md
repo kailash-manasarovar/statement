@@ -401,7 +401,7 @@ function googleTranslateElementInit() {
 - I don't realize that I'm hacked.
 
 !!! info "Hacked since at least 2015, more likely as early as 2005"
-    - Incidents way back in 2017, and earlier, suggest criminal gangs had full access all my devices, including movements.
+    - Incidents way back in 2017, and earlier, suggest criminal gangs had full access to all my devices, and knew all my movements.
     - They watched me write my police statement in 2015.
     - They "persuaded" me to join Jitendra Das's class in 2010.
     - They knew I was staying at Berachah in 2005 and booked Richard in with me.
