@@ -408,13 +408,6 @@ function googleTranslateElementInit() {
 - I tell a practitioner there during a therapy session, Gerardine, that I had defecated in my bed while asleep one Monday night, after therapy with Robin, and it was [a little round flattened bolus](may.md#teb-with-robin).
 - Everyone on the course can see I'm in a shocked and traumatized state.
 - I believe I was sedated and attacked in my apartment on the night of Monday 12th June and the stress is from that, and frequent repeats of the same since November 2022, when my friends first started watching on the spy-cam networks too and tried to warn me about it in Thailand.
-- I meet a few of the practitioners in the hot tub at the hotel one evening. Steve is there.
-- He asks me, repeatedly, how much does land cost in Spain?
-- I tell him it depends, repeatedly, and he asks again.
-
-![How much is land in Spain](../../content/images/how-much-is-land-in-spain.png)
-
-- The hot tub is from January 2024...
 - The sexual feelings stop completely while I am away.
 
 ## Another young girl's *funeral*
