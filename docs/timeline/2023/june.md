@@ -415,7 +415,7 @@ function googleTranslateElementInit() {
 - Then, he says, "you're a healer".
 - I guess that was HS again.
 - I tell a practitioner there during a therapy session, Gerardine, that I had defecated in my bed while asleep one Monday night, after therapy with Robin which I was undergoing solely due to the stress of the chamber music classes.
-- I explained it was [a little round and flattened bolus](may.md#teb-with-robin).
+- I explained it was [a little round and flattened bolus](may.md#teb-with-robin); as if something had been pushing up against it and flattened it.
 - Everyone on the course can see I'm in a shocked and traumatized state.
 - I believe I had been sedated and attacked in my apartment just two nights before the course started and the stress is from that and from constant repeats of the same since at least November 2022, when my friends first started watching/recording on the spy-cam network in my home without the criminals' knowledge, and even tried to warn me about it/save me in Thailand.
 - The sexual feelings stop completely while I am away from Spain.
