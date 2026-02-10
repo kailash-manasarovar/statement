@@ -391,7 +391,7 @@ function googleTranslateElementInit() {
 ![Pros and cons](../../content/images/pros-and-cons.jpeg)
 
 - The weird "communication" continues between my new fake account and the `@jctot19` account. 
-- I have a long WhatsApp chat with Sandra Rita Diaz, my French friend who I believe now is a spy, where I complain that the man is lazy. 
+- I have a long WhatsApp chat with Sandra Rita Diaz, my French friend who I believe now is a criminal-gang spy, where I complain that the man is lazy. 
 - I hear about him being lazy again and again over the next year or so online.
 
 !!! info
@@ -399,14 +399,22 @@ function googleTranslateElementInit() {
     - Incidents way back in 2017 and earlier suggest the visual access to my movements via my laptops and phones was going on even then.
 
 - I tell Stephen Terrell and some of the other practitioners what's been going on from my perspective at that time, i.e. I had been terrorized by teachers and staff at the conservatory.
-- I tell a practitioner there that I had defecated in my bed while asleep and it was [a little round flattened bolus](may.md#teb-with-robin).
-- Everyone on the course can see I'm in a traumatized state.
+- I felt like my whole being was traumatized but I only had a story about idiot teachers and staff at the conservatory terrorizing me.
+- When I see Steve for the first time, at the restaurant in the hotel, I sort of blurt it out... I'm being terrorized by teachers and staff at the conservatory.
+- The level of stress is incongruous to the story.
+- He doesn't say anything for a while.
+- Then, he says, "you're a healer".
+- I'm hoping that was his little voice.
+- I tell a practitioner there during a therapy session, Gerardine, that I had defecated in my bed while asleep one Monday night, after therapy with Robin, and it was [a little round flattened bolus](may.md#teb-with-robin).
+- Everyone on the course can see I'm in a shocked and traumatized state.
+- I believe I was sedated and attacked in my apartment on the night of Monday 12th June and the stress is from that, and frequent repeats of the same since November 2022, when my friends first started watching on the spy-cam networks too and tried to warn me about it in Thailand.
 - I meet a few of the practitioners in the hot tub at the hotel one evening. Steve is there.
 - He asks me, repeatedly, how much does land cost in Spain?
 - I tell him it depends, repeatedly, and he asks again.
 
 ![How much is land in Spain](../../content/images/how-much-is-land-in-spain.png)
 
+- The hot tub is from January 2024...
 - The sexual feelings stop completely while I am away.
 
 ## Another young girl's *funeral*

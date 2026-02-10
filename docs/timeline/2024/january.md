@@ -241,6 +241,16 @@ function googleTranslateElementInit() {
 - Well, Domingo was inept really, and probably only efficient at (and interested in) terrorizing children and teenagers, not women.
 - The things he said and did always made me think of him as somewhat of a fool, and, in my naivety about the situation back then, I could never understand why everyone put up with him.
 
+### How much does land cost in Spain
+
+- I meet a few of the practitioners in the hot tub at the hotel one evening. Steve is there.
+- He asks me, repeatedly, how much does land cost in Spain?
+- I tell him it depends, repeatedly, and he asks again.
+
+![How much is land in Spain](../../content/images/how-much-is-land-in-spain.png)
+
+- The hot tub is from January 2024...
+
 ### Flying back to Spain from Ireland
 
 #### San Antonio and the cat
