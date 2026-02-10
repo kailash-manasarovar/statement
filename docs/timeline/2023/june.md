@@ -381,8 +381,8 @@ function googleTranslateElementInit() {
 
 ## Ireland
 
-- It's the first TEB course I've taken in person since February 2020 in Cork.
-- I'm utterly traumatized from my experience over the last 6 months and especially over the last week.
+- It's the first Transforming Touch course I've taken in person since [February 2020 in Cork](../early-years/2020.md#transforming-touch).
+- I'm utterly traumatized from my experience over the last six months, and especially over the last week.
 - I don't bring my connected devices so I cannot use my own Twitter account.
 - I do have my mobile phone, however.
 - I create a fake account and start following `@jctot19`.
@@ -392,27 +392,32 @@ function googleTranslateElementInit() {
 ![Pros and cons](../../content/images/pros-and-cons.jpeg)
 
 - The weird "communication" continues between my new fake account and the `@jctot19` account.
-- I'm so upset I can't think straight and I don't realize this means my phone is hacked. 
-- I have a long WhatsApp chat with Sandra Rita Diaz, my French friend who I believe now is a spy for the criminal gangs.
+- I'm so upset (and drugged without knowing it) that I can't think straight, and I don't realize this means my phone is hacked. 
+- I have a long WhatsApp chat with [Sandra Rita Diaz](../early-years/2014.md#sandra-rita-diaz), my French "friend" who I believe is a spy for the criminal gangs.
 - I complain that the man is lazy. 
 - I hear about him being lazy again and again over the next year or so online.
+- I believe that she has told them. 
+- I don't realize that I'm hacked.
 
-!!! info
-    - What I did not know at this time was that the criminal gangs had full access to my mobile phone anyway so they knew exactly what I was doing online at any given moment, and had done for a very long time.
-    - Incidents way back in 2017 and earlier suggest the visual access to my movements via my laptops and phones was going on even then.
+!!! info "Hacked since at least 2015, more likely as early as 2005"
+    - Incidents way back in 2017, and earlier, suggest criminal gangs had full access all my devices, including movements.
+    - They watched me write my police statement in 2015.
+    - They "persuaded" me to join Jitendra Das's class in 2010.
+    - They knew I was staying at Berachah in 2005 and booked Richard in with me.
+    - And on and on..
 
 - I tell Stephen Terrell and some of the other practitioners what's been going on from my perspective at that time, i.e. I had been terrorized by teachers and staff at the conservatory.
 - I felt like my whole being was traumatized, but I only had a story about idiot teachers and staff at the conservatory terrorizing me.
 - When I see Steve for the first time, at the restaurant in the hotel, I sort of blurt it out... "I'm being terrorized by teachers and staff at the conservatory".
-- The level of stress I'm presenting is incongruous to the trauma-levels of the story.
+- The level of stress I'm presenting doesn't match the story.
 - He doesn't say anything for a while.
 - Then, he says, "you're a healer".
 - I guess that was HS again.
-- I tell a practitioner there during a therapy session, Gerardine, that I had defecated in my bed while asleep one Monday night, after therapy with Robin and due to the stress of the chamber music classes.
+- I tell a practitioner there during a therapy session, Gerardine, that I had defecated in my bed while asleep one Monday night, after therapy with Robin which I was undergoing solely due to the stress of going to the chamber music classes.
 - I explained it was [a little round and flattened bolus](may.md#teb-with-robin).
 - Everyone on the course can see I'm in a shocked and traumatized state.
-- I believe I was sedated and attacked in my apartment on the night of Monday 12th June and the stress is from that, and from the frequent repeats of the same since at least November 2022, when my friends first started watching on the spy-cam networks too, and tried to warn me about it in Thailand.
-- The sexual feelings stop completely while I am away.
+- I believe I was sedated and attacked in my apartment on the night of Monday 12th June and the stress is from that, and from the frequent repeats of the same since at least November 2022, when my friends first started watching/recording on the spy-cam network in my home alongside the criminals, and tried to warn me about it in Thailand.
+- The sexual feelings stop completely while I am away from Spain.
 
 ## Another young girl's *funeral*
 
