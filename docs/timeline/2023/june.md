@@ -393,7 +393,7 @@ function googleTranslateElementInit() {
 
 - I've no idea there was [at least four men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) pretending to be the same trumpet teacher at the music school.
 - The weird "communication" continues between my new fake account and the `@jctot19` account.
-- I'm so upset (and drugged without knowing it) that I can't think straight, and I don't realize this means my phone is hacked. 
+- I'm so upset (and drugged without knowing it) that I can't think straight, and so I don't realize this means my phone is hacked. 
 - I have a long WhatsApp chat with [Sandra Rita Diaz](../early-years/2014.md#sandra-rita-diaz), my French "friend" who I believe is a spy for the criminal gangs.
 - I complain that the man is lazy. 
 - I hear about him being lazy again and again over the next year or so online.
@@ -408,16 +408,16 @@ function googleTranslateElementInit() {
     - And on and on..
 
 - I tell Stephen Terrell and some of the other practitioners what's been going on from my perspective at that time, i.e. I had been terrorized by teachers and staff at the conservatory.
-- I felt like my whole being was traumatized, but I only had a story about idiot teachers and staff at the conservatory terrorizing me.
+- I felt like my whole being was traumatized, but I only had a story about idiot teachers and staff at the conservatory.
 - When I see Steve for the first time, at the restaurant in the hotel, I sort of blurt it out... "I'm being terrorized by teachers and staff at the conservatory".
 - The level of stress I'm presenting doesn't match the story.
 - He doesn't say anything for a while.
 - Then, he says, "you're a healer".
 - I guess that was HS again.
-- I tell a practitioner there during a therapy session, Gerardine, that I had defecated in my bed while asleep one Monday night, after therapy with Robin which I was undergoing solely due to the stress of going to the chamber music classes.
+- I tell a practitioner there during a therapy session, Gerardine, that I had defecated in my bed while asleep one Monday night, after therapy with Robin which I was undergoing solely due to the stress of the chamber music classes.
 - I explained it was [a little round and flattened bolus](may.md#teb-with-robin).
 - Everyone on the course can see I'm in a shocked and traumatized state.
-- I believe I was sedated and attacked in my apartment on the night of Monday 12th June and the stress is from that, and from the frequent repeats of the same since at least November 2022, when my friends first started watching/recording on the spy-cam network in my home alongside the criminals, and tried to warn me about it in Thailand.
+- I believe I had been sedated and attacked in my apartment just two nights before the course started and the stress is from that and from constant repeats of the same since at least November 2022, when my friends first started watching/recording on the spy-cam network in my home without the criminals' knowledge, and even tried to warn me about it/save me in Thailand.
 - The sexual feelings stop completely while I am away from Spain.
 
 ## Another young girl's *funeral*
