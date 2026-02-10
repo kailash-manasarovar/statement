@@ -182,7 +182,7 @@ function googleTranslateElementInit() {
 
 ## Galway, Ireland, TT
 
-- I'm still extraordinarily high from Christmas.
+- I'm still extraordinarily high from the events over Christmas.
 - The non-stop euphoria and sexual arousal continues.
 - I travel to Ireland on 10th January for my Transformational Touch therapy course.
 - When I inform the choir teacher Salva I will be away, he says, "as long as you're not going away for the weekend with your boyfriend", referring to what Domingo had got [his student Elsa](../2023/october.md#gang-stalking-by-conservatory-civil-servants) to ask me previously concerning one of my tweets. 
@@ -191,7 +191,7 @@ function googleTranslateElementInit() {
 - When I'm in Ireland, I open an anonymous account on X on my mobile.
 - I follow `@jctot19` on it, and post solely to my timeline without interacting with his account directly at all.
 
-!!! tip "While drafting this section in November 2024..."
+!!! tip "While drafting this section in November 2024... written when I was still unaware of the switcheroo"
     - I see a post from 9th January which I wonder about.
     - When I read it, it seems like the `@jctot19` account might be finding ways to *get out of* what's been happening by pretending someone has been harassing him, i.e. me.
 
@@ -221,22 +221,23 @@ function googleTranslateElementInit() {
 - I posted about the transformational touch therapy protocol, and looked on his timeline for responses, as before.
 - There was a to-and-fro, as before, all positive.
 - After a day or two of this, however, the content starts to be interspersed with references to porn, specifically violent and humiliating porn; much of it containing unpleasant references to Ana Requena.
-- I feel Carmen Cano energy (learned by watching the @sinremite content) and an older brutish male energy all over the activity.
+- I feel Carmen Cano energy (learned by watching the `@sinremite` content) and an older brutish male energy all over the activity.
 - I posted one tweet with a sexual connotation; *will you look me dead in the eyes?*
 - The account immediately reaches out to a random woman he hasn't seen in years with an anodyne tweet, now deleted.
 - All communication ceased immediately from that moment.
 - Did I surprise them?
 - My tweet was a direct reference to Winston May; the rape-gang ring-leader from North London who I will see for the first time in over thirty years in [June 2024 while campaigning for the general election in the UK](june.md#winston-may).
-- Winston May (who I detested when I was a child, by the way, but had totally controlled me) always looked me dead in the eyes while raping me.
-- Given I was being triggered to remember events and instances from 1989, and [the trumpet teacher himself had reminded me of Winston May](../2023/september.md#alex-and-paul), it is unsurprising that odd memories like this *popped up* from time to time.
+- Winston May (who I detested when I was a child, by the way, but who totally controlled me) always looked me dead in the eyes while raping me.
+- Given I was being triggered to remember events and instances from 1989, and [one of the trumpet teacher's had reminded me of Winston May](../2023/september.md#alex-and-paul) - [the second trumpet teacher; the brother and Mark both reminded me of Winston May](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013) - it is unsurprising that odd memories like this *popped up* from time to time.
 - This may well be in my statement to the police, but it is also possibly viewable in the porn.
-- The other option is that the Spanish gangs spoke to Winston May about his sexual MO with vulnerable girls in order to use the information to terrorize me.
+- The other option is that the Spanish gangs were working closely with the rape-gangs of North London and Winston May told them in detail about his sexual MO with vulnerable girls, and they used the information to procure children and terrorize me.
 - It was as if I had turned the lights out with my statement. 
 - There was no further interaction.
 - I stopped communicating and deleted the twitter account.
 - Did my words surprise whoever was running the account?
-- The energy of the account owner was masculine and feminine over those days.
+- The energy of the account owner had been masculine and feminine over those days.
 - If I had to guess, I would say that a very evil woman (Carmen Cano) and a very sexually cruel man (her uncle?) were managing the content together at that time, and had possibly taken over from an original more benevolent user when they saw what was happening.
+- This is reasonable considering anyone with hacked access to my devices can rewrite the UI content; so if multiple parties were hacking me, this is the sort of activity one might expect, especially if somewhere in the maelstrom of evil a friend also lurked.
 - Why don't I say the male energy is [Domingo Cano](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano)? 
 - Well, Domingo was inept really, and probably only efficient at (and interested in) terrorizing children and teenagers, not women.
 - The things he said and did always made me think of him as somewhat of a fool, and, in my naivety about the situation back then, I could never understand why everyone put up with him.
