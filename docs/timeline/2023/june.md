@@ -391,6 +391,7 @@ function googleTranslateElementInit() {
 
 ![Pros and cons](../../content/images/pros-and-cons.jpeg)
 
+- I've no idea there was [at least four men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) pretending to be the same trumpet teacher at the music school.
 - The weird "communication" continues between my new fake account and the `@jctot19` account.
 - I'm so upset (and drugged without knowing it) that I can't think straight, and I don't realize this means my phone is hacked. 
 - I have a long WhatsApp chat with [Sandra Rita Diaz](../early-years/2014.md#sandra-rita-diaz), my French "friend" who I believe is a spy for the criminal gangs.
