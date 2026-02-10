@@ -425,7 +425,7 @@ function googleTranslateElementInit() {
 - In Ireland, I do a search for *"Vidal Sastre Sanchez Hornero"* on YouTube.
 - A number of results come up, one of which is particularly interesting.
 - He is a soloist playing at the [Banda Sinfónica L'Amistat - Quart de Poblet](https://www.lamistatquart.com/sociedad/). 
-- The [band's website](https://www.lamistatquart.com/sociedad/) makes for interesting reading, particularly concerning the unconditional support of the female members.
+- The [band's website](https://www.lamistatquart.com/sociedad/) makes for interesting reading, particularly concerning the unconditional support (inability to say no whilst drugged/sedated?) of the female members.
 
 ![Unconditional support in their entirety](../../content/images/unconditional-support-in-their-entirety-EN.jpg)
 ![Unconditional support in their entirety](../../content/images/unconditional-support-in-their-entirety-ES.jpg)
