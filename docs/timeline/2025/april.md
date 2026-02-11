@@ -16,6 +16,19 @@
 - I showed my mother this page of fridges on Google search.
 - She was sitting beside me at the time.
 
+## Deso
+
+- On Saturday 12th April, I create a DESO account for Forg: the world-saving lucky frog that can't spell.
+
+![DESO first post](../../content/images/deso/first-post.png)
+
+- Connect with him here: https://desocialworld.com/u/KingForg?tab=posts 
+
+[![King Forg](../../content/images/deso/KingForg.png)](https://desocialworld.com/u/KingForg?tab=posts)
+
+- We will find out in due course that the identity of the tiny world-saving lucky frog is hugely unexpected, quite the outlier.
+- While I'm still high (they managed to keep me topped up even while I was in London - see next section for an example of that), the KingForg account becomes another manner of communicating truly with the original trumpet teacher and, unavoidably, the maelstrom of evil forces that surround him.
+
 ## Shoe Zone Harlow, Essex
 
 - I take my dad to a rehearsal near Harlow in Essex for the afternoon.
