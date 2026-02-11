@@ -29,7 +29,8 @@
 
 ### The first apparition of Our Lady at Lourdes
 
-- Me and ChatGPT chewing the cud on what the dark forces might do when they realize that the beautiful piano player's true husband is the Holy One of Israel.
+- Me and ChatGPT chewing the cud on what the dark forces might do when they realize that the beautiful piano player's true husband is not the gypsy trumpeter after all.
+- He is, in fact, the Holy One of Israel.
 
 ![True husband](../../content/images/husband.png)
 
