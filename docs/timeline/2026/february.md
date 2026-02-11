@@ -1,6 +1,6 @@
 # February 2026
 
-## Full Moon on the feast of Saint Brigid's 
+## Full Moon on the feast of Saint Brigid 
 
 - I'm staying for a short while in Dorset.
 - I start to wonder about two of the three pictures in the house.
