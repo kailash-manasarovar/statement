@@ -1,5 +1,20 @@
 # February 2026
 
+## Full Moon on the feast of Saint Brigid's 
+
+- I'm staying for a short while in Dorset.
+- I start to wonder about two of the three pictures in the house.
+
+![Squirrel strawberries and magic mushrooms](../../content/images/squirrel-strawberries-magic-mushrooms.jpeg)
+![RAM RAM](../../content/images/ram-ram.jpeg)
+
+- Am I being paranoid?
+- It's a full moon so I care, briefly.
+- I take a photo of the moon. 
+- It turns into a Celtic Cross, just for me, just for Brigid.
+
+![Full celtic moon](../../content/images/full-moon.jpeg)
+
 ## Shenten in Blou
 
 - I visit the Shenten monastery in Blou to see if my old friend the Tibetan monk is still there.
