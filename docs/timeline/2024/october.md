@@ -792,8 +792,8 @@ function googleTranslateElementInit() {
 - She's been gaslighting me for a good while too; not listening to anything I say, pretending interest then blanking, telling me I should see a therapist...
 - I'm now certain she's fully involved in the conspiracy.
 - I tell her what I think.
-- She says, "no Katharine, I am your friend".
-- I say, "no, you're involved aren't you Sandra?".
+- She says, "No Katharine, I am your friend".
+- I say, "No, you're involved aren't you Sandra?".
 - "You work for the police."
 - "No, no, I don't work for the police", she says.
 - I don't know why she would deny that when her actual job is working for the police amongst other public services - at least that is what she told me - and she told me about situations in which she had to translate for Portuguese-speaking victims of crime at a police station in France.
@@ -803,15 +803,15 @@ function googleTranslateElementInit() {
 - "I worked for them at the Charles de Gaulle airport in Paris."
 - The information keeps changing, but I knew about this job that she was doing via an agency with a very dodgy boss when I met her. 
 - She hadn't worked for them in years. I was not talking about them.
-- "You kept "popping" up", I say. 
+- "You kept 'popping' up", I say. 
 - She pretends to not know I'm talking about how she was always in the right place at the right time; directed.
 - "You have a boyfriend at the border of Spain and Portugal you like to tell me about."
 - I say, "Yes, you're involved, aren't you?".
 - I never hear from her again.
 
 !!! tip "Sandra D curios"
-    - It's curious the name Sandra comes up so much.
-    - I have mentioned my thoughts about the name coming from "throwing sand in the eyes"...
+    - It's curious the name Sandra comes up so much amongst honey-trapping conspirators.
+    - I have mentioned my thoughts before about the name coming from ["throwing sand in the eyes"...](march/1-12.md#i-make-a-donation-on-x).
     - I now notice that this Sandra is *Sandra D*, star of summer loving, a classic honey-trapping meme.
 
 ## Nota simple from the neighbors flats
