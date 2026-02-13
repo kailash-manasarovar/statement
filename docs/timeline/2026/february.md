@@ -55,6 +55,9 @@
 
 - It feels like the end of a major cycle.
 - I'm back in Sainte Baume after four years of hell at the hands of the porn gangs of Dénia and their international co-conspirators.
+
+![Sainte Baume](../../content/images/sainte-baume.jpg)
+
 - They never expected me to survive them.
 - They never dreamed I would not only survive them, but end up telling everyone about them and more.
 - Do they think the world will not be disgusted and appalled, devastated and mourning?

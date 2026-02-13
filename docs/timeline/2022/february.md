@@ -32,7 +32,9 @@ function googleTranslateElementInit() {
 
 ### One night in Barcelona
 
-- Could this night, the night before I take up permanent residence in Carrer Furs, have been a first "date"?
+- Could this night, the stopover night before I take up permanent residence in Carrer Furs, have been a first "date"?
+- If anyone cares to check where I stayed, it'll be on my credit card or in my Hotels.com archived info.
+- Wherever it was, there was a massive rave going on next door to the hotel and people coming and going and slamming doors at all hours.
 
 ## My life in Dénia
 
