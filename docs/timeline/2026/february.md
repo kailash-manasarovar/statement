@@ -59,8 +59,8 @@
 ![Sainte Baume](../../content/images/sainte-baume.jpg)
 
 - They never expected me to survive them.
-- They never dreamed I would not only survive them, but end up telling everyone about them and more.
-- Do they think the world will not be disgusted and appalled, devastated and mourning?
+- They never dreamed I would not only survive them, but end up telling everyone about them, and so much more.
+- Do they think the world will not be disgusted and appalled with them, devastated and mourning?
 - Should they have just let me play the piano in peace?
 - Have they sent their operative(s) out to Sainte Baume again to check up on me (or worse)?
 - Seems I can rely on God to deal with them.
