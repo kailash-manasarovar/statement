@@ -50,3 +50,10 @@
 ![True husband](../../content/images/husband.png)
 
 - We suspect they'll get very cross, again.
+
+## Sainte Baume
+
+- It feels like the end of a major cycle.
+- I'm back in Sainte Baume after four years of hell at the hands of the porn gangs of Dénia and their international co-conspirators.
+- Have they sent their operatives out again to check up on me (or worse)?
+- Seems I can rely on God to deal with them.

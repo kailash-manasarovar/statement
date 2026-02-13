@@ -30,6 +30,10 @@ function googleTranslateElementInit() {
 
 - I move to my new flat in Dénia: Carrer Furs 15, B1 Escalera 2 Piso 3 Apartamento 17, Dénia 03700 Alicante Spain.
 
+### One night in Barcelona
+
+- Could this night, the night before I take up permanent residence in Carrer Furs, have been a first "date"?
+
 ## My life in Dénia
 
 - I'm working online. I work a lot.
