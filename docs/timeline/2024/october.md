@@ -813,6 +813,8 @@ function googleTranslateElementInit() {
     - It's curious the name Sandra comes up so much amongst honey-trapping conspirators.
     - I have mentioned my thoughts before about the name coming from ["throwing sand in the eyes"...](march/1-12.md#i-make-a-donation-on-x).
     - I now notice that this Sandra is *Sandra D*, star of summer loving, a classic honey-trapping meme.
+    - When I first met her in [2014](../early-years/2014.md#sandra-rita-diaz), just before starting as Domingo Lopez Cano's piano student, she was simply Sandra D.
+    - She added the Rita in a lot later.
 
 ## Nota simple from the neighbors flats
 
