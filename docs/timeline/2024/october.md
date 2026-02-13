@@ -784,17 +784,24 @@ function googleTranslateElementInit() {
 ## Challenging Sandra Rita Diaz
 
 - I have a WhatsApp chat with Sandra.
-- I explain to her I was sacked and she starts writing a genuine and rather horrible curse on the man who sacked me; I have to tell her to calm down.
-- She's been gaslighting me for a while too.
-- I'm now suddenly sure she's fully involved.
-- Her words sound exactly like Carmen Cano is talking to me; the words of an evil person.
+- I seem to have four numbers for Sandra now, it used to be just two: a work phone and a personal phone.
+- When I eventually find the right number, I tell her I was sacked.
+- She starts writing a genuine and rather horrible curse on the man who sacked me.
+- I have to tell her to calm down.
+- Her curses sound like exact words I read on stalking X accounts.
+- She's been gaslighting me for a good while too.
+- I'm now certain she's fully involved in the conspiracy.
 - I tell her what I think.
 - She says, no Katharine, I am your friend.
 - I say no, you're involved aren't you Sandra.
 - You work for the police. 
-- No, no, I don't work for the police, she says. I don't know why she would deny her actual job is working for the police.
-- Yes, you do.
-- You kept "popping" up, I say. You have a boyfriend at the border between Spain and Portugal.
+- No, no, I don't work for the police, she says.
+- I don't know why she would deny that when her actual job is working for the police amongst other public services and she has often told me about situations in which she has been asked to translate.
+- Interestingly, the few times she told me about what she had been doing at work, it always involved a prostituted or sexually abused woman.
+- You do work for the police, I repeat.
+- You kept "popping" up, I say. 
+- She pretends to not know I'm talking about how she was always in the right place at the right time; directed.
+- You have a boyfriend at the border of Spain and Portugal you like to tell me about.
 - I say, yes, you're involved, aren't you.
 - I never hear from her again.
 
