@@ -867,7 +867,7 @@ function googleTranslateElementInit() {
 - Now I'm not so sure.
 - Could this be the sedating and sexual arousal drug administering mechanism?
 
-### Summary of poisoning and drugging
+## Summary of poisoning and drugging at Carrer Furs
 
 - The effects of drugging and poisoning in my apartment caused me permanent brain-damage, frequent sedation, timed sexual arousal, and permanent effects of hallucinogens.
 - Let's assume they use different techniques for different outcomes.
