@@ -870,21 +870,21 @@ function googleTranslateElementInit() {
 ## Summary of poisoning and drugging at Carrer Furs
 
 - The effects of drugging and poisoning in my apartment caused me permanent brain-damage, frequent sedation, timed sexual arousal, and permanent effects of hallucinogens.
-- Let's assume they use different techniques for different outcomes.
+- Let's assume the poisoners use different techniques for different outcomes.
 - My guess is the following:
 
     1. Brain-damaging herbs coming into the water direct from some mechanism built into the joining wall with number 16.
-    1. A sedating mechanism coming in via the air-conditioning vent close to my bed, triggered after I had gone to bed and in the afternoons in the main room.
-    1. The timed sexual arousal is very clever; especially in the car. I'm wondering if this is psychological triggering manipulation via social media, and hacked phone sub-audio apps *together with* the ingestion of constant low-to-high-dose hallucinogens. I believe the hallucinogens were added directly to food, the bottled water I drank, and my bathroom products: face wash, shower gel, shampoo, toothpaste.
+    1. A sedating mechanism at the air-conditioning vent close to my bed, triggered after I had gone to bed and in the afternoons in the main room.
+    1. The timed sexual arousal is very clever; especially in the car. I'm wondering if this is psychological triggering manipulation via social media, and hacked phone sub-audio apps *together with* the ingestion of constant low-to-high-dose hallucinogens. I believe the hallucinogens were added directly to food, the bottled water I drank, and my bathroom products: face wash, shower gel, shampoo, toothpaste, etc.
 
-- Of course, all avenues of administration would convert into one for the purpose of eventual murder.
+- Of course, all avenues of administration converge for the eventual outcome of murder.
 
 | Desired outcome                                 | Poison used                           | Administrating technique                                 |
 |-------------------------------------------------|---------------------------------------|----------------------------------------------------------|
 | Brain-damage for switcheroo porn                | Poisonous herb: mandrake?             | Direct into drinking water from adjoining wall mechanism |
 | Sedating a victim                               | Anaesthetic gas                       | Via the air-conditioning system                          |
 | Drugging a victim: hallucinatory/sexual arousal | Mushrooms/hallucingens/extasy     | Direct into the mains water via the pipe cabinet, my food, water bottles, and bathroom products   |
-| Murder                                          | Methanol, pesticides, brake-fluid etc | All the above once the order is given                    |
+| Murder                                          | Methanol, pesticides, brake-fluid etc | All the above once the order is given, including a spraying machine for dousing clothes and belongings            |
 
 ## Trying to find the cameras
 
