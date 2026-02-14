@@ -820,7 +820,7 @@ function googleTranslateElementInit() {
 
 - The nota simple document for properties in Spain gives legal information concerning owners, debts, property details, etc.
 
-### How are they poisoning me at home?
+### Who is involved in poisoning and drugging me at my home in Carrer Furs?
 
 - It's obvious to me that something in my apartment has been causing me to feel inexplicably sexually aroused at lunchtimes on working days. 
 - Moreover, I also feel really unwell and in unusual ways that don't make any sense to me.
@@ -839,11 +839,16 @@ function googleTranslateElementInit() {
 - Have they built some mechanism for accessing my apartment's drinking water directly from Marie Carmen's property?
 - As well as number 16, I'm suspicious about number 18's coming and goings this week, especially [the woman I see every day fiddling around at the water-pipe cupboard](#activity-in-the-nextdoor-apartment-number-18).
 - I get the [paperwork for number 18](../../content/documents/evidence/number%2018%20beside%20me%20bedroom%20wall.pdf).
+
+![Number 18 nota simple](../../content/images/number-18-nota-simple.png)
+
 - I'm also suspicious about the apartment above mine, number 23; the apartment where they seemed to meet on [Monday evenings after chamber class, carrying on long into the next morning](../2023/january.md#noises-upstairs-after-mondays-chamber-music-classes); a suspicion further solidified by comments made by stalkers on X when the gangs were very confident in my apparent vulnerability and weakness, and assured demise.
 
 ![Farters upstairs](../../content/tweets/march-2024/monday-night-stalker-reveal.png)
 
 - So I request [the paperwork for number 23](../../content/documents/evidence/number%2023%20upstairs.pdf) also.
+
+![Number 23 nota simple](../../content/images/number-23-nota-simple.png)
 
 #### Squeaking pipes
 
