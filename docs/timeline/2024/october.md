@@ -888,7 +888,8 @@ function googleTranslateElementInit() {
 
 ## Trying to find the cameras
 
-- I'm absolutely sure there are cameras in my flat but they are impossible to find.
+- The drugging and poisoning techniques *cannot* work without constant surveillance in the apartment.
+- For this reason, I'm absolutely sure there are spy-cams all over my home, but they are impossible to find.
 - Nevertheless I believe there is one on the ceiling in the living room above the TV; I always noticed a little black dot there.
 - I believe there is one on the ceiling in the corner of the bedroom which matches the position of the spy-cam porn posted on my Google search results.
 - There is a huge purposeful hole in the wall behind the bathroom mirror also, however.
