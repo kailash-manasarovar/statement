@@ -833,7 +833,7 @@ function googleTranslateElementInit() {
 - Paul has spent his life in the building trade.
 - Like everything else I ask him about (except the air-conditioning system), he says, "Oh no, that's completely normal, that's just a filter for ... blah blah", or something similar.
 - He's unconvincing.
-- The mechanism backs onto Marie Carmen's apartment walls, number 16.
+- The mechanism backs onto Marie Carmen's apartment wall, number 16.
 - When I visited her one afternoon, I noticed an unusual antique furniture item, an ornate mini-cabinet, set against the joining wall at exactly that point.
 - I start to wonder about Marie Carmen.
 - Have they built some mechanism for accessing my apartment's drinking water directly from Marie Carmen's property?
@@ -842,7 +842,7 @@ function googleTranslateElementInit() {
 
 ![Number 18 nota simple](../../content/images/number-18-nota-simple.png)
 
-- I'm also suspicious about the apartment above mine, number 23; the apartment where they seemed to meet on [Monday evenings after chamber class, carrying on long into the next morning](../2023/january.md#noises-upstairs-after-mondays-chamber-music-classes); a suspicion further solidified by comments made by stalker account `@FixationAural` when the gangs were very confident in my apparent vulnerability and weakness, and assured demise.
+- I'm also suspicious about the apartment above mine, number 23; the apartment where they seemed to meet every [Monday evening after chamber music class, carrying on long into the next morning](../2023/january.md#noises-upstairs-after-mondays-chamber-music-classes); a suspicion further solidified by comments made by stalker account `@FixationAural` when the gangs were very confident in my apparent vulnerability and weakness, and assured demise.
 
 ![Farters upstairs](../../content/tweets/march-2024/monday-night-stalker-reveal.png)
 
@@ -863,7 +863,7 @@ function googleTranslateElementInit() {
 #### Puffs of air 
 
 - Another weird sound I heard regularly was a short puff of air.
-- I thought it was the hot water boiler.
+- I thought it was the hot water boiler, it seemed to be coming from that direction (the same area as the air-conditioning outlet).
 - Now I'm not so sure.
 - Could this be the sedating and sexual arousal drug administering mechanism?
 
