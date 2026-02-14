@@ -818,7 +818,7 @@ function googleTranslateElementInit() {
 
 ## Nota simple from the neighbors flats
 
-- The nota simple for properties in Spain gives legal information concerning owners, debts, property details, etc.
+- The nota simple document for properties in Spain gives legal information concerning owners, debts, property details, etc.
 
 ### How are they poisoning me at home?
 
@@ -833,10 +833,10 @@ function googleTranslateElementInit() {
 - Paul has spent his life in the building trade.
 - Like everything else I ask him about (except the air-conditioning system), he says, "Oh no, that's completely normal, that's just a filter for ... blah blah", or something similar.
 - He's unconvincing.
-- The kitchen sink water pipes coming into my apartment back onto Marie Carmen's apartment, number 16.
+- The mechanism backs onto Marie Carmen's apartment walls, number 16.
 - When I visited her one afternoon, I noticed an unusual antique furniture item, an ornate mini-cabinet, set against the joining wall at exactly that point.
 - I start to wonder about Marie Carmen.
-- Have they built some mechanism for accessing my apartment's drinking water from Marie Carmen's property?
+- Have they built some mechanism for accessing my apartment's drinking water directly from Marie Carmen's property?
 - As well as number 16, I'm suspicious about number 18's coming and goings this week, especially [the woman I see every day fiddling around at the water-pipe cupboard](#activity-in-the-nextdoor-apartment-number-18).
 - I get the [paperwork for number 18](../../content/documents/evidence/number%2018%20beside%20me%20bedroom%20wall.pdf).
 - I'm also suspicious about the apartment above mine, number 23; the apartment where they seemed to meet on [Monday evenings after chamber class, carrying on long into the next morning](../2023/january.md#noises-upstairs-after-mondays-chamber-music-classes); a suspicion further solidified by comments made by stalkers on X when the gangs were very confident in my apparent vulnerability and weakness, and assured demise.
@@ -878,7 +878,7 @@ function googleTranslateElementInit() {
 |-------------------------------------------------|---------------------------------------|----------------------------------------------------------|
 | Brain-damage for switcheroo porn                | Poisonous herb: mandrake?             | Direct into drinking water from adjoining wall mechanism |
 | Sedating a victim                               | Anaesthetic gas                       | Via the air-conditioning system                          |
-| Drugging a victim: hallucinatory/sexual arousal | Mushrooms/hallucingens/extasy     | Direct into food, water bottles, and bathroom products   |
+| Drugging a victim: hallucinatory/sexual arousal | Mushrooms/hallucingens/extasy     | Direct into the mains water via the pipe cabinet, my food, water bottles, and bathroom products   |
 | Murder                                          | Methanol, pesticides, brake-fluid etc | All the above once the order is given                    |
 
 ## Trying to find the cameras
