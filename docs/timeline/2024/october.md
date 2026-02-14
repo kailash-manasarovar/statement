@@ -842,7 +842,7 @@ function googleTranslateElementInit() {
 
 ![Number 18 nota simple](../../content/images/number-18-nota-simple.png)
 
-- I'm also suspicious about the apartment above mine, number 23; the apartment where they seemed to meet on [Monday evenings after chamber class, carrying on long into the next morning](../2023/january.md#noises-upstairs-after-mondays-chamber-music-classes); a suspicion further solidified by comments made by stalkers on X when the gangs were very confident in my apparent vulnerability and weakness, and assured demise.
+- I'm also suspicious about the apartment above mine, number 23; the apartment where they seemed to meet on [Monday evenings after chamber class, carrying on long into the next morning](../2023/january.md#noises-upstairs-after-mondays-chamber-music-classes); a suspicion further solidified by comments made by stalker account `@FixationAural` when the gangs were very confident in my apparent vulnerability and weakness, and assured demise.
 
 ![Farters upstairs](../../content/tweets/march-2024/monday-night-stalker-reveal.png)
 
