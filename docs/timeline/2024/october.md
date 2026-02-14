@@ -818,24 +818,68 @@ function googleTranslateElementInit() {
 
 ## Nota simple from the neighbors flats
 
-- I'm trying to figure out how they're poisoning me.
-- My kitchen, where the water from the mains comes in that I use in tea, coffee, cooking, etc (I never drink it without boiling first) backs onto Marie Carmen's flat, number 16, and there is a big wardrobe in her flat against the joining wall.
+- The nota simple for properties in Spain gives legal information concerning owners, debts, property details, etc.
 
-!!! danger
-    - There is a weird mechanism I always thought strange under the sink where a small plastic extremely dirty pipe comes out and into the water pipe.
+### How are they poisoning me at home?
 
-!!! danger "Alert, something I just remembered"
-    - I remember being in my flat, at work or relaxing, and hearing the water pipes in the kitchen squeaking as if they were moving around.
-    - This was during 2022 and 2023, maybe once in 2024.
-    - I remember thinking it must have been cockroaches under the sink walking on the water pipe (which is like a hose) and I would go to check and see nothing.
-    - I wonder now was Marie Carmen, or someone else, accessing my water pipes from her flat somehow?
-    - Another weird sound was a short puff of air I would hear on a regular basis. I thought it was the hot water boiler. Now I'm not so sure.
+- It's obvious to me that something in my apartment has been causing me to feel inexplicably sexually aroused at lunchtimes on working days. 
+- Moreover, I also feel really unwell and in unusual ways that don't make any sense to me.
+- The [migraine and shooting pains in my face while drinking my coffee](#serious-poisoning-with-intent-to-kill) make me wonder if I'm ingesting methanol.
+- It's hard to think straight about anything but nevertheless I try to figure out how the porn-gangs are drugging and poisoning me at my home.
+- In my kitchen - under the sink where the water from the main supply comes in that I use in tea, coffee, cooking - there is a weird mechanism I always thought peculiar.
+- A small, thin, plastic and extremely dirty pipe is connected to the water pipe in an unusual way.
+- It's something I have never seen before in a kitchen, and I always thought it weird.
+- When [Paul comes to help me move](../2025/february.md#paul-helps-me-move-back-to-uk) in February 2025, I ask him about this. 
+- Paul has spent his life in the building trade.
+- Like everything else I ask him about (except the air-conditioning system), he says, "Oh no, that's completely normal, that's just a filter for ... blah blah", or something similar.
+- He's unconvincing.
+- The kitchen sink water pipes coming into my apartment back onto Marie Carmen's apartment, number 16.
+- When I visited her one afternoon, I noticed an unusual antique furniture item, an ornate mini-cabinet, set against the joining wall at exactly that point.
+- I start to wonder about Marie Carmen.
+- Have they built some mechanism for accessing my apartment's drinking water from Marie Carmen's property?
+- As well as number 16, I'm suspicious about number 18's coming and goings this week, especially [the woman I see every day fiddling around at the water-pipe cupboard](#activity-in-the-nextdoor-apartment-number-18).
+- I get the [paperwork for number 18](../../content/documents/evidence/number%2018%20beside%20me%20bedroom%20wall.pdf).
+- I'm also suspicious about the apartment above mine, number 23; the apartment where they seemed to meet on [Monday evenings after chamber class, carrying on long into the next morning](../2023/january.md#noises-upstairs-after-mondays-chamber-music-classes); a suspicion further solidified by comments made by stalkers on X when the gangs were very confident in my apparent vulnerability and weakness, and assured demise.
 
-- Is there some mechanism to access the apartment's drinking water in Marie Carmen's flat?
-- I get the paperwork for the flat on the other side, number 18. This apartment backs onto my bedroom and bathroom wall.
-    - [Nota simple number 18](../../content/documents/evidence/number%2018%20beside%20me%20bedroom%20wall.pdf).
-- And I get the paperwork for the flat above mine, number 23.
-    - [Note simple number 23](../../content/documents/evidence/number%2023%20upstairs.pdf).
+![Farters upstairs](../../content/tweets/march-2024/monday-night-stalker-reveal.png)
+
+- So I request [the paperwork for number 23](../../content/documents/evidence/number%2023%20upstairs.pdf) also.
+
+#### Squeaking pipes
+
+- I would be at home, at work or relaxing, and I would hear the water pipes in the kitchen squeaking as if they were moving around.
+- I tested it by moving those pipes myself, and it was that exact noise.
+- I remember this happening during 2022 and 2023, and maybe again in 2024.
+- Was this how the brain-damaging herbs were administered?
+- It was so common, and concerning, I remember thinking it must have been cockroaches under the sink walking on the water pipes.
+- I would go to check and see nothing and forget about it.
+- This makes me even more suspicious about Marie Carmen and her ornate cabinet which I remember seeing specifically (i.e. it was pointed out to me so I would remember it later).
+
+#### Puffs of air 
+
+- Another weird sound I heard regularly was a short puff of air.
+- I thought it was the hot water boiler.
+- Now I'm not so sure.
+- Could this be the sedating and sexual arousal drug administering mechanism?
+
+### Summary of poisoning and drugging
+
+- The effects of drugging and poisoning in my apartment caused me permanent brain-damage, frequent sedation, timed sexual arousal, and permanent effects of hallucinogens.
+- Let's assume they use different techniques for different outcomes.
+- My guess is the following:
+
+    1. Brain-damaging herbs coming into the water direct from some mechanism built into the joining wall with number 16.
+    1. A sedating mechanism coming in via the air-conditioning vent close to my bed, triggered after I had gone to bed and in the afternoons in the main room.
+    1. The timed sexual arousal is very clever; especially in the car. I'm wondering if this is psychological triggering manipulation via social media, and hacked phone sub-audio apps *together with* the ingestion of constant low-to-high-dose hallucinogens. I believe the hallucinogens were added directly to food, the bottled water I drank, and my bathroom products: face wash, shower gel, shampoo, toothpaste.
+
+- Of course, all avenues of administration would convert into one for the purpose of eventual murder.
+
+| Desired outcome                                 | Poison used                           | Administrating technique                                 |
+|-------------------------------------------------|---------------------------------------|----------------------------------------------------------|
+| Brain-damage for switcheroo porn                | Poisonous herb: mandrake?             | Direct into drinking water from adjoining wall mechanism |
+| Sedating a victim                               | Anaesthetic gas                       | Via the air-conditioning system                          |
+| Drugging a victim: hallucinatory/sexual arousal | Mushrooms/hallucingens/extasy     | Direct into food, water bottles, and bathroom products   |
+| Murder                                          | Methanol, pesticides, brake-fluid etc | All the above once the order is given                    |
 
 ## Trying to find the cameras
 
