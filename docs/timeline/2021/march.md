@@ -38,13 +38,13 @@ function googleTranslateElementInit() {
 
 - Soon after the [Chronicle Software](january.md#chronicle-software) role goes sour, I'm offered a new contract with a crypto company [Qredo](https://www.qredo.com/).
 - On the first day, I see a name fly-by on Slack: *Anita Diamond*.
-- You may remember [Anita and her husband visiting me in Dénia in 2006](../early-years/2006.md#matthew-goes-upstairs-on-his-own), just before the [Dave Porter Guardian Soulmates porn-fatwa fiasco](../early-years/2006.md#guardian-soulmates), orchestrated online by [world-famous poisoner and serial-killer Hazel (Fiona) Smith](../early-years/2007.md#hazel-smith) and her manipulation-tech associates.
+- You may remember [Anita and her husband visiting me in Dénia in 2006](../2001-to-2010/2006.md#matthew-goes-upstairs-on-his-own), just before the [Dave Porter Guardian Soulmates porn-fatwa fiasco](../2001-to-2010/2006.md#guardian-soulmates), orchestrated online by [world-famous poisoner and serial-killer Hazel (Fiona) Smith](../early-years/2007.md#hazel-smith) and her manipulation-tech associates.
 - This is a huge coincidence - or is it?
 - Anita Diamond, it turns out, is also working as a technical writer for the company, the role I've just been hired for.
 - Did they really need two?
 - I'm very surprised to see Anita, an old, dear, and vulnerable friend who has suffered from serious mental health issues ever since she was a teenager.
 - Like all porn-gang-tailored relationships, something happens when they're done with you that ensures you don't maintain communication.
-- Anita and Matthew had been [rather unpleasant with me](../early-years/2006.md#matthew-and-anita-say-something-i-only-mentioned-online) after they visited, so I'm not entirely thrilled to see her and wonder how things are going to be.
+- Anita and Matthew had been [rather unpleasant with me](../2001-to-2010/2006.md#matthew-and-anita-say-something-i-only-mentioned-online) after they visited, so I'm not entirely thrilled to see her and wonder how things are going to be.
 - We reconnect, and I'm friendly and happy to see her.
 - I am delighted to see her, in fact, and remember only the good things I always loved about her when we were at school together.
 - Nevertheless, something is off.

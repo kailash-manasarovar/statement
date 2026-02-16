@@ -87,7 +87,7 @@ function googleTranslateElementInit() {
 - From this moment onwards, the English language of the stalker accounts becomes fluent, native, and vernacular. 
 - In retrospect, I'm convinced this is when [Hazel Smith](../early-years/2007.md#hazel-smith), her family, the wider British gang membership, and her local English-speaking associates, such as [Patricia and Christine](../2022/november.md#walking-in-benijembla-with-the-english-ladies), step in.
 - I guess many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
-- In September 2023, however, I have no idea Hazel and Sandra Smith are involved, and have been involved in the story since [2006](../early-years/2006.md#september). This key to the story starts to come out in a rather curious way about a month later.
+- In September 2023, however, I have no idea Hazel and Sandra Smith are involved, and have been involved in the story since [2006](../2001-to-2010/2006.md#september). This key to the story starts to come out in a rather curious way about a month later.
 - At the time, I believe the wild interest on my *tweet-for-help* and the sudden 1000s of followers I gained were mostly genuine. 
 
 ## Immature boy, bad companions, or both?
