@@ -924,8 +924,8 @@ function googleTranslateElementInit() {
 
 ## The police trafficking email
 
-- Inma gave me the email for reporting suspected sex trafficking to the Spanish police.
-- She tells me it's anonymous and a safe for me to use. 
+- Inma gives me the email for reporting suspected sex trafficking to the Spanish police.
+- She tells me it's anonymous and safe for me to use. 
 - I send an email to `trata@policia.es`.
 - I tell them about the [innocent woman](august.md#grooming-an-innocent-girl-into-porn-101), the [woman in the car](september.md#another-upsetting-targeted-woman), and I even mention [Elsa from choir](august.md#18) class at the conservatory.
 
@@ -953,9 +953,11 @@ function googleTranslateElementInit() {
     Also, this X account seems to belong to a student at the Denia Conservatory, someone who was in the choir class with me, and possibly with others who are "preparing"...
     Thanks
 
-- Remember. I had not started writing my statement at this point.
-- I get a response from Dénia police who were [extremely unhelpful in February](february.md#my-first-trip-to-the-spanish-police-in-denia), refusing even to take my name and make a record of my visit.
-- I do not respond to them.
+- Remember: I had not started writing my statement at this point and I was in a very precarious state of health and mind at my home in Carrer Furs.
+- Eventually I receive a short response from Dénia police who were [extremely unhelpful in February](february.md#my-first-trip-to-the-spanish-police-in-denia), refusing even to take my name and make a record of my visit.
+- They ask me to contact them directly.
+- I do not.
+- I tell Inma what happened, and that I'm angry that the email did not seem to be anonymous at all.
 
 ## Mercadona
 
