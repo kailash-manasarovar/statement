@@ -11,3 +11,15 @@
 - I find it so strange I start to record my sleeps for noise.
 - There is never anything untoward on the recordings.
 - I tell [Anita at Qredo](march.md#qredo) about this.
+
+## Earphones clicking
+
+- Another weird thing that started happening was my headphones would make an extremely loud mechanical noise and I would have to remove them.
+- On other occasions they would click, but at such high decibel it was painful.
+- This was on a MacBook with proper headphones.
+- I believe this was porn-gang hackers, possible the [second man who was always around at Lourdes](../../crimes/protagonists/vidal-sastre.md#the-younger-brother-of-the-first-man) messing with me in the way that abusive men do to the women they hate, as if it's a funny game.
+- It also means they hack right down to controlling the hardware and peripherals, and I have never been able to remove this access. As quick as I reformat, or buy a new machine, they're back in.
+- In February 2026, they started doing the same loud clicking again, on a Windows machine.
+- It's very annoying.
+- I suspect they're annoyed they're all heading for eternal infamy, and not in a good way.
+
