@@ -924,10 +924,38 @@ function googleTranslateElementInit() {
 
 ## The police trafficking email
 
-- I send a mail to the `trata@policia.es` email, an anonymous email where I'm told I can send information safely.
-- [The email and responses](../../content/documents/emails/trata@policia.pdf).
-- I get a response from Dénia police who were [decidedly unhelpful in February](february.md#my-first-trip-to-the-spanish-police-in-denia).
-- I do not respond.
+- Inma gave me the email for reporting suspected sex trafficking to the Spanish police.
+- She tells me it's anonymous and a safe for me to use. 
+- I send an email to `trata@policia.es`.
+- I tell them about the [innocent woman](august.md#grooming-an-innocent-girl-into-porn-101), the [woman in the car](september.md#another-upsetting-targeted-woman), and I even mention [Elsa from choir](august.md#18) class at the conservatory.
+
+[![Trafficking email](../../content/images/trafficking-email.png)](../../content/documents/emails/trata@policia.pdf)
+
+??? info "Translated email"
+    TITLE: Hacking and online harassment with photos of women that "I think" are being trafficked
+    5 messages
+    KJ Chardwood <katharinejchardwood@gmail.com> (note this account is completely blocked since I returned to the UK and I had full access in Thailand)
+    To: trata@policia.es
+    Hello,
+    Tue, Oct 29, 2024 at 4:59 PM
+    I have been hacked by thieves from Denia for more than two years now. It started with the teachers and other jobs at the Denia Conservatory and escalated when I didn't leave. I love Denia, although I had to finish my studies at the conservatory because I was afraid for my life.
+
+    I have written to you; there is a complaint in Madrid (Denia police told me to go!) that I need to escalate very soon, and I have also written to the Guardia Civil, and there is probably an investigation underway, I don't know.
+
+    But, still, they send me, every day, photos of this same woman (and another one that I will send you later as well) and I am worried that she is in danger. It really bothers me to receive these photos on Twitter from fake accounts. I've been getting photos of this woman for over a year now. I don't know why. But you'll see that they start in a very innocent way, progressing to situations where it seems she's doing very bad pornography or something... I don't know... Perhaps these photos can help you in your fight against this epidemic of sexual exploitation we're suffering. Also, I've been sent photos of so many women who seem unaware of being sexually recorded, and things like that. I have many. They really bother me, and I think these thieves really enjoy bothering me this way. I'm saving them for when someone wants to talk to me about this horrible thing I've been dealing with here in Denia. Thank you for your attention. Please also excuse my terrible Spanish. Dr. Katharine Murphy
+    Denia, Alicante
+
+    Thank you.
+    Here's the other woman who always sends me photos (there's a photo of her in the previous email, also here). I see this new woman sending nudes to her partner or boyfriend/girlfriend, or whatever... and he/she takes normal photos of her on the street... and then, she's in a car, she looks drugged, and with less and less clothing, and finally, no clothes at all... and I think something very violent has happened to her... I hope not, but she doesn't want these photos published.
+
+    Thank you for your attention. Katharine
+
+    Also, this X account seems to belong to a student at the Denia Conservatory, someone who was in the choir class with me, and possibly with others who are "preparing"...
+    Thanks
+
+- Remember. I had not started writing my statement at this point.
+- I get a response from Dénia police who were [extremely unhelpful in February](february.md#my-first-trip-to-the-spanish-police-in-denia), refusing even to take my name and make a record of my visit.
+- I do not respond to them.
 
 ## Mercadona
 
