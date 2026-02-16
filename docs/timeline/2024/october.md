@@ -927,7 +927,7 @@ function googleTranslateElementInit() {
 - Inma gives me the email for reporting suspected sex trafficking to the Spanish police.
 - She tells me it's anonymous and safe for me to use. 
 - I send an email to `trata@policia.es`.
-- I tell them about the [innocent woman](august.md#grooming-an-innocent-girl-into-porn-101), the [woman in the car](september.md#another-upsetting-targeted-woman), and I even mention [Elsa from choir](august.md#18) class at the conservatory.
+- I tell them about the [innocent woman](august.md#grooming-an-innocent-girl-into-porn-101), the [woman in the car](september.md#another-upsetting-targeted-woman), and I even mention [Elsa from choir](august.md#18) at the conservatory.
 
 [![Trafficking email](../../content/images/trafficking-email.png)](../../content/documents/emails/trata@policia.pdf)
 
