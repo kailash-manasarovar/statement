@@ -888,27 +888,27 @@ function googleTranslateElementInit() {
 
 ## Trying to find the cameras
 
-- It's clear to me that the drugging and poisoning techniques *cannot* work without constant surveillance in my apartment.
-- I'm certain there are spy-cams all over my home, and I believe I mentioned to [Kelly Oliver Dougall](#youtube-with-kelly-oliver-dougall) after she had stopped recording that I was going to continue looking for them.
-- Someone might have a copy of that.
-- I looked hard for them, but they are impossible to find.
-- When I think of how they secretly filmed [Irene's over 30-years ago](august.md#irene-the-plate-lady), and she did not notice, I'm aware that the spy-cam tech they use must be extremely advanced and practically invisible to the naked eye.
+- The drugging and poisoning techniques *cannot* work without constant surveillance in my apartment.
+- They need to know when I'm going out so they can enter, when I've ingested something toxic, when I'm overwhelmed with sexual arousal and, most importantly, when I go for a nap or to bed at night.
+- I'm certain there are spy-cams all over my home, and I believe I mentioned to [Kelly Oliver Dougall](#youtube-with-kelly-oliver-dougall) after she had stopped recording that I was going to continue looking for them. Someone probably has a copy of that.
+- I looked hard for the cameras, but they are impossible to find.
+- When I think about how they secretly filmed [Irene over 30-years ago](august.md#irene-the-plate-lady), and she did not notice, I'm aware that the spy-cam tech they use currently must be extremely advanced and practically invisible to the naked eye.
 - Nevertheless, I believe there is a spy-cam on the ceiling in the living room above the TV; I always noticed a little black dot there while I was doing yoga and I examined it once and it was not dirt.
 - I believe there is one on the ceiling in the corner of the bedroom, close to the window, which matches the position of the spy-cam porn posted on my Google search results of me asleep in bed with my fluffy bed-socks on and a large naked man hovering over me.
 - I always felt I was being watched at the mirror in my bathroom, especially when I was feeling overwhelmingly sexually aroused.
-- I found a huge purposeful hole in the wall behind the bathroom mirror after doing the interview with Kelly, and it looked like I could fit my hand into it. I told many people this.
-- It's curious because when I had tried to look behind the mirror prior to them dousing my belongings with pesticides I was not able to move it at all.
+- I found a huge purposeful hole in the wall behind the mirror after doing the interview with Kelly, and it looked like it was so big I could fit my hand into it. I told many people this.
+- It's curious because when I had tried to look behind the mirror prior to them [dousing my belongings with pesticides](#the-router-malfunctions) I was not able to move it at all.
 
 !!! danger "I said "huge" when I first wrote this section in November 2024"
     - This is amazing to me.
-    - When I showed Paul the hole behind the mirror in the bathroom in February 2024, it was tiny.
+    - When I showed Paul [the hole behind the mirror in the bathroom in February 2024](../2025/february.md#paul-helps-me-move-back-to-uk), it was tiny.
     - This was shocking!
-    - I had obviously been hallucinating extremely hard.
-    - Paul played it down as nothing, as usual, but the whole was certainly big enough for a fairly large spy cam.
+    - I had obviously been hallucinating extremely hard during this last week of October in my apartment, and it made me even more convinced of methanol poisoning.
+    - Paul played it down as nothing, as usual, but the hole, though small, was certainly big enough for a fairly large spy-cam.
 
-- There is another hole behind the sofa on the wall.
+- There is another hole on the wall behind the sofa.
 - I was also suspicious about the television, and Pedro the caretaker had made weird comments about the TV previously. 
-- Furthermore, Paul was *extraordinarily enthusiastic* about his certainty there was no spy-cam in the television and gave numerous reasons for their not being one.
+- Furthermore, Paul was *extraordinarily enthusiastic* about there being no possibility of a spy-cam in the television and he gave numerous reasons for it too.
 - So I guess I was right about the TV.
 - I believe the spy-cam network hub was called **Casa LANister** and you could see it on the available networks.
 
@@ -918,9 +918,9 @@ function googleTranslateElementInit() {
 
 ### Confirmation from the telecommunications engineer 
 
-- When the man from Telco came to [fix the router](#the-router-malfunctions), he had obviously been told to tell me about the spy-cam LAN (so I'd leave before dying, I guess).
-- He asks me to come over to where he is standing, which is underneath the black dot where I believe there's a spy-cam, and also in front of the TV.
-- He starts talking about something particularly inconsequential, and while he's doing so he's pointing at the *Casa LANister* connections very slowly, and very pointedly, and looking at me meaningfully as he does while mumbling about something completely irrelevant.
+- When the man from Telco came to [fix the router](#the-router-malfunctions), he had obviously been told to tell me about the spy-cam LAN (so I'd leave my home before dying, I guess).
+- He asks me to come over to where he is standing, which is underneath the black dot where I believe there's a spy-cam and in front of the TV.
+- He starts talking about something inconsequential, and while he's doing so he's pointing at the *Casa LANister* connections very slowly, and very pointedly, and looking at me meaningfully as he does while mumbling about something completely irrelevant.
 
 ## The police trafficking email
 
