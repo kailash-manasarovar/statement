@@ -919,7 +919,7 @@ function googleTranslateElementInit() {
 ### Confirmation from the telecommunications engineer 
 
 - When the man from Telco came to [fix the router](#the-router-malfunctions), he had obviously been told to tell me about the spy-cam LAN (so I'd leave my home before dying, I guess).
-- He asks me to come over to where he is standing, which is underneath the black dot where I believe there's a spy-cam and in front of the TV.
+- He asks me to come over to where he is standing, which is underneath the black dot which believe is a spy-cam and in front of the TV.
 - He starts talking about something inconsequential, and while he's doing so he's pointing at the *Casa LANister* connections very slowly, and very pointedly, and looking at me meaningfully as he does while mumbling about something completely irrelevant.
 
 ## The police trafficking email
