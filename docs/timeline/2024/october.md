@@ -961,17 +961,25 @@ function googleTranslateElementInit() {
 
 ## Mercadona
 
-- The last time I visit Mercadona, probably the last week of October just before I leave, I am mass-harassed.
-- A woman is pointing and laughing at me.
+- The last time I visit Mercadona near my house, during the last week of October just before I leave, I am mass-harassed.
+- A woman is standing still, pointing and laughing at me.
 - People are giving me weird looks.
-- The checkout lady looks like the sister of [the second and a half man, Mark](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013).
+- The checkout lady looks like the sister of [the second trumpet teacher, Mark](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013).
 - She's ashamed and won't look at me.
-- As I leave the store, the door is shut and won't open.
-- I'm pressing the button and they've put the word "pervert" on the LED.
+- As I leave the store, the door slides shut and won't open for me.
+- I'm pressing the button, and I see the word "pervert" printed on the LED where it usually says "open".
+
+![Mercadona](../../content/images/mercadona.png)
+
 - I hear laughing.
-- I find it ridiculous. It's supposed to terrify me.
-- Could the whole of Denia know I was a switcheroo porn target, and need to be rid of me because the next batch of targets needs attending to?
-- It seems likely, or worse even, perhaps many of the Denia men attended in person.
+- I find it ridiculous.
+- It's supposed to terrify me.
+- Does the whole town of Dénia know I starred in a switcheroo porn special filmed mostly on location at the conservatory?
+- Do they know I have no idea about what happened there because they gave me brain-damage by adding drugs to the water in my home?
+- Do they know that - because I refuse to be terrorized and leave the town (to be murdered quietly on live-stream elsewhere, I assume) - the criminals are now administering methanol or similar via the water in my home?
+- Is the town itching to view the next batch of targets ready to rent my spy-cam infested apartment?
+- I feel nauseated when I think that many men from the town (the dentist, the doctors, the music teachers..) must have entered my apartment without my knowledge while I was sedated, and this explains the constant snickering and sniggering from the men, and the nasty looks and fearful attacking reactions from the women.
+- How many women have lost their lives to the perverts of Dénia over the last decades?
 
 ## Silvia
 
