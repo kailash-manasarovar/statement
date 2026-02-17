@@ -246,6 +246,10 @@ function googleTranslateElementInit() {
 - What could be so interesting about me to put so much time, effort, and resources into doing me serious harm? 
 - None of it made any sense.
 
+### Brian
+
+- wip
+
 ## Adding spy-cams to my London address
 
 - If you knew your spy-cam porn star was moving house, and you were 100% convinced that no-one would ever help her, and you were making untold money on spy-cam porn from her alone, how would you arrange spy-cams to be set up in her bathroom before she moved back?
