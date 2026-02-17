@@ -252,8 +252,9 @@ function googleTranslateElementInit() {
 - Things he said about being told I was a prostitute in Amsterdam.
 - Ugly: did Ugly find a porn addict close to me - the gang's MO (check subscription database) - he could persuade to groom me (cos he knew the money was coming), and there was Brian.
 - I'll have to think about how that was all set up.
-- Back home.
-- Disasters.
+- Back home. One evening with *the boys*.. was it a "date"?
+- One evening when Brian went awol and ended up in a hotel... another "date"?
+- Disasters, drinking, drugs, violence: why was the metal lampshade live with electricity one morning when he was out, with the bulb broken, that I couldn't change cos I couldn't reach it but if I had I'd be dead, that the property manager was extremely suspicious about how it happened, that Brian was very anxious about the property manager's suspicions?
 - How Brian would phone me up drunk years later complaining he hadn't got any of my money.
 
 ## Adding spy-cams to my London address
