@@ -999,7 +999,7 @@ function googleTranslateElementInit() {
 ![pic]( ../../content/images/targeted-women/oct-24/3.png) 
 
 - At the time, I was conscious of there being only one trumpet teacher but I guess it's possible the daughter of the man that has been helping me was threatened.
-- It seemed a little far-fetched given the intensity of the attacks and that the information had a jeering energy.
+- It seemed a little far-fetched given the intensity of the attacks and the jeering tone of the information.
 - Moreover, it wasn't the only suggestion around what they meant by *Silvia*.
 - I eventually wondered if the name was *code* for a targeted-woman as it is a pun on the Spanish word for *whistle*.
 - I then remembered my [French friend Sylvie](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie) who was clearly surrounded by perverts, and I wondered if that was really her name or they'd told her to use that name when dealing with me.
