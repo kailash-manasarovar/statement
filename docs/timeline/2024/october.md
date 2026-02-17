@@ -993,7 +993,8 @@ function googleTranslateElementInit() {
 - The implication is that the trumpet teacher had a drug debt that he couldn't pay off and the pornographers had threatened to target his daughter Silvia.
 - In order to avoid this, the trumpet teacher had agreed to target and drug me at the conservatory of Dénia.
 - The profile pic came via a DM to me on X with a reference to pornography with the child in the photo. 
-- I reported this to X.
+- This flew in just after significant references on X to Silvia, drug debts, trumpets, daughters, etc.
+- I reported the account to X.
 
 ![pic]( ../../content/images/targeted-women/oct-24/2.png)  
 ![pic]( ../../content/images/targeted-women/oct-24/3.png) 
