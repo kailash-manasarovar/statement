@@ -36,7 +36,9 @@ function googleTranslateElementInit() {
 ### Nicolas 
 
 - Nicolas reaches out and is clearly of the mind that I will be coming to his department to work for them, for him.
-- He schedules meetings that last an hour and talks for two hours and I do not get to speak.
+- He schedules meetings that last an hour and talks for two hours and I do not get to speak, at all.
+- He points out things I'm doing wrong continuously in these initial meetings: *oh your sound is not so good can you fix it*, *I still can't hear you*, *oh, you should probably adjust your settings*, *oh you should definitely not be using...*, *oh why do you do that particular thing*, etc. etc., pretty arrogant for a first meeting.
+- Then he says: *Oh, your glasses are so reflective I can see your passwords as you enter them*.
 - Nicolas tells me he is a light-aircraft pilot in Brittany Northern France; I assume hobbyist.
 - He is building a new system for the docs. It's not clear why. They don't need one. Everything's working well.
 - Not only that, he is customizing what they have already - an efficient, flexible, and extremely functional platform running millions of websites worldwide - into something inflexible, liable to break, and a single-point-of-failure potentially.

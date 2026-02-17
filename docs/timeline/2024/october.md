@@ -981,22 +981,33 @@ function googleTranslateElementInit() {
 - I feel nauseated when I think that many men from the town (the dentist, the doctors, the music teachers..) must have entered my apartment without my knowledge while I was sedated, and this explains the constant snickering and sniggering from the men, and the nasty looks and fearful attacking reactions from the women.
 - How many women have lost their lives to the perverts of Dénia over the last decades?
 
-## Silvia
+## The Silvia meme
 
-- The hackers imply that Silvia is the trumpet teacher's daughter and post pictures of a child who is supposed to be her.
-- This has been an ongoing theme.
-- The implication is that the trumpet teacher had a drug debt that he couldn't pay off and the pornographers had threatened to target his daughter Silvia.
-- In order to avoid this, the trumpet teacher had agreed to target and drug me at the conservatory of Dénia.
+- I'm still not sure what they meant when they used the name *Silvia*.
+- I heard it said again and again, from very early on in-person at classes in the conservatory, and continuously online.
+- One of the strongest suggestions was that Silvia is the trumpet teacher's daughter.
+- In early October, they post pictures of a child who is supposed to be the daughter, Silvia.
 
 ![pic]( ../../content/images/targeted-women/oct-24/1.png)
 
-- The profile pic came through a DM to me on Twitter with a reference to pornography with the child in the photo. I report this to Twitter.
+- The implication is that the trumpet teacher had a drug debt that he couldn't pay off and the pornographers had threatened to target his daughter Silvia.
+- In order to avoid this, the trumpet teacher had agreed to target and drug me at the conservatory of Dénia.
+- The profile pic came via a DM to me on X with a reference to pornography with the child in the photo. 
+- I reported this to X.
 
 ![pic]( ../../content/images/targeted-women/oct-24/2.png)  
 ![pic]( ../../content/images/targeted-women/oct-24/3.png) 
 
-- I tweet about this and post on Facebook.
-- I don't know if it's true or yet another made up intrigue.
+- At the time, I was conscious of there being only one trumpet teacher but I guess it's possible the daughter of the man that has been helping me was threatened.
+- It seemed a little far-fetched given the intensity of the attacks and that the information had a jeering energy.
+- Moreover, it wasn't the only suggestion around what they meant by *Silvia*.
+- I eventually wondered if the name was *code* for a targeted-woman as it is a pun on the Spanish word for *whistle*.
+- I then remembered my [French friend Sylvie](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie) who was clearly surrounded by perverts, and I wondered if that was really her name or they'd told her to use that name when dealing with me.
+- Also, the photo reminded me of the photo that [Sandra Diaz used on her WhatsApp in 2014](../early-years/2014.md#sandra-rita-diaz) when I met her. 
+- Its salaciousness took me aback, like many of her antics.
+- She was dressed in a skintight jeans and a leopard-print top and she was holding a cat in exactly the same manner as the child in the photo.
+- I added the [Sylvia meme information](../../evidence/memes-and-triggers.md#sylvia) to the evidence section.
+- I guess we'll be finding out what they mean by *Silvia* very soon.
 
 ## Suspected targets
 
