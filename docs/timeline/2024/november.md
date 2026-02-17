@@ -248,7 +248,12 @@ function googleTranslateElementInit() {
 
 ### Brian
 
-- wip
+- Initial groom - was he taking instructions from them.
+- Things he said.
+- Ugly - did Ugly find a porn addict close to me he could persuade to groom me (cos he knew the money was coming).
+- Back home.
+- Disasters.
+- How Brian would phone me up drunk years later complaining he hadn't got any of my money.
 
 ## Adding spy-cams to my London address
 
