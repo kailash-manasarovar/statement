@@ -1002,12 +1002,12 @@ function googleTranslateElementInit() {
 - It seemed a little far-fetched given the intensity of the attacks and the jeering tone of the information.
 - Moreover, it wasn't the only suggestion around what they meant by *Silvia*.
 - I eventually wondered if the name was *code* for a targeted-woman as it is a pun on the Spanish word for *whistle*.
-- I then remembered my [French friend Sylvie](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie) who was clearly surrounded by perverts, and I wondered if that was really her name or they'd told her to use that name when dealing with me.
-- Also, the photo reminded me of the photo that [Sandra Diaz used on her WhatsApp in 2014](../early-years/2014.md#sandra-rita-diaz) when I met her. 
+- I then remembered my [French friend Sylvie](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie) who was clearly surrounded by perverts back in 2015, and I wondered if that was really her name or they'd told her to use it when dealing with me.
+- Also, the photo of the child reminded me of the photo that [Sandra Diaz used on her WhatsApp in 2014](../early-years/2014.md#sandra-rita-diaz) when I met her. 
 - Its salaciousness took me aback, like many of her antics.
 - She was dressed in a skintight jeans and a leopard-print top and she was holding a cat in exactly the same manner as the child in the photo.
 - I added the [Sylvia meme information](../../evidence/memes-and-triggers.md#sylvia) to the evidence section.
-- I guess we'll be finding out what they mean by *Silvia* very soon.
+- I guess we'll be finding out what they really mean by *Silvia* very soon.
 
 ## Suspected targets
 
