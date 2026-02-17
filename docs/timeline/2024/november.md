@@ -128,6 +128,17 @@ function googleTranslateElementInit() {
 - A man walks past me making porn faces at me.
 - This happens multiple times in Bangkok.
 
+### But I have help, too
+
+- It's around this time I start to notice I'm getting help.
+- I feel a group of people warned me about the poisons in my toiletries in a curious way; just like something teachers and staff at the conservatory might do, a choreographed skit, but for good purposes.
+- It's only in retrospect and with a clear mind that knows the truth that I'm able to tie all this together rationally.
+- It looks like my handwritten letters had an impact, and someone was taking me seriously and started watching everything I do.
+- This has been the state of my life ever since. 
+- I'm not only hacked my the criminal gangs, but I also appear to be hacked by numerous international law enforcement organizations interested in what's been going on and very interested in the conversations I've been having with criminals online.
+- It's comforting.
+- But I wish it were over and people were nicked and the children were safe.
+
 ### Hackers seem to be annoyed
 
 - A direct message pops up: "Who's paying you?"
