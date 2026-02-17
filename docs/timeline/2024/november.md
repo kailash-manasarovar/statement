@@ -248,9 +248,10 @@ function googleTranslateElementInit() {
 
 ### Brian
 
-- Initial groom - was he taking instructions from them.
-- Things he said.
-- Ugly - did Ugly find a porn addict close to me he could persuade to groom me (cos he knew the money was coming).
+- Initial groom - was he taking instructions from them, love-triangle, trigger words, etc.
+- Things he said about being told I was a prostitute in Amsterdam.
+- Ugly: did Ugly find a porn addict close to me - the gang's MO (check subscription database) - he could persuade to groom me (cos he knew the money was coming), and there was Brian.
+- I'll have to think about how that was all set up.
 - Back home.
 - Disasters.
 - How Brian would phone me up drunk years later complaining he hadn't got any of my money.
