@@ -975,7 +975,7 @@ function googleTranslateElementInit() {
 - I find it ridiculous.
 - It's supposed to terrify me.
 - Does the whole town of Dénia know I starred in a switcheroo porn special filmed mostly on location at the conservatory?
-- Do they know I have no idea about what happened there because they gave me brain-damage by adding drugs to the water in my home?
+- Do they know I have no idea about what happened there because they gave me brain-damage by adding deadly drugs and herbs to the water in my home?
 - Do they know that - because I refuse to be terrorized and leave the town (to be murdered quietly on live-stream elsewhere, I assume) - the criminals are now administering methanol or similar via the water in my home?
 - Is the town itching to view the next batch of targets ready to rent my spy-cam infested apartment?
 - I feel nauseated when I think that many men from the town (the dentist, the doctors, the music teachers..) must have entered my apartment without my knowledge while I was sedated, and this explains the constant snickering and sniggering from the men, and the nasty looks and fearful attacking reactions from the women.
