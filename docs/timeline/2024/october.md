@@ -539,6 +539,7 @@ function googleTranslateElementInit() {
 - Paloma advised me to leave my apartment and go to Cullera to find a new place to live.
 - She said not to look for a place online, but to go into the estate agents there directly.
 - Is Cullera a neighbor-poisoning paradise and spy-cam hot-spot too?
+- Or is there something about Cullera that exempts it from the porn-gangs?
 
 ## Fátima 20-26th October
 
