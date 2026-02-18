@@ -534,6 +534,12 @@ function googleTranslateElementInit() {
 - Over the next few weeks, I see fake accounts fly-by online with names like *dubious government official*, and similar.
 - They know.
 
+### Cullera
+
+- Paloma advised me to leave my apartment and go to Cullera to find a new place to live.
+- She said not to look for a place online, but to go into the estate agents there directly.
+- Is Cullera a neighbor-poisoning paradise and spy-cam hot-spot too?
+
 ## Fátima 20-26th October
 
 - I arrive in Fátima on the evening of the 20th and stay at the Mercure.
