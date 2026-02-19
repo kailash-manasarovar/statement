@@ -248,6 +248,7 @@ function googleTranslateElementInit() {
 
 ### Brian
 
+- See: [Brian sees Ugly in Amsterdam in 2001](../2001-to-2010/2001.md#amsterdam).
 - Initial groom - was he taking instructions from them, love-triangle, trigger words, etc.
 - Things he said about being told I was a prostitute in Amsterdam.
 - Ugly: did Ugly find a porn addict close to me - the gang's MO (check subscription database) - he could persuade to groom me (cos he knew the money was coming), and there was Brian.
