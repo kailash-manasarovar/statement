@@ -506,7 +506,7 @@ function googleTranslateElementInit() {
 - She tells Inma and I that the police in the whole Valencian region cannot be trusted. 
 - *You can't go to the police down there, they won't help you*, she says. 
 - I knew it already.
-- She doesn't seem to be interested in anything I have to say, until one moment when I mention that the trumpet teacher's daughters might be kidnapped if he doesn't do what they say.
+- She doesn't seem to be interested in anything I have to say, until one moment when I mention that the trumpet teacher's daughters might be kidnapped if he doesn't do what they say - this has been [a repeated online theme](#the-silvia-meme).
 - At that moment, her eyes light up and she says, *oh we can do something with that*.
 - I'm dismayed.
 - A woman or child can go through years of torture and no-one cares, but the minute a man is in trouble, even a man involved in the torturing, everyone's happy to spring into action.
