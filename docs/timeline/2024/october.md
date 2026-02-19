@@ -485,21 +485,22 @@ function googleTranslateElementInit() {
 - I arrange to meet Inma and her friend Blanca, and the woman who can help me, Paloma, who works for the Spanish foreign office, or similar, in London.
 - We meet in the cafe of an upscale shopping centre in a posh area in the North of Madrid, close to the M30, around 1pm on Sunday 20th October.
 - Paloma has flown in from London.
-- I'm so grateful to Inma, Blanca, and Paloma, and I'm truly relieved that finally someone is going to help me.
+- I'm so grateful to Inma, Blanca, and Paloma, and I'm truly relieved that finally someone is going to help me, and the women and children in danger throughout Spain.
 - Inma, Blanca, and her adopted Russian son arrive together.
 - Paloma arrives a little later.
 - There is a lot of talk about how secure Paloma's phone is, how it will pick up any sort of hacking interference and shutdown the whole network in the building.
 - Blanca's son leaves.
-- They wouldn't talk about anything serious in front of him, and the woman all shut me down when I mentioned being terrorized in Dénia while he was sitting with us.
+- They wouldn't talk about anything serious in front of him, they made a great deal of how good looking he is.
+- The women shut me down when I mentioned being terrorized in Dénia while he was sitting with us.
 - Once he's gone, we start talking.
 - I tell them that everyone knows me in Dénia, and not in a good way.
 - Blanca leaves about twenty minutes later. 
-- As she leaves, she gives me a foul dirty look. She looks disgusted with me.
+- As she leaves, she gives me a foul dirty look. She's disgusted with me.
 - It's too incongruous to think about. I file it away.
 - I try to explain to Paloma what's been going on.
 - Paloma doesn't really listen to me when I speak, she talks directly to Inma.
 - They both keep telling me to keep my voice down; I can't.
-- I tell Paloma about [Irene](august.md#irene-the-plate-lady), about [Rocio Vidal](../2023/october.md#rocio-vidal), about the hundreds of other women.
+- I tell Paloma about [Irene](august.md#irene-the-plate-lady), about [Rocio Vidal](../2023/october.md#rocio-vidal), about the hundreds of other women, about the children Domingo is responsible for.
 - I have to push to be heard; although Paloma sort of groans at every new horror I mention, as if none of this is unfamiliar to her.
 - She looks at her phone and says, *oh, yes, Rocio Vidal was hacked*.
 - I tell her about my trips to the police and how they're ignoring me.
@@ -513,7 +514,7 @@ function googleTranslateElementInit() {
 - It feels like industrial-scale woman-hating and tacitly-accepted sexual grooming of minors, and worse.
 - Her words suggest thousands of ignored complaints.
 - No wonder Dénia happened.
-- I then tell her about Hazel and Sandra Smith, and how I have known who and what they are since 2007, about how they were at the Old Bailey for honey-trapping, poisoning, and murdering wealthy elderly people in London in the 90s and how they were found not guilty, about how they've been free to target the ex-pat elderly in the Marina Alta, about how Hazel is the accountant for hundreds of vulnerable British people, and about how she tried to murder me by poisoning in 2007.
+- I then tell her about Hazel and Sandra Smith, and how I have known who and what they are since 2007, about how they were at the Old Bailey for honey-trapping, poisoning, and murdering wealthy elderly people in London in the 90s and how they were found not guilty, about how they've been free to target the ex-pat elderly in the Marina Alta, about how Hazel is the accountant for hundreds of vulnerable British people, and about how [she tried to murder me by poisoning in 2007](../early-years/2007.md#hazel-smith).
 - I tell Paloma that the Smiths are working with the Spanish criminals based at the conservatory.
 - Inma says she remembers me mentioning something in 2007.
 - I had told Inma back then that I had seen well-known British criminals in the Marina Alta, Las Marinas to be precise, without giving any details.
@@ -527,10 +528,10 @@ function googleTranslateElementInit() {
 - Thank you Paloma! 🙏🏼 It was a great idea.
 - She tells me that with a timeline, she can help me, and maybe get Interpol involved.
 - She says her sister lives in La Sella and she will talk to her to find out what's going on.
-- La Sella is just a few kilometers up the road from Dénia. It’s where the [Scottish woman lives, close friends with Zoe BJ, the one running a charity](../early-years/2016.md#the-scottish-woman).
+- La Sella is just a few kilometers up the road from Dénia. It’s where the [Scottish woman lives, close friends with Zoe BJ, the woman with chronic cystitis who runs a charity](../early-years/2016.md#the-scottish-woman).
 - Paloma tells me that once we have the timeline, we can help [Irene](august.md#irene-the-plate-lady) and the other women and children.
 - I hug her and thank her, but I don't expect to see or hear from her again.
-- As I leave, I hand her, written down by hand, the names of [the two little girls from Madrid that Domingo teaches](../2023/september.md#my-friend-the-german-translator) and I tell her I'm extremely concerned about their safety, and the safety of their wealthy single mother who he had persuaded to buy a Steinway. 
+- As I leave, I give her, written down by hand on a piece of paper, the names of [the two little girls from Madrid that Domingo teaches](../2023/september.md#my-friend-the-german-translator) and I tell her I'm extremely concerned about their safety, and the safety of their wealthy single mother who he had persuaded to buy a Steinway. 
 - Over the next few weeks, I see fake accounts fly-by online with names like *dubious government official*, and similar.
 - They know.
 
