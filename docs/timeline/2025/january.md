@@ -39,9 +39,12 @@
     - When a sexual abuse victim asks for help they are typically ignored, fastidiously disbelieved, sometimes even attacked, rarely heard.
     - It gets to the stage you realize you have to do everything for yourself.
     - You stop asking for help as it is a waste of time.
+    - It seems like the cult of the sexual predator is so powerful, and controls everyone's mind, that even your own family despises you.
 
 - I'm telling my story online and it is alarming some friends.
-- A Belgian friend is extremely concerned and says he'll come and help me but he then doesn't contact me for a few days.
+- A Belgian friend Nicos - who [I visited during EthCC](../2024/july.md#meeting-my-belgian-friend) is extremely concerned and says he'll come and help me but he then doesn't contact me for a few days. 
+- He ghosts me, in fact, and when I message him he says something about his children.
+- What has he heard?
 - I ask Paul, my [old friend who connected with me the previous June](../2024/june.md#social-media-and-paul), if he will help me go to the police in Madrid, and help me move too.
 - He agrees.
 
@@ -58,7 +61,7 @@
 - I meet Paul at Madrid airport.
 - He is emaciated; skin and bone.
 - He looks like he has been doing seriously hard drugs for decades.
-- He reminds me of Winston May's accomplice I saw outside [Rape Crisis Hornsey](../early-years/interim.md#rape-crisis-hornsey).
+- He reminds me of Winston May's accomplice I saw outside [Rape Crisis Hornsey](../early-years/interim.md#rape-crisis-hornsey), Busby.
 - Bizarrely, Paul did not come through to the arrivals hall at Madrid airport. Instead, he waits at the shuttle train station for about an hour.
 - When I arrive, I call him.
 - He's been there over an hour and he sort of pretends he doesn't know where he is or how to get out, and I tell him to come to arrivals as I'm collecting my bag.
@@ -86,12 +89,23 @@
 - I tell him to shut up.
 - I feel like someone has told him to distract me constantly so that I do not have a minute to think or collect my thoughts about anything.
 - He tells me he is sharing a flat with a man in North London. It turns out he's sleeping on the sofa and the owner is an opium addict.
-- I find out later he's living in his car and has been for years.
+- I find out later he's living in his car and has been for years; he kept it quiet.
 - He tells me he is not a heroin addict.
-- I have to take his word for it.
+- I have to take his word for it but it's hard to believe.
 - Nevertheless, I have no choice but to send him home and go to the police in Madrid without him.
 - I give him my coat and a decent woolen jumper and tell him not to sell them.
 - I think about the many good people I know in North London whose lives were destroyed by drugs.
+
+### Ritzy
+
+- When I call Paul from Thailand to arrange to meet him at Madrid airport he's with Ritzy.
+- I don't know who this is and worry it sounds like a gang name and could be someone dodgy.
+- I tell him not to speak to anyone.
+- He laughs and says, *oh, it's just Ritzy*.
+- She's in her 90s and he does odd jobs for her, *all the time*.
+- Paul will do a few odd jobs for my mum and dad over January and February.
+- He seems to be seething with everyone, and deliberately does his own thing and breaks things, then charges £100 an hour.
+- Is he taking advantage of Ritzy?
 
 ### A child sexual abuse survivor gets retraumatized
 
