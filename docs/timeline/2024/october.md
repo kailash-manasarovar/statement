@@ -490,7 +490,7 @@ function googleTranslateElementInit() {
 - Paloma arrives a little later.
 - There is a lot of talk about how secure Paloma's phone is, how it will pick up any sort of hacking interference and shutdown the whole network in the building.
 - Blanca's son leaves.
-- They wouldn't talk about anything serious in front of him, they made a great deal of how good looking he is.
+- They wouldn't talk about anything serious in front of him, they made a great fuss of how good looking he is.
 - The women shut me down when I mentioned being terrorized in Dénia while he was sitting with us.
 - Once he's gone, we start talking.
 - I tell them that everyone knows me in Dénia, and not in a good way.
@@ -520,11 +520,11 @@ function googleTranslateElementInit() {
 - I had told Inma back then that I had seen well-known British criminals in the Marina Alta, Las Marinas to be precise, without giving any details.
 - I tell Paloma about the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101) and the [sedated woman in the car](september.md#another-upsetting-targeted-woman), and the many pictures I received that I believe are targeted women, including [a picture of one of Domingo's students](../2023/october.md#choir) Elsa.
 - I tell her about the [ugly man](august.md#ugly) following me in France. I don't remember I had not sent Inma the supplementary page describing him for some reason.
-- Paloma looks briefly at Inma, and then at me saying my story sounds like devil worship.
+- Paloma looks briefly at Inma, and then at me, and says my story sounds like devil worship.
 - I'm even more dismayed. 
 - I know what this means.
 - I know she's not going to help me; she's on a fact-finding mission for her bosses.
-- She does say, *it sounds like a chaos doesn't it*, to Inma, and advises I write a timeline.
+- She does say, *It sounds like a chaos doesn't it*, to Inma, and advises I write a timeline.
 - Thank you Paloma! 🙏🏼 It was a great idea.
 - She tells me that with a timeline, she can help me, and maybe get Interpol involved.
 - She says her sister lives in La Sella and she will talk to her to find out what's going on.
