@@ -1024,8 +1024,8 @@ function googleTranslateElementInit() {
 - All these fake accounts referenced porn in some manner.
 - I reported all the accounts to X for child sex trafficking.
 - I heard nothing back.
-- As before, it was impossible to screenshot everything sent to me in good faith and with the intention of helping me.
-- As usual, there was a bunch of red herring account sent by criminals to confuse.
+- As before, it was impossible to screenshot everything sent to me with the intention of helping me.
+- As usual, there was a bunch of red herring accounts sent by criminals to confuse things.
 
 ### Victims posted in October
 
@@ -1038,7 +1038,7 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/targeted-women/oct-24/4.5.png)
 
-- The dolls in the profile pic reminded me of [a very early dream](../2022/december.md#dreams-and-premonitions) about the trumpet teacher.
+- The dolls in the profile pic reminded me of [a very early dream](../2022/december.md#dreams-and-premonitions) I had about the trumpet teacher.
 
 ##### 2.
 
