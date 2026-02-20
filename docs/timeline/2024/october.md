@@ -1027,7 +1027,7 @@ function googleTranslateElementInit() {
 - I heard nothing back.
 - As before, it was impossible to screenshot everything sent to me with the intention of helping me.
 - As usual, there was a bunch of red herring accounts sent by criminals to confuse things.
-- For info, I saw similar numbers of targeted women every day online, but I only took screenshots at one moment, not continuously, which is why they all have the same or similar dates.
+- For info, I saw similar numbers of targeted women and girls every day online, but I only took screenshots at one moment, not continuously, which is why they all have the same or similar dates.
 
 ### Victims posted in October
 
