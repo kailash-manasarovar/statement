@@ -1039,6 +1039,7 @@ function googleTranslateElementInit() {
 ![pic]( ../../content/images/targeted-women/oct-24/4.5.png)
 
 - The dolls in the profile pic reminded me of [a very early dream](../2022/december.md#dreams-and-premonitions) I had about the trumpet teacher.
+- What is this account supposed to tell me?
 
 ##### 2.
 
@@ -1047,6 +1048,7 @@ function googleTranslateElementInit() {
 - Is this woman and the one above the same person? 
 - She looks like [the woman I saw on the beach with the possum-man](#sunday-6th-october); the one with the tattoo.
 - Her expression concerns me; I felt it was supposed to.
+- Who is she?
 
 ##### 3.
 
@@ -1057,30 +1059,37 @@ function googleTranslateElementInit() {
 - She reminds me of another girl I saw and had numerous photos of ... which I inexplicably cannot find anymore in my storage.
 - The girl was severely malnourished and photographed in various unsettling situations.
 - I think photos of this girl became similarly concerning but this one is prior to or at an early stage of grooming.
+- Who is she?
 
 ###### Update
 
-- Here is the girl I meant, I'm not sure it's the same girl as above after all, although it could be.
+- Here is the girl I meant; I'm not sure it's the same girl as above after all, although the series of photos from a pre-grooming state through grooming and then into prostitution or porn was the same.
 - Note the account name *LovelyQuentina*, and the porn references.
 
 ![pic]( ../../content/images/targeted-women/oct-24/7.5.png) 
+
+- Who is she?
 
 ##### 4.
 
 ![pic]( ../../content/images/targeted-women/oct-24/8.png) 
 
 - This girl looks extremely young.
+- Who is she?
 
 ##### 5.
 
 ![pic]( ../../content/images/targeted-women/oct-24/9.png) 
+
+- Wind-up account.
+- Who is she?
 
 ##### 6.
 
 ![pic]( ../../content/images/targeted-women/oct-24/10.png)
 
 - The profile account name references ["car lady"](september.md#another-upsetting-targeted-woman): *yeah I car lady*, a message for me.
-- I suspect *Tired Lady* confirms my suspicions the woman was sedated in the car.
+- I suspect *Tired Lady* confirms my suspicions the woman I saw continuously online was sedated in the car.
 - Embroidery is in reference to my sense that all the women of the town were sitting around knitting, or sewing, and wishing death on me; something I told Sandra Diaz and Alessandra about, and no-one else, but it quickly emerged as a stalker meme.
 
 ##### 7.
@@ -1094,6 +1103,7 @@ function googleTranslateElementInit() {
 
 - The street looked like the Calle Loreto in Dénia to me when I first saw this account, but it isn't.
 - The street *is* very similar looking, however, and easy to mistake under the influence of whatever was making me hallucinate back then.
+- Who is she?
 
 ##### 8.
 
@@ -1102,6 +1112,7 @@ function googleTranslateElementInit() {
 - Another minor child. 
 - Note the account name: *LovelyQuentina*, exactly the same name as the [malnourished and groomed minor above](#3).
 - Do their fake porn account generating systems get all muddled up?
+- Who is she?
 
 ##### 9.
 
