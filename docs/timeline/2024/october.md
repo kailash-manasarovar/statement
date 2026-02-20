@@ -1020,32 +1020,102 @@ function googleTranslateElementInit() {
 
 ## Suspected targets
 
-- There were a lot of minors posted on face accounts this month. 
-- I reported all suspected minors to Twitter.
+- I saw a lot of minors on fake X accounts this month, much more than previously. 
+- All these fake accounts referenced porn in some manner.
+- I reported all the accounts to X for child sex trafficking.
+- I heard nothing back.
+- As before, it was impossible to screenshot everything sent to me in good faith and with the intention of helping me.
+- As usual, there was a bunch of red herring account sent by criminals to confuse.
 
-| Some suspected targets posted in October |
-|-|
-| ![pic]( ../../content/images/targeted-women/oct-24/4.png) 
-Is this woman and the one below the same person? |
-| ![pic]( ../../content/images/targeted-women/oct-24/5.png)  
-This looks like the woman on the beach with the tattoo.|
-| ![pic]( ../../content/images/targeted-women/oct-24/6.png)  |
-| ![pic]( ../../content/images/targeted-women/oct-24/7.png) 
-Looks like a minor. |
-| ![pic]( ../../content/images/targeted-women/oct-24/8.png)  |
-| ![pic]( ../../content/images/targeted-women/oct-24/9.png)  |
-| ![pic]( ../../content/images/targeted-women/oct-24/10.png)
-The profile account name references "car lady".  |
-| ![pic]( ../../content/images/targeted-women/oct-24/11.png)
-The picture above looks like it's coming from a hacked phone. The young girl (minor?) is taking a photo of trainers in the sports shop in the Calle Loreto, Denia. |
-| ![pic]( ../../content/images/targeted-women/oct-24/11.5.png)
-The street is the Calle Loreto in Dénia.  |
-| ![pic]( ../../content/images/targeted-women/oct-24/12.png)  
-Another minor child. |
-| ![pic]( ../../content/images/targeted-women/oct-24/13.png) 
-The profile in which the child is included which references porn. |
-| ![pic]( ../../content/images/targeted-women/oct-24/14.png)  |
-| ![pic]( ../../content/images/targeted-women/oct-24/15.png)  |
+### Victims posted in October
+
+##### 1.
+
+![pic]( ../../content/images/targeted-women/oct-24/4.png) 
+
+- I'm aware this profile pic comes from a Netflix show, Russian Doll.
+- The account is still fake, however, and an intended wind-up of some variety.
+
+![pic]( ../../content/images/targeted-women/oct-24/4.5.png)
+
+- The dolls in the profile pic reminded me of [a very early dream](../2022/december.md#dreams-and-premonitions) about the trumpet teacher.
+
+##### 2.
+
+![pic]( ../../content/images/targeted-women/oct-24/5.png) 
+
+- Is this woman and the one above the same person? 
+- She looks like [the woman I saw on the beach with the possum-man](#sunday-6th-october); the one with the tattoo.
+- Her expression concerns me; I felt it was supposed to.
+
+##### 3.
+
+![pic]( ../../content/images/targeted-women/oct-24/7.png) 
+
+- Looks like a minor. 
+- Is she French?
+- She reminds me of another girl I saw and had numerous photos of ... which I inexplicably cannot find anymore in my storage.
+- The girl was severely malnourished and photographed in various unsettling situations.
+- I think photos of this girl became similarly concerning but this one is prior to or at an early stage of grooming.
+
+###### Update
+
+- Here is the girl I meant, I'm not sure it's the same girl as above after all, although it could be.
+- Note the account name *LovelyQuentina*, and the porn references.
+
+![pic]( ../../content/images/targeted-women/oct-24/7.5.png) 
+
+##### 4.
+
+![pic]( ../../content/images/targeted-women/oct-24/8.png) 
+
+- This girl looks extremely young.
+
+##### 5.
+
+![pic]( ../../content/images/targeted-women/oct-24/9.png) 
+
+##### 6.
+
+![pic]( ../../content/images/targeted-women/oct-24/10.png)
+
+- The profile account name references ["car lady"](september.md#another-upsetting-targeted-woman): *yeah I car lady*, a message for me.
+- I suspect *Tired Lady* confirms my suspicions the woman was sedated in the car.
+- Embroidery is in reference to my sense that all the women of the town were sitting around knitting, or sewing, and wishing death on me; something I told Sandra Diaz and Alessandra about, and no-one else, but it quickly emerged as a stalker meme.
+
+##### 7.
+
+![pic]( ../../content/images/targeted-women/oct-24/11.png)
+
+- The picture above looks like it's coming from a hacked phone.
+- The young girl (minor?) is taking a photo of something in the window of the shop and not a selfie.
+
+![pic]( ../../content/images/targeted-women/oct-24/11.5.png)
+
+- The street looked like the Calle Loreto in Dénia to me when I first saw this account, but it isn't.
+- The street *is* very similar looking, however, and easy to mistake under the influence of whatever was making me hallucinate back then.
+
+##### 8.
+
+![pic]( ../../content/images/targeted-women/oct-24/12.png)  
+
+- Another minor child. 
+- Note the account name: *LovelyQuentina*, exactly the same name as the [malnourished and groomed minor above](#3).
+- Do their fake porn account generating systems get all muddled up?
+
+##### 9.
+
+![pic]( ../../content/images/targeted-women/oct-24/13.png) 
+
+- The profile in which the child is included which references porn. 
+
+##### 10.
+
+![pic]( ../../content/images/targeted-women/oct-24/14.png)  
+
+##### 11.
+
+![pic]( ../../content/images/targeted-women/oct-24/15.png)  
 
 ## Threats
 
