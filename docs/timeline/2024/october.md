@@ -1021,8 +1021,8 @@ function googleTranslateElementInit() {
 ## Suspected targets
 
 - I saw a lot of minors on fake X accounts this month, much more than previously. 
-- All these fake accounts referenced porn in some manner.
-- I reported all the accounts to X for child sex trafficking.
+- All the fake accounts with minors referenced porn in some manner.
+- I reported everything I saw to X for child sex trafficking.
 - I heard nothing back.
 - As before, it was impossible to screenshot everything sent to me with the intention of helping me.
 - As usual, there was a bunch of red herring accounts sent by criminals to confuse things.
@@ -1111,22 +1111,27 @@ function googleTranslateElementInit() {
 
 - Another minor child. 
 - Note the account name: *LovelyQuentina*, exactly the same name as the [malnourished and groomed minor above](#3).
-- Do their fake porn account generating systems get all muddled up?
+
+![pic]( ../../content/images/targeted-women/oct-24/13.png) 
+
+- Do the porn account generating systems get all muddled up when overused?
 - Who is she?
 
 ##### 9.
 
-![pic]( ../../content/images/targeted-women/oct-24/13.png) 
+![pic]( ../../content/images/targeted-women/oct-24/14.png)  
 
-- The profile in which the child is included which references porn. 
+- This is a private photo that I should not be seeing on X.
+- Who is she?
 
 ##### 10.
 
-![pic]( ../../content/images/targeted-women/oct-24/14.png)  
-
-##### 11.
-
 ![pic]( ../../content/images/targeted-women/oct-24/15.png)  
+
+- This is another private photo.
+- I believe this girl is totally unaware she is being photographed.
+- Is she a minor?
+- Who is she?
 
 ## Threats
 
