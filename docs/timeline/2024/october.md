@@ -1020,12 +1020,14 @@ function googleTranslateElementInit() {
 
 ## Suspected targets
 
-- I saw a lot of minors on fake X accounts this month, much more than previously. 
+- I saw a lot of minors on fake X accounts this month, many more than previously. 
+- It was a bombardment.
 - All the fake accounts with minors referenced porn in some manner.
 - I reported everything I saw to X for child sex trafficking.
 - I heard nothing back.
 - As before, it was impossible to screenshot everything sent to me with the intention of helping me.
 - As usual, there was a bunch of red herring accounts sent by criminals to confuse things.
+- For info, I saw similar numbers of targeted women every day online, but I only took screenshots at one moment, not continuously, which is why they all have the same or similar dates.
 
 ### Victims posted in October
 
