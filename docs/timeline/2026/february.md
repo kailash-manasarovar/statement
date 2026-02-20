@@ -89,11 +89,11 @@
 - And, there was no alternative either.
 - So, being a high achiever, a go-getter, quite competitive really - and having no idea that I was being manipulated by the patriarchy in it's most sinister porn-addict form - I sought to do what I believed was going to be good for me.
 - I vomited all night afterwards.
-- Simon took some nice black and white pictures of me one afternoon and developed them.
+- Simon took some nice black and white pictures of me one afternoon in Hampstead, developed them and printed some copies.
 - It was the year of the Lockerbie disaster and the year before the North London rape gangs got hold of me and took my life from me.
-- And, a very very curious thing is... the picture I always saw myself and Hazel Smith in... this one:
+- And, a very very curious thing is... the picture I always saw myself and Hazel Smith in that popped up during the Dénia porn-gang online (and otherwise) torture... this one:
 
 ![Haze and me](../../content/images/fake-accounts/haze-and-me.png)
 
-- The me I see in it is from that picture Simon Gaskin took of me in 1988.
+- Well, the *me* I see in it is that picture Simon Gaskin took of me in 1988.
 - Winston May had a copy of that picture.
