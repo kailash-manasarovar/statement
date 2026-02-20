@@ -68,18 +68,18 @@
 ## The Name of the Rose
 
 - The monastery at Sacra di San Michele near Turin was the inspiration for the novel *The Name of the Rose* which became a film starring Sean Connery and Christian Slater.
-- The monastery is a significant site directly on the Sacred line of Saint Michael that traverses from Ireland through England, France, Italy, Turkey, and ends in the Holy Land at Mount Carmel.
+- The monastery is a significant site directly on the Sacred line of Saint Michael that traverses from Ireland through England, France, Italy, Turkey, and ends in the Holy Land at Mount Carmel, Israel.
 
 ![Saint Michael's holy line](../../content/images/saint-michaels-holy-line.webp)
 
-- I like to think he detours to Glastonbury and Burrow Mump, and why wouldn't he.
-- Anyway, after visiting the holy site where Mary Magdalene spent the latter part of her life in meditation at the grotto of Sainte Baume, lifted by angels seven times a day to greet the sun, I'm highly sensitive to Magdalene themes.
+- I like to think he detours to Glastonbury and Burrow Mump, and why wouldn't he...
+- Anyway, after visiting [the holy site where Mary Magdalene spent the latter part of her life in meditation at the grotto of Sainte Baume](#sainte-baume), lifted by angels seven times a day to greet the sun, I'm currently highly sensitive to Magdalene themes.
 - I was drawn to Turin by the Shroud, of course, and only on arrival found out about the monastery dedicated to the boss, my task-master.
 - Anyway, back to the film.
-- So, the film has huge Magdalene themes running through it, unintentional or otherwise; the main one being the true love affair the Christian Slater character has with the poor and destitute woman who is forced into prostitution and ends up being condemned to be burnt at the stake by the monks.
-- The beautiful woman in the novel is the eponymous *rose*.
+- So, the film has huge Magdalene themes running through it, unintentional or otherwise; the main one being the true love affair the Christian Slater character has with the destitute woman who is forced into prostitution and ends up being condemned to be burnt at the stake by the monks.
+- The beautiful, wild woman in the novel is the eponymous *rose*.
 - The symbolism of the Catholic Church's poor, at best, treatment of Mary Magdalene for two thousand years is obvious, at least to me.
-- The boy I lost my virginity to in 1988 took me to that film at the Phoenix in East Finchley.
+- The boy I lost my virginity to in 1988 took me to see that film at the Phoenix in East Finchley.
 - It was the first adult film (15) I had ever been to.
 - I was 15, in fact. 
 - He was 23. Simon. His hobby was photography.
@@ -87,7 +87,7 @@
 - It was an urgent message we were hearing everywhere; something we must do as soon as possible, or else!
 - We read it in our magazines, we heard it in our gangsta-rap; it was inordinately clear what we had to do, and as soon as possible or we would just be nobodies!!!
 - And, there was no alternative either.
-- So, being a high achiever, a go-getter, quite competitive really - and having no idea that I was being manipulated by the patriarchy in it's most sinister porn-addict form - I sought to do what I was told was going to be good for me.
+- So, being a high achiever, a go-getter, quite competitive really - and having no idea that I was being manipulated by the patriarchy in it's most sinister porn-addict form - I sought to do what I believed was going to be good for me.
 - I vomited all night afterwards.
 - Simon took some nice black and white pictures of me one afternoon and developed them.
 - It was the year of the Lockerbie disaster and the year before the North London rape gangs got hold of me and took my life from me.
@@ -95,5 +95,5 @@
 
 ![Haze and me](../../content/images/fake-accounts/haze-and-me.png)
 
-- The me I see in it is from that picture.
+- The me I see in it is from that picture Simon Gaskin took of me in 1988.
 - Winston May had a copy of that picture.
