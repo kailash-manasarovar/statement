@@ -223,13 +223,13 @@ function googleTranslateElementInit() {
 !!! tip "The video files"
     - You'll have to wait for access to these because I don't have a good option for content delivery of multiple large files at the current homeless-and-jobless time.
 
-## Sunday 6th October
+## Possum man on the beach
 
-- I go for a walk along the Las Marinas beach in the afternoon; my regular Sunday walk.
+- I go for a walk along the Las Marinas beach in the afternoon of the 6th October; my regular Sunday walk.
 - I am followed by older men the whole way along; men in their 50s and 60s.
 - Everything is yellow; I'm hallucinating, hard.
 - I feel menace all around.
-- I see a man that recognize from [Natalia's posts on Facebook](https://www.facebook.com/natideprati); the older man that we often see skippering the boat.
+- I see a man that I recognize from [Natalia's posts on Facebook](https://www.facebook.com/natideprati); the older man that we often see skippering the boat.
 - Is he the same man that trolls me on X pretending to be the trumpet teacher; a sailor or someone connected to the sea?
 - Or is he [Rodrigo who does Vipasana meditation](../2023/december.md#a-mutual-friend)? He looks a lot like him.
 - Or is he Ivan's main alibi (switcheroo)?
@@ -261,7 +261,7 @@ function googleTranslateElementInit() {
 - I mention this in [another section about the laundry](../2023/november.md#the-laundry), scene of many drugged-manipulation and stalker events. I wonder if Sunday, like Monday, was always a *special day* back at mine.
 - There was always something happening at [the laundry](#threats-and-a-woman-at-the-laundry); particularly this month.
 - Back home that night, a fake account tells me possum man is the boss - the account uses the word Caesar - and that he is looking for developers. 
-- I see [car lady](september.md#another-upsetting-targeted-woman) with the account name Gutmann Cesar suggesting that he is a good man.
+- I see [car lady](september.md#another-upsetting-targeted-woman) again with the account name Gutmann Cesar suggesting that he is a good man.
 
 ![pic]( ../../content/images/threats/oct-24/10.png) 
 ![pic]( ../../content/images/threats/oct-24/11.png) 
@@ -347,7 +347,7 @@ function googleTranslateElementInit() {
 - The cams will then reveal when I leave my house for the laundry, carrying the laundry bag.
 - Stalkers then have five minutes to get ready and into place.
 - I mention the laundry activity in more detail in the [November 2023 section](../2023/november.md#the-laundry).
-- I also mention [the strange thing the manager said to me](#sunday-6th-october) right after the extraordinary event with possum-man and the woman with the same tattoo as [the innocent girl groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101).
+- I also mention [the strange thing the manager said to me](#possum-man-on-the-beach) right after the extraordinary event with possum-man and the woman with the same tattoo as [the innocent girl groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101).
 - On two occasions in October, threatening young men are in the laundry while I'm there. 
 - The first time, a small group of young men have just come in and are speaking about 4 or 5 different languages. I assume that means they're Roma and they've been sent to keep an eye on me.
 - The second time, a group of young Spanish men stare at me menacingly.
@@ -408,7 +408,7 @@ function googleTranslateElementInit() {
 ### We take what we want, they say, we're hunters, they say
 
 - An aggressive message flies by "we take what we want", and the arrogant statement "we're hunters" flies by continuously.
-- The implication is that the older men [I saw on the beach](#sunday-6th-october) do whatever they like to women and children in the town, and they're proud of it too.
+- The implication is that the older men [I saw on the beach](#possum-man-on-the-beach) do whatever they like to women and children in the town, and they're proud of it too.
 - Except, it turns out, they have to drug and sedate us first.
 - [So, aka Janet, my election volunteer](../2024/june.md#so-janet), posts a random line on X; "Hunters".
 - I’m starting to wonder even more about So, but I let her speak.
@@ -1053,7 +1053,7 @@ function googleTranslateElementInit() {
 ![pic]( ../../content/images/targeted-women/oct-24/5.png) 
 
 - Is this woman and the one above the same person? 
-- She looks like [the woman I saw on the beach with the possum-man](#sunday-6th-october); the one with the tattoo.
+- She looks like [the woman I saw on the beach with the possum-man](#possum-man-on-the-beach); the one with the tattoo.
 - Her expression concerns me; I felt it was supposed to.
 - Who is she?
 

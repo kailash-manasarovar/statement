@@ -312,7 +312,7 @@ function googleTranslateElementInit() {
 ![photo shoot](../../content/images/targeted-women/innocent-lady/7.png)
 
 - Note the tattoo on her stomach. 
-- I see this tattoo again on my last walk along [Las Marinas beach in October](october.md#sunday-6th-october) where I was so high I was hallucinating, and I was stalked and followed by middle-aged men for the whole walk which I eventually cut short it was so threatening.
+- I see this tattoo again on my last walk along [Las Marinas beach in October](october.md#possum-man-on-the-beach) where I was so high I was hallucinating, and I was stalked and followed by middle-aged men for the whole walk which I eventually cut short it was so threatening.
 - I had the presence of mind to take my hiker's cam with me that day, and it was filming, and I believe I have images of them all.
 - It was very disturbing to see this woman over and over; I've only posted a small selection of the images I saw of her.
 - This was just the beginning of multiple women I saw in fake accounts; with images going from them privately sending nudes to ending up in a porn shoot non-consensual, sedated, and likely violent.

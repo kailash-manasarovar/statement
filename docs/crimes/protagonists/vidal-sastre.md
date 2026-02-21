@@ -130,7 +130,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ![The deep-set man](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
 
-- I believe I saw the grown-up version of this person on the beach on [6th October 2024](../../timeline/2024/october.md#sunday-6th-october) and I have a body cam image of that man and a bunch of other middle-aged local gentlemen who came out to terrorize me that afternoon.
+- I believe I saw the grown-up version of this person on the beach on [6th October 2024](../../timeline/2024/october.md#possum-man-on-the-beach) and I have a body cam image of that man and a bunch of other middle-aged local gentlemen who came out to terrorize me that afternoon.
 
 ### AI mix of the trumpet teachers faces
 

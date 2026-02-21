@@ -841,7 +841,7 @@ function googleTranslateElementInit() {
 - There is no reason at all for this entry to *always* be the first result in image search.
 - Why does this pic *still* come up as the first result on search today?
 - Is this man one of the main Dénia porn-gang abusers?
-- Did I see this guy as an old man for real on the [Las Marinas beach in October 2024](../2024/october.md#sunday-6th-october) when teachers and staff at the conservatory of Dénia, and all their supporters, meant to do me some very serious harm, if not murder me by poison administered through the water going into my own apartment and/or by other means that police were utterly disinterested in investigating?
+- Did I see this guy as an old man for real on the [Las Marinas beach in October 2024](../2024/october.md#possum-man-on-the-beach) when teachers and staff at the conservatory of Dénia, and all their supporters, meant to do me some very serious harm, if not murder me by poison administered through the water going into my own apartment and/or by other means that police were utterly disinterested in investigating?
 - Scroll down through results on Google search images for *@1frgvn X*, and you soon come across the Andrew pic too.
 
 ![Andrew Google search](../../content/images/line-up/andrew-1-july-2025.png)
