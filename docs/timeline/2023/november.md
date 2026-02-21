@@ -575,7 +575,8 @@ function googleTranslateElementInit() {
 - When I receive my Polygon laptop, I set up an X account for work: `@drmuffy`.
 - Immediately I have numerous followers, all with significantly meaningful profiles that mention things like *coffee*, *Batman*, and *miracles*, for example.
 - I suspect that my work laptop has also been breached via my home router.
-- I'm so busy with my knew role, my conservatory studies, and the stress of what's going on, I don't have time to think about it much until I report hacking to JT in support one morning probably in January sometimes, and then eventually in [March 2024](../2024/march/1-12.md#reporting-hacking-to-polygon-labs) when I let Gordon Bishop know what's been going on and he shuts me down from working from home until I change the router.
+- I don't think for one second my work colleagues could be involved in the porn-gang drugging, sedating, and hacking conspiracy.
+- I'm so busy with my new role, and my conservatory studies, and the stress of what's going on, I don't have time to think about it much until I report hacking to JT in support one morning probably in January 2024, and then eventually formally in [March 2024](../2024/march/1-12.md#reporting-hacking-to-polygon-labs) when I let Gordon Bishop know what's been going on and he analyses my network, finds a breach, and stops me working from home until I change the router.
 
 ## Health
 
