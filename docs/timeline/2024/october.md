@@ -261,6 +261,11 @@ function googleTranslateElementInit() {
 - I mention this in [another section about the laundry](../2023/november.md#the-laundry), scene of many drugged-manipulation and stalker events. I wonder if Sunday, like Monday, was always a *special day* back at mine.
 - There was always something happening at [the laundry](#threats-and-a-woman-at-the-laundry); particularly this month.
 - Back home that night, a fake account tells me possum man is the boss - the account uses the word Caesar - and that he is looking for developers. 
+- I see [car lady](september.md#another-upsetting-targeted-woman) with the account name Gutmann Cesar suggesting that he is a good man.
+
+![pic]( ../../content/images/threats/oct-24/10.png) 
+![pic]( ../../content/images/threats/oct-24/11.png) 
+
 - The inference is I'm now being [offered a job in tech](#job-offer) by the criminal-gang's boss!
 - I do not know what any of this means.
 - Is it more tricks to scare me? 
@@ -1137,28 +1142,89 @@ function googleTranslateElementInit() {
 
 ## Threats
 
-| Threats posted in October |
-|-|
-| ![pic]( ../../content/images/threats/oct-24/1.png)
-This same account had come up in March and I found the message threatening.
-| ![pic]( ../../content/images/threats/oct-24/2.png) 
-| ![pic]( ../../content/images/threats/oct-24/3.png) 
-| ![pic]( ../../content/images/threats/oct-24/4.png) 
-| ![pic]( ../../content/images/threats/oct-24/5.png)
-| ![pic]( ../../content/images/threats/oct-24/6.png) 
-| ![pic]( ../../content/images/threats/oct-24/7.png) 
-| ![pic]( ../../content/images/threats/oct-24/8.png) 
-| ![pic]( ../../content/images/threats/oct-24/9.png) 
-| ![pic]( ../../content/images/threats/oct-24/10.png) 
-| ![pic]( ../../content/images/threats/oct-24/11.png) 
-| ![pic]( ../../content/images/threats/oct-24/12.png) 
-| ![pic]( ../../content/images/threats/oct-24/13.png) 
-| ![pic]( ../../content/images/threats/oct-24/14.png) 
-| ![pic]( ../../content/images/threats/oct-24/15.png) 
-Message from Hazel probably.
-| ![pic]( ../../content/images/threats/oct-24/16.png) 
+- Here's a selection of threats I received this month.
 
-- At the end of the month, one of these accounts which posted previously about the *rogue government official* posts that they have been asked to behave.
+##### 1.
+
+![pic]( ../../content/images/threats/oct-24/1.png)
+
+- This account would "pop up" every time I made a comment about the outrageous behavior of teachers and staff at the conservatory and, in this case, about something going on at the beach or in the town.
+- Note the name: *Eirene* suggestive of [Irene the plate lady](august.md#irene-the-plate-lady).
+
+##### 2.
+
+![pic]( ../../content/images/threats/oct-24/2.png) 
+
+- There would often be a *flurry* of threatening language in notifications or on the UI thread itself.
+- It would be part of apparently normal posts too, as if the criminal software could pull in multiple posts with threatening language at the press of a button.
+
+##### 3.
+
+![pic]( ../../content/images/threats/oct-24/3.png) 
+
+- This account is obviously referring to Domingo.
+
+##### 4.
+
+![pic]( ../../content/images/threats/oct-24/4.png) 
+
+- Initially, I was not sure why I screenshot this one.
+- Then I saw it was the sole account that this account was following.
+
+![pic]( ../../content/images/threats/oct-24/8.png)
+
+![pic]( ../../content/images/threats/oct-24/7.png) 
+
+- The Lydia Edge account is a reference to me, so I guess this account did something suspicious and I was checking through and screenshot the `avogado6` account as significant.
+- Often, hackers would access huge accounts like this one with 2.4M followers and they seemed to have owner-rights, as if there's a master-login which gives unfettered admin access to the whole X platform.
+- My guess, it being 18 months later, is that the translated text was indeed threatening - as part of a CSS hack - but I did not screenshot the translation at the time so it is innocuous now.
+
+##### 5.
+
+![pic]( ../../content/images/threats/oct-24/5.png)
+![pic]( ../../content/images/threats/oct-24/6.png) 
+
+- Pretty sinister.
+
+##### 6.
+
+![pic]( ../../content/images/threats/oct-24/13.png)
+
+- This is exactly how I used to look in 2006-2009.
+- Obviously, the name is a play on words with my name, *Katie*.
+- As usual, an account with a "message" for me like this likes a post of mine and I see it in notifications.
+
+![pic]( ../../content/images/threats/oct-24/14.png) 
+
+- This is exactly how the conversation with Hazel Smith and others begins in earnest in December 2024, unbeknownst to them watched by multiple agencies.
+
+##### 7.
+
+![pic]( ../../content/images/threats/oct-24/15.png) 
+
+- The repeated threat from Hazel (I assume) that I mentioned seeing in [March](march/1-12.md#online-stalkers) when the threats were intended to kill.
+
+##### 8. 
+
+![pic]( ../../content/images/threats/oct-24/16.png) 
+
+- This fake account references the top-hat meme.
+- I wonder if Hazel came into my apartment wearing a top-hat.
+- I've a vague memory of something like this.
+- I guess there's a copy of the film somewhere.
+
+##### 9.
+
+- In a DM with someone, they urge me to leave the town.
+- I explain why I feel I cannot leave.
+
+![pic]( ../../content/images/threats/oct-24/12.png) 
+
+- Something was indeed keeping me there, even during [the serious poisoning with the intent to murder](#serious-poisoning-with-intent-to-kill).
+- I can only say that whatever it was protected me and kept me alive so that I could tell the story; which is the same story for countless voiceless souls.
+- At the end of the month, one of the accounts which posted previously about the [*rogue government official*](#meeting-inma-and-paloma-the-spanish-official-in-madrid) posts that they have been asked to behave; my assumption is by the police.
+- Do the police tell Hazel and co. to calm down when they get out of control?
+- Does anyone expect these people to calm down and behave?
 
 ## Fake accounts and tweets
 
