@@ -1213,7 +1213,7 @@ function googleTranslateElementInit() {
 
 - This fake account references the top-hat meme.
 - I wonder if Hazel came into my apartment wearing a top-hat.
-- I've a vague memory of something like this.
+- I’ve a vague memory of something like this actually happening.
 - I guess there's a copy of the film somewhere.
 
 ##### 9.
