@@ -1193,8 +1193,8 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/threats/oct-24/13.png)
 
-- This is exactly how I used to look in 2006-2009.
-- Obviously, the name is a play on words with my name, *Katie*.
+- This is exactly how I used to look in 2006-2009, and earlier.
+- Obviously, the account name is a play on words with my name, *Katie*, the Spanish say *Kati*.
 - As usual, an account with a "message" for me like this likes a post of mine and I see it in notifications.
 
 ![pic]( ../../content/images/threats/oct-24/14.png) 
