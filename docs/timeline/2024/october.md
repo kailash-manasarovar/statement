@@ -1150,6 +1150,9 @@ function googleTranslateElementInit() {
 
 - This account would "pop up" every time I made a comment about the outrageous behavior of teachers and staff at the conservatory and, in this case, about something going on at the beach or in the town.
 - Note the name: *Eirene* suggestive of [Irene the plate lady](august.md#irene-the-plate-lady).
+- The profile photo looks like me.
+- A strong inference is around "boys don't cry", the song the lyrics come from.
+- There's a whole bunch of refs here.
 
 ##### 2.
 
