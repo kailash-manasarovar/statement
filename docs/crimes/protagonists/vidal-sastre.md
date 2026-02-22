@@ -113,7 +113,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - More may come now, of course.
 - The girl in this picture is very familiar, I don't know why yet.
 - I'm guessing everyone in Dénia and the Marina Alta region knows this man.
-- Gloria the receptionist could very well be a close relation of this man, maybe his sister even.
+- Gloria the receptionist could very well be a close relation of this man, maybe his sister even, the girl in the picture.
 - I remember Samuel telling me about Gloria's brother Ivan, and how terrible he was.
 - So I think his name is Ivan.
 
