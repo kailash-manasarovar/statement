@@ -65,7 +65,7 @@ function googleTranslateElementInit() {
     - I didn't know my police statement was being read by the original British porn and prostitution gangs themselves, and their Spanish counterparts in Dénia, and that a repeat of everything that had happened to me when I was 16 was being replayed in 2023.
     - On the run up to the 12th June 2023, when I was supposed to have been so terrorized I would leave my studies at the conservatory and never come back, these triggering events became more frequent.
     - We can only guess at what was originally intended for me beyond 12th June 2023 other than what was already happening to me with and without my knowledge.
-    - Whatever it was, my actions (and someone helping me in the shadows) ensured it didn't happen, and teachers and staff at the conservatory, and the townsfolk, instead panicked, and had to double down and continue terrorizing me on into the following study year.
+    - Whatever it was, my actions (and someone helping me in the shadows) ensured it didn't happen, and teachers and staff at the conservatory, and the townsfolk, instead panicked and had to double down and continue terrorizing me on into the following study year.
     - Nevertheless, what *had* been happening to me up till then was already sufficiently criminal to put a whole bunch of them in jail for a very long time.
 
 !!! danger "Further confirmation in December 2024?"
@@ -81,47 +81,59 @@ function googleTranslateElementInit() {
     - Who told her to post that message at that moment?
 
 - As we are setting up for the concert, Ana Requena comes in again with her instrument, this time dressed up like she's going out for the evening; same old contrived love-triangle weirdness.
-- There is a door into the next room where Ana goes with her instrument. I believe the other trumpet teachers are waiting behind this door to make their switcheroo appearances on the porn special.
+- There is a door into the next room where Ana goes with her instrument. I believe the other trumpet teachers are waiting behind this door to make their switcheroo appearances in the porn special.
 - One of the trumpet teachers flirts with me outrageously in public. I flirt back. It's quite amusing.
 - I remember I have cause to say, after he asks me about my surname, and just after Ana has been in, that "Katharine is sufficient," and he giggles. He primes this, of course.
-- It's hard to remember which trumpet teacher that was.
+- It's hard to remember which trumpet teacher that was but I'm pretty sure it was [one of the second lot of trumpet teachers](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013).
 - For the next significant event, the trumpet teacher is played by [Gloria the school receptionist's brother Ivan](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of).
 - I'm sitting in my chair, he is standing in front of me, our eyes lock and there is a powerful and undeniably reciprocal sexual attraction which is rather overwhelming to both of us.
 - I will be reminded of the look I give him at this moment when I see [plate lady online in July](../../content/images/plate-lady/plate-lady-love.png).
-- This trumpet teacher heads to the back of the room, with his back to us, humming gently, for about 5 minutes, to collect himself. They may switch again at this point.
-- I sit as far away from him as possible in the room. I don't look at him again, and he gives me a wide birth too.
+- This moment has no history which concerns me immensely.
+- What I mean to say, is that I remember suddenly slouching low in my chair, with my legs splayed, in front of this man, clothed, but experiencing an intense sexual arousal.
+- I suspect I was sedated and sexually assaulted in the concert room at the conservatory prior to this memory.
+- I expect this means it was filmed.
+- After whatever happened here, the trumpet teacher heads to the back of the room, with his back to us, humming gently, for about 5 minutes, to collect himself. 
+- I believe the men switch again at this point.
+- I sit as far away from him as possible in the room. The feelings I'm having are enormous, it doesn't make any sense and I don't understand it but I'm not sane and clear enough at that moment to realize something is very amiss.
+- I don't look at him again, and he gives me a wide birth too.
 - The sexual arousal I have for this man is overpowering!
-- They must have drugged and maybe even sedated me in the classroom itself.
-- Were the kids drugged too?
+- I'm sure this means they drugged, sedated, and assaulted me in the classroom itself.
+- Were the kids drugged too; did they witness it?
 - I tweet about this later on, and other key evidence as I slowly figure it all out and tell my story on X: https://x.com/1FRGVN/status/1759770318409695275. 
 - Eventually the concert begins and is successful, although I hear the trumpet teacher instructing Pablo to mess up on the Misty tune.
 
 ![Chamber music concert](../../content/images/chamber-music-concert.png)
 
-- This trumpet teacher is [Mark from English class in 2014](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013).
+- The trumpet teacher who says this is [Mark from English class in 2014](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013).
 - Later, the [third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) enters again without me noticing.
 - Carmen Lopez Cano, Domingo's sister, a tiny blond woman, was playing the role of Pablo's "mum" in the audience and she was the only other adult person in the room apart from the "teachers".
 - She brought a small child with her.
 - The concert ends and I leave to walk out.
-- As I'm at the door, a man's voice says "Katharine".
+- I notice one of the other teachers has come in to watch and he is sitting at the back of the concert room.
+- He was someone I had seen around but don't know his name. He was at [the filming demo the year before](../2022/may.md#asked-to-be-a-demo-at-the-conservatory) along with the teacher who ended up committing suicide earlier in 2023.
+- I reach the door, and I hear a man's voice say "Katharine".
 - I turn around and catch the trumpet teacher's eyes.
 - The trumpet teachers have swapped again, this is [Mark again](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013).
 - At the time I don't notice anything because they have successfully merged at least four men into one person in my perception with their gypsy animal training techniques alongside sedated sexual assaults, online manipulation, and drugging and poisoning that causes brain damage. 
 - As I think back, it's possible that [more of the team](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) turned up that afternoon and swapped a few times during this concert.
-- It's interesting to see how much of the conspiracy I had figured out by when I originally drafted this section over a year ago.
-- On the first draft, I had not yet realized I was being drugged continuously.
-- On the second or third drafts, I hadn't realized there were two trumpet teachers, and that I was sedated and starring in rape-porn live-streamed from my apartment on a regular basis, probably for over a year by that time.
-- On the most recent draft of this section which adds the notification box below, I'm aware there are [at least four trumpet teachers](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) playing porn-switcheroo with me.
-- I guess that means this chamber music concert itself must have been live-streamed, and there are copies of it all over the world.
-- The two Ana's (violin teacher and musical language teacher) made a great fuss of pretending that Ana the violin teacher was terribly jealous and angry with me for posting information about the concert while I was still attending classes in the winter of 2024.
-- [Ana and Ana](../2024/february.md#ana-and-ana) never let up trying to terrorize me.
-- Were they forced to do this so that I would have a ready-made non-sex-offending explanation for my constant state of anxiety?
 
-!!! danger "What might have happened to me if I had noticed something earlier and spoken up?"
+!!! tip "Tracking the returning memories"
+    - It's interesting to see how much of the conspiracy I had figured out when I originally drafted this section.
+    - On the first draft, I had not yet realized I was being drugged continuously.
+    - On the second or third drafts, I hadn't realized there were two trumpet teachers, and that I was sedated and starring in rape-porn live-streamed from my apartment on a regular basis.
+    - On a more recent draft of this section which adds the notification box below, I'm aware there are [at least four trumpet teachers](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) starring in switcheroo-porn at the conservatory with me starring.
+    - I guess that means this chamber music concert itself must have been live-streamed, and there are copies of it all over the world.
+
+!!! danger "Feigned jealousy from the love-triangle"
+    - The two Ana's (violin teacher and musical language teacher) made a great fuss of pretending that Ana the violin teacher was terribly jealous and angry with me for posting information about this concert while I was still attending classes in the winter of 2024.
+    - [Ana and Ana](../2024/february.md#ana-and-ana) never let up terrorizing me at that time.
+    - Were they forced to do this so that I would have a ready-made non-sex-offending explanation for my constant state of anxiety?
+
+!!! danger "I think they might have murdered me instantly"
     - When I think back on it all, I wonder about what might have happened to me if I had noticed the switcheroos early on.
-    - What would the gang have done if I had spoken up or made a scene?
-    - It is my view I would have been murdered, quickly, and no-one would have been able to do a thing about it least of all me.
-    - I wonder how many times teachers and staff in the conservatory system of Spain have switcheroo'ed a woman or child, and I wonder if anyone survived long enough to have been murdered before they found out about it... like they tried to do to me.
+    - What would the gang have done if I had gotten conscious of what was going on, and spoken up or made a scene?
+    - It is my view I would have been murdered, quickly, and no-one would have been able to do a thing about it, least of all me.
+    - I wonder how many times teachers and staff in the conservatory system of Spain have drugged a woman or child student with the intention of filming them in porn.
 
 ## Slush puppy
 
