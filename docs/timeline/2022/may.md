@@ -11,3 +11,8 @@
 - I'm a bit nervous, unnecessarily anxious in fact, but I'm happy to help.
 - Given what happens over the next couple of years, I have to wonder if this was an early advertisement for the newest switcheroo victim due to start her studies in the Autumn?
 - And/or was it a way to make sure all the teachers were tied into the conspiracy if it went tits up?
+
+![The dancers](../../content/images/the-dancers.jpg)
+
+!!! tip
+    - I don't have a copy of it, but a photo of two naked women on a sofa doing exactly the same thing as these children was posted to me on an X profile probably sometime in late October 2024.
