@@ -167,7 +167,7 @@ function googleTranslateElementInit() {
 ![family](../../content/images/fake-accounts/family/Vigas%20dad.png)
 
 - I'm really sad for him when I hear all this.
-- The photo below was sent and looks like the trumpet teacher's son; in this case [trumpet teacher number two](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013), the Mark version.
+- The photo below was sent and looks like the trumpet teacher's son; in this case [trumpet teacher number two](../../crimes/protagonists/vidal-sastre.md#three-more), the Mark version.
 
 ![family](../../content/images/fake-accounts/family/son.JPG)
 

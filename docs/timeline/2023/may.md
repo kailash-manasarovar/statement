@@ -84,7 +84,7 @@ function googleTranslateElementInit() {
 - There is a door into the next room where Ana goes with her instrument. I believe the other trumpet teachers are waiting behind this door to make their switcheroo appearances in the porn special.
 - One of the trumpet teachers flirts with me outrageously in public. I flirt back. It's quite amusing.
 - I remember I have cause to say, after he asks me about my surname, and just after Ana has been in, that "Katharine is sufficient," and he giggles. He primes this, of course.
-- It's hard to remember which trumpet teacher that was but I'm pretty sure it was [one of the second lot of trumpet teachers](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013).
+- It's hard to remember which trumpet teacher that was but I'm pretty sure it was [one of the second lot of trumpet teachers](../../crimes/protagonists/vidal-sastre.md#three-more).
 - For the next significant event, the trumpet teacher is played by [Gloria the school receptionist's brother Ivan](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of).
 - I'm sitting in my chair, he is standing in front of me, our eyes lock and there is a powerful and undeniably reciprocal sexual attraction which is rather overwhelming to both of us.
 - I will be reminded of the look I give him at this moment when I see [plate lady online in July](../../content/images/plate-lady/plate-lady-love.png).

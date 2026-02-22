@@ -51,7 +51,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
     ![The real trumpet teacher](../../content/images/hornero/hh1.png)
 
-- This is an old picture, the man is about 10 years older now. However, this younger picture demonstrates the likeness between him and the [next bloke I mention](#the-brother-or-mark-from-english-class-in-2013) who must be a family relation of some sort.
+- This is an old picture, the man is about 10 years older now. However, this younger picture demonstrates the likeness between him and the [next bloke I mention](#three-more) who must be a family relation of some sort.
 - I wonder if the gypsies made sure that one of the men would be someone I was strongly attracted to in order for the trick to work?
 - Did they examine our astrological charts or consult a witch?
 - Did they use and abuse Saint Valentine in evil rituals designed for controlling women and girls?
@@ -155,7 +155,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/ai-mix-of-trumpet-teachers-and-gloria.png)
 
 - Gloria's face, the music school receptionist, is the clearest image in this AI photo.
-- The face of the [first man](#the-older-slimmer-greyer-man) and the [second men](#the-brother-or-mark-from-english-class-in-2013) are missing.
+- The face of the [first man](#the-older-slimmer-greyer-man) and the [second men](#three-more) are missing.
 - The eyes are from [the deep-set monstrous man](#dark-thick-curly-haired-deep-set-man), and the overall face shape is the [third man](#an-unknown-man-i-may-have-a-picture-of), probably Gloria's brother Ivan.
 - The arrogance of the gang and their absolute certainty they will never be brought to justice is staggering.
 - The account today in January 2026 has the back of someone's head as a profile pic and is posting the same wild and sexist content as before.

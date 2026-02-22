@@ -46,7 +46,7 @@ function googleTranslateElementInit() {
 ![Hornero or whatever his name is, and his dad](../../content/images/hornero/horn-pic-4.jpg).
 
 - Except, it was probably not this man and instead the younger brother of this man, although they do look alike (and I believe the photo is quite old and closer to the age of the actual man I saw in Benijembla).
-- The man in Benijembla that afternoon was [man two of the switcheroo set](../../crimes/protagonists/vidal-sastre.md#the-brother-or-mark-from-english-class-in-2013), the same man that had lived next door to me from time to time in [Lourdes in 2021](../2021/march.md#the-portuguese-man-next-door).
+- The man in Benijembla that afternoon was [man two of the switcheroo set](../../crimes/protagonists/vidal-sastre.md#three-more), the same man that had lived next door to me from time to time in [Lourdes in 2021](../2021/march.md#the-portuguese-man-next-door).
 - I wasn't included in the discussion between them and, while I was standing there, I noticed a woman sitting on the bench outside the Bon Aire restaurant, just where this guy had got up from.
 
 ![Bon Aire restaurant in Benijembla](../../content/images/restaurante-bon-aire.png)
