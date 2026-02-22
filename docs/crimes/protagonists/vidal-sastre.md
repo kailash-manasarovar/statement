@@ -114,6 +114,8 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - The girl in this picture is very familiar, I don't know why yet.
 - I'm guessing everyone in Dénia and the Marina Alta region knows this man.
 - Gloria the receptionist could very well be a close relation of this man, maybe his sister even.
+- I remember Samuel telling me about Gloria's brother Ivan, and how terrible he was.
+- So I think his name is Ivan.
 
 ### Dark thick-curly-haired deep-set man
 
@@ -122,6 +124,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - I remember him [in my bed calling my name](../../timeline/2023/april.md#dreaming-of-the-trumpet-teacher) which I now believe was not a dream.
 - He was the man I saw in the banged up Peugeot on the 11th June 2023, [the day before my *funeral*](../../timeline/2023/june.md#sunday-11th-june) and [driving past me at the beach with the doctor in the passenger seat](../../timeline/2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me), and [driving Ana Requena's blue car slowly past me](../../timeline/2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car).
 - He was also reminiscent of [Patricia Penny's husband](../../timeline/2021/december.md#christmas) and the [man who came out to terrorize me on Halloween](../../timeline/2023/october.md#halloween) but not exactly the same - those two men could well be the same man and related to this one.
+- He was in the bar with [Brian and Ugly in Amsterdam in 2001](../../timeline/2001-to-2010/2001.md#amsterdam).
 - This trumpet player, at the *funeral* of the young drugged-and-groomed girl behind him, looks like him and when I first saw this photo in June 2023 I recognized this man immediately as the trumpet teacher who had come to the conservatory to teach classes.
 
 ![The dark curly-haired man with the big legs](../../content/images/hornero/tt-1-again.png)
@@ -140,7 +143,8 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ![The deep-set man](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
 
-- I believe I saw the grown-up version of this person on the beach on [6th October 2024](../../timeline/2024/october.md#possum-man-on-the-beach) and I have a body cam image of that man and a bunch of other middle-aged local gentlemen who came out to terrorize me that afternoon.
+- I don't think they're the same.
+- I believe I saw the grown-up version of this person, whoever he is, on the beach on [6th October 2024](../../timeline/2024/october.md#possum-man-on-the-beach) and I have a body cam image of that man and a bunch of other middle-aged local gentlemen who came out to terrorize me that afternoon.
 
 ### AI mix of the trumpet teachers faces
 
