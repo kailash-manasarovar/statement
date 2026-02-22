@@ -7,6 +7,8 @@
 - She tells me they need someone to be a demo piano player for the cameraman.
 - I don't think anything unusual is going on and agree.
 - I go in and there are about 25 male teachers and 5 female teachers in the concert room at the conservatory.
+- Domingo is notably absent.
+- I believe Concha informed me prior in case I didn't want to be in the same room as him.
 - They ask me to play while the video cameraman gives a lecture and demonstration on how to film musical performances properly.
 - I'm a bit nervous, unnecessarily anxious in fact, but I'm happy to help.
 - Given what happens over the next couple of years, I have to wonder if this was an early advertisement for the newest switcheroo victim due to start her studies in the Autumn?
