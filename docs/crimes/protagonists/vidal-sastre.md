@@ -60,22 +60,25 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - I believe, also, this is the man who would take the blame if I ever went to the police while still brain-damaged and believing that four very different-looking men were the same one man. 
 - Has that happened in Spain before?
 
-### The brother, or Mark from English class in 2013
+### Three more
 
-- There could be two similar looking men making up these memories.
-- They were taller, darker men that looked enough like the [older, slimmer man](#the-older-slimmer-greyer-man) for me to mistake them with him after what I assume had been some sort of [sedated psychological mistaking-people training](#sedated-training-for-recognizing-faces).
+- There could be two or three similar looking men making up these memories.
+- One or two of them looked enough like the [older, slimmer man](#the-older-slimmer-greyer-man) for me to mistake them after brain damage and whatever [sedated psychological mistaking-people training](#sedated-training-for-recognizing-faces) they do.
+- One was different, I'm realizing now.
 
 #### The younger brother of the first man
 
 - He was the man [Patricia Penny *introduced* me to in Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class.
 - He was the man that [stalked me at Lourdes](../../timeline/2021/march.md#the-portuguese-man-next-door).
+- I believe [he was also driving Ugly](../../timeline/2001-to-2010/2001.md#amsterdam) in 2001.
 - I don't have a picture of this man but would recognize him immediately.
 
 #### Mark from English class in 2013
 
 - Another man reminded me of [a student from my English class in 2013](../../timeline/early-years/2008.md#working-for-lorraine-blackbourn) who may have been called Mark.
+- There'll be an official register somewhere.
 - He was someone I had [found attractive when I met him in 2013](../../timeline/early-years/2008.md#working-for-lorraine-blackbourn) when I worked for Lorraine Blackbourn.
-- It's likely this man is related to Lorraine Blackbourn's ex-husband and indeed was of the same size and shape, and facial features.
+- It's possible this man is related to Lorraine Blackbourn's ex-husband and indeed was of the same size and shape, and facial features.
 - He was the man I saw most often at the conservatory, and I was always anxious around him.
 - I remember seeing this man numerous times, including but not limited to the following examples:
 
@@ -87,6 +90,13 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     - The man who led my *funeral* on [12th June 2023](../../timeline/2023/june.md#monday-12th-june-2023).
 
 - I don't have a picture of this man but would recognize him immediately.
+
+#### The brother of the Mercadona check out woman
+
+- This man was distinctive and different from the two I've just mentioned apart from in height and skin tone.
+- He looked exactly like his sister at the checkout in Mercadona, and not like Mark or the brother.
+- He may have been scared of Gloria.
+- Someone will be able to confirm.
 
 ### An unknown man I may have a picture of
 
