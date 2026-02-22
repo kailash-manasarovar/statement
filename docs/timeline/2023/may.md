@@ -85,16 +85,16 @@ function googleTranslateElementInit() {
 - One of the trumpet teachers flirts with me outrageously in public. I flirt back. It's quite amusing.
 - I remember I have cause to say, after he asks me about my surname, and just after Ana has been in, that "Katharine is sufficient," and he giggles. He primes this, of course.
 - It's hard to remember which trumpet teacher that was but I'm pretty sure it was [one of the second lot of trumpet teachers](../../crimes/protagonists/vidal-sastre.md#three-more).
-- For the next significant event, the trumpet teacher is played by [Gloria the school receptionist's brother Ivan](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of).
+- For the next significant event, the trumpet teacher is played by [Gloria the-school-receptionist's brother Ivan](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of).
 - I'm sitting in my chair, he is standing in front of me, our eyes lock and there is a powerful and undeniably reciprocal sexual attraction which is rather overwhelming.
 - I will be reminded of the look I give him at this moment when I see [plate lady online in July](../../content/images/plate-lady/plate-lady-love.png).
 - This moment has no history which concerns me immensely.
-- What I mean to say, is that I remember suddenly slouching low in my chair, with my legs splayed, in the middle of the room, in front of this man who was standing. I was clothed but experiencing an intense sexual arousal as if something sexual had just happened.
+- What I mean to say, is that I remember suddenly slouching low in my chair, with my legs splayed, in the middle of the room, in front of this man, clothed but experiencing an intense sexual arousal as if something huge and sexual had just happened.
 - I suspect I was sedated and sexually assaulted in the concert room at the conservatory prior to this memory.
-- I expect this means it was filmed.
+- I expect this means the whole event was filmed.
 - After whatever happened here, the trumpet teacher heads to the back of the room, with his back to us, humming gently, for about 5 minutes, to collect himself. 
 - I believe the men switch again at this point.
-- I sit as far away from him as possible in the room. The feelings I'm having are enormous, it doesn't make any sense and I don't understand it but I'm not clear-headed enough at that moment to realize something is very amiss.
+- I sit as far away from him as possible in the room. The feelings I'm having are enormous; it doesn't make any sense and I don't understand it but I'm not clear-headed enough at that moment to realize something is very amiss.
 - I don't look at him again, and he gives me a wide birth too.
 - The sexual arousal I have for this man is overpowering!
 - I'm sure this means they drugged, sedated, and assaulted me in the classroom itself.
@@ -133,7 +133,7 @@ function googleTranslateElementInit() {
     - When I think back on it all, I wonder about what might have happened to me if I had noticed the switcheroos early on.
     - What would the gang have done if I had gotten conscious of what was going on, and spoken up or made a scene?
     - It is my view I would have been murdered, quickly, and no-one would have been able to do a thing about it, least of all me.
-    - I wonder how many times teachers and staff in the conservatory system of Spain have drugged a woman or child student with the intention of filming them in porn.
+    - I wonder how many times teachers and staff in the conservatory system of Spain have drugged a woman or child student with the intention of filming them in porn and how many classrooms double as porn-studios.
 
 ## Slush puppy
 
