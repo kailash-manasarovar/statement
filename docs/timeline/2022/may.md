@@ -9,5 +9,5 @@
 - I go in and there are about 25 male teachers and 5 female teachers in the concert room at the conservatory.
 - They ask me to play while the video cameraman gives a lecture and demonstration on how to film musical performances properly.
 - I'm a bit nervous, unnecessarily anxious in fact, but I'm happy to help.
-- Given what happens over the next couple of years, I have to wonder if this was an early advertisement of a new switcheroo victim coming up.
+- Given what happens over the next couple of years, I have to wonder if this was an early advertisement for the newest switcheroo victim due to start her studies in the Autumn?
 - And/or was it a way to make sure all the teachers were tied into the conspiracy if it went tits up?
