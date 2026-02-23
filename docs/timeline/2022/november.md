@@ -179,10 +179,15 @@ function googleTranslateElementInit() {
 ### His other classes
 
 - The trumpet teacher had two other classes; one was with the autistic girl, Candela Morales Lucas, 14 or so. She played the flute and a boy (could he be a trans boy?) who played the guitar to accompany.
+- Something "notable" had happened with Candela at one class, and this was mentioned repeatedly - by the trumpet teacher to Candela - at the [chamber music concert in May 2023](../2023/may.md#chamber-music-concert).
+- The implication was she had embarrassed herself somehow!
 - Incidentally, they wheeled Candela out to "bump" into me one evening in the tunnel when I was on my way home, sometime in the Autumn of 2024.
-- The other student he had was an adult learner. A doctor from the Dénia hospital, Joan, and his class was just before ours, 7-8pm.
+- There was a boy guitarist student who accompanied Candela on the flute.
+- The only other student he had was an adult learner: a doctor from the Dénia hospital, Joan, and Joan's class was just before ours, at 7-8pm.
 - Incidentally, I believe I had already seen this guy hiking with the trumpet teacher as [just mentioned](#walking-in-benijembla-with-the-english-ladies). 
 - AFAIK the trumpet teacher had no other classes and he only came to the conservatory on Monday evenings.
+- Even so, they gave (one of them) a promotion which included a pension - something everyone was very keen I knew about.
+- I wonder if this was a lie for me to cry about when they'd finished with me on [June 12th 2023](../2023/june.md#monday-12th-june-2023), or if they really did give (one of them) a pension.
 
 ### Attendance
 
