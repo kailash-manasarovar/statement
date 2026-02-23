@@ -182,7 +182,6 @@ function googleTranslateElementInit() {
 - Something "notable" had happened with Candela at one class, and this was mentioned repeatedly - by the trumpet teacher to Candela - at the [chamber music concert in May 2023](../2023/may.md#chamber-music-concert).
 - The implication was she had embarrassed herself somehow!
 - Incidentally, they wheeled Candela out to "bump" into me one evening in the tunnel when I was on my way home, sometime in the Autumn of 2024.
-- There was a boy guitarist student who accompanied Candela on the flute.
 - The only other student he had was an adult learner: a doctor from the Dénia hospital, Joan, and Joan's class was just before ours, at 7-8pm.
 - Incidentally, I believe I had already seen this guy hiking with the trumpet teacher as [just mentioned](#walking-in-benijembla-with-the-english-ladies). 
 - AFAIK the trumpet teacher had no other classes and he only came to the conservatory on Monday evenings.
