@@ -126,7 +126,7 @@ function googleTranslateElementInit() {
     - She can hardly hide her disgust with me, I assume it's because she knows about the sexual abuse I suffered as a child.
     - And, even though she tells me she is going to help me, it is very clear she is not on my side.
     - A few weeks later, she says there's no record of [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md) in the Generalitat systems.
-    - On the same day, a man called [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md#the-lamistat-quart-band) is accepting a prize from the Generalitat in Valencia.
+    - On the same day, a man called [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md#the-best-band-in-the-valencian-region) is accepting a prize from the Generalitat in Valencia.
 
 - There was no reason to think his name false at the time, other than when I asked him his name, and he answered Vidal, it didn't ring true somehow. He didn't seem to believe it as he was saying it.
 - After I entered the class, there was some immediate confusion about him needing the toilet, but he kept looking at his phone, and not really going anywhere except up and down the room a bit, and looking at his phone, and then suddenly he was moving to the door, and he kept saying he was going to the toilet. 
@@ -146,7 +146,7 @@ function googleTranslateElementInit() {
     - In a future class I actually asked him directly where he had been for September, October, and most of November.
     - He answered in a bizarre and incomprehensible babble of Spanish and Valenciano, obviously so that I didn't understand.
 
-- Ana was sort of slouching and looking embarrassed and answering him sheepishly. 
+- Ana was slouching and looking embarrassed and answering him sheepishly. 
 - The love-triangle intrigue trap had been set while I was extremely high.
 - He came back into class.
 - I was feeling very light-headed and high, smiley.
