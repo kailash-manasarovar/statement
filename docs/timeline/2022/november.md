@@ -157,23 +157,24 @@ function googleTranslateElementInit() {
 
 ### TT always finished early
 
-- TT turned up for about half of the classes scheduled throughout the year and never finished the class on time.
-- He apparently had a rehearsal on a Monday night.
+- The trumpet teacher attended about half of the classes scheduled throughout the year, as well as missing nearly the whole of the first semester, and he always finished the class early.
+- He apparently had a "rehearsal" on a Monday night.
 - He never said the "rehearsal" was in Valencia, I just assumed that.
 - It seemed strange to me that band rehearsals might start at around 10pm, but it's Spain so I thought OK.
-- However, I now wonder if Monday night was the sedated-porn special time, taking place at my spy-cam-fitted apartment, and broadcast on Denia TV and elsewhere.
-- And that's why everyone knows me in Denia.
-- Did TT have to finish early to make sure we were all back at mine and ready for action by 9:05pm?
+- However, perhaps Monday night was the sedated switcheroo-porn special time, taking place at my spy-cam-riddled apartment, and broadcast on Dénia TV and elsewhere.
+- Is that the true reason why everyone knows me in Dénia?
+- Did TT have to finish class early to make sure we were all back at mine and ready for action by 9:05pm?
 - Could something so outrageous, grotesque, and evil be true?
-- Given 80+ men were happy to rape a man's sedated wife in France, and only got caught by accident, it seems more than likely something so similar in content could be true, with everyone complicit and keeping quiet.
-- In Spain, a country of animal torturers, they might make an art form out of it.
-- Does anyone care they've been doing it so long they got bored of adult women and went for the kids and the babies?
-- At the second class, the switcheroos continued.
-- The trumpet teacher, [one of the second bunch of men I remember](../../crimes/protagonists/vidal-sastre.md#three-more) looked at me with that same grin I'd seen on him in Benijembla. 
+- Given 80+ men were happy to rape a man's sedated wife in France, and the ones that refused did nothing to help her, and they only got caught by accident, it seems *more than likely* something so similar in content could be true, with everyone complicit and keeping quiet.
+- In Spain, a country full of animal torturers, they might make an art form out of drugging and sedating women and children for porn, don't you think?
+- Does anyone care that they've been doing it so long they got bored of adult women and went for the kids and the babies instead?
+- Ching-ching, after all.
+- At the second chamber music class, the switcheroos continued.
+- The trumpet teacher, [one of the second bunch of men I remember](../../crimes/protagonists/vidal-sastre.md#three-more), looked at me wearing that same grin I'd seen on him in Benijembla. 
 - It was disturbing.
-- As I wrote this statement out, I noted that this grin had reminded me of the 1989 pedophile's grin.
-- I realize that he was grin with delight because I had been successfully brain-damaged and was mistaking numerous men as the same one man.
-- The scam of the century.
+- As I wrote this statement out, I noted that this grin had reminded me of the 1989 pedophile's grin, something I had also reported in [my police statement of 2015](../early-years/2015.md#statement-to-the-metropolitan-police).
+- I realize that he was grinning with delight because I had been successfully brain-damaged and was mistaking numerous men as the same one man.
+- Scam of the century.
 
 ### His other classes
 
