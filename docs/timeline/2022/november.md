@@ -112,27 +112,29 @@ function googleTranslateElementInit() {
 ## The trumpet teacher
 
 - At the end of November, on the 28th, all of a sudden, a trumpet teacher is found for the chamber music classes scheduled every Monday at 8-9pm.
-- Gloria, the receptionist at the conservatory, leaves a message on my phone earlier in the day to say class is starting. It's a weird message where I hear the word guapo (handsome) and someone says something in the background, Paqui Fornet probably, then they both laugh weirdly.
-- I go to class that evening and the same guy who Patricia was talking to in Benijembla is there, in Jaume's room where I had been allowed to practice for my audition.
+- Gloria, the receptionist at the conservatory, leaves a message on my phone earlier in the day to say class is starting.
+- It's a weird message where I hear the word guapo (handsome) and someone says something in the background, Paqui Fornet I think, then they both laugh weirdly.
+- I go to class that evening and the same guy who [Patricia was talking to in Benijembla](#walking-in-benijembla-with-the-english-ladies) is there, in Jaume's room where I had been allowed to practice for my audition.
+- He is the trumpet teacher.
+- I ask him his name.
 - He says his name is Vidal.
-- He has a big black old-looking case with him, apparently for his trumpet, although he could have brought it to look like the [VHS video recorder case](../early-years/2015.md#statement-to-the-metropolitan-police) I had reported to the Met in 2015 and in 2006.
-- In the Generalitat Valenciana systems, his name was/is Vidal Sastre Sanchez Hornero, although I was told by a government official that this person doesn't exist! 
+- He is carrying a big black scruffy leather case, apparently for his trumpet, although I believe he brought it to look like the [VHS video recorder case](../early-years/2015.md#statement-to-the-metropolitan-police) I had reported to the Met in 2015 and in 2006.
+- In the Generalitat Valenciana systems, his name is Vidal Sastre Sanchez Hornero, although I was told by a government official in October 2024 that the person doesn't exist in the Generalitat database! 
 
-!!! tip "The cover up continues in late 2024"
+!!! tip "Spanish school pornographers protected top-to-bottom"
     - In October 2024, a Spanish government official approaches me, [Paloma](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid), and wants to know what's going on.
-    - She can hardly hide her disgust with me, I assume it's because I told her about the sexual abuse I suffered as a child.
+    - She can hardly hide her disgust with me, I assume it's because she knows about the sexual abuse I suffered as a child.
     - And, even though she tells me she is going to help me, it is very clear she is not on my side.
-    - A few weeks later, she tells us there's no record of [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md) in the Generalitat systems.
-    - Ironically, she also tells me I must have a written timeline of data as my story is just a chaos.
-    - It is on her advice I start writing this statement in November 2024.
+    - A few weeks later, she says there's no record of [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md) in the Generalitat systems.
+    - On the same day, a man called [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md#the-lamistat-quart-band) is accepting a prize from the Generalitat in Valencia.
 
-- I have believed for some time now that this is a false name, but there was no reason to think so then, other than when I asked him his name, and he answered Vidal, it didn't ring true somehow. He didn't seem to believe it as he was saying it.
+- There was no reason to think his name false at the time, other than when I asked him his name, and he answered Vidal, it didn't ring true somehow. He didn't seem to believe it as he was saying it.
 - After I entered the class, there was some immediate confusion about him needing the toilet, but he kept looking at his phone, and not really going anywhere except up and down the room a bit, and then he was moving to the door, and he kept saying he was going to the toilet. 
 - It was weird and contrived.
 - The toilet is just next door to room 6 at the conservatory. 
 - He went out and I heard him "bump" into a woman and start talking to her.
-- I started to feel a bit light headed and smiley, flushed. 
-- I heard someone say my name, Katharine, and so I looked out of the door.
+- I started to feel a light headed and smiley, flushed, high.
+- I heard someone say my name loudly, *Katharine*, and so I looked out of the door.
 - The trumpet teacher was standing over Ana Requena Marín, the violin teacher, and talking to her softly.
 
 ![Ana outside the toilet](../../content/images/ana-outside-the-toilet.png)
@@ -146,11 +148,10 @@ function googleTranslateElementInit() {
 
 - Ana was sort of slouching and looking embarrassed and answering him sheepishly. 
 - He came back into class and I was feeling very light-headed and a little high actually, smiley.
+- I believe this is where they first did a switcheroo, a new man came back into class, I think it was [the first man](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man), the man who gave me a genuinely good feeling.
 - My heart was racing.
-- I thought it was because I fancied him. 
-- Then the other student, Pablo Sesé Savall, a 14 year old boy, turned up to class. 
-- The trumpet teacher kept looking at me with that same grin I'd seen on him in Benijembla. 
-- It was disturbing.
+- I thought it was because I fancied this man. 
+- Then the other student, Pablo Sesé Savall, a 14 year old boy, turns up to class. 
 
 ### TT always finished early
 
@@ -165,6 +166,12 @@ function googleTranslateElementInit() {
 - Given 80+ men were happy to rape a man's sedated wife in France, and only got caught by accident, it seems more than likely something so similar in content could be true, with everyone complicit and keeping quiet.
 - Do we have to wait for it to happen again, and again, and again ...
 - Does anyone care they've been doing it so long they got bored and went for the kids and the babies?
+- On the second class, the switcheroos continued.
+- The trumpet teacher, [one of the second bunch of men I remember](../../crimes/protagonists/vidal-sastre.md#three-more) looked at me with that same grin I'd seen on him in Benijembla. 
+- It was disturbing.
+- As I wrote this statement out, I noted that the grin reminded me of the 1989 pedophile grin.
+- I realize that the grin was due to the delight that I had been successfully brain-damaged and was mistaking numerous men as the same one man.
+- The scam of the century.
 
 ### His other classes
 
