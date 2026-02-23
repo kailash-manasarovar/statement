@@ -118,7 +118,7 @@ function googleTranslateElementInit() {
 - He is the trumpet teacher.
 - I ask him his name.
 - He says his name is Vidal.
-- He is carrying a big black scruffy leather case, apparently for his trumpet, although I believe he brought it to look like the [VHS video recorder case](../early-years/2015.md#statement-to-the-metropolitan-police) I had reported to the Met in 2015 and in 2006.
+- He is carrying a big black scruffy leather case, apparently for his trumpet, although I believe he brought it to look like the [VHS video recorder case](../early-years/2015.md#statement-to-the-metropolitan-police) I had reported to the Met in 2006 and 2015.
 - In the Generalitat Valenciana systems, his name is Vidal Sastre Sanchez Hornero, although I was told by a government official in October 2024 that the person doesn't exist in the Generalitat database! 
 
 !!! tip "Spanish school pornographers protected top-to-bottom"
@@ -129,25 +129,27 @@ function googleTranslateElementInit() {
     - On the same day, a man called [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md#the-lamistat-quart-band) is accepting a prize from the Generalitat in Valencia.
 
 - There was no reason to think his name false at the time, other than when I asked him his name, and he answered Vidal, it didn't ring true somehow. He didn't seem to believe it as he was saying it.
-- After I entered the class, there was some immediate confusion about him needing the toilet, but he kept looking at his phone, and not really going anywhere except up and down the room a bit, and then he was moving to the door, and he kept saying he was going to the toilet. 
-- It was weird and contrived.
+- After I entered the class, there was some immediate confusion about him needing the toilet, but he kept looking at his phone, and not really going anywhere except up and down the room a bit, and looking at his phone, and then suddenly he was moving to the door, and he kept saying he was going to the toilet. 
+- It was weird and contrived, set up.
 - The toilet is just next door to room 6 at the conservatory. 
 - He went out and I heard him "bump" into a woman and start talking to her.
-- I started to feel a light headed and smiley, flushed, high.
+- I was feeling light-headed and smiley, flushed, high.
 - I heard someone say my name loudly, *Katharine*, and so I looked out of the door.
 - The trumpet teacher was standing over Ana Requena Marín, the violin teacher, and talking to her softly.
 
 ![Ana outside the toilet](../../content/images/ana-outside-the-toilet.png)
 
 - It sounds like he's explaining why he's only just arrived at class at the end of November and missed two months of the year already. I don't understand what he is saying.
-- I'm sort of amazed by him but I'm not quite sure why.
+- I'm sort of amazed by this man but I'm not sure why.
 
 !!! tip "Incidentally"
     - In a future class I actually asked him directly where he had been for September, October, and most of November.
     - He answered in a bizarre and incomprehensible babble of Spanish and Valenciano, obviously so that I didn't understand.
 
 - Ana was sort of slouching and looking embarrassed and answering him sheepishly. 
-- He came back into class and I was feeling very light-headed and a little high actually, smiley.
+- The love-triangle intrigue trap had been set while I was extremely high.
+- He came back into class.
+- I was feeling very light-headed and high, smiley.
 - I believe this is where they first did a switcheroo, a new man came back into class, I think it was [the first man](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man), the man who gave me a genuinely good feeling.
 - My heart was racing.
 - I thought it was because I fancied this man. 
@@ -164,13 +166,13 @@ function googleTranslateElementInit() {
 - Did TT have to finish early to make sure we were all back at mine and ready for action by 9:05pm?
 - Could something so outrageous, grotesque, and evil be true?
 - Given 80+ men were happy to rape a man's sedated wife in France, and only got caught by accident, it seems more than likely something so similar in content could be true, with everyone complicit and keeping quiet.
-- Do we have to wait for it to happen again, and again, and again ...
-- Does anyone care they've been doing it so long they got bored and went for the kids and the babies?
-- On the second class, the switcheroos continued.
+- In Spain, a country of animal torturers, they might make an art form out of it.
+- Does anyone care they've been doing it so long they got bored of adult women and went for the kids and the babies?
+- At the second class, the switcheroos continued.
 - The trumpet teacher, [one of the second bunch of men I remember](../../crimes/protagonists/vidal-sastre.md#three-more) looked at me with that same grin I'd seen on him in Benijembla. 
 - It was disturbing.
-- As I wrote this statement out, I noted that the grin reminded me of the 1989 pedophile grin.
-- I realize that the grin was due to the delight that I had been successfully brain-damaged and was mistaking numerous men as the same one man.
+- As I wrote this statement out, I noted that this grin had reminded me of the 1989 pedophile's grin.
+- I realize that he was grin with delight because I had been successfully brain-damaged and was mistaking numerous men as the same one man.
 - The scam of the century.
 
 ### His other classes
