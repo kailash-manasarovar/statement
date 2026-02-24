@@ -270,7 +270,7 @@ function googleTranslateElementInit() {
 ![pic]( ../../content/images/threats/oct-24/10.png) 
 ![pic]( ../../content/images/threats/oct-24/11.png) 
 
-- The inference is I'm now being [offered a job in tech](#job-offer) by the criminal-gang's boss!
+- The inference is I'm now being [offered a job in tech](#job-offer-declining-and-murder-threat) by the criminal-gang's boss!
 - I do not know what any of this means.
 - Is it more tricks to scare me? 
 - Is it a way of explaining away everything that's been going on onto a foreign criminal?
@@ -280,7 +280,7 @@ function googleTranslateElementInit() {
 !!! tip "The video files"
     - You'll have to wait for access to these because I don't have a good option for content delivery of multiple large files at the current homeless-and-jobless time.
 
-## Job offer
+## Job offer, declining, and murder threat
 
 - The account that talks the most about this *Cesar*, and other threatening things, is `@csonnyb`. 
 - The account follows me at very the moment I go online after arriving home from my walk.
@@ -295,6 +295,10 @@ function googleTranslateElementInit() {
 
 - The fake account tells me it's better for everyone if I work for possum man.
 - I'm not impressed.
+- Another account pops up with is apparently the boss and his girlfriend, but they look familiar enough to me to be famous actors; a red herring with a seafaring theme nonetheless.
+
+![pic]( ../../content/images/fake-accounts/messages-oct/11.png) 
+
 - The following day, I'm contacted on LinkedIn by a recruiter working for a yachting company based in Altea.
 - They're offering me a job as a tech QA. 
 - I'm certain it's a scam.
@@ -1306,7 +1310,7 @@ function googleTranslateElementInit() {
 ##### 4.
 
  
-![pic]( ../../content/images/fake-accounts/messages-oct/11.png) 
+
 ![pic]( ../../content/images/fake-accounts/messages-oct/12.png) 
 
 ![pic]( ../../content/images/fake-accounts/messages-oct/14.png) 

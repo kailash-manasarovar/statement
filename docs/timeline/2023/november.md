@@ -102,7 +102,7 @@ function googleTranslateElementInit() {
 - I wasn't able to do [my homework properly](may.md#did-the-harmony-teacher-know-i-was-being-poisoned-at-home) on those evenings with a giant cup of tea, and I always felt unstable and tired. I often napped on those evenings.
 - It was on Sunday evenings also that I might [walk into town](september.md#gypsy-serenades) and maybe [bump into someone](september.md#rosa-vidal-follows-me-around) or experience some other [menacing situation](../2024/april.md#drugged-in-the-street-by-denia-gypsies).
 - I often chatted with the lovely man who worked at the laundry, but sometimes even he said things to me which suggested he knew exactly who I was and what I was experiencing.
-- One particular time was in [October 2024](../2024/october.md#possum-man-on-the-beach) when I saw the possum-man at the beach and was [offered a job working for this `Caesar`](../2024/october.md#job-offer), as they called him online when I got home.
+- One particular time was in [October 2024](../2024/october.md#possum-man-on-the-beach) when I saw the possum-man at the beach and was [offered a job working for this `Caesar`](../2024/october.md#job-offer-declining-and-murder-threat), as they called him online when I got home.
 - Remember I had inexplicably been seeing [possums online for over a year](may.md#possums) by that time.
 - The evening after I had seen this guy at the beach, and gone to the laundry as normal; the owner of the laundry had asked me "¿Todo claro?"; meaning is everything clear now?
 - I'm not sure what exactly was supposed to be clear.
