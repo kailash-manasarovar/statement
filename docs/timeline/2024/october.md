@@ -307,7 +307,7 @@ function googleTranslateElementInit() {
 
 ![pic](../../content/images/fake-accounts/messages-oct/10.png)
 
-- LinkedIn bans me for life in a few week's time - right after I survive another attempt on my life by poisoning - and by doing so hides the evidence of multiple porn-gang stalker activity related to my professional life and the jobs I worked while being hacked, drugged, and living in a spy-cam infested apartment.
+- LinkedIn bans me for life in a few week's time - right after I survive another attempt on my life by poisoning - and by doing so hides the evidence of mass porn-gang stalker activity related to my professional life and the jobs I worked while being hacked, drugged, and living in a spy-cam infested apartment.
 
 ## Bumping into Paul again
 
