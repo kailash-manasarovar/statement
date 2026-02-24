@@ -1309,10 +1309,19 @@ function googleTranslateElementInit() {
 
 ##### 4.
 
- 
+- Google search results on my account. Nothing unexpected here.
 
 ![pic]( ../../content/images/fake-accounts/messages-oct/12.png) 
 
+##### 5.
+
+- I realize that I had ingested something that had made me feel overwhelmingly sexually aroused in the car on [Hanuman Jayanti in April 2023](../2023/april.md#hanuman-jayanti).
+- I'm trying to figure out if it was something I had taken before I left my apartment (toothpaste maybe) or whether something had been added to the air system in my car.
+
 ![pic]( ../../content/images/fake-accounts/messages-oct/14.png) 
 
-
+- Indeed, it was about one hour after I set off that morning when I felt the effects kicking in.
+- Another X user is reasonably horrified with my question, but I don't want to divulge my reasoning.
+- Two users confirm the hour duration.
+- I'm guessing it must have been in my toothpaste as that is *always* the last thing I do before I leave the house.
+- I took the toothpaste with me, of course, which will explain the continued sexual arousal while I was away.
