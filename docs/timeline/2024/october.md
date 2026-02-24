@@ -405,7 +405,7 @@ function googleTranslateElementInit() {
 
     So that's where I'm at currently in my investigation.
 
-### We take what we want, they say, we're hunters, they say
+### *We take what we want*, they say, *we're hunters*, they say
 
 - An aggressive message flies by "we take what we want", and the arrogant statement "we're hunters" flies by continuously.
 - The implication is that the older men [I saw on the beach](#possum-man-on-the-beach) do whatever they like to women and children in the town, and they're proud of it too.
@@ -415,6 +415,10 @@ function googleTranslateElementInit() {
 - Her behavior always benefitted those that want to silence me, whoever they may be.
 - She says I must come and stay at her house in London. 
 - She posts curious photos of rooms in her home that have a grainy brown/yellow hue and look exactly like the indoor scenes `@january_myth` and others might post.
+- Every post in our conversation is translated multiple times.
+
+![pic]( ../../content/images/fake-accounts/messages-oct/4.png) 
+
 - I'm finally starting to see what's going on but it's difficult to think straight with the constant drugging and poisoning.
 
 ### Porn star outside my house
@@ -1178,12 +1182,12 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/threats/oct-24/7.png) 
 
-- The Lydia Edge porn account had DM'ed me.
+- The Lydia Edge porn account had DM'ed me, in fact.
 
 ![pic]( ../../content/images/fake-accounts/messages-oct/1.png)
 
 - The name is a reference to me as I had called myself Detective Lydia at one stage while hunting down the stalkers.
-- *Edge* is a reference to an opening in my internet communication that multiple hackers use to access my UI and tailor its content.
+- *Edge* is a reference to an opening in my internet communication that allows multiple hackers to access my UI and tailor its content.
 - Often, hackers would access huge accounts like this one with 2.4M followers, appearing to have owner-rights, as if there's a master-login which gives unfettered admin access to the whole X platform.
 - My guess, it being 18 months later, is that the translated text was indeed threatening - as part of a CSS hack - but I did not screenshot the translation at the time so it is innocuous now.
 - Directing me to an account which has heaps of foreign text they can use to write a message to me via CSS when I translate it was a common misuse of my machine.
@@ -1245,8 +1249,10 @@ function googleTranslateElementInit() {
 
 - The first entry is indeed interesting, translating as: *Two weeks ago, a child prostitution network walked free from court with the support of the Spanish national police.*
 
-| ![pic]( ../../content/images/fake-accounts/messages-oct/3.png) |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/4.png) |
+##### 2.
+
+
+
 | ![pic]( ../../content/images/fake-accounts/messages-oct/5.png) |
 | ![pic]( ../../content/images/fake-accounts/messages-oct/6.png) |
 | ![pic]( ../../content/images/fake-accounts/messages-oct/7.png) |
