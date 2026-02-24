@@ -424,7 +424,8 @@ function googleTranslateElementInit() {
 ![pic]( ../../content/images/fake-accounts/messages-oct/5.png)
 
 - I'm finally starting to see what's going on but it's difficult to think straight with the constant drugging and poisoning.
-- Does `@LadySoLucky` know Ugly too?
+- Does `@LadySoLucky` [know Ugly too](august.md#ugly)?
+- Nearly every male I've ever known seems to know Ugly.
 
 ### Porn star outside my house
 
@@ -1253,19 +1254,20 @@ function googleTranslateElementInit() {
 ![pic]( ../../content/images/fake-accounts/messages-oct/2.png)
 
 - The first entry is indeed interesting, translating as: *Two weeks ago, a child prostitution network walked free from court with the support of the Spanish national police.*
+- Is the suggesting that those responsible for hacking and whatever else they did to [Rocio Vidal](../2023/october.md#rocio-vidal) the same gang?
 
 ##### 2.
 
 
-| ![pic]( ../../content/images/fake-accounts/messages-oct/6.png) |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/7.png) |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/8.png) |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/9.png) |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/10.png) |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/11.png) |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/12.png) |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/13.png) |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/14.png) |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/15.png) |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/16.png) |
+![pic]( ../../content/images/fake-accounts/messages-oct/6.png) 
+![pic]( ../../content/images/fake-accounts/messages-oct/7.png) 
+![pic]( ../../content/images/fake-accounts/messages-oct/8.png) 
+![pic]( ../../content/images/fake-accounts/messages-oct/9.png) 
+![pic]( ../../content/images/fake-accounts/messages-oct/10.png) 
+![pic]( ../../content/images/fake-accounts/messages-oct/11.png) 
+![pic]( ../../content/images/fake-accounts/messages-oct/12.png) 
+![pic]( ../../content/images/fake-accounts/messages-oct/13.png) 
+![pic]( ../../content/images/fake-accounts/messages-oct/14.png) 
+![pic]( ../../content/images/fake-accounts/messages-oct/15.png) 
+![pic]( ../../content/images/fake-accounts/messages-oct/16.png) 
 
