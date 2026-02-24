@@ -282,10 +282,22 @@ function googleTranslateElementInit() {
 
 ## Job offer
 
-- The following day I'm contacted on LinkedIn mails by a yacht company based in Altea.
+- The account that talks the most about this *Cesar*, and other threatening things, is `@csonnyb`. - The account follows me the moment I get home from my walk and I go online.
+
+![pic](../../content/images/fake-accounts/messages-oct/13.png)
+
+- There is a lot of conversation between myself and this account but it's all rubbish, although he references Domingo a lot, and music teachers, and tries to convince me he's the trumpet teacher and he wants to help me.
+- He tells me it's better for everyone if I work for possum man.
+- I'm not impressed.
+- The following day, I'm contacted on LinkedIn by a recruiter working for a yachting company based in Altea.
 - They're offering me a job as a tech QA. 
 - I'm certain it's a scam.
-- I'll be banned for life on LinkedIn in a few week's time, right after I survive another attempt on my life by poisoning.
+- I decline.
+- Moments later, this account pops up.
+
+![pic](../../content/images/fake-accounts/messages-oct/10.png)
+
+- LinkedIn bans me for life in a few week's time, right after I survive another attempt on my life by poisoning, thus hiding the evidence of multiple porn-gang stalker activity related to my professional life and the jobs I worked while being drugged and living in a spy-cam infested apartment.
 
 ## Bumping into Paul again
 
@@ -1283,14 +1295,14 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/fake-accounts/messages-oct/9.png) 
 
-- This looks like a good example of a threatening CSS translation hack.
+- This is a good example of a threatening CSS translation hack.
 
 ##### 4.
 
-![pic]( ../../content/images/fake-accounts/messages-oct/10.png) 
+ 
 ![pic]( ../../content/images/fake-accounts/messages-oct/11.png) 
 ![pic]( ../../content/images/fake-accounts/messages-oct/12.png) 
-![pic]( ../../content/images/fake-accounts/messages-oct/13.png) 
+
 ![pic]( ../../content/images/fake-accounts/messages-oct/14.png) 
 ![pic]( ../../content/images/fake-accounts/messages-oct/15.png) 
 ![pic]( ../../content/images/fake-accounts/messages-oct/16.png) 
