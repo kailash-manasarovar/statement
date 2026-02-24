@@ -1237,8 +1237,14 @@ function googleTranslateElementInit() {
 
 ## Fake accounts and tweets
 
-|  |
-| ![pic]( ../../content/images/fake-accounts/messages-oct/2.png) |
+##### 1.
+
+- It's useful maybe to see what was "popping up" on a Google search using the `@jctot19` X account in early October 2024.
+
+![pic]( ../../content/images/fake-accounts/messages-oct/2.png)
+
+- The first entry is indeed interesting, translating as: *Two weeks ago, a child prostitution network walked free from court with the support of the Spanish national police.*
+
 | ![pic]( ../../content/images/fake-accounts/messages-oct/3.png) |
 | ![pic]( ../../content/images/fake-accounts/messages-oct/4.png) |
 | ![pic]( ../../content/images/fake-accounts/messages-oct/5.png) |
