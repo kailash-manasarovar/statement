@@ -414,7 +414,7 @@ function googleTranslateElementInit() {
 - I’m starting to wonder even more about So, but I let her speak.
 - Her behavior always benefitted those that want to silence me, whoever they may be.
 - She says I must come and stay at her house in London. 
-- She posts curious photos of rooms in her home that have a grainy brown/yellow hue and look exactly like the indoor scenes `@january_myth` and others might post.
+- She posts curious photos of rooms in her home that have a grainy brown/yellow hue and look exactly like the twee indoor scenes `@january_myth` and others might post.
 - Every post in our conversation is translated multiple times.
 
 ![pic]( ../../content/images/fake-accounts/messages-oct/4.png) 
@@ -1245,7 +1245,7 @@ function googleTranslateElementInit() {
 - Do the police tell Hazel and co. to calm down when they get out of control?
 - Does anyone expect these people to calm down and behave?
 
-## Fake accounts and tweets
+## Fake accounts, tweets, and Google searches
 
 ##### 1.
 
