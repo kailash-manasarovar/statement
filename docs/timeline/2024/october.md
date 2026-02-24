@@ -1322,7 +1322,7 @@ function googleTranslateElementInit() {
 ![pic]( ../../content/images/fake-accounts/messages-oct/14.png) 
 
 - Indeed, it was about one hour after I set off that morning when I felt the effects kicking in.
-- Another X user is reasonably horrified with my question, but I don't want to divulge my reasoning.
+- Another X user is understandably horrified by my question, but I don't want to divulge my reasoning.
 - Two users confirm the hour duration.
-- I'm guessing it must have been in my toothpaste as that is *always* the last thing I do before I leave the house.
-- I took the toothpaste with me, of course, which will explain the continued sexual arousal while I was away.
+- I'm guessing it must have been in my toothpaste as that is *always* the last thing I do before I leave the house - which they will know very well having been under constant surveillance for over a year already.
+- I took the toothpaste with me, of course, which will explain the continued sexual arousal while I was away too.
