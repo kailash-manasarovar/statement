@@ -377,6 +377,10 @@ function googleTranslateElementInit() {
 
 [![My understanding at this time](../../content/tweets/my-understanding-october-24.png)](https://x.com/1FRGVN/status/1845101018746343666)
 
+- Nearly half my readers are translating.
+
+![pic]( ../../content/images/fake-accounts/messages-oct/8.png) 
+
 ??? "My understanding of what's going on: 12th October 2024"
     ~
     The latest on the Twittosphere suggests local rape p*rn gangs made up of "respectable" men, #Pelicot style.
@@ -1266,18 +1270,18 @@ function googleTranslateElementInit() {
 
 - `@SisterKaff` is an obvious reference to me.
 - This account was used to gain my sympathy, I believe.
-- The patchwork design started to come up in various guises; one was a painting the trumpet teacher was doing that I had apparently inspired which in retrospect was obviously [the three siblings](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) that may well be Gloria the conservatory receptionist, Ivan the terror of the Marina Alta, and [the man that blew in my face in March](march/13-end.md#wednesday-13th-march).
+- The patchwork design started to come up in various guises; one was a painting the trumpet teacher was doing that I had apparently inspired which in retrospect was obviously [the three siblings](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) that may well be Gloria the conservatory receptionist, Ivan the terror of the Marina Alta, and [the man that blew in my face in March](march/13-end.md#wednesday-13th-march) on the evening I became convinced I was going to be murdered. 
 - Is Ivan a painter?
 - The painting I was shown repeatedly had these three sitting reading comics and the background was like a patchwork quilt of comic book titles.
 - I liked it.
 - I may have screenshot this somewhere.
-- There was a big vacant space in the trumpet teachers lap which I wondered about.
+- There was a big vacant space in the trumpet teacher's lap which I wondered about.
 - Is this his usual game with targets?
 - The other curious thing about this particular account is that the woman looks like Grace from Polygon, and a woman who was [following me in Lourdes in August](august.md#interview-with-the-hacker).
 
 ##### 3.
 
-![pic]( ../../content/images/fake-accounts/messages-oct/8.png) 
+
 ![pic]( ../../content/images/fake-accounts/messages-oct/9.png) 
 ![pic]( ../../content/images/fake-accounts/messages-oct/10.png) 
 ![pic]( ../../content/images/fake-accounts/messages-oct/11.png) 
