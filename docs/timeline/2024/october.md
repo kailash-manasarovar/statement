@@ -1203,7 +1203,7 @@ function googleTranslateElementInit() {
 - The name is a reference to me as I had called myself Detective Lydia at one stage while hunting down the stalkers.
 - *Edge* is a reference to an opening in my internet communication that allows multiple hackers to access my UI and tailor its content.
 - Often, hackers would access huge accounts like this one with 2.4M followers, appearing to have owner-rights, as if there's a master-login which gives unfettered admin access to the whole X platform.
-- My guess, it being 18 months later, is that the translated text was indeed threatening - as part of a CSS hack - but I did not screenshot the translation at the time so it is innocuous now.
+- My guess, it being 18 months later, is that the translated text was indeed threatening - as part of a CSS hack (see [an example of that here](#3-translation-hack-example)) - but I did not screenshot the translation at the time so it is innocuous now.
 - Directing me to an account which has heaps of foreign text they can use to write a message to me via CSS when I translate it was a common misuse of my machine.
 
 ##### 5.
@@ -1279,10 +1279,14 @@ function googleTranslateElementInit() {
 - Is this his usual game with targets?
 - The other curious thing about this particular account is that the woman looks like Grace from Polygon, and a woman who was [following me in Lourdes in August](august.md#interview-with-the-hacker).
 
-##### 3.
-
+##### 3. Translation hack example
 
 ![pic]( ../../content/images/fake-accounts/messages-oct/9.png) 
+
+- This looks like a good example of a threatening CSS translation hack.
+
+##### 4.
+
 ![pic]( ../../content/images/fake-accounts/messages-oct/10.png) 
 ![pic]( ../../content/images/fake-accounts/messages-oct/11.png) 
 ![pic]( ../../content/images/fake-accounts/messages-oct/12.png) 
