@@ -282,12 +282,18 @@ function googleTranslateElementInit() {
 
 ## Job offer
 
-- The account that talks the most about this *Cesar*, and other threatening things, is `@csonnyb`. - The account follows me the moment I get home from my walk and I go online.
+- The account that talks the most about this *Cesar*, and other threatening things, is `@csonnyb`. 
+- The account follows me at very the moment I go online after arriving home from my walk.
 
 ![pic](../../content/images/fake-accounts/messages-oct/13.png)
 
-- There is a lot of conversation between myself and this account but it's all rubbish, although he references Domingo a lot, and music teachers, and tries to convince me he's the trumpet teacher and he wants to help me.
-- He tells me it's better for everyone if I work for possum man.
+- There is a lot of conversation between myself and this account but it's mostly rubbish, although he references Domingo and gay men a lot, and music teachers, and he tries to convince me he's the trumpet teacher and he wants to help me.
+- I don't have those conversations screenshot but I did contact him again when I arrived in Fatima and was *bombarded* with online attacks thinking it was probably him again.
+
+![pic]( ../../content/images/fake-accounts/messages-oct/15.png) 
+![pic]( ../../content/images/fake-accounts/messages-oct/16.png) 
+
+- The fake account tells me it's better for everyone if I work for possum man.
 - I'm not impressed.
 - The following day, I'm contacted on LinkedIn by a recruiter working for a yachting company based in Altea.
 - They're offering me a job as a tech QA. 
@@ -297,7 +303,7 @@ function googleTranslateElementInit() {
 
 ![pic](../../content/images/fake-accounts/messages-oct/10.png)
 
-- LinkedIn bans me for life in a few week's time, right after I survive another attempt on my life by poisoning, thus hiding the evidence of multiple porn-gang stalker activity related to my professional life and the jobs I worked while being drugged and living in a spy-cam infested apartment.
+- LinkedIn bans me for life in a few week's time - right after I survive another attempt on my life by poisoning - thus hiding the evidence of multiple porn-gang stalker activity related to my professional life and the jobs I worked while being hacked, drugged, and living in a spy-cam infested apartment.
 
 ## Bumping into Paul again
 
@@ -1304,6 +1310,5 @@ function googleTranslateElementInit() {
 ![pic]( ../../content/images/fake-accounts/messages-oct/12.png) 
 
 ![pic]( ../../content/images/fake-accounts/messages-oct/14.png) 
-![pic]( ../../content/images/fake-accounts/messages-oct/15.png) 
-![pic]( ../../content/images/fake-accounts/messages-oct/16.png) 
+
 
