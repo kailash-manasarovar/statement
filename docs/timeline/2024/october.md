@@ -1249,12 +1249,12 @@ function googleTranslateElementInit() {
 
 ##### 1.
 
-- It's useful maybe to see what was "popping up" on a Google search using the `@jctot19` X account in early October 2024.
+- Let's see what was "popping up" on a Google search using the "`@jctot19` X" search term results in early October 2024.
 
 ![pic]( ../../content/images/fake-accounts/messages-oct/2.png)
 
 - The first entry is indeed interesting, translating as: *Two weeks ago, a child prostitution network walked free from court with the support of the Spanish national police.*
-- Is the suggesting that those responsible for hacking and whatever else they did to [Rocio Vidal](../2023/october.md#rocio-vidal) the same gang?
+- Is the fact that there are just three results, and one of them is Rocio Vidal, again, suggesting that those responsible for hacking and whatever else they did to [Rocio Vidal](../2023/october.md#rocio-vidal) are the very same gang?
 
 ##### 2.
 
