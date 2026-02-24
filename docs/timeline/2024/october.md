@@ -1171,16 +1171,22 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/threats/oct-24/4.png) 
 
-- Initially, I was not sure why I screenshot this one.
+- Initially, as I was drafting this section up, I was not sure why I screenshot this one.
 - Then I saw it was the sole account that this account was following.
 
 ![pic]( ../../content/images/threats/oct-24/8.png)
 
 ![pic]( ../../content/images/threats/oct-24/7.png) 
 
-- The Lydia Edge account is a reference to me, so I guess this account did something suspicious and I was checking through and screenshot the `avogado6` account as significant.
-- Often, hackers would access huge accounts like this one with 2.4M followers and they seemed to have owner-rights, as if there's a master-login which gives unfettered admin access to the whole X platform.
+- The Lydia Edge porn account had DM'ed me.
+
+![pic]( ../../content/images/fake-accounts/messages-oct/1.png)
+
+- The name is a reference to me as I had called myself Detective Lydia at one stage while hunting down the stalkers.
+- *Edge* is a reference to an opening in my internet communication that multiple hackers use to access my UI and tailor its content.
+- Often, hackers would access huge accounts like this one with 2.4M followers, appearing to have owner-rights, as if there's a master-login which gives unfettered admin access to the whole X platform.
 - My guess, it being 18 months later, is that the translated text was indeed threatening - as part of a CSS hack - but I did not screenshot the translation at the time so it is innocuous now.
+- Directing me to an account which has heaps of foreign text they can use to write a message to me via CSS when I translate it was a common misuse of my machine.
 
 ##### 5.
 
@@ -1231,9 +1237,7 @@ function googleTranslateElementInit() {
 
 ## Fake accounts and tweets
 
-| Fake account activity  |
-|-|
-| ![pic]( ../../content/images/fake-accounts/messages-oct/1.png) |
+|  |
 | ![pic]( ../../content/images/fake-accounts/messages-oct/2.png) |
 | ![pic]( ../../content/images/fake-accounts/messages-oct/3.png) |
 | ![pic]( ../../content/images/fake-accounts/messages-oct/4.png) |
