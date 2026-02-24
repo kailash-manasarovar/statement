@@ -295,7 +295,7 @@ function googleTranslateElementInit() {
 
 - The fake account tells me it's better for everyone if I work for possum man.
 - I'm not impressed.
-- Another account pops up with is apparently the boss and his girlfriend, but they look familiar enough to me to be famous actors; a red herring with a seafaring theme nonetheless.
+- Another account pops up which is apparently the boss and his girlfriend, but they look familiar enough to me to be famous actors; a red herring with a seafaring theme nonetheless.
 
 ![pic]( ../../content/images/fake-accounts/messages-oct/11.png) 
 
@@ -307,7 +307,7 @@ function googleTranslateElementInit() {
 
 ![pic](../../content/images/fake-accounts/messages-oct/10.png)
 
-- LinkedIn bans me for life in a few week's time - right after I survive another attempt on my life by poisoning - thus hiding the evidence of multiple porn-gang stalker activity related to my professional life and the jobs I worked while being hacked, drugged, and living in a spy-cam infested apartment.
+- LinkedIn bans me for life in a few week's time - right after I survive another attempt on my life by poisoning - and by doing so hides the evidence of multiple porn-gang stalker activity related to my professional life and the jobs I worked while being hacked, drugged, and living in a spy-cam infested apartment.
 
 ## Bumping into Paul again
 
