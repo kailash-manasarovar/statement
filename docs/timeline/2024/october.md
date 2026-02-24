@@ -1309,11 +1309,12 @@ function googleTranslateElementInit() {
 
 ##### 4.
 
-- Google search results on my account. Nothing unexpected here.
+- Google search results on my account.
+- The suspected targets I posted are coming up primarily.
 
 ![pic]( ../../content/images/fake-accounts/messages-oct/12.png) 
 
-##### 5.
+##### 5. Drugs in the toothpaste
 
 - I realize that I had ingested something that had made me feel overwhelmingly sexually aroused in the car on [Hanuman Jayanti in April 2023](../2023/april.md#hanuman-jayanti).
 - I'm trying to figure out if it was something I had taken before I left my apartment (toothpaste maybe) or whether something had been added to the air system in my car.
