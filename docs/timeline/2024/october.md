@@ -253,9 +253,13 @@ function googleTranslateElementInit() {
 - The man on her right smiles at her, and I see his face. 
 - His teeth, in profile, make him look like a possum.
 - You may remember, inexplicably, [I have been seeing *possums* on my X feed](../2023/may.md#possums) since at least May 2023 when [the switcheroo porn](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) was in production at the conservatory.
+- There was a flurry of possums on my X feed for a few days after seeing him, and probably until I left for Madrid to talk to [the Spanish official, Paloma](#meeting-inma-and-paloma-the-spanish-official-in-madrid).
+
+![pic]( ../../content/images/fake-accounts/messages-oct/6.png) 
+
 - I have these two on camera also.
 - I never go to the beach again.
-- I never see possums again on my feed either.
+- I have not seen possums on my feed since October 2024.
 - At the laundry that evening drying my clothes, the lovely man there asks, without requiring an answer: "¿Todo claro?". 
 - I hear it as: "Is everything clear now?", as if my experience at the beach has explained my situation somehow.
 - I mention this in [another section about the laundry](../2023/november.md#the-laundry), scene of many drugged-manipulation and stalker events. I wonder if Sunday, like Monday, was always a *special day* back at mine.
@@ -1249,7 +1253,7 @@ function googleTranslateElementInit() {
 
 ##### 1.
 
-- Let's see what was "popping up" on a Google search using the "`@jctot19` X" search term results in early October 2024.
+- Let's see what was "popping up" on Google search results using the "`@jctot19` X" search term in early October 2024.
 
 ![pic]( ../../content/images/fake-accounts/messages-oct/2.png)
 
@@ -1259,7 +1263,7 @@ function googleTranslateElementInit() {
 ##### 2.
 
 
-![pic]( ../../content/images/fake-accounts/messages-oct/6.png) 
+
 ![pic]( ../../content/images/fake-accounts/messages-oct/7.png) 
 ![pic]( ../../content/images/fake-accounts/messages-oct/8.png) 
 ![pic]( ../../content/images/fake-accounts/messages-oct/9.png) 
