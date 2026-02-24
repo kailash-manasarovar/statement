@@ -419,7 +419,12 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/fake-accounts/messages-oct/4.png) 
 
+- Just moments after posting.
+
+![pic]( ../../content/images/fake-accounts/messages-oct/5.png)
+
 - I'm finally starting to see what's going on but it's difficult to think straight with the constant drugging and poisoning.
+- Does `@LadySoLucky` know Ugly too?
 
 ### Porn star outside my house
 
@@ -1252,8 +1257,6 @@ function googleTranslateElementInit() {
 ##### 2.
 
 
-
-| ![pic]( ../../content/images/fake-accounts/messages-oct/5.png) |
 | ![pic]( ../../content/images/fake-accounts/messages-oct/6.png) |
 | ![pic]( ../../content/images/fake-accounts/messages-oct/7.png) |
 | ![pic]( ../../content/images/fake-accounts/messages-oct/8.png) |
