@@ -1254,7 +1254,7 @@ function googleTranslateElementInit() {
 ![pic]( ../../content/images/fake-accounts/messages-oct/2.png)
 
 - The first entry is indeed interesting, translating as: *Two weeks ago, a child prostitution network walked free from court with the support of the Spanish national police.*
-- Is the fact that there are just three results, and one of them is Rocio Vidal, again, suggesting that those responsible for hacking and whatever else they did to [Rocio Vidal](../2023/october.md#rocio-vidal) are the very same gang?
+- Does the fact that there are just two relevant results, and one of them is Rocio Vidal, again, suggest that those responsible for hacking, and whatever else they did to [Rocio Vidal](../2023/october.md#rocio-vidal), are the very same gang?
 
 ##### 2.
 
