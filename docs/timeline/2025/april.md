@@ -8,6 +8,14 @@
 - I suspect it's Carmen Cano, as they like you to know who they are, and this name and her picture keeps coming up in the way they used to.
 - Sources tell me this woman has been waiting for me to die for some time. She'll need eternity for that I expect.
 
+## Tether job interview
+
+- I apply for a senior technical writer role.
+- The pre-interview stage has a test for an advanced web developer so I back out.
+- I'm now wondering if this was another set up to check and see if my brain was still functioning as well as it did prior to sex-slave hacked-apartment drugging.
+- I wonder if that's why [the chess came out at dinner in Bali](../2024/may.md#chess-with-the-head-of-security-mudit) too. 
+- Were they making sure I had lost sufficient cognitive function from the live-streamed sedated-rape experiences they were all delighting in?
+
 ## Fridges
 
 - At one point, there is communication online with regards to how I've had enough and I'm not playing anymore.
