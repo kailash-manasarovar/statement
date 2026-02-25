@@ -21,7 +21,9 @@
 - I wonder if that's why [the chess came out at dinner in Bali](../2024/may.md#chess-with-the-head-of-security-mudit) too. 
 - Were they making sure I had lost sufficient cognitive function from the continuous drugging for live-streamed sedated-rape experiences they were all delighting in?
 - I had thrashed the men at a chess tournament in 2018 at Goldman Sachs, even while depressed and using valium to calm my nerves.
-- Did the tech-pro community find my once-advanced cognitive skills mortally offensive?
+- Did the tech-bro community find my once-advanced cognitive skills mortally offensive; a justification for murder?
+
+![Chess](../../content/images/chess.webp)
 
 ## Fridges
 
