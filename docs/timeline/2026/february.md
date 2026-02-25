@@ -97,3 +97,39 @@
 
 - Well, the *me* I see in it is that picture Simon Gaskin took of me in 1988.
 - Winston May had a copy of that picture.
+
+### Groomers
+
+- Back in the 80s, just like today, there were adult-male groomers around, like Simon, looking to manipulate youngsters into having sex with them.
+- They were often part of a male porn-addict network and in Simon's case, he would have been alerted to the fact I had seen him and thought he was cute via one of the most egregious groomers in East Finchley, Richard Reid.
+- Richard befriended girls aged 12-14.
+- Even in my twenties I saw him sitting out on summer evenings on East Finchley High Road with schoolgirls.
+- Back in the day, it was a free for all and we were the opportunities.
+- He had befriended Willow, a friend of mine, through her neighbour Tyro Harvey (son of a famous rock star) who was also much younger than Richard, but older than us, and as equally impressed by him as we were.
+- They would hang out at Cherry Tree Woods and approach children.
+- Everyone looked up to Richard; he had puff and he would share it around.
+- He would then arrange for us to hang out with him, and we would go somewhere in the back of his little Computer Centre van, and we would smoke pot together and giggle.
+- It was only a matter of time before one of them had sex with one of us.
+- I believe these men connected with their shared interest in under age girls, compared notes, and divulged information about us.
+- Porn was always lurking in the background.
+- While I was seeing Simon, he kept mentioning porn.
+- He had a friend who he hung around with (can't remember his name but he lived down on Falloden Way in the suburb over a shop with his mum).
+- This friend's girlfriend, Simon would tell me excitedly, did porn.
+- I didn't know what he was going on about.
+- He then showed me some porn one evening on VHS.
+- I just thought it unbelievably boring and wondered what all the fuss was about.
+- My disinterest must have been obvious because he never mentioned it again.
+- I bumped into him a few times in East Finchley in the 90s.
+- The way he spoke to me made me realize how little he had thought of me.
+- He spoke to me if I was an idiot, and he seemed to delight in it.
+- I remembered that he had always spoken to me like that, as if I was beneath him by about a million miles, but I hadn't been mature or experienced enough to know how to respond to that sort of disrespect, so I always just stayed silent and wondered if he was all right in the head.
+- I bumped into his mum about twenty years later, and his mum did that thing mum's seem to do to me and she persuaded me to go and visit him.
+- I did.
+- I popped around to see him for about ten minutes.
+- I didn't want to sit down. 
+- My feet seemed to be sticking to the floor of his bedroom.
+- The smell of dry semen was overpowering.
+- I think his porn addiction had completely destroyed him.
+- Did porn-addicts back then collect and share the girls around, like football cards?
+- Did the picture he took of me end up at the Red Lion HQ?
+- Was the Tottenham rape-gang contracted to target me and my friend, knowing at least I was already sufficiently groomed?
