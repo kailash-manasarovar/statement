@@ -10,11 +10,18 @@
 
 ## Tether job interview
 
-- I apply for a senior technical writer role.
-- The pre-interview stage has a test for an advanced web developer so I back out.
-- I'm now wondering if this was another set up to check and see if my brain was still functioning as well as it did prior to sex-slave hacked-apartment drugging.
+- I apply for a senior technical writer role with Tether.
+- The pre-interview stage has a test that turns out to be at an advanced web-developer level.
+- The role is not as described.
+- However, I do give the test a go, as I am a web dev for my own crypto app and have been working in the field for 25 years.
+- I do have a PhD in computer science after all.
+- My mind is not up to the task in the way it used to be and I cannot make head-nor-tail of what I'm doing.
+- I back out of the process.
+- I'm now wondering if this was yet another tech-bro set up to check and see if my brain was still functioning as well as it did prior to the switcheroo-porn brain-damaging.
 - I wonder if that's why [the chess came out at dinner in Bali](../2024/may.md#chess-with-the-head-of-security-mudit) too. 
-- Were they making sure I had lost sufficient cognitive function from the live-streamed sedated-rape experiences they were all delighting in?
+- Were they making sure I had lost sufficient cognitive function from the continuous drugging for live-streamed sedated-rape experiences they were all delighting in?
+- I had thrashed the men at a chess tournament in 2018 at Goldman Sachs, even while depressed and using valium to calm my nerves.
+- Did the tech-pro community find my once-advanced cognitive skills mortally offensive?
 
 ## Fridges
 
