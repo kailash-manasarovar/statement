@@ -108,7 +108,10 @@
 - Richard had already befriended Willow, a friend of mine, through her neighbour Tyro Harvey (son of a famous rock star) who was also much younger than Richard, but older than us, and as equally impressed by him as we were.
 - They would hang out in Cherry Tree Woods and approach children.
 - Everyone looked up to Richard; he had puff and he would share it around.
-- He would then arrange for us to hang out with him, and we would go somewhere in the back of his little Computer Centre van, and we would smoke pot together and giggle.
+- He would then arrange for us to hang out with him, and we would go somewhere in the back of his little white Computer Centre van, and we would smoke pot together and giggle.
+
+![Computer Centre van](../../content/images/computer-center-van.png)
+
 - It was only a matter of time before one of them had sex with one of us.
 - I believe these men connected via their shared interest in under age girls, compared notes, and divulged information about the girls they had persuaded they were safe.
 - Richard would literally have three or four underage girls in the back of his van and he would take us around to show his other mates in the area.
