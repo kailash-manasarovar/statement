@@ -137,4 +137,4 @@
 - I think his porn addiction had completely destroyed him.
 - Did porn-addicts back then collect and share the girls around, like football cards?
 - Did the picture he took of me end up at the Red Lion criminal-porn headquarters in High Barnet?
-- Was the Tottenham rape-gang contracted to target me and my friends, knowing at least I was already sufficiently groomed to be easily lured into gang-rape situations sedated or otherwise?
+- Was the Tottenham rape-gang contracted to target me and my friends, knowing at least I was already sufficiently groomed to be easily lured into gang-rape situations, sedated or otherwise?
