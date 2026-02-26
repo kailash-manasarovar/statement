@@ -83,6 +83,12 @@
 - At some point a car pulls out in front of me and I end up following it all the way to Church Lane N2.
 - It's number plate is XXXX WTF. (The Xs are numbers I can't remember.)
 
+#### Paul and my brother
+
+- Paul keeps saying how he *wants to help my brother*, like be a mentor of some sort.
+- It's weird.
+- Why have they asked him to do that?
+
 ## Moving back to UK
 
 - I spend most of February moving my stuff back to my house in London.
