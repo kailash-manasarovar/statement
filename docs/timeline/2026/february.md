@@ -141,3 +141,10 @@
 - Did porn-addicts back then collect and share the girls around, like football cards?
 - Did the picture he took of me end up at the Red Lion criminal-porn headquarters in High Barnet?
 - Was the Tottenham rape-gang contracted to target me and my friends, knowing at least I was already sufficiently groomed to be easily lured into gang-rape situations, sedated or otherwise?
+
+## Keeping me topped-up in 2025
+
+- Something was keeping me high throughout 2025, and I have the DESO account to prove it.
+- There were some obvious incidents like the [Cambridge ugly ladies](../2025/april.md#shoe-zone-harlow-essex) and [July's murder attempt](../2025/july.md#lourdes), but I'm still without an explanation of why I was high all the time in 2025 until [I remembered the switcheroo](../2025/october.md#thunderbolt-clarity), when it stopped.
+- If the porn-gangs own my brother, as I suspect they have done since his Thailand episode, could they have involved him in some way while I was living at 31 Trinity?
+
