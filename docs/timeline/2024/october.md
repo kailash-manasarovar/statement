@@ -545,21 +545,23 @@ function googleTranslateElementInit() {
 - I try to explain to Paloma what's been going on.
 - Paloma doesn't really listen to me when I speak, she talks directly to Inma.
 - They both keep telling me to keep my voice down; I can't.
-- I tell Paloma I'm totally hacked and every time I reset my devices, they're back in immediately, even on a completely new phone I bought with cash in Lourdes, and new UK SIM.
+- I tell Paloma I'm totally hacked and every time I reset my devices, they're back in immediately, even on a completely new phone I bought with cash in Lourdes with a new UK SIM.
 - She says: *Even on your new phone?*
 - I answer: *Yes, they were in immediately.*
-- She groans.
+- Paloma groans.
 - I tell Paloma about [Irene](august.md#irene-the-plate-lady), about [Rocio Vidal](../2023/october.md#rocio-vidal), about the hundreds of other women, about the children Domingo is responsible for.
-- I have to push to be heard; although Paloma sort of groans at every new horror I mention, as if none of this is unfamiliar to her.
-- She looks at her phone and says, *oh, yes, Rocio Vidal was hacked*.
+- I have to push to be heard.
+- Paloma groans at every new horror I mention, as if none of this is unfamiliar to her.
+- She looks at her phone and says, *Oh, yes, Rocio Vidal was hacked*.
 - I tell her about my trips to the police and how they're ignoring me.
 - She tells Inma and I that the police in the whole Valencian region cannot be trusted. 
 - *You can't go to the police down there, they won't help you*, she says. 
 - I knew it already.
-- She doesn't seem to be interested in anything I have to say, until one moment when I mention that the trumpet teacher's daughters might be kidnapped if he doesn't do what they say - this has been [a repeated online theme](#the-silvia-meme).
-- At that moment, her eyes light up and she says, *oh we can do something with that*.
+- She doesn't seem to be interested in anything I have to say, until one moment when I mention that the trumpet teacher's daughters might be kidnapped if he doesn't do what they say - and that this has been [a repeated online theme](#the-silvia-meme).
+- Paloma's eyes light up.
+- She says, *Oh we can do something with that*.
 - I'm dismayed.
-- A woman or child can go through years of torture and no-one cares, but the minute a man is in trouble, even a man involved in the torturing, everyone's happy to spring into action.
+- A woman or child can go through years of torture and no-one cares, but the minute a man is in trouble, even a man involved in the torturing, everyone springs into action.
 - It feels like industrial-scale woman-hating and tacitly-accepted sexual grooming of minors, and worse.
 - Her words suggest thousands of ignored complaints.
 - No wonder Dénia happened.
@@ -568,7 +570,7 @@ function googleTranslateElementInit() {
 - Inma says she remembers me mentioning something in 2007.
 - I had told Inma back then that I had seen well-known British criminals in the Marina Alta, Las Marinas to be precise, without giving any details.
 - I tell Paloma about the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101) and the [sedated woman in the car](september.md#another-upsetting-targeted-woman), and the many pictures I received that I believe are targeted women, including [a picture of one of Domingo's students](../2023/october.md#choir) Elsa.
-- I tell her about the [ugly man](august.md#ugly) following me in France. I don't remember I had not sent Inma the supplementary page describing him for some reason.
+- I tell her about the [ugly man](august.md#ugly) following me in France. I forget I had not sent Inma the supplementary page describing him for some reason.
 - Paloma looks briefly at Inma, and then at me, and says my story sounds like devil worship.
 - I'm even more dismayed. 
 - I know what this means.
