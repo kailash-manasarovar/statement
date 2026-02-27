@@ -545,6 +545,10 @@ function googleTranslateElementInit() {
 - I try to explain to Paloma what's been going on.
 - Paloma doesn't really listen to me when I speak, she talks directly to Inma.
 - They both keep telling me to keep my voice down; I can't.
+- I tell Paloma I'm totally hacked and every time I reset my devices, they're back in immediately, even on a completely new phone I bought with cash in Lourdes, and new UK SIM.
+- She says: *Even on your new phone?*
+- I answer: *Yes, they were in immediately.*
+- She groans.
 - I tell Paloma about [Irene](august.md#irene-the-plate-lady), about [Rocio Vidal](../2023/october.md#rocio-vidal), about the hundreds of other women, about the children Domingo is responsible for.
 - I have to push to be heard; although Paloma sort of groans at every new horror I mention, as if none of this is unfamiliar to her.
 - She looks at her phone and says, *oh, yes, Rocio Vidal was hacked*.
