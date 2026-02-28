@@ -150,13 +150,15 @@ function googleTranslateElementInit() {
 - He is standing in the middle of the corridor, in my way, and he comes up to me and has a bit of a rant.
 - Except, he's repeating the same words I said to [mushroom man in Bali](may.md#the-pakistani-yorkshire-man), when he was distracting me while the conference hall emptied and the [Jitendra Das lookalike](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life), Aziz the Rust developer, could introduce himself.
 - I guess those words were recorded and broadcast to the paying porn addicts worldwide.
-- Ben had famously spent months looking for Azif the British/Pakistani Rust engineer, or whatever his name was. 
+- Ben had famously [spent months looking for Azif, the British/Pakistani Rust engineer](may.md#ben-finds-a-rust-developer), or whatever his name was. 
 - He reported this in every management meeting and, just a few weeks before Bali, he announced that he'd found him.
-- Ben leaves the company about a week later.
-- This is so strange because Ben, apparently, had a key systems role in the business, and he's just gone! Poof!
-- I don't really understand it and I wonder if he was bullied out, especially since he repeated my bullied-person words back to me.
+- Ben leaves the company about a week after his weird rant.
+- This is so strange because Ben, apparently, had a key systems role in the business, and he's just gone! 
+- Poof!
+- I don't really understand it and, at the time, I wondered if he was bullied out - I think that's what he was hoping I would think by repeating my bullied-person words back to me.
 - I have an obsessive good view of people who probably don't deserve it, but I'd rather it was that way.
-- Interestingly, when I try to find references for Ben online, there are none at all. Zero.
+- Interestingly, when I try to find references for Ben the expert cryptographer, programmer and mathematician online, there are none at all. Zero.
+- As if he didn't even exist!
 
 ### Meeting my Belgian friend
 
