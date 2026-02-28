@@ -621,6 +621,20 @@ function googleTranslateElementInit() {
 - Is he the guy they brought over to Bali to do the sedating and/or set up the spy-cam tech?
 - Was he my lovely squirrel's mate?
 
+### The management team can't look me in the eye or be near me
+
+- The day after one of the switcheroos back at my room - I was unaware of it - I go to lunch as usual and I see all the Polygon managers sitting together.
+- My manager Paul O'Leary is with them so I go over to say hi.
+- They start giving each other negative looks as I approach them.
+- It's like they all took a long gulp and weren't able to speak.
+- It is perplexing to me.
+- I say a few words and sit down.
+- They all leave quickly, as if my physical presence is somehow appalling to them.
+- Could it be guilt?
+- It reminds me of another occasion at my apartment, back in 2001, when we'd had a bunch of "mates" around for drinks.. but this was just a couple of months [after Ugly in Amsterdam](../2001-to-2010/2001.md#amsterdam).
+- The next morning, when I woke up everyone had left before I got up, which in retrospect is very weird and implies guilt.
+- I wonder if you got some footage of that "date" too Ugly?
+
 ### Telling people about the forgivenet
 
 - I tell as many people as I can about the [forgivenet](https://1frgvn.com/).
