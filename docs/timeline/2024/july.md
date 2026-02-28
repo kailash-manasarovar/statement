@@ -152,7 +152,7 @@ function googleTranslateElementInit() {
 - I guess those words were recorded and broadcast to the paying porn addicts worldwide.
 - Ben had famously [spent months looking for Azif, the British/Pakistani Rust engineer](may.md#ben-finds-a-rust-developer), or whatever his name was. 
 - He reported this in every management meeting and, just a few weeks before Bali, he announced that he'd found him.
-- Ben leaves the company about a week after his weird rant.
+- Ben leaves the company about a week after his weird rant to me in Belgium.
 - This is so strange because Ben, apparently, had a key systems role in the business, and he's just gone! 
 - Poof!
 - I don't really understand it and, at the time, I wondered if he was bullied out - I think that's what he was hoping I would think by repeating my bullied-person words back to me.
