@@ -361,12 +361,13 @@ function googleTranslateElementInit() {
 - Benjamin, the Polygon Zero manager, is struggling to find a Rust developer.
 - He reports this at every management meeting.
 - Eventually, just before Bali, he finds one.
-- Is it Aziz?
-- They do have the same Oxbridge accent.
+- Is it Aziz, or Azif, or whatever his name was?
+- They both have the same Oxbridge accent.
 - I like Ben.
-- Ben leaves the company soon after Bali, hurriedly, just like a couple of the others do, notably Alicia and the Aussie guy, Jarrod Watts, who Gabriel instructed to make me look incompetent.
+- Ben leaves the company soon after Bali, hurriedly, just like a couple of the others do, notably Alicia, and the Aussie guy Jarrod Watts who Gabriel instructed to make me look incompetent.
 - Was Ben employed solely for switcheroo planning?
 - Was he buddies with the British CTO of zkSync - who *also* had exactly the same accent as him, *and also* knew Elon Musk personally?
+- Was Ben even his real name?
 
 #### Ajay, Alicia, Aman Pandey, and mushroom-man perform a military coup on my job
 
