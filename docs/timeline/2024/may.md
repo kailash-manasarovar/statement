@@ -625,7 +625,7 @@ function googleTranslateElementInit() {
 
 - The day after one of the switcheroos back at my room - I was unaware of it - I go to lunch as usual and I see all the Polygon managers sitting together.
 - My manager Paul O'Leary is with them so I go over to say hi.
-- They start giving each other negative looks as I approach them.
+- They start mumbling and giving each other negative looks as I approach them.
 - It's like they all took a long gulp and weren't able to speak.
 - It is perplexing to me.
 - I say a few words and sit down.
@@ -647,7 +647,7 @@ function googleTranslateElementInit() {
 - Other people I tell are very literally horrified; they gawk at me and walk off angrily. I kid you not.
 - I tell two guys from Fireblocks at dinner about it one night. I believe they also become uncomfortable because they look at each other and get up leave me alone at the table.
 - I find these reactions very interesting and not at all negative for the business.
-- Perhaps exactly what I was hoping for.
+- Perhaps exactly what I was hoping for, except if the reason behind it is participation in sedated switcheroo porn... that makes me sad.
 
 ### Alicia
 
