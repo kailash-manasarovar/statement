@@ -366,7 +366,7 @@ function googleTranslateElementInit() {
 - I like Ben.
 - Ben leaves the company soon after Bali, hurriedly, just like a couple of the others do, notably Alicia and the Aussie guy, Jarrod Watts, who Gabriel instructed to make me look incompetent.
 - Was Ben employed solely for switcheroo planning?
-- Was he buddies with the British CTO of zkSync - who had exactly the same accent as him and knew Elon Musk personally?
+- Was he buddies with the British CTO of zkSync - who *also* had exactly the same accent as him, *and also* knew Elon Musk personally?
 
 #### Ajay, Alicia, Aman Pandey, and mushroom-man perform a military coup on my job
 
