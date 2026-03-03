@@ -202,6 +202,13 @@ function googleTranslateElementInit() {
 - He appeared to have never been a teacher before, or was completely lazy and didn't care about what he was doing.
 - I took over the classes a little bit.
 
+### Horse theme
+
+- The music we practiced, before I took over a little bit, was a tune with a horse-theme.
+- I do not believe this was AT ALL accidental.
+- This was the *only* piece the trumpet teacher brought for rehearsals throughout the course until he introduced *My Way*, the drugged female-student funeral special.
+- When I think of Domingo's frequent use of the word *funeral*, I wonder if he was being very literal.
+
 ### Deafness
 
 - He seemed to have a hearing issue, and a bit of a speech impediment arising from it.
