@@ -38,7 +38,7 @@ function googleTranslateElementInit() {
 
 - Soon after the [Chronicle Software](january.md#chronicle-software) role goes sour, I'm offered a new contract with a crypto company [Qredo](https://www.qredo.com/).
 - On the first day, I see a name fly-by on Slack: *Anita Diamond*.
-- You may remember [Anita and her husband visiting me in Dénia in 2006](../2001-to-2010/2006.md#matthew-goes-upstairs-on-his-own), just before the [Dave Porter Guardian Soulmates porn-fatwa fiasco](../2001-to-2010/2006.md#guardian-soulmates), orchestrated online by [world-famous poisoner and serial-killer Hazel (Fiona) Smith](../2001-to-2010/2007.md#hazel-smith) and her manipulation-tech associates.
+- You may remember [Anita and her husband visiting me in Dénia in 2006](../2001-to-2010/2006.md#matthew-goes-upstairs-on-his-own), just before the [Dave Porter Guardian Soulmates porn-fatwa fiasco](../2001-to-2010/2006.md#dave-porter-on-guardian-soulmates), orchestrated online by [world-famous poisoner and serial-killer Hazel (Fiona) Smith](../2001-to-2010/2007.md#hazel-smith) and her manipulation-tech associates.
 - This is a huge coincidence - or is it?
 - Anita Diamond, it turns out, is also working as a technical writer for the company, the role I've just been hired for.
 - Did they really need two?
