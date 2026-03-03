@@ -207,7 +207,7 @@ function googleTranslateElementInit() {
 - The music we practiced, before I took over a little bit, was a tune with a horse-theme.
 - I do not believe this was AT ALL accidental.
 - This was the *only* piece the trumpet teacher brought for rehearsals throughout the course until the evening [the first trumpet teacher I remember](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) introduced *My Way*, the drugged female-student funeral special, and God popped in [to take over proceedings from here](../2023/march.md#dreaming-of-the-trumpet-teacher).
-- When I think of Domingo's frequent use of the word *funeral*, I wonder if he was being very literal.
+- When I think of Domingo's frequent use of the word *funeral* to describe concert pieces, I wonder if he was being very literal.
 
 ### Deafness
 
