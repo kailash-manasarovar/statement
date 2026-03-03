@@ -565,7 +565,7 @@ function googleTranslateElementInit() {
 - It feels like industrial-scale woman-hating and tacitly-accepted sexual grooming of minors, and worse.
 - Her words suggest thousands of ignored complaints.
 - No wonder Dénia happened.
-- I then tell her about Hazel and Sandra Smith, and how I have known who and what they are since 2007, about how they were at the Old Bailey for honey-trapping, poisoning, and murdering wealthy elderly people in London in the 90s and how they were found not guilty, about how they've been free to target the ex-pat elderly in the Marina Alta, about how Hazel is the accountant for hundreds of vulnerable British people, and about how [she tried to murder me by poisoning in 2007](../early-years/2007.md#hazel-smith).
+- I then tell her about Hazel and Sandra Smith, and how I have known who and what they are since 2007, about how they were at the Old Bailey for honey-trapping, poisoning, and murdering wealthy elderly people in London in the 90s and how they were found not guilty, about how they've been free to target the ex-pat elderly in the Marina Alta, about how Hazel is the accountant for hundreds of vulnerable British people, and about how [she tried to murder me by poisoning in 2007](../2001-to-2010/2007.md#hazel-smith).
 - I tell Paloma that the Smiths are working with the Spanish criminals based at the conservatory.
 - Inma says she remembers me mentioning something in 2007.
 - I had told Inma back then that I had seen well-known British criminals in the Marina Alta, Las Marinas to be precise, without giving any details.

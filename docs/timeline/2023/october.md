@@ -268,7 +268,7 @@ function googleTranslateElementInit() {
 
 - I say three hours here, but it was much more, and it was November, right after the Kabbalah conference in Barcelona because I remembered telling Hazel and Sandra about a man there who had jokingly said people thought he looked like Osama Bin Laden. 
 - I wasn't able to get up off the floor and into bed until the sun had come up that morning which would have been around 8am in November.
-- Compare the above tweets with [my experience in 2007](../early-years/2007.md#hazel-smith).
+- Compare the above tweets with [my experience in 2007](../2001-to-2010/2007.md#hazel-smith).
 - There are numerous tweets like this that I felt compelled to write after waking up in my bed (this one was at 1am).
 - Do these tweets flag up the times I was sedated while sleeping? 
 - Did the porn-gang watch and wait for me to go to bed before applying the sedation tech?

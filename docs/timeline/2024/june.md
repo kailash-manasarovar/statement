@@ -336,7 +336,7 @@ function googleTranslateElementInit() {
 
 - It just gets madder and madder.
 - You may remember [Seonaid Dawn](march/1-12.md#seonaiddawn) from a previous section where I describe intense cyber-stalking on the run up to the [conservatory piano concert](march/1-12.md#the-piano-concert) where someone dressed up as my deceased friend [Lorraine Blackbourn](../2021/july.md#lorraine-blackbourn-commits-suicide) who I believe was driven to suicide online.
-- You may remember too that this account had been tag-teaming with accounts run by world-famous murderer [Hazel Smith](../early-years/2007.md#hazel-smith) and others such as [**Lorraine Tortured Whistleblower**](march/13-end.md#lorraine-tortured-whistleblower) to cause me distress over this period.
+- You may remember too that this account had been tag-teaming with accounts run by world-famous murderer [Hazel Smith](../2001-to-2010/2007.md#hazel-smith) and others such as [**Lorraine Tortured Whistleblower**](march/13-end.md#lorraine-tortured-whistleblower) to cause me distress over this period.
 - Well, I was somewhat amazed to see Seonaid Dawn in the Party of Women zoom meetings on the run up to the general election, and to learn she was standing as candidate for West Worcestershire.
 - It reminded me a little of [Anita Diamond popping up on Slack](../2021/march.md#qredo) at another suspicious job in 2021. 
 - Weird.

@@ -21,7 +21,7 @@ function googleTranslateElementInit() {
 - The criminal gangs only had a few weeks before Bali.
 - [I had just been porn-prepped after being drugged by the gypsies](april.md#drugged-in-the-street-by-denia-gypsies) on my way home from dinner, and I remember this whole period and on into June and beyond as being a time when I was *constantly* high.
 - Everyone involved is certain that no-one is going to help me.
-- Consequently, [Hazel Smith](../early-years/2007.md#hazel-smith) doesn't even bother trying to hide anymore.
+- Consequently, [Hazel Smith](../2001-to-2010/2007.md#hazel-smith) doesn't even bother trying to hide anymore.
 
 ## Hazel Smith pretends to be Esteve online
 
@@ -39,7 +39,7 @@ function googleTranslateElementInit() {
 
 [![Don't M people Hazel](../../content/tweets/may-2024/not-want-to-M-people.jpg)](https://x.com/1FRGVN/status/1785410648802734485)
 
-- Of course, I'm referring to [what happened between us in 2007](../early-years/2007.md#hazel-smith), something *no one else* knows about.
+- Of course, I'm referring to [what happened between us in 2007](../2001-to-2010/2007.md#hazel-smith), something *no one else* knows about.
 - She doesn't like me saying this.
 
 [![I like you Haze, I really do](../../content/tweets/may-2024/i-like-you-haze.jpg)](https://x.com/1FRGVN/status/1785411297124732950)
@@ -678,7 +678,7 @@ function googleTranslateElementInit() {
 - I wondered what *the worst thing in the world* was and if it was sexual in content.
 - God help us I hope it wasn't something to do with the [sexually threatening Pakistani Yorkshireman that I had reported to Miriam already](#the-pakistani-yorkshire-man).
 - I have reached out to Alicia in case what happened to her at Bali is relevant to this story and to the global tech-bro porn conspiracy, and to bringing down the baby-rape and sex-murder capital of the world that organizes all of this for the tech-bro pornocracy.
-- The little town in Spain where even [world-famous serial killers are protected](../early-years/2007.md#hazel-smith).
+- The little town in Spain where even [world-famous serial killers are protected](../2001-to-2010/2007.md#hazel-smith).
 - She does not respond.
 
 ### Anthony
@@ -886,7 +886,7 @@ function googleTranslateElementInit() {
 
 ### `@1frgvn`
 
-- Why am I up after 3am reminding everyone I've been hacked with key-loggers for nearly a year, or I should say for nearly a year they've wanted me to know about it? I'd say I've been key-logged probably since 2005 or earlier even, as soon as I got a [wad of cash](../early-years/2007.md#hazel-smith) I dare say.
+- Why am I up after 3am reminding everyone I've been hacked with key-loggers for nearly a year, or I should say for nearly a year they've wanted me to know about it? I'd say I've been key-logged probably since 2005 or earlier even, as soon as I got a [wad of cash](../2001-to-2010/2007.md#hazel-smith) I dare say.
 
 [![When they took over my keyboard](../../content/tweets/may-2024/reminding-everyone-im-hacked.jpg)](https://x.com/1FRGVN/status/1794467120207765821)
 

@@ -29,7 +29,7 @@ function googleTranslateElementInit() {
 - He tells me about an African leader who was so fat, they called him *heavy*, and once when he was giving a speech he fell through the stage as they were shouting *heavy, heavy*.
 - It's a funny story.
 - I don't notice it doesn't really relate to him saying *heavy* as I tell him my story.
-- Dad is the first person in the world I tell that [Hazel Smith poisoned me in 2007](../early-years/2007.md#hazel-smith).
+- Dad is the first person in the world I tell that [Hazel Smith poisoned me in 2007](../2001-to-2010/2007.md#hazel-smith).
 - He says; *heavy, heavy*.
 - Dad then tells me I need to be careful as I could be beaten by a man and put into prostitution.
 - It's a little incongruous, and unhelpful.

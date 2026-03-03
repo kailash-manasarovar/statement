@@ -85,7 +85,7 @@ function googleTranslateElementInit() {
 - So, although I was safer in some respects, I was in more danger in others.
 - Some of my new followers have [profile pics of the faces of teachers and staff](../../crimes/protagonists/domingo-et-al.md) at the conservatory of Dénia.
 - From this moment onwards, the English language of the stalker accounts becomes fluent, native, and vernacular. 
-- In retrospect, I'm convinced this is when [Hazel Smith](../early-years/2007.md#hazel-smith), her family, the wider British gang membership, and her local English-speaking associates, such as [Patricia and Christine](../2022/november.md#walking-in-benijembla-with-the-english-ladies), step in.
+- In retrospect, I'm convinced this is when [Hazel Smith](../2001-to-2010/2007.md#hazel-smith), her family, the wider British gang membership, and her local English-speaking associates, such as [Patricia and Christine](../2022/november.md#walking-in-benijembla-with-the-english-ladies), step in.
 - I guess many more criminal gang networks operating on social media were alerted to my presence and vulnerability.
 - In September 2023, however, I have no idea Hazel and Sandra Smith are involved, and have been involved in the story since [2006](../2001-to-2010/2006.md#september). This key to the story starts to come out in a rather curious way about a month later.
 - At the time, I believe the wild interest on my *tweet-for-help* and the sudden 1000s of followers I gained were mostly genuine. 
@@ -651,7 +651,7 @@ function googleTranslateElementInit() {
 
 - Turns out, I do have a good friend in Dénia, Elke Kopmann; one of the very few people in the world I love dearly; a woman with strong integrity and a powerful spiritual practice.
 - I do not attempt to see her until this time for two reasons. First, I had been depressed and didn't see anyone as a rule. Second, my head was spinning with what was going on for me and it was difficult to know how to deal with anything outside of prayer, and fighting the cyber-stalkers online.
-- In 2016, I was concerned that she was interacting with [Hazel Smith](../early-years/2007.md#hazel-smith) in some manner, I can't remember how, and I warned her about Hazel.
+- In 2016, I was concerned that she was interacting with [Hazel Smith](../2001-to-2010/2007.md#hazel-smith) in some manner, I can't remember how, and I warned her about Hazel.
 - I told Elke that Hazel is not a good person.
 - I hadn't seen my friend since 2016. Since then, we only chatted a few times online and I hadn't had any contact with her since 2020.
 - Normally a German translator, she had a new job selling fruit and vegetables in the market for some years with her new boyfriend, who I hadn't met yet.
@@ -861,7 +861,7 @@ function googleTranslateElementInit() {
 
 - I notice from now on that whatever conversations I have during the day, and with whomsoever, are *played back to me* on social media with fake accounts and targeted posts.
 - It becomes so commonplace, I only mention it to anyone when it's egregious.
-- I could be wrong, but I have often wondered if Alex and John's landlady is Hazel Smith and the flat they live in now might be [rather familiar to me](../early-years/2007.md#hazel-smith).
+- I could be wrong, but I have often wondered if Alex and John's landlady is Hazel Smith and the flat they live in now might be [rather familiar to me](../2001-to-2010/2007.md#hazel-smith).
 - I wonder now if his *friends* will come in under the pretense of doing some work and set up the houses he has keys for with spy-cams. It seems likely.
 
 ## Meeting Christine
