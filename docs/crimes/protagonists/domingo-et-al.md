@@ -22,8 +22,11 @@
 ### Depression in 2016 
 
 - I had related the intense and growing depression that forced me to leave Dénia in 2016 to [going to the police about my experience in 1989 of sexual abuse by rape gangs in North London](../../timeline/early-years/2015.md#statement-to-the-metropolitan-police).
+- It didn't occur to me that this wasn't really enough to explain the intensity of my feelings and I had not experienced the same in [2006 when I reported](../../timeline/2001-to-2010/2006.md#reporting-child-sexual-abuse-to-the-metropolitan-police).
 - It turns out, my depression was related entirely to being regularly sedated-and-raped by multiple men at my flat in Joan Fuster.
-- After my father took part in a session of this in June 2015, my depression became suicidal in nature.
+- After [my father took part in a session of this in June 2015](../../timeline/early-years/2015.md#inexplicable-anal-fissure), my depression became suicidal in nature.
+- I suspect this, and intense anxiety episodes, is a common outcome for victims of sedated rape, most especially when participants are (apparently) loved ones.
+- Knowing this, the porn-gangs will take unprecedented steps to "create" a scenario which may serve to explain psychological outcomes such as this; such as [fear and loathing online and at the conservatory](../../index.md).
 
 ### Online-stalker memes related to Domingo
 
