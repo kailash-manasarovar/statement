@@ -61,6 +61,7 @@
 
 - I travel to [Let Women Speak in Aberdeen](https://www.letwomenspeak.org/event-details/let-women-speak-aberdeen).
 - Sandra, one of my [electoral volunteers](../2024/june.md#volunteers-not-what-they-seem) and her sister Susan are there.
+- They pop into where I'm staying, and Susan uses my toilet.
 - Susan and I spend some time talking over drinks at the party.
 - She tells me she would be pearly queen if they still existed as they are her ancestors.
 - I have forgotten Susan owns an X account which *significantly* repeated a phrase from my sexual abuse statement as I was reporting it, on December 5th, Winston May's birthday, in 2024.
