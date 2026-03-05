@@ -2,9 +2,9 @@
 
 ## Domingo Lopez Cano
 
-- Domingo Lopez Cano was my piano teacher in [2014](../../timeline/early-years/2014.md).
+- Domingo Lopez Cano was my piano teacher in 2014.
 - I met him first at the [conservatory audition](../../timeline/early-years/2014.md#conservatory-audition).
-- Here he is in the summer of 2016, just after I left Dénia as I started to suffer from depression.
+- Here he is in the summer of 2016, just after I left Dénia as I started to suffer from severe depression.
 
 ![Domingo et al](../../content/images/domingo-target-mother-advertisement.jpg)
 
@@ -12,6 +12,7 @@
 - And I wonder who the young woman he is with is? Could she be another target? I have to say, I have very strong feelings about her not being alive. 
 - Is this article from the [local online newspaper](https://www.denia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-denia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
 - Or is the article featured on Denia.com a declaration from the *whole town* that they are aware of what these people are doing, and to whom?
+- (The fact they removed the article suggests the town's complicity.)
 - I bet there are a million more evidential-snippets, just like this one, aren't there.
 - The woman on the far left, Taya, ends up [very obviously stalking me in July 2025 at my hotel in Lourdes](../../timeline/2025/july.md#lourdes).
 - She added poison to my toiletries, food, and water, and very much expected me to die.
