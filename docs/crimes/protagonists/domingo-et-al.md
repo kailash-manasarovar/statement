@@ -4,19 +4,25 @@
 
 - Domingo Lopez Cano was my piano teacher in [2014](../../timeline/early-years/2014.md).
 - I met him first at the [conservatory audition](../../timeline/early-years/2014.md#conservatory-audition).
-- Here he is in the summer of 2016, just after I left Dénia as I started to suffer from depression related to [going to the police about my experience in 1989 of sexual abuse by rape gangs in North London](../../timeline/early-years/2015.md#statement-to-the-metropolitan-police).
+- Here he is in the summer of 2016, just after I left Dénia as I started to suffer from depression.
 
 ![Domingo et al](../../content/images/domingo-target-mother-advertisement.jpg)
 
-- I wonder if the older woman to his right is his mother?
-- And I wonder who the young woman he is with is? Could she be another target? I have to say, I have very strong feelings about her not being alive. Please could someone confirm.
-- The woman on the far left ends up [stalking me in person in July 2025 at my hotel in Lourdes](../../timeline/2025/july.md#lourdes).
-- Is this article from the [local online newspaper](https://www.denia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-denia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
-- Is this the first obvious admission that the *whole town* is aware of what these people are doing, and to whom?
-- I bet there are a million more evidential-snippets, just like this one.
-- The name "Cano" relates to all things canine and "Lopez" to all things wolverine. While I was being stalked and terrorized online, there were a lot of references to these animals, and particularly when the stalking took a more seriously threatening or abusive turn.
+- I wonder if the older woman to his right is his mother? They're very alike.
+- And I wonder who the young woman he is with is? Could she be another target? I have to say, I have very strong feelings about her not being alive. 
+- I wonder if the article from the [local online newspaper](https://www.denia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-denia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
+- The woman on the far left ends up [stalking me in July 2025 at my hotel in Lourdes](../../timeline/2025/july.md#lourdes).
+- She added poison to my toiletries, food, and water, and very much expected me to die.
+- I didn't die.
+- I had related the intense and growing depression that forced me to leave Dénia in 2016 to [going to the police about my experience in 1989 of sexual abuse by rape gangs in North London](../../timeline/early-years/2015.md#statement-to-the-metropolitan-police).
+- It turns out, my depression was related entirely to being regularly sedated-and-raped by multiple men at my flat in Joan Fuster.
+- After my father took part in a session of this in June 2015, my depression became suicidal in nature.
+- Is this article in the Denia.com an declaration from the *whole town* that they are aware of what these people are doing, and to whom?
+- I bet there are a million more evidential-snippets, just like this one, aren't there.
+- The name "Cano" relates to all things canine and "Lopez" to all things wolverine. 
+- While I was being stalked and terrorized online related to the [switcheroo porn scandal at the conservatory](vidal-sastre.md#at-least-four), I saw multiple online memes and references to these animals, and particularly when the stalking took a more seriously threatening or abusive turn.
 - Indeed, dogs featured constantly in the online harassment and threats.
-- Here's a fake X account pic that communicated with me during the [March 2024 intensive online psychological abuse](../../timeline/2024/march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) of him as an older person.
+- Here's a fake X account pic that communicated with me during the [March 2024 intensive online psychological abuse](../../timeline/2024/march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) of Domingo as an older person.
 
 ![Domingo lookalike or AI mix](../../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
 
