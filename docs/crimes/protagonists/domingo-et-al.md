@@ -13,12 +13,19 @@
 - Is this article from the [local online newspaper](https://www.denia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-denia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
 - Or is the article featured on Denia.com a declaration from the *whole town* that they are aware of what these people are doing, and to whom?
 - I bet there are a million more evidential-snippets, just like this one, aren't there.
-- The woman on the far left ends up [very obviously stalking me in July 2025 at my hotel in Lourdes](../../timeline/2025/july.md#lourdes).
+- The woman on the far left, Taya, ends up [very obviously stalking me in July 2025 at my hotel in Lourdes](../../timeline/2025/july.md#lourdes).
 - She added poison to my toiletries, food, and water, and very much expected me to die.
 - I got a little unwell for a few days - blurry vision, headache, aching kidneys, mental confusion, and physical weakness - but I didn't die.
+- ⬆️🫵.
+
+### Depression in 2016 
+
 - I had related the intense and growing depression that forced me to leave Dénia in 2016 to [going to the police about my experience in 1989 of sexual abuse by rape gangs in North London](../../timeline/early-years/2015.md#statement-to-the-metropolitan-police).
 - It turns out, my depression was related entirely to being regularly sedated-and-raped by multiple men at my flat in Joan Fuster.
 - After my father took part in a session of this in June 2015, my depression became suicidal in nature.
+
+### Online-stalker memes related to Domingo
+
 - The name "Cano" relates to all things canine and "Lopez" to all things wolverine. 
 - While I was being stalked and terrorized online related to the [switcheroo porn scandal at the conservatory](vidal-sastre.md#at-least-four), I saw multiple online memes and references to these animals, and particularly when the stalking took a more seriously threatening or abusive turn.
 - Indeed, dogs featured constantly in the online harassment and threats.
