@@ -44,7 +44,7 @@ The fiercest warrior-woman had been waiting so long to emerge.
 
 ![A lioness inside](content/images/lioness-2.png)
 
-As the conspiracy's knots began to unravel, the author realized with horror that while she was living in her apartment in Dénia, set up with spy-cam and sedating tech, she had been the [Gisele Pelicot](timeline/2001-to-2010/2007.md#rewards-offered) of Spain.
+As the conspiracy's knots began to unravel, the author realized with horror that while she was living in her apartment in Dénia, set up with spy-cam and sedating tech, she had been the [Gisele Pelicot](timeline/2001-to-2010/2007.md#rewards-for-footage-of-the-worlds-most-sedated-and-raped-woman) of Spain.
 
 Not only that, but every job this small, unassuming, quiet and intelligent computer scientist had done over that time was part of the same sedated porn conspiracy, particularly her job at [Spanish crypto firm Polygon](timeline/2023/november.md#polygon) but undoubtedly others too, and including the recruitment agents involved in getting her those jobs. The spidery tentacles of sex-offending at a Spanish public school, where students including children are regularly drugged by teachers, reached far and wide; perhaps right up to [Elon Musk himself](timeline/2023/june.md#elon).
 
