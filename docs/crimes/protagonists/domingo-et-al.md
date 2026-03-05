@@ -27,7 +27,7 @@
 - And indeed, my renewed psychological interest in my experiences in 1989 was due to my body-memory triggered by what was happening to me in my apartment without my knowledge.
 - After [my father took part in a session of this in June 2015](../../timeline/early-years/2015.md#inexplicable-anal-fissure), my depression became suicidal in nature.
 - I suspect this, and intense anxiety episodes, are common outcomes for victims of sedated rape, most especially when participants are (apparently) loved ones.
-- Knowing this, the porn-gangs will take unprecedented steps to "create" a scenario which may serve to explain psychological outcomes such as this; such as [fear and loathing performances by teachers and staff at the conservatory](../../index.md).
+- Knowing this, the porn-gangs will take unprecedented steps to "create" a scenario which may serve to explain psychological outcomes such as these; such as [fear and loathing performances by teachers and staff at the conservatory](../../index.md).
 
 ### Online-stalker memes related to Domingo
 
