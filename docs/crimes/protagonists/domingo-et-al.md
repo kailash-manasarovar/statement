@@ -16,7 +16,7 @@
 - The woman on the far left, Taya, ends up [very obviously stalking me in July 2025 at my hotel in Lourdes](../../timeline/2025/july.md#lourdes).
 - She added poison to my toiletries, food, and water, and very much expected me to die.
 - I got a little unwell for a few days - blurry vision, headache, aching kidneys, mental confusion, and physical weakness - but I didn't die.
-- ⬆️🫵.
+- ⬆️🫵
 
 ### Depression in 2016 
 
