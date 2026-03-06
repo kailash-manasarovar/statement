@@ -126,6 +126,26 @@
 
 ![Rainbow at the wall](../../content/images/rainbow-at-the-wall.jpeg)
 
+## Dom Halloran
+
+- I contact Channel 4 about the documentary starring Sandra & Hazel Smith.
+- The archive manager is called: *Dom Halloran*.
+- They can't help me.
+- Here's [my original email](../../content/documents/emails/dom-halloran-2.png) and [the reply](../../content/documents/emails/dom-halloran-1.png). 
+- The name immediately reminded me of Domingo, and also the name of the psychic caretaker in the film, The Shining.
+- I'm so horribly hacked, it felt like they tailored this message just for me in an "up yours" kind of way, like they've been doing with everything else.
+- Or perhaps it was a most marvelous coincidence.
+- This is how I felt on 15th March 2025.
+- However, while editing this section in March 2026, I realize that my concern about the name *Dom Halloran* was somewhat over the top.
+- And I also realize this is more proof that prior to [remembering the different switcheroo-porn trumpet teachers](../2025/october.md#thunderbolt-clarity) in October 2025, I was perma-high on something; perhaps not to the extent I was while living in Spain but nonetheless high, and with a very suggestible perception.
+- March 2025 was a period when I was in a state of extreme nervous tension, I had only just got my stuff back from Spain, and realized that everything was toxic and I did not know what to do about that.
+- No-one was interested when I reported it.
+- The baseball cap I wore for an afternoon around the time I wrote the email gave me another headache like no other, and the trainers I was wearing made the bones in my feet and legs ache badly.
+- I had realized my duvet was extremely toxic and asked my mother to put it in the attic for the police.
+- She ended up throwing it away.
+- A few weeks later, on advice, I start washing all the clothes I keep 10 times to get the toxicity out.
+- I throw out everything I can't wash, and some of my shoes never lose the toxicity no matter how much I wash them so I end up throwing out all my shoes.
+
 ## Moorfields Eye Hospital
 
 - Given I've had a diagnosis of pre-glaucoma from [Rutnin Eye Hospital in Bangkok](../2024/november.md#pre-glaucoma-diagnosis), I need the same in the UK so it's on my NHS record.
