@@ -24,7 +24,7 @@
 - I had related the intense and growing depression that forced me to leave Dénia in 2016 to [going to the police about my experience in 1989 of sexual abuse by rape gangs in North London](../../timeline/early-years/2015.md#statement-to-the-metropolitan-police).
 - It didn't occur to me that this wasn't really enough to explain the intensity of my feelings and I had not experienced the same in [2006 when I reported](../../timeline/2001-to-2010/2006.md#reporting-child-sexual-abuse-to-the-metropolitan-police).
 - It turns out, my depression was related entirely to being regularly sedated-and-raped by multiple men at my flat in Joan Fuster.
-- And indeed, my renewed interest in the rape-gang experiences in 1989 was due to traumatic body-memory's, triggered by what was happening to me in my apartment without my knowledge.
+- And indeed, my renewed interest in my North London rape-gang experiences in 1989 was due to traumatic body-memories, triggered by what was happening to me in my apartment without my knowledge.
 - After [my father took part in a session of this in June 2015](../../timeline/early-years/2015.md#inexplicable-anal-fissure), my depression became suicidal in nature.
 - I suspect this, and intense anxiety episodes, are common outcomes for victims of sedated rape; most especially when participants are (apparently) loved ones.
 - Knowing this, the porn-gangs will take unprecedented steps to "create" a scenario which may serve to explain psychological outcomes such as these; such as [the endless fear and loathing performances I witnessed by teachers and staff at the conservatory](../../index.md); those events I have catalogued in [this statement's timeline](../../timeline/2001-to-2010/2001.md).
@@ -40,9 +40,9 @@
 ![dogs](../../content/tweets/august-comms/jackchardwood/dogs-2.png)
 ![dogs](../../content/tweets/august-comms/jackchardwood/dogs-3.png)
 
-- Indeed, I thought I was talking directly to Domingo online this manner.
+- Indeed, I thought I was talking directly to Domingo online in this manner.
 - Here's a fake X account profile photo that communicated with me during the [March 2024 intensive online psychological abuse](../../timeline/2024/march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory).
-- It's Domingo as an older person.
+- It thought it was an AI of Domingo as an older person; but maybe it's an actual family member.
 
 ![Domingo lookalike or AI mix](../../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
 
