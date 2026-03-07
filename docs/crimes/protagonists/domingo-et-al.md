@@ -11,7 +11,7 @@
 - I wonder if the older woman to his right is his mother? They're very alike.
 - And I wonder who the young woman he is with is? Could she be another target? I have to say, I have very strong feelings about her not being alive. 
 - Is this article from the [local online newspaper](https://www.denia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-denia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
-- Or is the article featured on Denia.com a declaration from the *whole town* that they are aware of what these people are doing, and to whom?
+- Or is the article featured on [Denia.com](https://www.denia.com/) a declaration from the *whole town* that they are aware of what these people are doing, and to whom?
 - (The fact they removed the article suggests the town's complicity.)
 - I bet there are a million more evidential-snippets, just like this one, aren't there.
 - The woman on the far left, Taya, ends up [very obviously stalking me in July 2025 at my hotel in Lourdes](../../timeline/2025/july.md#lourdes).
@@ -24,17 +24,25 @@
 - I had related the intense and growing depression that forced me to leave Dénia in 2016 to [going to the police about my experience in 1989 of sexual abuse by rape gangs in North London](../../timeline/early-years/2015.md#statement-to-the-metropolitan-police).
 - It didn't occur to me that this wasn't really enough to explain the intensity of my feelings and I had not experienced the same in [2006 when I reported](../../timeline/2001-to-2010/2006.md#reporting-child-sexual-abuse-to-the-metropolitan-police).
 - It turns out, my depression was related entirely to being regularly sedated-and-raped by multiple men at my flat in Joan Fuster.
-- And indeed, my renewed psychological interest in my experiences in 1989 was due to my body-memory triggered by what was happening to me in my apartment without my knowledge.
+- And indeed, my renewed interest in the rape-gang experiences in 1989 was due to traumatic body-memory's, triggered by what was happening to me in my apartment without my knowledge.
 - After [my father took part in a session of this in June 2015](../../timeline/early-years/2015.md#inexplicable-anal-fissure), my depression became suicidal in nature.
-- I suspect this, and intense anxiety episodes, are common outcomes for victims of sedated rape, most especially when participants are (apparently) loved ones.
-- Knowing this, the porn-gangs will take unprecedented steps to "create" a scenario which may serve to explain psychological outcomes such as these; such as [fear and loathing performances by teachers and staff at the conservatory](../../index.md).
+- I suspect this, and intense anxiety episodes, are common outcomes for victims of sedated rape; most especially when participants are (apparently) loved ones.
+- Knowing this, the porn-gangs will take unprecedented steps to "create" a scenario which may serve to explain psychological outcomes such as these; such as [the endless fear and loathing performances I witnessed by teachers and staff at the conservatory](../../index.md); those events I have catalogued in [this statement's timeline](../../timeline/2001-to-2010/2001.md).
 
 ### Online-stalker memes related to Domingo
 
-- The name "Cano" relates to all things canine and "Lopez" to all things wolverine. 
-- While I was being stalked and terrorized online related to the [switcheroo porn scandal at the conservatory](vidal-sastre.md#at-least-four), I saw multiple online memes and references to these animals, and particularly when the stalking took a more seriously threatening or abusive turn.
+- The name "Cano" relates to dogs, and "Lopez" to wolves. 
+- While I was being stalked and terrorized online after the [switcheroo porn scandal at the conservatory](vidal-sastre.md#at-least-four) had ended and I had not behaved as expected (as victims usually do), I saw multiple online memes and references to these animals, and particularly when the stalking took a more seriously threatening or abusive turn.
 - Indeed, dogs featured constantly in the online harassment and threats.
-- Here's a fake X account pic that communicated with me during the [March 2024 intensive online psychological abuse](../../timeline/2024/march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) of Domingo as an older person.
+- Hackers reveal their close connection to Domingo Lopez Cano in August 2023 just as I'm about to return to my home in Dénia.
+
+![dogs](../../content/tweets/august-comms/jackchardwood/dogs.png)
+![dogs](../../content/tweets/august-comms/jackchardwood/dogs-2.png)
+![dogs](../../content/tweets/august-comms/jackchardwood/dogs-3.png)
+
+- Indeed, I thought I was talking directly to Domingo online this manner.
+- Here's a fake X account profile photo that communicated with me during the [March 2024 intensive online psychological abuse](../../timeline/2024/march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory).
+- It's Domingo as an older person.
 
 ![Domingo lookalike or AI mix](../../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
 
