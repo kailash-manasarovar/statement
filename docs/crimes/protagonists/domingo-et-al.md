@@ -73,6 +73,7 @@
 - On 1st November 2024, this woman is leaving my apartment building with another older dark-haired lady; a woman with a dreadful-sounding voice who I often saw going [in and out of apartment number 18](../../timeline/2024/october.md#activity-in-the-nextdoor-apartment-number-18) next door when I returned to Dénia from France at the end of September 2024.
 - The older woman could have been the woman in [the picture above sitting on the right of Domingo](#domingo-lopez-cano) from 2016, except with dark hair.
 - The Cano Lopez family appears to be made up of a nest of deadly vipers that can do whatever they like to innocents in the Marina Alta region.
+- And I heard they were partnering up with another family, the Toledo's, to wreak child-porn havoc nationally.
 
 ## Accomplices
 
