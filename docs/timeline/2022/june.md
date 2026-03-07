@@ -19,7 +19,7 @@ function googleTranslateElementInit() {
 
 ### Meeting Zoe and Marie while walking
 
-- One Saturday afternoon, I bump into an old friend I haven't seen in years while walking along Las Rotas, [Zoe Braganza Jones](../early-years/2008.md#zoe-bj).
+- One Saturday afternoon, I bump into an old friend I haven't seen in years while walking along Las Rotas, [Zoe Braganza Jones](../2001-to-2010/2008.md#zoe-bj).
 - She is with her Liverpudlian friend Marie (Henderson maybe).
 - Zoe tells me that Lorraine Blackbourn committed suicide.
 - I'm devastated. 
@@ -30,7 +30,7 @@ function googleTranslateElementInit() {
 - When things go really bad for me, and the Cano-Lopez's make no attempt to hide the fact they are trying to murder me, I reach out to Zoe and Marie online repeatedly.
 - They ignore me.
 - As time goes by, I realize every tiny interaction I have had with these people should be under scrutiny.
-- I write a detailed and non-exhaustive [list of curious events](../early-years/2008.md#zoe-bj) I remember about Zoe and her mother.
+- I write a detailed and non-exhaustive [list of curious events](../2001-to-2010/2008.md#zoe-bj) I remember about Zoe and her mother.
 - This particular meeting is also extremely interesting.
 - Firstly, I failed to recognize Marie initially even though I knew her well and had seen her often.
 - And Marie was with a man who I initially mistook for Luke, Zoe's brother.

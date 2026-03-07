@@ -756,7 +756,7 @@ function googleTranslateElementInit() {
 
 [![Big nose](../../content/images/fake-accounts/bignose.png)](https://www.facebook.com/abdelhadi.titan/)
 
-- [Zoe BJ's dad](../early-years/2008.md#meeting-zoes-dad) - roadie for well-known Islamicist Cat Stevens - wore denim dungarees just like this guy was wearing.
+- [Zoe BJ's dad](../2001-to-2010/2008.md#meeting-zoes-dad) - roadie for well-known Islamicist Cat Stevens - wore denim dungarees just like this guy was wearing.
 - The group are walking slowly; I suppose they're a family out for a stroll on a balmy evening.
 - I pass the group just after the crossroads with the Marquis de Campo, opposite Deutsche Bank,  although it's difficult to be precise on this and it could have been further back.
 - As I get to about two metres in front of the sauntering group, the small girl is told to run up beside me on the right, which she does.

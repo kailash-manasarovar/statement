@@ -508,7 +508,7 @@ function googleTranslateElementInit() {
 - His wife is embarrassed and looking down in the passenger seat. 
 - How does he know I'll be at the bins so he can glare at me? 
 - What's he trying to say to me?
-- The two look familiar, and I think they might be part of the Dénia TV crowd I've seen online or even on [terrestrial TV back in the day](../early-years/2008.md#denia-tv).
+- The two look familiar, and I think they might be part of the Dénia TV crowd I've seen online or even on [terrestrial TV back in the day](../2001-to-2010/2008.md#denia-tv).
 - They also remind me of people that attended the [June 2023 piano concert](../2023/june.md#june-9th-piano-concert).
 - They sat in the row in front of us.
 - I remain amazed that anyone could be angry at the person they have been terrorizing relentlessly for years.

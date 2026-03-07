@@ -128,7 +128,7 @@ And what happens to people who have such power over others? The power of life an
 
 I believe that what Lorraine stumbled across was they had started creating live-streamed "shows" of targeted women, and everything that has happened to me, every incident in this statement, has been watched online by millions of sick porn-addicts and homicidal maniacs.
 
-Could [Dénia TV](timeline/early-years/2008.md#denia-tv) be broadcasting such evil?
+Could [Dénia TV](timeline/2001-to-2010/2008.md#denia-tv) be broadcasting such evil?
 
 Perhaps they even run a betting segment; will she kill herself? Or should we just murder her?
 
