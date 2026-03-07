@@ -46,34 +46,40 @@
 
 ![Domingo lookalike or AI mix](../../content/images/fake-accounts/Screenshot 2024-05-29 at 18.35.23.png){width=35%}
 
-## Carmen Lopez Cano
+### Carmen Lopez Cano
 
 - Carmen is Domingo's sister.
-- I believe she ran many of the fake accounts that terrorized me, along with Hazel and Sandra Smith, and most of North London's criminal finest by all accounts.
-- A picture of her was posted on my Google searches sometimes in late 2023/early 2024 while the online and in-person terror was fever-pitched.
+- Domingo told me about her when we were friends in 2014.
+- He said she lived in Valencia, played the flute, and worked for a call centre.
+- Like all questionable relationships with Spanish men, Domingo never introduced me to his family, even though he spent a weekend at my family home in London.
+- I sensed a reluctance to talk about Carmen when I asked him politely about her.
+- This made me think Domingo might be embarrassed by his family.
+- I believe Carmen ran many of the fake accounts that terrorized me; along with teachers and staff at the conservatory, Hazel and Sandra Smith, and most of North London's criminal finest by all accounts.
+- Was this her job in a euphemistic *call centre*?
+- I started to wonder about Carmen Cano while being stalked by [an account with the name *Carmen*](../../timeline/2023/july.md#carmen) after my [12th June 2023 *funeral*](../../timeline/2023/june.md#monday-12th-june-2023) at the conservatory and consequent unexpected fearlessness.
+- Someone posted a picture of her on my Google searches sometimes in late 2023/early 2024 while the online and in-person terror was fever-pitched.
 
 ![Carmen Cano](../../content/images/google-searches/carmen-cano.JPG)
 
+- Even though I had never met Carmen Cano in person, it was obvious to me that the picture of the woman was merged with the face of Domingo.
 - It was not clear who was passing me information.
-- Like probably all questionable relationships with Spanish men, I was never introduced to the Lopez Cano family by Domingo, even though he spent a weekend at my family home in London.
-- So I never met Carmen Cano properly in 2014-15 but it's obvious that the picture of this woman has been merged with the face of Domingo the piano teacher.
-- I felt I was being warned about her.
+- I nevertheless felt I was being warned about her.
 - I even saw her name fly by on fake accounts.
 
 ![Carmen Cano](../../content/images/fake-accounts/carmen-cano.png)
 
-- Although, given how she smiled at me as she and another woman applied deadly poisons to my belongings, I rather think she was bold enough and assured enough of total protection, that she rather liked revealing herself.
-- I also have a picture of her from a body cam [I was wearing on 5th October 2024](../../timeline/2024/october.md#saturday-5th-october).
-- She followed me while I was on an afternoon walk. 
-- I believe Carmen Cano is the flute-playing blond woman who we've seen in [the L'Amistat band](./vidal-sastre.md#the-lamistat-quart-band) at the "funeral" of another female student. 
+- Given how she smiled at me as she and another woman applied deadly poisons to my water, food, and consumable belongings, I think she felt assured of total protection and this made her arrogant, and maybe get a taste for murder just like Hazel.
+- I do have a picture of her from a body cam [I was wearing on 5th October 2024](../../timeline/2024/october.md#saturday-5th-october) after she followed me while I was on an afternoon walk. 
+- I believe Carmen Cano is the flute-playing blond woman who we see below while [the L'Amistat band](./vidal-sastre.md#the-lamistat-quart-band) performs at the "funeral" of another female student. 
 
 ![Carmen Cano playing the flute](../../content/images/youtube-video.png)
 
-- She was also the woman who attended the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert), led by [the trumpet teachers I've highlighted as a brother and a local man Mark](vidal-sastre.md#three-more) and [Gloria's brother](vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), in the guise of Pablo's mum (the boy student who attended the class along with me).
-- On 1st November 2024, this woman is leaving my apartment building with another older dark-haired lady; a woman with a dreadful-sounding voice who I often saw going [in and out of apartment number 18](../../timeline/2024/october.md#activity-in-the-nextdoor-apartment-number-18) next door when I returned to Dénia from France at the end of September 2024.
-- The older woman could have been the woman in [the picture above sitting on the right of Domingo](#domingo-lopez-cano) from 2016, except with dark hair.
+- She was also the woman who attended the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) in May 2023, led by [the trumpet teachers I've highlighted as a brother and a local man Mark](vidal-sastre.md#three-more) and [Gloria's brother](vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of).
+- She came to the concert in the guise of Pablo's mum - the boy student who attended the class along with me.
+- On 1st November 2024, I see her leaving my apartment building with another older dark-haired lady; the woman with the monstrous voice who I often saw going [in and out of apartment number 18](../../timeline/2024/october.md#activity-in-the-nextdoor-apartment-number-18) next door after I returned to Dénia from France at the end of September 2024.
+- The older woman could even have been the woman in [the picture above sitting on the right of Domingo](#domingo-lopez-cano) from 2016.
 - The Cano Lopez family appears to be made up of a nest of deadly vipers that can do whatever they like to innocents in the Marina Alta region.
-- And I heard they were partnering up with another family, the Toledo's, to wreak child-porn havoc nationally.
+- And I heard they were partnering up with another family, the Toledo's, to wreak child-porn havoc nationally with the support of the school board in its entirety.
 
 ## Accomplices
 
