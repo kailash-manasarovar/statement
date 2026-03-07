@@ -49,21 +49,23 @@
 ## Carmen Lopez Cano
 
 - Carmen is Domingo's sister.
-- I believe she ran many of the fake accounts that terrorized me, along with Hazel and Sandra Smith.
-- A picture of her was posted on my Google searches which I screen shot in April.
+- I believe she ran many of the fake accounts that terrorized me, along with Hazel and Sandra Smith, and most of North London's criminal finest by all accounts.
+- A picture of her was posted on my Google searches early on while the online terror was fever-pitched.
 
 ![Carmen Cano](../../content/images/google-searches/carmen-cano.JPG)
 ![Carmen Cano screenshot date](../../content/images/google-searches/carmen-cano-date.JPG)
 
-- It's not clear who was passing me this information.
-- I have never met Carmen Cano but it's obvious that the picture of this woman has been merged with the face of Domingo the piano teacher.
-- I have another picture of her from a body cam I was wearing on 5th October 2024. I went out without my mobile phone to go for a walk along Las Rota in Dénia. I didn't want to be followed and tracked, but I wanted to still have means to call the police, so I brought my [analogue phone that I had bought in April](../../timeline/2024/april.md#i-buy-an-orange-sim). As I approached the restaurant Sendra, a woman cycles up behind me, then in front of me; she stops, smiles, and cycles off. I believe it was Carmen Cano and I would recognize her again. She looked a lot like the pics I have just posted and possibly a blond woman who plays in [the L'Amistat band](./vidal-sastre.md#the-lamistat-quart-band). 
+- It was not clear who was passing me information.
+- I never met Carmen Cano properly but it's obvious that the picture of this woman has been merged with the face of Domingo the piano teacher.
+- I have another picture of her from a body cam [I was wearing on 5th October 2024](../../timeline/2024/october.md#saturday-5th-october). 
+- The woman looked a lot like the pics I have just posted and potentially a blond woman who plays in [the L'Amistat band](./vidal-sastre.md#the-lamistat-quart-band). 
 
-!!! info
-    - It appears even 2g/3g phones are trackable by these people.
+![Carmen Cano playing the flute](../../content/images/youtube-video.png)
 
-- On 1st November, the same woman is leaving my apartment building with another dark haired lady; a woman I have often seen going in and out of apartment number 18 next door to me since I got back to Dénia from France at the end of September 2024. It could have been the older woman in the picture above from 2016, except with darker hair.
-- I believe she also starred in the [switcheroo (pre-)porn special episode chamber music concert](../../timeline/2023/may.md#chamber-music-concert) filmed live from the conservatory with [number three trumpet teacher](./vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) in the lead role until the end when he switched with [the second trumpet teacher I remember](./vidal-sastre.md#three-more).
+- She was also the woman who attended the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) led by [the trumpet teachers I've highlighted as a brother and a local man Mark](vidal-sastre.md#three-more) and [Gloria's brother](vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) in the guise of Pablo's mum (the boy student who attended the class along with me).
+- On 1st November 2024, this woman is leaving my apartment building with another dark haired lady; a woman I have often seen going [in and out of apartment number 18](../../timeline/2024/october.md#activity-in-the-nextdoor-apartment-number-18) next door to me since I got back to Dénia from France at the end of September 2024. She could have been the older woman in [the picture above next to Domingo](#domingo-lopez-cano) from 2016, except with dark hair.
+- Carmen Cano Lopez starred in the [switcheroo (pre-)porn special episode chamber music concert](../../timeline/2023/may.md#chamber-music-concert) filmed live from the conservatory with [Gloria's brother](./vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of) as lead trumpet teacher switching regularly with [one of the other set of trumpet teachers I remember](./vidal-sastre.md#three-more).
+- The Cano Lopez family appears to be made up of a nest of deadly vipers.
 
 ## Accomplices
 
