@@ -78,8 +78,8 @@
 - She came to the concert in the guise of Pablo's mum - the boy student who attended the class along with me.
 - On 1st November 2024, I see her leaving my apartment building with another older dark-haired lady; the woman with the monstrous voice who I often saw going [in and out of apartment number 18](../../timeline/2024/october.md#activity-in-the-nextdoor-apartment-number-18) next door after I returned to Dénia from France at the end of September 2024.
 - The older woman could even have been the woman in [the picture above sitting on the right of Domingo](#domingo-lopez-cano) from 2016.
-- The Cano Lopez family appears to be made up of a nest of deadly vipers that can do whatever they like to innocents in the Marina Alta region.
-- And I heard they were partnering up with another family, the Toledo's, to wreak child-porn havoc nationally with the support of the school board in its entirety.
+- The Cano Lopez family appears to be made up of a nest of poisoning vipers that can do whatever they like to innocents in the Marina Alta region.
+- And I heard they were partnering up with another family, the Toledo's, to wreak switcheroo and child-porn havoc nationally with the support of the government school board in its entirety.
 
 ## Accomplices
 
