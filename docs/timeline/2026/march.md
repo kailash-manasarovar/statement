@@ -14,7 +14,7 @@ function googleTranslateElementInit() {
 
 ![Samadhi mandir](../../content/images/samadhi-mandir.jpeg)
 
-- In fact, I gulped when I realized where they were suggesting I go to quietly write because I'm low-energy and have some injuries so full on yoga classes are not so desirable.
+- In fact, I gulped when I realized where they were suggesting I go to write quietly because I'm low-energy and have some injuries so full on yoga classes are not so desirable.
 - I also find myself hugely overwhelmed by the masses of people, lights, and sound and I think this must be post-trauma effects and possibly effects of brain-damaging too.
 - I wanted to just sit quietly somewhere and write, so I asked the help desk at the International Yoga Festival if they could suggest somewhere and they told me to come here.
 - It was only when I looked on the map I realized this is where they had sung the Ramayana all those years ago, my bedroom just overlooking, and how the experience had changed my life for the better.
