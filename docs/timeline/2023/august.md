@@ -19,6 +19,11 @@ function googleTranslateElementInit() {
 - I'm still obsessed with the trumpet teacher and think about him constantly.
 - It's as if I'm having a conversation with him online and we're in love with each other.
 - I connect with an old friend on Facebook, Matthew Copeland.
+- Matthew Copeland's mum Jill had been to the region one time.
+- He always went on about his dad being a "porn king".
+- I thought he was just talking shite.
+- He had an uncle he always spoke of who I never met.
+- Was his uncle, Ugly? That would be just crrrraaazzzzzzzyyyyy! wuddunit.
 - I tell him I'm in love with a man and I believe I have an audience on Twitter so I'm DJ'ing to them using the `#MaSelecta` hashtag.
 - I tell him it's the chirps (chat up) of the century.
 
