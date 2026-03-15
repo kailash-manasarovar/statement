@@ -54,6 +54,8 @@ function googleTranslateElementInit() {
 
 ![Who's Larry](../../content/images/who-is-larry.png)
 
+- Although, Matthew and North London's finest would know very well who Larry was.
+- Was this a clunky attempt to remove any obvious connections to North London I might make?
 - At the time, I can imagine hacker have full root access to my browser and are running some kind of user interface editing software which means they can replace anything on my UI with their own content.
 
 ## Tarot
