@@ -19,12 +19,7 @@ function googleTranslateElementInit() {
 - I'm still obsessed with the trumpet teacher and think about him constantly.
 - It's as if I'm having a conversation with him online and we're in love with each other.
 - I connect with an old friend on Facebook, Matthew Copeland.
-- Matthew Copeland's mum Jill had been to the region one time.
-- He always went on about his dad being a "porn king".
-- I thought he was just talking shite.
-- He had an uncle he always spoke of who I never met.
-- Was his uncle, Ugly? That would be just crrrraaazzzzzzzyyyyy! wuddunit.
-- I tell him I'm in love with a man and I believe I have an audience on Twitter so I'm DJ'ing to them using the `#MaSelecta` hashtag.
+- I tell Matthew I'm in love with a man and I believe I have an audience on Twitter so I'm DJ'ing to them using the `#MaSelecta` hashtag.
 - I tell him it's the chirps (chat up) of the century.
 
 ![maff](../../content/messages/mc-1.png)
@@ -34,13 +29,19 @@ function googleTranslateElementInit() {
 ![maff](../../content/messages/mc-5.png)
 
 - I experience more online weirdness, such as confusing access issues on my Skype account, strange messages on Twitter and YouTube.
-- The hackers are upping the game and getting ready to reveal themselves.
+- I'm obsessed with 1989 rave music and I feel high and exuberant when I'm on X in the evenings.
+- The hackers are upping their online game and getting ready to reveal themselves.
 
-!!! danger "A bombardment"
-    - I'm cataloguing only the most important information as I see it.
-    - I left masses of information out because it is impossible to report every tiny thing that happened.
-    - Suffice to say, I experienced a cyber-stalking bombardment, from all possible angles.
-    - Once I was back in Dénia, this would continue in the street and again at the conservatory.
+### Matthew Copeland
+
+- I started thinking about Matthew Copeland due to the 1989 rave music I had become obsessed with over this time.
+- He had been my boyfriend briefly in 1993 and we remained friendly.
+- Matthew Copeland's mother Gill had been to the Marina Alta region and we'd even spoken about that.
+- Matthew always went on about his dad being a "porn king".
+- I thought he was just talking shite. He talked a lot of shite.
+- He spoke about his "uncle" all the time, but I never met him.
+- Could his uncle have bee Ugly? 
+- That would be just crrrraaazzzzzzzyyyyy! wuddunit!?
 
 ### Larry
 
