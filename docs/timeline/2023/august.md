@@ -36,7 +36,7 @@ function googleTranslateElementInit() {
 
 - I started thinking about Matthew Copeland due to the 1989 rave music I had become obsessed with over this time.
 - He had been my boyfriend briefly in 1993 and we remained friendly.
-- Matthew Copeland's mother Gill had been to the Marina Alta region and we'd even spoken about that.
+- Matthew Copeland's mother Gill had been to the Marina Alta region and we'd even spoken about it.
 - Matthew always went on about his dad being a "porn king".
 - I thought he was just talking shite. He talked a lot of shite.
 - He spoke about his "uncle" all the time, but I never met him.
