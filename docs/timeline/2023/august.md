@@ -40,7 +40,7 @@ function googleTranslateElementInit() {
 - Matthew always went on about his dad being a "porn king".
 - I thought he was just talking shite. He talked a lot of shite.
 - He spoke about his "uncle" all the time, but I never met him.
-- Could his uncle have bee Ugly? 
+- Could this uncle be Ugly? 
 - That would be just crrrraaazzzzzzzyyyyy! wuddunit!?
 
 ### Larry
@@ -50,7 +50,7 @@ function googleTranslateElementInit() {
 ![Larry](../../content/images/larry.png)
 
 - They don't know who he is. 
-- I know this because a day later, I see a post on my X feed.
+- I know this because a day later, I see a post on my X feed asking who he is.
 
 ![Who's Larry](../../content/images/who-is-larry.png)
 
