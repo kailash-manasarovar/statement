@@ -209,28 +209,70 @@ function googleTranslateElementInit() {
 - I wake up even more obsessed and in love with the trumpet teacher.
 - This particular trumpet teacher was the [fourth man I have since remembered in the Autumn of 2025](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man).
 
-## Disclosing child sexual abuse to the trumpet teacher
+## Disclosing child sexual abuse
 
 - A few days later, something woke me up in the middle of the night to post a tweet, in Spanish, on my Twitter account to tell him I liked him.
 - I must have assumed, or hoped, he would be reading my tweets at that time.
 - It was a mature and innocuous message, and very honest.
 - I explained I had been sexually abused as a child and this made relationships very difficult for me.
-- At the next chamber music class, the following Monday, he was waiting for me at the door.
-- This was [hulking number three of the group of men pretending to be the trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), the largest of them all, of course I didn't notice he wasn't the one I actually did like.
-- It felt like *EVERYONE* knew what I had written; the whole conservatory building was hushed.
-- We went up to the classroom and I babbled something about whether he was surprised or not.
-- Ana was standing at her classroom as we went past looking at us.
-- We went into the trumpet classroom and he kind of waited for me to say something to him. He was expecting me to say something to him. I didn't. And after a few moments, he shrugged and we went on with the class.
-- His demeanor towards me was soft and kind in class that day and this was probably the most powerful grooming technique of all because for the first time in my life, on disclosing sexual abuse to someone I cared about:
+- Something about my heart-felt declaration gave the porn-gang the green light.
+
+### Trumpet-teacher switcheroo special at the conservatory
+
+- It's the following chamber music class.
+- As I walk down Carrer Sant Telm, I see the trumpet teacher waiting outside the main door.
+- It's [the third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#an-unknown-man-i-may-have-a-picture-of), a large hulking man, probably Gloria's brother.
+- He's waiting for me.
+- He sees me and looks inside.
+- I reach him and we walk in together.
+- I'm right behind him.
+- It feels like *EVERYONE* knows what I had written online.
+- It feels like the whole conservatory building is hushed.
+- The school's security camera system is ready to live-stream the switcheroo to the paying porn-subscribers international.
+- Trumpet teacher team members, [Mark and the brother](../../crimes/protagonists/vidal-sastre.md#three-more), have taken their places up the stairs.
+- As I pass Gloria sitting in her receptionist box, she looks at me and throws her hands up at me as if she's disgusted with me.
+- It's a distraction technique.
+- At that moment, trumpet teacher three and two switch and I'm walking behind a different man.
+- More drugs may have been applied at that moment.
+- They're not even wearing the same clothes anymore.
+- I'm so high on hallucinogens, and so well trained at that time (years of brain-damaging herbs), I don't notice.
+- I think they're the same man.
+- As we reach the first floor where our classroom is, something tells me to speak, to ask him if he's surprised.
+- I understand it as me asking him if he's surprised I wrote the tweet.
+- I babble this out in poor Spanish, which may have corrected into something even more meaningful, like "Surprise!", as if I knew what was going on.
+- It probably concerned them, a little.
+- Ana was standing at her classroom door watching us as we went past.
+- Did she grin or frown when she heard me speak?
+- The third man switches with the second again as we enter the classroom.
+- The brute stares at me in my face, as if he is waiting for me to say something to him. 
+- I wonder if he thought I had noticed something.
+- I hadn't.
+- I expect if I *had* have noticed, they would have murdered me straight away, cut the live-streaming and set up a snuff feature special on the international subscriber networks.
+- He's looking straight at me, Gloria's brother.
+- He's waiting for me to say something.
+- I don't.
+- Eventually, he shrugs and we go on with the class.
+- There were a few switcheroos that day.
+- Whenever he went out, or when I turned to play the piano keeping my back to the teacher and Pablo.
+- Whoever he was at any given moment, his demeanor towards me was soft and kind in class and this was probably the most powerful grooming technique of all because for the first time in my life it felt like, on disclosing sexual abuse to someone I cared about:
     - I was not judged.
-    - I was not hated or attacked (although ironically that was exactly what was happening).
+    - I was not hated or attacked (although obviously the level of hatred and attack from public school teachers to a student was.. I haven't words to describe it.. or how upset people will be when they find out).
+- Love was my defensive accommodation, and it worked too.
+- I wonder how often they've done this to students, and how many minor children have experienced the brain-damaging effects of deadly herbs bolstered with hallucinogens for the perverts pleasure online.
+- When I think about these men, I find them truly pathetic.
+- Here they are, behaving as if they're the very best, to be feared, admired, and respected - and I expect they really are - except, no-one respects anyone for drugging women and children so that they will be sufficiently brain damaged to star in their twisted porn games.
+- I'd send the tanks in immediately.
+
+### Closing the groom loop
+
 - When I got home that evening, his Twitter account posted a beautiful picture which felt like it was a response to me.
 - The account `@jctot19` has now deleted most posts from that period, but this is what the account posted and I saw it right after that class.
 
 ![Studio Ghibli](../../content/images/ghibli.png)
 
-- While I was looking at this picture right after arriving home, Sandra WhatsApp'ed me and I told her the trumpet teacher was sending me beautiful pictures.
-- I was extremely high that day, my whole body vibrating in class as usual, something I thought was to do with chemistry between us.
+- While I was looking at this picture right after arriving home, Sandra Diaz from the Lourdes baths service WhatsApp'ed me.
+- I told her at that moment the trumpet teacher was sending me beautiful pictures.
+- I was extremely high that day, my whole body vibrating in class as usual, something I was so confused about I thought it was to do with chemistry between us.
 - My kidneys were aching as usual after class, and I had to lie down.
 - The Studio Ghibli picture was like opium to my mind and heart. 
 - I was 100% caught in the trap at that moment.
@@ -256,6 +298,12 @@ function googleTranslateElementInit() {
 - In October, I will tweet about this again to the multitude who I have come to realize are watching me.
 
 [![Disclosing sexual abuse to a man I liked](../../content/tweets/disclosing.png)](https://x.com/1FRGVN/status/1714433682046349597)
+
+### Seeing the first man
+
+- I think this was the class I saw the first man again for the last time.
+- The man I always had a good feeling about.
+- I've got events mixed up a bit but I'll fix this on the second pass.
 
 ### Garbure
 

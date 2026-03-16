@@ -230,7 +230,7 @@ function googleTranslateElementInit() {
 
 [![The sedated porn star, now and then, making a whole bunch of people millions, those people expecting her to be murdered and disappear forever, can't always work tho can it](../../content/tweets/august-comms/all-about-the-porn.png)](https://x.com/1FRGVN/status/1692445952164921529)
 
-- Here's a comment related to my belief that attempting to [communicate with the trumpet teacher by tweet](april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher) was my biggest mistake.
+- Here's a comment related to my belief that attempting to [communicate with the trumpet teacher by tweet](april.md#disclosing-child-sexual-abuse) was my biggest mistake.
 
 [![My mistaken judgement](../../content/tweets/august-comms/the-reason-i-thought-i-was-in-this-mess.png)](https://x.com/1FRGVN/status/1692825966500888849)
 
@@ -652,11 +652,12 @@ function googleTranslateElementInit() {
 ![Buffalo Springfield 2](../../content/tweets/august-comms/matthew/buffalo-springfield-2.png)
 ![Buffalo Springfield 3](../../content/tweets/august-comms/matthew/buffalo-springfield-3.png)](https://x.com/1FRGVN/status/1693018197325197534)
 
-- Note, also, my caginess and the reference to a conversation without getting blocked which I believe is a reference to me [trying to communicate with the trumpet teacher in April](april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher) after getting blocked.
+- Note, also, my caginess and the reference to a conversation without getting blocked which I believe is a reference to me [trying to communicate with the trumpet teacher in April](april.md#disclosing-child-sexual-abuse) after getting blocked.
 - There's no further interaction between us until 7th October.
 
 ![Matthew on 7th October](../../content/tweets/august-comms/matthew/matthew-october-7.png)
 
+- Blimey, why 7th October? Are they Nazis?
 - Is Matthew confirming what's been going on for me in this tweet?
 - On the 8th October, he replies to an ironic post in a manner that made no sense to me at the time, and now makes me shudder.
 

@@ -226,7 +226,7 @@ function googleTranslateElementInit() {
 - It's my belief that that's exactly what I was ingesting through the water mains and any food items that had been interfered with in my apartment.
 - Just over a week after October 7th, I'm sleeping. 
 - Something drags me out of bed around 2am to write a very important tweet.
-- The urgency is rather like the time I was dragged out of bed to write [a very important tweet declaring my romantic interest with TT in April 2023](april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher).
+- The urgency is rather like the time I was dragged out of bed to write [a very important tweet declaring my romantic interest with TT in April 2023](april.md#disclosing-child-sexual-abuse).
 - In fact, looking back, I was dragged out of bed to write a very important tweet a lot while I was living at Carrer Furs, Dénia. 
 - Could this be a subconscious reaction to sedated assault; an inner awareness something appalling has just happened and I need to do something about it, and all I have as weaponry are my words and thoughts?
 - Here's the full tweet thread:

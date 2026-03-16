@@ -220,7 +220,7 @@ function googleTranslateElementInit() {
 - It just seems to get worse and worse for him. 
 - I empathize. I do not judge him.
 - He is as he is.
-- It makes sense to me now that he would not judge me when I made [my child sexual abuse disclosure](../2023/april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher) and perhaps he saw something of himself in me at that moment.
+- It makes sense to me now that he would not judge me when I made [my child sexual abuse disclosure](../2023/april.md#disclosing-child-sexual-abuse) and perhaps he saw something of himself in me at that moment.
 - I tell Sandra Diaz that the trumpet teacher has told me he was in porn. 
 - She is horrified and asks me if I really want to be with someone like that.
 - I say I don't know but I also tell her that I'm devoted somehow; that something's going on that I have no control over so I just have to trust that it is all part of God's plan.

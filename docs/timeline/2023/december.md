@@ -569,7 +569,7 @@ function googleTranslateElementInit() {
 
 ### `@1frgvn`
 
-- In my X review of the year, I make reference to when [I disclosed I had been sexually abused as a child to the trumpet teacher in April](april.md#disclosing-child-sexual-abuse-to-the-trumpet-teacher), and the triggered online euphoria I had felt from interactions with the `@jctot19` account just after, which I had believed to be honest and loving. I find it curious I call it *catnip*, as if the evil was always obvious to me at some level.
+- In my X review of the year, I make reference to when [I disclosed I had been sexually abused as a child to the trumpet teacher in April](april.md#disclosing-child-sexual-abuse), and the triggered online euphoria I had felt from interactions with the `@jctot19` account just after, which I had believed to be honest and loving. I find it curious I call it *catnip*, as if the evil was always obvious to me at some level.
 
 [![How I felt after disclosing](../../content/tweets/december-2023/how-i-felt-after-disclosing.png)](https://x.com/1FRGVN/status/1741150130235937110)
 
