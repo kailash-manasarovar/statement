@@ -117,7 +117,7 @@ function googleTranslateElementInit() {
 - Later, when I get a chance to summarize for myself what happened, I realize the document is about ten levels down in the Arbitrum content; they've really hunted for something obscure and complex to terrorize me with.
 - Do they get annoyed with my anonymous X comments they're avidly reading, and plan evil schemes for the workdays?
 - Are they criminal-porn subscribers?
-- Are the zkSync server farms full of caliphate AI hypno-tech generation algorithms?
+- Are the zkSync servers full of caliphate AI hypno-tech generation algorithms?
 
 ## June 9th piano concert
 
