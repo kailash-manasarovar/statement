@@ -322,8 +322,11 @@ function googleTranslateElementInit() {
 ### Garbure
 
 - It's clear everyone knows what's going on and no-one is going to communicate with me directly about it.
-- This is excruciatingly stressful and feels like an assault on my whole person.
-- My inner warrior emerges again.
+- Since 1989, I have spent my life feeling like the people around me know more about me than I do.
+- Turns out, this was, and is, true.
+- In April 2023, this feeling becomes excruciatingly stressful. 
+- It feels like a full assault on my whole person.
+- My inner warrior emerges, again.
 
 ![Garbure](../../content/tweets/garbure-april.png)
 
