@@ -216,6 +216,10 @@ function googleTranslateElementInit() {
 - It was a mature and innocuous message, and very honest.
 - I explained I had been sexually abused as a child and this made relationships very difficult for me.
 - Something about my heart-felt declaration gave the porn-gang the green light.
+- In October, I tweet about this event to the multitude who I have come to realize are watching my every move, very closely.
+
+[![Disclosing sexual abuse to a man I liked](../../content/tweets/disclosing.png)](https://x.com/1FRGVN/status/1714433682046349597)
+
 
 ### Trumpet-teacher switcheroo special live from the conservatory
 
@@ -265,24 +269,33 @@ function googleTranslateElementInit() {
 
 ### Closing the groom loop
 
-- When I got home that evening, his Twitter account posted a beautiful picture which felt like it was a response to me.
-- The account `@jctot19` has now deleted most posts from that period, but this is what the account posted and I saw it right after that class.
+- When I got home that evening, the trumpet-teacher's X account posted a beautiful picture. 
+- It was a response to me.
+- Managers of the `@jctot19` account have deleted most of the posts from that period, but this is what the account posted and I saw it right after I got home from that particular multi-switcheroo chamber music class at Dénia conservatory.
 
 ![Studio Ghibli](../../content/images/ghibli.png)
 
-- While I was looking at this picture right after arriving home, Sandra Diaz from the Lourdes baths service WhatsApp'ed me.
-- I told her at that moment the trumpet teacher was sending me beautiful pictures.
-- I was extremely high that day, my whole body vibrating in class as usual, something I was so confused about I thought it was to do with chemistry between us.
-- My kidneys were aching as usual after class, and I had to lie down.
+- At the very moment I was looking at this picture, [Sandra Diaz, fellow volunteer at the hospitalite of Lourdes](../early-years/2014.md#sandra-rita-diaz) WhatsApp'ed me.
+- She's been asked to find out what I'm thinking.
+- They're worried about me saying, "surprise".
+- I told her the trumpet teacher had sent me beautiful pictures.
+- I was so high that day.
+- My whole body was vibrating in class, as usual; something that was so confusing I thought it had to be to do with romantic chemistry, and feeling scared about the strength of the feelings.
+- My kidneys were aching as usual when I got home, and I had to lie down.
 - The Studio Ghibli picture was like opium to my mind and heart. 
 - I was 100% caught in the trap at that moment.
+- But these manufactured lies only ever had temporary effects; to end when they end you, I expect.
+- I guess my continued survival was a big surprise to them all; and this troubling fact assures me that all other targets do not survive.
 
 !!! tip "The Studio Ghibli tweet"
     - As the cyber-terrorism continued into late 2023 and on into 2024, numerous fake accounts followed me pretending to be the trumpet teacher.
     - I never knew if they were really him or not, but I played along in any case.
-    - A few of these accounts mentioned Studio Ghibli and, whenever they did, it was like they were teasing me about me this bear trap snapping shut on me, or perhaps trying again. 
+    - This foolishness continues even today, in March 2026.
+    - A few of these accounts mentioned Studio Ghibli and, whenever they did, it was like they were teasing me about this bear trap snapping shut.
+    - At that time, they only knew what I had told Sandra about this picture.
+    - And I didn't explain what picture it was to her either, so they had to be monitoring my online activity at that moment.
     - Cyber-terrorists were well aware this picture, coupled with drugging and my disclosure, were the key to fully binding my mind into believing the trumpet teacher cared about me.
-    - It was very powerful sorcery and I can't imagine any young inexperienced girls have been able to escape once targeted.
+    - It was very powerful sorcery and I can't imagine young inexperienced girls, or children, have been able to escape once targeted.
     - An example fake account here:
 
     ![Studio ghibli account](../../content/images/fake-accounts/giltrap-1.png)
@@ -293,11 +306,7 @@ function googleTranslateElementInit() {
     ![Studio ghibli account](../../content/images/fake-accounts/ghibli-2.png)
 
     - Fake accounts posted references like this to terrorize and humiliate me, but being in love could never be humiliating.
-    - It felt wonderful, in fact, and became an extraordinarily powerful force for good in my life, healing me completely of depression.
-
-- In October, I will tweet about this again to the multitude who I have come to realize are watching me.
-
-[![Disclosing sexual abuse to a man I liked](../../content/tweets/disclosing.png)](https://x.com/1FRGVN/status/1714433682046349597)
+    - It felt wonderful, in fact, and became an extraordinarily powerful force for good in my life, healing me completely of depression, except.. that might have been someone with good intentions towards me switching off the depression manipulation algorithm.
 
 ### Seeing the first man
 
