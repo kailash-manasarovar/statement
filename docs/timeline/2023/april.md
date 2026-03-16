@@ -293,10 +293,10 @@ function googleTranslateElementInit() {
 - As the cyber-terrorism continued into late 2023 and on into 2024, numerous fake accounts followed me pretending to be the trumpet teacher.
 - I never knew if they were really him or not, but I played along in any case.
 - This foolishness continues even today, in March 2026.
-- A few of these accounts mentioned Studio Ghibli and, whenever they did, it was like they were teasing me about this bear trap snapping shut.
+- A few of these accounts mentioned Studio Ghibli and, whenever they did, it was like they were teasing me about this bear-trap snapping shut.
 - At that time, they only knew what I had told Sandra about this picture.
-- And I didn't explain what picture it was to her either, so they had to be monitoring my online activity at that moment.
-- Cyber-terrorists were well aware this picture, coupled with drugging and my disclosure, were the key to fully binding my mind into believing the trumpet teacher cared about me.
+- And I didn’t explain what picture it was to her either, so they had to be monitoring my online activity at the very moment I viewed it.
+- Cyber-terrorists were well aware that this picture - together with confusion about multiple men being the same one man, constant drugging and poisoning, and my heart-felt sexual abuse disclosure - were the key to fully binding my mind into believing the trumpet teacher loved me back.
 - It was very powerful sorcery and I can't imagine young inexperienced girls, or children, have been able to escape once targeted.
 - An example fake account here:
 
@@ -308,7 +308,7 @@ function googleTranslateElementInit() {
 ![Studio ghibli account](../../content/images/fake-accounts/ghibli-2.png)
 
 - Fake accounts posted references like this to terrorize and humiliate me, but being in love could never be humiliating.
-- It felt wonderful, in fact, and became an extraordinarily powerful force for good in my life, healing me completely of depression, except.. that might have been someone with good intentions towards me switching off the depression manipulation algorithm.
+- It felt wonderful, in fact, and became an extraordinarily powerful force for good in my life, healing me completely of depression, except.. I realize now that that might have been someone with good intentions towards me switching off the depression manipulation algorithm...
 
 ### Seeing the first man again for the last time
 
