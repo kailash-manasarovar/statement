@@ -211,12 +211,15 @@ function googleTranslateElementInit() {
 
 ## Disclosing child sexual abuse
 
-- A few days later, something woke me up in the middle of the night to post a tweet, in Spanish, on my Twitter account to tell him I liked him.
-- I must have assumed, or hoped, he would be reading my tweets at that time.
+- A few days later, something woke me up *in the middle of the night* to post a tweet, in Spanish, on my Twitter account to tell him I liked him.
+- I must have assumed, or hoped, he was reading my tweets at that time.
+- This must have been a sedation porn night where, perhaps, a man I truly did find pleasing entered my apartment!
+- (I don't really know how to deal with this but, with God, we will....)
 - It was a mature and innocuous message, and very honest.
 - I explained I had been sexually abused as a child and this made relationships very difficult for me.
-- Something about my heart-felt declaration gave the porn-gang the green light.
-- In October, I tweet about this event to the multitude who I have come to realize are watching my every move, very closely.
+- Something about my heart-felt declaration gave the porn-gang the green light to start applying exaggerated pressure.
+- Were they trying to stymy something genuine?
+- In October, I tweet about this event to the multitude I have come to realize are watching my every move, very closely.
 
 [![Disclosing sexual abuse to a man I liked](../../content/tweets/disclosing.png)](https://x.com/1FRGVN/status/1714433682046349597)
 
