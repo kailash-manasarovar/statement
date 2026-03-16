@@ -217,7 +217,7 @@ function googleTranslateElementInit() {
 - I explained I had been sexually abused as a child and this made relationships very difficult for me.
 - Something about my heart-felt declaration gave the porn-gang the green light.
 
-### Trumpet-teacher switcheroo special at the conservatory
+### Trumpet-teacher switcheroo special live from the conservatory
 
 - It's the following chamber music class.
 - As I walk down Carrer Sant Telm, I see the trumpet teacher waiting outside the main door.
@@ -228,12 +228,12 @@ function googleTranslateElementInit() {
 - I'm right behind him.
 - It feels like *EVERYONE* knows what I had written online.
 - It feels like the whole conservatory building is hushed.
-- The school's security camera system is ready to live-stream the switcheroo to the paying porn-subscribers international.
-- Trumpet teacher team members, [Mark and the brother](../../crimes/protagonists/vidal-sastre.md#three-more), have taken their places up the stairs.
+- The school's security camera system is ready to live-stream the switcheroo to the international porn-subscribers.
+- Trumpet-teacher team members, [Mark and the brother](../../crimes/protagonists/vidal-sastre.md#three-more), have taken their places up the stairs.
 - As I pass Gloria sitting in her receptionist box, she looks at me and throws her hands up at me as if she's disgusted with me.
 - It's a distraction technique.
 - At that moment, trumpet teacher three and two switch and I'm walking behind a different man.
-- More drugs may have been applied at that moment.
+- More drugs may have been applied to my ear or bare skin at that moment.
 - They're not even wearing the same clothes anymore.
 - I'm so high on hallucinogens, and so well trained at that time (years of brain-damaging herbs), I don't notice.
 - I think they're the same man.
@@ -258,9 +258,9 @@ function googleTranslateElementInit() {
     - I was not judged.
     - I was not hated or attacked (although obviously the level of hatred and attack from public school teachers to a student was.. I haven't words to describe it.. or how upset people will be when they find out).
 - Love was my defensive accommodation, and it worked too.
-- I wonder how often they've done this to students, and how many minor children have experienced the brain-damaging effects of deadly herbs bolstered with hallucinogens for the perverts pleasure online.
+- I wonder how often they've done this to students, and how many minor children have experienced the brain-damaging effects of deadly herbs bolstered with hallucinogens for the pervert's online pleasure.
 - When I think about these men, I find them truly pathetic.
-- Here they are, behaving as if they're the very best, to be feared, admired, and respected - and I expect they really are - except, no-one respects anyone for drugging women and children so that they will be sufficiently brain damaged to star in their twisted porn games.
+- Here they are, behaving as if they're the very best, to be feared, admired, and respected - and I expect they really are in the town, maybe country - except, no-one respects anyone for drugging women and children so that they will be sufficiently brain damaged to star in their twisted porn games.
 - I'd send the tanks in immediately.
 
 ### Closing the groom loop
