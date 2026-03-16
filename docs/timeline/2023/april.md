@@ -279,36 +279,38 @@ function googleTranslateElementInit() {
 - She's been asked to find out what I'm thinking.
 - They're worried about me saying, "surprise".
 - I told her the trumpet teacher had sent me beautiful pictures.
+- 🕊️
 - I was so high that day.
 - My whole body was vibrating in class, as usual; something that was so confusing I thought it had to be to do with romantic chemistry, and feeling scared about the strength of the feelings.
 - My kidneys were aching as usual when I got home, and I had to lie down.
 - The Studio Ghibli picture was like opium to my mind and heart. 
 - I was 100% caught in the trap at that moment.
 - But these manufactured lies only ever had temporary effects; to end when they end you, I expect.
-- I guess my continued survival was a big surprise to them all; and this troubling fact assures me that all other targets do not survive.
+- I guess my continued survival was a big surprise to them all; and this troubling fact assures me that no other targets survive.
 
-!!! tip "The Studio Ghibli tweet"
-    - As the cyber-terrorism continued into late 2023 and on into 2024, numerous fake accounts followed me pretending to be the trumpet teacher.
-    - I never knew if they were really him or not, but I played along in any case.
-    - This foolishness continues even today, in March 2026.
-    - A few of these accounts mentioned Studio Ghibli and, whenever they did, it was like they were teasing me about this bear trap snapping shut.
-    - At that time, they only knew what I had told Sandra about this picture.
-    - And I didn't explain what picture it was to her either, so they had to be monitoring my online activity at that moment.
-    - Cyber-terrorists were well aware this picture, coupled with drugging and my disclosure, were the key to fully binding my mind into believing the trumpet teacher cared about me.
-    - It was very powerful sorcery and I can't imagine young inexperienced girls, or children, have been able to escape once targeted.
-    - An example fake account here:
+#### The Studio Ghibli tweet 
 
-    ![Studio ghibli account](../../content/images/fake-accounts/giltrap-1.png)
+- As the cyber-terrorism continued into late 2023 and on into 2024, numerous fake accounts followed me pretending to be the trumpet teacher.
+- I never knew if they were really him or not, but I played along in any case.
+- This foolishness continues even today, in March 2026.
+- A few of these accounts mentioned Studio Ghibli and, whenever they did, it was like they were teasing me about this bear trap snapping shut.
+- At that time, they only knew what I had told Sandra about this picture.
+- And I didn't explain what picture it was to her either, so they had to be monitoring my online activity at that moment.
+- Cyber-terrorists were well aware this picture, coupled with drugging and my disclosure, were the key to fully binding my mind into believing the trumpet teacher cared about me.
+- It was very powerful sorcery and I can't imagine young inexperienced girls, or children, have been able to escape once targeted.
+- An example fake account here:
 
-    - This account no longer exists.
-    - Here's another that DM'ed me in April 2024.
+![Studio ghibli account](../../content/images/fake-accounts/giltrap-1.png)
 
-    ![Studio ghibli account](../../content/images/fake-accounts/ghibli-2.png)
+- This account no longer exists.
+- Here's another that DM'ed me in April 2024.
 
-    - Fake accounts posted references like this to terrorize and humiliate me, but being in love could never be humiliating.
-    - It felt wonderful, in fact, and became an extraordinarily powerful force for good in my life, healing me completely of depression, except.. that might have been someone with good intentions towards me switching off the depression manipulation algorithm.
+![Studio ghibli account](../../content/images/fake-accounts/ghibli-2.png)
 
-### Seeing the first man
+- Fake accounts posted references like this to terrorize and humiliate me, but being in love could never be humiliating.
+- It felt wonderful, in fact, and became an extraordinarily powerful force for good in my life, healing me completely of depression, except.. that might have been someone with good intentions towards me switching off the depression manipulation algorithm.
+
+### Seeing the first man again for the last time
 
 - I think this was the class I saw the first man again for the last time.
 - The man I always had a good feeling about.
