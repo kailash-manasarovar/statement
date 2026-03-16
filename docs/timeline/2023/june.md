@@ -98,6 +98,27 @@ function googleTranslateElementInit() {
 - I notice all these things but I'm not able to deal with them or respond to anyone.
 - I'm feeling constantly euphoric and it's difficult to speak.
 
+## My male colleagues at zkSync go for me
+
+- I have a short conversation with the CTO at zkSync.
+- He's mates with Elon.
+- A few days before, he posted a gun emoji on my Slack.
+- My job is causing me a lot of stress and upset, and I'm considering leaving.
+- The CTO puts me down a bit - but I expect that from men in tech.
+- Later, I use my anonymous X account to express some comments about the meeting, without mentioning any names or details.
+
+![Pearls before swine](../../content/tweets/pearls-before-swine.jpg)
+
+- The very next day, I'm hurled into a Slack meeting with twenty male colleagues.
+- It's an ambush.
+- They all want to know why I'm not writing docs like a particular example they've found on the Arbitrum website.
+- They're firing questions at me.
+- The document is a very detailed and scientific explanation of cryptographic concerns; way over my pay grade.
+- Later, when I get a chance to summarize for myself what happened, I realize the document is about ten levels down in the Arbitrum content; they've really hunted for something obscure and complex to terrorize me with.
+- Do they get annoyed with my anonymous X comments and plan evil schemes for the workdays?
+- Are they criminal-porn subscribers?
+- Are the zkSync server farms full of caliphate AI hypno-tech generation algorithms?
+
 ## June 9th piano concert
 
 - The end of year piano concert takes place at the boat club venue in Dénia.
