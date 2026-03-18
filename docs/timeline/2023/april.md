@@ -228,7 +228,7 @@ function googleTranslateElementInit() {
 
 - It's the following chamber music class.
 - As I walk down Carrer Sant Telm, I see the trumpet teacher waiting outside the main door.
-- It's [the third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-Bruno-with-at-least-one-son-called-Bruno), a large hulking man, probably Gloria's brother.
+- It's [the third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno), a large hulking man, probably Gloria's brother.
 - He's waiting for me.
 - He sees me and looks inside.
 - I reach him and we walk in together.
