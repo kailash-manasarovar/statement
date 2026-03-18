@@ -100,24 +100,27 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ### A man possibly called Bruno, with at least one son called Bruno
 
-- There was a similarly tall but even larger and lumbering man that I remember seeing.
-- He was the man who organized and managed the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) with Carmen Cano in attendance (masquerading or not) as Pablo's mum.
+- A similarly tall but even larger, lumbering man was a key component of the switcheroo trumpet-teacher team.
+- He was one of the main men starring in the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) with Carmen Cano in attendance (masquerading or not) as Pablo's mum.
 - He had a soft pleasant voice and he was the man who left messages on my phone.
 - He was the man I spoke to who [mentioned a *double session* in a perverted way](../../timeline/2023/may.md#teb-with-robin) the night before I saw evidence of anal rape.
 - I believe this is him in the picture below with his family.
-- He looked like an older version of the young man in the middle with his arms around two siblings (I assume).
+- I've had a copy of this photo since August 2024. 
+- In October 2025, I realized this man looked completely different to the others, and was therefore one of a group of men pretending to be one the same manipulated main love interest.
+- This appears to be him as a young man; the one in the middle with his arms around two siblings (I assume).
 
 ![Vigas](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
 
-- The younger brother in the pic looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../../timeline/2024/march/13-end.md#wednesday-13th-march) right before I became convinced I was going to be murdered.
 - I'm not sure I have any more solid memories of this man at the conservatory apart from him being the [one who met me outside the conservatory](../../timeline/2023/april.md#disclosing-child-sexual-abuse) the class after I posted on X.
-- The girl in this picture is very familiar, I think it may be Gloria the conservatory school receptionist as a teenager.
+- The younger brother in the pic looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../../timeline/2024/march/13-end.md#wednesday-13th-march) right before I became convinced I was going to be murdered.
+- The girl in this picture is very familiar; I think it may be Gloria the conservatory school receptionist as a teenager.
 - I'm guessing everyone in Dénia and the Marina Alta region knows this man.
 - I remember Samuel telling me about Gloria's brother Ivan, and how terrible he was.
-- I guess Ivan is a nickname and due to him being monstrous to women, children, and babies.
-- I'm reliably informed by my international sources that this man is called Bruno.
-- He also appears to be the father of Natalia's son, who is also called Bruno.
-- Bruno is a curiously Germanic name and I wonder if he could be a descendent of Nazi war criminals who found safe-haven in Dénia and the surrounds after the second world war; a very open secret.
+- I guess Ivan is a nickname and due to him being monstrous to women, children... pregnant women and babies.
+- I'm reliably informed by solid international sources that this man's name is Bruno.
+- He also appears to be the father of Natalia's son; who is also called Bruno.
+- Bruno is a curiously Germanic name and I therefore wonder if he could be a descendent of Nazi war criminals who found safe-haven in Dénia and the surrounds after the second world war; a very open secret.
+- When can I open the Bolly?
 
 ### Dark thick-curly-haired deep-set man
 
