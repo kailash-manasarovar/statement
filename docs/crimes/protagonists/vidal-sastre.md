@@ -104,13 +104,12 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - He was one of the main men starring in the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) with Carmen Cano in attendance (masquerading or not) as Pablo's mum.
 - He had a soft pleasant voice and he was the man who left messages on my phone.
 - He was the man I spoke to who [mentioned a *double session* in a perverted way](../../timeline/2023/may.md#teb-with-robin) the night before I saw evidence of anal rape.
-- I believe this is him in the picture below with his family.
-- I've had a copy of this photo since August 2024. 
-- In October 2025, I realized this man looked completely different to the others, and was therefore one of a group of men pretending to be one the same manipulated main love interest.
-- This appears to be him as a young man; the one in the middle with his arms around two siblings (I assume).
+- I believe this is an old picture of him, his family and siblings.
 
 ![Vigas](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
 
+- I've had a copy of this photo since August 2024. 
+- In October 2025, [I realized this man looked completely different to the other trumpet teachers](../../timeline/2025/october.md#thunderbolt-clarity), and was therefore just one of a group of men pretending to be the same manipulated love interest; proof I had been severely brain-damaged with deadly poisons over many years.
 - I'm not sure I have any more solid memories of this man at the conservatory apart from him being the [one who met me outside the conservatory](../../timeline/2023/april.md#disclosing-child-sexual-abuse) the class after I posted on X.
 - The younger brother in the pic looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../../timeline/2024/march/13-end.md#wednesday-13th-march) right before I became convinced I was going to be murdered.
 - The girl in this picture is very familiar; I think it may be Gloria the conservatory school receptionist as a teenager.
@@ -119,8 +118,8 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - I guess Ivan is a nickname and due to him being monstrous to women, children... pregnant women and babies.
 - I'm reliably informed by solid international sources that this man's name is Bruno.
 - He also appears to be the father of Natalia's son; who is also called Bruno.
+- I suspect he could also be the father of the [gloomy yoga teacher](../../timeline/early-years/2015.md#nati-de-prati-yoga), npc from Natalia's terror team back in 2015.
 - Bruno is a curiously Germanic name and I therefore wonder if he could be a descendent of Nazi war criminals who found safe-haven in Dénia and the surrounds after the second world war; a very open secret.
-- When can I open the Bolly?
 
 ### Dark thick-curly-haired deep-set man
 
