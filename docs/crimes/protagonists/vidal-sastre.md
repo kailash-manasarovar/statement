@@ -98,7 +98,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - He may have been scared of Gloria.
 - Someone will be able to confirm.
 
-### A man possibly called Bruno with at least one son called Bruno
+### A man possibly called Bruno, with at least one son called Bruno
 
 - There was a similarly tall but even larger and lumbering man that I remember seeing.
 - He was the man who organized and managed the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) with Carmen Cano in attendance (masquerading or not) as Pablo's mum.
