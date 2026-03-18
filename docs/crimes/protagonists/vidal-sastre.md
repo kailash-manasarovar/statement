@@ -114,11 +114,11 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - The younger brother in the pic looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../../timeline/2024/march/13-end.md#wednesday-13th-march) right before I became convinced I was going to be murdered.
 - The girl in this picture is very familiar; I think it may be Gloria the conservatory school receptionist as a teenager.
 - I'm guessing everyone in Dénia and the Marina Alta region knows this man.
-- I remember Samuel telling me about Gloria's brother Ivan, and how terrible he was.
+- I remember Samuel telling me about Gloria's brother Ivan, and how *terrible* he was.
 - I guess Ivan is a nickname and due to him being monstrous to women, children... pregnant women and babies.
 - I'm reliably informed by solid international sources that this man's name is Bruno.
 - He also appears to be the father of Natalia's son; who is also called Bruno.
-- I suspect he could also be the father of the [gloomy yoga teacher](../../timeline/early-years/2015.md#nati-de-prati-yoga), npc from Natalia's terror team back in 2015.
+- I suspect he could also be the father of the [gloomy yoga teacher](../../timeline/early-years/2015.md#nati-de-prati-yoga); npc from Natalia's terror team back in 2015.
 - Bruno is a curiously Germanic name and I therefore wonder if he could be a descendent of Nazi war criminals who found safe-haven in Dénia and the surrounds after the second world war; a very open secret.
 
 ### Dark thick-curly-haired deep-set man
