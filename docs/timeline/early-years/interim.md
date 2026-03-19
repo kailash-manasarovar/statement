@@ -15,6 +15,16 @@ function googleTranslateElementInit() {
 - It is valium bought online so I'm not even sure what it is exactly.
 - My family is impossible to live with.
 
+## 2018
+
+### A level tutorials
+
+- I did a lot of online tutorials.
+- There was a curious hardware incident one time where whenever I burped, or whatever was going on inside my belly was repeated into my earphones.
+- I said to my student: *sorry, did you hear that*, when I burped and it was like thunder.
+- And he didn't seem to notice.
+- Wow!
+
 ## September 2018
 
 ### Hired for sport, again
