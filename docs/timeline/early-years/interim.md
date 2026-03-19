@@ -87,6 +87,10 @@ function googleTranslateElementInit() {
 - I had been asked to attend this meeting; no particular reason why, they hated me.
 - I remember being interested in this curious contraption he had, which I thought was his private key thingumy, but he said it was his vaper.
 - I'm just wondering. Could I have been sedated at work? Is is possible? Are they THAT bold?
+- A few weird memories of being totally out of it; explainable in my mind by the miniscule amounts of valium I was taking, like miniscule, online mail order stuff, though.
+- Totally out of it at my desk.
+- A weird moment in the women's, someone brushing past me.
+- This event with Trezor where afterwards someone is very angry with me for no reason.
 
 ## December 2018
 
