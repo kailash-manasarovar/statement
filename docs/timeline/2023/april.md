@@ -398,6 +398,8 @@ function googleTranslateElementInit() {
 
 ![Strength](../../content/images/RWS_Tarot_08_Strength.jpg)
 
+- They control me a tad with the online tarot; I find myself doing it incessantly.
+
 ## A wedding on Las Rota beach
 
 - Most Saturdays, I walk along Las Rotas beach.
