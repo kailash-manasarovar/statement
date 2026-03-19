@@ -1,5 +1,12 @@
 # April 2025
 
+## Dad makes me take him to his dodgy Islamic phone specialist on Camden High Street
+
+- Why?
+- Porn connection, no doubt.
+- Dad noticed [the weirdness in High Barnet too](march.md#a-man-who-reminds-me-of-domingo).
+- You couldn't not notice.
+
 ## Goaded online
 
 - I continue to be goaded online, specifically about illnesses related to pesticide poisoning.
