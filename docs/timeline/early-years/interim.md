@@ -81,6 +81,13 @@ function googleTranslateElementInit() {
 - Looking back, I believe two men may have had intentions of getting me into a sexual relationship at the office. The first man "popped up" on the first day and I just got this awful feeling from him. It had been planned he would sit with us but then he didn't. A couple of weeks later another guy joins, the web developer, and sits in front of me. I liked him, not romantically obviously, but he seemed like a cool guy. I just wonder about him now... or maybe they were hoping something would happen and then they'd bring him in. He never replied to my messages after I left.
 - Also, Jo, another developer there was the husband of an Iyengar yoga teacher from Maida Vale, my yoga school. I wonder if he noticed what was going on for me?
 
+#### Trezor and other stuff
+
+- I remember this guy visiting us from Trezor.
+- I had been asked to attend this meeting; no particular reason why, they hated me.
+- I remember being interested in this curious contraption he had, which I thought was his private key thingumy, but he said it was his vaper.
+- I'm just wondering. Could I have been sedated at work? Is is possible? Are they THAT bold?
+
 ## December 2018
 
 - I'm heading off to France for Christmas by car.
