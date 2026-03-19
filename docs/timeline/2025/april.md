@@ -5,7 +5,15 @@
 - Why?
 - Porn connection, no doubt.
 - Dad noticed [the weirdness in High Barnet too](march.md#a-man-who-reminds-me-of-domingo).
-- You couldn't not notice.
+- You couldn't not notice although it's the sort of thing I'm told I'm imagining.
+- The man in the shop has seen me before, and he's uncomfortable.
+- When we're in the car, dad's says how much he likes his friend.
+- He's overdoing it too. 
+- He's pressing for me to say something.
+- I tell dad these people hate women.
+- Dad has an ulterior motive for taking me here.
+- Did the people at the Red Lion tell him to?
+- To see if I was Old Bill?
 
 ## Goaded online
 
