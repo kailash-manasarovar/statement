@@ -24,6 +24,7 @@ function googleTranslateElementInit() {
 - I said to my student: *sorry, did you hear that*, when I burped and it was like thunder.
 - And he didn't seem to notice.
 - Wow!
+- Relationship <3
 
 ## September 2018
 
