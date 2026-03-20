@@ -75,9 +75,9 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 #### Mark from English class in 2013
 
-- Another man reminded me of [a student from my English class in 2013](../../timeline/2001-to-2010/2008.md#working-for-lorraine-blackbourn) who may have been called Mark.
+- Another man reminded me of [a student from my English class in 2013](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn) who may have been called Mark.
 - There'll be an official register somewhere.
-- He was someone I had [found attractive when I met him in 2013](../../timeline/2001-to-2010/2008.md#working-for-lorraine-blackbourn) when I worked for Lorraine Blackbourn.
+- He was someone I had [found attractive when I met him in 2013](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn) when I worked for Lorraine Blackbourn.
 - It's possible this man is related to Lorraine Blackbourn's ex-husband and indeed was of the same size and shape, and facial features.
 - He was the man I saw most often at the conservatory, and I was always anxious around him.
 - I remember seeing this man numerous times, including but not limited to the following examples:
