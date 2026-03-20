@@ -59,3 +59,6 @@
 - Mother supports him 100%.
 - It's sickening.
 - It's no coincidence my social media feeds are [suddenly full of suicide content](november.md#suicide-content-on-my-jackchardwood-account).
+- I get a sudden onset chronic constipation and quite bad genital boils again.
+- I'm numb with horror.
+- Later, in December, I hurt my hip badly in an unusual manner and I wonder if it is like a projection of the pain... or something else.
