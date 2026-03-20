@@ -39,6 +39,7 @@
 - Furthermore, this suicide content on my feed I have never seen before supports my suspicion that Lorraine Blackbourn, and others in the area and at the conservatory, may have been manipulated online into committing suicide.
 - Another view of some of the less unpleasant of these changes in content is that someone was/is doing a bit of show-and-tell for my benefit.
 - Thank you, whoever you are. It has helped enormously.
+- But seriously, you should all be done for mass murder and mass attempted murder.
 
 ## BAU at the conservatory
 
