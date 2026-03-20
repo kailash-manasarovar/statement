@@ -58,3 +58,4 @@
 - Not any more.
 - Mother supports him 100%.
 - It's sickening.
+- It's no coincidence my social media feeds are [suddenly full of suicide content](november.md#suicide-content-on-my-jackchardwood-account).
