@@ -10,18 +10,19 @@ function googleTranslateElementInit() {
 
 ## Another attempt on my life
 
-- On the last week of October 2024 running into the first week of November, the criminal porn-gangs of Dénia had decided to murder me, again.
+- On the last week of October 2024 running into the first week of November, the criminal porn-gangs of Dénia decided to murder me, again.
 - They had already [doused all my belongings in pesticides](october.md#the-router-malfunctions) while I was away praying to Our Lady of Fátima in Portugal.
 - They had instructed my colleagues at Polygon - those involved in watching the live-streams of my time as a sedated sex-slave at my home in Carrer Furs, and those involved in the sedating and rape at the [Bali offsite](may.md#bali) - to fire me before I arrived home because I was going to be murdered, and it wouldn't look good if I turned up for meetings while that was happening.
-- I may have even asked someone who didn't know what was happening for help, or perhaps even someone who did, and they couldn't have that!
 - Polygon obliged and I was fired the working day before I arrived back to my pesticide-doused apartment and belongings, and deadly drinking water.
-- My feeling was I was ingesting methanol through the mains water (shooting nerve pains in my face and neck while drinking my coffee) and other deadly substances.
-- I saw the [neighbor at number 18](october.md#activity-in-the-nextdoor-apartment-number-18) fiddling around daily at the cupboard outside our front doors; a little cupboard of water pipes coming into our flats from the water mains.
-- Did they have some mechanism there to add poisons to the mains water?
-- I saw Carmen Cano and this woman grinning at me while leaving my apartment on an occasion I had stepped out to go to the shop.
-- Marie Carmen in number 16 was very active this week too, visitors speaking loudly outside our front doors every day.
+- My feeling was I was ingesting methanol and other deadly substances through the mains water - I experienced [shooting nerve pains in my face and neck while drinking my coffee](october.md#serious-poisoning-with-intent-to-kill).
+- I saw the [neighbor at number 18](october.md#activity-in-the-nextdoor-apartment-number-18) fiddling around daily at the mains water-pipe cupboard outside our front doors.
+- Did they have some mechanism there for adding poisons to my mains water?
+- I saw Carmen Lopez Cano, Domingo the piano teacher's sister, and the woman from number 18 grinning at me while they were leaving my apartment building on an occasion I had stepped out to go to the shop.
+- Marie Carmen in number 16 was very active this week too; visitors speaking loudly with her outside our front doors every day.
 - Was she also adding poisons to my drinking water with some mechanism built into our shared wall?
-- In bed one night, I connected in with the sole human in all the world who cares about me, and we cried together at the thought of me dying this week and us never seeing each other again, and we prayed together too and then a giant being of light flew down and covered me with its feathers and I went to sleep safely and the poison had no long-term effect and did me no harm. 
+- In bed one night, I connected in with the sole human in all the world who cares about me, and we cried together at the thought of me dying this week and us never seeing each other again, and we prayed together too, and then a giant being of light flew down and covered me with its feathers and I went to sleep safely and the poison had no long-term effect and did me no harm. 
+
+![Protection from pesticides](../../content/images/protection-from-pesticides.png)
 
 ## Going to the night shop
 
