@@ -8,9 +8,17 @@ function googleTranslateElementInit() {
 }
 </script>
 
-!!! note
-    - This section is a bit disordered. 
-    - Please be patient as I carefully edit previous sections.
+## Another attempt on my life
+
+- The last week in October 2024 running into the first week of November, criminal porn-gangs of Dénia had decided to murder me, again.
+- They had already doused all my belongings in pesticides while I was away praying to Our Lady of Fatima.
+- They had instructed my colleagues at Polygon, those involved in watching the live-streams of my time as a sedated sex-slave at my home in Carrer Furs, and those involved in the sedating and rape at the Bali offsite, to fire me before I arrived home because I was going to be murdered, and it wouldn't look good if I turned up for meetings while that was happening.
+- Goodness, I may have even asked someone who didn't know what was happening for help.
+- Polygon obliged and I was fired the working day before I arrived back to my pesticide doused apartment and belongings.
+- My feeling was I was ingesting methanol through the mains water (shooting nerve pains in my face while drinking my coffee) and other deadly substances.
+- I saw the neighbor at number 18 daily fiddling around at the cupboard where the pipes come into the flats from the water mains.
+- I saw Carmen Cano and this woman grinning at me while leaving my apartment on an occasion I had stepped out to go to the shop.
+- In bed one night, I connected in with the sole human in all the world who cares about me, and we cried together at the thought of me dying this week and us never seeing each other again, and we prayed together and a giant being of light flew down and covered me with its feathers and I went to sleep safely and the poison had no long-term effect and did me no harm. 
 
 ## Going to the night shop
 
