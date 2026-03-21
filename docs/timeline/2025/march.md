@@ -126,28 +126,28 @@
 
 ![Rainbow at the wall](../../content/images/rainbow-at-the-wall.jpeg)
 
-### I realize all my stuff is toxic
+### I realize, again, all my stuff is toxic
 
 - I'd been back in UK with my stuff for about three weeks before I traveled to Israel.
 - I'd started getting pains all over my body; in the neck and shoulders, back, hips, everywhere during this time.
 - I was still high on something, confused, so I didn't really notice.
 - When I got to Israel, the pains disappeared and I realized, with a start, that all my stuff was poisonous, but particularly my duvet.
-- And the weird thing is I should have known that already from [when I got back to my flat in October 2024 after Fatima](../2024/november.md#another-attempt-on-my-life) and other events.
-- It's difficult to understand why I would have stopped "knowing" what was really obvious other than that Paul was babbling on about no problems and mum and dad were telling me I was hysterical...
-- Etc.
+- And the weird thing is I should have known that already from [when I got back to my flat in October 2024 after Fatima](../2024/november.md#another-attempt-on-my-life) and numerous other events.
+- It's difficult to understand why I would have stopped "knowing" what was really obvious other than that Paul was babbling on about everything being normal, and mum and dad were telling me I was hysterical...
+- More significant is when all the police forces and security services under the sun ignore you or dismiss you when you tell them you're being poisoned, I guess.
 - The other thing I noticed massively in Israel was that my shoes and hat were so toxic they were causing me headaches and bone ache.
-- Unfortunately, I was not able to change my shoes (I guess I could have, my decision making at that time was really rubbish, drugs I'm sure of it) so I continued wearing them even though every time I put them on I felt aching deep in the bones of my feet!
+- Unfortunately, I was not able to change my shoes (I guess I could have, my decision making at that time was really rubbish... drugs I’m sure of it, I just couldn't think straight at all) so I continued wearing them even though every time I put them on I felt aching deep in the bones of my feet and lower shins!
 - Anyway.
-- I got clear enough to "write" my mother instructions to get the duvet from my bed, put it in a plastic bag, and ask Robert to put it in the attic.
+- I got clear enough to “write” my mother an email of instructions to urgently get the duvet off my bed, put it in a plastic bag, and ask Robert to put it in the attic.
 - She said she would.
 - The instructions were unambiguous.
 - It was important we kept the duvet.
-- It was evidence and I believe I told her that.
+- It was evidence and I told her that.
 - When I got home a week later, I asked her if she had put the toxic duvet in the attic.
 - She said no, she'd thrown it away.
-- I thought this was very strange and I'm still wondering why she wouldn't have followed my instructions and instead done something orthogonal.
+- I thought this was very strange and I'm still wondering why she wouldn't have followed my instructions and done something orthogonal instead.
 - Did my brother insist she throw it away?
-- Was he getting conflicting instructions from somewhere which he was unable to not follow?
+- Was he getting conflicting instructions which he was unable to not follow?
 
 ## Dom Halloran
 
