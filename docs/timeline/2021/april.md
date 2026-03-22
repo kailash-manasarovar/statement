@@ -38,3 +38,5 @@
 - So he sat outside, and showed me how he felt.
 - I wonder if Ugly's friend told him about my father too?
 - I wonder if that was one of the clips my French friend had seen?
+- Did he know about the mass pedophilia and baby-rape industry down there?
+- I bet if he had've known about that, Ugly's friend might not have made it home.
