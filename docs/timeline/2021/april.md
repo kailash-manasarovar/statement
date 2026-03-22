@@ -29,7 +29,7 @@
 ## My neighbor is furious
 
 - One of the men who lived in a ground floor flat in my building was sitting outside his apartment one afternoon as I came home.
-- One of the serial-sedating-rapists, [Ugly's friend](../2001-to-2010/2001.md#amsterdam), had been round that weekend and they'd had [parties and loud music](march.md#the-portuguese-man-next-door).
+- One of the poisoning and drugging, serial-sedating-rapists, [Ugly's friend](../2001-to-2010/2001.md#amsterdam), had been round that weekend and they'd had [parties and loud music](march.md#the-portuguese-man-next-door).
 - I used to always smile and say hello to the French men, even though they were a bit rough and unruly.
 - I thought they were decent enough chaps and they always said hello to me too.
 - Turns out, Ugly's driver had told the French boys what they had been doing to me and what their plan was for me long term; how I'd be brain-damaged, unable to recognize people, unable to work, how I'd end up in hardcore porn or on the streets, running around a field naked after a horse, then dead... making someone very sick and very evil millions in the process.
