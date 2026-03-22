@@ -24,42 +24,148 @@ function googleTranslateElementInit() {
 
 ![Protection from pesticides](../../content/images/protection-from-pesticides.png)
 
-## Going to the night shop
+## I start writing my police statement
 
-- I go down to the Open 24 Market for some wine in the evening of 2nd November.
-- I guess the gang stalkers (the entire population of Dénia) think I'm going to the Indian because they've put a monstrous full-size figure (Halloween monster) in the seat that Paul usually sits in whenever they schedule me to "bump" into him.
+- As suggested by [Spanish foreign office official Paloma](october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid), I begin writing my police statement at the end of October when I get back from Fátima.
+- I consider it a serious task.
+- I'm trying to make sense of the chaos for law enforcement and for myself.
+- I foresee the task lasting about a month to six weeks!
+- I start writing locally without uploading to Git servers.
+- I will not create the Git repo until 10th November.
+- No one should know what I'm doing, except of course everyone knows what I'm doing because the porn-gangs are monitoring everything I do online and have been for decades without my knowledge.
+- Joel Barden at Hype had started contacting me about jobs after Bali and long before Polygon eventually fired me.
+- He had gotten me an interview bang in the middle of *extreme* persecution I was suffering in Dénia - probably around September 2023 sometime - with a company who treated me at the interview as if I was dirt. 
+- The interviewer had put a ridiculous grinning face on his zoom welcome.
+- Not long after, I'm followed by a fake account with the same grinning idiot face. 
+
+![Freak interview](../../content/images/fake-accounts/freak-interviewee.png)
+
+- The interview must have been a set up.
+- Do they live-stream the various humiliating female-tech-colleague events direct onto porn networks the afternoon prior to a sedated sex-slave spy-cam event?
+- Does this sort of thing drum up subscription fees?
+- After getting fired from Polygon, I contact Joel about jobs.
+- Joel arranges an initial chat with Sebastian at Nexera for the 4th November.
+
+![Interview details](../../content/images/sebastian-romano-interview.jpg)
+
+- Sebastian lives in Alicante.
+- If he's not a paying member of the burgeoning porn-addict tech-bro women-despising networks in Alicante or indeed Spain, or even more deeply embedded, it would be very surprising, don't you think?
+- I don't know who Daniel at Hype is.
+- Here's all my [WhatsApp chats with Joel](../../content/whatsapps/WhatsApp%20Chat%20with%20Joel%20Barden.zip).
+
+??? tip "WhatsApp chats with Joel Barden"
+    16/09/2024, 15:46 - Joel Barden: Hey Katherine ! A new role focused on Technical Writing has landed. They are called Nexera Foundation (Ecosystem) - looking and have worked with another client of ours Project Zero. 
+    Have some big names behind them check them out over the socials. The requirements for this one are as simple as...
+    Technical Writer, Web3, Dev Background, Name in Web3 on CV
+    https://x.com/Nexera_Official
+    https://www.linkedin.com/company/nexerafoundation/
+    https://www.nexera.foundation/
+    https://nexera.medium.com/the-nexera-ecosystem-roundup-pushing-boundaries-with-tokenization-ebda15c68ba7
+    Let me know if you would like me to bullet you :)
+    27/10/2024, 23:57 - det sgt lydia cleaves: Hey Joel, checking in, probably you got my linked in, got made redundant on Friday :(
+    28/10/2024, 04:22 - Joel Barden: Hey Katharine! Oh no well I have a technical writer role I can send you over too ! Let me share all the details tomorrow when I get to the office 😁
+    28/10/2024, 04:23 - Joel Barden: In fact one moment I have my laptop will forward it all over
+    28/10/2024, 04:25 - Joel Barden: We are also no longer connected on LinkedIn for some reason so will share here. Do you have an updated resume for me?
+    28/10/2024, 04:27 - Joel Barden: https://www.linkedin.com/company/projectzeroio/
+    https://www.projectzero.io/
+    https://www.linkedin.com/in/sidjain02/
+    https://x.com/ProjectZeroIO
+    About Us
+    Project Zero is on a mission to empower Web3 products and services by removing the burden of infrastructure and blockchain data management. We envision a future where businesses can seamlessly focus on creating solutions to their core problems instead of the complexities involved in maintaining blockchain data operation infrastructure. 
+    Project Zero is dedicated to building innovative Blockchain Data Infrastructure Platform that empower developers. Data Scientists and drive the next generation of technology. We have a flat hierarchy and you will have complete autonomy for your work.
+    28/10/2024, 04:28 - Joel Barden: Here’s the guys - looking for everything you have :) 
+    Also some big parent companies also! Let’s touch base tomorrow and get that updated CV and make sure my notes are still active
+    28/10/2024, 04:43 - det sgt lydia cleaves: Yes let me sort that out for you tomorrow..
+    28/10/2024, 04:44 - det sgt lydia cleaves: We shld still be connected, I'll check first thing
+    28/10/2024, 15:10 - det sgt lydia cleaves: Project zero looks good
+    28/10/2024, 15:10 - det sgt lydia cleaves: Just trying to reconnect now on linkedin
+    28/10/2024, 15:11 - det sgt lydia cleaves: Do you have my email? drkmurphy@ieee.org
+    28/10/2024, 15:11 - det sgt lydia cleaves: Getting an updated CV together now
+    28/10/2024, 15:48 - Joel Barden: Thanks Katharine - are you still flexible to the $135k with an overall packcage of incentives? Just updating the notes - Ideally $150k base but open to negotiation? Just accepted the invite
+    28/10/2024, 15:50 - Joel Barden: Yes I have that email on my notes :)
+    28/10/2024, 15:50 - det sgt lydia cleaves: My full package at polygon was 230
+    28/10/2024, 15:50 - det sgt lydia cleaves: Base 170
+    28/10/2024, 15:51 - det sgt lydia cleaves: Plus tokens
+    28/10/2024, 15:52 - Joel Barden: Not sure everyone can accommodate the Polygon prices 😂 so what you be your lowest on flexibility>? These guys can push the boundaries whats the lowest base your looking for
+    28/10/2024, 15:52 - det sgt lydia cleaves: ideally 17
+    28/10/2024, 15:52 - det sgt lydia cleaves: Oops sorry 170
+    28/10/2024, 15:52 - det sgt lydia cleaves: Happy to wait ,not in a rush either
+    28/10/2024, 15:53 - det sgt lydia cleaves: Can you send me an email plz and I'll send over this CV
+    28/10/2024, 15:53 - Joel Barden: No worries let me change the base to $170k - see if this is something they can accommodate :) 
+    Joel@hype-talent.com
+    28/10/2024, 16:02 - Joel Barden: Let me know when that has sent through
+    28/10/2024, 16:13 - det sgt lydia cleaves: Sent
+    28/10/2024, 16:15 - Joel Barden: Received :)
+    01/11/2024, 15:57 - Joel Barden: Hey Katharine! Sent an interesting message on LinkedIn :)
+    01/11/2024, 19:07 - det sgt lydia cleaves: Received and replied thank you. I keep this phone turned off mostly nowadays but check in every day so will get messages eventually.
+    01/11/2024, 20:57 - Joel Barden: Thank you Katharine I’ve been in Dublin so got this sorted now! Booked 3:30pm BST Monday!
+    01/11/2024, 21:01 - Joel Barden: <Media omitted>
+    03/11/2024, 17:31 - det sgt lydia cleaves: Joel apologies I have to rearrange as my dad is in hospital and I'm racing back to London now
+    05/11/2024, 20:47 - Joel Barden: Hope all is well! Good luck for the call in the AM with the team, I know they mentioned to todays candidate about potential cross over the whole of Nexera Ecosystem so that could also be great! Catch up tomorrow :)
+    05/11/2024, 21:40 - Joel Barden: Even better they have opened it to the Nexera Ecosystem so this could be across the Ecosystem! Some good news they have just told us
+    06/11/2024, 03:19 - det sgt lydia cleaves: Hi Joel, cool sounds interesting 😎
+    06/11/2024, 15:20 - Joel Barden: Good luck this morning Katharine! Go smash it
+    06/11/2024, 17:08 - det sgt lydia cleaves: Thanks Joel, they just rearranged the meeting to 4 today which I can't do unfortunately
+    06/11/2024, 17:09 - det sgt lydia cleaves: I could do 4 tomorrow
+    06/11/2024, 17:09 - det sgt lydia cleaves: Potentially
+    06/11/2024, 17:09 - Joel Barden: Do they have a link on the email for you to re arrange your side?
+    06/11/2024, 17:09 - Joel Barden: For when suits you
+    06/11/2024, 17:09 - det sgt lydia cleaves: Let me check
+    06/11/2024, 17:10 - det sgt lydia cleaves: One mo
+    06/11/2024, 17:13 - det sgt lydia cleaves: Yeah hopefully for tomorrow evening but next week will be ok too
+    06/11/2024, 17:13 - det sgt lydia cleaves: I'm in BKK for the next few weeks
+    06/11/2024, 17:14 - det sgt lydia cleaves: If theyre going to Devcon I could potentially meet in person
+    06/11/2024, 17:14 - Joel Barden: Great so have you re arranged this call for tomorrow or do you need me to do this my end
+    06/11/2024, 17:14 - det sgt lydia cleaves: I think you're cool Joel , just waiting for a confirmation
+    06/11/2024, 17:15 - Joel Barden: I can also ask for the devcon meet! Let me see if the team are going :)
+    06/11/2024, 17:15 - det sgt lydia cleaves: I didn't manage to get a ticket but I'm in BKK
+    06/11/2024, 17:17 - Joel Barden: Ive just asked let me know if they reply for the new meeting time suggested :)
+    06/11/2024, 17:18 - det sgt lydia cleaves: I'm going off this phone now till later will text on Linkedin
+    06/11/2024, 17:26 - Joel Barden: No worries :)
+    07/11/2024, 16:08 - Joel Barden: Hi Katharine, whats the latest update did you manage to reschedule with the team or so I need to get another time booked in
+    08/11/2024, 00:21 - det sgt lydia cleaves: Hi Joel yeah we're doing tomorrow evening around 7..
+    08/11/2024, 15:52 - Joel Barden: Great
+    11/11/2024, 17:32 - Joel Barden: Hey Katharine did you get the invite for 30
+    Mins time?
+    19/08/2025, 14:40 - Joel Barden: Waiting for this message
+
+- I'm astonished how "normal" I sound on the days I'm being poisoned directly through the water in my apartment!
+- No small thing.
+- Anyway, I don't realize how much God I actually have at this time.
+- I haven't had time to consider it.
+- I move our chat to later on in the week and end up talking to him while I'm waiting for my flight to [Bangkok from Madrid](#bangkok) around the 7th.
+- I have a great chat with Sebastian, he's really very friendly and decent, I think.
+- I always think the best of everyone, as you know.
+- He tells me I will be getting a task to complete as the next step.
+- He sends the task immediately.
+- It's a week-long extremely intense task.
+- I believe they're trying to distract me from writing my police statement.
+- The gangs try to distract me by drugging and poisoning me, and they also try to distract me with social media poison and people like Paul who do whatever they say.
+- I tell Nexera I cannot complete the task for at least a few weeks because I have a more pressing writing project at hand.
+- They drop me from the interview process.
+- Were the gangs hoping I'd be distracted from writing my police statement for long enough so that the poisons properly kicked in and I would be unable to write anything any more, or I'd be dead, is it?
 
 ## Poisoning at my apartment
 
 - I'm feeling extremely unwell in my flat. My kidneys are aching.
 - Dark circles suddenly appear under my eyes - like they did after the chamber music class in January 2023. 
-- My eyes are extremely blurry. My mind is confused and I can't remember simple things. I'm sure I'm being poisoned.
+- My eyes are extremely blurry. 
+- My mind is confused and I can't remember simple things.
+- I'm sure I'm being poisoned.
 - It's impossible for me to go out walking without feeling like I'm going to be attacked in some way; psychological usually.
-- Every night, I hear a woman next door talking to a man. Her strident smoker's voice sounds like an extremely slow-motion machine gun; a hideous sound, monstrous.
-- I hear her and another woman outside my door a lot. I look out of the spyhole and see them at the water main cupboard, every day.
-- When I went shopping to the Carrefour the previous week, a couple parked their car close to mine and as I'm coming back to my car they start shrieking and laughing, and putting their phones up if they're recording me. I don't know who they are. The man looks like the [man who keyed my car on the Mongto](../2023/october.md#my-car-is-damaged-on-the-montgo). I recognize the woman somehow. Messages on Twitter fakes accounts that like my posts refer to it later on. It's been like that constantly since September 2023. Later, I dream the man slams the woman's face into the dashboard.
+- Every night, I hear a woman next door in number 18 talking to a man.
+- Her strident smoker's voice sounds like an extremely slow-motion machine gun; a hideous sound, monstrous.
+- I hear her and another woman outside my door a lot.
+- I look out of the spyhole and see them at the water main cupboard, every day.
+- The smaller woman is [Carmen Lopez Cano](../../crimes/protagonists/domingo-et-al.md#carmen-lopez-cano).
+- Because I'm not immediately dying, they're coming in and adding more poisons to my food, water, and toiletries whenever I go out.
+- When I go shopping to the Carrefour, a couple parks their car close to mine and as I'm coming back to my car they start shrieking and laughing, and putting their phones up if they're recording me.
+- I don't know who they are.
+- The man looks like the [man who keyed my car on the Mongto](../2023/october.md#my-car-is-damaged-on-the-montgo).
+- I recognize the woman somehow; is she the bar lady at the cafe I used to meet Lorraine in back in 2014?
+- Messages on Twitter fakes accounts that like my posts refer to it later on. It's been like that constantly since September 2023. Later, I dream the man slams the woman's face into the dashboard.
 - So I don't go out and consequently, if they are poisoning me through the air vents, I'm unable to get out to clean my lungs.
 - On Friday 1 November, as I come back from the taking the bin out, I bump into two women coming out of the apartment building, one of whom I recognize as Carmen Cano.
-- Two weeks later in Thailand and I do feel better, my kidneys are not constantly aching and my mind is getting slowly clearer.
-
-## I start writing this statement
-
-- As suggested by [Paloma in Madrid](october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid), I begin writing my police statement at the end of October when I get back from Fátima.
-- I start locally without uploading to Git.
-- I will not create the Git repo until 11th November.
-- No one should know what I'm doing, except of course they know because they are monitoring everything I do online.
-- A recruitment consultant, Joel Barden contacts me with a job. We arrange an initial chat for the 4th November.
-
-![Interview details](../../content/images/sebastian-romano-interview.jpg)
-
-- Here's our [WhatsApp chats](../../content/whatsapps/WhatsApp%20Chat%20with%20Joel%20Barden.zip).
-- I have to move our chat to later on in the week and end up talking to him while I'm waiting for my flight to Bangkok from Madrid airport again on the 7th or so.
-- We have a great chat and he tells me I will be getting a task to complete as the next step.
-- He sends the task immediately.
-- It's a week long intense task.
-- I believe they're trying to distract me from my police statement.
-- I tell them I cannot complete the task for at least a few weeks because I have a more pressing writing project at hand.
-- They drop me from the interview process.
 
 ## My father falls down the stairs
 
@@ -68,7 +174,12 @@ function googleTranslateElementInit() {
 - I organize to return to London as soon as I can, and leave the next day.
 - If this event had not occurred, I believe I would have been killed or permanently maimed by the poison being fed into my water at the apartment.
 
-### Alarm on my phone
+## Going to the night shop
+
+- I go down to the Open 24 Market for some wine in the evening of 2nd November.
+- I guess the gang stalkers (the entire population of Dénia) think I'm going to the Indian because they've put a monstrous full-size figure (Halloween monster) in the seat that Paul usually sits in whenever they schedule me to "bump" into him.
+
+## Alarm on my phone
 
 - As I'm driving out of Denia, my phone suddenly makes an unimaginably loud and alarming noise.
 - It's apparently a DANA warning, which is over.
