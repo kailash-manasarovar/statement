@@ -42,7 +42,7 @@ function googleTranslateElementInit() {
 
 - The interview must have been a set up.
 - Do they live-stream the various humiliating female-tech-colleague events direct onto porn networks the afternoon prior to a sedated sex-slave spy-cam event?
-- Does this sort of thing drum up *massive* subscription fee income?
+- Does this sort of thing drum up *massive* subscription-fee income?
 - After getting fired from Polygon, I contact Joel about jobs again.
 - Joel arranges an initial chat with Sebastian at Nexera for the 4th November.
 
@@ -140,17 +140,19 @@ function googleTranslateElementInit() {
 - He sends the task immediately.
 - It's a week-long extremely intense task.
 - I believe they're trying to distract me from writing my police statement.
-- The gangs MO has always been to try to distract me from making a sensible decision about my life, or finding out the truth about what's really going on by drugging and poisoning; and they also distract me with social media poison, and by using people like [Paul who will do whatever they say](../2025/january.md#paul).
+- The gangs MO has always been to try to distract me from making a sensible decision about my life, or finding out the truth about what's really going on by drugging and poisoning, with social media poison, and by using people like [Paul who will do whatever they say](../2025/january.md#paul).
 - I tell Sebastian that I cannot complete the task for at least a few weeks because I have a more pressing writing project to complete.
 - They drop me from the interview process.
-- Were the gangs hoping I'd be distracted from writing my police statement for long enough so that the poisons properly kicked in and I would be unable to write anything any more, or I'd be dead?
+- Were the gangs hoping I'd be distracted from writing my police statement for long enough so that the poisons properly kicked in and I would be unable to write anything anymore, or I'd be dead?
 
-## Poisoning at my apartment
+## Poisoning at my apartment and terror outside
 
-- I'm feeling extremely unwell in my flat. My kidneys are aching.
-- Dark circles suddenly appear under my eyes - like they did after the chamber music class in January 2023. 
-- My eyes are extremely blurry. 
-- My mind is confused and I can't remember simple things.
+- Although I haven't died, I do feel extremely unwell in my flat.
+- My kidneys are aching.
+- Dark circles suddenly appear under my eyes - just like they did after the chamber music class in January 2023. 
+- My vision extremely blurry. 
+- My mind is confused.
+- I can't remember simple things.
 - I'm sure I'm being poisoned.
 - It's impossible for me to go out walking without feeling like I'm going to be attacked in some way; psychological usually.
 - Every night, I hear a woman next door in number 18 talking to a man.
