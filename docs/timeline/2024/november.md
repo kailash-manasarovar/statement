@@ -28,12 +28,12 @@ function googleTranslateElementInit() {
 
 - As suggested by [Spanish foreign office official Paloma](october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid), I begin writing my police statement at the end of October when I get back from Fátima.
 - I consider it a serious task.
-- I'm trying to make sense of the chaos for law enforcement and for myself.
+- I'm trying to make sense of the chaos for law enforcement, and for myself.
 - I foresee the task lasting about a month to six weeks!
 - I start writing locally without uploading to Git servers.
 - I will not create the Git repo until 10th November.
 - No one should know what I'm doing, except of course everyone knows what I'm doing because the porn-gangs are monitoring everything I do online and have been for decades without my knowledge.
-- Joel Barden at Hype had started contacting me about jobs after Bali and long before Polygon eventually fired me.
+- Joel Barden at Hype had started contacting me about jobs right after Bali, and long before Polygon eventually fired me.
 - He had gotten me an interview bang in the middle of *extreme* persecution I was suffering in Dénia - probably around September 2023 sometime - with a company who treated me at the interview as if I was dirt. 
 - The interviewer had put a ridiculous grinning face on his zoom welcome.
 - Not long after, I'm followed by a fake account with the same grinning idiot face. 
@@ -42,8 +42,8 @@ function googleTranslateElementInit() {
 
 - The interview must have been a set up.
 - Do they live-stream the various humiliating female-tech-colleague events direct onto porn networks the afternoon prior to a sedated sex-slave spy-cam event?
-- Does this sort of thing drum up subscription fees?
-- After getting fired from Polygon, I contact Joel about jobs.
+- Does this sort of thing drum up *massive* subscription fee income?
+- After getting fired from Polygon, I contact Joel about jobs again.
 - Joel arranges an initial chat with Sebastian at Nexera for the 4th November.
 
 ![Interview details](../../content/images/sebastian-romano-interview.jpg)
@@ -132,18 +132,18 @@ function googleTranslateElementInit() {
 - I'm astonished how "normal" I sound on the days I'm being poisoned directly through the water in my apartment!
 - No small thing.
 - Anyway, I don't realize how much God I actually have at this time.
-- I haven't had time to consider it.
+- I won't have the clarity of mind to consider it until late 2025 and I've finally understood the switcheroo-porn scenario at the conservatory.
 - I move our chat to later on in the week and end up talking to him while I'm waiting for my flight to [Bangkok from Madrid](#bangkok) around the 7th.
-- I have a great chat with Sebastian, he's really very friendly and decent, I think.
+- I have a great chat with Sebastian; he's really very friendly and decent, I think.
 - I always think the best of everyone, as you know.
 - He tells me I will be getting a task to complete as the next step.
 - He sends the task immediately.
 - It's a week-long extremely intense task.
 - I believe they're trying to distract me from writing my police statement.
-- The gangs try to distract me by drugging and poisoning me, and they also try to distract me with social media poison and people like Paul who do whatever they say.
-- I tell Nexera I cannot complete the task for at least a few weeks because I have a more pressing writing project at hand.
+- The gangs MO has always been to try to distract me from making a sensible decision about my life, or finding out the truth about what's really going on by drugging and poisoning; and they also distract me with social media poison, and by using people like [Paul who will do whatever they say](../2025/january.md#paul).
+- I tell Sebastian that I cannot complete the task for at least a few weeks because I have a more pressing writing project to complete.
 - They drop me from the interview process.
-- Were the gangs hoping I'd be distracted from writing my police statement for long enough so that the poisons properly kicked in and I would be unable to write anything any more, or I'd be dead, is it?
+- Were the gangs hoping I'd be distracted from writing my police statement for long enough so that the poisons properly kicked in and I would be unable to write anything any more, or I'd be dead?
 
 ## Poisoning at my apartment
 
