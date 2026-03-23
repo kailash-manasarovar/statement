@@ -160,11 +160,11 @@ function googleTranslateElementInit() {
 - She is talking to a man.
 - Her strident smoker's voice sounds like an extremely slow-motion machine gun; a hideous sound, monstrous.
 - I hear her and another woman outside my door every day.
-- I look out of the spyhole and see them at the open water main cupboard, fiddling around, every day.
+- I look out of the spyhole and see them at the open watermains cupboard, fiddling around, every day.
 - The smaller woman is [Carmen Lopez Cano](../../crimes/protagonists/domingo-et-al.md#carmen-lopez-cano).
 - Marie Carmen has very loud guests, also every day, and they stand outside my door and shout at each other, it sounds like.
 - Are [the pipes in my kitchen squeaking](october.md#squeaking-pipes) because someone is accessing them through the wall from Marie Carmen's apartment at number 16?
-- It must be really annoying I don't immediately just die, like everyone else.
+- It must be really annoying I don't immediately just die, like everyone else has.
 - Whenever I'm out, they're entering my apartment to add deadly poisons to my food and water.
 - They also know I'm due to leave for Thailand for two months on the 7th.
 - So to ensure my demise, they add deadly poisons to my bathroom products and supplements; things they know I will be taking away with me.
@@ -177,14 +177,13 @@ function googleTranslateElementInit() {
 - As I'm coming back to my car they start shrieking and laughing, and putting their phones up if they're recording me.
 - The man looks like the [man who keyed my car on the Mongto](../2023/october.md#my-car-is-damaged-on-the-montgo).
 - I recognize the woman somehow.
-- I think she's the bar women who works at the cafe I used to meet Lorraine in back in 2014: Ciberdenia.
+- I think she's the bar woman who works at the cafe I used to meet Lorraine in back in 2014: Ciberdenia.
 
 ![Ciberdenia](../../content/images/ciberdenia.jpg)
 
-- Messages on fakes accounts that like my posts refer to these two and their behavior later on.
+- Back at home, messages on fake accounts that like my posts refer to these two and their behavior.
 - Later, I dream the man slams the woman's face into the car's dashboard.
-- It's horrible.
-- So, this last week I lived at Carrer Furs, I stayed in and, consequently, if they were poisoning me through the air vents, I was unable to get out to clean my lungs.
+- So, for the last week I lived at Carrer Furs, I stayed in and, consequently, I was unable to get out to clean my lungs of the pesticides fumes all over the flat coupled with the poisoning through the air vents.
 
 ## My father falls down the stairs
 
