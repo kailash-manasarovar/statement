@@ -150,6 +150,7 @@ function googleTranslateElementInit() {
 - Although I haven't died, I do feel extremely unwell.
 - My kidneys are aching.
 - Dark circles suddenly appear under my eyes one morning - just like they did after [the chamber music class in January 2023](../2023/january.md#serious-poisoning-at-chamber-music-class), and probably other times where I was so high I don't remember but I have vague recollections of this happening at regular intervals in my home. 
+- I saw other people who looked like this: Margaret Cornwell after months hanging out with Hazel, the beautiful Romanian boy at the conservatory after being taught by Domingo and the other poisonous teachers, many of the targeted women pics have that poisoned look too.
 - My vision is extremely blurry. 
 - My mind is confused.
 - I can't remember anything.
