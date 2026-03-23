@@ -192,11 +192,11 @@ function googleTranslateElementInit() {
 - He is rushed to hospital and will stay there for two months.
 - I organize to return to London as soon as I can, and leave the next day.
 - If this event had not occurred, I believe I would have been killed outright by the poisons fed into the water coming into my home.
-- I am left permanently and verifiably maimed by poisoning in Dénia.
+- I am left permanently and verifiably brain-damaged and maimed by poisoning in Dénia.
 - The gangs did not stop drugging and poisoning me until October 2025 when I finally realized there had been more than one trumpet teacher taking the class at the conservatory, and this meant they had set up a porn studio in the music school itself, and I had been starring in a switcheroo porn sedated-special.
-- It also meant that whenever teachers, staff, students, and the local townsfolk laughed at me uproariously, pointing and staring, it was because the knew I had been brain-damaged by my music teachers.
-- They thought drugging and poisoning students for porn was and is funny!
-- Do you think everyone in Dénia is pure evil?
+- It also meant that whenever teachers, staff, students, my colleagues, and the local townsfolk laughed at me uproariously, pointing and staring, it was because they knew I had been brain-damaged by my music teachers.
+- They thought drugging and poisoning students and colleagues for porn was and is funny!
+- Do you think everyone in Dénia and all the porn-addicted men working in tech are pure evil?
 - Or is this what happens to people en masse when no-one cares about the safety and well-being of women and children?
 
 ## Going to the night shop
