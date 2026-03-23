@@ -145,29 +145,47 @@ function googleTranslateElementInit() {
 - They drop me from the interview process.
 - Were the gangs hoping I'd be distracted from writing my police statement for long enough so that the poisons properly kicked in and I would be unable to write anything anymore, or I'd be dead?
 
-## Poisoning at my apartment and terror outside
+## Poisoning in my apartment and terror outside
 
-- Although I haven't died, I do feel extremely unwell in my flat.
+- Although I haven't died, I do feel extremely unwell.
 - My kidneys are aching.
-- Dark circles suddenly appear under my eyes - just like they did after the chamber music class in January 2023. 
-- My vision extremely blurry. 
+- Dark circles suddenly appear under my eyes one morning - just like they did after [the chamber music class in January 2023](../2023/january.md#serious-poisoning-at-chamber-music-class), and probably other times where I was so high I don't remember but I have vague recollections of this at my home. 
+- My vision is extremely blurry. 
 - My mind is confused.
 - I can't remember simple things.
+- Simple tasks are extraordinarily difficult.
 - I'm sure I'm being poisoned.
-- It's impossible for me to go out walking without feeling like I'm going to be attacked in some way; psychological usually.
-- Every night, I hear a woman next door in number 18 talking to a man.
+- It's impossible for me to go out of my home without feeling like I'm going to be attacked by locals.
+- Every night, I hear the woman next door in number 18.
+- She is talking to a man.
 - Her strident smoker's voice sounds like an extremely slow-motion machine gun; a hideous sound, monstrous.
 - I hear her and another woman outside my door a lot.
 - I look out of the spyhole and see them at the water main cupboard, every day.
 - The smaller woman is [Carmen Lopez Cano](../../crimes/protagonists/domingo-et-al.md#carmen-lopez-cano).
-- Because I'm not immediately dying, they're coming in and adding more poisons to my food, water, and toiletries whenever I go out.
-- When I go shopping to the Carrefour, a couple parks their car close to mine and as I'm coming back to my car they start shrieking and laughing, and putting their phones up if they're recording me.
-- I don't know who they are.
+- They're fiddling around at the water mains cupboard.
+- Marie Carmen has very loud guests, every day, and they stand outside my door and shout at each other, it sounds like.
+- Are [the pipes in my kitchen squeaking](october.md#squeaking-pipes) because someone is accessing them through the wall from Marie Carmen's apartment at number 16?
+- It must be really annoying I don't immediately die.
+- Whenever I'm out, they'll have been entering my apartment to add deadly poison to my food and water.
+- They also know I'm due to leave for Thailand for two months on the 7th.
+- They add deadly poisons to my bathroom products and supplements that they know I will be taking away with me.
+- On Friday 1 November, as I come back from the taking the bin out, a five minute job, I bump into the two women coming out of the apartment building.
+- I can hardly see anything my vision is so blurry, but I do see Carmen Cano Lopez smiling at me; the smile of a murderer enjoying her fun.
+
+### Clowns at the Carrefour
+
+- When I go shopping at the Carrefour one evening, a couple parks their car close to mine.
+- As I'm coming back to my car they start shrieking and laughing, and putting their phones up if they're recording me.
 - The man looks like the [man who keyed my car on the Mongto](../2023/october.md#my-car-is-damaged-on-the-montgo).
-- I recognize the woman somehow; is she the bar lady at the cafe I used to meet Lorraine in back in 2014?
-- Messages on Twitter fakes accounts that like my posts refer to it later on. It's been like that constantly since September 2023. Later, I dream the man slams the woman's face into the dashboard.
-- So I don't go out and consequently, if they are poisoning me through the air vents, I'm unable to get out to clean my lungs.
-- On Friday 1 November, as I come back from the taking the bin out, I bump into two women coming out of the apartment building, one of whom I recognize as Carmen Cano.
+- I recognize the woman somehow.
+- I think she's the bar women who works at the cafe I used to meet Lorraine in back in 2014: Ciberdenia.
+
+![Ciberdenia](../../content/images/ciberdenia.jpg)
+
+- Messages on fakes accounts that like my posts refer to these two and their behavior later on.
+- Later, I dream the man slams the woman's face into the car's dashboard.
+- It's horrible.
+- So, this last week I lived at Carrer Furs, I stayed in and, consequently, if they were poisoning me through the air vents, I was unable to get out to clean my lungs.
 
 ## My father falls down the stairs
 
