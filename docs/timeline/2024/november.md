@@ -149,28 +149,27 @@ function googleTranslateElementInit() {
 
 - Although I haven't died, I do feel extremely unwell.
 - My kidneys are aching.
-- Dark circles suddenly appear under my eyes one morning - just like they did after [the chamber music class in January 2023](../2023/january.md#serious-poisoning-at-chamber-music-class), and probably other times where I was so high I don't remember but I have vague recollections of this at my home. 
+- Dark circles suddenly appear under my eyes one morning - just like they did after [the chamber music class in January 2023](../2023/january.md#serious-poisoning-at-chamber-music-class), and probably other times where I was so high I don't remember but I have vague recollections of this happening at regular intervals in my home. 
 - My vision is extremely blurry. 
 - My mind is confused.
-- I can't remember simple things.
+- I can't remember anything.
 - Simple tasks are extraordinarily difficult.
 - I'm sure I'm being poisoned.
-- It's impossible for me to go out of my home without feeling like I'm going to be attacked by locals.
+- It's impossible for me to go outside of my home without feeling like I'm going to be attacked by locals.
 - Every night, I hear the woman next door in number 18.
 - She is talking to a man.
 - Her strident smoker's voice sounds like an extremely slow-motion machine gun; a hideous sound, monstrous.
-- I hear her and another woman outside my door a lot.
-- I look out of the spyhole and see them at the water main cupboard, every day.
+- I hear her and another woman outside my door every day.
+- I look out of the spyhole and see them at the open water main cupboard, fiddling around, every day.
 - The smaller woman is [Carmen Lopez Cano](../../crimes/protagonists/domingo-et-al.md#carmen-lopez-cano).
-- They're fiddling around at the water mains cupboard.
-- Marie Carmen has very loud guests, every day, and they stand outside my door and shout at each other, it sounds like.
+- Marie Carmen has very loud guests, also every day, and they stand outside my door and shout at each other, it sounds like.
 - Are [the pipes in my kitchen squeaking](october.md#squeaking-pipes) because someone is accessing them through the wall from Marie Carmen's apartment at number 16?
-- It must be really annoying I don't immediately die.
-- Whenever I'm out, they'll have been entering my apartment to add deadly poison to my food and water.
+- It must be really annoying I don't immediately just die, like everyone else.
+- Whenever I'm out, they're entering my apartment to add deadly poisons to my food and water.
 - They also know I'm due to leave for Thailand for two months on the 7th.
-- They add deadly poisons to my bathroom products and supplements that they know I will be taking away with me.
-- On Friday 1 November, as I come back from the taking the bin out, a five minute job, I bump into the two women coming out of the apartment building.
-- I can hardly see anything my vision is so blurry, but I do see Carmen Cano Lopez smiling at me; the smile of a murderer enjoying her fun.
+- So to ensure my demise, they add deadly poisons to my bathroom products and supplements; things they know I will be taking away with me.
+- On Friday 1st November, as I come back from the taking the bin out, a five minute job, I bump into the two women coming out of the apartment building as I'm about to enter.
+- I can hardly see anything my vision is so blurry, but nevertheless I do see Carmen Cano Lopez smiling at me; the smile of a murderer enjoying her fun.
 
 ### Clowns at the Carrefour
 
