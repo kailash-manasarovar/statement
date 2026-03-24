@@ -199,7 +199,7 @@ function googleTranslateElementInit() {
 - It continues to this day as my infamy reaches wherever there's pockets of criminal porn-addicts fooling the women and children around them.
 - They think drugging and poisoning women and children for porn is funny!
 - Do you think it's because these people are evil?
-- Or is it what happens to people after decades of desensitization from watching the criminal porn made in Dénia and the surrounds and distributed globally by North London criminal gangs?
+- Or should we consider it an expected result for people after decades of desensitization from watching the criminal porn made in Dénia and the surrounds and distributed globally by North London criminal gangs?
 
 ## Going to the night shop
 
