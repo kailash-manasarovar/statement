@@ -206,11 +206,18 @@ function googleTranslateElementInit() {
 - I go down to the Open 24 Market for some wine the evening before I fly back to London.
 - This is where, famously, [I often bump into Paul](october.md#bumping-into-paul-again), when they want him to find out what my plans are, etc.
 - Paul [knows me intimately](../2023/october.md#paul-and-alessandra) too.
+- It's how they control people; getting them on film.
 - I wonder exactly how many of the men, women, and youngsters of Dénia know me intimately.
 - The porn-gangs think I'm heading to the Indian that evening.
-- I'm not so I don't pass the spot where I usually "bump into Paul".
+- I'm not, so I don't pass the spot where I usually "bump into Paul".
 - As I'm leaving the shop, I cast my eye over to that area and I see a monstrous full-size figure Halloween monster sitting in Paul's chair.
-- The shop-keeper repeats his words over and over like he hasn't heard me, and he's a malfunctioning robot.
+
+![Open Market horror figure](../../content/images/open-24-monster.png)
+
+- It's a switcheroo surprise!
+- I've been so powerfully drugged and poisoned this week they're expecting me to think it's Paul.
+- The shop-keeper repeats his words over and over like he hasn't heard what I said, like he's a malfunctioning robot.
+- He's playing the horror-porn-town game.
 - I guess they do this sort of thing to all their sedated-rape victims.
 
 ## Alarm on my phone
