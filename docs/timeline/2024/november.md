@@ -208,6 +208,8 @@ function googleTranslateElementInit() {
 - Paul [knows me intimately](../2023/october.md#paul-and-alessandra) too.
 - It's how they control people; getting them on film.
 - I wonder exactly how many of the men, women, and youngsters of Dénia know me intimately.
+- Certainly, back in 1989, Winston May thought his 5 year old nephew might like to "know me intimately".
+- I can't imagine things have gotten any less evil since then.
 - The porn-gangs think I'm heading to the Indian that evening.
 - I'm not, so I don't pass the spot where I usually "bump into Paul".
 - As I'm leaving the shop, I cast my eye over to that area and I see a monstrous full-size figure Halloween monster sitting in Paul's chair.
