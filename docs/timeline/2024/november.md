@@ -201,10 +201,17 @@ function googleTranslateElementInit() {
 - Do you think it's because these people are evil?
 - Or should we consider it an expected result for people after decades of desensitization from watching the criminal porn made in Dénia and the surrounds and distributed globally by North London criminal gangs?
 
-## Going to the night shop
+## Horror-town gone totally mad
 
-- I go down to the Open 24 Market for some wine in the evening of 2nd November.
-- I guess the gang stalkers (the entire population of Dénia) think I'm going to the Indian because they've put a monstrous full-size figure (Halloween monster) in the seat that Paul usually sits in whenever they schedule me to "bump" into him.
+- I go down to the Open 24 Market for some wine the evening before I fly back to London.
+- This is where, famously, [I often bump into Paul](october.md#bumping-into-paul-again), when they want him to find out what my plans are, etc.
+- Paul [knows me intimately](../2023/october.md#paul-and-alessandra) too.
+- I wonder exactly how many of the men, women, and youngsters of Dénia know me intimately.
+- The porn-gangs think I'm heading to the Indian that evening.
+- I'm not so I don't pass the spot where I usually "bump into Paul".
+- As I'm leaving the shop, I cast my eye over to that area and I see a monstrous full-size figure Halloween monster sitting in Paul's chair.
+- The shop-keeper repeats his words over and over like he hasn't heard me, and he's a malfunctioning robot.
+- I guess they do this sort of thing to all their sedated-rape victims.
 
 ## Alarm on my phone
 
