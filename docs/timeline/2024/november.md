@@ -229,8 +229,8 @@ function googleTranslateElementInit() {
 - The noise goes on for about a minute while I scrabble around to shut the phone off because there's no other way to stop it.
 - Before I do, I see a message saying it's a DANA warning.
 - Except, the DANA storm is over.
-- They're trying to make me crash the car, again.
-- I realize that the hackers of Dénia have full administration access even down to the inner hardware workings of my phone.
+- They're trying to make me crash the car, [again](october.md#visiting-inma-again-in-madrid).
+- I realize that the hackers of Dénia have full administration access down to the inner hardware workings of my phone.
 - They seem to be able to rewrite the machine code and even reprogram the chips.
 - I wonder what evil that capability could wreak in the world?
 - I heard certain frequencies coupled with trigger-images can manipulate people into believing they're sick; see [Alessandra, for example](../2001-to-2010/2009.md#alessandra-gets-sick) or even my belief I had a weak heart.
