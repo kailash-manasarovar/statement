@@ -225,9 +225,16 @@ function googleTranslateElementInit() {
 
 ## Alarm on my phone
 
-- As I'm driving out of Denia, my phone suddenly makes an unimaginably loud and alarming noise.
-- It's apparently a DANA warning, which is over.
-- They're trying to make me crash the car again.
+- As I'm driving out of Denia, on a particularly dangerous part of the road, my phone suddenly makes an unimaginably loud and alarming noise.
+- The noise goes on for about a minute while I scrabble to shut it off.
+- Before I do, I see it's *apparently* a DANA warning.
+- Except, the DANA storm is over.
+- They're trying to make me crash the car, again.
+- I realize that the hackers of Dénia have full administration access even down to the inner hardware workings of my phone.
+- They seem to be able to rewrite the machine code and even reprogram the chips.
+- I wonder what evil that capability could wreak in the world?
+- Can the porn-gangs of Dénia make people sick by rewriting the chips on hacked devices?
+- If so, why did the Policia national and the Metropolitan police refuse to investigate my hacked devices?
 
 ## Drugs hair test
 
