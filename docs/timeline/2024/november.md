@@ -190,14 +190,16 @@ function googleTranslateElementInit() {
 
 - On Friday 1st November, my father falls down the stairs and breaks 21 ribs.
 - He is rushed to hospital and will stay there for two months.
-- I organize to return to London as soon as I can, and leave the next day.
-- If this event had not occurred, I believe I would have been killed outright by the poisons fed into the water coming into my home.
-- I am left permanently and verifiably brain-damaged and maimed by poisoning in Dénia.
-- The gangs did not stop drugging and poisoning me until October 2025 when I finally realized there had been more than one trumpet teacher taking the class at the conservatory, and this meant they had set up a porn studio in the music school itself, and I had been starring in a switcheroo porn sedated-special.
+- I organize to return to London as soon as I can.
+- If this event had not occurred, I believe I would have been killed outright by the poisons drip-feeding into the water coming into my home.
+- While I'm unaware of dad's connections to criminal porn-gangs, I believe that he saved my life by falling.
+- Teachers and staff at the conservatory of Dénia and their associates have left me permanently and verifiably brain-damaged and maimed by poisoning.
+- The gangs did not stop drugging and poisoning me until [October 2025 when I finally realized (after attending mass on St Michael's feast day) that there had been more than one trumpet teacher taking the class at the conservatory](../2025/october.md#thunderbolt-clarity), and this meant they had set up a porn studio in the music school itself, and I had been starring in a switcheroo-porn sedated-special.
 - It also meant that whenever teachers, staff, students, my colleagues, and the local townsfolk laughed at me uproariously, pointing and staring, it was because they knew I had been brain-damaged by my music teachers.
-- They thought drugging and poisoning students and colleagues for porn was and is funny!
-- Do you think everyone in Dénia and all the porn-addicted men working in tech are pure evil?
-- Or is this what happens to people en masse when no-one cares about the safety and well-being of women and children?
+- It continues to this day as my infamy reaches wherever there's pockets of criminal porn-addicts fooling the women and children around them.
+- They think drugging and poisoning women and children for porn is funny!
+- Do you think it's because these people are evil?
+- Or is it what happens to people after decades of desensitization from watching the criminal porn made in Dénia and the surrounds and distributed globally by North London criminal gangs?
 
 ## Going to the night shop
 
