@@ -383,18 +383,18 @@ function googleTranslateElementInit() {
 
 #### Losing all my correspondence from the drugs laboratory
 
-- When I arrive back in the UK in January 2026, criminals access my `katharinejchardwood@gmail.com` account and make it inaccessible to me.
-- I had been accessing it easily for months.
-- I have back up emails, fingerprint on my laptop, all sorts of ways to access it.
+- When I arrive back in the UK in January 2026, criminal gangs access my `katharinejchardwood@gmail.com` account to make it inaccessible.
+- I had been accessing the account easily for years.
+- I have the password, back up email addresses, a fingerprint and pin number on my laptop, all sorts of ways to gain access it.
 - Whenever I try to access it, all these options are unavailable.
 - This must be malicious Google admin activity.
-- Moreover, I had backed up and saved everything from this account to google drives and disk as well.
+- Moreover, I had backed up and saved everything from this account to google drives, and as much as I could onto external drives.
 - All the Google drive back ups are missing.
 - I still have enough data on my hard drives to annoy everyone, however.
 - But who would want the drug-tests records deleted, I wonder?
 - Could it be the Metropolitan police service; protecting pedophile pornographers in Spain and rape-gangs in North London?
-- Is the drug test service totally managed by North London criminal gangs?
-- Are Google porn-addict employees worried about the evidence of tampered Google search results for this account?
+- Is the drug test service owned by North London criminal gangs?
+- Are Google porn-addict employees worried about the evidence of tampered Google search results on my account owned too?
 
 ### An inexplicably bad haircut
 
