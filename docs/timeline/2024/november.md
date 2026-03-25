@@ -385,12 +385,16 @@ function googleTranslateElementInit() {
 
 - When I arrive back in the UK in January 2026, criminal gangs access my `katharinejchardwood@gmail.com` account to make it inaccessible.
 - I had been accessing the account easily for years.
-- I have the password, back up email addresses, a fingerprint and pin number on my laptop, all sorts of ways to gain access it.
+- I have the password, multiple back-up email addresses, a fingerprint and pin number on my laptop, all sorts of ways to gain access it.
 - Whenever I try to access it, all these options are unavailable.
 - This must be malicious Google admin activity.
 - Moreover, I had backed up and saved everything from this account to google drives, and as much as I could onto external drives.
 - All the Google drive back ups are missing.
 - I still have enough data on my hard drives to annoy everyone, however.
+- Here's the results document which I cannot access because the password is on an email.
+
+![Results doc from AlphaBiolabs](../../content/documents/drugs-test-results-C%20305106_MURPHY_COA_DOA.pdf)
+
 - But who would want the drug-tests records deleted, I wonder?
 - Could it be the Metropolitan police service; protecting pedophile pornographers in Spain and rape-gangs in North London?
 - Is the drug test service owned by North London criminal gangs?
