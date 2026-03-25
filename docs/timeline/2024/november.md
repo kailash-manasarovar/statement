@@ -364,20 +364,22 @@ function googleTranslateElementInit() {
 
 ### Drugs test results
 
-- My drugs test comes back from AlphaBiolabs completely negative.
+- My drugs test results come back from AlphaBiolabs.
+- They're completely negative.
 - I can't believe it!
-- I phone them up and tell them it's impossible, I've been drugged out of my mind daily over this year, and in some cases - such as [Christmas in Madrid and Avila](../2023/december.md#christmas) this was extreme drugging with euphoric substances and hallucinogens.
+- I phone them up and tell them it's impossible, I've been drugged out of my mind daily for at least a year, and in some cases - such as at [Christmas in Madrid and Avila](../2023/december.md#christmas) - the drugging was extreme, using intense euphoric substances and hallucinogens.
 - There is no way, I explain, that the sample could be negative.
-- Probably they don't test for the brain-damaging herbs, or pesticides and brake-fluid, but the mind-altering substances, hallucinogens, mushrooms, extasy, speed etc should have come up.
-- The woman on the phone says, *you were being spiked*. I say yes.
+- I agree that they probably they don't test for the brain-damaging herbs, or pesticides and brake-fluid; but the mind-altering substances, hallucinogens, mushrooms, extasy, speed, pot-derivatives, etc. should definitely have come up.
+- The woman on the phone says: *you were being spiked*.
+- I say yes.
 - I ask her to give me the second hair sample so I can get another lab to retest.
 - She checks and says they don't have it.
 - I ask her where it is?
 - She says they must have thrown it away.
 - I ask why.
 - She has no reason for it.
-- After the call, I take another huge sample of my hair and keep it safe.
-- If we find it is unavailable, then we have proof of collusion at 31.
+- After the call, I take another huge sample of my hair and keep it very safe and explain to people how valuable it is.
+- If we find it is unavailable, then we have solid proof the porn-gangs own the men at 31.
 
 #### Losing all my correspondence from the drugs laboratory
 
