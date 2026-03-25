@@ -240,7 +240,7 @@ function googleTranslateElementInit() {
 - If they do have this capability, I'm guessing it's well known.
 - So why did the Spanish national Policia and the British Metropolitan police refuse to investigate my hacked devices?
 
-## Drugs hair test
+## Testing my hair for spiked-drugs over the previous 12 months
 
 - I speak to a nurse at the Royal London Hospital in Whitechapel.
 - She was from South African and had been looking after my dad when he came in.
