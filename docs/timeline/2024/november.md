@@ -394,7 +394,7 @@ function googleTranslateElementInit() {
 - But who would want the drug-tests records deleted, I wonder?
 - Could it be the Metropolitan police service; protecting pedophile pornographers in Spain and rape-gangs in North London?
 - Is the drug test service owned by North London criminal gangs?
-- Are Google porn-addict employees worried about the evidence of tampered Google search results on my account owned too?
+- Are Google porn-addict employees responsible for tampering with my Google search results owned by the gangs too?
 
 ### An inexplicably bad haircut
 
