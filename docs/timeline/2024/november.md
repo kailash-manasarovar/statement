@@ -273,7 +273,7 @@ function googleTranslateElementInit() {
 
 ### Women who lie about men raping them
 
-- We're talking.
+- We're talking, me and the nurse.
 - I explain that I have been drugged, poisoned, stalked and harassed in Spain.
 - I say it's probably because I'm a North London rape-gang survivor from 1989.
 - I tell her I believe I have been drugged continually over a long period and more recently poisoned.
@@ -287,12 +287,12 @@ function googleTranslateElementInit() {
 - I don't know why she is telling me this story.
 - It's a little incongruous and insensitive given I've just told her I'm a multi-rapist survivor.
 - I'm dumbfounded, actually.
-- She sounds exactly like the porn-gangs online who often post memes around women who lie about rape, especially when I annoy them.
-- It sounds like what evil men do when they think they can terrorize women, when we still believe there's something good in them.
-- It feels exactly like how they [wheeled Winston May out](june.md#winston-may) to terrorize me while I was campaigning at the General Election.
+- She sounds exactly like the porn-gangs online who often post *women-who-lie-about-rape* memes, especially when I annoy them.
+- It sounds like what evil men do when they think they can terrorize women; succeeding only when we still believe there's something good in them.
+- It feels exactly like how [they wheeled Winston May out](june.md#winston-may) to terrorize me while I was campaigning at the General Election.
 - At the very least, she is minimizing what's been going on for me and countless other women and children.
 - Is it to save herself from the realization of my horrific reality?
-- Or was someone telling her what to say to me?
+- Or was someone telling her what to say?
 
 ## Bangkok
 
