@@ -242,13 +242,17 @@ function googleTranslateElementInit() {
 
 ## Drugs hair test
 
-- I spoke to a nurse at the Royal London Hospital in Whitechapel who was looking after my dad when he came in.
-- She explained to me they were worried about the paralysis in his leg and were lowering the epidural medicine because of it.
+- I speak to a nurse at the Royal London Hospital in Whitechapel.
+- She was from South African and had been looking after my dad when he came in.
 - I told her I had been drugged and poisoned in my apartment in Spain over many months.
-- She suggested I phone the police and maybe get a drugs and poisons test.
-- I phone the police and explain I was being poisoned at my home in Dénia, Spain.
+- I explained it as a domestic violence situation because I figure that's the only way I can describe what's been happening to me that people will be able to understand.
+- She advises me to leave the man (I'd explained that a man - Domingo - and his family were targeting me).
+- I tell her I live on my own.
+- She's shocked.
+- She suggests I phone the police and maybe get a drugs and poisons test.
+- I phone the police and explain I was being poisoned at my home in Dénia, Spain, until just a few days ago.
 - I tell them I believe the poisoners intended to murder me, but didn't manage it, and I'm suffering the effects of those poisons.
-- They suggest I contact a third-party drugs test service.
+- They suggest I contact a third-party drugs testing service.
 - They explain it's the kind of service they send criminals, or suspected criminals, to for evidential purposes to comply with the courts.
 - I look for a service online and find a company called [AlphaBiolabs](https://www.alphabiolabs.co.uk/).
 - I set up an appointment in Wembley at the medical centre in Chaplin Road where they perform testing.
@@ -261,10 +265,10 @@ function googleTranslateElementInit() {
 ![AlphaBiolabs payment plan](../../content/images/alphabiolabs-payment-plan.jpg)
 
 - I go along.
-- The woman explains we're going to do a 12-month drug test using a hair sample.
-- I answer a detailed questionnaire.
-- The woman asks me whether I have taken any drugs in the last 12-months, how much alcohol I have drunk, and even if I could have sat next to someone who was smoking pot.
-- She cuts two hair samples from the root to tip.
+- The woman explains they're going to do a 12-month drug test using a hair sample.
+- I answer a detailed questionnaire: whether I have taken any drugs in the last 12-months, how much alcohol I have drunk, and even if I could have sat next to someone who was smoking pot.
+- Apart from the alcohol, it's a resounding no.
+- She cuts two hair samples from the root to tip and bags them up.
 - She explains she needs two samples in case they get any error on the first one, or if the courts aren't convinced and ask for a retest.
 
 ### Women who lie about men raping them
