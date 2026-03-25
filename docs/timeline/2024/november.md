@@ -373,11 +373,11 @@ function googleTranslateElementInit() {
 - The woman on the phone says: *you were being spiked*.
 - I say yes.
 - I ask her to give me the second hair sample so I can get another lab to retest.
-- She checks and says they don't have it.
+- She goes away and checks, comes back and says they don’t have it.
 - I ask her where it is?
 - She says they must have thrown it away.
 - I ask why.
-- She has no reason for it.
+- She has no good reason for it.
 - After the call, I take another huge sample of my hair and keep it very safe and explain to people how valuable it is.
 - If we find it is unavailable, then we have solid proof the porn-gangs own the men at 31.
 
