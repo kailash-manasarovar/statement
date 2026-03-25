@@ -256,6 +256,10 @@ function googleTranslateElementInit() {
 ![AlphaBiolabs](../../content/images/alphabiolabs.jpg)
 
 - The service costs over £1000 but there's no question I have to have this done; I'm probably the one-in-a-million of victims that can afford it.
+- I set up a payment plan.
+
+![AlphaBiolabs payment plan](../../content/images/alphabiolabs-payment-plan.jpg)
+
 - I go along.
 - The woman explains we're going to do a 12-month drug test using a hair sample.
 - I answer a detailed questionnaire.
@@ -279,8 +283,10 @@ function googleTranslateElementInit() {
 - I don't know why she is telling me this story.
 - It's a little incongruous and insensitive given I've just told her I'm a multi-rapist survivor.
 - I'm dumbfounded, actually.
-- She sounds like the porn-gangs online who often post memes around women who lie about rape.
-- It sounds like she is minimizing what's been going on for me.
+- She sounds exactly like the porn-gangs online who often post memes around women who lie about rape, especially when I annoy them.
+- It sounds like what evil men do when they think they can terrorize women, when we still believe there's something good in them.
+- It feels exactly like how they [wheeled Winston May out](june.md#winston-may) to terrorize me while I was campaigning at the General Election.
+- At the very least, she is minimizing what's been going on for me and countless other women and children.
 - Is it to save herself from the realization of my horrific reality?
 - Or was someone telling her what to say to me?
 
