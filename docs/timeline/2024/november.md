@@ -278,7 +278,7 @@ function googleTranslateElementInit() {
 - I say it's probably because I'm a North London rape-gang survivor from 1989.
 - I tell her I believe I have been drugged continually over a long period and more recently poisoned.
 - I explain how I would become overwhelmingly sexually aroused in my apartment in Spain for no reason, usually at lunchtimes.
-- I tell her I have been hacked and criminals have taken private images of me.
+- I tell her I have been hacked, and that criminals have taken private images of me, and posted photos on my X timeline from porn made when I was sedated and gang-raped by groups of black men in 1989.
 - The woman tells me about how she used to live in Spain and how sometimes the Spanish men were a bit out of order.
 - She told me about an experience she'd had where she had smiled at a man in the shop one afternoon and he'd tried to break into her house later that night.
 - Suddenly, the conversation changes.
