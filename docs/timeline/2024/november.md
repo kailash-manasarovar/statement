@@ -242,22 +242,47 @@ function googleTranslateElementInit() {
 
 ## Drugs hair test
 
-- A nurse at the Royal London hospital in Whitechapel recommends I get a drugs test.
-- I phone the police to find out what to do.
-- I tell them I believe I was poisoned with the intent to kill and I am suffering symptoms of that.
-- They suggest I contact a third-party drugs test service, which I do.
-- It costs £1000+ but I believe it must be done.
+- I spoke to a nurse at the Royal London Hospital in Whitechapel who was looking after my dad when he came in.
+- She explained to me they were worried about the paralysis in his leg and were lowering the epidural medicine because of it.
+- I told her I had been drugged and poisoned in my apartment in Spain over many months.
+- She suggested I phone the police and maybe get a drugs and poisons test.
+- I phone the police and explain I was being poisoned at my home in Dénia, Spain.
+- I tell them I believe the poisoners intended to murder me, but didn't manage it, and I'm suffering the effects of those poisons.
+- They suggest I contact a third-party drugs test service.
+- They explain it's the kind of service they send criminals, or suspected criminals, to for evidential purposes to comply with the courts.
+- I look for a service online and find a company called [AlphaBiolabs](https://www.alphabiolabs.co.uk/).
+- I set up an appointment in Wembley at the medical centre in Chaplin Road where they perform testing.
+
+![AlphaBiolabs](../../content/images/alphabiolabs.jpg)
+
+- The service costs over £1000 but there's no question I have to have this done; I'm probably the one-in-a-million of victims that can afford it.
 - I go along.
-- A woman takes two hair samples from the root to tip.
-- She explains she needs two samples in case one is not sufficient.
-- She explains every centimeter has a month's information in it.
-- We're talking and I explain I have been stalked and harassed probably because I'm a rape gang survivor from 1989 and I believe I have been drugged continually over a long period and more recently poisoned.
-- She tells me about how she used to live in Spain and sometimes the Spanish men were a bit out of order.
-- Suddenly the conversation changes and she tells a long story about how this poor man had been charged with rape by a woman who was lying, and he'd lost his family and his job, everything.
+- The woman explains we're going to do a 12-month drug test using a hair sample.
+- I answer a detailed questionnaire.
+- The woman asks me whether I have taken any drugs in the last 12-months, how much alcohol I have drunk, and even if I could have sat next to someone who was smoking pot.
+- She cuts two hair samples from the root to tip.
+- She explains she needs two samples in case they get any error on the first one, or if the courts aren't convinced and ask for a retest.
+
+### Women who lie about men raping them
+
+- We're talking.
+- I explain that I have been drugged, poisoned, stalked and harassed in Spain.
+- I say it's probably because I'm a North London rape-gang survivor from 1989.
+- I tell her I believe I have been drugged continually over a long period and more recently poisoned.
+- I explain how I would become overwhelmingly sexually aroused in my apartment in Spain for no reason, usually at lunchtimes.
+- I tell her I have been hacked and criminals have taken private images of me.
+- The woman tells me about how she used to live in Spain and how sometimes the Spanish men were a bit out of order.
+- She told me about an experience she'd had where she had smiled at a man in the shop one afternoon and he'd tried to break into her house later that night.
+- Suddenly, the conversation changes.
+- The woman starts to tell me a long story about how she'd know this poor man who had been charged with rape by a woman who was lying, and he'd lost his family and his job, everything.
+- She's so upset and angry for this poor man.
 - I don't know why she is telling me this story.
-- I know that sometimes people lie about being raped but it is a tiny statistic in masses of reports of rape; 1 every 3 minutes in London I heard, will confirm.
-- It's weird that she would go to places which sound like she is minimizing what's going on for me.
-- I don't respond but I do wonder if someone has told her to speak to me this way.
+- It's a little incongruous and insensitive given I've just told her I'm a multi-rapist survivor.
+- I'm dumbfounded, actually.
+- She sounds like the porn-gangs online who often post memes around women who lie about rape.
+- It sounds like she is minimizing what's been going on for me.
+- Is it to save herself from the realization of my horrific reality?
+- Or was someone telling her what to say to me?
 
 ## Bangkok
 
@@ -327,13 +352,37 @@ function googleTranslateElementInit() {
 - If I drink one glass of wine, however, I have immediate frothy urine.
 - Update on 2nd December, the froth in my urine has now disappeared even when drinking wine.
 
-### Drugs test
+### Drugs test results
 
-- My drugs test over the last 12 months comes back completely negative.
-- I can't believe it.
-- I ask the test center for the second sample so I can get another lab to retest.
-- They don't have it.
-- I take a huge sample of hair immediately and keep it safe.
+- My drugs test comes back from AlphaBiolabs completely negative.
+- I can't believe it!
+- I phone them up and tell them it's impossible, I've been drugged out of my mind daily over this year, and in some cases - such as [Christmas in Madrid and Avila](../2023/december.md#christmas) this was extreme drugging with euphoric substances and hallucinogens.
+- There is no way, I explain, that the sample could be negative.
+- Probably they don't test for the brain-damaging herbs, or pesticides and brake-fluid, but the mind-altering substances, hallucinogens, mushrooms, extasy, speed etc should have come up.
+- The woman on the phone says, *you were being spiked*. I say yes.
+- I ask her to give me the second hair sample so I can get another lab to retest.
+- She checks and says they don't have it.
+- I ask her where it is?
+- She says they must have thrown it away.
+- I ask why.
+- She has no reason for it.
+- After the call, I take another huge sample of my hair and keep it safe.
+- If we find it is unavailable, then we have proof of collusion at 31.
+
+#### Losing all my correspondence from the drugs laboratory
+
+- When I arrive back in the UK in January 2026, criminals access my `katharinejchardwood@gmail.com` account and make it inaccessible to me.
+- I had been accessing it easily for months.
+- I have back up emails, fingerprint on my laptop, all sorts of ways to access it.
+- Whenever I try to access it, all these options are unavailable.
+- This must be malicious Google admin activity.
+- Moreover, I had backed up and saved everything from this account to google drives and disk as well.
+- All the Google drive back ups are missing.
+- I still have enough data on my hard drives to annoy everyone, however.
+- But who would want the drug-tests records deleted, I wonder?
+- Could it be the Metropolitan police service; protecting pedophile pornographers in Spain and rape-gangs in North London?
+- Is the drug test service totally managed by North London criminal gangs?
+- Are Google porn-addict employees worried about the evidence of tampered Google search results for this account?
 
 ### An inexplicably bad haircut
 
