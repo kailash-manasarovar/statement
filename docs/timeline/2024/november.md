@@ -245,7 +245,7 @@ function googleTranslateElementInit() {
 - I speak to a nurse at the Royal London Hospital in Whitechapel.
 - She was from South African and had been looking after my dad when he came in.
 - I told her I had been drugged and poisoned in my apartment in Spain over many months.
-- I explained it as a domestic violence situation because I figure that's the only way I can describe what's been happening to me that people will be able to understand.
+- I explained it as a domestic violence situation because I figure that’s the only way I can describe what’s been happening to me so that people will understand.
 - She advises me to leave the man (I'd explained that a man - Domingo - and his family were targeting me).
 - I tell her I live on my own.
 - She's shocked.
