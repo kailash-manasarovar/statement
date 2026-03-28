@@ -505,10 +505,12 @@ function googleTranslateElementInit() {
 ## Climbing the Viscos
 
 - I booked a guided climb of the Viscos mountain.
+
+![Viscos](../../content/images/viscos-2.webp)
+
 - The guide met me at the mountain shop in Cauterets and off we went.
 - We drove to Viscos village and parked at the ski lift and started our ascent.
 - Something was making me feel extraordinarily sexually aroused that afternoon.
-- It was extraordinary.
 - I had my mobile with me, on, and this was the first moment I suspected sub-audio hacking with possibly my own orgasm sounds played back to me plus trigger frequencies already set up.
 - That's what I thought; I reckon I was right.
 - I think the guide was feeling it too.
@@ -525,8 +527,8 @@ function googleTranslateElementInit() {
 - But when I mentioned studying the piano, and the conservatory, he went totally silent, and there was a discomfort about it, like something wasn't being said.
 - Nevertheless, it seemed we had a lot in common, but he never made a move.
 - I wasn't interested and would have declined, even though I was feeling extraordinarily sexually aroused, but I was very clear it wasn't anything to do with this man.
-- But, I now expect I was "supposed" to think it was to do with him, and to end up in bed with him that afternoon when we got back, where he would take off his cap and be completely and unexpectedly bald, and my facial expressions would all be filmed somehow (perhaps in the spy-cams they'd set up in my hotel room).
-- I wonder if they're so organized and advanced at their sedating-women-and-children game, they can even drum up subscriptions for live-action activity like this.
+- But, I now expect I was "supposed" to think it was to do with him, and to end up in bed with him that afternoon when we got back, where he would take off his cap and be completely and unexpectedly bald, and my shocked facial expressions would all be filmed somehow (perhaps in the spy-cams they'd set up in my hotel room).
+- They must be so organized and advanced at their sedating-women-and-children game, they can even drum up subscriptions for live-action activity like this.
 - I did see [Rocio Vidal](../2024/september.md#rocio-vidal) in Cauterets the following year after all.
 - I imagine Rocio was someone thousands of porn-addicts requested to see naked.
 - That's how it works, isn't it.
@@ -534,7 +536,7 @@ function googleTranslateElementInit() {
 - When I got back to my hotel after climbing the Viscos mountain (I knew there was something big about this mountain), I had to masturbate urgently!
 - A little later, I popped out to the shop and bumped into the agents staying in the room next to mine.
 - I didn't know they were agents at the time, of course, but they looked at me in a very knowing way.
-- I know now that they were agents because I see agents near enough everywhere I stay in the world and have done since December 2024, and they always look at me like that!
+- I know now that they were agents because I see agents near enough everywhere and anywhere I stay in the world, and have done since December 2024, and they always look at me like this!
 - My very own security team.
 - <3
 - In the summer of 2024, I climb the Viscos again with a guide from the same mountain shop.
@@ -542,7 +544,7 @@ function googleTranslateElementInit() {
 - I felt terribly unstable and there's a precipitous bit.
 - The instability was a side effect of the sedating drugs I believe.
 - The guide in 2024, Aurelio, said something about how the *Spanish are crazy*, which I thought was curiously relevant.
-- Does every porn-addict in the world know who I am?
+- Does every porn-addict in the world know who I am, and do they tell all the non-porn-addict men they know too?
 
 ### Sandra very interested in the guide
 
