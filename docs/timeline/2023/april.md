@@ -145,6 +145,9 @@ function googleTranslateElementInit() {
 - Sandra was excited about something, celebratory even.
 - *We must drink champagne Katharine*.
 - It was not clear what we were celebrating but nevertheless we went to the Gallia & Londres hotel bar in Lourdes one evening and she bought champagne for us.
+
+![Gallia & Londres hotel bar](../../content/images/gallia-londres-hotel-bar.webp)
+
 - She went to the bar and brought the glasses back with her.
 - While we were sitting drinking champagne, a bunch of people came into the bar (which was pretty empty) and sat in the seats beside us.
 - They were British; scousers I believe.
