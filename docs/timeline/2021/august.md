@@ -2,7 +2,7 @@
 
 ## Piano for sale in Cauterets
 
-### All my correspondence in French ignored
+### All my French correspondence ignored
 
 - Around April of this year, I started thinking about studying the piano again.
 - I contacted the conservatory of Tarbes in France, close to Lourdes, to find out if I could sign up for courses.
