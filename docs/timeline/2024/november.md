@@ -294,11 +294,53 @@ function googleTranslateElementInit() {
 - Is it to save herself from the realization of my horrific reality?
 - Or was someone telling her what to say?
 
+### Drugs test results
+
+- My drugs test results come back from AlphaBiolabs when I'm in Bangkok a few weeks later.
+- They're completely negative.
+- I can't believe it!
+- I phone them up and tell them it's impossible, I've been drugged out of my mind daily for at least a year, and in some cases - such as at [Christmas in Madrid and Avila](../2023/december.md#christmas) - the drugging was extreme, using intense euphoric substances and hallucinogens.
+- There is no way, I explain, that the sample could be negative.
+- I agree that they probably they don't test for the brain-damaging herbs, or pesticides and brake-fluid; but the mind-altering substances, hallucinogens, mushrooms, extasy, speed, pot-derivatives, etc. should definitely have come up.
+- The woman on the phone says: *you were being spiked*.
+- I say yes.
+- I ask her to give me the second hair sample so I can get another lab to retest.
+- She goes away and checks, comes back and says they don’t have it.
+- I ask her where it is?
+- She says they must have thrown it away.
+- I ask why.
+- She has no good reason for it.
+- After the call, I take another huge sample of my hair and keep it very safe and explain to people how valuable it is.
+- If we find it is unavailable, then we have solid proof the porn-gangs own the men at 31.
+
+#### Losing all my correspondence from the drugs laboratory
+
+- When I arrive back in the UK in January 2026, criminal gangs access my `katharinejchardwood@gmail.com` account to make it inaccessible.
+- I had been accessing the account easily for years.
+- I have the password, multiple back-up email addresses, a fingerprint and pin number on my laptop, all sorts of ways to gain access it.
+- Whenever I try to access it, all these options are unavailable.
+- This must be malicious Google admin activity.
+- Moreover, I had backed up and saved everything from this account to google drives, and as much as I could onto external drives.
+- *All* the Google drive back ups are missing.
+- I still have enough data on my hard drives to annoy everyone, however.
+- Here's the results document which I cannot access because the password is on an email.
+
+[![Results doc from AlphaBiolabs](../../content/images/password-protected-file.jpg)](../../content/documents/drugs-test-results-C%20305106_MURPHY_COA_DOA.pdf)
+
+- But who would want the drug-tests records deleted, I wonder?
+- Could it be the Metropolitan police service; protecting pedophile pornographers in Spain and rape-gangs in North London?
+- Is the drug test service owned by North London criminal gangs?
+- Are Google porn-addict employees responsible for tampering with my Google search results owned by the gangs too?
+
 ## Bangkok
 
 - On 7th or so of this month, I return to Madrid to fly to Thailand, a trip I had arranged for some time.
 - I stay at the Citadines Sukkumvit Soi 8 hotel.
+- I wonder if the gangs have directed me to stay at this hotel.
 - The cleaner looks like she has been crying, every morning.
+- One night, I hear a small child scream in pain repeatedly, extremely loudly, from a bedroom down the hall.
+- I shudder.
+- It's too much to process while I'm writing my police statement.
 
 ### Writing my police statement
 
@@ -361,44 +403,6 @@ function googleTranslateElementInit() {
 - Last week in Bangkok I had my kidney checked out and all signs are good, except for my anion gap which is excessively low, 6.0 L mmol/L and could mean bromide, iodide, or salicylate ingestion. Common medical diagnostic tests do not consider cases such as mine.
 - If I drink one glass of wine, however, I have immediate frothy urine.
 - Update on 2nd December, the froth in my urine has now disappeared even when drinking wine.
-
-### Drugs test results
-
-- My drugs test results come back from AlphaBiolabs.
-- They're completely negative.
-- I can't believe it!
-- I phone them up and tell them it's impossible, I've been drugged out of my mind daily for at least a year, and in some cases - such as at [Christmas in Madrid and Avila](../2023/december.md#christmas) - the drugging was extreme, using intense euphoric substances and hallucinogens.
-- There is no way, I explain, that the sample could be negative.
-- I agree that they probably they don't test for the brain-damaging herbs, or pesticides and brake-fluid; but the mind-altering substances, hallucinogens, mushrooms, extasy, speed, pot-derivatives, etc. should definitely have come up.
-- The woman on the phone says: *you were being spiked*.
-- I say yes.
-- I ask her to give me the second hair sample so I can get another lab to retest.
-- She goes away and checks, comes back and says they don’t have it.
-- I ask her where it is?
-- She says they must have thrown it away.
-- I ask why.
-- She has no good reason for it.
-- After the call, I take another huge sample of my hair and keep it very safe and explain to people how valuable it is.
-- If we find it is unavailable, then we have solid proof the porn-gangs own the men at 31.
-
-#### Losing all my correspondence from the drugs laboratory
-
-- When I arrive back in the UK in January 2026, criminal gangs access my `katharinejchardwood@gmail.com` account to make it inaccessible.
-- I had been accessing the account easily for years.
-- I have the password, multiple back-up email addresses, a fingerprint and pin number on my laptop, all sorts of ways to gain access it.
-- Whenever I try to access it, all these options are unavailable.
-- This must be malicious Google admin activity.
-- Moreover, I had backed up and saved everything from this account to google drives, and as much as I could onto external drives.
-- *All* the Google drive back ups are missing.
-- I still have enough data on my hard drives to annoy everyone, however.
-- Here's the results document which I cannot access because the password is on an email.
-
-[![Results doc from AlphaBiolabs](../../content/images/password-protected-file.jpg)](../../content/documents/drugs-test-results-C%20305106_MURPHY_COA_DOA.pdf)
-
-- But who would want the drug-tests records deleted, I wonder?
-- Could it be the Metropolitan police service; protecting pedophile pornographers in Spain and rape-gangs in North London?
-- Is the drug test service owned by North London criminal gangs?
-- Are Google porn-addict employees responsible for tampering with my Google search results owned by the gangs too?
 
 ### An inexplicably bad haircut
 
@@ -578,6 +582,3 @@ function googleTranslateElementInit() {
 - This is my most translated tweet for ages:
 
 ![Translated seduction tweet](../../content/tweets/translated-honey-trapper-tweet.png)
-
-
-
