@@ -140,6 +140,29 @@ function googleTranslateElementInit() {
 
 [![Hanuman Jayanti](../../content/tweets/november-2023/hanuman-jayanti.png)](https://x.com/1FRGVN/status/1726196382644707724)
 
+### Sandra and the champagne
+
+- Sandra was excited about something, celebratory even.
+- *We must drink champagne Katharine*.
+- It was not clear what we were celebrating but nevertheless we went to the Galia & Londres hotel bar in Lourdes one evening and she bought champagne for us.
+- She went to the bar and brought the glasses back with her.
+- While we were sitting drinking champagne, a bunch of people came into the bar (which was pretty empty) and sat in the seats beside us.
+- They were British; scousers I believe.
+- There was about five men and one woman.
+- One of the men starts talking to Sandra.
+- She's talking back but she's not being as flirtatious as she normally is.
+- The man gets annoyed with her and stops talking to her.
+- The group leaves, singing a well known lesbian anthem as they pass us.
+- I think at the time the whole event feels weird, especially the lesbian song.
+- Was I drugged in Lourdes too?
+- After they left, I showed Sandra the `@jctot19` x account that had popped up when I was doing a Google search on the trumpet teacher's name: *Vidal Sastre Sanchez Hornero*.
+- She looks thoughtful and says something about the swimmer's body shape.
+- I ask Sandra if I can borrow her phone to see if the same results come up on her browser for the search terms I use as they do on mine.
+- She lets me.
+- The results are exactly the same.
+- Over the next year and more, I suggest drinking champagne to Sandra and she strongly declines.
+- Why was she so keen to share a glass of champagne with me that evening?
+
 ## Expecting to see him in Lourdes
 
 - While I'm in Lourdes, I expect to see the trumpet teacher at any moment.

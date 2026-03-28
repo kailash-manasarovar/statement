@@ -494,13 +494,63 @@ function googleTranslateElementInit() {
 
 ![Eagles](../../content/images/eagles.png)
 
-- I told someone about this, a mountain expert, and he didn't believe me. 
+- I told someone about this, a mountain guide who took me up the [Viscos peak this August](#climbing-the-viscos), and he didn't believe me. 
 - He said, no, it couldn't be, no-one ever sees more than about two eagles. It must have been vultures.
 - I said, no, it wasn't vultures because of the calls, which I imitated for him.
 - He went silent.
 - I took the eagles as a very good omen and tweeted about them.
 - Eagles became a meme which the hackers and stalkers used to identify themselves.
 - Sometimes even the trumpet teacher used this symbol to tell me very private things about himself, which made me love him even more.
+
+## Climbing the Viscos
+
+- I booked a guided climb of the Viscos mountain.
+- The guide met me at the mountain shop in Cauterets and off we went.
+- We drove to Viscos village and parked at the ski lift and started our ascent.
+- Something was making me feel extraordinarily sexually aroused that afternoon.
+- It was extraordinary.
+- I had my mobile with me, on, and this was the first moment I suspected sub-audio hacking with possibly my own orgasm sounds played back to me plus trigger frequencies already set up.
+- That's what I thought; I reckon I was right.
+- I think the guide was feeling it too.
+- And, I think he was meant to.
+- When I went to the shop to meet him there was a curious energy between us I couldn't quite fathom.
+- We chatted a lot and got on really well.
+- He told me quite personal things about himself; that he was divorced and shared parenting with his ex-wife.
+- We had a shared interest in crypto and he told me all about his crypto activities.
+- I told him I was studying piano at the conservatory in Spain.
+- He went quiet at that point.
+- I even told him that [I had wanted to apply to the Tarbes conservatory](../2021/august.md#all-my-french-correspondence-ignored) but I never got a reply to any emails or letters.
+- He went even more quiet at that point; in a way I noted as peculiar.
+- What I mean to say, is in our conversation, it was a two way thing: I said something, he said something, etc.
+- But when I mentioned studying the piano, and the conservatory, he went totally silent, and there was a discomfort about it, like something wasn't being said.
+- Nevertheless, it seemed we had a lot in common, but he never made a move.
+- I wasn't interested and would have declined, even though I was feeling extraordinarily sexually aroused, but I was very clear it wasn't anything to do with this man.
+- But, I now expect I was "supposed" to think it was to do with him, and to end up in bed with him that afternoon when we got back, where he would take off his cap and be completely and unexpectedly bald, and my facial expressions would all be filmed somehow (perhaps in the spy-cams they'd set up in my hotel room).
+- I wonder if they're so organized and advanced at their sedating-women-and-children game, they can even drum up subscriptions for live-action activity like this.
+- I did see [Rocio Vidal](../2024/september.md#rocio-vidal) in Cauterets the following year after all.
+- I imagine Rocio was someone thousands of porn-addicts requested to see naked.
+- That's how it works, isn't it.
+- Anyway.
+- When I got back to my hotel after climbing the Viscos mountain (I knew there was something big about this mountain), I had to masturbate urgently!
+- A little later, I popped out to the shop and bumped into the agents staying in the room next to mine.
+- I didn't know they were agents at the time, of course, but they looked at me in a very knowing way.
+- I know now that they were agents because I see agents near enough everywhere I stay in the world and have done since December 2024, and they always look at me like that!
+- My very own security team.
+- <3
+- In the summer of 2024, I climb the Viscos again with a guide from the same mountain shop.
+- I should point out the reason I paid a lot of money for a guide is because my feet were so unbalanced during this time.
+- I felt terribly unstable and there's a precipitous bit.
+- The instability was a side effect of the sedating drugs I believe.
+- The guide in 2024, Aurelio, said something about how the *Spanish are crazy*, which I thought was curiously relevant.
+- Does every porn-addict in the world know who I am?
+
+### Sandra very interested in the guide
+
+- I met Sandra Diaz shortly afterwards and she was overly interested in the guide.
+- She spoke about him as if he was a potential lover.
+- Aside from the sexual arousal, I had not thought about him in this way.
+- I noticed how Sandra spoke about men: they were a "French", or an "English", ... a human described only by their nationality.
+- It was very impersonal.
 
 ## Fighting back
 
