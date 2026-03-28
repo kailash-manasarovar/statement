@@ -21,9 +21,10 @@
 
 ### Holiday in Cauterets
 
-- This was the first year the rave scene music became predominant on my trip to Cauterets.
-- While I was here, something prompted me to contact Christine Betterton Jones too.
-- Also, there was an advert for a piano-for-sale in the laundry - a strange place to put an ad for a piano.
+- This was the first year the 1989 rave scene music became predominant on my trip to Cauterets.
+- I started listening to it obsessively while I was visiting.
+- Also while I was here, interestingly, something prompted me to contact Christine Betterton Jones out of the blue who I hadn't spoken to for at least ten years.
+- I'll never forget the advert for a piano-for-sale in the laundry either - a strange place to put an ad for a piano in a tiny town, with tinier apartments, which is totally empty of people for most of the year.
 - I thought about buying it, and I even asked my landlords if I could have a piano, and of course they said no but I could have a keyboard.
 - I think this ad was put there on purpose; a little psychological priming, if you will.
 
