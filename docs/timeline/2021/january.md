@@ -29,11 +29,12 @@
 
 ## Training
 
-- As soon as I was in Lourdes, training commenced.
+- As soon as I was living in Lourdes, training commenced.
 - There were multiple threads:
-    1. Porn-gang manipulation through tailored social media UI, search results, manipulated travel and decision making, conspiratorial work contracts, and drugging and poisoning in my food, water and toiletries probably from as early as March of this year.
-    1. Porn-gang training through US TV special, Mad Men, which was hackingly decorated with *actual* gay porn with the main main *popping up* somehow on my social media or search results. Interesting and extremely unappealing. In fact, I couldn't watch much of this repeated woman-humiliating lifetime spree.
-    1. Spy training through French crime TV special, Le Bureau. This show was *amazing*, albeit a bit French from time to time with excessive and unnecessary sex, and some obvious paranoid nonsense too.
+    1. Porn-gang manipulation through tailored social media, search results, manipulated travel and decision making, conspiratorial work contracts, and drugging and poisoning in my food, water and toiletries probably from as early as March of this year.
+    1. Porn-gang training through US TV special, Mad Men, which was hackingly decorated with *actual* gay porn with the main main *popping up* somehow on my social media or search results. Interesting and extremely unappealing. In fact, I couldn't watch much of this repeated woman-humiliating lifetime spree it was so awful.
+    1. On one occasion the main man from Mad Men was mentioned as being "greasy" on my hacked social media which is a direct reference to something I told one of [Ugly's mates](../2001-to-2010/2001.md#amsterdam) and [switcheroo trumpet-teachers](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) at the bar in Amsterdam in 2001.
+    1. Spy training through French crime TV special, Le Bureau. This show was *amazing*, albeit a bit French from time to time with excessive and unnecessary sex, and some obvious (euphemistic) paranoid nonsense too.
     1. Spiritual training through Israeli TV special, Shtisel. I loved this show so much.
     1. Spiritual training from Mary and her angels, all day every day.
 
