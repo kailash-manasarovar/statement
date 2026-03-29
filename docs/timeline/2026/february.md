@@ -51,6 +51,15 @@
 
 - We suspect they'll get very cross, again.
 
+### Dinner with the Sisters of Nevers
+
+- I buy a ticket to have dinner with the Sisters of Nevers to celebrate the first apparition of Our Lady to Bernadette on 11th February 1858.
+- One of the nuns sitting diagonally opposite me looks *exactly* like Margaret Rutherford.
+- I tell the German nun sitting opposite me and they all look her up on their phones and agree.
+- I make sure to tell them that Margaret Rutherford made the best Miss Marple of them all.
+
+![Margaret Rutherford](../../content/images/margaret-rutherford.webp)
+
 ## Sainte Baume
 
 - It feels like the end of a major cycle.
