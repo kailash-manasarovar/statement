@@ -515,8 +515,10 @@ function googleTranslateElementInit() {
 - That's what I thought; I reckon I was right.
 - I think the guide was feeling it too.
 - And, I think he was meant to.
-- When I went to the shop to meet him there was a curious energy between us I couldn't quite fathom.
-- We chatted a lot and got on really well.
+- Over the course of the day, on occasions, the sexual arousal I was experiencing became rather intense - mobile tower in sight maybe. And at these moments, the guide would step away from me, keep his distance.
+- I noticed it because it was in pattern with the visceral waves of sexual arousal.
+- When I had gone to the shop in the morning to meet him there was a curious energy between us I couldn't quite fathom.
+- Throughout the day, we chatted a lot and got on really well.
 - He told me quite personal things about himself; that he was divorced and shared parenting with his ex-wife.
 - We had a shared interest in crypto and he told me all about his crypto activities.
 - I told him I was studying piano at the conservatory in Spain.
@@ -529,7 +531,7 @@ function googleTranslateElementInit() {
 - I wasn't interested and would have declined, even though I was feeling extraordinarily sexually aroused, but I was very clear it wasn't anything to do with this man.
 - But, I now expect I was "supposed" to think it was to do with him, and to end up in bed with him that afternoon when we got back, where he would take off his cap and be completely and unexpectedly bald, and my shocked facial expressions would all be filmed somehow (perhaps in the spy-cams they'd set up in my hotel room).
 - They must be so organized and advanced at their sedating-women-and-children game, they can even drum up subscriptions for live-action activity like this.
-- I did see [Rocio Vidal](../2024/september.md#rocio-vidal) in Cauterets the following year after all.
+- I did see [Rocio Vidal](../2024/september.md#rocio-vidal) in Cauterets the following year, after all.
 - I imagine Rocio was someone thousands of porn-addicts requested to see naked.
 - That's how it works, isn't it.
 - Anyway.
