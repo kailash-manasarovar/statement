@@ -233,7 +233,7 @@ function googleTranslateElementInit() {
 - I realize that the hackers of Dénia have full administration access down to the inner hardware workings of my phone.
 - They seem to be able to rewrite the machine code and even reprogram the chips.
 - I wonder what evil that capability could wreak in the world?
-- I heard certain frequencies coupled with trigger-images can manipulate people into believing they're sick; see [Alessandra, for example](../2001-to-2010/2009.md#alessandra-gets-sick) or even my belief I had a weak heart.
+- I heard certain frequencies coupled with trigger-images can manipulate people into believing they're sick; see [Alessandra, for example](../2001-to-2010/2009.md#alessandra-gets-sick-or-does-she) or even my belief I had a weak heart.
 - I had that for years while I was *depressed* and it was total nonsense!
 - Can the porn-gangs of Dénia make people sick by rewriting the chips to produce low-volume frequencies on hacked devices?
 - Is this another way they make you sexually aroused too?
