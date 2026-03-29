@@ -557,6 +557,23 @@ function googleTranslateElementInit() {
 - I started to notice how Sandra referred to men: they were a "French", or an "English", ... a human male described only by their nationality.
 - It was impersonal, and felt like you might start counting them, or something.
 
+### The recruiter calls me while I'm visiting the bees
+
+- I wonder if they put the spy-cams into my hotel room - in prep for the [Viscos climb hoped-for random sex](#climbing-the-viscos) - while I visited the bees.
+- I remember I was high that day, and I guess it's easy for them to come in and out of a hotel room quickly to add drugs or poisons or whatever.
+- But setting up a networked system of spy-cams in a hotel room is going to be much trickier, and need more time.
+- A recruiter from crypto-recruiting firm https://plexusrs.com/ that had secured the dodgy role for me at [Qredo](../2021/march.md#qredo) called me out of the blue while I was at the bees shop in Cauterets.
+- He wanted to talk.
+- He didn't have a role for me.
+- I think he had contacted me online maybe that morning, and asked for a time to talk, and I had told him I was going out so he said he'd call the following morning, or something like that.
+- And then, when I was out at lunchtime, he called.
+- He had nothing to say.
+- And it took over an hour for him to say it.
+- There was no reason for us to have this chat over the phone, or anywhere in fact.
+- I sat watching the bees chatting away to this man, as if I was on something, which undoubtedly I was.
+- He never contacted me again.
+- I can't remember his name - they seem to use made up names over there anyway - but I can describe him as a sort of wild-man redhead, certainly with a moustache and maybe a beard too, it's difficult to remember.
+
 ## Fighting back
 
 - I realize that Domingo, the trumpet teacher, and all their mates from Dénia are continuing to harass me online.
