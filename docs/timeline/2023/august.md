@@ -511,12 +511,12 @@ function googleTranslateElementInit() {
 - The guide met me at the mountain shop in Cauterets and off we went.
 - We drove to Viscos village and parked at the ski lift and started our ascent.
 - Something was making me feel extraordinarily sexually aroused that afternoon.
-- I had my mobile with me, on, and this was the first moment I suspected sub-audio hacking with possibly my own orgasm sounds played back to me plus trigger frequencies already set up.
+- I had my mobile with me, on, and this was the first moment I suspected (or felt I had proof of) sub-audio hacking for emotional manipulation, using possibly my own orgasm sounds playing back to me plus trigger frequencies already set up - or whatever they do.
 - That's what I thought; I reckon I was right.
 - I think the guide was feeling it too.
 - And, I think he was meant to.
-- Over the course of the day, on occasions, the sexual arousal I was experiencing became rather intense - mobile tower in sight maybe. And at these moments, the guide would step away from me, keep his distance.
-- I noticed it because it was in pattern with the visceral waves of sexual arousal.
+- Over the course of the day's hike, on occasions, the sexual arousal I was experiencing became rather intense - mobile tower in sight maybe. And at these moments, the guide would step away from me, and keep his distance till it dropped off.
+- I noticed it because his behavior was in pattern with the visceral waves of sexual arousal I was feeling.
 - When I had gone to the shop in the morning to meet him there was a curious energy between us I couldn't quite fathom.
 - Throughout the day, we chatted a lot and got on really well.
 - He told me quite personal things about himself; that he was divorced and shared parenting with his ex-wife.
@@ -525,28 +525,28 @@ function googleTranslateElementInit() {
 - He went quiet at that point.
 - I even told him that [I had wanted to apply to the Tarbes conservatory](../2021/august.md#all-my-french-correspondence-ignored) but I never got a reply to any emails or letters.
 - He went even more quiet at that point; in a way I noted as peculiar.
-- What I mean to say, is in our conversation, it was a two way thing: I said something, he said something, etc.
-- But when I mentioned studying the piano, and the conservatory, he went totally silent, and there was a discomfort about it, like something wasn't being said.
+- What I mean to say is, in our conversation, it was a two way thing: I said something, he said something, etc.
+- But whenever I mentioned studying the piano, and the conservatory in Spain, he went totally silent, and there was a discomfort about it, like something wasn’t being said.
 - Nevertheless, it seemed we had a lot in common, but he never made a move.
 - I wasn't interested and would have declined, even though I was feeling extraordinarily sexually aroused, but I was very clear it wasn't anything to do with this man.
 - But, I now expect I was "supposed" to think it was to do with him, and to end up in bed with him that afternoon when we got back, where he would take off his cap and be completely and unexpectedly bald, and my shocked facial expressions would all be filmed somehow (perhaps in the spy-cams they'd set up in my hotel room).
 - They must be so organized and advanced at their sedating-women-and-children game, they can even drum up subscriptions for live-action activity like this.
 - I did see [Rocio Vidal](../2024/september.md#rocio-vidal) in Cauterets the following year, after all.
-- I imagine Rocio was someone thousands of porn-addicts requested to see naked.
+- I imagine Rocio was someone thousands of Spanish porn-addicts requested to see naked.
 - That's how it works, isn't it.
 - Anyway.
-- When I got back to my hotel after climbing the Viscos mountain (I knew there was something big about this mountain), I had to masturbate urgently!
+- When I got back to my hotel after climbing the Viscos mountain (I knew there was something extraordinary about this mountain), I had to masturbate urgently!
 - A little later, I popped out to the shop and bumped into the agents staying in the room next to mine.
-- I didn't know they were agents at the time, of course, but they looked at me in a very knowing way.
-- I know now that they were agents because I see agents near enough everywhere and anywhere I stay in the world, and have done since December 2024, and they always look at me like this!
+- I didn’t know they were agents at the time, of course, but they looked at me in a very curious way I did not forget.
+- I know now that they were agents because I see agents near enough everywhere and anywhere I am in the world, and I have done since December 2024, and they always look at me like this!
 - My very own security team.
 - <3
-- In the summer of 2024, I climb the Viscos again with a guide from the same mountain shop.
+- In the summer of 2024, I climb the Viscos again with another guide from the same mountain shop.
 - I should point out the reason I paid a lot of money for a guide is because my feet were so unbalanced during this time.
 - I felt terribly unstable and there's a precipitous bit.
-- The instability was a side effect of the sedating drugs I believe.
+- The instability is a side effect of the sedating drugs, corroborated by one of the British expat walkers I believe was also being regularly sedated in her home.
 - The guide in 2024, Aurelio, said something about how the *Spanish are crazy*, which I thought was curiously relevant.
-- Does every porn-addict in the world know who I am, and do they tell all the non-porn-addict men they know too?
+- Does every porn-addict in the world know who’s a sedated-and-raped sex slave; and do they tell all the uninterested men they know too (like alcoholics who don't want to drink alone), and those men then do nothing at all about it, and the monsters get worse and set up porn-studios in schools and things like that?
 
 ### Sandra very interested in the guide
 
