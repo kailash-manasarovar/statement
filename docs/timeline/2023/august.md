@@ -550,11 +550,12 @@ function googleTranslateElementInit() {
 
 ### Sandra very interested in the guide
 
-- I met Sandra Diaz shortly afterwards and she was overly interested in the guide.
-- She spoke about him as if he was a potential lover.
-- Aside from the sexual arousal, I had not thought about him in this way.
-- I noticed how Sandra spoke about men: they were a "French", or an "English", ... a human described only by their nationality.
-- It was very impersonal.
+- I met Sandra Diaz shortly afterwards.
+- She was overly interested in the guide.
+- She spoke about him as if he was a potential lover for me.
+- Aside from the sexual arousal, I had not thought about him in this way so it was a bit surprising to hear her speak about this man in this way.
+- I started to notice how Sandra referred to men: they were a "French", or an "English", ... a human male described only by their nationality.
+- It was impersonal, and felt like you might start counting them, or something.
 
 ## Fighting back
 
