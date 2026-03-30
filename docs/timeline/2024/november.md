@@ -363,10 +363,10 @@ function googleTranslateElementInit() {
 - It's a continuous threat.
 - It's around now I start to shudderingly wonder if I'm some sort of spy-cam porn star?
 
-### But, I have help, too
+### But I have help, too
 
-- It's around this time I also start to notice I'm getting help.
-- I'm certain a group of people warned me about the poisons in my toiletries in a curious way; just like something teachers and staff at the conservatory might do, [a choreographed skit](#the-blind-man), but for good purposes.
+- It's around this time I start to notice I'm getting help.
+- I'm certain a group of people warned me about the poisons in my toiletries in a curious way; just like something teachers and staff at the conservatory might do - [a choreographed skit](#the-blind-man), but for good purposes.
 - It's only in retrospect and with a clear mind that I'm able to tie all this together rationally.
 - It looks like [my handwritten letters](august.md#the-handwritten-letters) had an impact somehow, and I was being taken seriously.
 - As well as the porn-gangs, other people had started watching everything I was doing too; friendly people.
@@ -376,7 +376,7 @@ function googleTranslateElementInit() {
 - It's comforting.
 - But I do wish it were over, and that people were arrested, and that Spanish children and the children of visitors to Spain are safe again.
 
-#### Hackers seem to be annoyed
+#### The hackers are annoyed
 
 - A direct message pops up on my X UI: "Who's paying you?", it says.
 - This sort of comment from hackers - I believe this was Hazel directly - made me even more sure that my situation had shifted into something new.
