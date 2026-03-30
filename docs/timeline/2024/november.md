@@ -368,11 +368,13 @@ function googleTranslateElementInit() {
 - It's around this time I also start to notice I'm getting help.
 - I'm certain a group of people warned me about the poisons in my toiletries in a curious way; just like something teachers and staff at the conservatory might do, [a choreographed skit](#the-blind-man), but for good purposes.
 - It's only in retrospect and with a clear mind that knows the truth that I'm able to tie all this together rationally.
-- It looks like my handwritten letters had an impact, and someone was taking me seriously and started watching everything I do.
+- It looks like my handwritten letters had an impact somehow, and I was being taken seriously.
+- It felt like as well as the porn-gangs, other people had started watching everything I was doing too; friendly people.
 - This has been the state of my life ever since. 
-- I'm not only hacked my the criminal gangs, but I also appear to be hacked by numerous international law enforcement organizations interested in what's been going on and very interested in the conversations I've been having with criminals online.
+- I've never been too sure who it is that's helping; I suspect the FBI or similar.
+- I'm not only hacked my the criminal porn-gangs anymore, but I also appear to be hacked by numerous international law enforcement organizations interested in what's been going on and very interested in the conversations I've been having with these criminals online.
 - It's comforting.
-- But I wish it were over and people were nicked and the children were safe.
+- But I do wish it were over, and that people were arrested, and that Spanish children and the children of visitors to Spain are safe again.
 
 ### Writing my police statement
 
