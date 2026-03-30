@@ -376,6 +376,12 @@ function googleTranslateElementInit() {
 - It's comforting.
 - But I do wish it were over, and that people were arrested, and that Spanish children and the children of visitors to Spain are safe again.
 
+#### Hackers seem to be annoyed
+
+- A direct message pops up on my X UI: "Who's paying you?", it says.
+- This sort of comment from hackers - I believe this was Hazel directly - made me even more sure that my situation had shifted into something new.
+- [Hazel Smith](../2001-to-2010/2007.md#hazel-smith), and others, end up having a long conversation with me in Thailand; every word of it monitored by law enforcement.
+
 ### Writing my police statement
 
 - I start writing a full draft of what's happened to me over the last few years in Denia.
@@ -408,10 +414,6 @@ function googleTranslateElementInit() {
 - The account details show sniffing dogs (Cano Lopez) and have a clear reference to death: RIP.
 
 ![Account details have RIP and sniffing dogs](../../content/images/threats/image_123655411.JPG)
-
-### Hackers seem to be annoyed
-
-- A direct message pops up: "Who's paying you?"
 
 ### Kidney health test
 
