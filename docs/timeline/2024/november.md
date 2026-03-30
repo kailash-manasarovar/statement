@@ -361,7 +361,7 @@ function googleTranslateElementInit() {
 - This happens multiple times while I'm in Bangkok.
 - Whenever I leave the hotel, I'm certain I'm being followed, and they're not being very clandestine about it either; they want me to know.
 - It's a continuous threat.
-- It's around now I start to shudderingly wonder if I'm some sort of sedated porn star?
+- It's around now I start to shudderingly wonder if I'm some sort of spy-cam porn star?
 
 ### But, I have help, too
 
