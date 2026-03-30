@@ -334,9 +334,9 @@ function googleTranslateElementInit() {
 
 ## Bangkok
 
-- On 7th or so of this month, I return to Madrid from London and fly to Thailand, a trip I had arranged for some time.
+- On the 7th or so of this month, I return to Madrid from London and fly to Thailand, a trip I had arranged for some time.
 - I was lucky and wealthy enough at the time to be able to organize prolonged trips away from my home in Dénia while trying to solve this hideous problem I was having with the people there.
-- I can't imagine how the thousands of other victims have dealt with the same constant attacks.
+- I can't imagine how the thousands of other victims have dealt with the same constant and vicious attacks with nowhere else to go.
 - I guess many of them are backed into a corner with no option but to do porn, or whatever it is the gangs want.
 - I stay at the Citadines Sukkumvit Soi 8 hotel in Bangkok for around three weeks.
 - I like it there, the staff are great and the restaurant is good too.
@@ -345,8 +345,8 @@ function googleTranslateElementInit() {
 - I think something must be going on in her life to make her so unhappy and I try to be kind towards her.
 - One night, late, I hear a small child scream in pain repeatedly, loudly, from a bedroom down the hall.
 - I shudder.
-- It's too much to process while I'm starting to write this police statement and still feeling unwell from something.
-- I believe now I was shepherded online to this accommodation specifically by the porn-gangs so that they knew where I was and what I was doing.
+- It's too much to process while I'm starting to write this police statement and I'm still feeling unwell for some reason too.
+- I believe now I was shepherded online to this accommodation specifically by the porn-gangs so that they knew where I was and what I was doing, and that they used it for *other stuff* too.
 
 ### Porn-addicts of Bangkok out in force
 
