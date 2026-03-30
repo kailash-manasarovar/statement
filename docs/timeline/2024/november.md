@@ -366,13 +366,13 @@ function googleTranslateElementInit() {
 ### But I have help, too
 
 - It's around this time I start to notice I'm getting help.
-- I'm certain a group of people warned me about the poisons in my toiletries in a curious way; just like something teachers and staff at the conservatory might do - [a choreographed skit](#the-blind-man), but for good purposes.
+- I'm certain a group of people warned me about the poisons in my toiletries in a curious way; just like something teachers and staff at the conservatory might do - [a choreographed skit](#the-blind-man), but for good purposes instead of evil.
 - It's only in retrospect and with a clear mind that I'm able to tie all this together rationally.
 - It looks like [my handwritten letters](august.md#the-handwritten-letters) had an impact somehow, and I was being taken seriously.
 - As well as the porn-gangs, other people had started watching everything I was doing too; friendly people.
 - This has been the state of my life ever since. 
-- I've never been too sure who it is that's been helping me; I suspect the FBI or similar.
 - I'm not only hacked my the criminal porn-gangs anymore, but I also appear to be hacked by numerous international law enforcement organizations interested in what's been going on and very interested in the conversations I've been having with these criminals online.
+- I've never been too sure who it is that's been helping me; I suspect the FBI or similar.
 - It's comforting.
 - But I do wish it were over, and that people were arrested, and that Spanish children and the children of visitors to Spain are safe again.
 
@@ -381,12 +381,6 @@ function googleTranslateElementInit() {
 - A direct message pops up on my X UI: "Who's paying you?", it says.
 - This sort of comment from hackers - I believe this was Hazel directly - made me even more sure that my situation had shifted into something new.
 - [Hazel Smith](../2001-to-2010/2007.md#hazel-smith), and others, end up having a long conversation with me in Thailand; every word of it monitored by law enforcement.
-
-### Writing my police statement
-
-- I start writing a full draft of what's happened to me over the last few years in Denia.
-- I decide to make a website of it, save it in git, and then use cloudflare to publish it.
-- I WayBack machine all the pages after updates.
 
 ### Hiring a lawyer to help me with Polygon's illegal dismissal
 
@@ -403,6 +397,10 @@ function googleTranslateElementInit() {
 - I have a sensation that this is not the end of this story with this lawyer and Polygon, and I must wait till next year.
 - Something I trust implicitly is telling me not to worry.
 - I feel protected and guided, and I can get on with drafting this police statement without this distraction.
+
+#### The Spanish embassy in Bangkok
+
+- wip
 
 ### A threat to my brother's life
 
