@@ -355,10 +355,11 @@ function googleTranslateElementInit() {
 - One afternoon, I visit Lumpini Park in Bangkok.
 - Looking back, I was high that day.
 - The "Find My" app suddenly pops up asking whether I want to remove it or not.
-- I'm still being tracked.
+- There's weirdly parallel activity online on my mobile and in the park itself.
+- I'm still being tracked and followed.
 - A man walks past me making [the same face I made while masturbating in my bathroom in Carrer Furs back in July](july.md#opening-my-mouth).
 - This happens multiple times while I'm in Bangkok.
-- Whenever I leave the hotel, I feel I'm being followed, and they're not being very clandestine about it; i.e. they want me to know.
+- Whenever I leave the hotel, I'm certain I'm being followed, and they're not being very clandestine about it either; they want me to know.
 - I'm under continuous threat.
 
 ### But, I have help, too
