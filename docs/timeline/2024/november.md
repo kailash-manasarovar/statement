@@ -350,13 +350,16 @@ function googleTranslateElementInit() {
 
 ### Porn-addicts of Bangkok out in force
 
-- Hackers post fake accounts with information from emails I have just written or conversations I have just had.
-- I visit Lumpini Park in Bangkok.
-- The "Find My" app suddenly appears asking whether I want to remove it or not.
+- I realize pretty quickly I'm being watched very closely by the porn-gangs while I'm in Bangkok; online and in person.
+- Hackers post fake accounts with information from emails I have just written, or actual in-person conversations I have just had, like before.
+- One afternoon, I visit Lumpini Park in Bangkok.
+- Looking back, I was high that day.
+- The "Find My" app suddenly pops up asking whether I want to remove it or not.
 - I'm still being tracked.
-- A man walks past me making [the same porn faces I made in my bathroom in July](july.md#opening-my-mouth) back at me.
-- This happens multiple times in Bangkok.
-- Whenever I leave the hotel, I feel I'm being followed and they're not being very clandestine about it; i.e. they want me to know I'm being followed.
+- A man walks past me making [the same face I made while masturbating in my bathroom in Carrer Furs back in July](july.md#opening-my-mouth).
+- This happens multiple times while I'm in Bangkok.
+- Whenever I leave the hotel, I feel I'm being followed, and they're not being very clandestine about it; i.e. they want me to know.
+- I'm under continuous threat.
 
 ### But, I have help, too
 
