@@ -334,13 +334,40 @@ function googleTranslateElementInit() {
 
 ## Bangkok
 
-- On 7th or so of this month, I return to Madrid to fly to Thailand, a trip I had arranged for some time.
-- I stay at the Citadines Sukkumvit Soi 8 hotel.
-- I wonder if the gangs have directed me to stay at this hotel.
+- On 7th or so of this month, I return to Madrid from London and fly to Thailand, a trip I had arranged for some time.
+- I was lucky and wealthy enough at the time to be able to organize prolonged trips away from my home in Dénia while trying to solve this hideous problem I was having with the people there.
+- I can't imagine how the thousands of other victims have dealt with the same constant attacks.
+- I guess many of them are backed into a corner with no option but to do porn, or whatever it is the gangs want.
+- I stay at the Citadines Sukkumvit Soi 8 hotel in Bangkok for around three weeks.
+- I like it there, the staff are great and the restaurant is good too.
+- I don't like the area so much; there's a lot of very open prostitution and white Western men taking advantage of it.
 - The cleaner looks like she has been crying, every morning.
-- One night, I hear a small child scream in pain repeatedly, extremely loudly, from a bedroom down the hall.
+- I think something must be going on in her life to make her so unhappy and I try to be kind towards her.
+- One night, late, I hear a small child scream in pain repeatedly, loudly, from a bedroom down the hall.
 - I shudder.
-- It's too much to process while I'm writing my police statement.
+- It's too much to process while I'm starting to write this police statement and still feeling unwell from something.
+- I believe now I was shepherded online to this accommodation specifically by the porn-gangs so that they knew where I was and what I was doing.
+
+### Porn-addicts of Bangkok out in force
+
+- Hackers post fake accounts with information from emails I have just written or conversations I have just had.
+- I visit Lumpini Park in Bangkok.
+- The "Find My" app suddenly appears asking whether I want to remove it or not.
+- I'm still being tracked.
+- A man walks past me making [the same porn faces I made in my bathroom in July](july.md#opening-my-mouth) back at me.
+- This happens multiple times in Bangkok.
+- Whenever I leave the hotel, I feel I'm being followed and they're not being very clandestine about it; i.e. they want me to know I'm being followed.
+
+### But, I have help, too
+
+- It's around this time I also start to notice I'm getting help.
+- I'm certain a group of people warned me about the poisons in my toiletries in a curious way; just like something teachers and staff at the conservatory might do, [a choreographed skit](#the-blind-man), but for good purposes.
+- It's only in retrospect and with a clear mind that knows the truth that I'm able to tie all this together rationally.
+- It looks like my handwritten letters had an impact, and someone was taking me seriously and started watching everything I do.
+- This has been the state of my life ever since. 
+- I'm not only hacked my the criminal gangs, but I also appear to be hacked by numerous international law enforcement organizations interested in what's been going on and very interested in the conversations I've been having with criminals online.
+- It's comforting.
+- But I wish it were over and people were nicked and the children were safe.
 
 ### Writing my police statement
 
@@ -375,25 +402,6 @@ function googleTranslateElementInit() {
 
 ![Account details have RIP and sniffing dogs](../../content/images/threats/image_123655411.JPG)
 
-### Porn-addicts of Bangkok out in force
-
-- Hackers post fake accounts with information from emails I have just written or conversations I have just had.
-- I visit Lumpini Park in Bangkok.
-- The "Find My" app suddenly appears asking whether I want to remove it or not. I'm still being tracked.
-- A man walks past me making porn faces at me.
-- This happens multiple times in Bangkok.
-
-### But I have help, too
-
-- It's around this time I start to notice I'm getting help.
-- I feel a group of people warned me about the poisons in my toiletries in a curious way; just like something teachers and staff at the conservatory might do, a choreographed skit, but for good purposes.
-- It's only in retrospect and with a clear mind that knows the truth that I'm able to tie all this together rationally.
-- It looks like my handwritten letters had an impact, and someone was taking me seriously and started watching everything I do.
-- This has been the state of my life ever since. 
-- I'm not only hacked my the criminal gangs, but I also appear to be hacked by numerous international law enforcement organizations interested in what's been going on and very interested in the conversations I've been having with criminals online.
-- It's comforting.
-- But I wish it were over and people were nicked and the children were safe.
-
 ### Hackers seem to be annoyed
 
 - A direct message pops up: "Who's paying you?"
@@ -419,6 +427,10 @@ function googleTranslateElementInit() {
 - I wonder if it could be so I do not have enough hair to get a decent sample when I get my drugs test and find out it is negative.
 - Fortunately, I already got a sample.
 - The hairdresser notices where I was hacking away and makes a comment about it.
+
+### Still unwell
+
+- Something's making me unwell still.
 
 ### The blind man
 
