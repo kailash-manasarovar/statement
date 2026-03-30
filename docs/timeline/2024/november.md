@@ -360,7 +360,8 @@ function googleTranslateElementInit() {
 - A man walks past me making [the same face I made while masturbating in my bathroom in Carrer Furs back in July](july.md#opening-my-mouth).
 - This happens multiple times while I'm in Bangkok.
 - Whenever I leave the hotel, I'm certain I'm being followed, and they're not being very clandestine about it either; they want me to know.
-- I'm under continuous threat.
+- It's a continuous threat.
+- It's around now I start to shudderingly wonder about how famous I really am, and if I'm some sort of sedated porn star?
 
 ### But, I have help, too
 
