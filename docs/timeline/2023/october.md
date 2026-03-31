@@ -176,6 +176,7 @@ function googleTranslateElementInit() {
 
 - It's a Saturday.
 - I'm up early and on Twitter waiting for the usual stalker-game to begin.
+- Too early, perhaps.
 - Suddenly, I see posts coming in from Israel, many of them with live-streamed video footage.
 - I can't believe what I'm seeing.
 - It's like I'm there.
@@ -212,8 +213,10 @@ function googleTranslateElementInit() {
 ![Naama and Greta](../../content/images/naama-and-greta.jpg)
 
 - I felt like signing up to help the IDF.
-- Hackers will have been watching along with me. 
-- I wonder how they felt. Were they jeering along with their kind? Or could a spark of humanity have flashed across their twisted psyches?
+- Hackers will have been watching my reactions. 
+- Did the gangs decide to visit me this day; a golden opportunity to take advantage of the trauma-retriggering?
+- (It'll be in the porn, of course).
+- Did I hear their jeering celebrations in my own sedated mind?
 
 ![Ariel](../../content/images/ariel.jpg)
 
