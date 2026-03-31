@@ -140,31 +140,28 @@ function googleTranslateElementInit() {
 
 [![Hanuman Jayanti](../../content/tweets/november-2023/hanuman-jayanti.png)](https://x.com/1FRGVN/status/1726196382644707724)
 
-### Sandra and the champagne
+### Checking Google search on Sandra's phone
 
-- Sandra was excited about something, celebratory even.
-- *We must drink champagne Katharine*.
-- It was not clear what we were celebrating but nevertheless we went to the Gallia & Londres hotel bar in Lourdes one evening and she bought champagne for us.
-
-![Gallia & Londres hotel bar](../../content/images/gallia-londres-hotel-bar.webp)
-
-- She went to the bar and brought the glasses back with her.
-- While we were sitting drinking champagne, a bunch of people came into the bar (which was pretty empty) and sat in the seats beside us.
-- They were British; scousers I believe.
-- There was about five men and one woman.
-- One of the men starts talking to Sandra.
-- She's talking back but she's not being as flirtatious as she normally is.
-- The man gets annoyed with her and stops talking to her.
-- The group leaves, singing a well known lesbian anthem as they pass us.
-- I think at the time the whole event feels weird, especially the lesbian song.
-- Was I drugged in Lourdes too?
-- After they left, I showed Sandra the `@jctot19` X account that had popped up when I was doing a Google search on the trumpet teacher's name: *Vidal Sastre Sanchez Hornero* during [the novena](#the-novena-prayer).
+- At the Londres & Gallia hotel the evening after it popped up, I showed Sandra the `@jctot19` X account that had popped up when I was doing a Google search on the trumpet teacher's name: *Vidal Sastre Sanchez Hornero* during [the novena](#the-novena-prayer).
 - She goes quiet and looks thoughtful; she says something meaningless about the swimmer's body shape.
 - I ask Sandra if I can borrow her phone to see if the same results come up on her browser for the Google search terms I use as they do on mine.
 - She lets me.
 - The results are exactly the same.
-- Over the next year and more, I sometimes suggest drinking champagne again to Sandra and she strongly declines.
-- Why was she so keen to share a glass of champagne with me that evening?
+
+### Sandra takes a picture of me in my hotel room
+
+- I've had my haircut.
+- Sandra comes up to see my hotel room - and use the toilet.
+- She takes a picture of me - for her sister, she says.
+- *I want to show my sister your beautiful haircut Katharine*, she says.
+- I don't know her sister.
+- Sandra ends up telling me her sister, and mother, are always doing black magic on people, or something like this.
+- I think now it's projection; she's leaky.
+
+### Knowing looks at the Mercure
+
+- I think I got some snickers from a staff member here.
+- I don't think he works here anymore, I haven't seen him, but his wife might.
 
 ## Expecting to see him in Lourdes
 

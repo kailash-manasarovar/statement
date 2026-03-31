@@ -557,6 +557,18 @@ function googleTranslateElementInit() {
 - I started to notice how Sandra referred to men: they were a "French", or an "English", ... a human male described only by their nationality.
 - It was impersonal, and felt like you might start counting them, or something.
 
+#### High again at the restaurant with Sandra
+
+- We go for dinner at the Lourdes sanctuary.
+- I'm high at the dinner table.
+- Very few people are around.
+- I tell Sandra I believe I'm going to have sex with the trumpet teacher; in the middle of the restaurant very loudly.
+- A hush goes over the restaurant and I felt it very strongly.
+- I think someone has spiked me with drugs not long before dinner with Sandra.
+- She doesn't say anything to me about what I've said.
+- The woman server at the restaurant sees Sandra and is clearly angry with her about something.
+- Does the server have the measure of her?
+
 ### The recruiter calls me while I'm visiting the bees
 
 - I wonder if they put the spy-cams into my hotel room - in prep for the [Viscos climb hoped-for random sex](#climbing-the-viscos) - while I visited the bees.

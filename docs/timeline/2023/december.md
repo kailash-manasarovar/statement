@@ -106,18 +106,45 @@ function googleTranslateElementInit() {
 
 - I may be wrong, but he has [that grin](../2022/november.md#walking-in-benijembla-with-the-english-ladies).
 - I know it must have been the 8th because this will have been the only day the Carrefour is open and busy.
+- The man is from Brittany. 
+- He says he works with the security team at the sanctuary of Lourdes.
+- He seems high.
+- He is constantly giggling, in not a good way.
 - Another table starts to talk to us a little. Sandra Rita Diaz says something incredibly bizarre and incongruent about how much she loves animals. This makes them all roll their eyes at her and not speak to us again.
 - We stay a long time and drink wine.
 - We also take a drink from the strange man who says he works in security for the sanctuary.
 - I tell everyone about [Ana in the car with no driver](november.md#ana-in-the-blue-van).
 - I ask everyone if it means the trumpet teacher is in love with me?
 - They all say, yes, it could be.
+- I'm obsessed with this event.
 - Sandra Rita Diaz tells me she thinks she is being poisoned by someone she knows.
 - I don't know how to respond.
 - This is the first time she tells me there are a lot of devil worshippers at the sanctuary.
 - I'm not clear about why she would say something like this either.
 - I tell her about the [men dressed as women I have encountered over the years at the baths](../2024/june.md#lourdes) and serving for the Hospitalité de Lourdes, the organization of which we are both members.
 - She does not respond.
+
+### Sandra and the champagne
+
+- Sandra was excited about something, celebratory even.
+- *We must drink champagne Katharine*.
+- It was not clear what we were celebrating but nevertheless we went to the Gallia & Londres hotel bar in Lourdes one evening and she bought champagne for us.
+
+![Gallia & Londres hotel bar](../../content/images/gallia-londres-hotel-bar.webp)
+
+- She went to the bar and brought the glasses back with her.
+- While we were sitting drinking champagne, a bunch of people came into the bar (which was pretty empty) and sat in the seats beside us.
+- They were British; scousers I believe.
+- There was about five men and one woman.
+- One of the men starts talking to Sandra.
+- She's talking back but she's not being as flirtatious as she normally is.
+- The man gets annoyed with her and stops talking to her.
+- The group leaves, singing a well known lesbian anthem as they pass us.
+- I think at the time the whole event feels weird, especially the lesbian song.
+- Was I drugged in Lourdes too?
+- Over the next year and more, I sometimes suggest drinking champagne again to Sandra and she strongly declines.
+- Why was she so keen to share a glass of champagne with me that evening?
+- Did she get paid that night?
 
 ### Picture of me in my pants on Google search
 
