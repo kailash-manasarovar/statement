@@ -27,12 +27,12 @@ function googleTranslateElementInit() {
 - She lived in the building opposite Mercadona.
 - The woman had a weird way of talking; very *very* fast, and in a curious accent.
 - Was she scared?
-- To me, she seemed just normal, walking her dog; Kevin.
+- To me, she seemed just normal, a little weird perhaps, but just out walking her dog; Kevin.
 - I thought it was just a random occurrence, meeting a nice person in the street and chatting a while.
 - Kevin was excessively over-friendly.
 - She told me he was like that with all the girls.
 - Given I was a drugged sex-slave without my knowledge in a spy-cam ridden apartment, everything and anything that happened while I was there is up for scrutiny, don't you think?
-- And it's not like they're not the most prolific animal porn producers on the planet now, is it?
+- And it’s not like the people of Denia are not the most prolific animal porn producers on the planet now, is it?
 - What in the world could have created a hell like Dénia?
 - Please God, meeting Kevin the dog and his owner was just a random event any normal person going to the shop might experience!
 - If not, it'll be in the porn.
