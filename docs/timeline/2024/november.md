@@ -226,6 +226,10 @@ function googleTranslateElementInit() {
 ## Cacophony coming from my phone
 
 - As I'm driving to Valencia airport, on a particularly dangerous part of the road, my phone suddenly makes an unimaginably loud and alarming noise.
+- I've just overtaken an ambulance.
+
+![Ambulance](../../content/images/ambulance.png)
+
 - The noise goes on for about a minute while I scrabble around to shut the phone off because there's no other way to stop it.
 - Before I do, I see a message saying it's a DANA warning.
 - Except, the DANA storm is over.
