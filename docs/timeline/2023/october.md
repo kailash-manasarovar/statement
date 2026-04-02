@@ -9,12 +9,35 @@ function googleTranslateElementInit() {
 </script>
 
 - Gang and cyber-stalking continues apace.
-- It's relentless and I seem to be experiencing some persecutory evil every minute of the day.
+- It's relentless and I seem to be experiencing some persecutory evil every minute of every day.
 - As a fake X account said to me in September, as if the person running it knew what was going on, "It sounds like they want you trapped and to watch you suffer."
 
 ![Trapped and suffering](../../content/images/trapped-and-suffering.png)
 
 - How would they be watching me, I wonder?
+
+## Kevin
+
+- I started "bumping into" this woman down the road whenever I went to get a takeaway or pop down to the shop.
+- I bumped into her every time I went out for just a couple of weeks; then I never saw her again.
+- She had a little white fluffy dog with her who was terribly friendly.
+
+![Please God they didn't](../../content/images/kevin.jpg)
+
+- She lived in the building opposite Mercadona.
+- The woman had a weird way of talking; very *very* fast, and in a curious accent.
+- Was she scared?
+- To me, she seemed just normal, walking her dog; Kevin.
+- I thought it was just a random occurrence, meeting a nice person in the street and chatting a while.
+- Kevin was excessively over-friendly.
+- She told me he was like that with all the girls.
+- Given I was a drugged sex-slave without my knowledge in a spy-cam ridden apartment, everything and anything that happened while I was there is up for scrutiny, don't you think?
+- And it's not like they're not the most prolific animal porn producers on the planet now, is it?
+- What in the world could have created a hell like Dénia?
+- Please God, meeting Kevin the dog and his owner was just a random event any normal person going to the shop might experience!
+- If not, it'll be in the porn.
+
+![Kevin's house](../../content/images/kevins-house.jpg)
 
 ## Stalked online around the clock
 
