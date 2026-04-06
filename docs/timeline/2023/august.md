@@ -513,9 +513,9 @@ function googleTranslateElementInit() {
 - This was a *massive* short cut, by the way.
 - Something was making me feel extraordinarily sexually aroused that afternoon.
 - Would the guide and I be needing our strength, later on?
-- I had my mobile with me, on, and this was the first moment I suspected (or felt I had proof of) sub-audio hacking for emotional manipulation, using I suspect my own orgasm sounds plus trigger frequencies playing back to me.
+- I had my mobile with me, on, and this was the first moment I suspected (or felt I had proof of) sub-audio hacking for emotional manipulation, using I suspect my own orgasm sounds plus trigger frequencies played back to me.
 - I think the guide was feeling it too.
-- And, I think he was meant to.
+- And, I think he was meant to!
 - Over the course of the day's hike, on occasions, the sexual arousal I was experiencing became ridiculously intense - mobile tower in sight maybe. And at these moments, the guide would step away from me, and keep his distance till it dropped off.
 - I noticed this because his behavior was in pattern with the visceral waves of sexual arousal I was feeling.
 - When I had gone to the shop in the morning to meet him there was a curious energy between us I couldn't quite fathom.
