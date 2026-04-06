@@ -89,6 +89,13 @@ function googleTranslateElementInit() {
 - The card was a little imprecise too because there is no *rape-gang of wands* in the tarot, currently; although perhaps eight of wands suffices, and curiously that did come up the following year when I repeated the session with the same card reader in Glastonbury over the phone.
 - At that time, the card reader said the eight of wands in the environment position signified marriage.
 
+### Wobbly on my feet
+
+- The therapist uses my "exact words" to describe how I'm feeling; the words I used online in notes, or messages, or letters.
+- I just think she's empathic.
+- She's normalizing my constant lack of balance, however.
+- One has to wonder if she was told to use my exact words and, if so, by whom.
+
 ## The landlady changes the bank account for the rent
 
 - At the beginning of August, Bea instructs me to change the bank account I pay my rent into.
