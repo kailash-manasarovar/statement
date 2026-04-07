@@ -32,7 +32,7 @@ function googleTranslateElementInit() {
 - However, there seemed to be some already alerted porn-addicts there.
 - The technician enters my room repeatedly without knocking, knowing I am inside.
 - He makes a silly excuse and snickers when I'm upset about it, then does it again.
-- I tell reception about this and ask the receptionist, who has his name printed on a card at the desk as *Mr Banga*, to tell the management about how I found the technician's behavior threatening.
+- I tell reception about this and ask the receptionist, who has his name printed on a card at the desk as [*Mr Banga*](../2024/august.md#4), to tell the management about how I found the technician's behavior threatening.
 - I wonder if he did.
 - The concierge pack my bags into my car as if they're taking the piss, and after I asked them not to.
 - It's not clear why this is still happening.
