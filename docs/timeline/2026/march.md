@@ -28,8 +28,9 @@ function googleTranslateElementInit() {
 ![Bandol beach](../../content/images/bandol-beach.webp)
 
 - I'd happily live here for a while I reckon, it's gorgeous.
-- Can we stay a month or two here please? - I know squirrel will love it.
-- However, there seemed to be some already alerted porn-addicts there.
+- Can we stay a month or two here please? 
+- I know squirrel will love it.
+- However, on this visit, there seemed to be some already alerted porn-addicts there.
 - The technician enters my room repeatedly without knocking, knowing I am inside.
 - He makes a silly excuse and snickers when I'm upset about it, then does it again.
 - I tell reception about this and ask the receptionist, who has his name printed on a card at the desk as [*Mr Banga*](../2024/august.md#4), to tell the management about how I found the technician's behavior threatening.
