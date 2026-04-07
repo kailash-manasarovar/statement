@@ -516,7 +516,7 @@ function googleTranslateElementInit() {
 - She said something disparaging about them, that they had given her problems, and that they were simply miserable people.
 - I suspect she had something to do with why they were all so collectively unhappy.
 - I wonder if they also knew who and what I was, and what was happening to me, and it upset them?
-- Are Spanish women wholly aware of what their porn-addict men are brazenly doing to female porn-gang targets; drugging, sedating, getting obsessed over, raping, and consuming and paying for the resultant illegal porn?
+- Are Spanish women wholly aware of what their porn-addict men are brazenly doing to female porn-gang targets; drugging, sedating, getting obsessed over, raping, and consuming and paying for the resultant illegal porn, snickering all the way?
 
 #### DAO
 
