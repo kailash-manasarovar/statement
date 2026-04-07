@@ -360,11 +360,14 @@ function googleTranslateElementInit() {
 
 ### Vipasana meditation
 
-- I have been doing Vipasana meditation with [Goenka ji's organization](https://www.dhamma.org/) since the 2004 tsunami.
+- I have been doing Vipasana Buddhist meditation with [Goenka ji's organization](https://www.dhamma.org/) since the 2004 tsunami.
 - I haven't been since 2016, when a wasp stroked my face lovingly, and I only sign up for a few days volunteering over Christmas at the [center near Avila in Spain](https://www.dhamma.org/en/schedules/schsacca).
 - When I arrive, I'm extraordinarily high; out of my mind. This state-of-mind persists the whole time I am at the center.
+- I assume my toiletries are full of drugs; but I also suspect I'm being "topped up" while I'm there.
+- A woman is always hovering about whenever I go to use the showers. She mumbles at me rather than speaks.
+- Is she checking which toiletries are mine?
 - My behavior is erratic and bizarre; not like me at all.
-- I believe it is because I am in love but now I'm not so sure.
+- I believe it is because I am in love but it's obvious to me now I'm out of my mind on drugs.
 - I also have an extraordinary amount of energy and strength. I throw enormous rocks off the back of a truck onto the ground.
 
 ![Throwing rocks](../../content/images/throwing-stones.png)
@@ -373,8 +376,7 @@ function googleTranslateElementInit() {
 
 [![Throwing stones](../../content/tweets/december-2023/shifting-large-stones.png)](https://x.com/1FRGVN/status/1739739485598888427)
 
-- It's possible, probable even, that I was somehow being spiked with substances that might invoke a euphoric, highly sexually aroused state; possibly through my car as the "problem" with the [washing fluid was still happening](september.md#problem-with-my-car). 
-- However, once I'd parked the car, I didn't go back to it for a few days so perhaps my toiletries or supplements had been spiked by people entering my Dénia apartment when I was out.
+- Somehow, I was being spiked with substances that invoke a euphoric, highly sexually aroused state; as well as with my toiletries, it could also be through my car as the "problem" with the [washing fluid was still happening](september.md#problem-with-my-car). 
 - Curiously, just before leaving for Madrid I did report the car magically fixing itself.
 
 [![Car troubles](../../content/tweets/december-2023/car-troubles.png)](https://x.com/1FRGVN/status/1736377650216571250)
@@ -405,9 +407,9 @@ function googleTranslateElementInit() {
 
 #### Spies everywhere
 
-- Of course, hackers will have known that I was going on a short meditation retreat at Christmas from the moment I applied online when bookings opened.
+- Of course, the porn gangs will have known way in advance that I was going on a short meditation retreat at Christmas from the moment I applied online when bookings opened.
 - They had ample time to organize even more outlandish stalking activity; although at that stage I was not able to conceive of a country-wide, never mind international conspiracy.
-- Looking back, it feels like I was the subject of a *mass* stalking conspiracy, tracked via my hacked mobile, followed in person and likely photographed and filmed.
+- Looking back, it feels like I was the subject of a *mass* porn-stalking conspiracy, tracked via my hacked mobile, followed in person and likely photographed and filmed.
 - Could I have been being drugged by stalkers at the retreat?
 - Our bedrooms and belongings were completely free to infiltrate at any time.
 
@@ -425,10 +427,8 @@ function googleTranslateElementInit() {
 - In retrospect, I notice that he looks like [Nati's sailor man](../early-years/2015.md#nati-de-prati-yoga) I see on Facebook in 2025, and I wonder if they are one and the same.
 - It would not surprise me.
 - As with everyone else in this statement, I would recognize him in an instant.
-- Does he know something about why Maria was so ill and the doctors were fobbing her off?
-- He had a very Spanish name but I can't remember what it was. Although he may have said it was Antonio, perhaps because he has been trying to make me think so hard for so long that he is the trumpet teacher.
-- Not in a trillion years buster, and then not.
-- Maria will know who he is and what his name is, if she's still alive.
+- Does he know something about why Maria was so ill and why the doctors were fobbing her off?
+- Maria will know him, I guess, if she's still alive.
 - As we were talking, he mentioned my received pronunciation and my glottal stop. It was curious enough to me to tweet about it the same day.
 
 [![Received pronunciation](../../content/tweets/december-2023/received-pronunciation.png)](https://x.com/1FRGVN/status/1739768159748468855)
@@ -440,6 +440,7 @@ function googleTranslateElementInit() {
 - We had worked together and she witnessed first-hand my exuberance which included singing and saying "said the actress to the bishop" at every available opportunity.
 - Jess had a very pronounced twitch in her eyes.
 - It reminded me of my child sexual abuse PTSD symptoms.
+- Was she putting it on?
 
 #### The Finnish lady
 
@@ -503,6 +504,19 @@ function googleTranslateElementInit() {
     - We had been out one night and he walked a little way towards my home with me, and the whole time he kept blinking and winking at me, while grinning, in an extraordinarily weird manner.
     - So weird, in fact, I mentioned it to the French woman in disgust.
     - The man was Greek and may have been one of the [muscle men](#muscle-men-outside-the-tunnel) I just mentioned.
+
+#### The unhappy Spanish women
+
+- Aside from the few women who did talk to me at the retreat center, there were a bunch of Spanish women in attendance.
+- They had been there for a while already before I arrived.
+- They were extremely miserable, all of them.
+- They didn't talk to me, didn't look at me, hardly acknowledged me at all.
+- I didn't pay attention to this at the time.
+- The [Finnish lady](#the-finnish-lady) had also been there a while before I arrived.
+- She said something disparaging about them, as if they were simply miserable people.
+- I suspect she had something to do with why they were all so collectively unhappy.
+- I wonder if they also knew what was happening to me, and it upset them?
+- Are Spanish women wholly aware of what their porn-addict men are brazenly doing to female porn-gang targets; drugging, sedating, getting obsessed over, raping, and consuming and paying for the resultant illegal porn?
 
 #### DAO
 
