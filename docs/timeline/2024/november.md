@@ -417,6 +417,11 @@ function googleTranslateElementInit() {
 
 ![Account details have RIP and sniffing dogs](../../content/images/threats/image_123655411.JPG)
 
+- I text my brother to tell him immediately.
+- As with every other time I have told him about criminal gangs, he acts disinterested.
+- Does he know they're only after me?
+- Is he one of them?
+
 ### Kidney health test
 
 - Last week in Bangkok I had my kidney checked out and all signs are good, except for my anion gap which is excessively low, 6.0 L mmol/L and could mean bromide, iodide, or salicylate ingestion. Common medical diagnostic tests do not consider cases such as mine.
