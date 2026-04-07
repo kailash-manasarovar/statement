@@ -24,12 +24,18 @@ function googleTranslateElementInit() {
 ## Thalazur Bandol
 
 - I stay a few days at the Thalazur Bandol before driving to Lourdes.
-- There seem to be some already alerted porn-addicts there.
+
+![Bandol beach](../../content/images/bandol-beach.webp)
+
+- I'd happily live here for a while I reckon, it's gorgeous.
+- Can we stay a month or two here please? - I know squirrel will love it.
+- However, there seemed to be some already alerted porn-addicts there.
 - The technician enters my room repeatedly without knocking, knowing I am inside.
-- He snickers when I'm upset about it.
-- I tell reception about this and ask the man, who has his name printed on a card at the desk as *Mr Banga*, to tell the management about this and how I found it threatening.
+- He makes a silly excuse and snickers when I'm upset about it, then does it again.
+- I tell reception about this and ask the receptionist, who has his name printed on a card at the desk as *Mr Banga*, to tell the management about how I found the technician's behavior threatening.
+- I wonder if he did.
 - The concierge pack my bags into my car as if they're taking the piss, and after I asked them not to.
 - It's not clear why this is still happening.
-- I don't think they recognize me as such, I think they've been told about me, maybe via their porn subscriptions like the medics at Moorfields.
+- I don't think they recognize me as such; I think they've been told about me, maybe via their porn subscriptions like [the medics at Moorfields Brent Cross](../2025/march.md#moorfields-eye-hospital).
 - What could be the reason?
-- Are we collecting the horrific scale of it as part of the tidal wave to come?
+- Father. Are You having me collect the horrific scale of what's happened to men as a preliminary step for the tidal wave of healing to come?
