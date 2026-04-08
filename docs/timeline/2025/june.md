@@ -29,7 +29,7 @@
 
 ## My dad's a "legend"
 
-- I take my dad to a gig.
+- I take my dad to a gig where he plays piano.
 - He's unstable on his feet.
 - As he's getting up onto the stage, a man who looks a bit wild runs up to us.
 - *You're a legend*, he tells my dad repeatedly.
