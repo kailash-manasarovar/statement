@@ -27,3 +27,13 @@
 - There is very little else in results.
 - Two days later, and this result is gone.
 
+## My dad's a "legend"
+
+- I take my dad to a gig.
+- He's unstable on his feet.
+- As he's getting up onto the stage, a man who looks a bit wild runs up to us.
+- *You're a legend*, he tells my dad repeatedly.
+- I think, at the time, it's because my dad is so frail yet still out and about doing his hobbies, except this wild man keeps looking at me in a strange way.
+- I now think the man had seen the incest porn and was referring to my dad being a "porn legend"...
+- I wonder how famous he actually is in porn...?
+- Pretty famous, I expect.
