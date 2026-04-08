@@ -386,21 +386,24 @@ function googleTranslateElementInit() {
 - This sort of comment from hackers - I believe this was Hazel directly - made me even more sure that my situation had shifted into something new.
 - [Hazel Smith](../2001-to-2010/2007.md#hazel-smith), and others, end up having a long conversation with me in Thailand; every word of it monitored by law enforcement.
 
-### Hiring a lawyer to help me with Polygon's illegal dismissal
+### Hiring a lawyer to help me fight Polygon's illegal dismissal
 
-- I get a recommendation of a lawyer from a friend who works for Deutsche Bank who made a successful complaint for unfair dismissal some years previous when she was working with another firm.
-- The British lawyer cannot help me as I have a Spanish contract, but she recommends a Spanish lawyer in Madrid who I contact immediately.
+- Polygon have accepted the dismissal is illegal and I intend to fight for my job.
+- I'm also keen to claim for the harassment [I was already discussing with HR](october.md#bullying-ramps-up-at-polygon) including the [sexual harassment at dinner in Bali](may.md#the-pakistani-yorkshire-man).
+- I get a recommendation from a British friend.
+- The British lawyer cannot help me as I have a Spanish contract, but she in turn recommends a Spanish lawyer in Madrid who I contact immediately.
 - The company is [J. A. Cremades Y Associates](https://www.jacremades.com/) based in Madrid.
-- Reading through our correspondence, I start to become suspicious about the Madrid law firm when they mis-hear and re-write important things that I have written to them, in a way which would make me look like a liar.
+- Reading through our correspondence, I start to become suspicious about the Madrid law firm when they repeatedly misread and rewrite important things that I have said in writing in a way which would make me look like a liar.
 - They also appear to be ignoring the sexual harassment claim and referring to it as "opinion".
-- They then appear to be colluding with the company I'm complaining about by only calling witnesses who work for the company, and ignoring [Nadim Kobesi](../2023/november.md#polygon) who was probably working directly for the porn-gangs, the British Pakistani man who made a [violent sexual threat towards me at dinner in Bali](../2024/may.md#bali) who was similarly dubious, and the other sacked writer on my team Anthony who was probably tasked with taking me back to my hotel room every night at the offsite.
+- They then, after meeting Polygon representatives in Barcelona at court, appear to be colluding with the them by only calling witnesses who work for the company, and ignoring [Nadim Kobesi](../2023/november.md#polygon) who was probably working directly for the porn-gangs, the British Pakistani man who made a [violent sexual threat towards me at dinner in Bali](../2024/may.md#bali) who was similarly dubious, and the other sacked writer on my team Anthony who was tasked with making sure I got back to my hotel room every night at the offsite.
 - I fire them.
 - I'm upset about it.
 - It feels just another heavy addition to the overwhelming oppression I have been experiencing.
 - I'm close to tipping into an angry meltdown; something I experience very rarely.
 - At this moment, a sense of calm comes over me and I feel like God is with me. 
-- An idea emerges in my mind, assuring me that this is not the end of this story with this lawyer and Polygon, and I must be patient and wait till next year.
-- Something I trust implicitly is telling me not to worry.
+- An idea emerges in my mind, assuring me that this is not the end of this story with this lawyer and Polygon, and I must be patient and wait till the following year.
+- Thank God, I've no idea about my decades-long history of repeated sedated rape at this time, or that I starred in sedated-rape and drugged spy-cam porn from my hotel room in [Bali that year](may.md#bali).
+- Something powerful in my mind that loves me unconditionally, and that I trust implicitly, is telling me not to worry.
 - I feel protected and guided, and I can get on with drafting my police statement without this horrible distraction.
 
 #### The Spanish embassy in Bangkok
