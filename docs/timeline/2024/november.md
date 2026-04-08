@@ -402,7 +402,7 @@ function googleTranslateElementInit() {
 - I'm close to tipping into an angry meltdown; something I experience very rarely.
 - At this moment, a sense of calm comes over me and I feel like God is with me. 
 - An idea emerges in my mind, assuring me that this is not the end of this story with this lawyer and Polygon, and I must be patient and wait till the following year.
-- Thank God, I've no idea about my decades-long history of repeated sedated rape at this time, or that I starred in sedated-rape and drugged spy-cam porn from my hotel room in [Bali that year](may.md#bali).
+- Thank God I've no idea about my decades-long history of repeated sedated rape at this time, or that I starred in sedated-rape and drugged spy-cam porn from my hotel room in [Bali that year](may.md#bali).
 - Something powerful in my mind that loves me unconditionally, and that I trust implicitly, is telling me not to worry.
 - I feel protected and guided, and I can get on with drafting my police statement without this horrible distraction.
 
