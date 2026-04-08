@@ -502,7 +502,7 @@ function googleTranslateElementInit() {
 - They certainly don't want me working for them while that's happening so they're making sure I will leave my job post-Bali.
 - I don't leave.
 - It's clear to me that something very sinister happened to me in Bali without my knowledge because I was [re-programmed into feeling extraordinarily sexually aroused by the gypsies](april.md#drugged-in-the-street-by-denia-gypsies) just before traveling to Bali.
-- Extraordinarily sinister things happened *with* my conscious awareness too; such as the bizarre meetings with the [Pakistani Yorkshire-man](#the-pakistani-yorkshire-man) who I believe intentionally looks like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) and is supposed to remind me of the Pakistani rape-gangs.
+- Extraordinarily sinister things happened *with* my conscious awareness too; such as the bizarre meetings with the [Pakistani Yorkshire-man](#the-pakistani-yorkshire-man) who I believe intentionally looks like [Jitendra Das](../2001-to-2010/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) and is supposed to remind me of the Pakistani rape-gangs.
 - Was what happened to me in Bali supposed to have happened in [November 2023 with Nadim](../2023/november.md#nadim-kobesi) except something spooked him and he got out quick?
 - I remain high and euphoric and extraordinarily sexually aroused throughout the trip.
 - Every morning at Bali, until I have to replace my shampoo mid-week, I'm unusually sexually aroused and masturbate in the bathroom, often in a curious way (see the [next section](#my-shampoo-goes-missing-from-my-room)).
@@ -517,7 +517,7 @@ function googleTranslateElementInit() {
 - Sometimes, I do yoga at the same time.
 - I have no idea why I would do this; I have never done anything like this before or since in my whole life.
 - I normally don't masturbate. As I may have mentioned, I have been celibate since 2010 and that included masturbation until [April 2023](../2023/april.md#hanuman-jayanti) when the porn-gangs of Dénia started drugging me with aphrodisiacs.
-- Did they manipulate the yoga by setting up a [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) memory trigger with the [Pakistani Yorkshireman that I'm about to meet](#the-pakistani-yorkshire-man)?
+- Did they manipulate the yoga by setting up a [Jitendra Das](../2001-to-2010/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) memory trigger with the [Pakistani Yorkshireman that I'm about to meet](#the-pakistani-yorkshire-man)?
 - Or was I making subconscious connections between things that were happening at the conference and in a sedated state?
 - It's very strange.
 - If I'm in yet more porn, filmed in my hotel bathroom at the Polygon Bali conference, you'll see me masturbating in tree pose.
@@ -547,7 +547,7 @@ function googleTranslateElementInit() {
 - A man sitting in that row looks up, and looks directly at me.
 - He is grinning right at me.
 - The man looks to be Indian. He has long black hair and enormous grinning white teeth. 
-- He looks exactly like [Jitendra Das the yoga teacher](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life); the teeth especially.
+- He looks exactly like [Jitendra Das the yoga teacher](../2001-to-2010/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life); the teeth especially.
 - The man walks over to me; I did not invite him.
 - He introduces himself as Aziz (or similar), a Rust engineer that has started that very day.
 - I'm amazed that someone would start their job on the first day of a conference, and at the conference.

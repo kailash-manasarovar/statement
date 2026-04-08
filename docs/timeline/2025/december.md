@@ -30,7 +30,7 @@
 
 - He holds it taut at both ends, stretching and twisting it.
 - He slaps the bed with it.
-- Just like the [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) lookalike did with his napkin at dinner one night at the [Polygon conference in Bali](../2024/may.md#the-pakistani-yorkshire-man).
+- Just like the [Jitendra Das](../2001-to-2010/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life) lookalike did with his napkin at dinner one night at the [Polygon conference in Bali](../2024/may.md#the-pakistani-yorkshire-man).
 - It feels too distressing to witness.
 - I ask for guidance.
 - I start thinking about [Winston May & Nicky](../../crimes/protagonists/winston-may-and-nicky.md) and remember that in 1989 he had told me they'd both recently traveled to Spain.

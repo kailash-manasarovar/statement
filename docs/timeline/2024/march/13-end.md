@@ -1030,7 +1030,7 @@ function googleTranslateElementInit() {
 
 - Mike Wenham was my boss at my first ever programming job with British Telecom in 2010 in High Wycombe.
 - It had been my sole ambition to be a software engineer and build systems and services to help make the world a better place.
-- I had found it very hard to get a break into software development, even with a PhD in computer science, so I had done professional Java certifications in India in 2010, the same time I "bumped into" [Jitendra Das](../../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life).
+- I had found it very hard to get a break into software development, even with a PhD in computer science, so I had done professional Java certifications in India in 2010, the same time I "bumped into" [Jitendra Das](../../2001-to-2010/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life).
 - When I returned to the UK, I got a job pretty much immediately.
 - Mike told me that my tech interview test had been the best anyone had ever done on it, and he also liked me so gave me the job.
 - Mike had obviously asked the cleaning lady to interrogate me about my romantic life. It was as if he knew about Jitendra already but couldn't come out with it himself or I'd know I'd been hacked, or worse that something more sinister was going on.

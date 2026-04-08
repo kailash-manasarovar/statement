@@ -528,7 +528,7 @@ function googleTranslateElementInit() {
 - They're done with me after Bali, but what did they get from me being in Bali if they already hated me that much?
 - The other team member, Anthony Matlala, sides with Hans once he sees I'm getting no support from my managers, but perhaps he also knows what's really going on. He's good chums with David Z.
 - At a dinner [in Bali, I am threatened with sexual violence from an "apparent" Rust engineer Aziz](../2024/may.md#the-pakistani-yorkshire-man) who has started that week. 
-- He looks exactly like [Jitendra Das](../early-years/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life), the well-known to criminal porn gangs [porn-fatwa star](../2001-to-2010/2003.md#porn-fatwa) and perhaps another set of films everyone will be familiar with.
+- He looks exactly like [Jitendra Das](../2001-to-2010/2010.md#why-i-decided-to-be-celibate-for-the-rest-of-my-life), the well-known to criminal porn gangs [porn-fatwa star](../2001-to-2010/2003.md#porn-fatwa) and perhaps another set of films everyone will be familiar with.
 - This man is set up to meet me by mushroom man, one of Ajay's team just mentioned, and he has clearly been told to target me in this sinister manner.
 - Anthony is at the dinner table when this happens. Is Anthony there to provide a denial?
 
