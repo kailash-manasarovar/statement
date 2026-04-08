@@ -391,16 +391,17 @@ function googleTranslateElementInit() {
 - I get a recommendation of a lawyer from a friend who works for Deutsche Bank who made a successful complaint for unfair dismissal some years previous when she was working with another firm.
 - The British lawyer cannot help me as I have a Spanish contract, but she recommends a Spanish lawyer in Madrid who I contact immediately.
 - The company is [J. A. Cremades Y Associates](https://www.jacremades.com/) based in Madrid.
-- See also [Miguel Angel Piano](../early-years/2014.md#signs-a-spanish-lawyer-is-not-behaving-correctly).
-- Reading through our correspondence, I start to become suspicious about the Madrid law firm when it becomes obvious they are mis-hearing and re-writing important things I have said, which would make me look like a liar.
+- Reading through our correspondence, I start to become suspicious about the Madrid law firm when they mis-hear and re-write important things that I have written to them, in a way which would make me look like a liar.
 - They also appear to be ignoring the sexual harassment claim and referring to it as "opinion".
-- They then appear to be colluding with the company I'm complaining about by only calling witnesses who work for the company, and ignoring [Nadim Kobesi](../2023/november.md#polygon) who may have been working for the porn-gangs, the British Pakistani man who made a [violent sexual threat towards me at dinner in Bali](../2024/may.md#bali) who again may have been working for the porn gangs via Polygon management, and the other sacked writer on my team Anthony who was there at the time who very likely would not have lied about what happened.
+- They then appear to be colluding with the company I'm complaining about by only calling witnesses who work for the company, and ignoring [Nadim Kobesi](../2023/november.md#polygon) who was probably working directly for the porn-gangs, the British Pakistani man who made a [violent sexual threat towards me at dinner in Bali](../2024/may.md#bali) who was similarly dubious, and the other sacked writer on my team Anthony who was probably tasked with taking me back to my hotel room every night at the offsite.
 - I fire them.
-- I'm upset about this. I feel this addition to the overwhelming oppression I have experienced could tip me into an angry meltdown; something I experience very rarely.
+- I'm upset about it.
+- It feels just another heavy addition to the overwhelming oppression I have been experiencing.
+- I'm close to tipping into an angry meltdown; something I experience very rarely.
 - At this moment, a sense of calm comes over me and I feel like God is with me. 
-- I have a sensation that this is not the end of this story with this lawyer and Polygon, and I must wait till next year.
+- An idea emerges in my mind, assuring me that this is not the end of this story with this lawyer and Polygon, and I must be patient and wait till next year.
 - Something I trust implicitly is telling me not to worry.
-- I feel protected and guided, and I can get on with drafting this police statement without this distraction.
+- I feel protected and guided, and I can get on with drafting my police statement without this horrible distraction.
 
 #### The Spanish embassy in Bangkok
 
