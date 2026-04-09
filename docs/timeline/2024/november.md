@@ -429,7 +429,7 @@ function googleTranslateElementInit() {
 - I meet the ambassador to sign the document.
 - As I walk into Spanish territory, I have a feeling people are interested in me, coming out to have a look.
 - I wonder why.
-- Prior to doing meeting the ambassador, I realized that a power of attorney document would give the Madrid lawyers, potentially, total control over my life; so I make sure to add a clause to the document saying it applies to the matter concerning Polygon's illegal dismissal alone, and no other matter.
+- Prior to meeting the ambassador, I realized that a power of attorney document would give the Madrid lawyers, potentially, total control over my life; so I make sure to add a clause to the document saying it applies to the matter concerning Polygon's illegal dismissal alone, and no other matter.
 
 ![Power of attorney](../../content/images/polygon/power-of-attorney.jpg)
 
