@@ -433,6 +433,11 @@ function googleTranslateElementInit() {
 
 ![Power of attorney](../../content/images/polygon/power-of-attorney.jpg)
 
+#### Travel expenses
+
+- The lawyer asks for travel expenses to Barcelona and [sends a bill](../../content/images/polygon/cremada-lawyers-madrid.pdf).
+- I'm a bit surprised as I just paid them thousands of euros for their services which I had assumed would include court attendance.
+
 ### A threat to my brother's life
 
 - On Sunday 10 November, hackers post a fake account containing a threat to my brother's life.
