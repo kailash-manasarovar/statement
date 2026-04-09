@@ -436,16 +436,16 @@ function googleTranslateElementInit() {
 ### A threat to my brother's life
 
 - On Sunday 10 November, hackers post a fake account containing a threat to my brother's life.
-- The profile pic is very clearly my brother.
+- The profile pic is very clearly meant to represent my brother.
 
 ![Brother is in profile pic](../../content/images/threats/image_123650291.JPG)
 
-- The account details show sniffing dogs (Cano Lopez) and have a clear reference to death: RIP.
+- The account details show sniffing dogs (Cano Lopez) and there is a clear reference to death: *RIP*.
 
 ![Account details have RIP and sniffing dogs](../../content/images/threats/image_123655411.JPG)
 
-- I text my brother to tell him immediately.
-- As with every other time I have told him about the criminal gangs and their activity, he acts disinterested.
+- I text my brother to inform him immediately.
+- As with every other time I have told him about the criminal gangs and their activity, including how my life has been in constant danger, he responds with disinterest.
 - Does he know they're only after me?
 - Is he on their payroll too?
 
