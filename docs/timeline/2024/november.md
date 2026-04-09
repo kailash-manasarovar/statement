@@ -388,15 +388,27 @@ function googleTranslateElementInit() {
 
 ### Hiring a lawyer to help me fight Polygon's illegal dismissal
 
-- Polygon have accepted the dismissal is illegal and I intend to fight for my job.
+- Polygon have accepted the dismissal is illegal but go ahead anyway.
+- They're, apparently, firing everyone in the department.
+- They send the letter to my home in Carrer Furs and I do not receive it until I return in February 2025.
+
+![Letter of dismissal](../../content/images/polygon/letter-of-dismissal.jpg)
+![Postal receipt](../../content/images/polygon/receipt-correos.jpg)
+
+- I'm keen to fight them. It's totally out of order and unfair.
 - I'm also keen to claim for the harassment [I was already discussing with HR](october.md#bullying-ramps-up-at-polygon) including the [sexual harassment at dinner in Bali](may.md#the-pakistani-yorkshire-man).
 - I get a recommendation from a British friend.
 - The British lawyer cannot help me as I have a Spanish contract, but she in turn recommends a Spanish lawyer who I contact immediately.
 - The company is [J. A. Cremades Y Associates](https://www.jacremades.com/) based in Madrid.
-- Reading through our correspondence, I start to become suspicious about the Madrid law firm when they repeatedly misread and rewrite important things that I have told them in writing in a way which would make me look like a liar.
-- They also appear to be ignoring the sexual harassment claim and referring to it as "opinion".
-- Furthermore, after meeting Polygon representatives in Barcelona at court, my lawyer appears to be colluding again by *only* calling witnesses who work for the company, and ignoring [Nadim Kobesi](../2023/november.md#polygon) who was probably working directly for the porn-gangs, the British Pakistani man who made a [violent sexual threat towards me at dinner in Bali](../2024/may.md#bali) who was similarly dubious, and the other sacked writer on my team Anthony who had been at the dinner table that night and was tasked with making sure I got back to my hotel room every night at the offsite.
-- I fire them.
+- Reading through our correspondence, I start to become suspicious about the Madrid law firm when they repeatedly misread and rewrite important things that I have told them *in writing* in a way which would make me look like a liar.
+- They also appear to be ignoring the sexual harassment claim and refer to it as "opinion".
+- Furthermore, after meeting Polygon representatives in Barcelona at court, my lawyer appears to be colluding again by *only* calling witnesses who work for the company, and ignoring [Nadim Kobesi](../2023/november.md#polygon) who was probably working directly for the porn-gangs, the British Pakistani man who made a [violent sexual threat towards me at dinner in Bali](../2024/may.md#bali) who was similarly dubious, and the other sacked writer on my team [Anthony](may.md#anthony) who had been at the dinner table that night and was tasked with making sure I got back to my hotel room every night at the offsite.
+
+![Lawyers doc from court](../../content/images/polygon/lawyers-doc.jpg)
+
+- They do however want to call [Hans Bodani](../2023/november.md#hans-bodani), the other member of the team who was [utterly insubordinate towards me, repeatedly, and never dealt with](may.md#post-bali).
+- I find this very interesting and I start to wonder if Hans is still working for Polygon, perhaps as a writer with the Indian side.
+- I fire the lawyers.
 - I'm upset about it.
 - It feels just another heavy addition to the overwhelming oppression I have been experiencing.
 - I'm close to tipping into an angry meltdown; something I experience very rarely.
