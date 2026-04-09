@@ -133,14 +133,15 @@ function googleTranslateElementInit() {
 
 - I register my car in Spain.
 - I do this with a management service.
-- When my license plate arrives, it is 7578 MDK.
+- When my license plate arrives, the registration is 7578 MDK.
 - [Murder Death Kill](https://en.wikipedia.org/wiki/MDK) is a cult computer game, famous from 1981-1997.
 - Could the criminal gangs of old men, with their numerous official contacts and powers of corruption have organized that too?
 
 ![Spanish registration](../../content/images/7578MDK.png)
 
 - I expect so.
-- I wonder if they noticed that the numbers add up to 27? The number for life?
+- I wonder if they noticed that the numbers add up to 27; the number for life?
+- I expect not.
 
 ## Piano classes
 
