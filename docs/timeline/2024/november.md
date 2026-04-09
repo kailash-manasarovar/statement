@@ -435,8 +435,8 @@ function googleTranslateElementInit() {
 
 ### A threat to my brother's life
 
-- On Sunday 10 November, hackers post what I consider a threat to my brother's life.
-- The profile pic is clearly my brother, although the bottom part of this person may be someone else.
+- On Sunday 10 November, hackers post a fake account containing a threat to my brother's life.
+- The profile pic is very clearly my brother.
 
 ![Brother is in profile pic](../../content/images/threats/image_123650291.JPG)
 
@@ -445,9 +445,9 @@ function googleTranslateElementInit() {
 ![Account details have RIP and sniffing dogs](../../content/images/threats/image_123655411.JPG)
 
 - I text my brother to tell him immediately.
-- As with every other time I have told him about criminal gangs, he acts disinterested.
+- As with every other time I have told him about the criminal gangs and their activity, he acts disinterested.
 - Does he know they're only after me?
-- Is he one of them?
+- Is he on their payroll too?
 
 ### Kidney health test
 
