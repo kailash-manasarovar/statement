@@ -437,6 +437,9 @@ function googleTranslateElementInit() {
 
 - The lawyer asks for travel expenses to Barcelona and [sends a bill](../../content/images/polygon/cremada-lawyers-madrid.pdf).
 - I'm a bit surprised as I just paid them thousands of euros for their services which I had assumed would include court attendance.
+- When I fire them, I ask for a refund for the agreed work not yet carried out.
+- They refuse.
+- They badger me endlessly for the travel expenses, and I pay them in January 2026.
 
 ### A threat to my brother's life
 
