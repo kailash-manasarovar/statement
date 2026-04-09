@@ -395,8 +395,10 @@ function googleTranslateElementInit() {
 ![Letter of dismissal](../../content/images/polygon/letter-of-dismissal.jpg)
 ![Postal receipt](../../content/images/polygon/receipt-correos.jpg)
 
-- I'm keen to fight them. It's totally out of order and unfair.
-- I'm also keen to claim for the harassment [I was already discussing with HR](october.md#bullying-ramps-up-at-polygon) including the [sexual harassment at dinner in Bali](may.md#the-pakistani-yorkshire-man).
+- They seem to be saying they're going to get unskilled employees doing other jobs to take over the professional writing function.
+- I'm keen to fight them. 
+- It's totally out of order and unfair.
+- I'm also keen to claim for the constant bullying and harassment [I was already discussing with HR](october.md#bullying-ramps-up-at-polygon) including the [threat of sexual violence at dinner in Bali](may.md#the-pakistani-yorkshire-man).
 - I get a recommendation from a British friend.
 - The British lawyer cannot help me as I have a Spanish contract, but she in turn recommends a Spanish lawyer who I contact immediately.
 - The company is [J. A. Cremades Y Associates](https://www.jacremades.com/) based in Madrid.
@@ -410,13 +412,13 @@ function googleTranslateElementInit() {
 - I find this very interesting and I start to wonder if Hans is still working for Polygon, perhaps as a writer with the Indian side.
 - I fire the lawyers.
 - I'm upset about it.
-- It feels just another heavy addition to the overwhelming oppression I have been experiencing.
+- It's another heavy addition to the overwhelming oppression I have been experiencing.
 - I'm close to tipping into an angry meltdown; something I experience very rarely.
 - At this moment, a sense of calm comes over me and I feel like God is with me. 
 - An idea emerges in my mind, assuring me that this is not the end of this story with this lawyer and Polygon, and I must be patient and wait till the following year.
-- Thank God I've no idea about my decades-long history of repeated sedated rape at this time, or that I starred in sedated-rape and drugged spy-cam porn from [my hotel room in Bali that year](may.md#bali).
+- Thank God I've no idea about my decades-long history of repeated sedated rape at this time, or that I starred in sedated-rape and drugged spy-cam porn direct from [my hotel room in Bali just a few months ago](may.md#bali).
 - Something powerful in my mind that loves me unconditionally, and that I trust implicitly, is telling me not to worry.
-- I feel protected and guided, and I get on with drafting my police statement without this horrible distraction.
+- I feel protected and guided, and I continue drafting my police statement without this horrible distraction.
 
 #### The Spanish embassy in Bangkok
 
