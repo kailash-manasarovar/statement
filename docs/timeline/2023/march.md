@@ -139,6 +139,9 @@ function googleTranslateElementInit() {
 
 ![Spanish registration](../../content/images/7578MDK.png)
 
+- I expect so.
+- I wonder if they noticed that the numbers add up to 27? The number for life?
+
 ## Piano classes
 
 - I'm reminded of the song Misty, I used to play it at university.
