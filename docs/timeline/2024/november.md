@@ -422,7 +422,16 @@ function googleTranslateElementInit() {
 
 #### The Spanish embassy in Bangkok
 
-- wip
+- Since the lawyers need to attend court with Polygon's representatives in Barcelona, and I'm in Thailand, I have to organize a power of attorney.
+- I walk round to the Spanish embassy a few times to organize this; it's just round the corner from where I'm staying.
+- On one occasion, I'm chatting with the official at the desk and I have cause to mention how I have been unimaginably hacked in Spain.
+- His eyes flash concerned recognition.
+- I meet the ambassador to sign the document.
+- As I walk into Spanish territory, I have a feeling people are interested in me, coming out to have a look.
+- I wonder why.
+- Prior to doing meeting the ambassador, I realized that a power of attorney document would give the Madrid lawyers, potentially, total control over my life; so I make sure to add a clause to the document saying it applies to the matter concerning Polygon's illegal dismissal alone, and no other matter.
+
+![Power of attorney](../../content/images/polygon/power-of-attorney.jpg)
 
 ### A threat to my brother's life
 
