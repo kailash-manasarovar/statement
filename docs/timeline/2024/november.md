@@ -436,6 +436,9 @@ function googleTranslateElementInit() {
 #### Travel expenses
 
 - The lawyer asks for travel expenses to Barcelona and [sends a bill](../../content/images/polygon/cremada-lawyers-madrid.pdf).
+
+![Travel expenses](../../content/images/polygon/travel-expenses.jpg)
+
 - I'm a bit surprised as I just paid them thousands of euros for their services which I had assumed would include court attendance.
 - When I fire them, I ask for a refund for the agreed work not yet carried out.
 - They refuse.
