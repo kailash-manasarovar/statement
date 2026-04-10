@@ -505,7 +505,8 @@ function googleTranslateElementInit() {
 - I'm telling this story because I was so upset about it, and couldn't understand why a hairdresser would do such a thing.
 - I had been late 15 minutes to the appointment, so I thought maybe he did it so I'd never come back.
 - But it was too egregious to explain away like that.
-- I think now it must have been because of my political affiliations against child abuse and woman-hating because, somehow, someone managed to poison his view of me to the extent where he would butcher, literally, a woman's hair.
+- Someone managed to poison this man's view of a person he doesn't know to the extent where he would butcher, literally, a woman's hair.
+- This was the era when I had just remembered the sedated anal-rape incest porn and the gangs were doing the suicide manipulation again on my social media, so probably the porn-gangs of North London got to him somehow for an extra psychological wounding, the way they do, is my view.
 
 ### Still unwell
 
