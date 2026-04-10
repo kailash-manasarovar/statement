@@ -462,9 +462,16 @@ function googleTranslateElementInit() {
 
 ### Kidney health test
 
+!!! tip "Kidney health check details"
+    - Below are the exact words I used when I first drafted this section, just three weeks after Carmen Cano Lopez and her mother? or aunt?, and the neighbor Marie Carmen at number 16, tried to murder me, once again, by poisoning at my home in Carrer Furs.
+    - I had the full kidney checkup performed at Bangkok Hospital's kidney department.
+
 - Last week in Bangkok I had my kidney checked out and all signs are good, except for my anion gap which is excessively low, 6.0 L mmol/L and could mean bromide, iodide, or salicylate ingestion. Common medical diagnostic tests do not consider cases such as mine.
 - If I drink one glass of wine, however, I have immediate frothy urine.
 - Update on 2nd December, the froth in my urine has now disappeared even when drinking wine.
+
+![Kidney checkup results](../../content/documents/health/kidney-1.JPG)
+![Kidney checkup results](../../content/documents/health/kidney-2.JPG)
 
 ### An inexplicably bad haircut
 
