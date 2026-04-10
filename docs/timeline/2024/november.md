@@ -485,19 +485,20 @@ function googleTranslateElementInit() {
 - And, she uses the thinning technique to remove great chunks of my hair and thin it out.
 - I am devastated but do not complain because it is so obviously an attack and they'll be ready to fight me.
 - Why would she do this? 
-- Was she told to do this by some porn-addict's lying about me to his missus? The way they do.
+- Was she told to do this by some porn-addict lying about me to his missus? The way they do.
 - I wondered at the time if the reason for doing this was so I do not have enough hair to get another decent sample when [I receive my drugs test and find out it is negative](#drugs-test-results).
-- Fortunately, I already got a sample.
+- Fortunately, I already got a new sample and the hairdresser even noticed where I'd taken it.
 
 #### Another inexplicably bad haircut in N10 in 2025
 
 - In October 2025, I go for a haircut at the Japanese hairdressers in Muswell Hill.
 - I've been before, three times, and they always did a good job.
-- The first time I went, I told the Spanish woman there I had been targeted for porn in Spain by criminal gangs.
-- The second time I went, the Japanese man with the bad skin gave me a really good haircut but I ended up vomiting afterwards in the street. I think this was because I was being constantly drugged and poisoned at that time in London and the pressure on the back of my neck while washing my hair caused nausea and vomiting. It was all yellow like on detox.
+- The first time I went, I told the Spanish woman there I had been targeted for porn in Spain by criminal gangs at a music school.
+- The second time I went, the Japanese man with the bad skin gave me a really good haircut but I ended up vomiting afterwards in the street. I think this was because I was being constantly drugged and poisoned at that time in London and the pressure on the back of my neck while washing my hair caused nausea and vomiting.
+- The vomit was all yellow, just like on detox, and I told Steve about that and he'd prayed for me.
 - The third time I went, a Japanese woman gave me an amazing haircut.
 - The fourth time I went, in October, the man with bad skin purposely hacked my hair to smithereens.
-- He gave me three wobbly partings, a wonky fringe, and then he started thinning it out like the woman had done in Bangkok before I asked him to stop.
+- He gave me three wobbly partings, a wonky fringe, and then he started thinning out the back like the woman had done in Bangkok before I told him to stop.
 - My hair was a total disaster and two months later the next hairdresser I went to was rather alarmed at the state of it and said it would take a good few months to be able to fix properly.
 - I lied and said I'd cut it myself.
 - The next hairdresser I went to in March 2026 was amazed that one side of my hair was really thick and the other not. 
@@ -505,8 +506,8 @@ function googleTranslateElementInit() {
 - I'm telling this story because I was so upset about it, and couldn't understand why a hairdresser would do such a thing.
 - I had been late 15 minutes to the appointment, so I thought maybe he did it so I'd never come back.
 - But it was too egregious to explain away like that.
-- Someone managed to poison this man's view of a person he doesn't know to the extent where he would butcher, literally, a woman's hair.
-- This was the time just after I had realized [the conservatory scam had been a switcheroo porn special](../../crimes/protagonists/vidal-sastre.md#at-least-four), and on the back of that I had quickly remembered [the sedated anal-rape incest porn](../early-years/2015.md#inexplicable-anal-fissure), and the gangs had obviously start up [the suicide manipulation again on my social media](../2025/november.md#suicide-content-on-my-jackchardwood-account), so my view is that the porn-gangs of North London got to him somehow for an extra psychological wounding, the way they do.
+- Someone managed to poison this man's view to the extent where he would butcher, literally, a woman's hair.
+- This was the time just after I had realized [the conservatory scam had been a switcheroo porn special](../../crimes/protagonists/vidal-sastre.md#at-least-four), and on the back of that I had quickly remembered [the sedated anal-rape incest porn](../early-years/2015.md#inexplicable-anal-fissure), and the gangs had obviously cranked up [the suicide manipulation again on my social media](../2025/november.md#suicide-content-on-my-jackchardwood-account), so my view is that the porn-gangs of North London got him to apply an extra psychological wounding somehow, the way they do.
 
 ### Still unwell
 
