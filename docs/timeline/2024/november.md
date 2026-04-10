@@ -475,19 +475,37 @@ function googleTranslateElementInit() {
 
 ### An inexplicably bad haircut
 
-- I go to get my haircut.
-- I tell the hairdresser I am growing my hair so not to take too much off.
-- I also explain that my hair is really fine and I would like some extra body on top so layers are helpful.
-- The woman hacks my hair off in no uncertain terms.
-- She gives me a very short hair cut.
-- She even uses the clippers to remove hair at the back on my hair line.
-- And she uses the thinning technique to remove great chunks of my hair and thin it out.
-- I am devastated but do not complain because it is obviously an attack and they'll be ready to fight me.
+- I go to get my haircut at Terminal 21.
+- I tell the hairdresser I am growing my hair so please not to take too much off.
+- I also explain that because my hair is really fine, I would like some extra body on top.
+- It's obvious my hair is fine to anyone looking.
+- She says no problem, then hacks all my hair off in no uncertain terms.
+- She gives me an extremely short hair cut.
+- She even uses the clippers to shave hair off at the back on my hair line.
+- And, she uses the thinning technique to remove great chunks of my hair and thin it out.
+- I am devastated but do not complain because it is so obviously an attack and they'll be ready to fight me.
 - Why would she do this? 
-- Was she told to do this by someone lying about me? The way they do.
-- I wonder if it could be so I do not have enough hair to get a decent sample when I get my drugs test and find out it is negative.
+- Was she told to do this by some porn-addict's lying about me to his missus? The way they do.
+- I wondered at the time if the reason for doing this was so I do not have enough hair to get another decent sample when [I receive my drugs test and find out it is negative](#drugs-test-results).
 - Fortunately, I already got a sample.
-- The hairdresser notices where I was hacking away and makes a comment about it.
+
+#### Another inexplicably bad haircut in N10 in 2025
+
+- In October 2025, I go for a haircut at the Japanese hairdressers in Muswell Hill.
+- I've been before, three times, and they always did a good job.
+- The first time I went, I told the Spanish woman there I had been targeted for porn in Spain by criminal gangs.
+- The second time I went, the Japanese man with the bad skin gave me a really good haircut but I ended up vomiting afterwards in the street. I think this was because I was being constantly drugged and poisoned at that time in London and the pressure on the back of my neck while washing my hair caused nausea and vomiting. It was all yellow like on detox.
+- The third time I went, a Japanese woman gave me an amazing haircut.
+- The fourth time I went, in October, the man with bad skin purposely hacked my hair to smithereens.
+- He gave me three wobbly partings, a wonky fringe, and then he started thinning it out like the woman had done in Bangkok before I asked him to stop.
+- My hair was a total disaster and two months later the next hairdresser I went to was rather alarmed at the state of it and said it would take a good few months to be able to fix properly.
+- I lied and said I'd cut it myself.
+- The next hairdresser I went to in March 2026 was amazed that one side of my hair was really thick and the other not. 
+- He said, *this side is on steroids*, pointing to the area the Japanese man had not got round to thinning out.
+- I'm telling this story because I was so upset about it, and couldn't understand why a hairdresser would do such a thing.
+- I had been late 15 minutes to the appointment, so I thought maybe he did it so I'd never come back.
+- But it was too egregious to explain away like that.
+- I think now it must have been because of my political affiliations against child abuse and woman-hating.
 
 ### Still unwell
 
