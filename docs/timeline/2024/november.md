@@ -546,7 +546,7 @@ function googleTranslateElementInit() {
 - I feel so unsafe in the world, I decide to get a Hanuman tattoo.
 - That way, he will be with me always.
 - I haven't made any mention about this online, but I have made up my mind to do it.
-- I speak to my mother and I tell her I'm going to get a tattoo in Bangkok.
+- I speak to my mother on my mobile. I tell her I'm going to get a tattoo in Bangkok.
 - Two seconds later, a fake account follows me on Twitter that has a profile pic with a woman with tattoos.
 
 ![woman with tattoos](../../content/images/fake-accounts/woman-with-tattoos-1.png)
