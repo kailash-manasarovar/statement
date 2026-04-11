@@ -515,7 +515,7 @@ function googleTranslateElementInit() {
 - Something's still making me feel very unwell.
 - My vision is blurry and my eyes are red and stinging.
 - Something's affecting my conscious awareness too. I can't explain it.
-- My kidneys ache and I feel unwell just like I did in Carrer Furs; but all the time, not just for specific periods of the day.
+- My kidneys ache and I feel unwell just like I did in Carrer Furs; but *all* the time, not just for specific periods of the day.
 - I am not, however, sexually aroused at all.
 - I don't have time to think about it properly because all my energy is going into writing this police statement.
 - I write for 16 hours a day.
@@ -541,12 +541,22 @@ function googleTranslateElementInit() {
 
 ### Tattoo
 
-- I was on my phone to my mother, telling her I'm going to get a tattoo in Bangkok.
-- Two seconds later, a fake account follows me on Twitter with a woman with tattoos.
+- I have lost my little plastic Hanuman that I was carrying everywhere with me since October 2019 in Rishikesh with Guruji; the one [that fell out of my bag much to the British walkers' delight](../2022/november.md#hanuman-enters-the-picture) once I had started telling them a little about him.
+- Did someone steal it? I'm not sure.
+- I feel so unsafe in the world, I decide to get a Hanuman tattoo.
+- That way, he will be with me always.
+- I haven't made any mention about this online, but I have made up my mind to do it.
+- I speak to my mother and I tell her I'm going to get a tattoo in Bangkok.
+- Two seconds later, a fake account follows me on Twitter that has a profile pic with a woman with tattoos.
 
 ![woman with tattoos](../../content/images/fake-accounts/woman-with-tattoos-1.png)
 
 ![woman with tattoos](../../content/images/fake-accounts/woman-with-tattoos-2.png)
+
+- The back-and-forth conversation between myself and international criminal porn-gangs is beginning.
+- I post a pic of my tattoo when I get it.
+
+[![Hanuman tattoo](../../content/images/hanuman-tattoo.jpg)](https://x.com/1FRGVN/status/1861394044070568000)
 
 ### The landlady
 
