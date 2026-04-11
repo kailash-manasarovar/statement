@@ -560,20 +560,21 @@ function googleTranslateElementInit() {
 
 ### The landlady
 
-- Probably [the same conversation I told my mother about the tattoo](#tattoo), I also told her I was thinking about leaving my apartment in Carrer Furs on 15th February 2025, and handing in notice to the landlady in December.
+- Probably during [the same conversation I told my mother about the tattoo](#tattoo), I also told her I was thinking about leaving my apartment in Carrer Furs on 15th February 2025, and handing in notice to the landlady in December.
 - I told no-one else this and never mentioned it online in personal notes either.
 - The same day, 21st November, I receive a WhatsApp from Beatriz, my landlady, saying I had said I was leaving the flat.
-- I did not say this to her at any time and I was always planning on staying until 2026 or 2027, as she knows.
-- I ask her who told her I'd said that.
-- I mention there is a problem with the water but we can discuss it later.
-- I raised the issue with the [water pipes](../2023/september.md#the-water-pipes) with Beatriz twice already and she has ignored me.
 
 ![Bea wanting to know when I'm leaving](../../content/whatsapps/bea-panic.JPG)
 
+- I did not say this to her at any time and I was always planning on staying until 2026 or 2027, as she knows.
+- I ask her who told her I'd said that.
 - Bea hurriedly responds with a WhatsApp message from March when I was being terrorized by teachers and staff at the conservatory, and I had told her that that was happening and they want me to leave.
 - But since then, we had conversed a few times, including when [she changed the bank account to pay the rent into once again](august.md#the-landlady-changes-the-bank-account-for-the-rent-again), and I never mentioned leaving at that time.
 - She's been told to contact me for information from the criminal porn-gangs.
 - They're probably already planning for a new sedated-sex-slave victim to come and live in the flat; perhaps another woman international porn-addicts have requested to masturbate over like they did with me, and [Rocio Vidal](august.md#6), and countless others.
+- I mention the problem with the water pipes again with Bea.
+- I've raised the issue with the [water pipes](../2023/september.md#the-water-pipes) with Beatriz twice already, and she ignores me every time.
+- The *slow clap* reference is Bea's response to [my YouTube video with Kelly](october.md#youtube-with-kelly-oliver-dougall) after I sent her a link to it.
 
 ### Sunday 24th November - note
 
