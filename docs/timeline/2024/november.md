@@ -513,15 +513,28 @@ function googleTranslateElementInit() {
 ### Still unwell
 
 - Something's making me unwell still.
+- My vision is blurry and my eyes are red and stinging.
+- Something's affecting my conscious awareness too. I can't explain it.
+- My kidneys ache and I feel unwell like I did in Carrer Furs, but all the time not just for specific periods of the day.
+- I don't have time to think about it properly because all my energy is going into writing this police statement.
 
-### The blind man
+#### The blind man and the copper
 
-- I'm walking to the shopping center. I can hardly see.
-- My vision is really blurry, my eyes are red and sore, I feel very unwell.
+- One afternoon, I'm on my way to Terminal 21.
+- I can hardly see.
+- My vision is really blurry, my eyes are red and sore, and I feel very unwell.
 - I see a blind man being led along by two women.
 - He is a tall Western man. The women are Thai.
-- I don't know what happens but this sight makes me suddenly realize that, even though I'm away from my apartment, I'm *still* being poisoned somehow.
-- I throw all my shower gel, shampoo, and face wash away and start to feel better immediately.
+- Then, crossing in front of these three, and in front of me, I see one of the characters from The Bill, one of my favorite TV shows from when I was young.
+- For those who don't know, The Bill was a UK cop show about the Metropolitan Police.
+
+![The Bill](../../content/images/the-bill-characters.avif)
+
+- This *very unusual sight* makes me suddenly realize that, even though I'm away from my apartment in Spain, I'm *still* being poisoned somehow.
+- It's a lightbulb moment; the moment I realize they have been coming into my apartment and adding drugs and poisons to my toiletries and food, for years.
+- This sudden realization explains so much of the last few years; especially my lengthy trips away from Spain in the summer and at Christmas or Easter when I remained high and inexplicably sexually aroused.
+- When I get back to my room, I throw all my shower gel, shampoo, face wash, and toothpaste away.
+- I start to feel better immediately; like the very next day the symptoms have disappeared.
 
 ### Tattoo
 
