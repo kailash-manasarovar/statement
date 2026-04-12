@@ -639,28 +639,42 @@ function googleTranslateElementInit() {
 ![Wounded angel](../../content/images/wounded-angel.jpeg)
 
 - But, the *very intentional* memory trigger didn't hit consciousness until after I had chatted with Brian on Facebook.
-- I think the day after we chatted, the memory flew in and I remembered the unusual incident in Amsterdam where [I had seen the very ugly man in the back of the car](../2001-to-2010/2001.md#amsterdam) as we were driving out of the hotel for the ferry back to the UK.
+- I think the day after we chatted, the memory flew in and I remembered the unusual incident in Amsterdam in 2001 where [I had seen the very ugly man in the back of the car](../2001-to-2010/2001.md#amsterdam) as we were driving out of the hotel for the ferry back to the UK.
 - Of course, I contact Brian immediately again to ask him if he remembers the events.
 - He writes something like, *we were very high in those days", and blocks me.
 - I think nothing of it, or I'm unable to think more on it, because I continue to be drugged clandestinely throughout 2024 and 2025, until October 2025 when I figure out [the switcheroo porn scam](../2025/october.md#thunderbolt-clarity).
 - At that moment, I start to wonder if perhaps I wasn't dreaming that morning, and the strange event with the blindfold lady in the car in front, an ugly man in the car behind, and the drivers looking like two of the trumpet teachers, had happened as I'd remembered it.
 - Was I sedated and raped and filmed back in 2001 in Amsterdam by the same porn-gang that has set up spy-cam porn-networks all over the Marina Alta region including in schools?
 - Why was Hazel told to trigger this memory around the same time as Brian reaches out?
-- Do the gangs realize they've gone top far now and are trying to blame the poisoning, pedophilia and baby-rape industry, never mind the horse porn, all on Ugly and his gang?
+- Do the gangs realize they've gone too far now and are trying to blame the poisoning, pedophilia and baby-rape industry, never mind the horse porn, all on Ugly and his gang?
 - Is this why [he popped up out of the blue in Cauterets](august.md#ugly) in August?
 - Did they offer up Marie's daughter at the same time too; an introduction agent working close to foreigners and the children of Dénia?
 - Did they think they'd be back in business in no time?
 
 #### Brian and Ugly
 
-- Initial groom - was he taking instructions from them, love-triangle, trigger words, etc.
-- Things he said about being told I was a prostitute in Amsterdam.
-- Ugly: did Ugly find a porn addict close to me - the gang's MO (check subscription database) - he could persuade to groom me (cos he knew the money was coming), and there was Brian.
-- I'll have to think about how that was all set up.
-- Back home. One evening with *the boys*.. was it a "date"?
-- One evening when Brian went awol and ended up in a hotel... another "date"?
-- Disasters, drinking, drugs, violence: why was the metal lampshade live with electricity one morning when he was out, with the bulb broken, that I couldn't change cos I couldn't reach it but if I had I'd be dead, that the property manager was extremely suspicious about how it happened, that Brian was very anxious about the property manager's suspicions?
-- How Brian would phone me up drunk years later complaining he hadn't got any of my money.
+- When something weird happens like that - people blocking you at very significant moments, for example - one has to start wondering if something very evil has been going on for a very long time.
+- I looked back over my relationship with Brian.
+- The initial phase of our relationship had some red flags: a love-triangle, trigger words, him saying he'd hear that I was a prostitute in Amsterdam.
+- I remembered Brian and Niall referring briefly to a man they knew; they called him "Ugly".
+- *Oh just someone we know,* they said when I ask about him.
+- Were there other "dates" with Brian?
+- Hazel said something to me one time as `ChoralSymphony`, during one of our chats, that suggests to me there is more porn starring Brian and I, which I hope investigators will find if they haven't already.
+- Brian was very troubled too.
+- On one occasion while we were living together in Hastings, I had gone to the bathroom while he was out and the bulb wasn't working.
+- I went to change it, but I couldn't reach so I didn't bother getting a chair, for some reason I just waited till Brian came back and asked him to do it.
+- Brian asked me to get his electricity current reader before he did it because he thought the lampshade might be live.
+- It was. Very life. Deadly, in fact.
+- I called the property management company and the guy came out to fix it.
+- He kept asking questions because it didn't make sense.
+- Brian became extremely upset and paranoid about the man.
+- We moved from this flat about a month later to a new one. 
+- Eventually, we split up but he would phone me up drunk, years later when I was in Cami Llavador in Dénia, always complaining that he hadn't got any of my money.
+- Was that the whole deal? That he'd get some?
+- I spent an awful lot of money on him.
+- One Christmas, I took him to Thailand, like I have been known to do with people that don't deserve the gift.
+- He didn't even buy me a Christmas card.
+- Anyhoo, it'll all be in the porn.
 
 ## Adding spy-cams to my London address
 
