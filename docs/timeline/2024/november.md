@@ -655,24 +655,26 @@ function googleTranslateElementInit() {
 
 - When something weird happens like that - people blocking you at very significant moments, for example - one has to start wondering if something very evil has been going on for a very long time.
 - I looked back over my relationship with Brian.
-- The initial phase of our relationship had some red flags: a love-triangle, trigger words, him saying he'd hear that I was a prostitute in Amsterdam.
+- The initial phase of our relationship had some red flags: a love-triangle, trigger words, him saying he'd heard that I was a prostitute in Amsterdam.
 - I remembered Brian and Niall referring briefly to a man they knew; they called him "Ugly".
-- *Oh just someone we know,* they said when I ask about him.
+- *Oh just someone we know,* they said when I asked about him.
 - Were there other "dates" with Brian?
-- Hazel said something to me one time as `ChoralSymphony`, during one of our chats, that suggests to me there is more porn starring Brian and I, which I hope investigators will find if they haven't already.
+- Hazel said something to me one time as `@ChoralSymphony`, during one of our chats, that suggests to me there is more porn starring Brian and I, which I hope investigators will find if they haven't already.
 - Brian was very troubled too.
-- On one occasion while we were living together in Hastings, I had gone to the bathroom while he was out and the bulb wasn't working.
+- On one occasion while we were living together in Hastings, I had gone to the bathroom while he was out and the lightbulb wasn't working.
 - I went to change it, but I couldn't reach so I didn't bother getting a chair, for some reason I just waited till Brian came back and asked him to do it.
-- Brian asked me to get his electricity current reader before he did it because he thought the lampshade might be live.
-- It was. Very life. Deadly, in fact.
+- Brian asked me to get his electricity current reader before he did it because he thought the metal lampshade might be live.
+- It was. Very live. Deadly, in fact.
 - I called the property management company and the guy came out to fix it.
-- He kept asking questions because it didn't make sense.
+- He kept asking questions because it didn't make sense to him.
 - Brian became extremely upset and paranoid about the man.
 - We moved from this flat about a month later to a new one. 
-- Eventually, we split up but he would phone me up drunk, years later when I was in Cami Llavador in Dénia, always complaining that he hadn't got any of my money.
-- Was that the whole deal? That he'd get some?
-- I spent an awful lot of money on him.
-- One Christmas, I took him to Thailand, like I have been known to do with people that don't deserve the gift.
+- Eventually, we split up but he would phone me up drunk, years later when I was living in Cami Llavador in Dénia, complaining that he hadn't got any of my money.
+- I thought I saw him in a car on the Las Marinas road a few years after that too.
+- Was that the whole deal? That he'd get some of my money?
+- Did Ugly tell him about the money before I had any idea I'd be getting some?
+- I spent an awful lot of money on Brian when I did get some money.
+- In Christmas 2023, I took him to Thailand - like I have been known to do with people that don't deserve it.
 - He didn't even buy me a Christmas card.
 - Anyhoo, it'll all be in the porn.
 
