@@ -605,7 +605,10 @@ function googleTranslateElementInit() {
 - My normal pressures should be around 12-15.
 - The ophthalmologist suggests we do some breathing Buddhist meditation and this brings my pressures down to 15/17.
 - She tells me it means I could go blind suddenly and very quickly.
-- I'm told if I get any signs that my angles are closing, I need to go to A&E immediately and [my PACS medical certificate](../../content/documents/health/medical-certificate-PACS.JPG) will get me to the front of the queue.
+- I'm told if I get any signs that my angles are closing, I need to go to A&E immediately and my PACS medical certificate will get me to the front of the queue.
+
+[![PACS medical certificate](../../content/documents/health/medical-certificate-PACS.JPG)]((../../content/documents/health/medical-certificate-PACS.JPG))
+
 - I'm horrified. 
 - It's a sudden onset eye-condition coming directly from poisoning.
 - At the time I'm guessing methanol.
