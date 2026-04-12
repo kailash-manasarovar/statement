@@ -625,9 +625,34 @@ function googleTranslateElementInit() {
 - None of it made any sense at the time.
 - Of course, in retrospect in 2026, it’s clear the gangs are making millions off mine and no doubt many other victims' suffering of repeated sedated rape porn, sex-slave spy-cam porn, drugging to provoke masturbation porn, brain-damaging porn and more including broadcasting live and direct from the music schools, children in starring roles, and it was very much worth their while, financially, to make such efforts.
 
-### Brian
+### My ex-boyfriend Brian contacts me out of the blue
 
-- See: [Brian sees Ugly in Amsterdam in 2001](../2001-to-2010/2001.md#amsterdam).
+- Earlier in the year, when the terror from teachers and staff at the conservatory was at its peak and I believed they were going to murder me, my total isolation became enormously apparent to me and I started trying to reconnect with people I had known in London years ago.
+- Although I was obviously a troubled person, I nevertheless had many friends.
+- I sent friend requests on Facebook to many of the people I had spent time with regularly before I left for Holland at the end of 1999.
+- Everyone ignored me; apart from Brian, Niall, and Paul!
+- Later, when [I stand for election](june.md#election-campaign), I reconnect with many more people I know from school on Facebook - an account which was removed by Facebook just a few days ago for no apparent reason. Anyway.
+- I believe something prompted Brian to contact me out of the blue on Facebook, and he did.
+- We had a long loving and healing chat, I thought.
+- A few weeks before, an X account I believe to be managed by Hazel Smith had posted a picture which triggered something in my mind.
+
+![Wounded angel](../../content/images/wounded-angel.jpeg)
+
+- But, the *very intentional* memory trigger didn't hit consciousness until after I had chatted with Brian on Facebook.
+- I think the day after we chatted, the memory flew in and I remembered the unusual incident in Amsterdam where [I had seen the very ugly man in the back of the car](../2001-to-2010/2001.md#amsterdam) as we were driving out of the hotel for the ferry back to the UK.
+- Of course, I contact Brian immediately again to ask him if he remembers the events.
+- He writes something like, *we were very high in those days", and blocks me.
+- I think nothing of it, or I'm unable to think more on it, because I continue to be drugged clandestinely throughout 2024 and 2025, until October 2025 when I figure out [the switcheroo porn scam](../2025/october.md#thunderbolt-clarity).
+- At that moment, I start to wonder if perhaps I wasn't dreaming that morning, and the strange event with the blindfold lady in the car in front, an ugly man in the car behind, and the drivers looking like two of the trumpet teachers, had happened as I'd remembered it.
+- Was I sedated and raped and filmed back in 2001 in Amsterdam by the same porn-gang that has set up spy-cam porn-networks all over the Marina Alta region including in schools?
+- Why was Hazel told to trigger this memory around the same time as Brian reaches out?
+- Do the gangs realize they've gone top far now and are trying to blame the poisoning, pedophilia and baby-rape industry, never mind the horse porn, all on Ugly and his gang?
+- Is this why [he popped up out of the blue in Cauterets](august.md#ugly) in August?
+- Did they offer up Marie's daughter at the same time too; an introduction agent working close to foreigners and the children of Dénia?
+- Did they think they'd be back in business in no time?
+
+#### Brian and Ugly
+
 - Initial groom - was he taking instructions from them, love-triangle, trigger words, etc.
 - Things he said about being told I was a prostitute in Amsterdam.
 - Ugly: did Ugly find a porn addict close to me - the gang's MO (check subscription database) - he could persuade to groom me (cos he knew the money was coming), and there was Brian.
