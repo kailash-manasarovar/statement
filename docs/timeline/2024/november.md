@@ -607,7 +607,7 @@ function googleTranslateElementInit() {
 - She tells me it means I could go blind suddenly and very quickly.
 - I'm told if I get any signs that my angles are closing, I need to go to A&E immediately and my PACS medical certificate will get me to the front of the queue.
 
-[![PACS medical certificate](../../content/documents/health/medical-certificate-PACS.JPG)]((../../content/documents/health/medical-certificate-PACS.JPG))
+[![PACS medical certificate](../../content/documents/health/medical-certificate-PACS.JPG)](../../content/documents/health/medical-certificate-PACS.JPG)
 
 - I'm horrified. 
 - It's a sudden onset eye-condition coming directly from poisoning.
