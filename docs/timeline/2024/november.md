@@ -598,13 +598,13 @@ function googleTranslateElementInit() {
 - On 28th November, I have an eye examination at Rutnin Eye Hospital in Bangkok.
 - I get a diagnosis of PACS from the eye hospital (primary angle closure suspect); a risk of sudden onset glaucoma.
 - It's a very serious condition; something that can cause blindness if not treated immediately when symptoms show up.
-- No one in my family has every had glaucoma and everything else is completely normal.
+- No one in my family has ever had glaucoma and everything else is completely normal.
 - It's unusual, to say the least.
 - My eyes have been red and blurry for weeks, and it's very difficult to focus. 
 - My eye pressure is very high, over 20 in both eyes. 
 - My normal pressures should be around 12-15.
 - The ophthalmologist suggests we do some breathing Buddhist meditation and this brings my pressures down to 15/17.
-- She tells me it means I could go blind suddenly and very quickly.
+- She tells me I could go blind suddenly and very quickly.
 - I'm told if I get any signs that my angles are closing, I need to go to A&E immediately and my PACS medical certificate will get me to the front of the queue.
 
 [![PACS medical certificate](../../content/documents/health/medical-certificate-PACS.JPG)](../../content/documents/health/medical-certificate-PACS.JPG)
@@ -612,7 +612,7 @@ function googleTranslateElementInit() {
 - I'm horrified. 
 - It's a sudden onset eye-condition coming directly from poisoning.
 - At the time I'm guessing methanol.
-- I was right to replace my bathroom products; I also replace toothpaste, toothbrush and some other things I use regularly.
+- I was right to replace my bathroom products; that afternoon I also replace my toothpaste, toothbrush and some other things I use regularly.
 - Symptoms decrease even more.
 - Eventually, I will throw away everything ingestible I brought from home; sun tan lotion, liquid supplements, eye drops, everything.
 - I realize that the poisoning was behind the [unusually high eye pressure reported by Alain Afflelou](../../personal/health.md#eyes) the opticians in Ondara when I moved back to Denia in 2022, something I had never suffered from previously.
@@ -621,9 +621,9 @@ function googleTranslateElementInit() {
 - It looks like I was lured back to that apartment specifically for sinister and criminal purposes.
 - The scale and duration and the amount of resources put into the conspiracy is mind-blowing.
 - I cannot understand it.
-- What could be so interesting about me to put so much time, effort, and resources into doing me serious harm? 
+- What could be so interesting about me to justify putting so much time, effort, and resources into doing me serious harm? 
 - None of it made any sense at the time.
-- Of course, in retrospect in 2026, it's clear the gangs are making millions off mine and no doubt many other victim's suffering of repeated sedated rape porn, sex-slave spy-cam porn, drugging to provoke masturbation porn, brain-damaging porn, and more, and it was very much worth their while, financially, to make such efforts.
+- Of course, in retrospect in 2026, it’s clear the gangs are making millions off mine and no doubt many other victim’s suffering of repeated sedated rape porn, sex-slave spy-cam porn, drugging to provoke masturbation porn, brain-damaging porn, and more including live and direct from the music schools, and it was very much worth their while, financially, to make such efforts.
 
 ### Brian
 
