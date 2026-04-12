@@ -674,7 +674,7 @@ function googleTranslateElementInit() {
 - Was that the whole deal? That he'd get some of my money?
 - Did Ugly tell him about the money before I had any idea I'd be getting some?
 - I spent an awful lot of money on Brian when I did get some money.
-- In Christmas 2023, I took him to Thailand - like I have been known to do with people that don't deserve it.
+- In Christmas 2023, I took him to Thailand - like I have been known to do for people that don't deserve it.
 - He didn't even buy me a Christmas card.
 - Anyhoo, it'll all be in the porn.
 
