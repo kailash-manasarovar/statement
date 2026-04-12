@@ -623,7 +623,7 @@ function googleTranslateElementInit() {
 - I cannot understand it.
 - What could be so interesting about me to justify putting so much time, effort, and resources into doing me serious harm? 
 - None of it made any sense at the time.
-- Of course, in retrospect in 2026, it’s clear the gangs are making millions off mine and no doubt many other victim’s suffering of repeated sedated rape porn, sex-slave spy-cam porn, drugging to provoke masturbation porn, brain-damaging porn and more including broadcasting live and direct from the music schools, children in starring roles, and it was very much worth their while, financially, to make such efforts.
+- Of course, in retrospect in 2026, it’s clear the gangs are making millions off mine and no doubt many other victims' suffering of repeated sedated rape porn, sex-slave spy-cam porn, drugging to provoke masturbation porn, brain-damaging porn and more including broadcasting live and direct from the music schools, children in starring roles, and it was very much worth their while, financially, to make such efforts.
 
 ### Brian
 
