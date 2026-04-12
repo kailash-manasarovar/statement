@@ -601,6 +601,8 @@ function googleTranslateElementInit() {
 
 ![blocked from accessing webpage](../../content/images/blocked-from-accessing-page.png)
 
+- Removing this section as it looks like the site is unaccessible from Thailand.
+
 ### Pre-glaucoma diagnosis
 
 - On 28th November, I have an eye examination at Rutnin Eye Hospital in Bangkok.
