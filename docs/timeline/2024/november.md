@@ -536,7 +536,7 @@ function googleTranslateElementInit() {
 - This *very unusual sight* makes me suddenly realize that, even though I'm away from my apartment in Spain, I'm *still* being poisoned somehow.
 - It's a lightbulb moment; the moment I realize the Cano Lopez's and co have been coming into my apartment and adding drugs and poisons to my toiletries and food, for years.
 - This sudden realization explains so much of my experiences over the last few years; especially my lengthy trips away from Spain in the summer and at Christmas or Easter when I remained high and inexplicably sexually aroused.
-- When I get back to my room, I throw all my shower gel, shampoo, face wash, and toothpaste away.
+- When I get back to my room, I throw all my shower gel, shampoo, and face wash away.
 - I start to feel better immediately; literally the very next day the symptoms of poisoning have disappeared.
 
 ### Tattoo
@@ -593,38 +593,34 @@ function googleTranslateElementInit() {
 - Hopefully I will be able to continue as best I can, but nothing would surprise me at this stage.
 - I believe I am continually targeted online by Domingo and Carmen Cano, Hazel Smith and her mother probably, and the trumpet teacher whoever he is.
 
-### Accessing the conservatory website
-
-- I wonder if the trumpet teacher has been re-employed by the Generalitat this year, under a different name of course, and I look up the conservatory website to check.
-- I'm blocked from accessing the website in the same way I was blocked from accessing the Guardia Civil website and the ECHR website.
-- If so, he will be there for one reason only, to sexually groom minors.
-
-![blocked from accessing webpage](../../content/images/blocked-from-accessing-page.png)
-
-- Removing this section as it looks like the site is unaccessible from Thailand.
-
 ### Pre-glaucoma diagnosis
 
 - On 28th November, I have an eye examination at Rutnin Eye Hospital in Bangkok.
-- I get a diagnosis of PACS from the eye hospital (primary angle closure suspect). Sudden onset glaucoma risk basically. No one in my family has this and everything else is completely normal. It's unusual.
+- I get a diagnosis of PACS from the eye hospital (primary angle closure suspect); a risk of sudden onset glaucoma.
+- It's a very serious condition; something that can cause blindness if not treated immediately when symptoms show up.
+- No one in my family has every had glaucoma and everything else is completely normal.
+- It's unusual, to say the least.
 - My eyes have been red and blurry for weeks, and it's very difficult to focus. 
-- They diagnose me with a pre-glaucoma condition which is very serious.
-- My eye pressure is very high, over 20 in both eyes. My normal pressures should be around 12-15.
+- My eye pressure is very high, over 20 in both eyes. 
+- My normal pressures should be around 12-15.
 - The ophthalmologist suggests we do some breathing Buddhist meditation and this brings my pressures down to 15/17.
 - She tells me it means I could go blind suddenly and very quickly.
 - I'm told if I get any signs that my angles are closing, I need to go to A&E immediately and [my PACS medical certificate](../../content/documents/health/medical-certificate-PACS.JPG) will get me to the front of the queue.
 - I'm horrified. 
 - It's a sudden onset eye-condition coming directly from poisoning.
-- I'm guessing methanol.
-- I was right to replace my bathroom products; I also replace toothpaste, toothbrush and some other things.
+- At the time I'm guessing methanol.
+- I was right to replace my bathroom products; I also replace toothpaste, toothbrush and some other things I use regularly.
 - Symptoms decrease even more.
 - Eventually, I will throw away everything ingestible I brought from home; sun tan lotion, liquid supplements, eye drops, everything.
-- I realize what was behind the [unusually high eye pressure reported by Alain Afflelou](../../personal/health.md#eyes) the opticians in Ondara when I moved back to Denia in 2022, something I had never suffered from previously.
+- I realize that the poisoning was behind the [unusually high eye pressure reported by Alain Afflelou](../../personal/health.md#eyes) the opticians in Ondara when I moved back to Denia in 2022, something I had never suffered from previously.
 - I'm beginning to realize I have been being drugged and poisoned from the moment I moved back to Spain in February 2022.
+- It's horrifying.
 - It looks like I was lured back to that apartment specifically for sinister and criminal purposes.
 - The scale and duration and the amount of resources put into the conspiracy is mind-blowing.
+- I cannot understand it.
 - What could be so interesting about me to put so much time, effort, and resources into doing me serious harm? 
-- None of it made any sense.
+- None of it made any sense at the time.
+- Of course, in retrospect in 2026, it's clear the gangs are making millions off mine and no doubt many other victim's suffering of repeated sedated rape porn, sex-slave spy-cam porn, drugging to provoke masturbation porn, brain-damaging porn, and more, and it was very much worth their while, financially, to make such efforts.
 
 ### Brian
 
