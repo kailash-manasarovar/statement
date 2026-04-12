@@ -582,7 +582,8 @@ function googleTranslateElementInit() {
 !!! tip "Info on this note"
     - This is the original text I wrote on Sunday 24th November while drafting this police statement.
     - In just a few days time, hackers will successfully block my access to my laptop.
-    - It's interesting to read this in retrospect and note that I still believed Sandra Smith was Hazel's mother, I still believe just a few people are targeting me online - not a whole population of porn-addicts and criminal pornographers - and that there is only one trumpet teacher that came to teach classes at the conservatory, not four or five that I would recognize as the same one man after having been successfully brain-damaged with poisons.
+    - It's interesting to read this in retrospect and note that I still believe Sandra Smith is Hazel's mother, I still believe just a few people are targeting me online - not a whole population of porn-addicts and criminal pornographers - and that there is only one trumpet teacher that came to teach classes at the conservatory, not [the actual four or more](../../crimes/protagonists/vidal-sastre.md#at-least-four) that I understand to be the same one man after having been successfully brain-damaged with deadly poisons.
+    - It's upsetting for me to read back these words that show I have no idea that I have been cerebrally maimed and repeatedly sedated and raped by thousands, probably, over many decades.
 
 - I have had sufficient messages from hackers on fake accounts at this time to be concerned they will impede this statement-writing process.
 - I know they have pretty much full access to all my devices and I'm unable to access internet on my mobile right now for unknown reasons, the behavior is much like when I tried to access the Guardia Civil website and was blocked for doing so. 
