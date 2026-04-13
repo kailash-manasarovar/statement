@@ -709,15 +709,18 @@ function googleTranslateElementInit() {
 
 ## LinkedIn bans me for life
 
-- I change my LinkedIn profile pics and messages to things related to my political activities with the Party Of Women.
-- I'm banned for life on LinkedIn.
+- I update my LinkedIn profile, adding content related to my political activities with the Party Of Women.
+- I'm immediately banned for life on LinkedIn.
 - I seek help from the Free Speech Union.
-- They ask me to request my data as is my right.
-- I request LinkedIn send me all my personal data over the last few years.
-- They refuse with some fobbing-off reason.
-- I request again more clearly.
-- They refuse again. They have no valid reason for refusing.
-- My LinkedIn data includes all the fake bot accounts that prompted me to get jobs at [Polygon](../2023/november.md#polygon), [zkSync](../2023/june.md#elon), the [Torus](../2023/august.md#head-hunted-by-ex-polygon-director) scam, and all the tech-bros implicated in the international online porn-gang conspiracy that contacted me via LinkedIn.
+- They ask me to request my data from LinkedIn as is my right.
+- I request LinkedIn send me all my personal data from the last few years.
+- They refuse, fobbing me off.
+- I request again, more clearly.
+- They refuse again. 
+- They have no valid reason for refusing.
+- My LinkedIn data includes all the fake recruitment accounts that headhunted me for jobs at [Polygon](../2023/november.md#polygon), [zkSync](../2023/june.md#elon), [Qredo](../2021/march.md#qredo), [ConsenSys](../2021/october.md#consensys), and others.
+- It includes the [Torus](../2023/august.md#head-hunted-by-ex-polygon-director) job scam from August 2023.
+- It also includes all the tech-bro recruiters implicated in the international online porn-gang conspiracy that contacted me via LinkedIn over many, many years; and there were a lot of those guys, or perhaps just one or two using multiple fake accounts, we'll see.
 
 ## Fake account
 
