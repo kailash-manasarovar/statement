@@ -680,20 +680,29 @@ function googleTranslateElementInit() {
 
 ## Adding spy-cams to my London address
 
-- If you knew your spy-cam porn star was moving house, and you were 100% convinced that no-one would ever help her, and you were making untold money on spy-cam porn from her alone, how would you arrange spy-cams to be set up in her bathroom before she moved back?
-- Would you make sure you could manipulate her family's internet network?
-- Would you have to, given that the network had been breached for decades already?
-- Would you devise a method of stepping in when anyone in the family needed some work done?
-- Would you give yourself a name which would pretty much ensure your fake company would be tasked with the job, a family name perhaps?
-- Would you send the person with instructions to annoy the resident so much she would leave you alone for long periods in the house alone, where you could install as many spy-cams as you liked?
-- Do you think you might do that, if you were a criminal gang with no concerns about getting caught?
+- If you knew your sedated spy-cam rape-porn star was having to return home to her parents due to vicious attacks, and you were 100% convinced that no-one would ever help her, and you were making untold money from her alone, like oodles of cash, you'd be pretty silly not to arrange for spy-cams to be set up in her family's home before she moved back?
+- Would you make sure you had breached her family's internet network already, in preparation?
+- Would you have to bother with that, given that the network had been breached for decades already?
+- Would you have one of your operatives step in when someone needed some work done in the house?
+- Would your operative's name ensure he would be tasked with the job, a family name perhaps?
+- Would you send this person with instructions to annoy the resident so much she would leave him alone for long periods in the house alone, where he could install as many spy-cams as he liked?
+- Do you think you might do that, if you were a criminal gang with no concerns about getting caught or being brought to justice?
 - My mother employed a man, [Sean Murphy](https://find-and-update.company-information.service.gov.uk/officers/tqU3t9O-pOkVHJKKZIuE1h2cx3I/appointments) (a significant family name), to install stair lifts at the house.
-- My dad doesn't believe that's his name and keeps calling him Dennis.
-- Sean Murphy wound my mother up so much she nearly sacked him two or three times.
+- My dad doesn't believe that's his name and keeps calling him Dennis; which is interesting.
+- Sean Murphy wound my mother up so much she nearly sacked him every day.
 - He would turn up really late, or not at all, leaving her waiting around all day for him.
 - On a couple of occasions this tactic meant my mother was so exasperated she left him alone in the house for long periods while she went out to do the shopping.
 - Was he also employed to [install spy-cams](../2025/may.md#spy-cams-in-london-n2-also)?
-- Starting to realize how comforting this might be.
+
+### Boil porn and other things
+
+- When I moved home in February 2025, I immediately started getting genital boils again. Immediately.
+- I would "tend to them" in the shower sometimes, or in my bedroom.
+- Hackers using fake X accounts sent messages to me about my boils right after I would do so.
+- My elderly father was convalescing after [his fall](#my-father-falls-down-the-stairs) and I regularly helped him clean and shower if he had been unable to make it to the toilet in time.
+- Eventually, I could get him set up and leave him to it.
+- I have a feeling that hackers somehow informed him they had been watching him too - on one of our trips for coffee and shopping - because of the things he said to me that day.
+- If the whole house was networked up with spy-cams while I was living there, I'd be very happy about it because, although the porn-gangs will have been behind it, I'm now aware that they won't have been the only folk watching.
 
 ## I'm banned for life on LinkedIn
 
