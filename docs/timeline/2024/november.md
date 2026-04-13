@@ -702,7 +702,7 @@ function googleTranslateElementInit() {
 - I would "tend to them" in the shower sometimes, or in my bedroom.
 - Hackers using fake X accounts [sent messages to me about my boils](../2025/may.md#spy-cams-in-london-n2-also) right after I would do so.
 - My elderly father was convalescing after [his fall](#my-father-falls-down-the-stairs) and I regularly helped him clean and shower if he had been unable to make it to the toilet in time.
-- Eventually, I could get him set up and leave him to it.
+- Eventually, apart from one significant repeat in early July 2025, I could get him set up and leave him to it.
 - I have a feeling that hackers somehow informed him they had been watching him too - on one of our trips for coffee and shopping - because of the things he said to me that day.
 - If the whole house was networked up with spy-cams while I was living there, I'd be very happy about it because, although the porn-gangs will have been behind it, I'm now aware that they won't have been the only folk watching.
 - I imagine porn-gang hackers who are certain they'll never be brought to justice don't bother robustly securing their own breaches, and anyone can get in behind them; a comforting thought, at least for me.
