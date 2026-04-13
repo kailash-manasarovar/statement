@@ -678,11 +678,11 @@ function googleTranslateElementInit() {
 - He didn't even buy me a Christmas card.
 - Anyhoo, it'll all be in the porn.
 
-## Adding spy-cams to my London address
+## Spy-cams at my London address
 
-- If you knew your sedated spy-cam rape-porn star was having to return home to her parents due to vicious attacks, and you were 100% convinced that no-one would ever help her, and you were making untold money from her alone, like oodles of cash, you'd be pretty silly not to arrange for spy-cams to be set up in her family's home before she moved back?
+- If you knew your sedated spy-cam rape-porn star was having to return home to her parents due to your relentless and vicious attacks, and you were 100% convinced that no-one would ever help her, and you were making untold money from her alone - like oodles of cash - you'd be pretty silly not to arrange for spy-cams to be set up in her family's home before she moved back?
 - Would you make sure you had breached her family's internet network already, in preparation?
-- Would you have to bother with that, given that the network had been breached for decades already?
+- Would you have had to even bother with that, given that the network had been breached for decades already?
 - Would you have one of your operatives step in when someone needed some work done in the house?
 - Would your operative's name ensure he would be tasked with the job, a family name perhaps?
 - Would you send this person with instructions to annoy the resident so much she would leave him alone for long periods in the house alone, where he could install as many spy-cams as he liked?
@@ -698,7 +698,7 @@ function googleTranslateElementInit() {
 
 - When I moved home in February 2025, I immediately started getting genital boils again. Immediately.
 - I would "tend to them" in the shower sometimes, or in my bedroom.
-- Hackers using fake X accounts sent messages to me about my boils right after I would do so.
+- Hackers using fake X accounts [sent messages to me about my boils](../2025/may.md#spy-cams-in-london-n2-also) right after I would do so.
 - My elderly father was convalescing after [his fall](#my-father-falls-down-the-stairs) and I regularly helped him clean and shower if he had been unable to make it to the toilet in time.
 - Eventually, I could get him set up and leave him to it.
 - I have a feeling that hackers somehow informed him they had been watching him too - on one of our trips for coffee and shopping - because of the things he said to me that day.
