@@ -703,6 +703,7 @@ function googleTranslateElementInit() {
 - Eventually, I could get him set up and leave him to it.
 - I have a feeling that hackers somehow informed him they had been watching him too - on one of our trips for coffee and shopping - because of the things he said to me that day.
 - If the whole house was networked up with spy-cams while I was living there, I'd be very happy about it because, although the porn-gangs will have been behind it, I'm now aware that they won't have been the only folk watching.
+- I imagine porn-gang hackers who are certain they'll never be brought to justice don't bother robustly securing their own breaches, and anyone can get in; a comforting thought.
 
 ## I'm banned for life on LinkedIn
 
