@@ -1,5 +1,6 @@
 site_name: Fear & loathing in Las Marinas
-site_author: Dra Katharine Murphy
+site_description: How a small town in Spain went totally mad on criminal porn and took over the world's collective consciousness in the process.
+site_author: Dra. Katharine Murphy
 site_url: https://fearandloathinginlasmarinas.com/
 copyright: Copyright &copy; 2026 Dra Katharine Murphy
 repo_name: Police statement
@@ -148,7 +149,6 @@ nav:
     - Hacking: crimes/hacking.md
     - Cyber-stalking: crimes/cyberstalking.md
     - Mass voyeurism: crimes/mass-voyeurism.md
-    - Trying to get help: crimes/getting-help.md
     - Honey-trapping: crimes/honeytrap.md
     - Pedophilia: crimes/pedophilia.md
     - Rape porn: crimes/rape-porn.md
@@ -156,7 +156,6 @@ nav:
     - Manipulation techniques: evidence/manipulation.md
     - CCTV: evidence/cctv.md
     - Memes and triggers: evidence/memes-and-triggers.md
-    - Screenshots: evidence/screenshots.md
     - Twitter accounts: evidence/twitter-account.md
     - Google searches: evidence/google-searches.md
     - WhatsApps: evidence/whatsapps.md
@@ -230,6 +229,40 @@ markdown_extensions:
 plugins:
   - search
   - open-in-new-tab
+  - rss:
+      abstract_chars_count: -1  # -1 for full content
+      #abstract_delimiter: <!-- more -->
+      #categories:
+      #  - tags
+      #comments_path: "#__comments"
+      date_from_meta:
+        as_creation: "date" # means from page.meta.date
+        as_update: "git" # means from git log
+        datetime_format: "%Y-%m-%d %H:%M"
+        default_time: "09:30"
+        default_timezone: Europe/Paris
+      enabled: true
+      feed_description: # MkDocs site_description: will be used if this key is not present
+      feeds_filenames:
+        json_created: feed_json_created.json
+        json_updated: feed_json_updated.json
+        rss_created: feed_rss_created.xml
+        rss_updated: feed_rss_updated.xml
+      feed_title:  # MkDocs site_name: will be used if this key is not present
+      feed_ttl: 1440
+      image: https://github.com/kailash-manasarovar/statement/blob/main/docs/content/images/the-novel/cover-2.webp?raw=true
+      json_feed_enabled: true
+      length: 20
+      match_path: ".*"
+      pretty_print: false
+      rss_feed_enabled: true
+      url_parameters:
+        utm_source: "documentation"
+        utm_medium: "RSS"
+        utm_campaign: "feed-syndication"
+      use_git: true
+      #use_material_blog: true
+      #use_material_social_cards: true
   #- git-revision-date-localized
   #- social:
   #    cards_layout_options:
