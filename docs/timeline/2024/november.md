@@ -728,7 +728,7 @@ function googleTranslateElementInit() {
 
 ![Ligia Betton](../../content/images/fake-accounts/Screenshot 2024-11-19 at 18.12.33.png)
 
-- I believe this is just one of the ways the men of Dénia are paying for their sports cars; a porn network (league) with thousands of subscribers around the world places bets on targets.
+- I believe this is just one of the ways the men of Dénia are paying for their sports cars; a porn network (league) with thousands of subscribers around the world placing bets on targets.
     - Will she do porn?
     - Will she go mad? - Is this [what Paul placed his bet on](../2025/february.md#child-gang-rape-porn)?
     - Will she kill herself?
