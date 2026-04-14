@@ -741,7 +741,13 @@ function googleTranslateElementInit() {
 - It's seems, however, more and more likely no-one is ever going to do anything about these people.
 - Rape-porn addicts protect their own - and lets face it, most men love the rape-porn for some sick reason and, when they don't, they keep very quiet about their mates.
 
-## @jctot19
+## Checking the `@jctot19` account for the first time in ages
+
+!!! tip "Update in April 2026"
+    - I find this early post fascinating.
+    - I'm still under the illusion the trumpet teacher that came to teach classes at the conservatory is one man, not four or five, or a whole population of wrong-un browser-hackers tasked with terrorizing criminal porn-targets for the networks.
+    - It's amazing, really amazing.
+    - Leaving as is.
 
 - I check the `@jctot19` account for the first time in ages, this Wednesday 20th November.
 
