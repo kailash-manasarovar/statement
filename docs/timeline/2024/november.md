@@ -724,7 +724,7 @@ function googleTranslateElementInit() {
 
 ## Criminal porn-network betting leagues
 
-- A fake account called Ligia Betton interacts with me. 
+- A fake account called Ligia Betton interacts with me. I report it for child endangerment as the girl looks underage.
 
 ![Ligia Betton](../../content/images/fake-accounts/Screenshot 2024-11-19 at 18.12.33.png)
 
@@ -735,8 +735,8 @@ function googleTranslateElementInit() {
     - Will the most famous tech CEO in all the world have a go?
 - That sort of thing, in ascending order of one-off pay-per-view subscriptions.
 - Sick men are making billions on the most disgusting things they could do with their lives, just like they have been since [they made rape-gang porn of me in North London when I was 16](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x).
-- Are these famous porn-networks how they drum up interest in targets like myself and Rocio Vidal, Barbara Loftus's plus-size wedding day porn event too?
-- Do adverts for the latest *destroy-the-woman* craze come round on their ordinary social media accounts?
+- Are these famous porn-networks how they drum up interest in targets like myself and Rocio Vidal, Barbara Loftus's plus-size wedding-day porn event too?
+- Do adverts for the latest *destroy-the-woman* sex-craze come round on their ordinary social media accounts?
 - I pray that police will act at some point.
 - It's seems, however, more and more likely no-one is ever going to do anything about these people.
 - Rape-porn addicts protect their own - and lets face it, most men love the rape-porn for some sick reason and, when they don't, they keep very quiet about their mates.
