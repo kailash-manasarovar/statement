@@ -722,19 +722,21 @@ function googleTranslateElementInit() {
 - It includes the [Torus](../2023/august.md#head-hunted-by-ex-polygon-director) job scam from August 2023.
 - It also includes all the tech-bro recruiter accounts implicated in the international online porn-gang conspiracy that contacted me via LinkedIn over many, many years; and there were a lot of those guys, or perhaps just one or two using multiple fake accounts, we'll see.
 
-## Fake account
+## Criminal porn-network betting leagues
 
 - A fake account called Ligia Betton interacts with me. 
 
 ![Ligia Betton](../../content/images/fake-accounts/Screenshot 2024-11-19 at 18.12.33.png)
 
-- I believe this is just one of the ways the men of Dénia are paying for their sports cars; a porn network (league) places bets on targets.
+- I believe this is just one of the ways the men of Dénia are paying for their sports cars; a porn network (league) with thousands of subscribers around the world places bets on targets.
     - Will she do porn?
-    - Will she go mad?
+    - Will she go mad? - Is this [what Paul placed his bet on](../2025/february.md#child-gang-rape-porn)?
     - Will she kill herself?
-- That sort of thing.
-- Sick men are making money off me now just like they have been since they made rape-gang porn of me in North London when I was 16.
-- Is this how they drum up interest in targets like myself and Rocio Vidal, Barbara Loftus's plus-size wedding day porn event too?
+    - Will the most famous tech CEO in all the world have a go?
+- That sort of thing, in ascending order of one-off pay-per-view subscriptions.
+- Sick men are making billions on the most disgusting things they could do with their lives, just like they have been since [they made rape-gang porn of me in North London when I was 16](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x).
+- Are these famous porn-networks how they drum up interest in targets like myself and Rocio Vidal, Barbara Loftus's plus-size wedding day porn event too?
+- Do adverts for the latest *destroy-the-woman* craze come round on their ordinary social media accounts?
 - I pray that police will act at some point.
 - It's seems, however, more and more likely no-one is ever going to do anything about these people.
 - Rape-porn addicts protect their own - and lets face it, most men love the rape-porn for some sick reason and, when they don't, they keep very quiet about their mates.
