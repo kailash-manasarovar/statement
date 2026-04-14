@@ -728,9 +728,16 @@ function googleTranslateElementInit() {
 
 ![Ligia Betton](../../content/images/fake-accounts/Screenshot 2024-11-19 at 18.12.33.png)
 
-- I believe this is what is going on, i.e. a porn network (league) has a bet on me. People are making money off me now just like they have been since they made porn of me when I was 16.
+- I believe this is just one of the ways the men of Dénia are paying for their sports cars; a porn network (league) places bets on targets.
+    - Will she do porn?
+    - Will she go mad?
+    - Will she kill herself?
+- That sort of thing.
+- Sick men are making money off me now just like they have been since they made rape-gang porn of me in North London when I was 16.
+- Is this how they drum up interest in targets like myself and Rocio Vidal, Barbara Loftus's plus-size wedding day porn event too?
 - I pray that police will act at some point.
-- I'm getting close to the truth.
+- It's seems, however, more and more likely no-one is ever going to do anything about these people.
+- Rape-porn addicts protect their own - and lets face it, most men love the rape-porn for some sick reason and, when they don't, they keep very quiet about their mates.
 
 ## @jctot19
 
