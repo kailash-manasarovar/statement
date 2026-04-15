@@ -38,7 +38,7 @@ After I realized the extent to which the Spanish school system has been totally 
 
 ![Novel cover](content/images/the-novel/cover.webp)
 
-## Mass voyeurism, cyber-stalking, gang stalking, honey-trapping, sedated and spy-cam porn, and staggering levels of violence against women
+## Mass voyeurism, cyber-stalking, gang stalking, honey-trapping, sedated and spy-cam porn, and staggering levels of violence against women, children, and babies
 
 The report details the following:
 
