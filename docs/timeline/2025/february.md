@@ -103,9 +103,11 @@
 - He lives in his car.
 - All the money he gets goes on drugs.
 - How is he going to afford a holiday to Malta? 
-- It's impossible unless there is an ulterior motive and has been asked to invite me to Malta for a holiday.
-- Interestingly, Malta is where Qredo are based.
-- Was this an attempt to get me back on the networks as soon as possible, the porn-gangs having lost one of their most lucrative revenue streams, sedated naked me?
+- It's impossible unless there is an ulterior motive.
+- Did the porn-gangs ask him to invite me to Malta for a holiday?
+- Interestingly, Malta is where [Qredo](../2021/march.md#qredo) are based.
+- Paul knows Anita Diamond too.
+- Was this an attempt to get me back on the networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, sedated naked me?
 
 ## Moving back to UK
 
