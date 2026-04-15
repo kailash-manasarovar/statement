@@ -4,7 +4,7 @@ hide:
 - toc
 ---
 
-# Fear & loathing in Las Marinas
+# Fear & Loathing in Las Marinas
 
 <div id="google_translate_element"></div>
 <script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
