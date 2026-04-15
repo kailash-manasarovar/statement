@@ -22,13 +22,19 @@ function googleTranslateElementInit() {
 
 ## Summary statement
 
-This document details multiple crimes committed against myself, Dr Katharine Margaret Murphy, Y2775989H; previously residing at Carrer Furs 15, Bloque 1, Escalera 2, Piso 3, Apartamento 17, Dénia, 03700 Alicante, Spain. 
+This document details the multiple crimes committed against myself, and others, by an international criminal porn enterprise based in North London and Spain, over many decades since I was a child.
 
-The crimes took place over the three years I lived in the apartment after [finding the apartment available online on the 8th December 2021](timeline/2021/december.md#too-good-to-be-true-on-the-8th-december) and [signing the lease](timeline/2021/december.md#death-clause) and moving in on [15th December 2021](timeline/2021/december.md#semen-stains-on-the-sofa).
+I am Dr Katharine Margaret Murphy, Y2775989H; previously residing at Carrer Furs 15, Bloque 1, Escalera 2, Piso 3, Apartamento 17, Dénia, 03700 Alicante, Spain; an apartment set up with advanced spy-cam technology.
 
-The crimes include distribution of spy-cam footage from my apartment where I was either masturbating, or sedated and raped, and attempted murder.
+Over the three years I lived in Carrer Furs, Dénia, after [finding the apartment available online on the 8th December 2021](timeline/2021/december.md#too-good-to-be-true-on-the-8th-december) and [signing the lease](timeline/2021/december.md#death-clause) and moving in on [15th December 2021](timeline/2021/december.md#semen-stains-on-the-sofa) I was drugged, poisoned, brain-damaged, repeatedly sedated after going to bed, filmed and live-streamed to millions of porn-addicts around the world.
 
-Gang-stalking, cyber-terrorizing, constant online persecution, clandestine drugging, and poisoning (attempted murder) by criminal gangs continued since leaving Spain in February 2025, and up until I remembered [something extraordinary about the Tenor Cortis conservatory of Dénia in September 2025](timeline/2025/october.md#thunderbolt-clarity).
+Eventually, because I had no idea about what was happening to me, and because the gang's attempts at frightening me always failed, they tried to murder me by poisoning on numerous occasions.
+
+I continue to be gang-stalked and cyber-terrorized online and in-person to this day.
+
+Up until I remembered [something extraordinary about the Tenor Cortis conservatory of Dénia in September 2025](timeline/2025/october.md#thunderbolt-clarity) and how it doubles as a porn-studio using teachers, staff, and children as its actors, and unwitting students as its drugged and brain-damaged *porn-stars*, I continued to suffer clandestine drugging and poisoning (attempted murder) anywhere I was in the world.
+
+After I realized the extent to which the Spanish school system has been totally taken over by international criminal porn-gangs, I was only briefly drugged one time in Lourdes in April 2026 and all poisoning has ceased.
 
 ## Mass voyeurism, cyber-stalking, gang stalking, honey-trapping, sedated and spy-cam porn, and staggering levels of violence against women
 
