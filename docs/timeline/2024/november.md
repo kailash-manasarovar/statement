@@ -774,15 +774,58 @@ function googleTranslateElementInit() {
 ## Honey trap
 
 - I believe that the `@jctot19` account is fundamentally a honey-trap account.
-- Is it possible I blew his cover and that is why the original tweets stopped on 15th January? I think it's highly likely given they shut everything down when I said [something that directly related to Winston May](january.md#galway-ireland-tt).
-- Did they do this because they're aware that while they watch their targets constantly, they're also being watched constantly by law enforcement?
-- Nevertheless, bizarrely, Google search results related to this account are still active. I notice the newer entries are coming from retweeted posts. I suspect the retweets are automated.
-- Carmen and Rocio Vidal still feature. Carmen is obviously Carmen Cano Lopez, Domingo's sister.
-- I post about [seduction techniques](../../evidence/manipulation.md) on Twitter: https://x.com/1FRGVN/status/1860132157890679006. Immediately, an account interacts with me that has a warning, and suggests the trumpet teacher has an alibi, and not to forget to cross examine Domingo (Camo).
+- Is it possible I blew his cover and that is why the tweets from this account stopped on 15th January?
+- I think it's highly likely given they shut all communication down the moment I said [something that directly related to Winston May](january.md#galway-ireland-tt).
+- Did they do this because they're fully aware that while they watch their targets constantly, they're also being monitored and recorded constantly by law enforcement?
+- Regardless, bizarrely, tailored Google search results related to this account are still active.
+- I notice the newer entries are coming from retweeted posts.
+- I suspect the retweets are automated on such accounts to make them look like they're being used regularly by a normal person.
+- Carmen and Rocio Vidal still feature in the Google search results at the end of November 2024.
+- Carmen is obviously Carmen Cano Lopez, Domingo the piano teacher's sister.
+- I post about [seduction techniques](../../evidence/manipulation.md) on Twitter: https://x.com/1FRGVN/status/1860132157890679006 on 23rd November.
+
+??? info "Seduction techniques tweet"
+    ~
+    Seduction techniques
+
+    Online, offline, and combined.
+
+    - Ideally, the trick begins with an actual physical person, the object of desire, coupled with online seduction techniques and drugging/spiking with narcotics/herbs.
+    - In my case, this was an elaborate set up during scheduled classes at a public school where hundreds of minors are in attendance.
+    - A minor child was also present during the physical seduction techniques, which included drugging.
+    - I imagine in many target's cases, this initial phase will be the beginning of a new relationship, possibly started online, and online communication will be essential to its continuance.
+    - The seduction is reinforced over time online using professional NLP seduction techniques, and then will intensify whenever the target is physically together with the object of desire, a real life person. In my case (and likely many others) a teacher.
+    - It certainly helps if there is a genuine physical attraction and well functioning "objects of desire" are likely genuinely sexually attracted to their targets.
+    - The instigators, i.e. "objects of desire", may well also be taking the same aphrodisiac substances. They certainly need to be dealing with these substances directly so the risk of being affected by them is always present. 
+    - My assumption is that usually these people will be involved in drugs in some way in any case, and so getting high is a common occurrence and doesn't have the extreme cathartic effect on the mind that will be happening to the target who may be an innocent child.
+    - Drugging such targets will be utterly overwhelming to them and will change their lives forever.
+    - Criminal charges for this should align with rape and pedophilia whenever sexual activity of any sort is involved.
+    - The target's worldview is altered irrevocably by these manipulation techniques. They believe they are in love, and, most importantly, that it is reciprocal. From here, they are open to anything:
+        - Sexual activity.
+        - Sharing resources, unlimited generosity.
+        - Being manipulated into protecting their object of desire from harm in some way.
+        - Etc... (please add in comments).
+    - When the object of desire is no longer around, and the seduction must continue, the relationship and its reinforcement is supplied entirely online.
+    - The object of desire may, from time to time, make an appearance; perhaps when the manipulation techniques are wearing thin. This serves to reinforce the lie.
+    - Persons of a similar sex and build may also be used for a similar effect in physical settings.
+    - If somehow drugging is possible, even without access to the person in normal physical settings then, depending on the value of the target, this will continue.
+
+    End goals
+
+    - Targets may be wealthy and the goal is to relieve them of it in part or whole.
+    - Targets may be set up as long game goals, where even future inheritance is factored in by the criminal gangs.
+    - Targets may be young and beautiful (male and female) and the plan is probably to get them into porn, then prostitution most likely.
+    - Ultimately, end goals are always financial.
+
+    #acim 
+    #MenAreBroken
+    #EndingItNow
+
+- Immediately, an account interacts with me that contains a threat, and a warning, and also suggests the trumpet teacher has an alibi which is a lie, and not to forget to cross examine Domingo (Camo).
 
 ![Alibi](../../content/images/fake-accounts/dont-dare.png)
 
-- I suspect Carmen Cano to be behind most of these, including the threat to my brother's life.
+- I suspect Hazel Smith and Carmen Lopez Cano are behind most of these threatening tweets; including the threat to my brother's life.
 - This is my most translated tweet for ages:
 
 ![Translated seduction tweet](../../content/tweets/translated-honey-trapper-tweet.png)
