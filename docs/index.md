@@ -26,7 +26,7 @@ This document details the multiple crimes committed against myself, and others, 
 
 I am Dr Katharine Margaret Murphy, Y2775989H; previously residing at Carrer Furs 15, Bloque 1, Escalera 2, Piso 3, Apartamento 17, Dénia, 03700 Alicante, Spain; an apartment set up with advanced spy-cam technology.
 
-Over the three years I lived in Carrer Furs, Dénia, after [finding the apartment available online on the 8th December 2021](timeline/2021/december.md#too-good-to-be-true-on-the-8th-december) and [signing the lease](timeline/2021/december.md#death-clause) and moving in on [15th December 2021](timeline/2021/december.md#semen-stains-on-the-sofa) I was drugged, poisoned, brain-damaged, repeatedly sedated after going to bed, filmed and live-streamed to millions of porn-addicts around the world.
+Over the three years I lived in Carrer Furs, Dénia, after [finding the apartment available online on the 8th December 2021](timeline/2021/december.md#too-good-to-be-true-on-the-8th-december), and [signing the lease which included a death clause](timeline/2021/december.md#death-clause), and moving in on [15th December 2021 to find semen stains on the sofa](timeline/2021/december.md#semen-stains-on-the-sofa), I was drugged, poisoned, brain-damaged, repeatedly sedated after going to bed, filmed and live-streamed to millions of porn-addicts around the world.
 
 Eventually, because I had no idea about what was happening to me, and because the gang's attempts at frightening me always failed, they tried to murder me by poisoning on numerous occasions.
 
@@ -34,7 +34,9 @@ I continue to be gang-stalked and cyber-terrorized online and in-person to this 
 
 Up until I remembered [something extraordinary about the Tenor Cortis conservatory of Dénia in September 2025](timeline/2025/october.md#thunderbolt-clarity) and how it doubles as a porn-studio using teachers, staff, and children as its actors, and unwitting students as its drugged and brain-damaged *porn-stars*, I continued to suffer clandestine drugging and poisoning (attempted murder) anywhere I was in the world.
 
-After I realized the extent to which the Spanish school system has been totally taken over by international criminal porn-gangs, I was only briefly drugged one time in Lourdes in April 2026 and all poisoning has ceased.
+After I realized the extent to which the Spanish school system has been totally taken over by international criminal porn-gangs, I was only briefly drugged one time in Lourdes in April 2026 and all poisoning has since ceased.
+
+![Novel cover](content/images/the-novel/cover.webp)
 
 ## Mass voyeurism, cyber-stalking, gang stalking, honey-trapping, sedated and spy-cam porn, and staggering levels of violence against women
 
