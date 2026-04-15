@@ -53,6 +53,7 @@ nav:
     - Summary: index.md
   - Timeline:
     - Early years:
+      - "1984": timeline/early-years/1984.md
       - "1993": timeline/early-years/1993.md
       - "1997": timeline/early-years/1997.md
     - 2001 to 2010: 
