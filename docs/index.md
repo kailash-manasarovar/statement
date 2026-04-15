@@ -22,7 +22,7 @@ function googleTranslateElementInit() {
 
 ## Summary statement
 
-This document details the multiple crimes committed against myself, and others, by an international criminal porn enterprise based in North London and Spain, over many decades since I was a child.
+This document details the multiple crimes committed against myself, and countless others, by an international criminal porn enterprise based in North London and Spain, over many decades since I was a child.
 
 I am Dr Katharine Margaret Murphy, Y2775989H; previously residing at Carrer Furs 15, Bloque 1, Escalera 2, Piso 3, Apartamento 17, Dénia, 03700 Alicante, Spain; an apartment set up with advanced spy-cam technology.
 
