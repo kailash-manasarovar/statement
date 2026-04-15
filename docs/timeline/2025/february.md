@@ -89,6 +89,24 @@
 - It's weird.
 - Why have they asked him to do that?
 
+#### Paul invites me on holiday to Malta
+
+- Paul's desperate to keep seeing me.
+- But he hates me so much, it's inexplicable.
+- One day I buy him lunch and we go for a short walk afterwards.
+- He wants me to go swimming with him regularly, something we used to do in the 90s.
+- I decline.
+- He wants us to go on holiday together, to Malta, with his son.
+- He knows how much it costs and he's really trying to sell it to me.
+- It's even more inexplicable. 
+- Paul has no money.
+- He lives in his car.
+- All the money he gets goes on drugs.
+- How is he going to afford a holiday to Malta? 
+- It's impossible unless there is an ulterior motive and has been asked to invite me to Malta for a holiday.
+- Interestingly, Malta is where Qredo are based.
+- Was this an attempt to get me back on the networks as soon as possible, the porn-gangs having lost one of their most lucrative revenue streams, sedated naked me?
+
 ## Moving back to UK
 
 - I spend most of February moving my stuff back to my house in London.
