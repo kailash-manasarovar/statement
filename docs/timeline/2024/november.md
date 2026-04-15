@@ -771,18 +771,18 @@ function googleTranslateElementInit() {
     - And on top of that, somehow I was being spiked with drugs or herbs that made me extremely sexually aroused, and led me to masturbate for an unseen audience, while I was also being groomed HEAVILY online with MRA seduction tactics on Twitter and elsewhere.
     - We have to assume that I am the tip of the iceberg with regards to these sorts of honey-trap manipulation techniques and it is highly likely children are being targeted in the same way.
 
-## Honey trap
+## Honey traps
 
-- I believe that the `@jctot19` account is fundamentally a honey-trap account.
+- I realize that the `@jctot19` account is fundamentally a honey-trap account.
 - Is it possible I blew his cover and that is why the tweets from this account stopped on 15th January?
 - I think it's highly likely given they shut all communication down the moment I said [something that directly related to Winston May](january.md#galway-ireland-tt).
-- Did they do this because they're fully aware that while they watch their targets constantly, they're also being monitored and recorded constantly by law enforcement?
+- Did they do this because they're fully aware that while they watch their targets, they're also being monitored and recorded by law enforcement?
 - Regardless, bizarrely, tailored Google search results related to this account are still active.
 - I notice the newer entries are coming from retweeted posts.
 - I suspect the retweets are automated on such accounts to make them look like they're being used regularly by a normal person.
 - Carmen and Rocio Vidal still feature in the Google search results at the end of November 2024.
 - Carmen is obviously Carmen Cano Lopez, Domingo the piano teacher's sister.
-- I post about [seduction techniques](../../evidence/manipulation.md) on Twitter: https://x.com/1FRGVN/status/1860132157890679006 on 23rd November.
+- I post about [seduction techniques](../../evidence/manipulation.md) on Twitter: https://x.com/1FRGVN/status/1860132157890679006 on the 23rd November.
 
 ??? info "Seduction techniques tweet"
     ~
