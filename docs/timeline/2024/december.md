@@ -1,5 +1,13 @@
 # December 2024
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Unable to access my laptop
 
 - Sunday 1st December, my laptop is inaccessible. The password does not work at all.
