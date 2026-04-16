@@ -233,12 +233,6 @@ markdown_extensions:
 plugins:
   - search
   - open-in-new-tab
-  - mkdocs-video:
-      is_video: true
-      video_muted: true
-      video_controls: true
-      #css_style:
-      #width: "50%"
   #- git-revision-date-localized
   #- social:
   #    cards_layout_options:

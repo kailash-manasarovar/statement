@@ -84,7 +84,7 @@ function googleTranslateElementInit() {
 
 - Was there some Buddha-level kung fu going on?
 
-![type:video](https://www.youtube.com/embed/M_VrRk9GdBw)
+[![Buddha-level kung fu](../../content/images/buddha-level-kung-fu.jpg)](https://www.youtube.com/embed/M_VrRk9GdBw)
 
 ### A loud voice
 
