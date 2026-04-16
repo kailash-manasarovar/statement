@@ -95,13 +95,24 @@ The report details the following:
 - While I was being severely and daily drugged with hallucinogens and toxic substances without my knowledge, it was hard to make sense of the information I was receiving, but I have been steadily piecing it all together.
 - I believe that without this man's help, I would not be here today.
 
-### Countless victims 
+### From honey-trapping to world manipulation
+
+- These people started life as honey-trappers; target a wealthy woman, trick her into thinking she's in love with you, film sex with her, and blackmail her with it.
+- If, perhaps, the target is very wealthy, they might set up a fake marriage situation and then murder the woman and inherit.
+- Evidence for this comes from [the Irene photos](timeline/2023/july.md#plate-lady-early-in-the-month) dating back decades.
+- I believe their honey-trap manipulation tactics were easily transferrable into software once the world was online and via social media hacks; this is how, today, millions of children and toddlers are persuaded to produce porn for the gangs directly.
+- I also believe they saw other more lucrative revenue streams for their manipulation tech; realizing that the lies they're persuading everyone to believe do not have to reside solely in romance.
+- In a town accountable to no-one, where zero morals reign and obvious detrimental long-term consequences are ignored, I believe criminal gangs found ways to make money by persuading people to kill themselves, to believe they are sick - to the extent of even describing symptoms, to persuade girls that they're boys and vice versa, and to persuade the Western world that murderous Islamic savages are of more value than everyone else: to go quite mad, essentially.
+- I believe they make billions from all this and they need to be stopped, and quick.
+
+### Countless criminal-porn victims 
 
 - When the gangs performed their switcheroo scam on me in 2022-2023, it was obvious to me this was an extremely well-oiled machine.
 - There must be countless victims young and old; many murdered.
 - I intend this police statement to help every last one of those victims, dead or alive.
 - I believe that [**every daily event**](timeline/2001-to-2010/2001.md) I detail in the timeline of this police statement was videoed and broadcast to a mostly porn-addict and vile misogynist online audience as a kind of "show" which explains the townsfolk's total insanity and has also made criminal gangs very rich.
 - This is, essentially, why so many people know who I am.
+- It's possible that millions of porn-addicts around the world were betting on the outcome for me.
 - I was in a kind of Truman Show, except the "Truman" is a targeted individual, usually a woman but not always, can be a child, and these "Trumans" are expected to die by suicide or serious ill health from poisoning, or be outright murdered, and none have never escaped. 
 - Until now.
 
