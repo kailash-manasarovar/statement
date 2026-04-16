@@ -90,7 +90,7 @@ function googleTranslateElementInit() {
 
 - The following morning I wake up.
 - My head is screaming at me.
-- I guess I'm under a serious influence of hallucinogenic drugs.
+- Years later I realize I must be under the serious influence of hallucinogenic drugs.
 - As I'm sitting at the end of my bed, distressed, I hear a loud voice say: "He is not for you."
 - I have no idea where this voice comes from.
 - I do not believe this voice.
