@@ -84,7 +84,6 @@ function googleTranslateElementInit() {
 
 - Was there some Buddha-level kung fu going on?
 
-<!-- a loving gesture -->
 <iframe width="560" height="315"
 src="https://www.youtube.com/embed/M_VrRk9GdBw"
 frameborder="0" allowfullscreen>
