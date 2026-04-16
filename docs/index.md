@@ -51,9 +51,9 @@ This police statement details the following:
 - Throughout the switcheroo porn special, I was drugged heavily at classes and tricked into believing that four or more men were the same one male trumpet teacher calling himself Vidal Sastre Sanchez Hornero; all the men switching places regularly without me noticing.
 - The trumpet teacher scam was well known to the Spanish government's school board, the Generalitat, and had taken place many times before.
 - Teachers, staff, students (including children), parents, townsfolk and others in Dénia knew exactly what was going on at the conservatory and appeared to condone, approve, and even delight in it.
-- It's clear that organized criminal porn gangs have infiltrated at a minimum the conservatory systems in Spain, and likely other learning establishments where there are many children in attendance, and are free to target children and teenagers, as well as any vulnerable adult who might be lured in.
+- It's clear that organized criminal porn gangs have infiltrated at a minimum the conservatory systems in Spain, and likely other learning establishments, and are free to target children and teenagers, as well as any vulnerable adult who might be lured in.
 - Targets are most often foreign women and children, or Spanish outsiders; those who don't know *how things work* in the Valencian region. 
-- The conservatory is just one example of criminal porn-gang infiltration into the whole of society in the region - the most horrific bar the baby-rape industry - but this report also details decades of similar spy-cam and sexploitation crime against women, children, and babies, targeted by the same criminal pornographers who have been freely producing the very worst sort of pornography for decades.
+- The conservatory is just one example of criminal porn-gang infiltration into the whole of society in the region - the most horrific bar the baby-rape industry - and this report also details decades of similar spy-cam and sexploitation crime against women, children, and babies, targeted by the same criminal pornographers who have been freely producing the very worst sort of pornography for decades.
 - I detail near-daily instances of physical stalking assisted by pinpoint tracking of my movements via my hacked mobile phones - and probably tracking on my car since I stopped using my phones - in order to harass me and create intricate choreographed situations with the sole intention of terrorizing me and causing me extreme anxiety and grievous mental and emotional harm.
 - The mental and emotional hurts were intended to give me a reasonable explanation for the anxiety and depression arising from repeated sedated-rape, and the toxic effects arising from drugging and poisoning.
 - I suffered drugging, poisoning, sexual grooming, and honey-trapping [online and in the classrooms](timeline/2023/january.md#serious-poisoning-at-chamber-music-class) of the conservatory of Dénia.
@@ -71,7 +71,7 @@ This police statement details the following:
 - With such confidence in *getting away with it*, criminal porn-gangs were free to forge close alliances with my employers to create even more elaborate and sickening [criminal porn genres](timeline/2023/november.md#polygon) watched by the men I was working with; obviously making millions in the process.
 - The porn gangs have made a lot of money out of me over the decades, and I'm not the only victim.
 - All over Dénia, men young and old drive flashy new sports cars worth minimum $50K and upwards. This is a poor town with apparently zero industry.
-- I detail unusual events taking place in the town that may point to mass child-sex trafficking and other porn horrors.
+- I detail unusual events taking place in the town that may point to mass child-sex-trafficking and other porn horrors.
 - By the summer of 2024, the porn-gangs had finished with the *female tech-colleague you hate* porn genre, yet were still drugging and stalking me continuously as they worked steadily towards my assured total destruction.
 - I was interviewed online in October 2024 by a fellow UK general election candidate. 
 - The video was made public on YouTube, where I stated I believed [I was being drugged and there were spy-cams in my apartment filming me](timeline/2024/october.md#youtube-with-kelly-oliver-dougall) and that I had been [targeted professionally at Polygon](timeline/2023/november.md#polygon) where I worked and I was about to take them to tribunal.
@@ -83,6 +83,8 @@ This police statement details the following:
 - In December 2025, my eye doctor tells me all is well.
 - My right kidney, injured by constant poisoning with anti-freeze and other toxic substances in my apartment over three years, remains weak but is healing well now.
 - I have suffered [incalculable personal financial losses that continue](personal/expenses.md), and there has been an even more extraordinary amount of financial gain from my suffering, and countless others, to the [porn-gangs](crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) of Dénia.
+- I am currently homeless, with zero friends or family, and I am unable to work.
+- I do, however, have a lot of God.
 
 ### A friend on the inside
 
