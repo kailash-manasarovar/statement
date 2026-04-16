@@ -84,10 +84,7 @@ function googleTranslateElementInit() {
 
 - Was there some Buddha-level kung fu going on?
 
-<iframe width="560" height="315"
-src="https://www.youtube.com/embed/M_VrRk9GdBw"
-frameborder="0" allowfullscreen>
-</iframe>
+![type:video](https://www.youtube.com/embed/M_VrRk9GdBw)
 
 ### A loud voice
 
