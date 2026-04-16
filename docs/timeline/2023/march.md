@@ -82,8 +82,18 @@ function googleTranslateElementInit() {
 
 ![I held you in my arms](../../content/images/i-held-you-in-my-arms.png)
 
+- Was there some Buddha-level kung fu going on?
+
+<iframe width="560" height="315"
+src="https://www.youtube.com/embed/M_VrRk9GdBw"
+frameborder="0" allowfullscreen>
+</iframe>
+
 ### A loud voice
 
+- The following morning I wake up.
+- My head is screaming at me.
+- I guess I'm under a serious influence of hallucinogenic drugs.
 - As I'm sitting at the end of my bed, distressed, I hear a loud voice say: "He is not for you."
 - I have no idea where this voice comes from.
 - I do not believe this voice.
