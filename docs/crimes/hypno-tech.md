@@ -91,10 +91,16 @@ It's actually very, very simple, but exceptionally illegal.
 ### Social media
 
 1. Hackers have built plugins for all social media platforms.
-1. Targets browser applications are hacked with a simple css rewrite hack.
+1. Targets' browser applications are hacked with a simple css rewrite hack.
 1. The hypno-tech runs in step with a target's social media activity.
 1. Criminals can surround targets with multiple fake social media accounts and communicate directly with them.
 1. It is likely the porn-gangs offer subscribers paid access to sex-slave targets and others, children and toddlers especially I believe, in this way.
+
+### Porn-subscribing conspirator plugins
+
+1. Hackers have a vast database of criminal-porn viewers to hand.
+1. Any one of these users can usually be counted upon for conspiratorial purposes using threats such as, "we'll tell your mum", or permutations thereof.
+1. Hackers have built plugins for conspiratorial subscriber accounts such a tech businesses desirous of paying-to-view target buckets such as their *female-colleague-you-hate*, for example.
 
 ## Scaling up, the evolution of the system
 
@@ -107,7 +113,10 @@ It's actually very, very simple, but exceptionally illegal.
 
 ## Problems with the software, or what they don't tell the buyers
 
-- The manipulation needs drugs to make it really work; such as aphrodisiacs and hallucinogens for example. Porn-addicts are probably high on something or drunk which is why they've been so easily manipulated.
+- The manipulation needs drugs to make it really work; such as aphrodisiacs and hallucinogens for example.
+    - Porn-addicts are probably high on something or drunk which is why they've been so easily manipulated.
+    - 13-year-old self-harming girls are usually on some mentally-debilitating prescription.
+    - Etc.
 - A lie, once believed by enough people, can evolve into something uncontrollable and very, very dangerous; maybe especially for those that believe they owned or "created" or paid for it.
 
 [![Thank you](../content/images/thank-you.png)](../timeline/2024/september.md#letters-and-a-thank-you)
