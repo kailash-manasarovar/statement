@@ -120,4 +120,17 @@ It's actually very, very simple, but exceptionally illegal.
     - Etc.
 - A lie, once believed by enough people, can evolve into something uncontrollable and very, very dangerous; maybe especially for those that believe they owned or "created" or paid for it.
 
+## Healing the world's worst EVER adolescent-boys-messy-bedroom problem
+
+- I expect this is as simple as the tech implies.
+
 [![Thank you](../content/images/thank-you.png)](../timeline/2024/september.md#letters-and-a-thank-you)
+
+- It would need a plugin feature that undoes every lie it ever sent out.
+- As balm on top, it might like to send out truth instead; such as *You are loved*, perhaps.
+- It's so easy to save the world, why is everyone making it so blumin' difficult?
+- Or, when do we start?
+- I'm getting impatient now.
+- I guess you don't even need me for this.
+- I'll be up a mountain somewhere.
+- I love you.
