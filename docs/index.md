@@ -94,7 +94,7 @@ This police statement details the following:
 - He told me about the region's decades-long honey-trap enterprise, sending me photographic evidence in the process.
 - He sent me pictures of countless other female victims the gangs had targeted over many decades, some sexploitation blackmail victims, but many of whom I believe to have been murdered.
 - He sent me pictures of the men involved in [the conservatory switcheroo porn-scam](crimes/protagonists/vidal-sastre.md#at-least-four) and much information I have been adding to this police statement.
-- He told me about the proliferation of child-porn and the baby-rape industry in in Dénia that the gangs are involved in.
+- He told me about the proliferation of child-porn and the baby-rape industry in Dénia; one of the gang’s major sources of income.
 - He warned me about poisoning in my home, and my car, amongst other things.
 - While I was being severely and daily drugged with hallucinogens and toxic substances without my knowledge, it was hard to make sense of the information I was receiving, but I have been steadily piecing it all together.
 - There is no doubt in my mind that without this man's help, I would not be here today.
