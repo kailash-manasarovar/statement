@@ -99,6 +99,8 @@ This police statement details the following:
 - While I was being severely and daily drugged with hallucinogens and toxic substances without my knowledge, it was hard to make sense of the information I was receiving, but I have been steadily piecing it all together.
 - There is no doubt in my mind that without this man's help, I would not be here today.
 
+![Super-hero squirrel](content/images/super-hero-squirrel.png)
+
 ### From honey-trapping to world manipulation
 
 - These people started life as honey-trappers; target a wealthy woman, trick her into thinking she's in love with you, film sex with her, and blackmail her with it.
