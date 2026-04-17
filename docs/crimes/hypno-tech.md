@@ -100,7 +100,7 @@ It's actually very, very simple, but exceptionally illegal.
 
 1. Hackers have a vast database of criminal-porn viewers to hand.
 1. Any one of these users can usually be counted upon for conspiratorial purposes using threats such as, "we'll tell your mum", or permutations thereof.
-1. Hackers have built plugins for conspiratorial subscriber accounts such a tech businesses desirous of paying-to-view target buckets such as their *female-colleague-you-hate*, for example.
+1. Hackers have built plugins for conspiratorial subscriber accounts such a tech businesses desirous of paying-to-view target buckets such as the [*female-colleague-you-hate*](../timeline/2023/november.md#polygon), for example.
 
 ## Scaling up, the evolution of the system
 
