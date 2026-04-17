@@ -102,6 +102,13 @@ It's actually very, very simple, but exceptionally illegal.
 1. Any one of these users can usually be counted upon for conspiratorial purposes using threats such as, "we'll tell your mum", or permutations thereof.
 1. Hackers have built plugins for conspiratorial subscriber accounts such a tech businesses desirous of paying-to-view target buckets such as the [*female-colleague-you-hate*](../timeline/2023/november.md#polygon), for example.
 
+### Frequency matching
+
+- This function applies a frequency value to emotional peaks recorded from peripherals, and relates the frequency to the specific emotion: key-value pairs.
+- Then, when the criminals want to evoke an elevated emotion in a target, they replay the frequency through the device hardware.
+- This is how they invoked overwhelming sexual arousal in me but it did need coupling with the effects of clandestine hallucinogen intake.
+- It will be interesting to know which frequency ranges they were using for this, and why.
+
 ## Scaling up, the evolution of the system
 
 - The Dénia and North London hypno-tech has been operational for decades and thus what was probably quite rudimentary in the year 2000, say, is now pretty advanced.
