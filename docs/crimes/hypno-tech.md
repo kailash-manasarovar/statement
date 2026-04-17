@@ -80,10 +80,10 @@ It's actually very, very simple, but exceptionally illegal.
     - It's obscene how simple this is.
     - The hack is at the hardware level so a target's whole screen can be taken over at any time.
     - Software flashes memes up on the whole screen at high frequencies; just simple text, words.
-    - I expect statements like; "I'm going to kill myself", or indeed even orders, "Kill yourself NOW!".
-    - The subliminal-meme functionality is AI-based and learning, so it adjusts for efficacy, continually correcting itself for optimal effect by a targets responses but this functionality is processed on the hacker's side. 
-    - Perhaps one target is more manipulated by orders, while another is more manipulated by words emulating their own thoughts.
     - Psychological/emotional batterings will be a favorite no doubt.
+    - I expect statements like; "I'm going to kill myself", or indeed even orders, "Kill yourself NOW!".
+    - Perhaps one target is more manipulated by orders, while another is more manipulated by words emulating their own thoughts.
+    - The subliminal-meme functionality is AI-based and learning, so it adjusts for efficacy, continually correcting itself for optimal effect by a target's physiological responses - data captured by hardware peripherals - but this functionality is processed on the hacker's side. 
 3. Target's physiological reactions are fed back into the system for detecting changes which signify positive results.
 
 ## Plugin features
