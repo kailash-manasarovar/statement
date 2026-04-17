@@ -104,12 +104,13 @@ It's actually very, very simple, but exceptionally illegal.
 
 ## Scaling up, the evolution of the system
 
-- This tech has been operational for decades and thus what was probably quite rudimentary in 2000, say, is now pretty advanced.
-- It can persuade people to think they are sick or depressed; and now and then probably match an inherent physical or psychological weakness and exacerbate it.
-- I believe this tech has forced people into committing suicide; such as Lorraine Blackbourn, for example.
+- The Dénia and North London hypno-tech has been operational for decades and thus what was probably quite rudimentary in the year 2000, say, is now pretty advanced.
+- It can persuade people to think they are sick or depressed; and now and then probably match an inherent physical or psychological weakness and exacerbate or manifest it.
+- When two or more people in close proximity are subject to the same manipulation techniques, we might see evidence of mass delusion-based sicknesses.
+- I believe this tech has forced people into committing suicide; such as tragically happened with Lorraine Blackbourn, for example, who was a psychologically vulnerable person.
 - The tech was born when targets were just the odd woman here and there that no-one was gonna miss once she disappeared into porn-world.
-- Nowadays the tech has scaled up enormously and a "target" might be considered a whole bucket/population; such as *autistic self-harming 13-year old girls* made up of millions of children.
-- I believe that the mass insanity we are seeing in the world today is largely due to the porn-gangs of Dénia and North London stumbling upon a power they should never have had. 
+- Nowadays the tech has scaled up enormously and a "target" might be considered a whole bucket/population; such as *autistic self-harming 13-year old girls* or *toddlers-allowed-access-to-mummys-iphone*, made up of millions and millions of vulnerable children.
+- I also believe that the mass insanity we are seeing in the world today - a bucket possibly labeled as *left-leaning-empathic-professional* - is largely due to the porn-gangs of Dénia and North London stumbling upon a power they should never have had. 
 
 ## Problems with the software, or what they don't tell the buyers
 
