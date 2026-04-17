@@ -2,7 +2,7 @@
 
 The porn-gangs of Dénia and North London have been employing vast armies of criminal developers to run game on porn targets and others for many decades.
 
-While I was in full manipulation mode, I was able to capture and remember the information about what was going on by not becoming *attached* to it; i.e. I am able to stop believing a lie fed to me immediately the manipulation ceases, and notice how the (fake) belief starts up again once the manipulation cranks up again online.
+While I was in full manipulation mode, I was able to capture and remember the information about what was going on by not becoming *attached* to it; i.e. I am able to stop believing a lie fed to me immediately the manipulation ceases, and notice how the (fake) belief starts up again once the manipulation-engine cranks up again online.
 
 I expect my intense meditation practices helped me navigate this mind-controlling environment somewhat safely; and even give a bit of a fight back, which was nice.
 
