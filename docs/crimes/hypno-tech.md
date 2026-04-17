@@ -4,17 +4,17 @@ The porn-gangs of Dénia and North London have been employing vast armies of cri
 
 ![Hypno-tech](../content/images/hypno-tech.png)
 
-While I was in full manipulation mode, I was able to capture and remember the information about what was going on by not becoming *attached* to it; i.e. I am able to stop believing a lie fed to me immediately the manipulation ceases, and notice how the (fake) belief starts up again once the manipulation-engine cranks up again online.
+While I was in full manipulation mode, I was able to capture and remember the information about what was going on by not becoming *attached* to it; i.e. I am able to stop believing a lie fed to me immediately the manipulation ceases, and notice how the (fake) belief reappears once the manipulation-engine cranks up again online.
 
 I expect my intense meditation practices helped me navigate this mind-controlling environment somewhat safely; and even give a bit of a fight back, which was nice.
 
 ## History
 
-What had for centuries been a way to control women by a subtle yet physical choreography of words, ideas, and actions - such as that which I experienced at the hands of teachers and staff at the conservatory - over the last three decades has been bolstered with technology and become a monstrous and hideous world-destroying doomsday machine.
+What had for centuries been a way to control women by a subtle yet physical choreography of words, ideas, and actions - such as that which I experienced at the hands of teachers and staff at the conservatory - over the last three decades has been bolstered with technology to become a hideous world-destroying doomsday machine.
 
 As soon as everyone went online, entrapment into porn and prostitution that had often taken months and years to plan and arrange, could happen much more quickly, and at scale too.
 
-Instead of targeting the specific women and children brought in by [introduction agents](introduction-agents.md) - which they didn't stop doing even though they could have - women and children could now be targeted online in vast numbers globally using hypno-tech software with functionality that matches and enhances the physical manipulation techniques they had been using on women for decades, possibly centuries.
+Instead of targeting the specific women and children brought in by [local introduction agents](introduction-agents.md) - which they didn't stop doing even though they could have - women and children could now be targeted online in vast numbers globally using hypno-tech software with functionality that matches and enhances the traditional physical manipulation techniques they had been using on women.
 
 Instead of a few significant moments causing upset to a target's mind in a day, say, the hypnosis engine could now run literally 24-7 as long as the target keeps their phone on, and if they're at their computer for any significant time, this makes for a booster dose.
 
@@ -37,11 +37,12 @@ It's actually very, very simple, but exceptionally illegal.
 1. High value targets making millions for the gangs are known personally.
 1. A small team will monitor such a target's online activity 24-7.
 1. If the target is also under spy-cam surveillance, this includes watching them 24-7.
+1. Hackers told me they had three VIP targets like this, including myself, when I asked.
 
 ### Background knowledge
 
 1. For VIP targets this might be years or a whole lifetime of known personal triggers; such as trauma from sex-abuse, family upsets, financial status, everything they've ever said and done, all their relationships, etc.
-1. For regular targets made up of large groups of people filtered into a trigger-bucket, the software knows enough about the population as a whole to know what will get their attention.
+1. For regular targets made up of large groups of people filtered into a trigger-bucket, the software knows enough about the population as a whole to generate memes guaranteed to get their attention.
 
 ## Installation guide
 
