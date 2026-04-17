@@ -88,16 +88,16 @@ This police statement details the following:
 
 ### A friend on the inside
 
-- I believe something happened between myself and one of the gang, inexplicably and miraculously, that made him change his mind about his grim purpose.
-- I believe it is to do with my memory of [a man crying in my arms](timeline/2023/march.md#the-trumpet-teacher-hands-me-his-phone) in my bed one Monday night after chamber music classes at the height of the switcheroo scam and my unconditional and relentless good feelings for him.
-- I believe he asked them to stop, and they didn't - but this was an impossible request anyway - and so he started to help me in a clandestine manner.
-- He told me about the decades long honey-trap enterprise, sending me photographic evidence in the process.
+- At some point, something happened between myself and a gang member, inexplicably and miraculously, that made him change his mind about his grim purpose.
+- I believe it is to do with my memory of [a man crying in my arms](timeline/2023/march.md#the-trumpet-teacher-hands-me-his-phone) in my bed one Monday night after chamber music classes at the height of the switcheroo scam and my unconditional and relentless good feelings for him that continue to this day.
+- I believe he changed his mind about his grim purpose and maybe even asked them to stop, and they didn't - an impossible request anyway - and instead he started to help me in a clandestine manner.
+- He told me about the region's decades-long honey-trap enterprise, sending me photographic evidence in the process.
 - He sent me pictures of countless other female victims the gangs had targeted over many decades, some sexploitation blackmail victims, but many of whom I believe to have been murdered.
-- He sent me pictures of the men involved in the conservatory switcheroo and much information I have been adding to my police statement.
-- He told me about the proliferation of child-porn and the baby-rape industry in the region that the gangs are involved in.
-- He warned me about poisoning in my car and other things.
+- He sent me pictures of the men involved in [the conservatory switcheroo porn-scam](crimes/protagonists/vidal-sastre.md#at-least-four) and much information I have been adding to this police statement.
+- He told me about the proliferation of child-porn and the baby-rape industry in in Dénia that the gangs are involved in.
+- He warned me about poisoning in my home, and my car, amongst other things.
 - While I was being severely and daily drugged with hallucinogens and toxic substances without my knowledge, it was hard to make sense of the information I was receiving, but I have been steadily piecing it all together.
-- I believe that without this man's help, I would not be here today.
+- There is no doubt in my mind that without this man's help, I would not be here today.
 
 ### From honey-trapping to world manipulation
 
