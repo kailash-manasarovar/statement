@@ -89,7 +89,7 @@ This police statement details the following:
 ### A friend on the inside
 
 - At some point, something happened between myself and a gang member, inexplicably and miraculously, that made him change his mind about his grim purpose.
-- I believe it is to do with my memory of [a man crying in my arms](timeline/2023/march.md#the-trumpet-teacher-hands-me-his-phone) in my bed one Monday night after chamber music classes at the height of the switcheroo scam and my unconditional and relentless good feelings for him that continue to this day.
+- I believe it is to do with my memory of [a man crying in my arms](timeline/2023/march.md#dreaming-of-the-trumpet-teacher) in my bed one Monday night after chamber music classes at the height of the switcheroo scam and my unconditional and relentless good feelings for him that continue to this day.
 - I believe he changed his mind about his grim purpose and maybe even asked them to stop, and they didn't - an impossible request anyway - and instead he started to help me in a clandestine manner.
 - He told me about the region's decades-long honey-trap enterprise, sending me photographic evidence in the process.
 - He sent me pictures of countless other female victims the gangs had targeted over many decades, some sexploitation blackmail victims, but many of whom I believe to have been murdered.
