@@ -114,12 +114,14 @@ It's actually very, very simple, but exceptionally illegal.
 
 ## Problems with the software, or what they don't tell the buyers
 
-- A requirement they don't tell you about is that the manipulation needs drugs to make it really work; such as aphrodisiacs and hallucinogens, for example.
+- A requirement they don't tell you about is that the manipulation-tech needs drugs to make it really work; such as aphrodisiacs and hallucinogens, for example.
 - Certain populations already fulfil this requirement, but not all:
-    - Porn-addicts are probably high on something or drunk which is why they've been so easily manipulated.
+    - Porn-addicts are probably high on something or drunk when they're online, which is why they've been so easily manipulated.
     - 13-year-old self-harming girls are usually on some mentally-debilitating prescription.
-    - Left-leaning professional take the most drugs, I'm told.
-- However, a lie, once believed by enough people, can evolve into something uncontrollable and very, very dangerous; maybe even especially for those that believe they owned or “created” or paid for it.
+    - Left-leaning professionals take the most drugs, I'm told.
+- However, a lie, once believed by enough people, can evolve into something uncontrollable and very, very dangerous; maybe even especially so for those that believe they owned or “created” or paid for it.
+
+![Topheth](../content/images/topheth.jpg)
 
 ## Healing the world's worst EVER adolescent-boys-messy-bedroom problem
 
