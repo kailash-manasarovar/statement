@@ -101,15 +101,29 @@ This police statement details the following:
 
 ![Super-hero squirrel](content/images/super-hero-squirrel.png)
 
-### From honey-trapping to world manipulation
+### From honey-trapping to world domination
 
-- These people started life as honey-trappers; target a wealthy woman, trick her into thinking she's in love with you, film sex with her, and blackmail her with it.
-- If, perhaps, the target is very wealthy, they might set up a fake marriage situation and then murder the woman and inherit.
+- The criminality in Dénia began as honey-trapping; target a wealthy woman, trick her into thinking she's in love, film the sex, and blackmail her with it.
 - Evidence for this comes from [the Irene photos](timeline/2023/july.md#plate-lady-early-in-the-month) dating back decades.
-- I believe their honey-trap manipulation tactics were easily transferrable into software once the world was online and via social media hacks; this is how, today, millions of children and toddlers are persuaded to produce porn for the gangs directly.
-- I also believe they saw other more lucrative revenue streams for their manipulation tech; realizing that the lies they're persuading everyone to believe do not have to reside solely in romance.
-- In a town accountable to no-one, where zero morals reign and obvious detrimental long-term consequences are ignored, I believe criminal gangs found ways to make money by persuading people to kill themselves, to believe they are sick - to the extent of even describing symptoms, to persuade girls that they're boys and vice versa, and to persuade the Western world that murderous Islamic savages are of more value than everyone else: to go quite mad, essentially.
-- I believe they make billions from all this and they need to be stopped, and quick.
+- If the target is from a wealthy family, they might even set up a fake marriage situation, wait till she inherits and then murder her.
+- Honey-trapping for porn and prostitution was also going on of course but, significantly, the porn being produced in the Dénia region was often of the vilest sort; bestiality, pedophilia, and murder-porn.
+- As soon as the Internet connected everyone up, the gangs transferred their manipulation techniques into software and no-one could have imagined how successful it was going to be.
+- The gangs not only mass-target victims for filming but they worsen user's porn-addictions, "honey-trapping" them into viewing more violence, then pedophilia. and worse.
+- The more criminal the porn, the more expensive it is to view and today even millions of children and toddlers are manipulated online into self-producing porn for the gangs directly.
+- This is how effective their manipulation tech is.
+- At some point, some bright spark amongst them must have realized that porn was just one of a million lucrative themes the manipulation tech could be used for.
+- I believe the criminals of Dénia sold their tech to the caliphate once they had demonstrated its power by tricking [Alessandra into undergoing an unnecessary bone-marrow transplant](timeline/2001-to-2010/2009.md#alessandra-gets-sick-or-does-she), and [Lorraine's daughter into believing she's a boy](timeline/early-years/2013.md#lorraines-trans-child).
+- From here, I believe the gangs went back-to-basics using targets like myself for blackmailing porn-obsessed tech CEOs into giving them use of their massive processing hubs in order to run the caliphate AI tech.
+- Just over ten years of this lying-software out in the wild and the world has gone totally mad.
+- We are suffering from a tidal wave of sexual perversion and hatred towards women and children and Jewish people.
+- We have children being totally confused about their bodies and their sex by their teachers; society quite happy to render them incapable of orgasm or procreation on an ideological basis alone.
+- In Spain, your child might be starring in porn, with-or-without your knowledge, while attending music classes.
+- Even more worryingly is the mass delusions of apparently educated people towards barbaric Islamic groups coupled with a terrifying rise in antisemitism which is starting to look like scenes from Nazi Germany.
+- Every day a man is in court in the UK having downloaded thousands of baby-rape videos; the judge giving him a slap on the wrist.
+- I believe the criminality allowed to flourish and distend in Dénia - baby-rape capital of the world - is behind it all.
+- In a town accountable to no-one, where zero morals reign and obvious detrimental long-term consequences are ignored, I believe the criminal gangs and the local people have completely lost their minds.
+- Their [hypno-tech doomsday machine](crimes/hypno-tech.md) needs to be stopped, and quick.
+- I suspect some of the wiser amongst them agree with me too.
 
 ### Countless criminal-porn victims 
 
