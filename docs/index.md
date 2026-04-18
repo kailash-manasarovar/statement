@@ -127,6 +127,7 @@ This police statement details the following:
 - In a town accountable to no-one, where zero morals reign and obvious detrimental long-term consequences are ignored, I believe the criminal gangs and the local people have completely lost their minds.
 - Their [hypno-tech doomsday machine](crimes/hypno-tech.md) needs to be stopped, and quick.
 - I suspect some of the wiser amongst them (and hopefully at least some of the women) agree with me too.
+- In their obsessive relentless crucifying, they only ended up crucifying themselves.
 
 ### Countless criminal-porn victims 
 
