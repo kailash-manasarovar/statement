@@ -16,4 +16,5 @@
 - I wonder if they get warned via WhatsApp groups or direct messages?
 - It's literally every where I go.
 - Are the gangs hoping that one of these idiots takes the initiative and attacks me; while filming obviously?
+- Is this why no-one's doing a thing about it, because nearly all men in existence are complicit?
 
