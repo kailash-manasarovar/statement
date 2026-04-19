@@ -66,15 +66,16 @@ function googleTranslateElementInit() {
 
 ### The stalker from Cauterets
 
-- At the concert, I see someone else I think I recognize.
+- At the concert, I see someone else I recognize.
 - It's [the running man I saw in Cauterets](september.md#a-stalker-from-denia-in-cauterets) in September.
-- He is with his son who is studying the double bass.
+- He is with his son who is playing the double bass.
 - I do a double take and wonder if he is a film or TV star he's so familiar, and then I realize I'd seen him in Cauterets and thought nothing much of it again.
 - I guess he was in Cauterets at the same time as me, which at the time seemed just coincidental, but we know nothing is coincidental with this lot!
 - I see the same man once again at the online [chamber music meeting in September 2023](../2023/september.md#chamber-music).
 - He is sitting with [Katia](../2023/september.md#katia) as if they are both at home, as if he is her husband.
-- Later, when things don't work out as entirely expected for them, they will put Katia with another man at [the Adams Family event](../2023/november.md#the-adams-family) I'm scheduled to attend.
+- Later, when things don't work out as entirely expected for the music-school-rape-pornographers, they will put Katia with another man at [the Adams Family event](../2023/november.md#the-adams-family) I'm scheduled to attend.
 - Do they do this to distance her from the conservatory parent who stalked me in Cauterets before I'd even started my piano studies again?
+- How many conservatory parents visited me sedated at my home in Carrer Furs?
 
 ## Feeling unwell at home
 
