@@ -26,7 +26,7 @@ function googleTranslateElementInit() {
 ### A stalker from Dénia in Cauterets?
 
 - For the last week of my stay, I bump into a couple regularly on the hiking paths and in the town.
-- They are often running the mountain trail around Cauterets.
+- They are often running the mountain trail around Cauterets at the same time I walk it.
 - There is nothing unusual about them except I'm drawn to the man's face, I recognize it somehow.
 - I think he must be a film or TV star, and that's why I know him.
 - He has a very distinctive look.
@@ -36,7 +36,7 @@ function googleTranslateElementInit() {
 - I will see the man yet again at the conservatory's [online meeting in September 2023](../2023/september.md#chamber-music) led by Paqui Fornet.
 - He is sitting with [Katia](../2023/september.md#katia) and doesn't participate in the meeting but is yet visible to everyone as if he is her husband and they're sat at home.
 - Is it possible this man had already been in my apartment without my knowledge, and that's how I know him? 
-- Is it possible that the sedating and raping had started long before my conservatory studies began?
+- Is it possible that the sedating and raping had started long before my conservatory studies began, and parents of students at the music school were invited to take part?
 - I would recognize this man in an instant.
 
 ## Threatening tweets
