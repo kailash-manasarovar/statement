@@ -131,15 +131,15 @@ This police statement details the following:
 
 ![Undoers of the hypno-tech](content/images/hypno-tech.png)
 
-### Countless criminal-porn victims 
+### A well-oiled sedated-rape-porn machine 
 
-- When the gangs performed their switcheroo scam on me in 2022-2023, it was obvious to me this was an extremely well-oiled machine.
-- There must be countless victims young and old; many murdered.
+- The conservatory's switcheroo scam they ran in 2022-2023 was obvious a very well-oiled machine already.
+- There must be countless victims young and old; many missing, presumably murdered.
 - I intend this police statement to help every last one of those victims, dead or alive.
-- I believe that [**every daily event**](timeline/2001-to-2010/2001.md) I detail in the timeline of this police statement was videoed and broadcast to a mostly porn-addict and vile misogynist online audience as a kind of "show" which explains the townsfolk's total insanity and has also made criminal gangs very rich.
-- This is, essentially, why so many people know who I am.
-- It's possible that millions of porn-addicts around the world were betting on the outcome for me.
-- I was in a kind of Truman Show, except the "Truman" is a targeted individual, usually a woman but not always, can be a child, and these "Trumans" are expected to die by suicide or serious ill health from poisoning, or be outright murdered, and none have never escaped. 
+- I believe that [**every daily event**](timeline/2001-to-2010/2001.md) I detail in the timeline of this police statement was videoed and broadcast to a porn-addict and vile misogynist online community as a kind of "show" which explains the townsfolk's total insanity and has also made criminal gangs very rich.
+- This is, essentially, why I'm so famous.
+- I believe that millions of porn-addicts around the world were, and maybe still are, betting on the outcome for me; madness, suicide, murder, more sedated-rape, etc.
+- I was/am in a kind of Truman Show, except "Truman" is a targeted individual, usually a woman but not always, is probably often child student of the conservatory, and us "Trumans" are expected to die by suicide or serious ill health from poisoning, or go quite mad, or be outright murdered, and none have never escaped. 
 - Until now.
 
 ### Lorraine Blackbourn
