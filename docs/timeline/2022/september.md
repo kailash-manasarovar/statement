@@ -23,19 +23,20 @@ function googleTranslateElementInit() {
 
 ![Premonitions](../../content/images/premonitions.png)
 
-### A curious man
+### A stalker from Dénia in Cauterets?
 
-- For about a week of my stay, there was a couple I bumped into regularly on the trails and in the town.
-- They were usually running the trail around Cauterets.
-- Nothing unusual about them except I'm drawn to his face, I recognize it somehow.
+- For about a week of my stay, I bumped into a couple regularly on the trails and in the town.
+- They were often running the trail around Cauterets.
+- There is nothing unusual about them except I'm drawn to his face, I recognize it somehow.
 - I think he must be a film or TV star, and that's why I know him.
 - He has a very distinctive look.
 - I will see the same man at the [choir concert in December](december.md#the-curious-man) and do a double-take.
-- Again, I think he must be a film or TV star, and that's why I know him.
-- I saw the man yet again on the [online meeting in September 2023](../2023/september.md#chamber-music) led by Paqui Fornet.
-- He was sitting with [Katia](../2023/september.md#katia).
+- He is with his son who is studying the double bass.
+- Again, I think I must have seen him in a film or on TV and that's how I recognize him.
+- I will see the man yet again on the conservatory's [online meeting in September 2023](../2023/september.md#chamber-music) led by Paqui Fornet.
+- He is sitting with [Katia](../2023/september.md#katia) and doesn't participate in the meeting but is yet visible to everyone.
 - Is it possible this man had already been in my apartment, and that's how I knew him? 
-- Is it possible that the sedating had started long before I began my conservatory studies?
+- Is it possible that the sedating had started long before my conservatory studies began?
 - I would recognize this man in an instant.
 
 ## Threatening tweets
