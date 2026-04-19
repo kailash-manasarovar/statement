@@ -25,18 +25,18 @@ function googleTranslateElementInit() {
 
 ### A stalker from Dénia in Cauterets?
 
-- For about a week of my stay, I bumped into a couple regularly on the trails and in the town.
-- They were often running the trail around Cauterets.
-- There is nothing unusual about them except I'm drawn to his face, I recognize it somehow.
+- For the last week of my stay, I bump into a couple regularly on the hiking paths and in the town.
+- They are often running the mountain trail around Cauterets.
+- There is nothing unusual about them except I'm drawn to the man's face, I recognize it somehow.
 - I think he must be a film or TV star, and that's why I know him.
 - He has a very distinctive look.
-- I will see the same man at the [choir concert in December](december.md#the-curious-man) and do a double-take.
-- He is with his son who is studying the double bass.
+- I will see the same man at the [choir concert in December](december.md#the-stalker-from-cauterets) and do a double-take.
+- At that time, he is with his son who is studying the double bass at the conservatory.
 - Again, I think I must have seen him in a film or on TV and that's how I recognize him.
-- I will see the man yet again on the conservatory's [online meeting in September 2023](../2023/september.md#chamber-music) led by Paqui Fornet.
-- He is sitting with [Katia](../2023/september.md#katia) and doesn't participate in the meeting but is yet visible to everyone.
-- Is it possible this man had already been in my apartment, and that's how I knew him? 
-- Is it possible that the sedating had started long before my conservatory studies began?
+- I will see the man yet again at the conservatory's [online meeting in September 2023](../2023/september.md#chamber-music) led by Paqui Fornet.
+- He is sitting with [Katia](../2023/september.md#katia) and doesn't participate in the meeting but is yet visible to everyone as if he is her husband and they're sat at home.
+- Is it possible this man had already been in my apartment without my knowledge, and that's how I know him? 
+- Is it possible that the sedating and raping had started long before my conservatory studies began?
 - I would recognize this man in an instant.
 
 ## Threatening tweets

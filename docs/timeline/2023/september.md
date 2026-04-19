@@ -936,14 +936,14 @@ function googleTranslateElementInit() {
 ### Katia
 
 - In the online meeting Katia is on Teams sitting next to a man I recognize who doesn't say anything the whole meeting.
-- The man is the same [curious man I saw at the choir concert](../2022/december.md#the-curious-man) who looked so much like [a man I'd seen in Cauterets](../2022/september.md#a-curious-man), I wondered if they were the same person.
+- The man is the same [curious man I saw at the choir concert](../2022/december.md#the-stalker-from-cauterets) who looks like [the man I'd seen in Cauterets](../2022/september.md#a-stalker-from-denia-in-cauterets), I wondered if they were the same person.
 - It's not clear why he is attending the meeting sat next to Katia. He has nothing to say or do, apart from, perhaps, let me see him?
 - Katia play-acts being angry with me throughout the course.
 - The implication is my (non-existent online) love affair with the trumpet teacher is a real thing, that he is going out with Ana as per constant messaging online, and Ana has become extremely angry and jealous of me.
 - It's absurd, but I'm never sure what's true.
 - In December, she *meaningfully* gives me her mobile phone number.
 - [I write to her about everything](../2024/january.md#january-18th-correspondence-to-katia) in January.
-- She does not reply apart from making a weird comment to me the next time I see her at class.
+- She does not reply apart from making a weird comment to me the next time I see her at class; *oh you're very good*, she says.
 
 ### Nacho tries to terrorize me
 

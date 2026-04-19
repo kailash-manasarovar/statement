@@ -64,15 +64,17 @@ function googleTranslateElementInit() {
 
 ![Snakes](../../content/images/snakes.png)
 
-### The curious man
+### The stalker from Cauterets
 
-- At the concert, I saw someone else I thought I recognized.
-- A man who looked exactly like [the running man I saw in Cauterets](september.md#a-curious-man).
-- I did a double take from wondering if he was a film star he was so familiar, and then I realized where I thought I knew him from and thought nothing much of it again.
-- I guess he was in Cauterets at the same time, or someone who looked very much like him was.
-- A strange coincidence, maybe.
-- I saw the same man again at the online [chamber music meeting in September 2023](../2023/september.md#chamber-music).
-- He was sitting with Katia but he is not her husband, as far as I'm aware, who came to a concert instead and looked very different.
+- At the concert, I see someone else I think I recognize.
+- It's [the running man I saw in Cauterets](september.md#a-stalker-from-denia-in-cauterets) in September.
+- He is with his son who is studying the double bass.
+- I do a double take and wonder if he is a film or TV star he's so familiar, and then I realize I'd seen him in Cauterets and thought nothing much of it again.
+- I guess he was in Cauterets at the same time as me, which at the time seemed just coincidental, but we know nothing is coincidental with this lot!
+- I see the same man once again at the online [chamber music meeting in September 2023](../2023/september.md#chamber-music).
+- He is sitting with [Katia](../2023/september.md#katia) as if they are both at home, as if he is her husband.
+- Later, when things don't work out as entirely expected for them, they will put Katia with another man at [the Adams Family event](../2023/november.md#the-adams-family) I'm scheduled to attend.
+- Do they do this to distance her from the conservatory parent who stalked me in Cauterets before I'd even started my piano studies again?
 
 ## Feeling unwell at home
 
