@@ -1,7 +1,7 @@
 ---
 hide:
 - navigation
-- toc
+#- toc
 ---
 
 # Fear & Loathing in Las Marinas
@@ -139,7 +139,7 @@ This police statement details the following:
 - I believe that [**every daily event**](timeline/2001-to-2010/2001.md) I detail in the timeline of this police statement was videoed and broadcast to a porn-addict and vile misogynist online community as a kind of "show" which explains the townsfolk's total insanity and has also made criminal gangs very rich.
 - This is, essentially, why I'm so famous.
 - I believe that millions of porn-addicts around the world were, and maybe still are, betting on the outcome for me; madness, suicide, murder, more sedated-rape, etc.
-- I was/am in a kind of Truman Show, except "Truman" is a targeted individual, usually a woman but not always, is probably often child student of the conservatory, and us "Trumans" are expected to die by suicide or serious ill health from poisoning, or go quite mad from the relentless mental torture, or be outright murdered if we're made of tougher stuff, and none have never escaped. 
+- I was/am in a kind of Truman Show, except "Truman" is a targeted individual, usually a woman but not always, probably often child student of the conservatory, and us "Trumans" are expected to die by suicide or serious ill health from poisoning, or go quite mad from the relentless mental torture, or be outright murdered if we're made of tougher stuff, and none have never escaped. 
 - Until now.
 
 ![Franz Kafka's machine](content/images/kafkas-machine.webp)
