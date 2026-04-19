@@ -132,7 +132,9 @@ function googleTranslateElementInit() {
 
 ![Gallia & Londres hotel bar](../../content/images/gallia-londres-hotel-bar.webp)
 
-- She went to the bar and brought the glasses back with her.
+- She went to the bar to buy champagne, and brought the glasses back with her.
+- She was a long time at the bar.
+- I believe she told the barman lies about me. I saw him 2.5 years later in the town and he looked at me as if I was dog poo.
 - While we were sitting drinking champagne, a bunch of people came into the bar (which was pretty empty) and sat in the seats beside us.
 - They were British; scousers I believe.
 - There was about five men and one woman.
