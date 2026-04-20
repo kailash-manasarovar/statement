@@ -150,11 +150,11 @@ This police statement details the following:
 - Her funeral was a few days later; the very day I went to the beach and saw Caroline England crying at the Rani Palace restaurant.
 - I believe Lorraine was manipulated online into suicide by [the gang's hypno-tech](crimes/hypno-tech.md).
 - I believe Hazel Smith invited Caroline England - devastated by Lorraine's death - [to lunch at the Rani Palace where we saw each other](timeline/2021/july.md#lorraine-blackbourn-commits-suicide).
-- Did Hazel do this to demonstrate the hypno-tech to Caroline, explaining that Lorraine was, in fact, driven to suicide and the same fate is planned for me?
+- Did Hazel do this to demonstrate the power of the hypno-tech to Caroline; explaining that Lorraine was, in fact, driven to suicide and the same fate is planned for me?
 - I believe Lorraine had found out her British friends were being sedated and raped by their husbands and the rest of the town's menfolk, and likely worse.
 - Did she find out about the baby-rape-porn industry flourishing in the region?
-- I believe she complained to the authorities, as did I, and was ignored.
-- I believe that the overwhelm of horror, and the devastating knowledge that no-one is going to do anything to protect innocent women and children - coupled with years of mental/emotional torture as her daughter went through the trans-child-abuse-machine - tipped her over the edge and she could not withstand the hypno-tech's suggestions and demands.
+- I believe she complained to the authorities, as did I, and was ignored, as was I.
+- I believe that the overwhelm of horror, and the devastating knowledge that no-one is going to do anything to protect innocent women and children - coupled with years of mental/emotional torture as her daughter went through the trans-child-abuse-machine - tipped her over the edge, and she was unable to withstand the hypno-tech's suggestions and demands.
 - [I dedicate this police statement to Lorraine](dedication.md).
 
 ![Remembering Lorraine](content/images/remembering-lorraine.jpg)
