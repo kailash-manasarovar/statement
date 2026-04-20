@@ -685,6 +685,24 @@ function googleTranslateElementInit() {
 - I send Inma's letter last as I am meeting her in Madrid shortly and I was going to hand it to her in person (hence the first page's warning).
 - I don't think I included the supplementary page in Inma's batch for some reason.
 
+## Making it back safely from the mountains
+
+- I had written this statement in the supplementary letter because of the meeting with Ugly and the woman, and due to the intense level of online and offline threat in general.
+- Pale, black-haired, wirey and pinched young men (techs) were coming in and out of the Garden & City building, making sure I'd see them.
+- I would see [Rocio Vidal](september.md#rocio-vidal) in a week or so in one of the bars.
+- I was due to climb the Vignemale and had a guide arranged.
+- I was concerned something might happen to me while I was alone in the mountains.
+- On the 28th August, I hiked up to the Refuge de Oulettes de Gaube to stay one night, and was due to hike up further to the Refuse Baysellance and meet my guide there.
+- At dinner in the Oulettes, I met a man in his sixties who looked familiar with his teenage daughter.
+- He looked a little like [the conservatory student's parent who stalked me in Cauterets](../2022/september.md#a-stalker-from-denia-in-cauterets) in September 2022 and who had been [at the choir concert](../2022/december.md#the-stalker-from-cauterets) in December 2022, and [sitting with Katia](../2023/september.md#katia) in a conservatory online meeting in September 2023.
+- He looked quite a lot like [Alberto from the yoga festival](../2026/march.md#alberto) in 2026.
+- He also reminded me of the blond man who works at the garage in Javea where I took my car about the leak, and they made me wait ALL DAY and did nothing - perhaps they were doing something else that day.
+- The man invited me to climb the Vignemale with him and his daughter in the morning.
+- I explained I had a guide coming and declined.
+- I also had gotten a pretty bad cold on the way up, which turned into a chest infection, and the morning I was due to climb up to the Baysellance, I was so sick I had to cancel.
+- As I made my descent down, later in the morning after everyone else had gone up already, I noticed the weather becoming very very menacing at the mountain, and I was glad because it eventually looked as if it would have been perilous to go up there.
+- I wonder how those two got on.
+
 ## Gabriel Silva's first team meeting as manager
 
 - It's late August and everyone is back from holiday.

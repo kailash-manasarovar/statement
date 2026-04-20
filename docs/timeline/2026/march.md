@@ -21,6 +21,10 @@ function googleTranslateElementInit() {
 - And, like Angalimala Baba, how I had mentioned it regularly during those intense battles with online-stalkers where my approach tended to be to bombard them with God as much as possible.
 - I think it worked!
 
+### Alberto
+
+- The Italian, apparently, who looked very familiar, like a film star.
+
 ## Thalazur Bandol
 
 - I stay a few days at the Thalazur Bandol before driving to Lourdes.
