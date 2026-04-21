@@ -44,10 +44,12 @@ function googleTranslateElementInit() {
 - I don't think they recognize me as such; I think they've been told about me, maybe via their porn subscriptions like [the medics at Moorfields Brent Cross](../2025/march.md#moorfields-eye-hospital).
 - What could be the reason?
 - Father. Are You having me collect the horrific scale of what's happened to men as a preliminary step for the tidal wave of healing to come?
+- Do you think men are just like... yeh, this is great, come on everyone, let's rape our mothers, wives, sisters, daughters, mate's girlfriends, children, babies etc... oh yeah, let's use the pets too... hehe... and we'll get the local postman to deliver them drugs so they'll never bother questioning us they'll be so high... and these men fail to notice how the world is literally about to end because of their pathetic actions.
 
 ### Thalazur Saint Jean de Luz
 
 - I'm just wondering about the Thalazur because I used to visit their hotel in Saint Jean de Luz regularly and I wonder if there had been any "date nights" on those visits.
-- This was when I was very depressed and using valium that I bought online and was delivered by mail; the same as my mother uses.
-- I was only using tiny bits of it, however, but I was extremely addicted.
+- This was when I was very depressed and using valium that I bought online and was delivered by mail to N2; the same ridiculously addictive pills that my mother uses even today.
+- I was only using tiny chunks of these pills.
+- Even so, I was horribly addicted.
 - I wonder what else was in those pills.
