@@ -27,6 +27,15 @@ function googleTranslateElementInit() {
 - Relationship <3 
 - Family.
 
+#### A student with a rape database
+
+- One of my students in East Finchley had an excel database of girls he was going to rape.
+- It depressed me immensely.
+- His friend in Muswell Hill then scheduled one class with me, and took the piss throughout as if he was amazed I knew anything, then canceled classes right after.
+- I felt like a side-show freak with this rude boy.
+- His friend was a nice boy, apart from the rape database which he seemed to have shown me on purpose by accident.
+- Did these rich boys due to take their place in the tech-bro priesthood over the next years already have criminal porn subscriptions?
+
 ## September 2018
 
 ### Hired for sport, again
