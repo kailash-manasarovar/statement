@@ -35,6 +35,7 @@ function googleTranslateElementInit() {
 - I felt like a side-show freak with this rude boy.
 - His friend was a nice boy, apart from the rape database which he seemed to have shown me on purpose by accident.
 - Did these rich boys due to take their place in the tech-bro priesthood over the next years already have criminal porn subscriptions?
+- Or do the foolish boys, with nothing in the world to tell them it's a very bad idea, get to log in for free, locking themselves into conspiracy, blackmail, and exploitation for the rest of their lives?
 
 ## September 2018
 
