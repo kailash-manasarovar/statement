@@ -167,11 +167,15 @@ function googleTranslateElementInit() {
 - I take the opportunity to visit him while I'm in Brussels as he lives very close by.
 - We have a lovely evening together.
 - He plays me a song he wrote.
+- He wants to tell me what it's about.
 - It's about how when he was a teenager, a girl he was having a consensual sexual relationship had gotten a bit rough with him, and he felt violated.
-- I mentioned the Tottenham rape gangs from 1989.
+- As more and more men do double-takes in the street when they see me, always grinning but in 2026 not quite so snickeringly, I find this extremely interesting.
+- Could men really hate women this much?
+- I mention the Tottenham rape gangs from 1989.
 - I explain what's been going on, how I'm being cyber-stalked online and gang-stalked at home in Spain.
 - I tell him they took photos and videos of a sexual nature and terrorized me out of the conservatory in fear for my life.
-- He's horrified.
+- It's only about 1% of what's really been happening to me, but I tell him everything I'm aware of.
+- He appears to be horrified.
 - I'm nearly crying, but I pull up knowing that if it starts it won't stop.
 - I'm adding this section for investigators who may need to corroborate what I told Nicos while still under the effects of constant drugging and poisoning.
 - It will be a good gauge as to how much I knew at that time; just after running for office in the UK general election, and the political silencing there, and whilst attending EthCC with everything going on for me professionally with my colleagues who likely had porn-subscriptions to my apartment's live-stream.
