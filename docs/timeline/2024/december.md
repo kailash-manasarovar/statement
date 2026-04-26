@@ -42,6 +42,7 @@ function googleTranslateElementInit() {
 - She sends an email around to everyone with significant dates on it.
 - 7th October, a date in the 70s related to an Irish terrorist attack, and a date related to puppy love.
 - I'll extrapolate later but I believe she is trying to remind me of the [puppy love and romance](../2023/april.md#overwhelming-romantic-feelings) from before, and keep me hooked in.
+- I'm pretty certain Trish is doing what she's told; perhaps enjoying the power a little after so many years of it.
 
 ## So wants me to do an X Space
 

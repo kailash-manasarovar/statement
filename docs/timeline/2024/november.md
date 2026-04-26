@@ -666,6 +666,13 @@ function googleTranslateElementInit() {
 - Brian asked me to get his electricity current reader before he did it because he thought the metal lampshade might be live.
 - It was. Very live. Deadly, in fact.
 - I called the property management company and the guy came out to fix it.
+
+!!! tip "The property management guy"
+    - He had the same size and build and ethnicity as the property management guy at Queen's Avenue where Ray lived in 1996.
+    - I don't think they were the same people; I'm sure I would have noticed.
+    - But still... worth mentioning.
+    - Was Brian sent to bring me back to the UK, for more pornographer wealth enhancement?
+
 - He kept asking questions because it didn't make sense to him.
 - Brian became extremely upset and paranoid about the man.
 - We moved from this flat about a month later to a new one. 
