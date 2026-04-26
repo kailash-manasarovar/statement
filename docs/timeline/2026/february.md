@@ -158,3 +158,13 @@
 - There were some obvious incidents like the [Cambridge ugly ladies](../2025/april.md#shoe-zone-harlow-essex) last April, and [July's murder attempt](../2025/july.md#lourdes), but I'm still without an explanation of why I was high *all the time* in London throughout 2025 until [I remembered the switcheroo](../2025/october.md#thunderbolt-clarity), at which point it stopped.
 - If the porn-gangs own my brother, as I suspect they have done since his Thailand episode, could they have involved him in some way in maintaining my confused mental state while I was living at 31 Trinity Road N2?
 - Is that why Paul was so *keen* [to become his mentor](../2025/february.md#paul-and-my-brother)?
+
+## A Paqui-Fornet lookalike in Padova
+
+- I visit Padova for a few days at the end of the month.
+- I need to buy a towel for my trip to Israel where I intend to sit a Vipasana course at the Sea of Galilee center.
+- I go to the department store, Coin.
+- As I'm going down the stairs, a woman is striding up past me, slowly, deliberately, so I see her very well.
+- She looks *exactly* like [Paqui Fornet](../../crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor), pedophile-porn-studio manager.
+- I'm not sure why this sort of thing keeps happening repeatedly.
+- It's clear to me someone is *arranging* these lookalike events but I'm not sure who, or why.
