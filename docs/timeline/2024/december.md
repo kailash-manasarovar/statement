@@ -17,11 +17,12 @@ function googleTranslateElementInit() {
 - They're trying to stop me writing.
 - I take the machine to a [local technician in Bangkok](../../content/images/reformat-machine.JPG) at Terminal 21.
 - When I look at X on my mobile instead, the first two likes are fake account messages taking the piss out of the fact I cannot access my machine.
-- Taru Ann, the Finnish honey trap account (Hazel), likes an old post of mine.
+- [Taru Ann](march/13-end.md#taru-ann), the Finnish honey trap account (Hazel), likes an old post of mine.
 
 ![lost access Taru Ann](../../content/images/lost-access-1.JPG)
 
-- Then two people like a post that is very suggestive of the situation. Zee and Luke would be references to [Zoe BJ](../2001-to-2010/2008.md#zoe-bj) and [Luke BJ](../2001-to-2010/2008.md#meeting-luke-braganza-jones) from Dénia.
+- Then two people like a post that is very suggestive of the situation.
+- Zee and Luke are references to [Zoe BJ](../2001-to-2010/2008.md#zoe-bj) and [Luke BJ](../2001-to-2010/2008.md#meeting-luke-braganza-jones) from Dénia.
 
 ![lost access Zee and Luke](../../content/images/lost-access-2.JPG)
 
