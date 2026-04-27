@@ -10,31 +10,36 @@ function googleTranslateElementInit() {
 
 ## Unable to access my laptop
 
-- Sunday 1st December, my laptop is inaccessible. The password does not work at all.
-- I change the password regularly and it worked a few days ago.
-- I believe hackers have infiltrated my machine and forced me to have to reformat it again.
-- I was unable to recover access myself and had to get help from a [local technician here in Bangkok](../../content/images/reformat-machine.JPG) where I'm staying.
-- I lose a bunch of *extremely* interesting screenshots taken over the month of November - since I last reformated the machine - in the process. These include:
-    - More pictures of targeted women.
-    - Pictures of possums.
-    - A picture of a woman I saw on the beach but about 20 years younger.
-    - A very threatening picture of a man (rather like the [picture of the gypsy I saw in France](august.md#ugly)).
-    - Direct references to Domingo and Carmen Cano, poison and murder.
-    - I see a picture of a man I know very well. He is with his family, but they're people I’ve never met before; a wife, grown up kids. For nearly 20 years, this man has been pretending to be the boyfriend (partner she said for a time) of a *once* very wealthy woman I know, a family member. I often remember him being at her home, whenever we had planned I would go over, but I never saw any of his stuff. It was always like he was visiting. Their baby was taken off them immediately. I'm glad about that. Did someone already know what was going on and that people's children were in peril? He may have taken half-a-million from her, more even, over this time; and was likely involved in drugging and psychologically terrorizing her in EXACTLY the same way I have experienced. Unfortunately, the woman I know was not able to stand up to them; the same gang.
-
-        ![Chris](../../content/images/chris.png)
-
-- Fortunately, I already posted some of them, such as the [threat to my brother's life](november.md#a-threat-to-my-brothers-life) as the hackers were getting extremely bold over November. I'll try to find some of the accounts I interacted with.
-- When I look at Twitter on my mobile after my machine being inaccessible, the first two likes are honey trap or fakes accounts that seem to be taking the piss out of the fact I cannot access my machine.
-- Taru Ann, the Finnish honey trap account, likes an old post of mine.
+- Sunday 1st December, in Bangkok, my laptop is inaccessible, just a few days after [Paloma informed me via Inma](october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid) that my website would be shutdown.
+- The password does not work and I cannot get into the machine.
+- Hackers have infiltrated my machine and changed the password.
+- I'm forced to reformat my machine, again.
+- They're trying to stop me writing.
+- I take the machine to a [local technician in Bangkok](../../content/images/reformat-machine.JPG) at Terminal 21.
+- When I look at X on my mobile instead, the first two likes are fake account messages taking the piss out of the fact I cannot access my machine.
+- Taru Ann, the Finnish honey trap account (Hazel), likes an old post of mine.
 
 ![lost access Taru Ann](../../content/images/lost-access-1.JPG)
 
-- Then two people like a post that is very suggestive of the situation. Zee and Luke would be references to old friends Zoe and Luke  from Dénia.
+- Then two people like a post that is very suggestive of the situation. Zee and Luke would be references to [Zoe BJ](../2001-to-2010/2008.md#zoe-bj) and [Luke BJ](../2001-to-2010/2008.md#meeting-luke-braganza-jones) from Dénia.
 
 ![lost access Zee and Luke](../../content/images/lost-access-2.JPG)
 
-- We also, curiously, see some activity on the Cloudflare infrastructure that runs this site that shows that people in Finland are requesting pages.
+### Losing significant communications from hackers
+
+- I lose a bunch of *extremely* interesting screenshots taken over the month of November that I was collecting for publishing.
+- These include:
+    - More pictures of targeted women.
+    - Pictures of possums.
+    - A picture of a woman I saw on the beach but she's about twenty years younger.
+    - A very threatening picture of a man that reminds me of [Ugly](august.md#ugly).
+    - Direct references to Domingo and Carmen Lopez Cano, poison and murder.
+    - *MOST IMPORTANTLY*: I screenshot a picture of a man I know very well, my cousin's *partner/boyfriend* Chris. He seems to be in a family photo, but I thought his family was my cousin and their sons and these are people I’ve never met before. The photo is of him and what looks like his wife and grown up kids outside their house in the front garden. For over twenty years, this man has been my cousin's official boyfriend (partner she said for a time), a woman who received a huge Lockerbie compensation payout, far bigger than mine. I often remember him being at her home whenever we had planned I would go over, but I never saw any of his personal stuff in the house. It was like he was just visiting. Their baby was taken off them immediately. I'm glad about that. Did someone already know what was going on and that children were in peril? Her first son, born in 1999, was abused by dangerous people coming into her home. The *boyfriend* may have taken half-a-million from her, more even, over the last twenty-odd years and could even have been involved in drugging and psychologically terrorizing her in EXACTLY the same way I have experienced in Spain. Her brain is scrambled. Interestingly, my cousin started to stalk me on X around the same time the gangs were panicking - November 2023 onwards - and contacted me incessantly during the time I was perma-high in London. I expect she was following instructions. 
+
+        ![Chris](../../content/images/chris.png)
+
+- Was this why they shut me down?
+- Fortunately, I already posted some of the more obvious stalker-pics, such as the [threat to my brother's life](november.md#a-threat-to-my-brothers-life). 
 
 ## Patricia communicates again
 
