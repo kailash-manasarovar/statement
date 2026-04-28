@@ -58,6 +58,14 @@
 - However, my thumbnail ridges seem to have been marking these events and there have been multiple occasions.
 - It's what they do, right?
 
+### Loving voices
+
+- One night, after yoga as I'm putting away my yoga things, I hear two voices I know outside my door chatting.
+- I'm so amazed; but what's more amazing is this loving warm feeling coming all over my body and inside too.
+- I'm happy to hear these voices.
+- It's astonishing, though, and I immediately think it's a trick otherwise I would have ran out.
+- I feel like I'm being tricked endlessly these days, as well as throughout my life, and I don't like it.
+
 ## Facebook shuts me down
 
 ![Facebook shuts me down](../../content/images/facebook-shuts-me-down.jpg)
