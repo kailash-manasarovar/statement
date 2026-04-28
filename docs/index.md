@@ -166,7 +166,7 @@ This police statement details the following:
 - They will say yes.
 - A [Spanish government official confirmed it](timeline/2024/october.md#visiting-inma-again-in-madrid); everyone in Dénia knows who I am.
 - If you ask them why the whole town persecuted and terrorized me for three years, I expect the answers will be quite interesting.
-- Perhaps you'll find someone who saw me going to the toilet, or bathing, or doing yoga, or taking an enema.
+- Perhaps you'll find someone who saw me going to the toilet, or showering, or doing yoga in my sitting room, or taking an enema.
 - Maybe someone heard me farting loudly.
 - Many of the men will have seen footage of me masturbating in my bedroom or bathroom while I was drugged out of my mind on spiked hallucinogens and aphrodisiacs.
 - No doubt they will have seen the regular sedated-rape sessions broadcast live from my apartment, or even [the preliminary switcheroo sex-assaults filmed live at music classes at the conservatory](crimes/protagonists/vidal-sastre.md#at-least-four).
