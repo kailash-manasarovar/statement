@@ -107,7 +107,7 @@ This police statement details the following:
 - Evidence for this comes from [the Irene photos](timeline/2023/july.md#plate-lady-early-in-the-month) dating back decades.
 - If the target is from a wealthy family, they might even set up a fake marriage situation, wait till she inherits and then murder her.
 - Honey-trapping for porn and prostitution was also going on of course but, significantly, the porn being produced in the Dénia region was often of the vilest sort; bestiality, pedophilia, and murder-porn.
-- Abid Khan told us [all about it](timeline/early-years/1984.md#abid-khan-tells-the-class-about-the-criminal-porn-his-big-brother-shows-him) in 1984.
+- Abid Khan told us [all about it](timeline/pre-2001/1984.md#abid-khan-tells-the-class-about-the-criminal-porn-his-big-brother-shows-him) in 1984.
 - As soon as the Internet connected everyone up, the gangs transferred their manipulation techniques into software and no-one could have imagined how successful it was going to be!
 - The gangs not only mass-target victims online for filming but they deliberately worsen user's porn-addictions, "honey-trapping" them into paying to view more violence, then pedophilia, then worse.
 - The more criminal the porn, the more expensive it is to view.
