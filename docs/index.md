@@ -171,7 +171,7 @@ This police statement details the following:
 - Many of the men will have seen footage of me masturbating in my bedroom or bathroom while I was drugged out of my mind on spiked hallucinogens and aphrodisiacs.
 - No doubt they will have seen the regular sedated-rape sessions broadcast live from my apartment, or even [the preliminary switcheroo sex-assaults filmed live at music classes at the conservatory](crimes/protagonists/vidal-sastre.md#at-least-four).
 - You could ask them if they were watching the porn specials back in 2015, 2013, or even 2008 from my other homes.
-- Why not ask them who else they're watching in similar situations; there's bound to have been masses of live-action spy-cam sex-slaves everyone knows about.
+- Why not ask them who else they're watching in similar situations; there's bound to be masses of live-action spy-cam sex-slaves everyone knows about.
 - Ask them how many of those women ended up dead, and if you like you could ask them if they expected the same for me.
 - You could ask them if they got access to private conversations I may have had with colleagues about things I had to sign NDAs about.
 - Or whether they saw footage of me as a child, sedated and gang raped by a group of black men, or any of the other multiple times I ended up in porn without my conscious awareness, knowledge, or consent.
