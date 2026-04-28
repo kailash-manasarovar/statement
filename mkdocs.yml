@@ -52,10 +52,10 @@ nav:
   - Home: 
     - Summary: index.md
   - Timeline:
-    - Early years:
-      - "1984": timeline/early-years/1984.md
-      - "1993": timeline/early-years/1993.md
-      - "1997": timeline/early-years/1997.md
+    - pre-2001:
+      - "1984": timeline/pre-2001/1984.md
+      - "1993": timeline/pre-2001/1993.md
+      - "1997": timeline/pre-2001/1997.md
     - 2001 to 2010: 
       - "2001": timeline/2001-to-2010/2001.md
       - "2003": timeline/2001-to-2010/2003.md
