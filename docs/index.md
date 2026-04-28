@@ -289,3 +289,5 @@ The report is set out into different sections.
 ## The Ark Project Trilogy
 
 - This is the third and final part of The Ark Project Trilogy, I believe.
+- Actually no, these are the practical sessions.
+- The third part is Grunt Work. Perhaps this is Grunt Work, tho, in fact.
