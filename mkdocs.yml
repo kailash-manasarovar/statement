@@ -53,6 +53,7 @@ nav:
     - Summary: index.md
   - Timeline:
     - pre-2001:
+      - "1980": timeline/pre-2001/1980.md
       - "1984": timeline/pre-2001/1984.md
       - "1993": timeline/pre-2001/1993.md
       - "1996": timeline/pre-2001/1996.md
