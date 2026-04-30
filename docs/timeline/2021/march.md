@@ -87,3 +87,13 @@ function googleTranslateElementInit() {
 - But we've had good experiences at work too, so it doesn't make any real sense to generalize like this.
 - Today, I wonder if Anita had also starred in a series of the *female-tech-colleague-you-despise* porn genre.
 - I also wonder if her reverence for the CTO at Qredo was indicative of something terribly sinister and porn-network related.
+
+### Anita tells me about how she got stuck in Cuba
+
+- One evening after work, we're chatting and Anita tells me about how she, Matthew, and the boy had gone on holiday to Cuba (not sure of the year - between when I saw her previously and then - wow not sure.. could be 2008 but possibly later in 2011 or 2012 before I left again).
+- Anyway, someone stole (or she lost) her British passport and the foreign office took ages (six weeks or so) to sort her travel out to go home.
+- She was cross about how long they took, couldn't understand it.
+- It turned out, it was the third time she'd lost her passport.
+- I was amazed! 
+- "Three times!!!", I exclaimed, and I guessed that's why it took so long, cos she ended up looking a bit suspish.
+- Matthew ended up going home and Anita and the boy stayed for weeks on end until the paperwork came through.
