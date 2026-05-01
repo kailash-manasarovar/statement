@@ -436,7 +436,7 @@ function googleTranslateElementInit() {
 - I had no reason to doubt anything they were saying to me.
 - They had met working at Vodafone in Paddington, something we shared, except when I tried to talk about this, she deflected.
 - The day after I told her what I knew, they left hurriedly with the excuse the girl - suffering from severe alopecia - had gotten dengue fever.
-- Like the others, she never returned my subsequent attempt to communicate and make sure the girl was OK.
+- Like the others, she never responded to my subsequent attempt to communicate and make sure the girl was OK.
 - The woman, Hala, said she was Lebanese, Islamic, and living in St John's Wood.
 - Given I had just managed to escape [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno) - Bruno, Gloria's brother - waiting for me at Alicante airport a few weeks before, and given I had gone back to practice at the conservatory the next day, with all the teachers amazed and laughing at me (although I wonder now if perhaps some of that laughter was hopeful surprise), they would have been desperate to know how much I knew at that stage, and maybe even get a *top up* in which may explain the [horrific nightmare I had](#the-first-time-i-become-terrified-about-being-arrested).
 - One afternoon, there was a discussion about the product I had bought at 7-11 - coconut oil. Her daughter and her were discussing it, pointing, being a bit shifty; and then the daughter asked me what it was. And it didn't make any sense because if they'd been in Samui a million times like she said she had, she'd know *exactly* what the coconut oil was.
