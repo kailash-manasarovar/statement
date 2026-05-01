@@ -423,7 +423,7 @@ function googleTranslateElementInit() {
 - I tell her everything that has happened, the whole story as I see it at that time.
 - Her name comes up on fake accounts later on in the summer.
 - My understanding of what was going on at this time was sketchy.
-- I believed there was a true love relationship with the trumpet teacher, that something real had happened, that he was important to me, that he loved me back and wouldn't do anything to hurt me, and that the real problem was that I was being targeted and abused by Domingo Cano and his associates at the conservatory.
+- I believed there was a true love relationship with the trumpet teacher, that something real had happened, that he was important to me, that he loved me back and wouldn't do anything to hurt me, and that the real problem was that I was being targeted and abused by Domingo Lopez Cano and his associates at the conservatory.
 - It's really not clear why I was so invested in this relationship with the trumpet teacher because there was so little evidence for it.
 - I can only assume - in May 2025 having survived three years of anti-freeze poisoning, threats to my life, and constant drugging with psychoactive substances - that I was being manipulated online in ways I still have to figure out and my mind was not my own.
 - In November 2025, having finally remembered the [switcheroo porn conspiracy starring myself](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and teachers and staff at the conservatory of Dénia, meeting this woman takes on a whole different tone.
@@ -435,16 +435,20 @@ function googleTranslateElementInit() {
 - Her ex-husband was a depressed millionaire, apparently, and ran a business looking after stray dogs.
 - I had no reason to doubt anything they were saying to me.
 - They had met working at Vodafone in Paddington, something we shared, except when I tried to talk about this, she deflected.
-- The day after I told her what I knew, they left hurriedly with the excuse the girl had gotten dengue fever.
+- The day after I told her what I knew, they left hurriedly with the excuse the girl - suffering from severe alopecia - had gotten dengue fever.
 - Like the others, she never returned my subsequent attempt to communicate and make sure the girl was OK.
-- The woman, Hala, said she was Lebanese and living in St John's Wood.
-- Given I managed to escape [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno) - the switcheroo show host, I'm told - waiting for me at Alicante airport just a few weeks before, and given I had gone back to practice at the conservatory the next day, with all the teachers amazed and laughing at me, they would have been desperate to know how much I knew at that stage, and maybe even get a *top up* in which may explain the [horrific nightmare I had](#the-first-time-i-become-terrified-about-being-arrested).
-- One afternoon, there was a discussion about what product I had bought - it was coconut oil. Her daughter and her were discussing it, pointing, being a bit shifty; and then the daughter asked what was it. And it didn't make any sense because if she'd been in Samui a million times like she said she had, she'd know *exactly* what the coconut oil was.
+- The woman, Hala, said she was Lebanese, Islamic, and living in St John's Wood.
+- Given I managed to escape [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno) - Bruno, Gloria's brother - waiting for me at Alicante airport just a few weeks before, and given I had gone back to practice at the conservatory the next day, with all the teachers amazed and laughing at me (although I wonder now if perhaps some of that laughter was hopeful amazement), they would have been desperate to know how much I knew at that stage, and maybe even get a *top up* in which may explain the [horrific nightmare I had](#the-first-time-i-become-terrified-about-being-arrested).
+- One afternoon, there was a discussion about what product I had bought - it was coconut oil. Her daughter and her were discussing it, pointing, being a bit shifty; and then the daughter asked what it was. And it didn't make any sense because if she'd been in Samui a million times like she said she had, she'd know *exactly* what the coconut oil was.
 - She said something about a friend's dad dying too, just before she left; planting seeds again?
-- A lot like [Sandra and the hairdresser](../2025/august.md#haircut) and others, Hala made trouble for me with Polly the masseuse I recommended. I told Hala [Polly had been instrumental in my healing](../2022/december.md#a-seizure-in-thailand) and I also told her I had thought they had switched on me.
-- The Thai women started to say weirdly toxic things to me about sex and prostitution as if someone had been lying to them about me.
-- It was inconceivable to me how much money I had been making for British and Spanish criminal gangs, and so the idea that they could send people around the world to stalk me, like they did at [Christmas in Madrid](december.md#christmas), wasn't even a seed of an idea, yet.
-- Obviously, given the *it's safe* report going back to the Cano-Lopez's and Smiths via Hala and goodness knows who else, the terror continued apace; but they never stopped to think that I would survive whatever they threw at me, remember enough to launch a truth missile into the stratosphere, and quietly tell my story.
+- The story was that Hala had been at the Spa Samui once before, and been hanging out with a woman just like she was hanging out with me, and that woman's dad had died suddenly while they were there, but at the same moment Hala had just taken a very strong painkiller (migraine I think) and it was kicking in, so when her "friend" told her, "my dad's just died", she walked away, high.
+- She wanted to know if I thought that was bad of her, but there was something very strange about the story and I had no answer for her at that time, and then they were gone, poof!
+- A lot like [Sandra and the hairdresser](../2025/august.md#haircut) and others, Hala made trouble for me with Polly the masseuse I recommended.
+- I told Hala [Polly had been instrumental in my healing](../2022/december.md#a-seizure-in-thailand) from sedated rape and sexual assault and I also told her I had thought the masseuses had switched on me.
+- The Thai women - yoga teachers etc - started to say weirdly toxic things to me about sex and prostitution as if someone had been lying to them about me.
+- Polly was whisked away to work in Germany soon after... by whom, I wonder?
+- It was inconceivable to me how much money I had been making for British and Spanish criminal gangs, or the inconceivable idea that some evil person was planning on inheriting my personal wealth and sharing it around (closing in on half a million at that stage), so the idea that they would send people around the world to stalk me, like they did the following [Christmas in Madrid](december.md#christmas) too, wasn't even a seed of an idea, yet.
+- Obviously, given the *it's safe* report going back to the Cano-Lopez's and Smiths via Hala and goodness knows who else, the terror continued apace; but they never stopped to think that I would survive whatever they threw at me, remember enough to launch a truth missile into the stratosphere, and quietly tell my thunderous story.
 
 ![Rose petals in Samui](../../content/images/samui-rose-petals.PNG)
 
