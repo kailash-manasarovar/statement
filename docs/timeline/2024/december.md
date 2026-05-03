@@ -66,7 +66,7 @@ function googleTranslateElementInit() {
 - Things she said to me gave me cause for concern; for example, *my husband always brings me tea in the morning, every morning*.
 - Did Trish find herself starring in a horror film just like I did?
 - Was it after she returned from her foundation art course in the UK - something she told me about on a loop - or just after her husband died (or was murdered maybe)?
-- Were these messages from Trish a way for the criminal porn-gangs of Dénia to communicate with law enforcement organizations I had sent [my handwritten letters](august.md#the-handwritten-letters) so that they might make deals while they conclude their detailed investigations and before they nick everyone and stop the baby-rapists, pedophiles and sedated-rape insane, please God.
+- Were these messages from Trish a way for the criminal porn-gangs of Dénia to communicate with law enforcement organizations I had sent [my handwritten letters](august.md#the-handwritten-letters) so that they might make deals while they conclude their detailed investigations and before they nick everyone and stop the baby-rapists, pedophiles, and sedated-rape insane please God.
 
 ## So wants me to do an X Space
 
