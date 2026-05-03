@@ -42,7 +42,7 @@ function googleTranslateElementInit() {
 - Was this why they shut me down?
 - Fortunately, I already posted some of the more obvious stalker-pics, such as the [threat to my brother's life](november.md#a-threat-to-my-brothers-life). 
 
-## Trish Penny communicates again
+## Trish Penny communicates terror again
 
 - Trish continues to contact me in ways that make me certain she knows what's been happening to me and that she must think I'm an idiot.
 - On the run up to the *conservatory-terror*, Trish had very obviously been instructed to say and do things on behalf of the criminal gangs that were intended to upset me and cause me anxiety.
