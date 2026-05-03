@@ -44,25 +44,29 @@ function googleTranslateElementInit() {
 
 ## Trish Penny communicates again
 
-- Trish continues to contact me as if she thinks I'm an idiot.
-- Over the *conservatory-terror*, Trish had very obviously been instructed to say and do things on behalf of the criminal gangs that were designed to upset me.
-- One good example of this was her painting of a portrait of me dressed as a clown with my double chin over-pronounced, and this was emailed to me at the same time as some frequency trigger was applied on my devices while I was under the effects of a recent hallucinogenic dose and I felt HORRENDOUS about it, which didn't make any sense to me at the time so I immediately filed it away as bogus.
+- Trish continues to contact me in ways that make me certain she knows what's been happening to me and that she must think I'm an idiot.
+- On the run up to the *conservatory-terror*, Trish had very obviously been instructed to say and do things on behalf of the criminal gangs that were intended to upset me and cause me anxiety.
+- One good example of this was her painting of a portrait of me dressed as a clown with my double chin over-pronounced, and this was emailed to me one evening while I was at my kitchen table at the exact moment some frequency trigger was applied on my devices, while I had just come under the effects of a recent hallucinogenic dose (dinner?). 
+- I felt HORRENDOUS about her picture - more proof of how efficacious their emotional manipulation tech is - but it didn't make any logical sense to me at the time so I immediately filed it away as bogus.
 - Actually, I responded quickly to her email the moment she sent it, asking her about the picture to which she replied with some vague explanation.
-- Trish sends an email around to everyone while I'm in Bangkok with significant dates; 7th October, a date in the 70s related to an Irish terrorist attack, and a date related to puppy love.
-- The email was something like *What was number one on your birthday?*, and in this way she was able to bring in the dates.
-- I believe the [puppy love trigger](../2023/april.md#overwhelming-romantic-feelings) is to keep the trumpet teacher romance lie going.
+- The picture had been on display somewhere in the region and it wasn't the first "meaningful" painting she had informed me about on email.
+- Trish sends an email around to all the expat walkers while I'm in Bangkok.
+- It's a weird message with significant dates: 7th October, a date in the 70s related to an Irish terrorist attack, and a date related to puppy love.
+- The email was about *What was number one on your birthday?*, and in this way she was able to bring in the three weird dates.
+- At the time, the [puppy love trigger](../2023/april.md#overwhelming-romantic-feelings) keeps the trumpet teacher romance lie going.
 - The other dates she mentions are perhaps even more curious.
 - Everyone watching me online knows how upset I was about the Palestinian invasion of Israel on October 7th 2023, and the evil that occurred that day.
 - The Irish terrorist connection is very weird and I don't understand it.
-- Only the puppy love content makes sense to me.
-- I assume Trish is trying to mess with my mind at the behest of her husband.
-- When I return to the UK in January 2026 after having painstakingly saved thousands of emails, including everything Trish sent me I've just mentioned, and more, someone hacks into my Google accounts and deletes everything I've saved, and then renders my Google account unreachable.
+- In fact, I don't understand any of this email outside of Trish must be trying to mess with my mind again at the behest of her husband.
+- When I return to the UK in January 2026 after having painstakingly saved thousands of emails, including everything Trish sent me I've just mentioned, and more, someone hacks into my Google accounts and deletes everything I've saved, and then renders my Google account completely unreachable.
 - Is it messages like this from Trish they want to hide?
-- In any event, I get curious about what number one was on my birthday so I look it up.
+- In any event, the email gets me curious about what number one was on my birthday so I look it up.
 - It's *Tie A Yellow Ribbon*!
-- Perhaps Trish is a friend, after all.
-- I always felt worried about her, even when it felt like she was abusing me and many of my communications reflected these concerns.
-- Their emotional manipulation tech is extremely efficacious.
+- Even though Trish's behavior was very obviously malevolent towards me, I always felt worried about her.
+- Things she said to me gave me cause for concern; for example, *my husband always brings me tea in the morning, every morning*.
+- Did Trish find herself starring in a horror film just like I did?
+- Was it after she returned from her foundation art course in the UK - something she told me about on a loop - or just after her husband died (or was murdered maybe)?
+- Were these messages from Trish a way for the criminal porn-gangs of Dénia to communicate with law enforcement organizations I had sent [my handwritten letters](august.md#the-handwritten-letters) so that they might make deals while they conclude their detailed investigations and before they nick everyone and stop the baby-rapists, pedophiles and sedated-rape insane, please God.
 
 ## So wants me to do an X Space
 
