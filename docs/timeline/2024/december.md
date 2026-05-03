@@ -50,6 +50,9 @@ function googleTranslateElementInit() {
 - I felt HORRENDOUS about her picture - more proof of how efficacious their emotional manipulation tech is - but it didn't make any logical sense to me at the time so I immediately filed it away as bogus.
 - Actually, I responded quickly to her email the moment she sent it, asking her about the picture to which she replied with some vague explanation.
 - The picture had been on display somewhere in the region and it wasn't the first "meaningful" painting she had informed me about on email.
+
+![Trish the painter](../../content/images/trish-the-painter.png)
+
 - Trish sends an email around to all the expat walkers while I'm in Bangkok.
 - It's a weird message with significant dates: 7th October, a date in the 70s related to an Irish terrorist attack, and a date related to puppy love.
 - The email was about *What was number one on your birthday?*, and in this way she was able to bring in the three weird dates.
@@ -63,10 +66,10 @@ function googleTranslateElementInit() {
 - In any event, the email gets me curious about what number one was on my birthday so I look it up.
 - It's *Tie A Yellow Ribbon*!
 - Even though Trish's behavior was very obviously malevolent towards me, I always felt worried about her.
-- Things she said to me gave me cause for concern; for example, *my husband always brings me tea in the morning, every morning*.
+- Things she said to me gave me cause for concern; for example, *my much-younger-Spanish-husband always brings me tea in the morning, every morning*.
 - Did Trish find herself starring in a horror film just like I did?
-- Was it after she returned from her foundation art course in the UK - something she told me about on a loop - or just after her husband died (or was murdered maybe)?
-- Were these messages from Trish a way for the criminal porn-gangs of Dénia to communicate with law enforcement organizations I had sent [my handwritten letters](august.md#the-handwritten-letters) so that they might make deals while they conclude their detailed investigations and before they nick everyone and stop the baby-rapists, pedophiles, and sedated-rape insane please God.
+- Was it after she returned from her foundation art course in the UK - something she told me about on a loop - or just after her first, British husband died (or was murdered maybe)?
+- Were these messages from Trish a way for the criminal porn-gangs of Dénia to communicate with the multiple law enforcement organizations I had sent [my handwritten letters to](august.md#the-handwritten-letters) so that they might make deals while they conclude their detailed investigations and before they nick everyone and stop the baby-rapists, pedophiles, and sedated-rape insane please God.
 
 ## So wants me to do an X Space
 
