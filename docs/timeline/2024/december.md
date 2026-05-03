@@ -54,7 +54,7 @@ function googleTranslateElementInit() {
 ![Trish the painter](../../content/images/trish-the-painter.png)
 
 - Trish sends an email around to all the expat walkers while I'm in Bangkok.
-- It's a weird message with significant dates: 7th October, a date in the 70s related to an Irish terrorist attack, and a date related to puppy love.
+- It's a weird message with significant dates: 7th October from a year in the 60s or 70s, a date in the 70s related to an Irish terrorist attack, and a date related to puppy love.
 - The email was about *What was number one on your birthday?*, and in this way she was able to bring in the three weird dates.
 - At the time, the [puppy love trigger](../2023/april.md#overwhelming-romantic-feelings) keeps the trumpet teacher romance lie going.
 - The other dates she mentions are perhaps even more curious.
