@@ -42,14 +42,27 @@ function googleTranslateElementInit() {
 - Was this why they shut me down?
 - Fortunately, I already posted some of the more obvious stalker-pics, such as the [threat to my brother's life](november.md#a-threat-to-my-brothers-life). 
 
-## Patricia communicates again
+## Trish Penny communicates again
 
-- Patricia continues to make contact as if I'm an idiot.
-- She sends an email around to everyone with significant dates on it.
-- 7th October, a date in the 70s related to an Irish terrorist attack, and a date related to puppy love.
-- I'll extrapolate later but I believe she is trying to remind me of the [puppy love and romance](../2023/april.md#overwhelming-romantic-feelings) from before, and keep me hooked in.
-- I'm pretty certain Trish is doing what she's told; perhaps enjoying the power a little after so many years of it.
-- Does she know she's being drugged continually?
+- Trish continues to contact me as if she thinks I'm an idiot.
+- Over the *conservatory-terror*, Trish had very obviously been instructed to say and do things on behalf of the criminal gangs that were designed to upset me.
+- One good example of this was her painting of a portrait of me dressed as a clown with my double chin over-pronounced, and this was emailed to me at the same time as some frequency trigger was applied on my devices while I was under the effects of a recent hallucinogenic dose and I felt HORRENDOUS about it, which didn't make any sense to me at the time so I immediately filed it away as bogus.
+- Actually, I responded quickly to her email the moment she sent it, asking her about the picture to which she replied with some vague explanation.
+- Trish sends an email around to everyone while I'm in Bangkok with significant dates; 7th October, a date in the 70s related to an Irish terrorist attack, and a date related to puppy love.
+- The email was something like *What was number one on your birthday?*, and in this way she was able to bring in the dates.
+- I believe the [puppy love trigger](../2023/april.md#overwhelming-romantic-feelings) is to keep the trumpet teacher romance lie going.
+- The other dates she mentions are perhaps even more curious.
+- Everyone watching me online knows how upset I was about the Palestinian invasion of Israel on October 7th 2023, and the evil that occurred that day.
+- The Irish terrorist connection is very weird and I don't understand it.
+- Only the puppy love content makes sense to me.
+- I assume Trish is trying to mess with my mind at the behest of her husband.
+- When I return to the UK in January 2026 after having painstakingly saved thousands of emails, including everything Trish sent me I've just mentioned, and more, someone hacks into my Google accounts and deletes everything I've saved, and then renders my Google account unreachable.
+- Is it messages like this from Trish they want to hide?
+- In any event, I get curious about what number one was on my birthday so I look it up.
+- It's *Tie A Yellow Ribbon*!
+- Perhaps Trish is a friend, after all.
+- I always felt worried about her, even when it felt like she was abusing me and many of my communications reflected these concerns.
+- Their emotional manipulation tech is extremely efficacious.
 
 ## So wants me to do an X Space
 
