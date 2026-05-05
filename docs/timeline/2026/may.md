@@ -10,7 +10,9 @@ function googleTranslateElementInit() {
 
 ## Worm-turned
 
-- It appears the worm has officially turned, with Spanish criminal-gangs now asking the same anxious questions of law enforcement that I used to feverishly ask them back in July 2023 when the horror-porn terror was peaking.
+- A file from the bottom of my database mysteriously "pops up" on my laptop screen.
+- It looks like the criminal gangs are speaking directly to law enforcement now.
+- Has the worm officially turned, with Spanish porn-gangs now asking the same anxious questions of law enforcement that I used to feverishly ask them back in July 2023 when the horror-porn online terror was peaking.
 
 ![What do you want exactly now](../../content/images/worm-officially-turned.png)
 
