@@ -207,6 +207,7 @@ function googleTranslateElementInit() {
 - My brother hates me so much at that moment the idea of poisoning crosses my mind.
 - I'm horrified to even think it.
 - Nevertheless, I'm more determined than ever to leave, and it is my feeling I will never come back.
+- You know, all this makes dad and Robert's very loud and drunken chats outside my door at 12.30am every night over this period about what a good bloke Hitler was, look a little different (I'm not sure I have a drop of loyalty left).
 
 ## October 2019
 
