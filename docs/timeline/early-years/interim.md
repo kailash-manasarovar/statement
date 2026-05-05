@@ -157,6 +157,7 @@ function googleTranslateElementInit() {
 ### Online sleeping pills
 
 - Is this how they administer hallucinogens to the general public via the postal service?
+- If you took a sample of my mother's sleeping pills she gets online, would you find ketamine in them?
 - wip.
 
 ### Drugs rehab in Finchley Central
