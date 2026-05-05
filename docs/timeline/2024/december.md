@@ -94,7 +94,7 @@ function googleTranslateElementInit() {
 - I guess I'm really really famous aren't I.
 - It's so gross.
 - But mostly the women don't know yet, do they.
-- I wonder just how many women and children are in porn-hell right now because everyone's ashamed of themselves and hopes it'll all go away, poof!
+- I wonder how many women and children are in porn-hell right now because everyone's ashamed of themselves and hopes it'll all go away, poof!
 - Or is the world officially evil now?
 - Should normal, law-abiding, tax-paying citizens start expecting to be drugged and raped by (apparently) normal, law-abiding, tax-paying citizens?
 
