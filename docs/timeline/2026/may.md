@@ -8,4 +8,4 @@
 - I'm returning having completed the task I (maybe) set for myself at Kailash, and other tasks too.
 - Since 2015, I have become the world's most famous sedated-rape horror-porn star; sometimes featuring friends and family, animals, children, men in superhero outfits, blond-wigged women in fishnet tights and top hats, and God knows what else.
 - Mahadev's detailed and disgusting endurance test is finally over.
-- I guess it's new Instructions time.
+- I guess it's New Instructions time.
