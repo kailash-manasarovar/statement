@@ -73,15 +73,27 @@ function googleTranslateElementInit() {
 
 ## So wants me to do an X Space
 
-- So, Janet, my election volunteer presses me to run a Space describing X hacking.
-- I wonder who asked her to do that.
-- [Officially unsafe in Spain].
-- [I'm soon to find out I'm officially unsafe in UK].
-- [A liminal state in UK].
-- [In less than a year's time, I'll find out I'm officially unsafe in France and pretty much everywhere in the world and start a new life in a perma-liminal state, stateless, unable to work as 1 in 3 men are porn addicts and I'd be having to work with them, so just living on savings until God says otherwise, He's always very clear about stuff].
-- I'm really famous aren't I.
+- So, Janet, `@ladysolucky` on X, one of [my dubious election volunteers](june.md#volunteers-not-what-they-seem) presses me repeatedly to run a Space describing X hacking.
+- I say I will until I realize she's involved in what's going on, and then I wonder who asked her to request that of me.
+- No doubt someone with a direct hack into my machine via the X platform, and no doubt for terror purposes.
+- I have already told Janet about how I'm officially unsafe in Spain.
+
+![Officially unsafe in Spain](../../content/tweets/back-in-spain-shudder.jpg)
+
+- On my return to the UK in January 2025, I find out I'm officially unsafe in the UK too.
+- I spend the entire time I live in London in 2025 with nowhere else to go in a sort of liminal stateless state.
+- I'm unable to access healthcare or even go outside without a horror-porn addict recognizing me, or a criminal gang member showing up to growl at me.
+- After the [Metropolitan Police make it clear to me that they do not consider me a citizen with the same rights as everyone else](../2025/january.md#i-call-the-police), I realize that if anything bad were to happen to me in the UK, no-one would come to my assistance.
+- You cannot imagine how stressful that realization was.
+- In July 2025, I'll find out I'm officially unsafe in France and pretty much everywhere and anywhere in the world.
+- I have no option but to start a new life in a perma-liminal state; stateless essentially as anyone could do anything at all to me and no-one would assist.
+- I'm unable to work as 1-in-3 Western men are horror-porn addicts, and the others have a mate who is one, and I'd be having to work with the people who masturbated over me living as a sedated sex-slave in my own home; men who expected me to be murdered, commit suicide, or just disappear and be forgotten I guess.
+- I decide to devote my time to God and live on my substantial savings (the ultimate irony as these were intended to be inherited by a porn-gang member on my death through marriage) until God says otherwise.
+- He's always very clear about what to do, at least He is to me.
+- I guess I'm really really famous aren't I.
+- It's gross.
 - But the women don't know yet, do they.
-- How many women and children are in porn-hell right now because everyone's ashamed of themselves and hopes it'll just go away.
+- I wonder just how many women and children are in porn-hell right now because everyone's ashamed of themselves and hopes it'll all go away, poof!
 - Or is the world just officially evil now?
 
 ## Threats

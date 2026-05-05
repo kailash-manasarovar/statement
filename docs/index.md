@@ -178,7 +178,7 @@ This police statement details the following:
 - Don't forget to ask them about the flourishing pedo-porn and baby-rape industry in the region.
 - I can imagine you could start a conversation off with one of these people and it feel normal, and funny, and they're laughing, in a jeering way - they're way better than those foreign sluts that everyone hates that they watch obsessively on the porn channels - and you mention the children, and the conservatory teachers, and they're still laughing, but there's a flutter in their voice now, and you mention the babies, and there's a splutter, and then they stop laughing, you lose eye contact with them, and maybe, just maybe, the shame can come in and they're human again.
 
-### Colleagues and employers
+### Colleagues and employers with horror-porn subscriptions, and their mates
 
 - It turns out, that everyone was having so much fun at my expense over the last twenty years, and making so much money too, the tech-bro porn-addicts at the tech companies I worked for (not all of them) were also involved in the conspiracy too, particularly [Polygon](timeline/2024/may.md#bali).
 - Over the last ten years, possibly after being watched online by the global tech-bro porn-addict community, perhaps even being live-streamed sedated from Joan Fuster, and as a delightful extension on the regular violence against women requirement, even recruitment agents were employed to lure me into amazing jobs in which I was immediately treated like dirt, or grotesque interview set ups designed to upset me.
