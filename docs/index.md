@@ -180,14 +180,15 @@ This police statement details the following:
 
 ### Colleagues and employers with horror-porn subscriptions, and their mates
 
-- It turns out, that everyone was having so much fun at my expense over the last twenty years, and making so much money too, the tech-bro porn-addicts at the tech companies I worked for (not all of them) were also involved in the conspiracy too, particularly [Polygon](timeline/2024/may.md#bali).
-- Over the last ten years, possibly after being watched online by the global tech-bro porn-addict community, perhaps even being live-streamed sedated from Joan Fuster, and as a delightful extension on the regular violence against women requirement, even recruitment agents were employed to lure me into amazing jobs in which I was immediately treated like dirt, or grotesque interview set ups designed to upset me.
-- For that reason, I'm uploading my CV here so that if anyone cares to investigate the global tech-bro porn-gang conspiracy (of which I am no doubt the tip of the iceberg), here's where to look first.
+- It turns out, that everyone was having so much fun at my expense over the last thirty-eight years - and making so much money - even the tech-bro porn-addicts at some of the companies I worked for were enjoying my prolonged horror-porn-crucifixion; and most significantly [Polygon](timeline/2024/may.md#bali).
+- The porn gangs even used regular, common, law-abiding, tax-paying tech recruitment agents to lure me into amazing jobs with great salaries in which I was immediately treated like dirt.
+- Those grotesquely upsetting moments were lived-streamed for jeering and masturbating over when the boys popped over later after I had gone to bed and was rendered unconscious on sedating gas.
+- For these horrible reasons, I'm uploading my CV so that if anyone cares to investigate the global tech-bro horror-porn obsessions (of which I am no doubt the tip of the iceberg), here's where you might like to start.
 
 [![My CV](content/images/cv.png)](content/documents/CV_2025_CV.pdf)
 
-- Yes, I know I know, why is a Dr of Computer Science who built the world's first spiritual tech working in a role that's kind of akin to secretary?
-- I will expand on all of this shortly, of course.
+- Yes yes, I know I know, why is the doctor of Computer Science who built the world's first spiritual tech working in a role that everyone believes is worthless?
+- Perhaps our story will explain that on its own and without further effort.
 
 ## Motive
 
