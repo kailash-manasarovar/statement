@@ -269,8 +269,9 @@
 
 ![No ordinary girl](../../content/images/no-ordinary-girl.jpg)
 
-- While I'm looking at the images on the notebook of a bookshelf containing hundreds of books about superhero girls, I'm reminded of the artist trumpet-teacher's painting of the three pedophile-porn-horror siblings: Bruno trumpet-teacher with a gaping vacuum around his lower chakra areas, Gloria music-school secretary, and their brother [who blew in my face outside the tunnel](../2024/march/13-end.md#did-they-rob-my-crypto-account), all reading comic books.
+- While I'm looking at the images on the notebook of a bookshelf containing hundreds of books about superhero girls, I'm reminded of the artist trumpet-teacher's painting of the three pedophile-porn-horror siblings: Bruno trumpet-teacher with a gaping vacuum around his lower chakras, Gloria music-school secretary, and their brother [who blew in my face outside the tunnel](../2024/march/13-end.md#did-they-rob-my-crypto-account), all reading comic books.
 - The painting's background was this notebook; except the superhero was male.
+<!-- This notebook will feature in extraordinary miracles later on in the year. -->
 
 ### An excited bookseller
 
