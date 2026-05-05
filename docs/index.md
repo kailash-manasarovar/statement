@@ -188,7 +188,7 @@ This police statement details the following:
 [![My CV](content/images/cv.png)](content/documents/CV_2025_CV.pdf)
 
 - Yes yes, I know I know, why is the doctor of Computer Science who built the world's first spiritual tech working in a role that everyone believes is worthless?
-- Perhaps our story will explain that on its own and without further effort.
+- Perhaps our story will explain that on its own, and without further effort.
 
 ## Motive
 
