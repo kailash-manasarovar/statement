@@ -257,6 +257,7 @@
 
 - I want to update my will and I have a will registered in Glastonbury which I want to formally delete - although I already made a new one.
 - I want a will which will leave the forgivenet to the whole world (I changed my mind on this now too so need to update the one I registered with the UK public will database), and leave all my wealth to the Hospitalite of Lourdes.
+- I would now like to leave the forgivenet to the country of Israel, if that's possible.
 - I do not want anyone evil inheriting from me and I'm aware that if I die and my money goes to family members, criminal gangs will target them if they haven't already.
 - I ask Paul to accompany me to Glastonbury as I feel unsafe everywhere (ironic innit).
 
