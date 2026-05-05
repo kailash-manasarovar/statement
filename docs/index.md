@@ -180,8 +180,8 @@ This police statement details the following:
 
 ### Colleagues and employers with horror-porn subscriptions, and their mates
 
-- It turns out, that everyone was having so much fun at my expense over the last thirty-eight years - and making so much money - even the tech-bro porn-addicts at some of the companies I worked for were enjoying my prolonged horror-porn-crucifixion; and most significantly [Polygon](timeline/2024/may.md#bali).
-- The porn gangs even used regular, common, law-abiding, tax-paying tech recruitment agents to lure me into amazing jobs with great salaries in which I was immediately treated like dirt.
+- It turns out, that everyone was having so much fun at my expense over the last thirty-eight years - and making so much money - even the tech-bro porn-addicts at some of the companies I worked for were enjoying my prolonged horror-porn-crucifixion; and most significantly at [Polygon](timeline/2024/may.md#bali).
+- The porn-gangs even used regular, common, law-abiding, tax-paying tech recruitment agents to lure me into amazing jobs with great salaries in which I was immediately treated like dirt.
 - Those grotesquely upsetting moments were lived-streamed for jeering and masturbating over when the boys popped over later after I had gone to bed and was rendered unconscious on sedating gas.
 - For these horrible reasons, I'm uploading my CV so that if anyone cares to investigate the global tech-bro horror-porn obsessions endangering the lives of law-abiding, tax-paying, decent women and men (of which I am no doubt the tip of the iceberg), here's where you might like to start.
 
