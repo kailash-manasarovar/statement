@@ -67,7 +67,7 @@ function googleTranslateElementInit() {
 - It's *Tie A Yellow Ribbon*!
 - Even though Trish's behavior was very obviously malevolent towards me, I always felt worried about her.
 - Things she said to me gave me cause for concern; for example, *my much-younger-Spanish-husband always brings me tea in the morning, every morning*.
-- Did Trish find herself starring in a horror film just like I did?
+- Did Trish find herself starring in a horror-porn film just like I did?
 - Was it after she returned from her foundation art course in the UK - something she told me about on a loop - or just after her first, British husband died (or was murdered maybe)?
 - Were these messages from Trish a way for the criminal porn-gangs of Dénia to communicate with the multiple law enforcement organizations I had sent [my handwritten letters to](august.md#the-handwritten-letters) so that they might make deals while they conclude their detailed investigations and before they nick everyone and stop the baby-rapists, pedophiles, and sedated-rape insane please God.
 
@@ -75,6 +75,9 @@ function googleTranslateElementInit() {
 
 - So, Janet, my election volunteer presses me to run a Space describing X hacking.
 - I wonder who asked her to do that.
+- [Officially unsafe in Spain].
+- [I'm soon to find out I'm officially unsafe in UK].
+- [In less than a year's time, I'll find out I'm officially unsafe pretty much everywhere and start a new life in a liminal state, somewhat stateless, unable to work as 1 in 3 men are porn addicts and I'd be having to work with them, so just living on savings until God says otherwise, He's always very clear about stuff].
 
 ## Threats
 
@@ -92,6 +95,9 @@ function googleTranslateElementInit() {
 - He talks about a small blond woman and a Muslim man waiting for me to die.
 - He is very accurate with regards to Carmen Cano.
 - I have no idea who the Muslim man could be, whether he got something wrong, or if there is more to this story I'm unaware of.
+- On the same trip, I visit Omkareshwar jyotirlinga temple.
+- While waiting on the bridge over the river, I get a strong feeling, a message even, saying you can give all of it up right now, if you want.
+- I thought about this, a lot, right there, and I came to the conclusion that it would just be delay and I'd have to get back around to it at some point in the future, and so I ignored the message and wherever it was coming from which I now believe was nortie.
 
 ## Sunday 8th December 2024
 
