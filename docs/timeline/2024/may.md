@@ -409,8 +409,15 @@ function googleTranslateElementInit() {
 - Is it possible Elon Musk is involved in the female-tech-colleague sedated-rape-porn conspiracy organized by a serial-killing porn-gang who may have links to the Madeline McCann kidnap?
 - At the time, I thought the constant vicious behavior from staff at Polygon was due to my women's rights activities online, but it wasn't really that at all, although it's possible that's how the big important men in the know justified it to everyone else.
 - Were some of them uncomfortable about what was going on?
-- After Bali, in quick succession, a number of people involved left the business: Alicia, Ajay, and Aman included.
-- Did someone tell them I had been operating undercover for Interpol's OCG child-sex-trafficking department since 2017, or earlier.
+- After Bali, in quick succession, an unusually high number of people involved in this porn-horror miniseries left the business: Alicia, Ajay, and Aman included.
+- Did someone tell them I had been operating undercover for Interpol's OCG child-sex-trafficking department since 2017, or earlier?
+- That was just a joke, maybe, but the times I had unusually intuitive knowledge about the people I worked with might make them wonder about me a little too late; I knew Jaime was a golfer (he was dressed like one after all), and his pal was dressed like a paramedic in a meeting.
+- Perhaps there have been friends everywhere, for decades!
+- Also, a stalwart employee, female, from Barcelona who had worked under Miriam, very popular with everyone, poof, is gone.
+- I'd be concerned about her safety while employed and on off-sites or events with the company.
+- Did she know about something fishy going on?
+- She organized paperwork and financial sign offs for HR so she will know about who was being hired and fired, etc.
+- She could shed some light on Nadim et al for sure.
 
 #### David Schwartz steps down
 
