@@ -2,7 +2,7 @@
 
 ## Kailash
 
-- I'm returning to Kailash after eleven years.
+- I'm returning to Kailash after eleven years, God Willing.
 - It's somewhat miraculous I am doing so.
 - I remember as we walked around the mountain back in 2015, I found out about the jyotirlinga and I made the decision to visit all 12 of them at that time - apart from the one in Pakistan, obviously.
 - I'm returning having completed the task I (maybe) set for myself at Kailash, and other tasks too.
