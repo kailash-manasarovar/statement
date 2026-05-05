@@ -154,6 +154,11 @@ function googleTranslateElementInit() {
 
 ## February to June 2019
 
+### Online sleeping pills
+
+- Is this how they administer hallucinogens to the general public via the postal service?
+- wip.
+
 ### Drugs rehab in Finchley Central
 
 - I'm working 3 days a week at a crypto firm [FetchAI](#fetchai) and going to outpatient rehab the other days in Finchley Central.
