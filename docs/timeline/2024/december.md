@@ -71,11 +71,12 @@ function googleTranslateElementInit() {
 - Was it after she returned from her foundation art course in the UK - something she told me about on a loop - or just after her first, British husband died (or was murdered maybe)?
 - Were these messages from Trish a way for the criminal porn-gangs of Dénia to communicate with the multiple law enforcement organizations I had sent [my handwritten letters to](august.md#the-handwritten-letters) so that they might make deals while they conclude their detailed investigations and before they nick everyone and stop the baby-rapists, pedophiles, incest-obsessed, and sedated-rape insane please God.
 
-## So wants me to do an X Space
+## So, Janet, asks me to run an X Space about hacking
 
-- So, Janet, `@ladysolucky` on X, one of [my dubious election volunteers](june.md#volunteers-not-what-they-seem) presses me repeatedly to run a Space describing X hacking.
-- I say I will until I realize she's involved in what's going on, and then I wonder who asked her to request that of me.
-- No doubt someone with a direct hack into my machine via the X platform, and no doubt for terror purposes.
+- So, Janet, `@ladysolucky` on X - one of [my dubious UK general election volunteers](june.md#volunteers-not-what-they-seem) - presses me repeatedly to run an X Space describing hacking.
+- I say I will and then find out I'm unable to get into X Spaces, inexplicably.
+- After realizing she's somehow involved with the Spanish criminal gangs, [the "hunters"](october.md#we-take-what-we-want-they-say-were-hunters-they-say), I wonder who asked her to request that of me.
+- No doubt someone with a direct hack into my machine via the X platform, and no doubt for porn-terror purposes.
 - I have already told Janet about how I'm officially unsafe in Spain.
 
 ![Officially unsafe in Spain](../../content/tweets/back-in-spain-shudder.jpg)
@@ -85,16 +86,17 @@ function googleTranslateElementInit() {
 - I'm unable to access healthcare or even go outside without a horror-porn addict recognizing me, or a criminal gang member showing up to growl at me.
 - After the [Metropolitan Police make it clear to me that they do not consider me a citizen with the same rights as everyone else](../2025/january.md#i-call-the-police), I realize that if anything bad were to happen to me in the UK, no-one would come to my assistance.
 - You cannot imagine how stressful that realization was.
-- In July 2025, I'll find out I'm officially unsafe in France and pretty much everywhere and anywhere in the world.
+- In July 2025, I'll find out [I'm officially unsafe in France](../2025/july.md#lourdes) and pretty much everywhere and anywhere in the world.
 - I have no option but to start a new life in a perma-liminal state; stateless essentially as anyone could do anything at all to me and no-one would assist.
 - I'm unable to work as 1-in-3 Western men are horror-porn addicts, and the others have a mate who is one, and I'd be having to work with the people who masturbated over me living as a sedated sex-slave in my own home; men who expected me to be murdered, commit suicide, or just disappear and be forgotten I guess.
 - I decide to devote my time to God and live on my substantial savings (the ultimate irony as these were intended to be inherited by a porn-gang member on my death through marriage) until God says otherwise.
-- He's always very clear about what to do, at least He is to me.
+- He's always very clear about what to do, at least He is to me with the small things He insists upon.
 - I guess I'm really really famous aren't I.
-- It's gross.
-- But the women don't know yet, do they.
+- It's so gross.
+- But mostly the women don't know yet, do they.
 - I wonder just how many women and children are in porn-hell right now because everyone's ashamed of themselves and hopes it'll all go away, poof!
-- Or is the world just officially evil now?
+- Or is the world officially evil now?
+- Should normal, law-abiding, tax-paying citizens expect to be drugged and raped by (apparently) normal, law-abiding, tax-paying citizens?
 
 ## Threats
 

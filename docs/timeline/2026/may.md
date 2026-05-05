@@ -8,6 +8,14 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Worm-turned
+
+- It appears the worm has officially turned, with Spanish criminal-gangs now asking the same anxious questions of law enforcement that I asked them back in July 2023 when the horror-porn terror was peaking.
+
+![What do you want exactly now](../../content/images/worm-officially-turned.png)
+
+- I love this!
+
 ## Kailash
 
 - I'm returning to Kailash after eleven years, God Willing.
