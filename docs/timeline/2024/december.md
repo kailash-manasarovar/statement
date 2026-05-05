@@ -77,7 +77,12 @@ function googleTranslateElementInit() {
 - I wonder who asked her to do that.
 - [Officially unsafe in Spain].
 - [I'm soon to find out I'm officially unsafe in UK].
-- [In less than a year's time, I'll find out I'm officially unsafe pretty much everywhere and start a new life in a liminal state, somewhat stateless, unable to work as 1 in 3 men are porn addicts and I'd be having to work with them, so just living on savings until God says otherwise, He's always very clear about stuff].
+- [A liminal state in UK].
+- [In less than a year's time, I'll find out I'm officially unsafe in France and pretty much everywhere in the world and start a new life in a perma-liminal state, stateless, unable to work as 1 in 3 men are porn addicts and I'd be having to work with them, so just living on savings until God says otherwise, He's always very clear about stuff].
+- I'm really famous aren't I.
+- But the women don't know yet, do they.
+- How many women and children are in porn-hell right now because everyone's ashamed of themselves and hopes it'll just go away.
+- Or is the world just officially evil now?
 
 ## Threats
 
