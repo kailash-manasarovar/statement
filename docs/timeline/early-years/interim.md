@@ -194,10 +194,25 @@ function googleTranslateElementInit() {
 - Did he upload that morning meeting to the tech-bro porn-networks?
 - James Dawes and his team [use the word "Fetch" over and over in their October 2024](../2024/october.md#bullying-ramps-up-at-polygon) meeting at Polygon in 2024, which I believe was specifically done to terrorize and persecute me, with management's awareness and complicity in the bigger story.
 
+## September 2019
+
+### Brother making sure I won't come back looking for help once they've got their claws into me
+
+- I come back from Lourdes and Cauterets.
+- My brother behaves in conservatory-like ways; upsetting me on purpose.
+- I make green juice and leave it in the fridge.
+- When I get home from work the next day I take some.
+- After about an hour, I'm violently sick.
+- I ate nothing else since morning.
+- My brother hates me so much at that moment the idea of poisoning crosses my mind.
+- I'm horrified to even think it.
+- Nevertheless, I'm more determined than ever to leave, and it is my feeling I will never come back.
+
 ## October 2019
 
 - I leave London.
-- I have limited communication with my parents, none with my brother.
+- The day I leave, my brother says something nasty sexist comment to me as I'm walking out of the door.
+- I have limited communication with my parents until October 2021 when I go no contact, I have no contact at all with my brother.
 
 ## The forgivenet®
 
