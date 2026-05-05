@@ -227,7 +227,9 @@ Are the cyber-stalkers who fed me information and evidence about actual crimes s
 
 Could such staggering criminality have been normalized by the Spanish police and governments in Spain, and abroad, because so many people know about it, and of course you have to be a porn-addict to know about it, and so many men are completely lost in porn, from all walks of life, and every echelon of society, hopelessly hopelessly lost?
 
-Did security services try to bring the porn-gang down years ago, and the gangs disappeared Madeline McCann as a warning?
+Did security services try to bring the porn-gang down years ago, and the gangs disappeared Madeline McCann as a warning? Tweets like this one made me wonder if they kept her and she's still alive.
+
+![Procrastination is the ultimate killer](content/images/procrastination-is-the-ultimate-killer.png)
 
 Is Dénia the only city in Spain where this is happening? Or is it everywhere; in Spain and throughout the Western world?
 
