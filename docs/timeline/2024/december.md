@@ -46,7 +46,7 @@ function googleTranslateElementInit() {
 
 - Trish continues to contact me in ways that make me certain she knows what's been happening to me and that she must think I'm an idiot.
 - On the run up to the *conservatory-terror*, Trish had very obviously been instructed to say and do things on behalf of the criminal gangs that were intended to upset me and cause me anxiety.
-- One good example of this was her painting of a portrait of me dressed as a clown with my double chin over-pronounced, and this was emailed to me one evening while I was at my kitchen table at the exact moment some frequency trigger was applied on my devices, while I had just come under the effects of a recent hallucinogenic dose (dinner?). 
+- One good example of this was her painting of a portrait of me dressed as a clown with my double chin over-pronounced, and this was emailed to me one evening while I was at my kitchen table at the exact moment some frequency trigger was applied on my devices' hardware, while I had just come under the effects of a recent hallucinogenic dose (something in my dinner perhaps?). 
 - I felt HORRENDOUS about her picture - more proof of how efficacious their emotional manipulation tech is - but it didn't make any logical sense to me at the time so I immediately filed it away as bogus.
 - Actually, I responded quickly to her email the moment she sent it, asking her about the picture to which she replied with some vague explanation.
 - The picture had been on display somewhere in the region and it wasn't the first "meaningful" painting she had informed me about on email.
@@ -64,12 +64,12 @@ function googleTranslateElementInit() {
 - When I return to the UK in January 2026 after having painstakingly saved thousands of emails, including everything Trish sent me I've just mentioned, and more, someone hacks into my Google accounts and deletes everything I've saved, and then renders my Google account completely unreachable.
 - Is it messages like this from Trish they want to hide?
 - In any event, the email gets me curious about what number one was on my birthday so I look it up.
-- It's *Tie A Yellow Ribbon*!
+- I was rather delighted to discover it was *Tie A Yellow Ribbon*.
 - Even though Trish's behavior was very obviously malevolent towards me, I always felt worried about her.
 - Things she said to me gave me cause for concern; for example, *my much-younger-Spanish-husband always brings me tea in the morning, every morning*.
-- Did Trish find herself starring in a horror-porn film just like I did?
+- Did Trish find herself starring in horror-porn just like I did?
 - Was it after she returned from her foundation art course in the UK - something she told me about on a loop - or just after her first, British husband died (or was murdered maybe)?
-- Were these messages from Trish a way for the criminal porn-gangs of Dénia to communicate with the multiple law enforcement organizations I had sent [my handwritten letters to](august.md#the-handwritten-letters) so that they might make deals while they conclude their detailed investigations and before they nick everyone and stop the baby-rapists, pedophiles, and sedated-rape insane please God.
+- Were these messages from Trish a way for the criminal porn-gangs of Dénia to communicate with the multiple law enforcement organizations I had sent [my handwritten letters to](august.md#the-handwritten-letters) so that they might make deals while they conclude their detailed investigations and before they nick everyone and stop the baby-rapists, pedophiles, incest-obsessed, and sedated-rape insane please God.
 
 ## So wants me to do an X Space
 
