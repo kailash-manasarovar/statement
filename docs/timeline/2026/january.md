@@ -229,3 +229,11 @@ function googleTranslateElementInit() {
 - He looked like Mr Hooper from Jaws.
 
 ![Hooper](../../content/images/hooper.gif)
+
+## Offering to take dad's statement
+
+- I'm briefly back at 31 before escaping, for good.
+- I give both parents some TT during the week.
+- I'm so upset with my dad; it's hard to know how to deal with his arrogance or mum's protectiveness.
+- I continually offer to take his statement.
+- He doesn't take me up on it.
