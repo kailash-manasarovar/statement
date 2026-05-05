@@ -252,3 +252,32 @@
 - I access the Israel website for asylum seekers and try to make an application.
 - My web access is continuously blocked.
 - I give up.
+
+## Glastonbury with Paul
+
+- I want to update my will and I have a will registered in Glastonbury which I want to formally delete - although I already made a new one.
+- I want a will which will leave the forgivenet to the whole world (I changed my mind on this now too so need to update the one I registered with the UK public will database), and leave all my wealth to the Hospitalite of Lourdes.
+- I do not want anyone evil inheriting from me and I'm aware that if I die and my money goes to family members, criminal gangs will target them if they haven't already.
+- I ask Paul to accompany me to Glastonbury as I feel unsafe everywhere (ironic innit).
+
+### No ordinary girl, or boy
+
+- While in Glastonbury we wander around the bookstores.
+- I'm looking for a new note book.
+- I find one.
+
+![No ordinary girl](../../content/images/no-ordinary-girl.jpg)
+
+- While I'm looking at the images on the notebook of a bookshelf containing hundreds of books about superhero girls, I'm reminded of the artist trumpet-teacher's painting of the three pedophile-porn-horror siblings: Bruno trumpet-teacher with a gaping vacuum around his lower chakra areas, Gloria music-school secretary, and their brother [who blew in my face outside the tunnel](../2024/march/13-end.md#did-they-rob-my-crypto-account), all reading comic books.
+- The painting's background was this notebook; except the superhero was male.
+
+### An excited bookseller
+
+- While we're in the shop with the notebook, the bookseller from the shop over the road runs in excitedly, hopping around like they do, breathing hard, and looking at me in glances.
+- Another horror-porn fan.
+
+## TT in Dublin
+
+- Module 3 again.
+- I ask Steve if I can come to Israel with him.
+- He says yes.
