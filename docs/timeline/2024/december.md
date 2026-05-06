@@ -106,17 +106,18 @@ function googleTranslateElementInit() {
 
 ![Mahakaleshwar jyotirlinga](../../content/images/mahakaleshwar-ujjain.jpg)
 
-- Outside Shri Mahakaleshwar jyotirlinga temple, I meet a psychic.
+- In the queue outside Shri Mahakaleshwar jyotirlinga temple, I meet a psychic.
 - He reads my hand.
 - He tells me what he sees.
 - It's astonishing how accurate he is.
 - He tells me about my love, but he says there are people in the way.
 - He mentions how these people are *wasting my time*, over and over.
-- I don't really understand this reference.
+- I don't understand this.
 - He talks about a small blond woman and a Muslim man waiting for me to die.
 - He is very accurate with regards to Carmen Lopez Cano.
 - I have no idea who the Muslim man could be; whether the psychic got something wrong, or if there is more to this story.
-- The psychic tells me the form of God he worships and who protect and guide him are the brother-snakes belonging to Shiva and Vishnu.
+- The psychic tells me the form of God he worships which protect and guide him are the brother-snakes belonging to Shiva and Vishnu.
+- I will revisit the Mahakaleshwar jyotirlinga as part of the 51 Shakti temples pilgrimage I am planning as there is a major Shakti peeth alongside the jyotirlinga where Sita's upper lip is said to have fallen.
 
 ### Omkareshwar temple
 
