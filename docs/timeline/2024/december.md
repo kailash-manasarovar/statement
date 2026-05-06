@@ -100,13 +100,13 @@ function googleTranslateElementInit() {
 
 ## Jyotirlinga
 
-- I visit India for a short trip to visit two of the jyotirlinga temples.
+- I visit India to visit two of the jyotirlinga temples.
 
 ### Mahakaleshwar temple
 
 ![Mahakaleshwar jyotirlinga](../../content/images/mahakaleshwar-ujjain.jpg)
 
-- In the queue outside Shri Mahakaleshwar jyotirlinga temple, I meet a psychic.
+- In the queue outside Shri Mahakaleshwar jyotirlinga temple in Ujjain, I meet a psychic.
 - He reads my hand.
 - He tells me what he sees.
 - It's astonishing how accurate he is.
