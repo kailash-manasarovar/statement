@@ -128,9 +128,11 @@ function googleTranslateElementInit() {
 - While waiting on the bridge over the river, I get a strong feeling, a message even.
 - I understand that, at that moment, I could give all of the hell I have been enduring away, just drop it.
 - I thought about this, a lot, right there.
-- It felt like a one off opportunity; a too-good-to-be-true from a used-car salesman.
 - I quickly came to the conclusion that if I dropped it all, it would just mean delay.
-- I'd have to get back around to my *enormous* karma at some point in the future, and no-one else was going to stand up for the innocent and vulnerable involved, so I ignored the message and carried on calmly.
+- Oh, nearly forgot, dropping it required leaving [the jet stone pieces I had found on the beach in Lindisfarne](../2022/july.md#lindisfarne-jet) at Omkareshwar.
+- Sometimes, you see, I would bring them with me to Mahadev for a blessing.
+- The message felt like a one off opportunity; a too-good-to-be-true from a used-car salesman.
+- And I'd have to get back around to my *gargantuan* karma at some point in the future anyway, and no-one else was going to stand up for the innocent and vulnerable involved, so I ignored the message and carried on calmly.
 
 ## Sunday 8th December 2024
 
