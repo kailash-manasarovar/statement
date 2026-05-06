@@ -98,22 +98,28 @@ function googleTranslateElementInit() {
 - Or is the world officially evil now?
 - Should normal, law-abiding, tax-paying citizens start expecting to be drugged and raped by (apparently) normal, law-abiding, tax-paying citizens?
 
-## Threats
-
-- I continue to get online threats from fake accounts.
-
 ## Jyotirlinga
 
-- I visit India for a few days temple tour.
+- I visit India for a short trip to visit two of the jyotirlinga temples.
+
+### Mahakaleshwar temple
+
+![Mahakaleshwar jyotirlinga](../../content/images/mahakaleshwar-ujjain.jpg)
+
 - Outside Shri Mahakaleshwar jyotirlinga temple, I meet a psychic.
 - He reads my hand.
 - He tells me what he sees.
-- It's quite astonishing how accurate he is.
-- He tells me about my love, but there are people in the way.
-- He mentions how they are *wasting my time*, over and over. I don't really understand this reference.
+- It's astonishing how accurate he is.
+- He tells me about my love, but he says there are people in the way.
+- He mentions how these people are *wasting my time*, over and over.
+- I don't really understand this reference.
 - He talks about a small blond woman and a Muslim man waiting for me to die.
-- He is very accurate with regards to Carmen Cano.
-- I have no idea who the Muslim man could be, whether he got something wrong, or if there is more to this story I'm unaware of.
+- He is very accurate with regards to Carmen Lopez Cano.
+- I have no idea who the Muslim man could be; whether the psychic got something wrong, or if there is more to this story.
+- The psychic tells me the form of God he worships and who protect and guide him are the brother-snakes belonging to Shiva and Vishnu.
+
+### Omkareshwar temple
+
 - On the same trip, I visit Omkareshwar jyotirlinga temple.
 - While waiting on the bridge over the river, I get a strong feeling, a message even, saying you can give all of it up right now, if you want.
 - I thought about this, a lot, right there, and I came to the conclusion that it would just be delay and I'd have to get back around to it at some point in the future, and so I ignored the message and wherever it was coming from which I now believe was nortie.
@@ -128,10 +134,10 @@ function googleTranslateElementInit() {
 - I suggest that anyone found involved in poisoning or drugging is prosecuted for attempted murder.
 - I suggest that anyone found involved in sexual grooming is prosecuted for sexual abuse and/or rape.
 - I suggest that anyone found involved in the management or distribution of mass online voyeurism channels and/or non-consensual information about a private person is prosecuted most forcefully.
-- I suggest that, where possible, the bodies of any suspicious deaths in the region are exhumed and analyzed for poisons and narcotics.
-- I suggest that, all previous residents in my flat or any flat managed by anyone related to these matters, is checked up on, and questioned.
+- I suggest that, where possible, the bodies of any suspicious deaths in the region are exhumed and analyzed for poisons, pesticides, and narcotics.
+- I suggest that, all previous residents in my flat or any flat managed by anyone related to these matters, is checked up on, and the owners questioned.
 - And a first point of call should be Lorraine Blackbourn's family, and anyone that knew her, and to have a look at any police complaints she may have made prior to her untimely death by suicide.
-- Furthermore, if I was an investigator, I'd make sure to check every single student that Domingo the piano teacher has taught over the years to see how many of them ended up in porn or prostitution and/or were exploited financially in some way.
+- Furthermore, if I was an investigator, I'd make sure to check every single student that Domingo the piano teacher has taught over the years to see how many of them ended up in porn or prostitution, had an early death, and/or were exploited financially in some way.
 
 ## Pedro sends a Christmas greeting
 
