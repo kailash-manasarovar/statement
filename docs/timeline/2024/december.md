@@ -130,7 +130,7 @@ function googleTranslateElementInit() {
 - I thought about this, a lot, right there.
 - It felt like a one off opportunity; a too-good-to-be-true from a used-car salesman.
 - I quickly came to the conclusion that if I dropped it all, it would just mean delay.
-- I'd have to get back around to my karma at some point in the future, and no-one else was going to stand up for the innocent and vulnerable involved, so I ignored the message and carried on calmly.
+- I'd have to get back around to my *enormous* karma at some point in the future, and no-one else was going to stand up for the innocent and vulnerable involved, so I ignored the message and carried on calmly.
 
 ## Sunday 8th December 2024
 
