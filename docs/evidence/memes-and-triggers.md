@@ -172,16 +172,18 @@ function googleTranslateElementInit() {
 
 ## Coffee
 
-- This was an early days phrase repeated in hushed whispers behind nudged elbows by teachers at the conservatory if I was walking by.
-- I had always assumed it was in regards to Domingo's repeated [coffee dates](../timeline/early-years/2014.md#first-piano-class-at-the-end-end-of-september) in 2014, and my subsequent complaint about their inappropriateness to [Joan Carles](../timeline/early-years/2015.md#joan-carles) at the time I had zero idea that my apartment was spy-cammed up and multiple local men were gaining entry to it to rape me while I was unconscious.
-- *Coffee* then became part of the sedating rape-machine user's secret language; as piano-teacher Maria Hontanilla can confirm she really meant whenever she suggested we might go for coffee, then grin and say *or two, or three, or four* referring directly to the [*switcheroo* horror-porn special filmed live from the conservatory](../crimes/protagonists/vidal-sastre.md#at-least-four).
-- The *coffee* meme gave online X stalker-accounts much fun too, as one can see in the replies to this particular tweet sent while the sedating-and-drugging terror was at its peak.
+- This was an early days trigger-word repeated in hushed whispers behind nudged elbows by teachers at the conservatory whenever I was close by.
+- I had always assumed it was in regards to Domingo's repeated [coffee dates](../timeline/early-years/2014.md#first-piano-class-at-the-end-end-of-september) in 2014, and my subsequent complaint about their inappropriateness to [Joan Carles](../timeline/early-years/2015.md#joan-carles) at the time I had no idea my apartment was spy-cammed up and multiple local men were gaining entry after I went to bed to rape me while I was rendered unconscious by sedating gas.
+- *Coffee* then became part of the sedating rape-cult's secret language; as piano-teacher Maria Hontanilla can confirm.
+- Whenever she suggested we might go for coffee, then grin and say *or two, or three, or four*, she was referring directly to the [*switcheroo* horror-porn special filmed live from the conservatory](../crimes/protagonists/vidal-sastre.md#at-least-four).
+- The *coffee* meme gave online X stalker-accounts much fun too, as one can see in the replies to this particular tweet I sent while the sedating-and-drugging terror was at its peak.
 
 [![Coffee meme](../content/tweets/coffee.jpg)](https://x.com/1FRGVN/status/1728919144022864336)
 
-- Does known porn-horror stalker account `@iamloiskay` mean the men are entering my apartment *EVERY SINGLE DAY*?
+- Is known porn-horror stalker account `@iamloiskay` telling us that local sedating-rapists are entering my apartment *EVERY SINGLE DAY*?
 
 [![Coffee EVERY SINGLE DAY](../content/tweets/coffee-every-single-day.jpg)](https://x.com/1FRGVN/status/1728919144022864336)
+
 - It would not surprise me at all.
 
 ## Father
