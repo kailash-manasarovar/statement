@@ -215,7 +215,7 @@ This police statement details the following:
 - The next obvious step was setting up unwitting sedated sex-slaves; women and families on holiday, or lured to the area to rent or buy houses which are not only set up with 24-7 spy-cam networks but also sedating tech through the air-conditioning systems, and drugging and poisoning through tampered-with water mains or blatant trespass while the inhabitants are out.
 - It is one thing drugging a woman while on a date, or even in the street with distraction techniques; it is quite another setting up whole apartments with sedating-gas technology for live-streaming sexual assaults onto porn-networks.
 
-### The doomsday manipulation tech
+### The doomsday manipulation-machine
 
 - Of course, paying porn-addicts get bored easily (it is UTTERLY boring after all).
 - The manipulation tech is a doomsday machine which tricks men into paying to see more and more deprivation, more rape, more murder and injury, younger and younger victims, older women, pregnant women and babies.
