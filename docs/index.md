@@ -201,7 +201,7 @@ This police statement details the following:
 - Once the online stalking and phone hacking became obvious in the summer of 2023, I started to shift my view on what was going on, but again it was a slow process and marred by constant spiked-hallucinogen intake coupled with the relentless emotional hypno-hacks embedded into all my devices by that time.
 - The idea that I had been stalked by criminal gangs since 1989 when the North London rape-gangs filmed me during multiple sex attacks and distributed those films to a "global porn-addict audience" - which, it turns out, could include any man we know, and for sure a great proportion of the men we do know - was preposterous.
 - But it was this, and eventually my wealth, that made me the target of endless sedating/porn gangs in the UK, France, India, and Spain - some of which included friends and family members.
-- Of course, such a well-known target like myself is going to be lured to the horror-porn spy-cam studios of Las Marinas where no-one will ever come to help.
+- Of course such a well-known target like myself is going to be lured to the horror-porn spy-cam studios of Las Marinas where no-one will ever come to help.
 
 ### Corruption to blame
 
