@@ -143,8 +143,14 @@ function googleTranslateElementInit() {
 ## Checked shirts
 
 - There was a whole bunch of men's checked-shirt results on Google search in the early days, after which checked shirts triggered a fear reaction in me.
-- Did men wear checked shirts when coming into my apartment to assault me while sedated?
+- Did men purposefully wear checked shirts when coming into my apartment to assault me while sedated so that they might trigger a fear reaction in a conscious state?
 - Samuel wore a checked-shirt to choir practice the night the blond guy blew in my face and I became convinced I was going to be murdered after something happened to me while I was sedated. 
+
+### Checked trousers
+
+- Matthew Copeland told a hilarious joke one time about Rupert Bear.
+- I tried to do the same online during the terror, and started with the first part of the joke, *Why does Rupert the Bear wear checked trousers?*, and I couldn't understand why all the stalkers went completely silent on it, they'd been rattling on for hours already that night.
+- Was Matthew amongst them? Did he signal them to shut up?
 
 ## Sylvia
 
