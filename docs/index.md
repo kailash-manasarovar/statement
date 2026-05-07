@@ -199,8 +199,8 @@ This police statement details the following:
 - Initially, I thought that just a few idiot men with pre-pubescent mental ages couldn't stop themselves terrorizing women and girls to the extent I was terrorized at the conservatory between November 2022 and June 2023.
 - It upset me that they were able to involve so many women and children, but Spain is a macho-state after all.
 - Once the online stalking and phone hacking became obvious in the summer of 2023, I started to shift my view on what was going on, but again it was a slow process and marred by constant spiked-hallucinogen intake coupled with the relentless emotional hypno-hacks embedded into all my devices by that time.
-- The idea that I had been stalked by criminal gangs since 1989 when the North London rape-gangs filmed me during multiple sex attacks and distributed those films to a "global porn-addict audience" - which, it turns out, could include any man we know, and for sure a great proportion of the men we do know - was preposterous.
-- But it was this, and eventually my wealth, that made me the target of endless sedating/porn gangs in the UK, France, India, and Spain - some of which included friends and family members.
+- The idea that I had been stalked by criminal gangs since 1989 when North London rape-gangs filmed me during multiple sex attacks and distributed those films to a "global porn-addict audience" - which, it turns out, could include any man we know, and for sure a great proportion of the men we do know - was preposterous.
+- But it was this, and eventually my wealth, that made me the target of endless sedating/porn gangs in the UK, France, India, and Spain - some of which even included friends, boyfriends, and family members.
 - Of course such a well-known target like myself is going to be lured to the horror-porn spy-cam studios of Las Marinas where no-one will ever come to help.
 
 ### Corruption to blame
