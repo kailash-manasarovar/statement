@@ -192,53 +192,52 @@ This police statement details the following:
 
 ## Motive
 
-While trying to figure out what was going on, I spent much time theorizing on why a whole town would put so much energy and resources into threatening and terrorizing a woman they considered vulnerable for over three years.
-
-In the end, I am left with no other theory than that the town is suffering from a murderous mass-psychosis brought on by unfettered porn-addictions coupled with commonplace corruption.
-
-I believe the town of Dénia has been a spy-cam porn-studio for over a decade. Prior to that, from at least three decades ago, wealthy and foreign women were commonly targeted for sexual exploitation using spy-cam technology; see the [Irene sections](timeline/2023/july.md#plate-lady-early-in-the-month) for an example of this. 
-
-It would have been a seamless evolution into installing spy-cams in AirBnBs, hotels, rental apartments, and houses for sale, and making a lot of money by doing so.
-
-Any resultant police complaints will have been silenced and ignored, and I expect there are thousands.
-
-We know that porn-addicts get bored easily and need more and more deprivation, more rape, more murder and injury, younger and younger victims; so the porn studio must have seamlessly again extended into schools and places where children and young people are vulnerable to grooming. 
-
-We don't know how many children have been victims of the porn gangs. Again, multiple complaints will have been silenced and ignored.
-
-A more worrying trend is the evidence suggesting online manipulation techniques coupled with clandestine drugging is being used to persuade women to have babies with porn-gang members, which they can then abuse to add to the millions of baby-rape videos we hear about every week in the news, and pay for their ferrari's on the darknet subscription fees.
-
-And what happens to people who have such power over others? The power of life and death by clandestine poisoning: The power of knowing what a person is doing 24-hours a day: The power of hearing all conversations, reading all letters, chats, and correspondence, and knowing total strangers intimately?
-
-I believe that what Lorraine stumbled across was they had started creating live-streamed "shows" of targeted women, and everything that has happened to me, every incident in this statement, has been watched online by millions of sick porn-addicts and homicidal maniacs.
-
-Could [Dénia TV](timeline/2001-to-2010/2008.md#denia-tv) be broadcasting such evil?
-
-Perhaps they even run a betting segment; will she kill herself? Or should we just murder her?
-
-No wonder Christine said, ["Why does someone always have to die?"](timeline/2023/december.md#piano-concert).
-
-The suicide statistics in Dénia are off the scale. Something very evil is going on there.
-
-The end goal of everything that happened to me, and any other target, is death; either by suicide, or murder.
-
-If I'm right, I still can't believe they are all this insane. Are the good people of Dénia prisoners in their own homes? Do they know what's going on but can't do anything about it because they'll be killed or maimed? How many have tried to correct this problem and been murdered?
-
-Are the cyber-stalkers who fed me information and evidence about actual crimes simply decent Dénia citizens unable to get help via any normal security routes?
-
-Could such staggering criminality have been normalized by the Spanish police and governments in Spain, and abroad, because so many people know about it, and of course you have to be a porn-addict to know about it, and so many men are completely lost in porn, from all walks of life, and every echelon of society, hopelessly hopelessly lost?
-
-Did security services try to bring the porn-gang down years ago, and the gangs disappeared Madeline McCann as a warning? Tweets like this one made me wonder if they kept her and she's still alive.
+- Trying to figure out what the hell was going on in Dénia was a slow process.
+- It was obvious to me something *bad* was going on, but I failed to assess the seriousness of it for a long time, by design.
+- Initially, I thought that just a few idiot men with pre-pubescent mental ages couldn't stop themselves terrorizing women and girls to the extent I was terrorized at the conservatory between November 2022 and June 2023.
+- It upset me that they were able to use so many women and children to do it, but Spain is a macho-state, after all.
+- Once the online stalking and hacking of my phone became obvious in the summer of 2023 I started to shift my view on what was going on, but again it was a slow process and marred by constant administering of hallucinogens coupled with the relentless emotional hypno-hacks embedded into all my devices by that time.
+- The idea that I had been stalked by criminal gangs since 1989 when the Tottenham rape-gangs filmed me during multiple sex attacks and distributed those films to a "global porn-addict audience", which, it turns out, could include literally any man we know, and for sure a great proportion of the men we do know, was preposterous.
+- But, of course, it's kind of obvious isn't it, and unsurprising, even expected.
+- Something about the town of Dénia makes the criminal pornographers untouchable and, due to that,  I believe the whole town slipped into a murderous mass-psychosis brought on by unfettered porn-addictions coupled with commonplace corruption.
+- Perhaps there have been some good people who tried to stop it, and were dealt with in ways that ensured no-one would be able to get help.
+- From here, it's easy to see how a small population might go totally mad: if you can't beat em, join em, right? 
+- At least three decades ago, wealthy locals and foreign women were commonly targeted for sexual exploitation and blackmail by the gangs using already advanced spy-cam technology; as we saw with [Irene's honey-trapped love affair probably taking place back in the 80s](timeline/2023/july.md#plate-lady-early-in-the-month).
+- My guess is they would threaten a victim with distributing the films, and ask for payment, but distribute them anyway.
+- The porn arm of the criminal enterprise would have started becoming more lucrative as the Internet took off and it must have been a seamless evolution into installing spy-cam networks in AirBnBs, hotels, rental apartments, and houses for sale, and making a lot of money by doing so.
+- The next obvious step must have been unwitting sedated sex-slaves lured to the area to rent or buy houses in the region which are not only set up with 24-7 spy-cam networks but also drugging tech via the water mains, or blatant trespass when the inhabitant is out.
+- It is one thing drugging a woman while on a date, or even in the street with distraction techniques, it is quite another setting up bedrooms with sedating gas technology.
+- Of course, paying porn-addicts get bored easily (it is UTTERLY boring after all).
+- The manipulation tech is a doomsday machine which tricks men into paying to see more and more deprivation, more rape, more murder and injury, younger and younger victims, pregnant women and babies.
+- It was easy for the criminals to extend their business into schools and places where women, children, young people, and babies are available and vulnerable to grooming; especially given many of the gang-members work for the school board or government health services.
+- The fact that no-one cares about these very obvious crimes against the innocent is nearly inconceivable to me.
+- My understanding is that the people of the town of Dénia became so insane, they have even been broadcasting sedated rape events on the local TV channel, [Dénia TV](timeline/2001-to-2010/2008.md#denia-tv), and this is why everyone knows who the victims are.
+- We don't know how many victims there are. My guess is thousands.
+- Alongside these porn horror-stories, you have people like Hazel and Sandra Smith, known serial killers, left to fraternize with hundreds of their default target-types: British ex-pat pensioners with wealth.
+- My guess is they were brought in by the gangs to work solely with the ex-pat community and are probably slaves to the gangs themselves.
+- They are, however, criminally insane, and I just wonder if they repurposed the honey-trap sexual-arousal manipulation tech into suicide and murder tech, just for fun!
+- My guess is these two alone have murdered hundreds in the last twenty-odd years; we can only guess at how many the Lopez Cano's have dispatched with.
+- They literally enjoy it.
+- A similarly worrying trend is the evidence suggesting online manipulation techniques coupled with clandestine drugging is persuading women to get married and have babies with porn-gang members.
+- My belief is the hundreds of thousands of Category A child-and-baby rape porn we hear about on the news every week is produced in Dénia by the same gangs that have infiltrated the school system. 
+- We know what happens to very unwise people who have unlimited power over others: the power of life and death by clandestine poisoning, the power of being able to mentally manipulate a person into doing anything at all, into experiencing strong emotions that include suicidal and homicidal feelings, the power of knowing what a person is doing and where they are 24-hours a day, the power of listening to all conversations, reading all correspondence...
+- Of course, it's a one-way street to more and more excessive and appalling criminal psychosis.
+- Do the criminals play games amongst themselves and the wider porn-addict community about who is going to kill themselves, who will we have to murder?
+- It makes statements from "friends" said so that I would hear it, such as, ["Why does someone always have to die?"](timeline/2023/december.md#piano-concert), chilling.
+- The suicide statistics in Dénia are off the scale. 
+- I believe Lorraine Blackbourn stumbled across something they were doing that she was unable to accept (and you could take your pic here but I believe it was probably that the whole town was sedating and raping friends of hers - maybe even her too).
+- I believe she tried to get help, like I did, and was totally ignored, like I was.
+- I believe this tipped her over the edge and she was unable to withstand the suicide suggestions which I can tell you from experience are extremely powerful, but fake.
+- From here, *what wouldn't they do?* is the better question.
+- Are there any good people in Dénia? If there are, are they prisoners in their own homes or forced to get involved against their will? Will they be killed or maimed if they disagree? How many have tried to correct this problem and been crippled by pesticides or murdered?
+- My view is a criminal porn-enterprise with such expertise in sedating and spy-cam tech, a gang who will kidnap your children if you disagree with them, is behind the Madeline McCann kidnap.
+- Tweets like this one made me wonder if they kept her alive as a bargaining chip.
 
 ![Procrastination is the ultimate killer](content/images/procrastination-is-the-ultimate-killer.png)
 
-Is Dénia the only city in Spain where this is happening? Or is it everywhere; in Spain and throughout the Western world?
-
-Is the vile misogyny in Muslim cultures bettered by the porn-gangs of Spain?
-
-Does no-one do anything about this enormous evil that endangers the lives of so many because everyone's OK with it? Do the Spanish police and government think it is normal for women and children to be groomed, drugged, and sexually abused by gangs of adult professional men online and in-person? 
-
-Should we expect this if we travel to Spain?
+- So, to summarize, the petty crook, honey-trap spy-cam porn operations of the 80s evolved in parallel with Internet technology and a horror-porn town, unimaginable outside of fiction, emerged as a mundane reality.
+- We should not be surprised either; it was inevitable.
+- The motive is, as [Paqui Fornet Pastor](crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor) told me at piano class in March 2024, *it's what they do*, and no-one's been able to do a thing about it.
 
 ## Why was I in Dénia?
 
