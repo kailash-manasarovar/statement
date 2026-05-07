@@ -144,6 +144,7 @@ function googleTranslateElementInit() {
 
 - There was a whole bunch of men's checked-shirt results on Google search in the early days, after which checked shirts triggered a fear reaction in me.
 - Did men wear checked shirts when coming into my apartment to assault me while sedated?
+- Samuel wore a checked-shirt to choir practice the night the blond guy blew in my face and I became convinced I was going to be murdered after something happened to me while I was sedated. 
 
 ## Sylvia
 
