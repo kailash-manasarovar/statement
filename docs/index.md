@@ -206,13 +206,14 @@ This police statement details the following:
 ### Corruption to blame
 
 - Spanish corruption makes the criminal pornographers of Dénia untouchable and, due to this, I believe the whole town slipped into a murderous mass-psychosis brought on by unfettered porn-addictions in the men, and men-worshipping from the women.
-- Perhaps there were some good people who tried to stop it, and were dealt with in ways that ensured no-one else would try.
+- Perhaps some good people tried to stop it, and were dealt with in ways that ensured no-one else would.
 - From here, it's easy to see how a small population might go totally mad: if you can't beat em, join em, right? 
-- At least three decades ago, wealthy locals and foreign women were commonly targeted for sexual exploitation and blackmail by the gangs using already advanced spy-cam technology; as we saw with [Irene's honey-trapped love affair probably taking place back in the 80s](timeline/2023/july.md#plate-lady-early-in-the-month).
-- My guess is they would threaten a victim with distributing the films, and ask for payment, but distribute them anyway.
-- The porn arm of the criminal enterprise would have started becoming more lucrative as the Internet took off and it must have been a seamless evolution into installing spy-cam networks in AirBnBs, hotels, rental apartments, houses for sale, school classrooms, hospital wards, and police stations, and making a lot of money by doing so.
-- The next obvious step must have been unwitting sedated sex-slaves lured to the area to rent or buy houses in the region which are not only set up with 24-7 spy-cam networks but also drugging tech via the water mains, or blatant trespass when the inhabitant is out.
-- It is one thing drugging a woman while on a date, or even in the street with distraction techniques, it is quite another setting up whole apartments with sedating gas technology for live-streaming onto porn-networks.
+- At least three decades ago, wealthy locals and foreign women were commonly targeted for sexual exploitation and blackmail by the gangs using already advanced spy-cam technology; as we saw with the evidence of [Irene's honey-trapped love affair](timeline/2023/july.md#plate-lady-early-in-the-month) which probably occurred in the 80s.
+- My guess is that the gangs insisted on payment from victims, or they would distribute the films - then distributed them anyway to the mostly male porn-addict networks who never tell.
+- The porn arm of the criminal enterprise would have become even more lucrative as the Internet took off.
+- It must have been a seamless evolution into installing spy-cam networks in AirBnBs, hotels, rental apartments, houses for sale, school classrooms, hospital wards, and police stations, and making a lot more money by doing so.
+- The next obvious step was setting up unwitting sedated sex-slaves; women and families on holiday, or lured to the area to rent or buy houses which are not only set up with 24-7 spy-cam networks but also sedating tech through the air-conditioning systems, and drugging tech via the water mains or blatant trespass while the inhabitants are out.
+- It is one thing drugging a woman while on a date, or even in the street with distraction techniques, it is quite another setting up whole apartments with sedating gas technology for live-streaming sedated gang-rape onto porn-networks.
 
 ### The doomsday manipulation tech
 
