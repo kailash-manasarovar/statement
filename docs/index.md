@@ -205,13 +205,13 @@ This police statement details the following:
 
 ### Corruption to blame
 
-- Spanish corruption ensures the criminal pornographers of Dénia are untouchable and, due to this, I believe the whole town slipped into a murderous mass-psychosis brought on by unfettered porn-addictions in the men, and men-worshipping from the women.
+- Spanish corruption ensures the criminal pornographers of Dénia are untouchable and, due to this, I believe the whole town slipped into a murderous mass-psychosis brought on by unfettered porn-addictions in the men, and men-worshipping in the women.
 - Perhaps some good people tried to stop it, and were dealt with in ways that ensured no-one else would do the same.
 - From here, it's easy to see how a small population might go totally mad: if you can't beat em, join em, right? 
 - At least three decades ago, wealthy locals and foreign women were commonly targeted for sexual exploitation and blackmail by porn-gangs using already advanced spy-cam technology; as we saw with the evidence of [Irene's honey-trapped love affair](timeline/2023/july.md#plate-lady-early-in-the-month) which probably occurred in the 80s.
 - My guess is that the gangs insisted on payment from victims or they would distribute the films - then distributed them anyway to the mostly male porn-addict networks who never tell.
 - The porn arm of the criminal enterprise would have become even more lucrative as the Internet took off.
-- It must have been a seamless evolution into installing spy-cam networks in AirBnBs, hotels, rental apartments, houses for sale, school classrooms, public toilets, hospital wards, and police stations, and making a lot more money by doing so.
+- It must have been a seamless evolution into installing spy-cam networks in holiday-lets, hotels, rental apartments, houses for sale, school classrooms, public toilets, hospital wards, and police stations, and making a lot more money by doing so.
 - The next obvious step was setting up unwitting sedated sex-slaves; women and families on holiday, or lured to the area to rent or buy houses which are not only set up with 24-7 spy-cam networks but also sedating tech through the air-conditioning systems, and drugging and poisoning through tampered-with water mains or blatant trespass while the inhabitants are out.
 - It is one thing drugging a woman while on a date, or even in the street with distraction techniques; it is quite another setting up whole apartments with sedating-gas technology for live-streaming sexual assaults onto porn-networks.
 
