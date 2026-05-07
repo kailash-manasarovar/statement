@@ -217,19 +217,21 @@ This police statement details the following:
 
 ### The doomsday manipulation-machine
 
-- Of course, paying porn-addicts get bored easily (it is UTTERLY boring after all).
-- The manipulation tech is a doomsday machine which tricks men into paying to see more and more deprivation, more rape, more murder and injury, younger and younger victims, older women, pregnant women and babies.
-- It was easy for the criminals to extend their business into schools and places where women, children, young people, and babies are available and vulnerable to grooming; especially given many of the gang-members work for the school board or government health services.
+- Of course, paying porn-addicts get bored easily (porn is *UTTERLY* boring after all) and no businessman likes losing a paying customer.
+- And thus the manipulation tech is a doomsday machine which tricks men into paying to see more and more deprivation, more rape, more murder and injury, younger and younger victims, old women in nappies, pregnant women and babies, there's no end to the depravity of porn.
+- In order to supply the demand, the criminals extended their business into schools and places where women, children, young people, and babies are available and vulnerable to grooming; especially given many of the gang-members work for the school board or government health services.
+- They also invested heavily in hacking software which can take over a person's devices and control cameras and microphones.
 - The fact that no-one cares about these very obvious crimes against the innocent is nearly inconceivable to me.
 - My understanding is that the people of the town of Dénia became so insane, they have even been broadcasting sedated rape events on the local TV channel, [Dénia TV](timeline/2001-to-2010/2008.md#denia-tv) since at least 2007, and this is why everyone knows who the victims are.
-- We don't know how many victims there are. My guess is thousands.
-- Alongside these porn horror-stories, you have people like Hazel and Sandra Smith, known serial killers left surrounded by hundreds of their default target-types: wealthy British ex-pat pensioners where "wealthy" can mean just owning a property.
+- We don't know how many victims there are.
+- My guess is thousands, many murdered for *snuff* porn.
+- Alongside these porn horror-stories, you have people like Hazel and Sandra Smith, known serial killers plonked in amongst hundreds of their default target-types: wealthy British ex-pat pensioners where "wealthy" can mean just owning a property.
 - My guess is they were brought in via North London's judicial corruption to work solely with the ex-pat community and are probably slaves to the gangs themselves.
 - They are, however, criminally insane, and my guess is that they repurposed the honey-trap sexual-arousal manipulation tech into suicide and murder tech, just for fun, and even that started to pay off.
 - My guess is these two alone have murdered hundreds in the last twenty-odd years; we can only guess at how many the Lopez Cano's have dispatched with.
 - They literally enjoy it!
 - A similarly worrying trend is the evidence suggesting online manipulation techniques coupled with clandestine drugging is persuading women to get married and have babies with porn-gang members.
-- My belief is the hundreds-of-thousands of Category A child-and-baby rape porn we hear about on the news every week in the UK is produced in Dénia by the same gangs that easily infiltrated the government school system. 
+- My belief is the hundreds-of-thousands of Category A child-and-baby rape porn we hear about on the news every week in the UK is produced in Dénia by the same gangs that so easily infiltrated the government school system. 
 - We know what happens to very unwise people who have unlimited power over others: the power of life and death by clandestine poisoning, the power of being able to mentally manipulate a person into anything at all - into experiencing strong emotions that include suicidal and homicidal feelings, or believing they are sufficiently sick to justify life-threatening surgery, or that they were born in the wrong body and should therefore chop bits off the one they have, the power of knowing what a person is doing and where they are 24-hours a day, the power of listening to all conversations, reading all correspondence...
 - Of course, it's a self-destructing and totally insane one-way street to more and more excessive and appalling criminal psychosis.
 - Do the criminals play games amongst themselves and the wider porn-addict community about who is going to kill themselves, or who will have to be murdered?
