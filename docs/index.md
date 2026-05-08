@@ -215,7 +215,7 @@ This police statement details the following:
 - The next obvious step was setting up unwitting sedated sex-slaves; women and families on holiday, or lured to the area to rent or buy houses which are not only set up with 24-7 spy-cam networks but also sedating tech through the air-conditioning systems, and drugging and poisoning through tampered-with water mains or blatant trespass while the inhabitants are out.
 - It is one thing drugging a woman while on a date, or even in the street with distraction techniques; it is quite another setting up whole apartments with sedating-gas technology for live-streaming sexual assaults onto porn-networks.
 
-### The doomsday manipulation-machine
+### The Dénia Doomsday Manipulation-machine
 
 - Of course, paying porn-addicts get bored easily (porn is *UTTERLY* boring after all) and no porn-businessman will lose a paying customer if he doesn't have to.
 - And, thus, the manipulation tech became a doomsday machine, tricking men into paying to see more and more deprivation, more rape, more murder and injury, younger and younger victims, old women in nappies, pregnant women and babies, there's no end to the depravity of the porn-addict and his relentless search for the next worst thing.
@@ -240,7 +240,7 @@ This police statement details the following:
 - Do the criminals play games amongst themselves and the wider porn-addict community about who is going to kill themselves, who will undergo surgery, who would they like to see murdered, or running around naked in a field after a horse?
 - It makes statements I heard from apparent "friends", such as ["Why does someone always have to die?"](timeline/2023/december.md#piano-concert) chilling to the bone.
 - Unsurprisingly, the suicide statistics in Dénia are off the scale. 
-- The Dénia Doomsday Machine started life as a methodology for tricking women by cowardly petty-crook misogynists, and was left to spiral into its current monstrous form simply because no-one in charge considered serious sex crimes against women and children worth stopping.
+- The Dénia Doomsday Manipulation-machine started life as a methodology for tricking women by cowardly petty-crook misogynists, and was left to spiral into its current monstrous form simply because no-one considered decades of serious sex crimes against women and children worth stopping.
 - We only have ourselves to blame.
 
 ### What happens when you try to stop it
