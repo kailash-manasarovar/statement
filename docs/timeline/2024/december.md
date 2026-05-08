@@ -256,6 +256,17 @@ This woman in this pic could be related to the [innocent lady groomed into porn]
     - Misogynists generally.
     - women's groups who have been told things to discredit me that they believe.
 
+### Where's Toby?
+
+- This phrase is repeated constantly on fake account profiles managed by Hazel Smith (I'm starting to recognize her language patterns and tone with very little input).
+- I realize it's a reference to Trish's son Toby.
+- Trish told me one afternoon when we were hiking that Toby mostly lives in his car in the UK.
+- She sounded worried about him.
+- Was this another message from criminals to law-enforcement that I was in the middle of?
+- Later, another account flies by with the message, "Trish does things".
+- I have no idea what it means but feel like my suspicions about Trish being involved malevolently in the porn-gangs grooming and stalking business were more than sound.
+- The question remains if she has any choice in the matter.
+
 ### New Year's Eve
 
 - I decided to try to use the Linux laptop again which the [technician](../2024/april.md#dpr-cyber-expert-alicante) reset to factory settings.
