@@ -138,7 +138,7 @@ function googleTranslateElementInit() {
 
 - There is no doubt in my mind that what I have experienced at the hands of teachers and staff at the conservatory of Dénia, their friends and family, could give a person a nervous breakdown or drive them to suicide.
 - Perhaps the intention was murder all along. It certainly seems so from my point of view.
-- I suggest investigators check all local suicide stats and untimely deaths of anyone, particular young people, who have a history of complaining about being terrorized or harassed in any way.
+- I suggest investigators check all local suicide stats and untimely deaths of anyone, particularly young people, and anyone who has a history of complaining about being terrorized or harassed in any way.
 - I would also double check any women that may have been accused of being "hysterical" or similar when making gang stalking claims against public institutions such as schools or colleges, particularly public musical clubs and activities in Spain.
 - I suggest that gang stalkers are prosecuted for attempted murder.
 - I suggest that anyone found involved in poisoning or drugging is prosecuted for attempted murder.
@@ -147,7 +147,7 @@ function googleTranslateElementInit() {
 - I suggest that, where possible, the bodies of any suspicious deaths in the region are exhumed and analyzed for poisons, pesticides, and narcotics.
 - I suggest that, all previous residents in my flat or any flat managed by anyone related to these matters, is checked up on, and the owners questioned.
 - And a first point of call should be Lorraine Blackbourn's family, and anyone that knew her, and to have a look at any police complaints she may have made prior to her untimely death by suicide.
-- Furthermore, if I was an investigator, I'd make sure to check every single student that Domingo the piano teacher has taught over the years to see how many of them ended up in porn or prostitution, had an early death, and/or were exploited financially in some way.
+- Furthermore, if I was an investigator, I'd make sure to check every single student that Domingo Cano Lopez the piano teacher has taught over the years to see how many of them ended up in porn or prostitution, had an early death, and/or were exploited financially in some way.
 
 ## Pedro sends a Christmas greeting
 
