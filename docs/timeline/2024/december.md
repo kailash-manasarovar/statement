@@ -144,7 +144,7 @@ function googleTranslateElementInit() {
 - There is no doubt in my mind that what I have experienced at the hands of teachers and staff at the conservatory of Dénia, their friends and family, could give a person a nervous breakdown or drive them to suicide.
 - Perhaps the intention was murder all along. It certainly seems so from my point of view.
 - I suggest investigators check all local suicide stats and untimely deaths of anyone, particularly young people, and anyone who has a history of complaining about being terrorized or harassed in any way.
-- I would also double check any women that may have been accused of being "hysterical" or similar when making gang stalking claims against Spanish public institutions such as schools or colleges, particularly public musical clubs and children's activity centres in Spain.
+- I would also double check any women that may have been accused of being "hysterical" or similar when making gang stalking claims against Spanish public institutions such as schools or colleges, and particularly public music and dance clubs and children’s activity centres.
 - I suggest that gang stalkers are prosecuted for attempted murder.
 - I suggest that anyone found involved in poisoning or drugging is prosecuted for attempted murder.
 - I suggest that anyone found involved in sexual grooming is prosecuted for sexual abuse and/or rape.
