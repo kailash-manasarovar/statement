@@ -222,7 +222,6 @@ This police statement details the following:
 - To supply the demand, the criminals moved into schools; indeed anywhere that women, children, the vulnerable, and babies are available for grooming, drugging, sedating, and filming.
 - The fact that no-one cares about these very obvious mass-crimes against the innocent is nearly inconceivable to me.
 - My understanding is that the people of Dénia became so insane, they even broadcast sedated-rape events on the local TV channel, [Dénia TV](timeline/2001-to-2010/2008.md#denia-tv), and have been since at least 2007, and this is why everyone knows who the victims are.
-- We lost count years ago on the true scale of it.
 - My guess is there are thousands of victims, many murdered for *snuff* porn.
 - This statement publishes the photos of a small portion of these women.
 - And working alongside the horror-porn-enterprise, you have people like Hazel and Sandra Smith, known British serial killers, operating freely amongst hundreds of their default target-types: British ex-pat pensioners with money and property.
@@ -232,8 +231,8 @@ This police statement details the following:
 - They literally enjoy it!
 - A similarly worrying trend is the evidence suggesting that online manipulation techniques, coupled with clandestine drugging, can persuade women to marry if they're rich, and/or get pregnant quickly for more *product* supply.
 - I believe that the hundreds-of-thousands of Category A child-and-baby rape-porn we hear about on the news every week in the UK is produced in Dénia by the same gangs that so easily infiltrated the government school system. 
-- They just stomped straight into public classrooms; and all the teachers, staff, and government administrators tipped their hats as they did.
-- And let's never forget the long-established teachers and staff already working for the porn-gangs.
+- They just stomped straight into public classrooms; and all the teachers, staff, and government administrators tipped their hats.
+- And let's never forget the long-established teachers and staff already on the porn-gang payroll.
 - The criminals know very well how valuable their product is to Western porn-addicts, and how international judicial systems will do nothing to stop them.
 - And of course everyone knows what happens to *very unwise* people who have unlimited power over others: the power of life and death by clandestine poisoning, the power of being able to manipulate a person into doing anything at all -> into experiencing strong emotions that include believing they're in a reciprocal love affair, to suicidal and homicidal feelings, or believing they are sufficiently sick to justify life-threatening surgery, or that they were born in the wrong body and should therefore chop bits off the perfect one they have, the power of knowing what a person is doing and where they are 24-hours a day, the power of listening to all their conversations, reading all their correspondence...
 - This is a self-destructing and totally insane one-way street to more and more excessive and appalling criminal psychoses acted out.
@@ -258,10 +257,12 @@ This police statement details the following:
 - Will they be killed or maimed if they disagree, countless examples of that available to all?
 - Will their children be targeted?
 - How many have refused to do porn, or tried to stop some evil, and ended up crippled by pesticides or murdered?
-- My view is a criminal porn-enterprise with such expertise in sedating and spy-cam tech - a gang, I was reliably told by my online friend the repentant trumpet teacher, who will kidnap your children if you disagree with them - is behind the Madeline McCann kidnap.
+- My view is a criminal porn-enterprise with such expertise in sedating and spy-cam tech - a gang, I was reliably told by my online friend - the repentant trumpet teacher who I have forgiven - that will kidnap your children if you go against them - is behind the Madeline McCann kidnap.
 - Tweets like this one made me wonder if they kept her alive as a bargaining chip.
 
 ![Procrastination is the ultimate killer](content/images/procrastination-is-the-ultimate-killer.png)
+
+- Is this why no-one has been able to stop them?
 
 ### Motive summary
 
