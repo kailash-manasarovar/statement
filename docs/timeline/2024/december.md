@@ -136,6 +136,11 @@ function googleTranslateElementInit() {
 
 ## Sunday 8th December 2024
 
+!!! tip "These are my original thoughts"
+    - This section is what I was thinking about it all back on the 8th December 2024.
+    - The wider picture was unclear to me at that time, but I knew enough to know that something very evil had taken over the town of Dénia.
+    - With just a few corrections, this is exactly what I drafted on that day, and all of it still stands.
+
 - There is no doubt in my mind that what I have experienced at the hands of teachers and staff at the conservatory of Dénia, their friends and family, could give a person a nervous breakdown or drive them to suicide.
 - Perhaps the intention was murder all along. It certainly seems so from my point of view.
 - I suggest investigators check all local suicide stats and untimely deaths of anyone, particularly young people, and anyone who has a history of complaining about being terrorized or harassed in any way.
