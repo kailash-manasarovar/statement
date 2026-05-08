@@ -249,14 +249,16 @@ This police statement details the following:
 
 - I believe Lorraine Blackbourn stumbled across something they were doing that she was unable to accept (and you could take your pick here but I believe it was probably that the whole town was sedating and raping her friends - maybe even her too).
 - I believe she tried to get help, like I did, and was totally ignored, like I was.
-- I believe this tipped her over the edge and she was unable to withstand the suicide suggestions which I can tell you from experience are extremely powerful, but fake.
-- From here, *what wouldn't they do?* is the better question.
-- Are there any good people in Dénia? 
-- If there are, are they prisoners in their own homes or forced to get involved against their will?
-- Will they be killed or maimed if they disagree?
+- I believe this tipped her over the edge and she was unable to withstand the suicide suggestions which I can tell you from experience are extremely powerful, albeit fake.
+- I recall a British woman telling me she'd refused to do porn with her much-younger-Spanish-boyfriend and he'd become enraged.
+- When I saw her again, fifteen years later, she was crippled and my guess is regular pesticide-dousing of clothes and belongings.
+- I remember seeing crippled locals; a man working in a tobacconist I had known previously as fit and healthy.
+- How many good people in Dénia are there? 
+- Are they prisoners in their own homes or forced to get involved against their will?
+- Will they be killed or maimed if they disagree, countless examples of that available to all?
 - Will their children be targeted?
 - How many have refused to do porn, or tried to stop some evil, and ended up crippled by pesticides or murdered?
-- My view is a criminal porn-enterprise with such expertise in sedating and spy-cam tech - a gang, I was reliably told, who will kidnap your children if you disagree with them - is behind the Madeline McCann kidnap.
+- My view is a criminal porn-enterprise with such expertise in sedating and spy-cam tech - a gang, I was reliably told by my online friend the repentant trumpet teacher, who will kidnap your children if you disagree with them - is behind the Madeline McCann kidnap.
 - Tweets like this one made me wonder if they kept her alive as a bargaining chip.
 
 ![Procrastination is the ultimate killer](content/images/procrastination-is-the-ultimate-killer.png)
