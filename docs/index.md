@@ -246,19 +246,21 @@ This police statement details the following:
 
 ### What happens when you try to stop it
 
-- I believe Lorraine Blackbourn stumbled across something they were doing that she was unable to accept (and you could take your pick here but I believe it was probably that the whole town was sedating and raping her friends - maybe even her too).
-- I believe she tried to get help, like I did, and was totally ignored, like I was.
-- I believe this tipped her over the edge and she was unable to withstand the suicide suggestions which I can tell you from experience are extremely powerful, albeit fake.
-- I recall a British woman telling me she'd refused to do porn with her much-younger-Spanish-boyfriend and he'd become enraged.
-- When I saw her again, fifteen years later, she was crippled and my guess is regular pesticide-dousing of clothes and belongings.
-- I remember seeing crippled locals; a man working in a tobacconist I had known previously as fit and healthy.
-- How many good people in Dénia are there? 
+- I believe Lorraine Blackbourn stumbled across something the gangs were doing that she literally couldn't live with (and you could take your pick here but I believe it was probably that the whole town was sedating and raping her friends - maybe even her too, for added suicidal depression).
+- I believe she tried to get help, like I did, and was totally ignored, like I was/am.
+- I believe this tipped her over the edge and she was unable to withstand the suicide suggestions which I can tell you from first-hand experience are extremely powerful, albeit fake.
+- I also recall [a British woman telling me she'd refused to do porn](timeline/early-years/2013.md#the-british-woman-who-refused-to-do-porn) with her *much-younger-Spanish-boyfriend* and he'd become enraged.
+- When I saw her again, fifteen years later, she was crippled and my guess is due to regular pesticide-dousing of clothes and belongings, like they do.
+- I remember seeing crippled locals; a youngish man working in a tobacconist, someone I had known previously as fit and healthy.
+- Are there any good people left in Dénia? 
 - Are they prisoners in their own homes or forced to get involved against their will?
-- Will they be killed or maimed if they disagree, countless examples of that available to all?
-- Will their children be targeted?
-- How many have refused to do porn, or tried to stop some evil, and ended up crippled by pesticides or murdered?
-- My view is a criminal porn-enterprise with such expertise in sedating and spy-cam tech - a gang, I was reliably told by my online friend - the repentant trumpet teacher who I have forgiven - that will kidnap your children if you go against them - is behind the Madeline McCann kidnap.
-- Tweets like this one made me wonder if they kept her alive as a bargaining chip.
+- Will they be killed or maimed if they disagree, countless examples available?
+- How many women and girls have refused to do porn, or tried to stop some evil, and ended up crippled by pesticides or murdered?
+- Are people's children threatened?
+- My online helper, the repentant trumpet teacher who I have forgiven, told me repeatedly that the gang will kidnap your children if you go against them.
+- It seems likely that a criminal porn-enterprise with expertise in sedating and spy-cam tech, with members all over Europe and the UK, would be behind the Madeline McCann kidnap.
+- Did they target Madeline to teach someone a lesson, like they do?
+- Tweets like this one made me wonder if they have kept her alive as a bargaining chip.
 
 ![Procrastination is the ultimate killer](content/images/procrastination-is-the-ultimate-killer.png)
 
