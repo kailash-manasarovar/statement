@@ -38,6 +38,7 @@ function googleTranslateElementInit() {
 - The bold rapists and pedophiles, terrified about being found out... well, everyone knows already and nobody seems to care.
 - Or, are they terrified their own wives and mothers will find out? That might be it.
 - It's difficult to assess total insanity objectively.
+- Oh, is he *the* Paco Sendra?
 
 ## Kailash
 
