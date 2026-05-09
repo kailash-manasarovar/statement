@@ -32,6 +32,7 @@ function googleTranslateElementInit() {
 - The man has that squirrel look but he's fairer and fatter-faced. 
 - Are they up from Dénia to finish me off?
 - My guess is they're not the only ones who want rid of me.
+- Funny how that repeats.
 
 ## Kailash
 
