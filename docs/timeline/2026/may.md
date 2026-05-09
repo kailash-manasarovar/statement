@@ -21,14 +21,16 @@ function googleTranslateElementInit() {
 ## Dénia team in France
 
 - Just like with [Ugly](../2024/august.md#ugly) popping up on my X feed all those years ago, then popping up in real life in Cauterets a few days later, a similar thing has happened yet again.
-- The `JackChardwood` Facebook account I have left, since the big one I was using was shut down not so long ago, remains infested with criminal gang hackers.
+- The `JackChardwood` Facebook account I have left - since the big one I was using was shut down by the pedo-protectors not so long ago - remains infested with criminal-gang hacks.
+- You can tell because all the stories have horror pictures in them, and they seem to be using fake groups - particularly those related to Anne Frank - to discuss who they're going to drop in it, just like they did with Ugly, when the time comes.
+- Anyway.
 - A couple of weeks ago, an account popped up with a friend request with a man's photo on it.
-- It was a repeat too, i.e. I had seen the man on Facebook in another setting not long before.
-- I have never consciously seen this man's face before and do not recognize him.
-- I made a note of this on the account photo.
-- Yesterday, driving through Souloum on my way back home from shopping, the man was standing facing me at the area where there's usually a chip van.
+- It was a repeat too, i.e. I had seen the man's face on Facebook in another context not long before.
+- I have never consciously seen this man's face before and I do not recognize him.
+- I made a note of this on the account photo, also mentioning that he somehow reminded me of the gardener at Cami Llavador, someone Lorraine knew very well (had gone to school with I believe).
+- Yesterday, driving through Soulom on my way back home from shopping, the man was standing facing me at the area where there's usually a chip van.
 - He was with a group of people.
-- Yesterday evening, another couple of odd men are pointed out to me out-of-context on Facebook.
+- Yesterday evening, another couple of odd men I sort of maybe recognize are pointed out to me out-of-context on an Anne Frank Facebook group.
 - The man has [that squirrel look](../early-years/2013.md#daniel) but he's fairer and fatter-faced. 
 - Are they up from Dénia to finish me off?
 - My guess is they're not the only ones who want rid of me.
