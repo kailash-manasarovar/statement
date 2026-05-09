@@ -18,6 +18,21 @@ function googleTranslateElementInit() {
 
 - I love this!
 
+## Dénia team in France
+
+- Just like with [Ugly](../2024/august.md#ugly) popping up on my X feed all those years ago, then popping up in real life in Cauterets a few days later, a similar thing has happened yet again.
+- The `JackChardwood` Facebook account I have left, since the big one I was using was shut down not so long ago, remains infested with criminal gang hackers.
+- A couple of weeks ago, an account popped up with a friend request with a man's photo on it.
+- It was a repeat too, i.e. I had seen the man on Facebook in another setting not long before.
+- I have never consciously seen this man's face before and do not recognize him.
+- I made a note of this on the account photo.
+- Yesterday, driving through Souloum on my way back home from shopping, the man was standing facing me at the area where there's usually a chip van.
+- He was with a group of people.
+- Yesterday evening, another couple of odd men are pointed out to me out-of-context on Facebook.
+- The man has that squirrel look but he's fairer and fatter-faced. 
+- Are they up from Dénia to finish me off?
+- My guess is they're not the only ones who want rid of me.
+
 ## Kailash
 
 - I'm returning to Kailash after eleven years, God Willing.
@@ -29,3 +44,6 @@ function googleTranslateElementInit() {
 - I guess it's New Instructions time, if not a beam-me-up...
 
 ![Kailash](../../content/images/kailash.jpg){width=100%}
+
+- Unless someone *gets* me before hand, I guess. 
+- Then we'll be here in the swamp another trillion years.
