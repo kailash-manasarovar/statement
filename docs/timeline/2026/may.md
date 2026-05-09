@@ -29,10 +29,13 @@ function googleTranslateElementInit() {
 - Yesterday, driving through Souloum on my way back home from shopping, the man was standing facing me at the area where there's usually a chip van.
 - He was with a group of people.
 - Yesterday evening, another couple of odd men are pointed out to me out-of-context on Facebook.
-- The man has that squirrel look but he's fairer and fatter-faced. 
+- The man has [that squirrel look](../early-years/2013.md#daniel) but he's fairer and fatter-faced. 
 - Are they up from Dénia to finish me off?
 - My guess is they're not the only ones who want rid of me.
 - Funny how that repeats.
+- The bold rapists and pedophiles, terrified about being found out... well, everyone knows already and nobody seems to care.
+- Or, are they terrified their own wives and mothers will find out? That might be it.
+- It's difficult to assess total insanity objectively.
 
 ## Kailash
 
