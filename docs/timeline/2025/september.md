@@ -18,15 +18,16 @@
 - He does something even more despicable too. He pulls back his foreskin and it appears he even has an erection while he's pissing up the wall of the Red Lion.
 - I'm really embarrassed.
 - I stand aside and sort of put my head in my hand.
+- While he's doing this, a fast, red expensive car speeds up to us noisily, engine growling and screeching.
+- It stops, the driver and passenger look at us for a few moments, then it reverses away and drives off.
 
 !!! tip "Thoughts on this"
     - He's saying "up yours" to the pornographers, for events he hasn't understood very well.
     - It's disgusting, I don't think I've ever been so disgusted with someone.
     - A level down, even though in some way he's happy I'm alive, the constant remains: his daughter is not human nor deserves basic human rights.
     - Repentance - his statement - is the only thing that can save him.
-
-- While he's doing this, a fast, red expensive car speeds up to us noisily, engine growling and screeching.
-- It stops, the driver and passenger look at us for a few moments, then it reverses away and drives off.
+    - I hope they got the whole thing on film, please God.
+    
 - While we're in the carvery, I see men peering in the window to look at us.
 - Our presence is clearly antagonizing.
 - I tell dad we have to stop coming here, I don't want to antagonize anyone.
