@@ -256,9 +256,10 @@ This police statement details the following:
 - Are they prisoners in their own homes or forced to get involved against their will?
 - Will they be killed or maimed if they complain, countless examples available?
 - How many have refused to do porn, or tried to stop some evil, and ended up crippled by pesticides or murdered?
+- Staying alive and well is always a strong motive.
 - Are people's children threatened?
 - My online helper - [the repentant trumpet teacher who I have forgiven](#a-friend-on-the-inside) - told me repeatedly that the gang will kidnap your kids if you go against them.
-- It seems likely that a criminal porn-enterprise with expertise in sedating, surveillance, and spy-cam tech, with members all over Europe and the UK including Portugal, would be behind the Madeline McCann kidnap.
+- It seems likely that a criminal porn-enterprise with expertise in sedating, surveillance, and spy-cam tech, with members all over Europe and the UK, including Portugal, would be behind the Madeline McCann kidnap.
 - Did they target Madeline to teach someone a lesson, like they do?
 - Tweets like this one made me wonder if they kept her alive as a bargaining chip.
 
