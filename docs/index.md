@@ -252,10 +252,10 @@ This police statement details the following:
 - I recall [a British woman telling me she'd refused to do porn](timeline/early-years/2013.md#the-british-woman-who-refused-to-do-porn) with her *much-younger-Spanish-boyfriend* and that he'd become enraged.
 - When I saw her again, fifteen years later, she was crippled; my guess is due to regular pesticide-dousing of clothes and belongings, like they do.
 - I remember seeing crippled locals; a youngish man working in a tobacconist, someone I had known not so long before as fit and healthy.
-- Are there any good people in Dénia? 
+- Is this what happens to the good people of Dénia? 
 - Are they prisoners in their own homes or forced to get involved against their will?
 - Will they be killed or maimed if they complain, countless examples available?
-- How many women and children have refused to do porn, or tried to stop some evil, and ended up crippled by pesticides or murdered?
+- How many have refused to do porn, or tried to stop some evil, and ended up crippled by pesticides or murdered?
 - Are people's children threatened?
 - My online helper - [the repentant trumpet teacher who I have forgiven](#a-friend-on-the-inside) - told me repeatedly that the gang will kidnap your kids if you go against them.
 - It seems likely that a criminal porn-enterprise with expertise in sedating, surveillance, and spy-cam tech, with members all over Europe and the UK including Portugal, would be behind the Madeline McCann kidnap.
