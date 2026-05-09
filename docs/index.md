@@ -269,7 +269,7 @@ This police statement details the following:
 
 ### Motive summary
 
-- So, to summarize, the petty crook, honey-trap spy-cam porn operations of the 80s evolved in parallel with Internet technology and the horror-porn town of Dénia, Alicante, SPAIN - unimaginable outside of fiction - emerged as a mundane reality.
+- So, to summarize: the petty crook, honey-trap spy-cam porn operations of the 80s evolved in parallel with Internet technology and the horror-porn town of Dénia, Alicante, SPAIN - unimaginable outside of fiction - emerged as a mundane reality.
 - We should not be surprised either; it was inevitable.
 - The motive is, as [Paqui Fornet Pastor](crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor) told me one evening at piano class in March 2024, *it's what they do*, and no-one's been able to do a thing to stop it.
 
