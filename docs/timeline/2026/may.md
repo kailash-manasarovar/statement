@@ -53,3 +53,5 @@ function googleTranslateElementInit() {
 
 - Unless someone *gets* me before hand, I guess. 
 - Then we'll be here in the swamp another trillion years.
+- Although, I'm gonna ask for special dispensation to not come back again. Perhaps I earned it this time.
+- I do feel like I could do a whole lot more good stuff, but hey.
