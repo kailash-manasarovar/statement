@@ -292,7 +292,7 @@ This police statement details the following:
 
 ![Katharine Murphy plays the piano at the boat club in Dénia in 2015](content/images/katharine-pianist.jpg){width=70%}
 
-- Having a background in music, piano, and a Bachelor of Arts in Performing Arts, I had enormous respect for the teachers and staff at the conservatory of Dénia.
+- Having a background in music, piano, and a Bachelor of Arts in Performing Arts, I had huge respect for the teachers and staff at the conservatory of Dénia.
 - The standard of teaching was second-to-none and studying the piano with them was, I believed, an enormous privilege. 
 - Dénia was my safe place; a special, magical place where I felt at home.
 
