@@ -279,36 +279,32 @@ This police statement details the following:
 
 ## Why was I in Dénia?
 
-I love Dénia. 
-
-I had many friends there and I sang in the Orfeó de Dénia choir, led by Klara Sarkadi, for years. It was while singing with Klara Sarkadi's choir that I met people who helped me enter the [conservatory of Dénia](https://portal.edu.gva.es/conservatoriDenia/) to study the piano.
-
-Studying the piano at the conservatory was an enormous privilege. 
-
-![Dénia](content/images/denia.avif)
-
-It is a special, magical place. 
-
-I always felt Dénia was my safe place. I had no idea that I had been targeted by criminals and porn gangs in Dénia. for decades I had no idea of the ugly underbelly of this place, and the culture, and how women and children are particularly unsafe, even at public learning establishments.
-
-In fact, I just wanted to play the piano and the standard of music teaching was second-to-none. 
+- I love Dénia. 
+- I thought I had many friends there.
+- I had no idea that - apart from my first visit in 1997 - I'd been lured there with online manipulation as a prime target for horror-porn specials that require careful poisoning over many years to administer stroke-like, brain-damage symptoms.
+- I sang in the Orfeó de Dénia choir, led by Klara Sarkadi, for many years.
+- It was while singing with Klara Sarkadi's choir that I met the characters who made sure I applied to the [conservatory of Dénia](https://portal.edu.gva.es/conservatoriDenia/) to study the piano.
+- "Find out what she wants", is their subtle and not-so subtle honey-trap game, and they supplied.
 
 ![All I wanted was to play the piano](content/tweets/all-i-wanted.png){width=75%}
 
-This photo is of me playing the piano as a piano student of the conservatory of Dénia in 2015.
+- Here I am playing the piano at the yacht club as a student of the conservatory of Dénia in the winter of 2015 while suffering with increasing depression and anxiety as multiple local men were entering my spy-cam networked apartment to rape me after I'd gone to bed and they'd rendered me unconscious with sedating gas.
 
 ![Katharine Murphy plays the piano at the boat club in Dénia in 2015](content/images/katharine-pianist.jpg){width=70%}
 
-I still can't believe that everyone in the town is evil. I wonder if the battered women, like Paqui Fornet and others, felt unable to resist their husbands' maddening porn-addictions. I wonder if many others just went quietly mad too, knowing there was nothing they could do. I wonder if the majority prayed constantly and fervently to God, asking for His intercession. I'd hope it was a majority, I suspect it wasn't, but regardless, God answers every prayer. I hope this police statement does somewhat to answer at least some of those prayers.
+- Having a background in music, piano and a Bachelor of Arts in Performing Arts, I had enormous respect for the teachers and staff at the conservatory of Dénia.
+- The standard of teaching was second-to-none and studying the piano there was, I believed, an enormous privilege. 
+- I always felt Dénia was my safe place; a special, magical place where I felt at home.
 
-## My personal suffering
+![Dénia](content/images/denia.avif)
 
-- See [Health](personal/health.md) for more information on health problems arising from 3 years of poisoning and drugging in Dénia.
-- See [Expenses](personal/expenses.md) for more information on the financial cost to myself of enduring 3 years of gang stalking and mass gender violence by the people of Dénia, including lost work due to extreme stress and non-consensual drugging rendering me incapable of making good decisions.
+- I had no notion of the ugly underbelly of this place; about how women and children are unsafe even at school.
+- It was inconceivable to me that the professional, well-educated, friendly, apparently normal Spanish people I interacted with on a daily basis were happily sacrificing women and children and babies to their never-satiated gods of porn.
+- Is it possible God had another reason for me to be there, a good one?
 
-## Report layout
+## Statement structure
 
-The report is set out into different sections.
+This police statement is set out into different sections.
 
 1. Timeline of significant events.
 2. Description of the crimes and protagonists.
