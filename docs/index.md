@@ -306,24 +306,31 @@ This police statement details the following:
 
 This police statement is set out into different sections.
 
-1. Timeline of significant events.
-2. Description of the crimes and protagonists.
-3. Evidence including screenshots to prove hacking and cyber-stalking -> this section might mostly end up in section 1.
-4. A summary of my personal suffering, including physical and psycho-emotional trauma, and also the financial and professional costs I have suffered due to these horrible experiences.
-5. A concluding remark.
-6. Updates and images for the report coming out in novel form in the very near future.
+1. Timeline of significant events:
+    1. The largest section and in continuous evolution (all other sections at the time of writing are in a draft editorial state).
+    1. There are probably about three separate books/Netflix-specials in here:
+        1. The sedated-sex-slave, conservatory switcheroo-porn terror; between 2022-2024.
+        1. Our heroine struggles to save her own life; from 2024-ongoing.
+        1. Background and history of significant and relevant events from our heroine's life; from 1980-2021, and this section could be split further:
+            1. Childhood signs and symbols.
+            1. Growing up and silencing: rape-gangs of North London and the effects of sedated sexual assault.
+            1. A woman's career in tech and what happens when her colleagues find out she starred in sedated child-rape porn.
+1. Description of the crimes and protagonists.
+1. Evidence -> at a very draft stage and in continuous development.
+    1. My belief is that most of the evidence/proof will come from corroboration when people realize it's safe to speak.
+    1. At this point, the mass of porn-evidence will likely emerge.
+1. This section is an early attempt to catalogue the costs to my health and finances but I'm beginning to realize the futility of this because:
+    1. Apart from some brain-damage symptoms I'm not sure I care about (they do wonders for my meditations) and the long-term detox symptoms from pesticide/brake fluid poisoning which look to be finally disappearing, I'm well.
+    1. Continuous drugging with hallucinogens for years has also had no discernable bad effects on me (perhaps I shouldn't say this).
+    1. The costs to me financially are incalculable and my attempts at itemizing them don't even capture 1% of them.
+1. A concluding remark in editorial which I dream about updating as soon as the babies and children are safe.
+1. A section I use to store pics.
 
-## Book cover
+## Contact the author
+
+- Contact me for any further information you may require on the-chief-of-police@fearandloathinginlasmarinas.com.
+- Agent and publisher details coming soon.
 
 ![book cover option](content/images/the-novel/cover-3.webp)
 
-!!! tip
-    - Contact me for any further information you may require on query@fearandloathinginlasmarinas.com.
-    - This may include copies of any correspondence, emails, call logs, WhatsApp message, poison/drug samples for testing, etc.
-    - Agent and publisher details coming soon.
-
-## The Ark Project Trilogy
-
-- This is the third and final part of The Ark Project Trilogy, I believe.
-- Actually no, these are the practical sessions.
-- The third part is Grunt Work. Perhaps this is Grunt Work, tho, in fact.
+- We can talk about the *Ark Project Trilogy* another time but this is probably Part 3, a true crime extravaganza. Part 1 was a foundational romance: Life Without The Liar. Part 2 was a prophetic horror: AntiChrist.
