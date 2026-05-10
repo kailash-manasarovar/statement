@@ -282,24 +282,24 @@ This police statement details the following:
 - I love Dénia. 
 - I thought I had many friends there.
 - I had no idea that - apart from my first visit in 1997 - I'd been lured there with online manipulation as a prime target for horror-porn specials that require careful poisoning over many years to administer stroke-like, brain-damage symptoms.
-- I sang in the Orfeó de Dénia choir, led by Klara Sarkadi, for many years.
-- It was while singing with Klara Sarkadi's choir that I met the characters who made sure I applied to the [conservatory of Dénia](https://portal.edu.gva.es/conservatoriDenia/) to study the piano.
+- I sang in the Orfeó de Dénia choir, led by Klara Sarkadi.
+- It was while singing with Klara's choir that I met the characters who made sure I applied to the [conservatory of Dénia](https://portal.edu.gva.es/conservatoriDenia/) to study the piano.
 - "Find out what she wants", is their subtle and not-so subtle honey-trap game, and they supplied.
 
 ![All I wanted was to play the piano](content/tweets/all-i-wanted.png){width=75%}
 
-- Here I am playing the piano at the yacht club as a student of the conservatory of Dénia in the winter of 2015 while suffering with increasing depression and anxiety as multiple local men were entering my spy-cam networked apartment to rape me after I'd gone to bed and they'd rendered me unconscious with sedating gas.
+- Here I am playing the piano at the yacht club as a student of the conservatory of Dénia in the winter of 2015 while suffering with increasing depression and anxiety as multiple local men were entering my spy-cam networked apartment to rape me after I'd gone to bed and been rendered unconscious with sedating gas.
 
 ![Katharine Murphy plays the piano at the boat club in Dénia in 2015](content/images/katharine-pianist.jpg){width=70%}
 
 - Having a background in music, piano, and a Bachelor of Arts in Performing Arts, I had enormous respect for the teachers and staff at the conservatory of Dénia.
 - The standard of teaching was second-to-none and studying the piano with them was, I believed, an enormous privilege. 
-- I always felt Dénia was my safe place; a special, magical place where I felt at home.
+- Dénia was my safe place; a special, magical place where I felt at home.
 
 ![Dénia](content/images/denia.avif)
 
-- I had no notion of the ugly underbelly of this place; about how women and children are unsafe even at government learning establishments.
-- It was inconceivable to me that the professional, well-educated, friendly, apparently normal Spanish people I interacted with on a daily basis were happily sacrificing women and children and babies to their never-satiated gods of porn.
+- I had no notion of the ugly underbelly of this place; about how unsafe women and children are, even at government learning establishments.
+- It was inconceivable to me that the professional, well-educated, well-spoken, friendly, apparently normal Spanish people I interacted with on a daily basis were happily sacrificing women and children and babies to their never-satiated gods of porn.
 - Is it possible God had another reason for me to be there, a good one?
 
 ## Statement structure
