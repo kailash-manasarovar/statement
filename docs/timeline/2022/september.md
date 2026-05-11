@@ -168,6 +168,14 @@ function googleTranslateElementInit() {
     - It's obvious Domingo is instructing Lucía to bully Concha. Why is anyone's guess.
     - Is it because Concha is the go-to person for any students experiencing sexual or grooming abuses from teachers, as she will reveal to me when I reach out to her in July 2023?
 
+#### Concha's friend
+
+- Concha is friendly with a male teacher; fair skin, grey and balding, I'm not sure what his instrument was.
+- He pops his nose in from time to time, and they're obviously good friends.
+- I start to see him regularly on my walk into the conservatory from my home, or back, outside Mercadona round the corner from my house.
+- Sometimes he is just sitting on the kerb.
+- It's weird.
+
 ### Chamber music
 
 - This class is where I accompany a soloist.
