@@ -251,11 +251,13 @@ This police statement details the following:
 - I believe this tipped her over the edge and she was unable to withstand the online suicide suggestions which I can tell you from first-hand experience are extremely powerful, albeit fake.
 - I recall [a British woman telling me she'd refused to do porn](timeline/early-years/2013.md#the-british-woman-who-refused-to-do-porn) with her *much-younger-Spanish-boyfriend* and that he'd become enraged.
 - When I saw her again, fifteen years later, she was crippled; my guess is due to regular pesticide-dousing of clothes and belongings, like they do.
+- Then there was unusually irascible Maria, living alone, her liver swollen to three times its size; all her doctors and even the hospital in Valencia telling her it was nothing!
 - I remember seeing crippled locals; a youngish man working in a tobacconist, someone I had known not so long before as fit and healthy.
 - Is this what happens to the good people of Dénia? 
 - Are they prisoners in their own homes or forced to get involved against their will?
 - Will they be killed or maimed if they complain, countless examples available?
 - How many have refused to do porn, or tried to stop some evil, and ended up crippled by pesticides or murdered?
+- Are all victims of horror-porn, even the unwitting ones, summarily maimed or killed?
 - Staying alive and well is always a strong motive.
 - Are people's children threatened?
 - My online helper - [the repentant trumpet teacher who I have forgiven](#a-friend-on-the-inside) - told me repeatedly that the gang will kidnap your kids if you go against them.
@@ -314,7 +316,7 @@ This police statement is set out into different sections.
         1. Background and history of significant and relevant events from our heroine's life; from 1980-2021, and this section could be split further:
             1. Childhood signs and symbols.
             1. Growing up and silencing: rape-gangs of North London and the effects of sedated sexual assault.
-            1. A woman's career in tech and what happens when her colleagues find out she starred in sedated child-rape porn.
+            1. A woman's career in tech and what happens when her colleagues find out she starred in sedated child-rape porn (a horror-porn special all it's own).
 1. Description of the crimes and protagonists.
 1. Evidence -> at a very draft stage and in continuous development.
     1. My belief is that most of the evidence/proof will come from corroboration when people realize it's safe to speak.
