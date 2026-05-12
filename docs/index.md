@@ -308,25 +308,24 @@ This police statement details the following:
 
 This police statement is set out into different sections.
 
-1. Timeline of significant events:
-    1. The largest section and in continuous evolution (all other sections at the time of writing are in an earlier draft editorial state).
-    1. There are at least three separate books/Netflix-specials in here:
+1. **Timeline** of significant events:
+    1. The largest section and in continuous evolution (all other sections at the time of writing are in an early draft state).
+    1. There are at least three Netflix-seasons in here:
         1. The sedated-sex-slave, conservatory switcheroo-porn terror; between February 2022 and let's say until surviving poisoning once again in October 2024.
         1. Our heroine struggles to save her own life; from November 2024 to this day.
         1. Background and history of significant and related events from our heroine's life; from 1980-2021, and this section could be split further:
             1. Childhood signs and symbols.
             1. Growing up and silencing: rape-gangs of North London and the effects of sedated sexual assault on a victim and on the obsessive and secretive porn-addict community close to her.
             1. A woman's career in tech and what happens when colleagues and recruiters find out she starred in sedated child-rape porn (a horror-porn Netflix miniseries special all it's own).
-1. Description of the crimes and protagonists -> information still coming in on the major porn-gang players of Las Marinas and North London.
-1. Evidence -> at a very draft stage and in continuous development.
-    1. My belief is that most of the evidence/proof will come from the tidal-wave of corroboration when people realize it's safe to speak.
-    1. At this point, the mass of porn-evidence will likely emerge.
-1. The *Personal Experience* section is an early attempt to catalogue the costs to my health and finances but I'm beginning to realize the futility of this because:
-    1. Apart from some brain-damage symptoms I'm not sure I care about (they do wonders for my meditations) and the long-term detox symptoms from pesticide/brake fluid poisoning which look to be finally disappearing, I'm well.
-    1. Continuous drugging with hallucinogens for years has also had no discernable bad effects (perhaps I shouldn't say this).
-    1. The costs to me financially are incalculable and my attempts at itemizing them started in April 2024 when I still had no idea about the extent and reach of the evil and what was still to come.
-1. A concluding remark in editorial which I dream about updating as soon as the babies and children are safe.
-1. A section I use to store pics.
+1. **Crimes** and protagonists -> information still coming in on the major porn-gang players of Las Marinas and North London.
+1. **Evidence** -> at a very draft stage and in continuous development.
+    1. My belief is that bulk of the evidence/proof will come from the tidal-wave of corroboration when people realize it's safe to speak, after which the mass of porn-evidence will likely emerge.
+1. The **Personal experience** section is an early attempt to catalogue the costs to my health and finances but I'm beginning to realize the futility of this because:
+    1. Apart from some brain-damage symptoms I'm not sure I care about (they do wonders for my meditations) and the long-term detox symptoms from pesticide/brake-fluid poisoning which look to be finally disappearing, I'm well.
+    1. Continuous drugging with hallucinogens for years has also had no discernable bad effects (but is, of course, not recommended and I suspect I'm an unusual case).
+    1. The costs to me financially are incalculable and my attempts at itemizing them started in April 2024 when I still had no idea about the extent and reach of the evil, and what was still planned for me on the solid assurance - and past victim experiences - that I would be murdered.
+1. A **Conclusion** in editorial which I'm dreaming about updating as soon as the babies and children are safe.
+1. **The novel** is a section I use to store book cover designs.
 
 ## Contact the author
 
