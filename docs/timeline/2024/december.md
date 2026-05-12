@@ -156,7 +156,12 @@ function googleTranslateElementInit() {
 
 ## Pedro sends a Christmas greeting
 
-- Pedro the previous caretaker from Carrer Furs sends me [a Christmas video greeting on WhatsApp](../../content/whatsapps/WhatsApp%20Chat%20with%20PEDRO.zip).
+- Pedro, the previous caretaker from Carrer Furs, sends me [a Christmas video-greeting on WhatsApp](../../content/whatsapps/WhatsApp%20Chat%20with%20PEDRO.zip).
+
+![Pedro's Christmas message](../../content/images/pedros-christmas-message.jpg)
+
+- (Am I paranoid to be concerned about the walnut image?)
+- I take the opportunity to mention again to him that I'm offering substantial rewards for copies of any porn I'm in.
 
 ??? tip "Pedro's message"
     25/12/2024, 09:41 - Messages and calls are end-to-end encrypted. Only people in this chat can read, listen to, or share them. Learn more.
@@ -180,11 +185,6 @@ function googleTranslateElementInit() {
     02/03/2025, 06:39 - det sgt lydia cleaves: Is my flat the only one they put poison and drugs in the water ?? Or are there other flats too with women they are targeting??
     06/11/2025, 10:29 - det sgt lydia cleaves: https://fearandloathinginlasmarinas.com/
 
-- (Am I paranoid to be concerned about the walnut image?)
-
-![Pedro's Christmas message](../../content/images/pedros-christmas-message.jpg)
-
-- I take the opportunity to mention again to him that I'm offering substantial rewards for copies of any porn I'm in.
 - I ask him if he knows about any other women being poisoned and drugged in the apartment complex.
 - He does not reply.
 - It's not clear to me if hackers are deleting or scrambling my messages so that a recipient doesn't receive them.
