@@ -156,9 +156,38 @@ function googleTranslateElementInit() {
 
 ## Pedro sends a Christmas greeting
 
-- Pedro the caretaker from Carrer Furs sends a Christmas greeting.
-- I [message](../../content/whatsapps/WhatsApp%20Chat%20with%20PEDRO.zip) him asking him if he knows anything or if any other women in the building are being targeted.
+- Pedro the previous caretaker from Carrer Furs sends me [a Christmas video greeting on WhatsApp](../../content/whatsapps/WhatsApp%20Chat%20with%20PEDRO.zip).
+
+??? tip "Pedro's message"
+    25/12/2024, 09:41 - Messages and calls are end-to-end encrypted. Only people in this chat can read, listen to, or share them. Learn more.
+    25/12/2024, 09:41 - PEDRO is a contact
+    24/12/2024, 20:14 - PEDRO: VID-20241227-WA0000.mp4 (file attached)
+    25/12/2024, 11:37 - det sgt lydia cleaves: Hola Pedro
+    19/02/2025, 17:50 - det sgt lydia cleaves: https://statement-bhw.pages.dev/
+    19/02/2025, 17:52 - det sgt lydia cleaves: Recompensas aun en oferta
+    19/02/2025, 17:53 - det sgt lydia cleaves: Para grabaciones de mi qué Todo el mundo ha visto
+    19/02/2025, 17:59 - PEDRO: Hola Katerine soy Pedro el antiguo conserje de Villamar, espero que estés bien .
+    20/02/2025, 15:47 - det sgt lydia cleaves: Si bien aun buscando los videos de yo ... pagando hasta 1000 euros para Una copia .. gracias
+    20/02/2025, 15:48 - PEDRO: Como puedo ayudarte
+    20/02/2025, 16:44 - det sgt lydia cleaves: Enviame algunas videos qué todo el mundo ha visto para justificar atacandome y te Pago sin problema
+    20/02/2025, 16:44 - det sgt lydia cleaves: Busco dos tipos de video
+    20/02/2025, 16:45 - det sgt lydia cleaves: Original cuando yo era pequenya y Tipo spycam de denia
+    20/02/2025, 16:45 - det sgt lydia cleaves: Gracias
+    21/02/2025, 18:11 - det sgt lydia cleaves: Email me at info@forgivenet.co.uk with anything
+    21/02/2025, 18:13 - PEDRO: Que es esto Katerine
+    21/02/2025, 18:17 - det sgt lydia cleaves: Un email para mi
+    21/02/2025, 18:22 - PEDRO: Hoy estuve en Villamar visitando a una familia,acabo de llegar a casa
+    02/03/2025, 06:39 - det sgt lydia cleaves: Is my flat the only one they put poison and drugs in the water ?? Or are there other flats too with women they are targeting??
+    06/11/2025, 10:29 - det sgt lydia cleaves: https://fearandloathinginlasmarinas.com/
+
+- (Am I paranoid to be concerned about the walnut image?)
+
+![Pedro's Christmas message](../../content/images/pedros-christmas-message.jpg)
+
+- I take the opportunity to mention again to him that I'm offering substantial rewards for copies of any porn I'm in.
+- I ask him if he knows about any other women being poisoned and drugged in the apartment complex.
 - He does not reply.
+- It's not clear to me if hackers are deleting or scrambling my messages so that a recipient doesn't receive them.
 
 ## Sketching the novel
 
