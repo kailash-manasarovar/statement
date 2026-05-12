@@ -139,7 +139,7 @@ This police statement details the following:
 - I believe that [every daily event](timeline/2001-to-2010/2001.md) I detail in the timeline of this police statement was videoed and broadcast to a porn-addict and vile misogynist online community as a kind of "show" which explains the townsfolk's total insanity and has also made criminal gangs very rich.
 - This is, essentially, why I'm so famous.
 - I believe that millions of porn-addicts around the world were, and maybe still are, betting on the outcome for me; madness, suicide, murder, more sedated-rape, etc.
-- I was/am in a kind of Truman Show, except "Truman" is a targeted individual, usually a woman but not always, probably often child student of the conservatory, and us "Trumans" are expected to die by suicide or serious ill health from poisoning, or go quite mad from the relentless mental torture, or be outright murdered if we're made of tougher stuff, and none have never escaped. 
+- I was/am in a kind of Truman Show, except "Truman" is a targeted individual, usually a woman but not always, probably often a child student of the conservatory, and us "Trumans" are expected to die by suicide or serious ill health from poisoning, or go quite mad from the relentless mental torture, or be outright murdered if we're made of tougher stuff, and none have never escaped. 
 - Until now.
 
 ![Franz Kafka's machine](content/images/kafkas-machine.webp)
@@ -236,7 +236,7 @@ This police statement details the following:
 - The criminals know very well how valuable their product is to Western porn-addicts, and how international judicial systems will do nothing to stop them.
 - And of course everyone knows what happens to *very unwise* people who have unlimited power over others: the power of life and death by clandestine poisoning, the power of being able to manipulate a person into doing anything at all -> into experiencing strong emotions that include believing they're in a reciprocal love affair, to suicidal and homicidal feelings, or believing they are sufficiently sick to justify life-threatening surgery, or that they were born in the wrong body and should therefore chop bits off the perfect one they have, the power of knowing what a person is doing and where they are 24-hours a day, the power of listening to all their conversations, reading all their correspondence...
 - This is a self-destructing and totally insane one-way street to more and more excessive and appalling criminal psychoses acted out.
-- Do the criminals play games amongst themselves and the wider porn-addict community about who is going to kill themselves, who will undergo surgery, who would they like to see murdered, or running around naked in a field after a horse?
+- Do the criminals play games amongst themselves and the wider porn-addict community about who is going to kill themselves, who will undergo surgery, who would they like to see murdered or running around naked in a field after a horse?
 - It makes statements I heard from apparent "friends", such as ["Why does someone always have to die?"](timeline/2023/december.md#piano-concert) chilling to the bone.
 - Unsurprisingly, the suicide statistics in Dénia are off the scale. 
 - The Dénia Doomsday Manipulation-Machine started life as a methodology for tricking women by cowardly petty-crook misogynists, and was left to spiral into its current monstrous form simply because no-one considered porn-driven decades of serious sex crimes against women and children worth stopping.
@@ -261,7 +261,7 @@ This police statement details the following:
 - Staying alive and well is always a strong motive.
 - Are people's children threatened?
 - My online helper - [the repentant trumpet teacher who I have forgiven](#a-friend-on-the-inside) - told me repeatedly that the gang will kidnap your kids if you go against them.
-- It seems likely that a criminal porn-enterprise with expertise in sedating, surveillance, and spy-cam tech, with members all over Europe and the UK, including Portugal, would be behind the Madeline McCann kidnap.
+- It seems likely that a criminal porn-enterprise with expertise in sedating, surveillance, and spy-cam tech, with members all over Europe and the UK - including Portugal as I found out on my trip to Fatima in October 2024 - would be behind the Madeline McCann kidnap.
 - Did they target Madeline to teach someone a lesson, like they do?
 - Tweets like this one made me wonder if they kept her alive as a bargaining chip.
 
@@ -271,7 +271,7 @@ This police statement details the following:
 
 ### Motive summary
 
-- So, to summarize: the petty crook, honey-trap spy-cam porn operations of the 80s evolved in parallel with Internet technology and the horror-porn town of Dénia, Alicante, SPAIN - unimaginable outside of fiction - emerged as a mundane reality.
+- So, to summarize: the petty crook, honey-trap, spy-cam porn operations of the 80s evolved in parallel with Internet technology and the horror-porn town of Dénia, Alicante, Spain - unimaginable outside of fiction - emerged as a mundane reality.
 - We should not be surprised either; it was inevitable.
 - The motive is, as [Paqui Fornet Pastor](crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor) told me one evening at piano class in March 2024, *it's what they do*, and no-one's been able to do a thing to stop them.
 
@@ -323,7 +323,7 @@ This police statement is set out into different sections.
 1. The **Personal experience** section is an early attempt to catalogue the costs to my health and finances but I'm beginning to realize the futility of this because:
     1. Apart from some brain-damage symptoms I'm not sure I care about (they do wonders for my meditations) and the long-term detox symptoms from pesticide/brake-fluid poisoning which look to be finally disappearing, I'm well.
     1. Continuous drugging with hallucinogens for years has also had no discernable bad effects (but is, of course, not recommended and I suspect I'm an unusual case).
-    1. The costs to me financially are incalculable and my attempts at itemizing them started in April 2024 when I still had no idea about the extent and reach of the evil, and what was still planned for me on the solid assurance - and past victim experiences - that I would be murdered.
+    1. The costs to me financially, however, are incalculable and my attempts at itemizing them started in April 2024 when I still had no idea about the extent and reach of the evil, and what was still planned for me on the solid assurance - from multiple past-victim experiences - that I would be murdered and forgotten.
 1. A **Conclusion** in editorial which I'm dreaming about updating as soon as the babies and children are safe.
 1. **The novel** is a section I use to store book cover designs.
 
