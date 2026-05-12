@@ -185,9 +185,11 @@ function googleTranslateElementInit() {
     02/03/2025, 06:39 - det sgt lydia cleaves: Is my flat the only one they put poison and drugs in the water ?? Or are there other flats too with women they are targeting??
     06/11/2025, 10:29 - det sgt lydia cleaves: https://fearandloathinginlasmarinas.com/
 
+- He tells me he just got back from a visiting a family at the Carrer Furs apartment complex.
 - I ask him if he knows about any other women being poisoned and drugged in the apartment complex.
 - He does not reply.
-- It's not clear to me if hackers are deleting or scrambling my messages so that a recipient doesn't receive them.
+- It's not clear to me if hackers are deleting or scrambling my messages so that a recipient doesn't receive them correctly.
+- They were dropping poor Pedro in it, weren't they.
 
 ## Sketching the novel
 
