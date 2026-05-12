@@ -115,7 +115,7 @@ This police statement details the following:
 - This is how effective their manipulation tech is.
 - At some point, some bright spark amongst them must have realized that porn was just one of a million lucrative themes the manipulation tech could be used for.
 - Did they start experimenting at that time?
-- Eventually, the criminals of Dénia [sold their tech to the caliphate](timeline/2001-to-2010/2008.md#dubai) once they had demonstrated its power by tricking [Alessandra into undergoing an unnecessary bone-marrow transplant](timeline/2001-to-2010/2009.md#alessandra-gets-sick-or-does-she), and [Lorraine's daughter into believing she's a boy](timeline/early-years/2013.md#lorraines-trans-child), and no doubt many other successful mind-control tricks which will soon transpire.
+- Did the criminals of Dénia eventually [sell their manipulation-tech to the caliphate](timeline/2001-to-2010/2008.md#dubai) once they had demonstrated its power by tricking [Alessandra into undergoing an unnecessary bone-marrow transplant](timeline/2001-to-2010/2009.md#alessandra-gets-sick-or-does-she), and [Lorraine's daughter into believing she's a boy](timeline/early-years/2013.md#lorraines-trans-child), and no doubt many other successful mind-control tricks which will soon transpire.
 - From here, I believe the gangs went back-to-basics using targets like myself for blackmailing porn-obsessed tech CEOs into giving them use of their massive processing hubs in order to run the caliphate-AI social-media hypno-tech.
 - Just over ten years of this lie-spreading-software out in the wild and the world has gone totally mad.
 - We are suffering from a tidal wave of sexual perversion and hatred towards women and children and Jewish people.
