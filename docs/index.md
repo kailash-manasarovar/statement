@@ -283,7 +283,7 @@ This police statement details the following:
 
 - I love Dénia. 
 - I thought I had many friends there.
-- I had no idea that - apart from my first visit in 1997 - I'd been lured there with online manipulation as a prime target for horror-porn specials that require careful poisoning over many years to administer stroke-like, brain-damage symptoms.
+- I had no idea that - apart from my first visit in 1997 - I'd been lured there by online manipulation as a prime target for horror-porn specials that require careful poisoning over many years to administer stroke-like, brain-damage symptoms.
 - I sang in the Orfeó de Dénia choir, led by Klara Sarkadi.
 - It was while singing with Klara's choir that I met the characters who made sure I applied to the [conservatory of Dénia](https://portal.edu.gva.es/conservatoriDenia/) to study the piano.
 - "Find out what she wants", is their subtle and not-so subtle honey-trap game, and they supplied.

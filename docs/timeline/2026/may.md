@@ -40,6 +40,14 @@ function googleTranslateElementInit() {
 - It's difficult to assess total insanity objectively.
 - Oh, is he *the* Paco Sendra?
 
+## Me and Steve were chatting
+
+- And I was telling him about how I was completely stateless, in danger in most places in the world so living in my car until the money runs out and then I dunno.
+- And then I thought, bingo, *Hey, you could sign me off, then I'd have three meals a day and a bed, and I can spend the rest of my life gardening".
+- Brilliant, I thought.
+- And then he said, *No, no, you can't have any sharp implements", and I was dismayed for being misdiagnosed, and because my plan wouldn't work out at all.
+- Perhaps I'll do crime instead; I could start up a little healing circle in cell block H.
+
 ## Kailash
 
 - I'm returning to Kailash after eleven years, God Willing.
