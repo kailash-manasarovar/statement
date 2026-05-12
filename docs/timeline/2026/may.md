@@ -49,6 +49,7 @@ function googleTranslateElementInit() {
 - Perhaps I'll do crime instead; I could start up a little healing circle in cell block H once they caught me, which I'd be intending. Could get famous.
 - Yeah, you wouldn't want to set up something that annoyed the docs in case they McMurphy'ed you although my guess is I'd be rubbish at crime. 
 - I'm not joking about my life being no fun at all though.
+- One wonders if, while no-one cares about the porn-gangs destroying the world, populations of porn-gang targets (we must be in the millions by now) will drift away from society and form liminal-space communities as society has, essentially, told us we don't exist, that our lives don't matter. Seems a reasonable view into the future...
 
 ## Kailash
 
