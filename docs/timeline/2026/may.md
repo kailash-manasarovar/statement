@@ -49,12 +49,14 @@ function googleTranslateElementInit() {
 - Perhaps I'll do crime instead; I could start up a little healing circle in cell block H once they caught me, which I'd be intending. Could get famous.
 - Yeah, you wouldn't want to set up something that annoyed the docs in case they McMurphy'ed you although my guess is I'd be rubbish at crime. 
 - I'm not joking about my life being no fun at all though.
-- One wonders if, while no-one cares about the porn-gangs destroying the world, populations of porn-gang targets (we must be in the millions by now) will drift away from society and form liminal-space communities as society has, essentially, told us we don't exist, that our lives don't matter. Seems a reasonable view into the future...
+- One wonders if, while no-one cares about the porn-gangs destroying the world, populations of porn-gang targets (we must be in the millions by now) and of course Spain's honey-trap targets who cannot rely on healthcare and assume basic human rights, will drift away from society and form liminal-space communities as we have been, essentially, told we don't exist, that our lives don't matter. Seems a reasonable view into the future...
+- God reminds me that even if it is no fun at all; I have felt far worse for more inconsequential things, so that's good.
 
 ## Kailash
 
-- I'm returning to Kailash after eleven years, God Willing.
-- It's somewhat miraculous I am doing so.
+- I'm returning to Kailash after eleven years, God Willing, might need a horse though.
+- It's somewhat miraculous I am doing so, even though I might need a horse.
+- We can go anytime.
 - I remember as we walked around the mountain back in 2015, I found out about the jyotirlinga and I made the decision to visit all 12 of them at that time - apart from the one in Pakistan, obviously.
 - I'm returning having completed the task I (maybe) set for myself at Kailash, and other tasks too.
 - Since 2015, I have become the world's most famous sedated-rape horror-porn star; sometimes featuring friends and family, animals, children, men in superhero outfits, blond-wigged women in fishnet tights and top hats, monks and work colleagues, random men in restaurants, random North-of-England men on busses, and God knows what else.
