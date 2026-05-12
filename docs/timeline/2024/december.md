@@ -194,6 +194,8 @@ function googleTranslateElementInit() {
 ## Sketching the novel
 
 - I sketch some novel themes given there hasn't been a sudden rush to arrest any criminals or safeguard any children, an ongoing disappointment.
+- Perhaps I'm just a little naive about what can be done about a trillion-tentacle spidery horror-porn enterprise, and whether if law enforcement takes its time, we get every last one of them!
+- I dunno though, I do get down from time to time.
 - I am visualizing and continually manifesting a three-season Netflix documentary special, but I am also seeing a true fiction series with Margot Robbie as me and Jake Gyllenhaal as Domingo (I always had him playing the role).
 
 [![Jake Gyllenhaal](../../content/images/jake-gyllenhaal.jpg)](https://x.com/1FRGVN/status/1697691210301755536)
