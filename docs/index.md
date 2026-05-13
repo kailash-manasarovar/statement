@@ -75,10 +75,11 @@ I do, however, have a lot of God.
 ### Gang-stalking
 
 - This was nowhere near their first rodeo.
-- When moving from spy-cam, honey-trap love affairs to sedated-rape back in the 90s, the gangs will have noticed that targets suffer with intense anxiety and depression after being sedated and raped. - I report on other women in the region who may have been targeted in the same way I was due to their inexplicable panic attacks and other suspicious symptoms, including my mother.
+- When moving from spy-cam, honey-trap love affairs to sedated-rape back in the 90s, the gangs will have noticed that targets suffer with intense anxiety and depression after being sedated and raped. 
+- I report on other women in the region who may have been targeted in the same way I was due to their inexplicable panic attacks and other suspicious symptoms, including my mother.
 - In fact, my guess is this community has been brain-damaging women for centuries in order to rape them in macabre ways, and then laugh and point, and undoubtedly the same trauma effects have arisen in all victims historically.
 - So, in order to "explain away" these expected feelings to a sedated-rape victim, the gangs create incessant and intricate, carefully choreographed, terror-vignettes starring multiple known protagonists that render a victim so anxious she doesn't notice the inexplicable anxiety and depression.
-- I detail these near-daily instances of physical stalking assisted by pinpoint tracking of my movements via my hacked mobile phones in order to harass me and create anxiety-forming situations with the sole intention of terrorizing so that the extreme anxiety and grievous mental and emotional harm I was suffering from repeated sedated rape had a "logical reason".
+- I detail these near-daily instances of physical stalking assisted by pinpoint tracking of my movements via my hacked mobile phones in order to harass me and create anxiety-forming situations with the sole intention of terrorizing me into believing that the extreme anxiety and grievous mental and emotional harm I was suffering from repeated sedated rape had a "logical reason".
 - I assume the gangs expected this anxiety to also cover over the toxic physical side-effects arising from constant drugging and poisoning.
 - Back in the UK in July 2024, while the terror was ongoing, I [stood as a candidate for general election](timeline/2024/june.md#volunteers-not-what-they-seem) and was stalked endlessly by criminal gangs.
 - They even wheeled out [the 1989 North London rape-gang boss Winston May](timeline/2024/june.md#winston-may) who I complained about twice to the Metropolitan Police; once in 2006, and then again in 2015. 
