@@ -50,12 +50,12 @@ I do, however, have a lot of God.
 - I believe that this was, initially, due to them finding out I was going to receive £250K compensation for the Lockerbie terrorist bombing in which my aunt was murdered.
 - At the time, and to whet the porn-addict appetite, [pedophile pornography made by North London rape-gangs in 1989](timeline/2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) starring me, sedated, was proliferated throughout criminal porn-addict networks.
 - Specifically, porn-addicts were tasked with gaining more illicit porn with me in it - be it from hidden cameras or while sedated - and they obliged.
-- As soon as I was in receipt of the compensation, and maybe had a nice job and a family to worry about, they would move in with the films and demand I hand my money over.
-- Except, something curious happened and the porn with me in it began to make more money for the gangs than any savings I might have been persuaded to let go of; and so motives switched early on and I became a prime target for the world's best known, and most loved, criminal porn studios of  Dénia.
-- Due to this, I have been under constant criminal surveillance for more than twenty-five years and this is ongoing.
+- As soon as I was in receipt of the compensation, they would move in with the films and demand I hand my money over.
+- Except, something curious happened and the porn with me in it began to make more money for the gangs than any savings I might have been persuaded to let go of; and so motives switched early on and I became a prime target for the world's best known, and most loved, criminal porn studio of  Dénia.
+- Due to this, I have been under constant criminal surveillance for more than twenty-five years.
 - The gangs know where I am to pinpoint precision: what I'm doing, who I talk to, where I work and who my porn-addict subscribing colleagues are.
-- They read everything I write, watch everything I do online, attend my work meetings, yoga classes, and therapy sessions, while keeping a careful eye on my financial status.
-- Of course, the same criminals targeted other family members - and probably even [other UK Lockerbie families](timeline/2001-to-2010/2006.md#lockerbie) - to rob them of their compensation via honey-trapping, fake-relationships, sexploitation and blackmail, manipulated drug addictions, and online fraud.
+- They read everything I write, watch everything I do online, attend work meetings, yoga classes, and therapy sessions with me, while keeping a careful eye on my financial status.
+- Of course, the same criminals targeted other family members - and probably even [other UK/US Lockerbie families](timeline/2001-to-2010/2006.md#lockerbie) - to rob them of their compensation via honey-trapping, fake-relationships, sexploitation and blackmail, manipulated drug addictions, and online fraud.
 
 ### Brain-damage for switcheroo horror-porn
 
