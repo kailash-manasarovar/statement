@@ -76,7 +76,7 @@ I do, however, have a lot of God.
 
 - This was nowhere near their first rodeo.
 - When moving from spy-cam honey-trap love affairs to sedated-rape back in the 90s, the gangs will have noticed that targets suffer with intense anxiety and depression after being sedated and raped - and I report on other women in the region who may have been targeted in the same way, including my mother.
-- In fact, my guess is they have been brain-damaging women for centuries in order to rape them and laugh at them, and undoubtedly the same trauma effects will arise in the women.
+- In fact, my guess is they have been brain-damaging women for centuries in order to rape them in macabre ways, and laugh at them, and undoubtedly the same trauma effects will arise in the women.
 - So, in order to "explain" these feelings away to a sedated-rape victim, the gangs create incessant and intricate, choreographed, terror-vignettes to make a victim so anxious she doesn't notice the inexplicable anxiety.
 - I detail near-daily instances of physical stalking assisted by pinpoint tracking of my movements via my hacked mobile phones in order to harass me and create intricate choreographed situations with the sole intention of terrorizing me and causing me extreme anxiety and grievous mental and emotional harm.
 - The mental and emotional hurts were intended to give me a reasonable explanation for the anxiety and depression arising from repeated sedated-rape, and the toxic effects arising from drugging and poisoning.
