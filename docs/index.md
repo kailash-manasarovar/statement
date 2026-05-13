@@ -68,7 +68,7 @@ I do, however, have a lot of God.
 - For nearly twenty years I was slowly poisoned by deadly herbs so that I would lose the ability to recognize objects out of context; a stroke-like symptom.
 - This was so that between November 2022 and June 2023, the gangs could set up a [*switcheroo* horror-porn show](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) filmed live at the conservatory, in and around the town, and in my apartment without my knowledge, where at least four different men turned up to teach a class at the music school, children attending, and I would only know them as one man.
 - This scam also required intense hallucinogenic intake to work effectively and I was drugged  intensely at my home before class, and topped up as I entered the music school by teachers, staff, and students.
-- It was also intended that I would invite the "trumpet teacher" to my home - a man they had manipulated me into finding sexually attractive - where they planned to live-stream sessions of *switcheroo* porn through the 24-7, spy-cam network, me somewhat conscious.
+- It was also intended that I would invite the "trumpet teacher" to my home - a man they had manipulated me into finding sexually attractive - where they planned to live-stream sessions of *switcheroo* porn through the 24-7 spy-cam network, me somewhat conscious.
 - This did not happen as the man's rather pathetic romantic-advance (*oh, I'm in town on Monday afternoons*) gave me a PTSD reaction like no other.
 - The body always knows.
 
