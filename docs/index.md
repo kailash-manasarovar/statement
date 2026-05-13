@@ -38,55 +38,94 @@ After I realized the extent to which the Spanish school system has been taken ov
 
 ![Novel cover](content/images/the-novel/cover.webp)
 
-## Mass voyeurism, cyber-stalking, gang stalking, honey-trapping, sedated spy-cam rape-porn, and staggering levels of sexual violence against women, children, and babies
+I am currently homeless and essentially stateless, with zero friends or family, and I am unable to work.
+
+I do, however, have a lot of God.
+
+## Mass voyeurism, cyber-stalking, gang-stalking, honey-trapping, sedated spy-cam rape-porn, poisoning and drugging, and staggering levels of sexual violence against women, children, and babies
 
 This police statement details the following:
 
-- How I have been the subject of a [porn fatwa](timeline/2001-to-2010/2003.md#porn-fatwa) since at least 2003, issued by UK criminal gangs - the Adams family and likely others - due to receiving £250K compensation for the Lockerbie terrorist bombing in which my aunt Geraldine was murdered while working as purser for Pan Am flight 103.
-- How, in Dénia itself, criminal gangs hacked my home network, mobile phones, and laptops - including gaining access to my work laptops from three different companies via my [home router](timeline/2024/march/1-12.md#reporting-hacking-to-polygon-labs). 
-- How I was hacked in a similar manner by the same criminal enterprise wherever I was in the world since 2003, possibly earlier, and how they were constantly monitoring my online activity and likely my family's too.
-- How the same criminals targeted other family members, and [even other UK Lockerbie families](timeline/2001-to-2010/2006.md#lockerbie), to rob them of their Lockerbie compensation be it via honey-trapping, sexploitation and blackmail, or manipulated drug addictions.
-- How British criminals living in Dénia targeted me [directly in 2007](timeline/2001-to-2010/2007.md#hazel-smith) and attempted to murder me by poisoning at that time; in the understanding that my money would be available to them via an inheriting family member they already had their claws into.
-- How, in Dénia itself between November 2022 and June 2023, I starred in a [*switcheroo* porn show](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) filmed at the conservatory, in and around the town, and in my apartment without my knowledge, for which I had been brain-damaged over many years by poisoning to give me a neurological brain-disorder (like a stroke symptom) whereby I cannot now recognize people out of context.
-- Throughout the switcheroo porn special, I was drugged heavily at classes and tricked into believing that four or more men were the same one male trumpet teacher calling himself Vidal Sastre Sanchez Hornero; all the men switching places regularly without me noticing.
-- The trumpet teacher scam was well known to the Spanish government's school board, the Generalitat, and had taken place many times before.
-- Teachers, staff, students (including children), parents, townsfolk and others in Dénia knew exactly what was going on at the conservatory and appeared to condone, approve, and even delight in it.
-- It's clear that organized criminal porn gangs have infiltrated at a minimum the conservatory systems in Spain, and likely other learning establishments, and are free to target children and teenagers, as well as any vulnerable adult who might be lured in.
-- Targets are most often foreign women and children, or Spanish outsiders; those who don't know *how things work* in the Valencian region. 
-- The conservatory is just one example of criminal porn-gang infiltration into the whole of society in the region - the most horrific bar the baby-rape industry - and this report also details decades of similar spy-cam and sexploitation crime against women, children, and babies, targeted by the same criminal pornographers who have been freely producing the very worst sort of pornography for decades.
-- I detail near-daily instances of physical stalking assisted by pinpoint tracking of my movements via my hacked mobile phones - and probably tracking on my car since I stopped using my phones - in order to harass me and create intricate choreographed situations with the sole intention of terrorizing me and causing me extreme anxiety and grievous mental and emotional harm.
+### Porn fatwa
+
+- How, since at least 2001, I have been the subject of a [porn fatwa](timeline/2001-to-2010/2003.md#porn-fatwa) issued by the UK criminal gangs responsible for distributing child-rape porn made by North London rape-gangs.
+- I believe that this was, initially, due to them finding out I was going to receive £250K compensation for the Lockerbie terrorist bombing in which my aunt Geraldine was murdered.
+- At the time, and to whet the appetite, [pedophile pornography made by the rape-gang in North London in 1989 and distributed by North London gangs](timeline/2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) starring me, sedated, filmed in North London in 1989 was proliferated throughout criminal porn-addict networks.
+- Specifically, porn-addicts were tasked with gaining more illicit porn with me in it, be it from hidden cameras or while sedated, and they obliged.
+- As soon as I was in receipt of the compensation, and maybe had a nice job and family, they could move in with the films and demand I hand my money over.
+- Except, something curious happened and the porn with me in it began to make more money for the gangs than any savings I might have been persuaded to let go of, and so motives switched early on and I became a prime target for the world's best known, and most loved, criminal porn studios of  Dénia.
+- Due to this, I have been under constant criminal surveillance for more than twenty-five years and this is ongoing.
+- The gangs know where I am to pinpoint precision: what I'm doing, who I'm talking to, where I work, and they read everything I write, watch everything I do online, attend work meetings, yoga classes, and therapy sessions with me, while making careful note of my financial status.
+
+### It's what they do
+
+- It appears these same criminals targeted other family members, and [even other UK Lockerbie families](timeline/2001-to-2010/2006.md#lockerbie), to rob them of their Lockerbie compensation be it via honey-trapping, fake-relationships, sexploitation and blackmail, or manipulated drug addictions.
+
+### Brain-damage for switcheroo horror-porn
+
+- I was lured to Dénia online in 2007.
+- Dénia - as the entire criminal underworld and any serious pornographer knows - has been the world's criminal porn capital for many decades producing the worst sort of porn: bestiality, incest, snuff, pedophilia, and now baby-rape.
+- British criminals living in Dénia targeted me [directly in 2007](timeline/2001-to-2010/2007.md#hazel-smith) with the intention of blackmailing me with child gang-rape porn from 1989, and other films from 2001 and earlier which I've only just become aware of.
+- When it became apparent I would not be parting with any money, Hazel Smith attempted to murder me by poisoning - in the understanding that my money would instead be available to them via an inheriting family member they already had their claws into (my brother).
+- I survived so they switched tack and I joined their brain-damage program instead.
+- I was slowly poisoned from 2007 in Dénia by deadly herbs so that I would lose the ability to recognize objects out of context; a stroke-like symptom.
+- This was so that between November 2022 and June 2023, they could set up a [*switcheroo* horror-porn show](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) filmed live at the conservatory, in and around the town, and in my apartment without my knowledge, where at least four different men turned up to teach a chamber music class at the music school, children attending, and I would only know them as one man.
+- This scam also required intense hallucinogenic intake to work effectively and I was drugged continuously at my home before class, and topped up as I entered the school for classes by teachers and students.
+- It was also intended that I would invite the "trumpet teacher" to my home - the man they had manipulated me into finding sexually attractive - where they planned to film live through the 24-7 spy-cam network, with me somewhat conscious, sessions of *switcheroo* sex with all the men.
+- This did not happen as the man's rather pathetic advance (*oh, I'm in town on Monday afternoons*) gave me a PTSD reaction like no other.
+- The body always knows.
+
+### Gang-stalking
+
+- This was nowhere near their first rodeo.
+- When moving from spy-cam honey-trap love affairs to sedated-rape back in the 90s, the gangs will have noticed that targets suffer with intense anxiety and depression after being sedated and raped - and I report on other women in the region who may have been targeted in the same way, including my mother.
+- In fact, my guess is they have been brain-damaging women for centuries in order to rape them and laugh at them, and undoubtedly the same trauma effects will arise in the women.
+- So, in order to "explain" these feelings away to a sedated-rape victim, the gangs create incessant and intricate, choreographed, terror-vignettes to make a victim so anxious she doesn't notice the inexplicable anxiety.
+- I detail near-daily instances of physical stalking assisted by pinpoint tracking of my movements via my hacked mobile phones in order to harass me and create intricate choreographed situations with the sole intention of terrorizing me and causing me extreme anxiety and grievous mental and emotional harm.
 - The mental and emotional hurts were intended to give me a reasonable explanation for the anxiety and depression arising from repeated sedated-rape, and the toxic effects arising from drugging and poisoning.
-- I suffered drugging, poisoning, sexual grooming, and honey-trapping [online and in the classrooms](timeline/2023/january.md#serious-poisoning-at-chamber-music-class) of the conservatory of Dénia.
-- I was drugged, sedated, and poisoned without my knowledge; in class at the conservatory, at home via tampered-with water and air systems, in my car (sprayed/misted onto surfaces and through the air vents), on all my belongings when I moved house, and in my hotel rooms the criminals gain access to for adding poisons and drugs to my personal items such as food and bathroom products; the most recent example of this occurring in [July 2025 in Lourdes](timeline/2025/july.md#lourdes).
-- I continue to be under constant surveillance by Spanish and British criminal gangs.
-- It appears that criminal porn-gangs are certain they can do whatever they like and that no-one is going to stop them.
-- They even persuaded my father to [take a starring role](timeline/early-years/2015.md#inexplicable-anal-fissure) in an incest special - I suspect he was aware of what was going on in the town [from early 2013](timeline/early-years/2013.md#dad-visits-at-fallas) at least - and the criminals likely told him to [bring my mother out with him](timeline/early-years/2016.md#march) the next time he visited to make another million or so, and he agreed.
-- I believe the British gangs have been colluding with my father from early as 1989 when child-porn was disseminating through the networks starring me, sedated, being gang-raped by black men in Tottenham on their mothers' kitchen tables and elsewhere.
-- My father's involvement in all this finally triggered a severe suicidal depression for which I had no context and thus assumed had to be related to the 1989 attacks. 
-- UK and Spanish criminals know everything about me including having copies of [pedophile pornography made by the rape-gang in North London in 1989 and distributed by North London gangs](timeline/2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x). 
-- I believe I was repeatedly sedated, raped, and filmed in my flat in Passeig Periodista Ramon Ortega between 2012-2014, and probably at my flat in Cami Llavador 5 between 2006-2009.
 - On becoming political and [standing for general election in the UK in July 2024](timeline/2024/june.md#volunteers-not-what-they-seem), criminal gangs made sure they had their people in place to keep an eye on me and continue to threaten me.
 - They even wheeled out [North London rape-gang boss Winston May](timeline/2024/june.md#winston-may) to terrorize me into silence, I assume. 
 - I expect he had been in prison at the time and was given a day out by the police for this purpose.
-- With such confidence in *getting away with it*, criminal porn-gangs were free to forge close alliances with my employers to create even more elaborate and sickening [criminal porn genres](timeline/2023/november.md#polygon) watched by the men I was working with; obviously making millions in the process.
-- The porn gangs have made a lot of money out of me over the decades, and I'm not the only victim.
-- All over Dénia, men young and old drive flashy new sports cars worth minimum $50K and upwards. This is a poor town with apparently zero industry.
-- I detail unusual events taking place in the town that may point to mass child-sex-trafficking and other porn horrors.
-- By the summer of 2024, the porn-gangs had finished with the *female tech-colleague you hate* porn genre, yet were still drugging and stalking me continuously as they worked steadily towards my assured total destruction.
-- I was interviewed online in October 2024 by a fellow UK general election candidate. 
+
+### Poisoning with brake-fluid and pesticides
+
+- I suffered drugging, poisoning, sexual grooming, and honey-trapping [online and in the classrooms](timeline/2023/january.md#serious-poisoning-at-chamber-music-class) of the conservatory of Dénia.
+- I was drugged, sedated, and poisoned without my knowledge; in class at the conservatory, at home via tampered-with water and air systems, in my car (sprayed/misted onto surfaces and through the air vents),
+ on all my belongings when I moved house, and in my hotel rooms the criminals gain access to for adding poisons and drugs to my personal items such as food and bathroom products; the most recent example of this occurring in [July 2025 in Lourdes](timeline/2025/july.md#lourdes).
+ - I was interviewed online in October 2024 by a fellow UK general election candidate. 
 - The video was made public on YouTube, where I stated I believed [I was being drugged and there were spy-cams in my apartment filming me](timeline/2024/october.md#youtube-with-kelly-oliver-dougall) and that I had been [targeted professionally at Polygon](timeline/2023/november.md#polygon) where I worked and I was about to take them to tribunal.
 - This was during the week I was supposed to die by poisoning with anti-freeze, methanol, or similar, [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-kill), doused over all my belongings, and added to my bathroom products.
 - The gangs were absolutely certain of my demise and their freedom to murder a woman without consequence.
-- One working day prior to the poisoning, [Polygon fires me](timeline/2024/october.md#polygon-fires-the-whole-writing-team).
 - I sustained an even more severe kidney injury that week (my kidneys had already suffered regular injury due to constant poisoning; see [rhabdo in January 2023](timeline/2023/january.md#serious-poisoning-at-chamber-music-class) and [kidney explosion at Halloween 2023](timeline/2023/october.md#halloween)) and my eyesight was severely affected. 
 - My vision deteriorated and I was diagnosed with a [pre-glaucoma condition](timeline/2024/november.md#pre-glaucoma-diagnosis). This worsened in [July 2025](timeline/2025/july.md#lourdes) after another attempt at murdering me by poisoning failed.
-- In December 2025, my eye doctor tells me all is well.
-- My right kidney, injured by constant poisoning with anti-freeze and other toxic substances in my apartment over three years, remains weak but is healing well now.
-- I have suffered [incalculable personal financial losses that continue](personal/expenses.md), and there has been an even more extraordinary amount of financial gain from my suffering, and countless others, to the [porn-gangs](crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) of Dénia.
-- I am currently homeless, with zero friends or family, and I am unable to work.
-- I do, however, have a lot of God.
 
-### A friend on the inside
+### Sedated-rape
+
+- It turns out, they had been sedating and raping me for years already, prior to the "switcheroo" events.
+- They even persuaded my father to [take a starring role](timeline/early-years/2015.md#inexplicable-anal-fissure) in an incest special filmed at Joan Fuster.
+- I suspect he was aware of what was going on in the town [from early 2013](timeline/early-years/2013.md#dad-visits-at-fallas) at least - and the criminals likely told him to [bring my mother out with him](timeline/early-years/2016.md#march) the next time he visited to make another million or so, and he agreed.
+- During the *switcheroo* special, the *father* meme was reinforced constantly as if the whole town had watched my father anally-rape me while sedated, and just loved it!
+- I believe I was repeatedly sedated, raped, and filmed in my flat in Passeig Periodista Ramon Ortega between 2012-2014, and probably at my flat in Cami Llavador 5 between 2006-2009.
+- I believe the British gangs have been colluding with my father from early as 1989 when child-porn was disseminating through the networks starring me, sedated, being gang-raped by black men in Tottenham on their mothers' kitchen tables and elsewhere.
+- My father's involvement in all this finally triggered a severe suicidal depression for which I had no context and thus assumed had to be related to the 1989 North London attacks. 
+- This depression prompted me to report a more detailed story about what had happened to me in 1989 to the Metropolitan police in 2015 and while I was writing this statement online, the criminals were reading every word and would use phrases and examples taken directly from it as part of their gang-stalking choreography in 2023 at the conservatory.
+
+### Police and government corruption
+
+- Eventually, after the gangs *revealed themselves* and the hacking became obvious, I reported it to the Spanish police multiple times in 2024, and the company I was working for at the time, [Polygon](timeline/2024/march/1-12.md#reporting-hacking-to-polygon-labs), and even the Spanish government body who run the conservatories, the Generalitat.
+- The trumpet teacher scam is well known to the Spanish government's school board, the Generalitat, and had taken place many times before.
+- Targets are most often foreign women and children, or Spanish outsiders; those who don't know *how things work* in the Valencian region. 
+- The conservatory is just one example of criminal porn-gang infiltration into the whole of society in the region - the most horrific bar the baby-rape industry - and this report also details decades of similar spy-cam and sexploitation crime against women, children, and babies, targeted by the same criminal pornographers who have been freely producing the very worst sort of pornography for decades.
+- All over Dénia, men young and old drive flashy new sports cars worth minimum $50K and upwards. This is a poor town with apparently zero industry.
+- I detail unusual events taking place in the town that may point to mass child-sex-trafficking and other porn horrors.
+
+### The global tech-bro porn-addict community
+
+- With such confidence in *getting away with it*, criminal porn-gangs were free to forge close alliances with my employers to create even more elaborate and sickening [criminal porn genres](timeline/2023/november.md#polygon) watched by the men I was working with; obviously making millions in the process.
+- By the summer of 2024, the porn-gangs had finished with the *female tech-colleague you hate* porn genre, yet were still drugging and stalking me continuously as they worked steadily towards my assured total destruction.
+- One working day prior to the poisoning, [Polygon fires me](timeline/2024/october.md#polygon-fires-the-whole-writing-team).
+
+## A friend on the inside
 
 - At some point, something happened between myself and a gang member, inexplicably and miraculously, that made him change his mind about his grim purpose.
 - I believe it is to do with my memory of [a man sobbing his heart out in my arms](timeline/2023/march.md#dreaming-of-the-trumpet-teacher) in my bed one Monday night after chamber music classes at the height of the switcheroo scam and my unconditional and relentless good feelings for him that continue to this day.
@@ -101,7 +140,7 @@ This police statement details the following:
 
 ![Super-hero squirrel](content/images/super-hero-squirrel.png)
 
-### From honey-traps to world domination
+## From honey-traps to world domination
 
 - The criminality in Dénia began as honey-trapping; target a wealthy woman, trick her into thinking she's in love, film the sex, and blackmail her with it.
 - Evidence for this comes from [the Irene photos](timeline/2023/july.md#plate-lady-early-in-the-month) dating back decades.
@@ -131,7 +170,7 @@ This police statement details the following:
 
 ![Undoers of the hypno-tech](content/images/hypno-tech.png)
 
-### A well-oiled sedated-rape-porn machine 
+## A well-oiled sedated-rape-porn machine 
 
 - The conservatory's [switcheroo-porn scam running in 2022-2023](crimes/protagonists/vidal-sastre.md#four-distinct-men), me starring, was an efficient and very well-oiled machine.
 - There must be countless victims young and old; many missing, presumably murdered.
@@ -144,7 +183,7 @@ This police statement details the following:
 
 ![Franz Kafka's machine](content/images/kafkas-machine.webp)
 
-### Lorraine Blackbourn should be alive today
+## Lorraine Blackbourn should be alive today
 
 - Lorraine Blackbourn committed suicide in July 2021; on the exact same day I returned to Dénia for a short holiday after many years!
 - Her funeral was a few days later; the very day I went to the beach and saw Caroline England crying at the Rani Palace restaurant.
@@ -178,7 +217,7 @@ This police statement details the following:
 - Don't forget to ask them about the flourishing pedo-porn and baby-rape industry in the region.
 - I can imagine you could start a conversation off with one of these people and it feel normal, and funny, and they're laughing, in a jeering way - they're way better than those foreign sluts that everyone hates that they watch obsessively on the porn channels - and you mention the children, and the conservatory teachers, and they're still laughing, but there's a flutter in their voice now, and you mention the babies, and there's a splutter, and then they stop laughing, you lose eye contact with them, and maybe, just maybe, the shame can come in and they're human again.
 
-### Colleagues and employers with horror-porn subscriptions, and their mates
+## Colleagues and employers with horror-porn subscriptions, and their mates
 
 - It turns out, that everyone was having so much fun at my expense over the last thirty-eight years - and making so much money - even the tech-bro porn-addicts at some of the companies I worked for were enjoying my prolonged horror-porn-crucifixion; and most significantly at [Polygon](timeline/2024/may.md#bali).
 - The porn-gangs even used regular, common, law-abiding, tax-paying tech-recruitment-agents to lure me into amazing jobs with great salaries in which I was immediately treated like dirt.
