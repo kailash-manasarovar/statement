@@ -44,22 +44,18 @@ I do, however, have a lot of God.
 
 ## Mass voyeurism, cyber-stalking, gang-stalking, honey-trapping, sedated spy-cam rape-porn, poisoning and drugging, and staggering levels of sexual violence against women, children, and babies
 
-This police statement details the following:
-
 ### Porn fatwa
 
-- How, since at least 2001, I have been the subject of a [porn fatwa](timeline/2001-to-2010/2003.md#porn-fatwa) issued by the UK criminal gangs responsible for distributing child-rape porn made by North London rape-gangs.
-- I believe that this was, initially, due to them finding out I was going to receive £250K compensation for the Lockerbie terrorist bombing in which my aunt Geraldine was murdered.
-- At the time, and to whet the appetite, [pedophile pornography made by the rape-gang in North London in 1989 and distributed by North London gangs](timeline/2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) starring me, sedated, filmed in North London in 1989 was proliferated throughout criminal porn-addict networks.
-- Specifically, porn-addicts were tasked with gaining more illicit porn with me in it, be it from hidden cameras or while sedated, and they obliged.
-- As soon as I was in receipt of the compensation, and maybe had a nice job and family, they could move in with the films and demand I hand my money over.
-- Except, something curious happened and the porn with me in it began to make more money for the gangs than any savings I might have been persuaded to let go of, and so motives switched early on and I became a prime target for the world's best known, and most loved, criminal porn studios of  Dénia.
+- Since at least 2001, I have been the subject of a [porn fatwa](timeline/2001-to-2010/2003.md#porn-fatwa) issued by the same UK criminal gangs responsible for distributing criminal porn made by North London rape-gangs.
+- I believe that this was, initially, due to them finding out I was going to receive £250K compensation for the Lockerbie terrorist bombing in which my aunt was murdered.
+- At the time, and to whet the porn-addict appetite, [pedophile pornography made by North London rape-gangs in 1989](timeline/2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) starring me, sedated, was proliferated throughout criminal porn-addict networks.
+- Specifically, porn-addicts were tasked with gaining more illicit porn with me in it - be it from hidden cameras or while sedated - and they obliged.
+- As soon as I was in receipt of the compensation, and maybe had a nice job and a family to worry about, they would move in with the films and demand I hand my money over.
+- Except, something curious happened and the porn with me in it began to make more money for the gangs than any savings I might have been persuaded to let go of; and so motives switched early on and I became a prime target for the world's best known, and most loved, criminal porn studios of  Dénia.
 - Due to this, I have been under constant criminal surveillance for more than twenty-five years and this is ongoing.
-- The gangs know where I am to pinpoint precision: what I'm doing, who I'm talking to, where I work, and they read everything I write, watch everything I do online, attend work meetings, yoga classes, and therapy sessions with me, while making careful note of my financial status.
-
-### It's what they do
-
-- It appears these same criminals targeted other family members, and [even other UK Lockerbie families](timeline/2001-to-2010/2006.md#lockerbie), to rob them of their Lockerbie compensation be it via honey-trapping, fake-relationships, sexploitation and blackmail, or manipulated drug addictions.
+- The gangs know where I am to pinpoint precision: what I'm doing, who I talk to, where I work and who my porn-addict subscribing colleagues are.
+- They read everything I write, watch everything I do online, attend my work meetings, yoga classes, and therapy sessions, while keeping a careful eye on my financial status.
+- Of course, the same criminals targeted other family members - and probably even [other UK Lockerbie families](timeline/2001-to-2010/2006.md#lockerbie) - to rob them of their compensation via honey-trapping, fake-relationships, sexploitation and blackmail, manipulated drug addictions, and online fraud.
 
 ### Brain-damage for switcheroo horror-porn
 
