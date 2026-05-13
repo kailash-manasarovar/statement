@@ -159,6 +159,12 @@ function googleTranslateElementInit() {
 
 ## Beams
 
+!!! tip "Father meme"
+    - The `@Beams_Game` account and all its interactions are a direct reference to my dad.
+    - "The beam" was a game my dad used to play with us when we were little - this is even referred to in the chat we have.
+    - Even more disturbing is some of the references the account owner makes to "enjoying it" with my father.
+    - Only with knowledge of [the incest filmed at Joan Fuster](../early-years/2015.md#inexplicable-anal-fissure), do online interactions like these become even more hideous.
+
 - Grooming via social media, and unknown substances I'm ingesting without realizing it, continues apace on the run up to the Bali trip.
 - An account interacts with my `@JackChardwood` account [in an usual way](https://x.com/search?q=%20(to%3Ajackchardwood)(from%3Abeams_game)&src=typed_query&f=live).
 - The interaction runs from 26th April to 31st May when I leave for Lourdes and away from the spy-cams at home and in Bali, and then they're done.

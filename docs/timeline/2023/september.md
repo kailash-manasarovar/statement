@@ -1028,6 +1028,14 @@ function googleTranslateElementInit() {
 - I mention [dick pics on Twitter in January 2024](../2024/january.md#dick-pics-from-the-choir-teacher), right before choir class. At the class, he receives a WhatsApp message, reads it, and becomes apoplectic.
 - His choice of repertoire is significant; *Can't help falling in love*, being one obvious choice just for me, and everyone who knows what's happening to me and other students at the school.
 
+### There's a maths teacher in the class
+
+- There's a bunch of adults in the choir class.
+- I don't know what any of them do, apart from Samuel who doesn't talk to me anymore anyway.
+- Except, Salva is constantly mentioning how this one particular man is a *maths teacher*.
+- I believe this is a direct reference to my father and highlights how everyone knows about [the incest-porn from 2015](../early-years/2015.md#inexplicable-anal-fissure).
+- Every tiny thing they do and say is to terrorize me; to retrigger sexual trauma.
+
 ## Apes beating their chests
 
 - I'm walking home with my Indian takeaway one evening. 
