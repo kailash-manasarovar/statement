@@ -60,15 +60,16 @@ I do, however, have a lot of God.
 ### Brain-damage for switcheroo horror-porn
 
 - I was lured to Dénia online in 2007.
-- Dénia - as the entire criminal underworld and any serious pornographer knows - has been the world's criminal porn capital for many decades producing the worst sort of porn: bestiality, incest, snuff, pedophilia, and now baby-rape.
-- British criminals living in Dénia targeted me [directly in 2007](timeline/2001-to-2010/2007.md#hazel-smith) with the intention of blackmailing me with child gang-rape porn from 1989, and other films from 2001 and earlier which I've only just become aware of.
-- When it became apparent I would not be parting with any money, Hazel Smith attempted to murder me by poisoning - in the understanding that my money would instead be available to them via an inheriting family member they already had their claws into (my brother).
-- I survived so they switched tack and I joined their brain-damage program instead.
-- I was slowly poisoned from 2007 in Dénia by deadly herbs so that I would lose the ability to recognize objects out of context; a stroke-like symptom.
-- This was so that between November 2022 and June 2023, they could set up a [*switcheroo* horror-porn show](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) filmed live at the conservatory, in and around the town, and in my apartment without my knowledge, where at least four different men turned up to teach a chamber music class at the music school, children attending, and I would only know them as one man.
-- This scam also required intense hallucinogenic intake to work effectively and I was drugged continuously at my home before class, and topped up as I entered the school for classes by teachers and students.
-- It was also intended that I would invite the "trumpet teacher" to my home - the man they had manipulated me into finding sexually attractive - where they planned to film live through the 24-7 spy-cam network, with me somewhat conscious, sessions of *switcheroo* sex with all the men.
-- This did not happen as the man's rather pathetic advance (*oh, I'm in town on Monday afternoons*) gave me a PTSD reaction like no other.
+- Dénia - as the entire criminal underworld and any serious pornographer knows - has been the world's criminal porn capital for many decades.
+- Dénia has been producing the worst sort of porn we all hear about but only men see: bestiality, incest, snuff, pedophilia, and baby-rape.
+- British criminals living in Dénia targeted me [directly in 2007](timeline/2001-to-2010/2007.md#hazel-smith) with the intention of blackmailing me with child gang-rape porn from 1989, and other earlier films I've only just become aware of.
+- When it became apparent I would not be parting with any money, they attempted to murder me by poisoning - in the understanding that my money would instead be available to them via an inheriting family member (my brother) into whom they already had their claws.
+- I survived the poisoning attempt, so they switched tack and I joined their brain-damage program instead.
+- For nearly twenty years I was slowly poisoned by deadly herbs so that I would lose the ability to recognize objects out of context; a stroke-like symptom.
+- This was so that between November 2022 and June 2023, the gangs could set up a [*switcheroo* horror-porn show](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) filmed live at the conservatory, in and around the town, and in my apartment without my knowledge, where at least four different men turned up to teach a chamber-music class at the music school, children attending, and I would only know them as one man.
+- This scam also required intense hallucinogenic intake to work effectively and I was drugged continuously at my home before class, and topped up as I entered the music school to attend classes by teachers, staff, and students.
+- It was also intended that I would invite the "trumpet teacher" to my home - a man they had manipulated me into finding sexually attractive - where they planned to film live sessions of *switcheroo* porn with all the men changing places through the 24-7, spy-cam network, me somewhat conscious.
+- This did not happen as the man's rather pathetic romantic-advance (*oh, I'm in town on Monday afternoons*) gave me a PTSD reaction like no other.
 - The body always knows.
 
 ### Gang-stalking
