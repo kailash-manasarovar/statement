@@ -75,14 +75,14 @@ I do, however, have a lot of God.
 ### Gang-stalking
 
 - This was nowhere near their first rodeo.
-- When moving from spy-cam honey-trap love affairs to sedated-rape back in the 90s, the gangs will have noticed that targets suffer with intense anxiety and depression after being sedated and raped - and I report on other women in the region who may have been targeted in the same way, including my mother.
-- In fact, my guess is they have been brain-damaging women for centuries in order to rape them in macabre ways, and laugh at them, and undoubtedly the same trauma effects will arise in the women.
-- So, in order to "explain" these feelings away to a sedated-rape victim, the gangs create incessant and intricate, choreographed, terror-vignettes to make a victim so anxious she doesn't notice the inexplicable anxiety.
-- I detail near-daily instances of physical stalking assisted by pinpoint tracking of my movements via my hacked mobile phones in order to harass me and create intricate choreographed situations with the sole intention of terrorizing me and causing me extreme anxiety and grievous mental and emotional harm.
-- The mental and emotional hurts were intended to give me a reasonable explanation for the anxiety and depression arising from repeated sedated-rape, and the toxic effects arising from drugging and poisoning.
-- On becoming political and [standing for general election in the UK in July 2024](timeline/2024/june.md#volunteers-not-what-they-seem), criminal gangs made sure they had their people in place to keep an eye on me and continue to threaten me.
-- They even wheeled out [North London rape-gang boss Winston May](timeline/2024/june.md#winston-may) to terrorize me into silence, I assume. 
-- I expect he had been in prison at the time and was given a day out by the police for this purpose.
+- When moving from spy-cam, honey-trap love affairs to sedated-rape back in the 90s, the gangs will have noticed that targets suffer with intense anxiety and depression after being sedated and raped. - I report on other women in the region who may have been targeted in the same way I was due to their inexplicable panic attacks and other suspicious symptoms, including my mother.
+- In fact, my guess is this community has been brain-damaging women for centuries in order to rape them in macabre ways, and then laugh and point, and undoubtedly the same trauma effects have arisen in all victims historically.
+- So, in order to "explain away" these expected feelings to a sedated-rape victim, the gangs create incessant and intricate, carefully choreographed, terror-vignettes starring multiple known protagonists that render a victim so anxious she doesn't notice the inexplicable anxiety and depression.
+- I detail these near-daily instances of physical stalking assisted by pinpoint tracking of my movements via my hacked mobile phones in order to harass me and create anxiety-forming situations with the sole intention of terrorizing so that the extreme anxiety and grievous mental and emotional harm I was suffering from repeated sedated rape had a "logical reason".
+- I assume the gangs expected this anxiety to also cover over the toxic physical side-effects arising from constant drugging and poisoning.
+- Back in the UK in July 2024, while the terror was ongoing, I [stood as a candidate for general election](timeline/2024/june.md#volunteers-not-what-they-seem) and was stalked endlessly by criminal gangs.
+- They even wheeled out [the 1989 North London rape-gang boss Winston May](timeline/2024/june.md#winston-may) who I complained about twice to the Metropolitan Police; once in 2006, and then again in 2015. 
+- I expect he had been in prison at the time and was given a day out for this purpose alone.
 
 ### Poisoning with brake-fluid and pesticides
 
