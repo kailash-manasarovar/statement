@@ -53,7 +53,7 @@ I do, however, have a lot of God.
 - As soon as I was in receipt of the compensation, they would move in with the films and demand I hand my money over.
 - Except, something curious happened and the porn with me in it began to make more money for the gangs than any savings I might have been persuaded to let go of; and so motives switched early on and instead I became a prime target for the world's best known, and most loved, criminal porn studio of Dénia.
 - Due to this, I have been under constant criminal surveillance for more than twenty-five years.
-- The gangs know where I am to pinpoint precision: what I'm doing, who I talk to, where I work and who my porn-addict subscribing colleagues are.
+- The gangs know where I am to pinpoint precision: what I'm doing, who I talk to, where I work and who my porn-subscriber colleagues are.
 - They read everything I write, watch everything I do online, attend work meetings, yoga classes, and therapy sessions with me, while keeping a careful eye on my financial status.
 - Of course, the same criminals targeted other family members - and probably even [other UK/US Lockerbie families](timeline/2001-to-2010/2006.md#lockerbie) - to rob them of their compensation via honey-trapping, fake-relationships, sexploitation and blackmail, manipulated drug addictions, and online fraud.
 
