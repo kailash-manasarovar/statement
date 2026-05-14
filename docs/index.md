@@ -85,17 +85,29 @@ I do, however, have a lot of God.
 - They even wheeled out [the 1989 North London rape-gang boss Winston May](timeline/2024/june.md#winston-may) who I complained about twice to the Metropolitan Police; once in 2006, and then again in 2015. 
 - I expect he had been in prison at the time and was given a day out for this purpose alone.
 
-### Poisoning with brake-fluid and pesticides
+### Drugging and poisoning with brake-fluid, pesticides, and other substances
 
-- I suffered drugging, poisoning, sexual grooming, and honey-trapping [online and in the classrooms](timeline/2023/january.md#serious-poisoning-at-chamber-music-class) of the conservatory of Dénia.
-- I was drugged, sedated, and poisoned without my knowledge; in class at the conservatory, at home via tampered-with water and air systems, in my car (sprayed/misted onto surfaces and through the air vents),
- on all my belongings when I moved house, and in my hotel rooms the criminals gain access to for adding poisons and drugs to my personal items such as food and bathroom products; the most recent example of this occurring in [July 2025 in Lourdes](timeline/2025/july.md#lourdes).
- - I was interviewed online in October 2024 by a fellow UK general election candidate. 
-- The video was made public on YouTube, where I stated I believed [I was being drugged and there were spy-cams in my apartment filming me](timeline/2024/october.md#youtube-with-kelly-oliver-dougall) and that I had been [targeted professionally at Polygon](timeline/2023/november.md#polygon) where I worked and I was about to take them to tribunal.
-- This was during the week I was supposed to die by poisoning with anti-freeze, methanol, or similar, [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-kill), doused over all my belongings, and added to my bathroom products.
-- The gangs were absolutely certain of my demise and their freedom to murder a woman without consequence.
-- I sustained an even more severe kidney injury that week (my kidneys had already suffered regular injury due to constant poisoning; see [rhabdo in January 2023](timeline/2023/january.md#serious-poisoning-at-chamber-music-class) and [kidney explosion at Halloween 2023](timeline/2023/october.md#halloween)) and my eyesight was severely affected. 
-- My vision deteriorated and I was diagnosed with a [pre-glaucoma condition](timeline/2024/november.md#pre-glaucoma-diagnosis). This worsened in [July 2025](timeline/2025/july.md#lourdes) after another attempt at murdering me by poisoning failed.
+- From February 2022 to October 2025, I was drugged continuously with hallucinogens and other substances.
+- This ensured the efficacy of [the switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) while it was going on, and a continued inability to understand it afterwards.
+- The hallucinogens were also used to exacerbated all emotional content; specifically terror, confusion and anxiety resulting from constant gang-stalking, and intense and overwhelming sexual arousal.
+- My view is that the hallucinogens, along with sedatives and *happy pills*, were also used to keep my mind in a confused state so that I failed to notice the obvious signs of sedating-events when they happened.
+- As soon as I had a period of continued clarity, the memories of those unusual events returned.
+- [Sudden onset pre-glaucoma symptoms](timeline/2024/november.md#pre-glaucoma-diagnosis) point toward constant drug-taking as my pupils would have been near-permanently dilated, for years.
+- Unusually elevated eye-pressure readings were reported as soon as I returned to Dénia in 2022.
+- Whatever they gave me to invoke timed and overwhelming sexual-arousal was extremely effective and, given it always seemed to come on around lunchtimes - porn-addict showtime - I wonder if my neighbors popped in to add those substances to my lunch items while I was at the conservatory in the mornings.
+- I believe that from around April to December 2023 I was also given some "physical performance" related substances as my yoga practice improved in miraculous ways for only those months!
+- Curiously, something similar had happened to my body in September 1989 while I was in the clutches of the North London rape-gangs that probably Cathy Ayers remembers me talking about.
+- I felt physically twenty-years younger for a short period and I have to wonder if that was intended as preparation for the planned faux-relationship leading to marriage (sudden death and inheritance) in which the sex would be filmed without my knowledge.
+- Along with this, the gangs are poisoning me repeatedly with brake-fluid and antifreeze, pesticides, and similarly deadly substances.
+- It's not clear why they would continuously risk the life of their live-streaming, sex-slave porn-star other than that they are murderously insane and their hatred of women makes the caliphate look like pussycats.
+- My brain was damaged with poisoning over many years and I now have a perceptual injury whereby I'm unable to recognize objects out of context; this ensured that a number of vastly different-looking men, dressing the same, using the same voice (only one of them speaks), and performing the same actions, I thought were the same one man.
+- I was drugged and poisoned without my knowledge; [in class at the conservatory](timeline/2023/january.md#serious-poisoning-at-chamber-music-class), at home via tampered-with water mains and air systems, in my car (sprayed/misted onto surfaces) and on all my belongings before I moved away, in my hotel rooms and wherever criminals have gained illicit access for adding poisons and drugs to my personal items such as food, water, makeup and bathroom products - the most recent egregious example of this occurring in [July 2025 in Lourdes](timeline/2025/july.md#lourdes), and in the street during numerous distract-and-drug events I detail in this statement.
+- On Halloween night in 2023, [I was poisoned with brake-fluid or anti-freeze](timeline/2023/november.md#starting-my-new-job) and expected to sustain a serious injury or death at that time.
+- At the end of October 2024, I was supposed to die by poisoning with brake-fluid, anti-freeze, methanol, or similar, [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-kill), doused over all my belongings, and added to my bathroom products for absorption through the skin.
+- The gangs, from lengthy experience, were absolutely certain of my demise; their freedom to murder a victim without consequence.
+- I sustained an injury to my right kidney and my eyesight was severely affected while being poisoned.
+- Something I was ingesting thinned my bones and I had three repeated rib fractures at an already weakened area over the period I was living in Carrer Furs.
+- I lost a great deal of my mental capacity, my ability to do work, and I found my chess-playing skills - previously exceptional - totally obliterated, and I suspect this was very intentional.
 
 ### Sedated-rape
 
