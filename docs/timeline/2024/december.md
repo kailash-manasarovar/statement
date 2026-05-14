@@ -242,13 +242,13 @@ function googleTranslateElementInit() {
 | Fake accounts and targets |
 |-|
 | ![pic]( ../../content/images/fake-accounts/nov-24/Screenshot%202024-12-01%20at%2011.36.27 PM.png) |
-| ![pic]( ../../content/images/fake-accounts/nov-24/Screenshot%202024-12-01%20at%208.16.23 PM.png)  |
 | ![pic]( ../../content/images/fake-accounts/nov-24/Screenshot%202024-12-01%20at%208.20.59 PM.png)  |
+| ![pic]( ../../content/images/fake-accounts/nov-24/Screenshot%202024-12-01%20at%208.16.23 PM.png)  |
+| I'm not sure why I'm adding the lady above but she seems suspicious. Could it be Maria Hontanilla's mother? |
 | ![pic]( ../../content/images/fake-accounts/nov-24/Screenshot%202024-12-02%20at%204.12.56 PM.png)  
-This pic is one of a series of a woman photographed without her consent. |
-| ![pic]( ../../content/images/fake-accounts/nov-24/daughter-of-innocent-lady.png)
-
-This woman in this pic could be related to the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101). They look very alike and I have seen her in countless pics. |
+The pic above is one of a series I saw of a woman photographed without her consent while on a date. |
+| ![pic]( ../../content/images/fake-accounts/nov-24/daughter-of-innocent-lady.png) |
+The woman in th pic above I believe is the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101)'s daughter. They look very alike and I have seen her in countless pics. She also looks a lot like [Bruno, one of the conservatory trumpet teachers](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno). Could he be the father and therefore the groomer? |
 
 ## Ongoing torment and terrorizing
 
