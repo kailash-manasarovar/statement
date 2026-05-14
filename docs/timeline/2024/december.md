@@ -233,11 +233,14 @@ function googleTranslateElementInit() {
 ## Fake accounts and targets
 
 - Every day I continue to see fake accounts with targeted or significant women on them.
-- One woman I see over and over has the [same tattoo the groomed-girl](august.md#grooming-an-innocent-girl-into-porn-101) and [the woman walking with the possum-man](october.md#possum-man-on-the-beach) had.
-- In early-groom photos she looks slim, and then in obvious later-groom stages she seems extremely anorexic.
+- One woman I see over and over has the [same tattoo as the groomed-girl](august.md#grooming-an-innocent-girl-into-porn-101) and [the woman walking with possum-man](october.md#possum-man-on-the-beach) on the Las Marinas beach.
+- She looks really young and in early-groom photos she looks slim, and then in obvious later-groom stages she seems extremely anorexic.
 - She reminds me of a dreadfully sinister porn-account I saw in the early days of a severely emaciated girl who was always accompanied by a brutish father she wrote about sexually.
 - Those images were grainy in the same way the [Taru Ann](march/13-end.md#taru-ann) account and others were.
-- These will be the last pics I post unless something extraordinarily egregious comes up.
+- I see photos of her leaving someone's bedroom at night dressed up as she is in the photos I'm posting here.
+- The photographer appears to be taking her photo from a darkened bedroom and, I assume, in bed.
+- The house is modern, minimalistic, white like some of the newer buildings in Las Rotas.
+- These will be the last pics I post of women unless something extraordinarily egregious comes up.
 
 | Fake accounts and targets |
 |-|
