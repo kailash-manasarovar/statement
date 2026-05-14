@@ -53,3 +53,11 @@ function googleTranslateElementInit() {
 - I was only using tiny chunks of these pills.
 - Even so, I was horribly addicted.
 - I wonder what else was in those pills.
+
+## Lourdes
+
+### Winter service
+
+- I'm not kidding now but in March 2026, on the first afternoon (23rd March I think) I volunteer for the winter service at the baths at Lourdes (I had given the water gesture to a couple of pilgrims already with a lovely man called Marc to get me feeling confident again and then he left me alone), the first woman who comes into the baths also has *the* tattoo on her arm.
+- That's four times I've seen it now: twice on stomachs, twice on arms, always on women.
+  
