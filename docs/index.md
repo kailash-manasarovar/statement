@@ -115,7 +115,7 @@ I do, however, have a lot of God.
 
 - It turns out, they had been sedating and raping me for years already, long before the "switcheroo" events and my sex-slave porn-stardom at the Vilamar apartments of Carrer Furs 15.
 - I believe I was repeatedly sedated, raped, and filmed in my apartments in Joan Fuster 11 between 2014-2016, Passeig Periodista Ramon Ortega between 2012-2014, and even at my flat in Cami Llavador 5 between 2006-2009.
-- I was sedated and raped in [Amsterdam in 2001](timeline/2001-to-2010/2001.md#amsterdam) by my boyfriend and his criminal associates from North London and Dénia.
+- I was sedated and raped in [Amsterdam in 2001](timeline/2001-to-2010/2001.md#amsterdam) by my boyfriend Brian and his criminal associates from North London and Dénia.
 - One of those criminal associates, a man with a severe facial disfigurement who may be related to another ex-boyfriend of mine Matthew, was set up to [repeat that event](timeline/2024/august.md#ugly) in France in 2024 when the gangs were panicking and needed someone to throw under the bus.
 - I was sedated and raped repeatedly in August-September of 1989 in Tottenham by North London rape-gangs.
 - These are the sedated-rape events I'm sure about but it would not surprise me if there were many, many more.
