@@ -95,20 +95,21 @@ I do, however, have a lot of God.
 - [Sudden onset pre-glaucoma symptoms](timeline/2024/november.md#pre-glaucoma-diagnosis) point toward constant drug-taking as my pupils would have been near-permanently dilated, for years.
 - Unusually elevated eye-pressure readings were reported as soon as I returned to Dénia in 2022.
 - Whatever they gave me to invoke timed and overwhelming sexual-arousal was extremely effective and, given it always seemed to come on around lunchtimes - porn-addict showtime - I wonder if my neighbors popped in to add those substances to my lunch items while I was at the conservatory in the mornings.
-- I believe that from around April to December 2023 I was also given some "physical performance" related substances as my yoga practice improved in miraculous ways for only those months!
+- I believe that from around April to December 2023 I was also given some "physical performance" related substances as my yoga practice improved in miraculous ways, for just those months!
 - Curiously, something similar had happened to my body in September 1989 while I was in the clutches of the North London rape-gangs.
 - I felt physically twenty-years younger for a short period and I have to wonder if that was intended as preparation for the planned faux-relationship leading to marriage (sudden death and inheritance) in which the sex would be filmed without my knowledge.
 - Along with this, the gangs are poisoning me repeatedly with brake-fluid and antifreeze, pesticides, and similarly deadly substances.
 - It's not clear why they would continuously risk the life of their live-streaming, sex-slave porn-star other than that they are murderously insane and their hatred of women makes the caliphate look like pussycats.
 - My brain was damaged with poisoning over many years and I now have a perceptual injury whereby I'm unable to recognize objects out of context; this ensured that a group of vastly different-looking men - dressing the same, using the same voice (only one of them speaks), and performing the same actions - I thought were the same one man.
-- I was drugged and poisoned without my knowledge; [in class at the conservatory](timeline/2023/january.md#serious-poisoning-at-chamber-music-class), at home via tampered-with water mains and air systems, in my car (sprayed/misted onto surfaces) and on all my belongings before I moved away, in my hotel rooms and wherever criminals have gained illicit access for adding poisons and drugs to my personal items such as food, water, makeup and bathroom products - the most recent egregious example of this occurring in [July 2025 in Lourdes](timeline/2025/july.md#lourdes), and in the street during numerous distract-and-drug events I detail in this statement.
+- I was drugged and poisoned without my knowledge; [in class at the conservatory](timeline/2023/january.md#serious-poisoning-at-chamber-music-class), at home via tampered-with water mains and air systems, in my car (sprayed/misted onto surfaces) and onto all my belongings before I moved away, in my hotel rooms and wherever criminals have gained illicit access for adding poisons and drugs to my personal items such as food, water, makeup and bathroom products - the most recent egregious example of this occurring in [July 2025 in Lourdes](timeline/2025/july.md#lourdes) - and in the street during numerous distract-and-drug events I detail in this statement.
 - On Halloween night in 2023, [I was poisoned with brake-fluid or anti-freeze](timeline/2023/november.md#starting-my-new-job) and expected to sustain a serious injury or death at that time.
 - At the end of October 2024, I was supposed to die by poisoning with brake-fluid, anti-freeze, methanol or similar, [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-kill), doused over all my belongings, and added to my bathroom products for absorption through the skin.
-- The gangs, from lengthy experience, were absolutely certain of my demise and their freedom to murder a victim without consequence.
+- The porn-gangs and their subscribing audiences, from lengthy experience, were absolutely certain of my demise and their freedom to murder a victim without consequence.
 - I sustained an injury to my right kidney which might now just be scarring (time of writing). 
 - My eyesight was severely affected while being poisoned.
-- Something I was ingesting thinned my bones and I had three repeated rib fractures at an already weakened area over the period I was living in Carrer Furs.
-- I lost a great deal of my mental capacity and my ability to do mental work, and I found my chess-playing skills - previously exceptional - totally obliterated. I suspect this was very intentional.
+- Something I was ingesting thinned my bones and I had three repeated rib fractures at an already weakened area over the switcheroo period and on the run up to the [Bali horror-porn events](timeline/2024/may.md#bali).
+- I lost a great deal of my mental capacity and cognitive skills, and I found my chess-playing capacity - previously exceptional - totally obliterated.
+- I suspect this was very intentional.
 
 ### Sedated-rape
 
