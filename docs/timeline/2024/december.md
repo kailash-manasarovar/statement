@@ -235,10 +235,10 @@ function googleTranslateElementInit() {
 - Every day, I continue to see fake accounts with targeted or significant women on them.
 - One woman I see over and over has the [same tattoo as the groomed-girl](august.md#grooming-an-innocent-girl-into-porn-101) and [the woman walking with possum-man](october.md#possum-man-on-the-beach) on the Las Marinas beach.
 - She looks really young and in early-groom photos she looks slim, and then in obvious later-groom stages she seems extremely anorexic.
-- She reminds me of a dreadfully sinister porn-account I saw in the early days of a severely emaciated girl who was always accompanied by a brutish father she wrote about in sexual terms.
+- She reminds me of a dreadfully sinister porn-account I saw in the early days of a severely emaciated girl who was always accompanied by a brutish father who she wrote about in sexual terms.
 - Those images were grainy in the same way as the content on the [Taru Ann](march/13-end.md#taru-ann) account and others.
 - I see photos of her leaving someone's bedroom at night dressed up as she is in the photos I'm posting here.
-- The photographer appears to be taking her photo from a darkened bedroom and, I assume, in bed.
+- The photographer appears to be taking her photo from a darkened bedroom and while, I assume, in bed.
 - The house is modern, minimalistic, all white like some of the newer buildings in Las Rotas.
 - These will be the last pics I post of women unless something extraordinarily egregious comes up.
 
@@ -251,7 +251,7 @@ function googleTranslateElementInit() {
 | ![pic]( ../../content/images/fake-accounts/nov-24/Screenshot%202024-12-02%20at%204.12.56 PM.png)  
 The pic above is one of a series I saw of a woman photographed without her consent while on a date. |
 | ![pic]( ../../content/images/fake-accounts/nov-24/daughter-of-innocent-lady.png) |
-The woman in th pic above I believe is the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101)'s daughter. They look very alike and I have seen her in countless pics. She also looks a lot like [Bruno, one of the conservatory trumpet teachers](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno). Could he be the father and therefore the groomer? |
+The woman in the pic above I believe is the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101)'s daughter. They look very alike and I have seen her in countless pics. She also looks a lot like [Bruno, one of the conservatory trumpet teachers](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno). Could he be the father and therefore the groomer? |
 
 ## Ongoing torment and terrorizing
 
