@@ -116,20 +116,22 @@ I do, however, have a lot of God.
 - It turns out, they had been sedating and raping me for years already, long before the "switcheroo" events and my sex-slave porn-stardom at the Vilamar apartments of Carrer Furs 15.
 - I believe I was repeatedly sedated, raped, and filmed in my apartments in Joan Fuster 11 between 2014-2016, Passeig Periodista Ramon Ortega between 2012-2014, and even at my flat in Cami Llavador 5 between 2006-2009.
 - I was sedated and raped in [Amsterdam in 2001](timeline/2001-to-2010/2001.md#amsterdam) by my boyfriend and his criminal associates from North London and Dénia.
+- One of those criminal associates, a man with a severe facial disfigurement who may be related to another ex-boyfriend of mine Matthew, was set up to [repeat that event](timeline/2024/august.md#ugly) in France in 2024 when the gangs were panicking and needed someone to throw under the bus.
 - I was sedated and raped repeatedly in August-September of 1989 in Tottenham by North London rape-gangs.
 - These are the sedated-rape events I'm sure about but it would not surprise me if there were many, many more.
 - I believe British gangs colluded with my father from as early as 1989 when child-rape-porn starring myself was disseminating through the networks.
 - I expect the people that showed him these films were instrumental in his unusual and sudden decisions to visit me in Spain in 2013, 2015, and 2016 when he brought my mother with him.
 - He had never visited me before without an exceptional reason to do so, anywhere I lived.
 - I believe he was set up to [take a starring role](timeline/early-years/2015.md#inexplicable-anal-fissure) in an incest special filmed at Joan Fuster in 2015 which everyone knows about.
-- During the *switcheroo* special, the *father* meme was reinforced constantly as if the whole town had watched my father anally-rape me while sedated, grinning in the bathroom after I woke to see him run out of my bedroom door, and just delighted in it!
-- When my mother visited with him, they stayed at the Hotel Costa Blanca, the establishment I experienced an inexplicable emotional reaction the night I stayed there on the same day as my first piano lesson with Domingo Lopez Cano.
+- During the gang-stalking terror at the conservatory, the *father* meme was reinforced constantly as if the whole town had watched my father anally-rape me while sedated, grinning in the bathroom after I woke to see him run out of my bedroom door, and they all just delighted in it!
+- When my mother visited with him in 2016, they stayed at the Hotel Costa Blanca; the same establishment in which I experienced an inexplicable emotional reaction the night after my first piano lesson with Domingo Lopez Cano.
 - My mother experienced a panic attack while staying there with my father, and even went to A&E because she thought she was having a heart attack.
 - My father did not want to tell me about it, and had told my mother not to tell me, not to wake me, but she told me over lunch the next day.
-- My father's involvement finally triggered a severe suicidal depression for which I had no context and thus assumed had to be again related to the 1989 North London attacks. 
-- The depression, ironically, prompted me to report a more detailed history about what had happened to me in 1989 to the Metropolitan police.
-- While I was writing the statement online in 2015, the criminals were relishing every word.
-- In 2023, during the gang-stalking at the conservatory, teachers, staff and students repeated words, phrases, and examples taken directly from this police statement the Metropolitan Police appeared to take very seriously, which, incidentally, Maria with the swollen liver signed as a witness. 
+- My father's involvement in all this finally triggered a severe suicidal depression for which I had no context and thus assumed had to be again related to the 1989 North London attacks. 
+- The depression, ironically, prompted me to report a more detailed history about what had happened to me in 1989 to the Metropolitan Police.
+- While I was writing [that police statement online in 2015](timeline/early-years/2015.md#statement-to-the-metropolitan-police), the criminals were relishing every word.
+- In 2023, during the gang-stalking at the conservatory, teachers, staff and students repeated words, phrases, and acted-out things taken directly from this police statement.
+- And incidentally and ironically, [Maria with the swollen liver](timeline/early-years/2015.md#vipasana-maria) had signed this statement as a witness. 
 
 ### Police and government corruption
 
