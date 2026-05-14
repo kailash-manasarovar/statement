@@ -402,5 +402,5 @@ This police statement is set out into different sections.
 - *Fear & Loathing in Las Marinas* is the third and final part of the Ark Project Trilogy.
 - Part two, prophetic-horror [*AntiChrist by Jack Chardwood*](https://www.amazon.com/AntiChrist-Jack-Chardwood-ebook/dp/B0167HVL2K/) written in 2015, was inspired by the events at the conservatory of Dénia between 2014-2015, specifically the bizarre relationship with Domingo Lopez Cano, a true-blue misogynist.
 - Themes arising in this book appear to have also been inspired by events going on without my knowledge and while I was unconscious.
-- Part one, multi-universe romance *Life Without The Liar*, was inspired, I thought, by the need to heal myself from the 1989 North London rape-gang events.
+- Part one, multi-universe romance [*Life Without The Liar*](https://www.amazon.com/Life-Without-Liar-Margaret-Murphy-ebook/dp/B00M0CZN94), was inspired, I thought, by the need to heal myself from the 1989 North London rape-gang events.
 - However, again, themes and characters arising in this novel perhaps more closely reflect the sex crimes going on Dénia without my knowledge over many years and, without that context, I related everything back to what I had always been consciously aware of.
