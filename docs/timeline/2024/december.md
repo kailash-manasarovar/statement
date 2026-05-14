@@ -193,10 +193,10 @@ function googleTranslateElementInit() {
 
 ## Sketching the novel
 
-- I sketch some novel themes given there hasn't been a sudden rush to arrest any criminals or safeguard any children, an ongoing disappointment.
-- Perhaps I'm just a little naive about what can be done about a trillion-tentacled, spidery horror-porn enterprise, and whether if law enforcement takes its time, we get every last one of them!
-- I dunno though; I do get down from time to time.
-- I am visualizing and continually manifesting a three-season Netflix documentary special, but I am also seeing a true fiction series with Margot Robbie as me and Jake Gyllenhaal as Domingo (I always had him playing the role).
+- Disappointed that there hasn't been a sudden rush to arrest any criminals or safeguard any children, I shift gears and think about my police statement in novel form.
+- Perhaps I'm just a little naive about what can be done about a trillion-tentacled, spidery, murderous horror-porn enterprise, and whether if law enforcement takes its time, we get every last one of them!
+- I dunno though; I do get down from time to time and it's been a long haul (time of writing).
+- In December 2024, I am visualizing manifesting a three-season Netflix documentary special, but I'm also seeing a true fiction series with Margot Robbie as me, and Jake Gyllenhaal as Domingo (I always had him playing the role).
 
 [![Jake Gyllenhaal](../../content/images/jake-gyllenhaal.jpg)](https://x.com/1FRGVN/status/1697691210301755536)
 
@@ -205,7 +205,7 @@ function googleTranslateElementInit() {
 ??? info "Novel and documentary theme sketch"
     Novel documentary themes</br>
     Summary</br>
-    - Traditional gang stalking of Women in Spain, and how everyone knew, and from when</br>
+    - Traditional gang stalking of women in Spain, and how everyone knew, and from when</br>
     - Modern gang stalking, mass voyeurism, close links with porn and sexual violence</br>
     - Hacking and access to everyone’s networks</br>
     - Cyber stalking and mobbing by the conservatory, fantastical choreographed events by teachers and staff, when it didn’t work it spread into the town, and townsfolk</br>
@@ -224,9 +224,9 @@ function googleTranslateElementInit() {
     Back story</br>
     - Pedophilia, sexualization of children</br>
     Back story</br>
-    - Damage to me personally: loss of jobs, constant stress and anxiety, racing mind, feeling intense sexual arousal, fear for my life, constant fear in Denia, actual kidney damage from poisoning</br>
+    - Damage to me personally: loss of jobs, constant stress and anxiety, racing mind, feeling intense sexual arousal, fear for my life, constant fear in Dénia, actual kidney damage from poisoning</br>
     - Tecnofix Alicante Padre Marina</br>
-    - Finish girl and boyfriend in the car with me January 24 breathing in whatever</br>
+    - Finnish girl and boyfriend in the car with me January 24 breathing in whatever</br>
 
 ## Fake accounts and targets
 
