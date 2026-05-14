@@ -193,14 +193,14 @@ function googleTranslateElementInit() {
 
 ## Sketching the novel
 
-- Disappointed that there hasn't been a sudden rush to arrest any criminals or safeguard any children, I shift gears and start thinking about my police statement in novel form.
+- Disappointed that there hasn't been a sudden rush to arrest any criminals or safeguard any children and babies, I shift gears and start thinking about my police statement in novel form.
 - Perhaps I'm just a little naive about what can be done about a trillion-tentacled, spidery, murderous horror-porn enterprise, and whether if law enforcement takes its time, we get every last one of them!
-- I dunno though; I do get down from time to time and it's been a long haul (time of writing).
-- In December 2024, I am visualizing manifesting a three-season Netflix documentary special, but I'm also seeing a true fiction series with Margot Robbie as me, and Jake Gyllenhaal as Domingo (I always had him playing the role).
+- I dunno though; I do get down from time to time and it's been a long haul (time of writing May 2026).
+- In December 2024, I am visually manifesting a three-season Netflix documentary special, but I'm also seeing a true fiction series with Margot Robbie as me, and Jake Gyllenhaal as Domingo (I always had him playing the role).
 
 [![Jake Gyllenhaal](../../content/images/jake-gyllenhaal.jpg)](https://x.com/1FRGVN/status/1697691210301755536)
 
-- I added this section in November 2025 while I was backing up my email accounts and trying to organize the thousands of snippets of saved information I had at that time.
+- I added this section in November 2025 while I was backing up my email accounts - backups that were stolen by hackers in the UK in January 2026 - and trying to organize the thousands of snippets of saved information I had at that time.
 - The notes that inspired this section come from draft scribbles written the year before.
 - Here's the MacBook note I wrote in or around December 2024:
 
