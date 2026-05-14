@@ -118,6 +118,7 @@ I do, however, have a lot of God.
 - I was sedated and raped in [Amsterdam in 2001](timeline/2001-to-2010/2001.md#amsterdam) by my boyfriend Brian and his criminal associates from North London and Dénia.
 - One of those criminal associates, a man with a severe facial disfigurement who may be related to another ex-boyfriend of mine Matthew, was set up to [repeat that event](timeline/2024/august.md#ugly) in France in 2024 when the gangs were panicking and needed someone to throw under the bus.
 - I was sedated and raped repeatedly in August-September of 1989 in Tottenham by North London rape-gangs.
+- And of course, [whatever was going on in Bali](timeline/2024/may.md#bali) with me in the starring role is extremely suspicious.
 - These are the sedated-rape events I'm sure about but it would not surprise me if there were many, many more.
 - I believe British gangs colluded with my father from as early as 1989 when child-rape-porn starring myself was disseminating through the networks.
 - I expect the people that showed him these films were instrumental in his unusual and sudden decisions to visit me in Spain in 2013, 2015, and 2016 when he brought my mother with him.
