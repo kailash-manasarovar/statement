@@ -89,7 +89,7 @@ I do, however, have a lot of God.
 
 - From February 2022 to October 2025, I was drugged continuously with hallucinogens and other substances.
 - This ensured the efficacy of [the switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) while it was going on, and a continued inability to understand it afterwards.
-- The hallucinogens were also used to exacerbated all emotional content; specifically terror, confusion and anxiety resulting from constant gang-stalking, and intense and overwhelming sexual arousal.
+- The hallucinogens were also used to exaggerate all emotional content; specifically terror, confusion and anxiety resulting from constant gang-stalking, as well as the intense and overwhelming sexual arousal.
 - My view is that the hallucinogens, along with sedatives and *happy pills*, were also used to keep my mind in a confused state so that I failed to notice the obvious signs of sedating-events when they happened.
 - As soon as I had a period of continued clarity, the memories of those unusual events returned.
 - [Sudden onset pre-glaucoma symptoms](timeline/2024/november.md#pre-glaucoma-diagnosis) point toward constant drug-taking as my pupils would have been near-permanently dilated, for years.
