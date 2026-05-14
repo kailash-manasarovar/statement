@@ -232,7 +232,15 @@ function googleTranslateElementInit() {
 
 ## Fake accounts and targets
 
-- Every day I see fake accounts with another couple of women on a regular basis, one of whom appears to be extremely anorexic in one example but not others.
+- Every day I continue to see fake accounts with targeted or significant women on them.
+- One woman I see over and over has the [same tattoo the groomed-girl](august.md#grooming-an-innocent-girl-into-porn-101) and [the woman walking with the possum-man](october.md#possum-man-on-the-beach) had.
+
+!!! tip "A curious synchronicity"
+    - I'm not kidding now but in March 2026, on the first afternoon (23rd March I think) I volunteer for the winter service at the baths at Lourdes (I had given the water gesture to a couple of pilgrims already with a lovely man called Marc to get me feeling confident again and then he left me alone), the first woman who comes into the baths also has this tattoo on her arm.
+    
+- In early-groom photos she looks slim, and then in obvious later-groom stages she seems extremely anorexic.
+- She reminds me of a dreadfully sinister porn-account I saw in the early days of a severely emaciated girl who was always accompanied by a brutish father she wrote about sexually.
+- Those images were grainy in the same way the [Taru Ann](march/13-end.md#taru-ann) account and others were.
 - These will be the last pics I post unless something extraordinarily egregious comes up.
 
 | Fake accounts and targets |
