@@ -353,8 +353,9 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 ![sandra](../../content/images/fake-accounts/sandra-s.png)
 
 - At the time of writing, nearly 18-months later, precious little has changed and I understand the children of Dénia are still being sacrificed at the altars of porn.
+- I wasn't to know then that the constant drugging and poisoning was very much set to continue as soon as I arrived back in the UK.
 
-### Google search on `jctot19 x`
+### The harmony teacher Alfonso pops up on`jctot19 x` Google search
 
 - The usual pics coming up. One that I have noticed over the last months but it didn't register until today was a very scared looking man who looks exactly like Alfonso the Harmony teacher in year 4.
 - He was very alarmed when I told everyone I had to leave because my life had been threatened.
