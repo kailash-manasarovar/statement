@@ -104,6 +104,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - He was one of the main men starring in the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) with Carmen Cano in attendance (masquerading or not) as Pablo's mum.
 - He had a soft pleasant voice and he was the man who left messages on my phone.
 - He was the man I spoke to who [mentioned a *double session* in a perverted way](../../timeline/2023/may.md#teb-with-robin) the night before I saw evidence of anal rape.
+- He was [the man waiting for me at Alicante airport on 18th June 2023](../../timeline/2023/june.md#sunday-18th-june-alicante-airport) when I flew back from Dublin after TT training.
 - I believe this is an old picture of him, his family and siblings.
 
 ![Vigas](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
