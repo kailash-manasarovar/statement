@@ -261,7 +261,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - One profile message says, "stay away bitch" - I didn't manage to screenshot it but it will be available on the likes from this tweet: https://x.com/1FRGVN/status/1867853572647596391 as will many others, including a bunch of messages in fake-account profiles about [Toby (Trish Penny's son) going missing](#wheres-toby).
 - Are they worried that Trish's husband is going to drop them in it too?
 - They do seem to be fighting amongst themselves, and I find this encouraging.
-- I send a message to [mailto:016-online@igualdad.gob.es](https://violenciagenero.igualdad.gob.es/en/informacionUtil/recursos/telefono016/home.htm), a gender violence organization in Spain, asking for help about what I'm going to do when I come back to Spain in January.
+- I send a message to [mailto:016-online@igualdad.gob.es](https://violenciagenero.igualdad.gob.es/en/informacionUtil/recursos/telefono016/home.htm), a government gender violence organization in Spain, asking for help about what I'm going to do when I come back to Spain in January.
 - I explain how much danger I'm in.
 - I get no help or advice from them in reply, just a message to say I can contact them for advice.
 - They give me no advice at all.
