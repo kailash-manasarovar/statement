@@ -149,7 +149,7 @@ I do, however, have a lot of God.
 - The conservatory is just one example of criminal porn-gang infiltration into the whole of society in the region - the most horrific bar the baby-rape industry.
 - All over Dénia, men young and old drive flashy new sports cars worth minimum $50K and upwards and this is a poor town with apparently zero industry.
 - I detail other unusual events taking place in and around the town, and often centred on the conservatory, that may point to international child-sex-trafficking.
-- I also believe that the unusual protections awarded to all criminals in the town of Dénia has already made the place somewhat infamous this has, therefore, attracted multiple criminal gangs to come and set up shop over the years with the understanding that they can do whatever they like, to anyone! 
+- I also believe that the unusual protections awarded to all criminals in the town of Dénia has already made the place somewhat infamous and this infamy has, therefore, attracted multiple criminal gangs to come and set up shop over the years with the understanding that they can do whatever they like, to anyone! 
 
 ### The global tech-bro porn-addict community
 
