@@ -26,13 +26,13 @@ This document details the multiple crimes committed against myself, and countles
 
 I am Dr Katharine Margaret Murphy, Y2775989H; previously residing at Carrer Furs 15, Bloque 1, Escalera 2, Piso 3, Apartamento 17, Dénia, 03700 Alicante, Spain; an apartment set up with advanced spy-cam technology.
 
-Over the three years I lived in Carrer Furs, Dénia, after [finding the apartment available online on the 8th December 2021](timeline/2021/december.md#too-good-to-be-true-on-the-8th-december), and [signing the lease which included a death clause](timeline/2021/december.md#death-clause), and moving in on [15th December 2021 to find semen stains on the sofa](timeline/2021/december.md#semen-stains-on-the-sofa), I was drugged, poisoned, brain-damaged, repeatedly sedated after going to bed, filmed and live-streamed to millions of porn-addicts around the world.
+Over the three years I lived in Carrer Furs, Dénia, after [finding the apartment available online on the 8th December 2021](timeline/2021/december.md#too-good-to-be-true-on-the-8th-december), and [signing the lease which included a death clause](timeline/2021/december.md#death-clause), and moving in on [15th December 2021 to find semen stains on the sofa](timeline/2021/december.md#semen-stains-on-the-sofa), I was drugged, poisoned, brain-damaged, repeatedly sedated and raped after going to bed, and live-streamed to millions of porn-addicts around the world.
 
 Eventually, because I had no idea about what was happening to me, and because the gang's attempts at frightening me always failed, they tried to murder me by poisoning.
 
 I continue to be gang-stalked and cyber-terrorized online and in-person to this day.
 
-Up until I remembered [something extraordinary about the Tenor Cortis conservatory of Dénia in September 2025](timeline/2025/october.md#thunderbolt-clarity) and how it doubles as a porn-studio using teachers, staff, and children as its actors - with unwitting students as its drugged and brain-damaged *porn-stars* - I continued to suffer clandestine drugging and poisoning (attempted murder) anywhere I was in the world.
+Up until I remembered [something extraordinary about the Tenor Cortis conservatory of Dénia, a government-run music school, in September 2025](timeline/2025/october.md#thunderbolt-clarity) and how it doubles as a porn-studio using teachers, staff, and children as its actors - with unwitting students as its drugged and brain-damaged *porn-stars* - I continued to suffer clandestine drugging and poisoning (attempted murder) anywhere I was in the world.
 
 After I realized the extent to which the Spanish school system has been taken over by international criminal porn-gangs, I was only briefly drugged one time in Lourdes in April 2026 and all poisoning has since ceased.
 
@@ -46,12 +46,12 @@ I do, however, have a lot of God.
 
 ### Porn fatwa
 
-- Since at least 2001, I have been the subject of a [porn fatwa](timeline/2001-to-2010/2003.md#porn-fatwa) issued by the same UK criminal gangs responsible for distributing criminal porn made by North London rape-gangs.
-- I believe that this was, initially, due to them finding out I was going to receive £250K compensation for the Lockerbie terrorist bombing in which my aunt was murdered.
-- At the time, and to whet the porn-addict appetite, [pedophile pornography made by North London rape-gangs in 1989](timeline/2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) starring me, sedated, was proliferated throughout criminal porn-addict networks.
+- Since at least 2001, I have been the subject of a [*porn fatwa*](timeline/2001-to-2010/2003.md#porn-fatwa) issued by UK criminal gangs.
+- I believe that this was, initially, due to them finding out I was about to receive £250K compensation for the Lockerbie terrorist bombing in which my aunt was murdered.
+- At the time, and to whet the porn-addict appetite, [pedophile pornography made by North London rape-gangs in 1989](timeline/2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) starring me, sedated, was proliferated through criminal porn-addict networks.
 - Specifically, porn-addicts were tasked with gaining more illicit porn with me in it - be it from hidden cameras or while sedated - and they obliged.
-- As soon as I was in receipt of the compensation, they would move in with the films and demand I hand my money over.
-- Except, something curious happened and the porn with me in it began to make more money for the gangs than any savings I might have been persuaded to let go of; and so motives switched early on and instead I became a prime target for the world's best known, and most loved, criminal porn studio of Dénia.
+- As soon as I was in receipt of the compensation, the gangs planned to move in with the films and demand I hand my money over.
+- Except, something curious happened and the porn with me in it began to make more money for the gangs than any savings I might have been persuaded to let go of; and so motives switched early on and I became a prime target for the world's best known, and most loved, criminal porn studio of Dénia.
 - Due to this, I have been under constant criminal surveillance for more than twenty-five years.
 - The gangs know where I am to pinpoint precision: what I'm doing, who I talk to, where I work and who my porn-subscriber colleagues are.
 - They read everything I write, watch everything I do online, attend work meetings, yoga classes, and therapy sessions with me, while keeping a careful eye on my financial status.
@@ -78,30 +78,29 @@ I do, however, have a lot of God.
 - When moving from spy-cam, honey-trap love affairs to sedated-rape back in the 90s, the gangs will have noticed that targets suffer with intense anxiety and depression after being sedated and raped. 
 - I report on other women in the region who may have been targeted in the same way I was due to their inexplicable panic attacks and other suspicious symptoms, including my mother.
 - In fact, my guess is this community has been brain-damaging women for centuries in order to rape them in macabre ways, and then laugh and point, and undoubtedly the same trauma effects have arisen in all victims historically.
-- So, in order to "explain away" these expected feelings to a sedated-rape victim, the gangs create incessant and intricate, carefully choreographed, terror-vignettes starring multiple known protagonists that render a victim so anxious she doesn't notice the inexplicable anxiety and depression.
-- I detail these near-daily instances of physical stalking assisted by pinpoint tracking of my movements via my hacked mobile phones in order to harass me and create anxiety-forming situations with the sole intention of terrorizing me into believing that the extreme anxiety and grievous mental and emotional harm I was suffering due to repeated sedated rape had a "logical reason".
-- I assume the gangs expected this anxiety to also cover over the toxic physical side-effects arising from constant drugging and poisoning.
-- Back in the UK in July 2024, while the terror was ongoing, I [stood as a candidate for general election](timeline/2024/june.md#volunteers-not-what-they-seem) and was stalked endlessly by criminal gangs.
+- So, in order to "explain away" these expected trauma-reactions to a sedated-rape victim, the gangs create incessant and intricate, carefully choreographed, terror-vignettes starring multiple known protagonists that render a victim so anxious she doesn't notice the true inexplicability of the anxiety and depression.
+- I detail these daily instances of physical stalking assisted by pinpoint tracking of my movements via my hacked mobile phones in order to harass me and create anxiety-forming situations with the sole intention of terrorizing me into believing that the extreme anxiety and grievous mental and emotional harm I was suffering, due to repeated sedated rape, had a "logical reason".
+- I assume the gangs expected this anxiety to also mask the toxic physical side-effects arising from constant drugging and poisoning.
+- Back in the UK in July 2024, while the terror was ongoing, I stood as a [candidate for general election](timeline/2024/june.md#volunteers-not-what-they-seem) and was stalked endlessly by criminal gangs.
 - They even wheeled out [the 1989 North London rape-gang boss Winston May](timeline/2024/june.md#winston-may) who I complained about twice to the Metropolitan Police; once in 2006, and then again in 2015. 
-- I expect he had been in prison at the time and was given a day out for this purpose alone.
+- Given he could hardly walk he was so high when I saw him, I expect he had been in prison at the time and was given a day out for the sole purpose of terrorizing me.
 
 ### Drugging and poisoning with brake-fluid, pesticides, and other substances
 
 - From February 2022 to October 2025, I was drugged continuously with hallucinogens and other substances.
 - This ensured the efficacy of [the switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) while it was going on, and a continued inability to understand it afterwards.
-- The hallucinogens were also used to exaggerate all emotional content; specifically terror, confusion and anxiety resulting from constant gang-stalking, as well as the intense and overwhelming sexual arousal.
+- The hallucinogens were also used to exaggerate all emotional content; specifically terror, confusion and anxiety resulting from constant gang-stalking, and intense and overwhelming sexual arousal resulting from aphrodisiac intake coupled with online manipulation from hacked devices.
 - My view is that the hallucinogens, along with sedatives and *happy pills*, were also used to keep my mind in a confused state so that I failed to notice the obvious signs of sedating-events when they happened.
 - As soon as I had a period of continued clarity, the memories of those unusual events returned.
 - [Sudden onset pre-glaucoma symptoms](timeline/2024/november.md#pre-glaucoma-diagnosis) point toward constant drug-taking as my pupils would have been near-permanently dilated, for years.
 - Unusually elevated eye-pressure readings were reported as soon as I returned to Dénia in 2022.
 - Whatever they gave me to invoke timed and overwhelming sexual-arousal was extremely effective and, given it always seemed to come on around lunchtimes - porn-addict showtime - I wonder if my neighbors popped in to add those substances to my lunch items while I was at the conservatory in the mornings.
-- I believe that from around April to December 2023 I was also given some "physical performance" related substances as my yoga practice improved in miraculous ways, for just those months!
-- Curiously, something similar had happened to my body in September 1989 while I was in the clutches of the North London rape-gangs.
+- I believe that from around April to December 2023 I was also given some "physical performance" related substances as my yoga practice improved in miraculous ways, for just those months! (Curiously, something similar had happened to my body in August-September 1989 while I was in the clutches of the North London rape-gangs.)
 - I felt physically twenty-years younger for a short period and I have to wonder if that was intended as preparation for the planned faux-relationship leading to marriage (sudden death and inheritance) in which the sex would be filmed without my knowledge.
 - Along with this, the gangs are poisoning me repeatedly with brake-fluid and antifreeze, pesticides, and similarly deadly substances.
 - It's not clear why they would continuously risk the life of their live-streaming, sex-slave porn-star other than that they are murderously insane and their hatred of women makes the caliphate look like pussycats.
 - My brain was damaged with poisoning over many years and I now have a perceptual injury whereby I'm unable to recognize objects out of context; this ensured that a group of vastly different-looking men - dressing the same, using the same voice (only one of them speaks), and performing the same actions - I thought were the same one man.
-- I was drugged and poisoned without my knowledge; [in class at the conservatory](timeline/2023/january.md#serious-poisoning-at-chamber-music-class), at home via tampered-with water mains and air systems, in my car (sprayed/misted onto surfaces) and onto all my belongings before I moved away, in my hotel rooms and wherever criminals have gained illicit access for adding poisons and drugs to my personal items such as food, water, makeup and bathroom products - the most recent egregious example of this occurring in [July 2025 in Lourdes](timeline/2025/july.md#lourdes) - and in the street during numerous distract-and-drug events I detail in this statement.
+- I was drugged and poisoned without my knowledge; [in class at the conservatory](timeline/2023/january.md#serious-poisoning-at-chamber-music-class), at home via tampered-with water mains and air systems, in my car (sprayed/misted onto surfaces) and onto all my belongings before I moved them to London, in my hotel rooms and wherever criminals gained illicit access for adding poisons and drugs to my personal items such as food, water, makeup and bathroom products - the most recent egregious example of this occurring in [July 2025 in Lourdes](timeline/2025/july.md#lourdes) - and in the street during numerous distract-and-drug events I detail in this statement.
 - On Halloween night in 2023, [I was poisoned with brake-fluid or anti-freeze](timeline/2023/november.md#starting-my-new-job) and expected to sustain a serious injury or death at that time.
 - At the end of October 2024, I was supposed to die by poisoning with brake-fluid, anti-freeze, methanol or similar, [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-kill), doused over all my belongings, and added to my bathroom products for absorption through the skin.
 - The porn-gangs and their subscribing audiences, from lengthy experience, were absolutely certain of my demise and their freedom to murder a victim without consequence.
@@ -122,16 +121,16 @@ I do, however, have a lot of God.
 - These are the sedated-rape events I'm sure about but it would not surprise me if there were many, many more.
 - I believe British gangs colluded with my father from as early as 1989 when child-rape-porn starring myself was disseminating through the networks.
 - I expect the people that showed him these films were instrumental in his unusual and sudden decisions to visit me in Spain in 2013, 2015, and 2016 when he brought my mother with him.
-- He had never visited me before without an exceptional reason to do so, anywhere I lived.
-- I believe he was set up to [take a starring role](timeline/early-years/2015.md#inexplicable-anal-fissure) in an incest special filmed at Joan Fuster in 2015 which everyone knows about.
-- During the gang-stalking terror at the conservatory, the *father* meme was reinforced constantly as if the whole town had watched my father anally-rape me while sedated, grinning in the bathroom after I woke to see him run out of my bedroom door, and they all just delighted in it!
+- He had never visited me before without an exceptional reason to do so.
+- I believe he was set up to [take a starring role](timeline/early-years/2015.md#inexplicable-anal-fissure) in an incest-porn special filmed at Joan Fuster in 2015 which everyone knows about.
+- During the gang-stalking terror at the conservatory, the *father* meme was reinforced constantly as if the whole town had watched my father anally-rape me while sedated, grinning in the bathroom after I woke to see him run out of my bedroom door, and they all simply delighted in it!
 - When my mother visited with him in 2016, they stayed at the Hotel Costa Blanca; the same establishment in which I experienced an inexplicable emotional reaction the night after my first piano lesson with Domingo Lopez Cano.
-- My mother experienced a panic attack while staying there with my father in 2016, and even went to A&E because she thought she was having a heart attack.
+- My mother experienced a panic attack while staying there with my father in 2016, and they even went to A&E because she thought she was having a heart attack.
 - My father did not want to tell me about it, and had told my mother not to tell me, not to wake me, but she told me over lunch the next day.
 - My father's involvement in all this finally triggered a severe suicidal depression for which I had no context and thus assumed had to be again related to the 1989 North London attacks. 
 - This depression, ironically, prompted me to report a more detailed history about what had happened to me in 1989 to the Metropolitan Police.
 - While I was writing [that police statement online in 2015](timeline/early-years/2015.md#statement-to-the-metropolitan-police), the criminals were relishing every word.
-- In 2023, during the gang-stalking at the conservatory, teachers, staff and students repeated words, phrases, and acted-out scenes taken directly from this police statement.
+- In 2023, during the gang-stalking at the conservatory, teachers, staff, students, and townsfolk repeated words, phrases, and acted-out scenes taken directly from this police statement.
 - And incidentally and ironically, [Maria with the swollen liver](timeline/early-years/2015.md#vipasana-maria) had signed this statement as a witness. 
 
 ### Police and government corruption
