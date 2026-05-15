@@ -330,7 +330,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 ### New Year's Eve
 
-- I decided to swap over from the MacBook and use the Linux laptop again; the machine which the [technician I hired to find evidence of hacking in April 2024](../2024/april.md#dpr-cyber-expert-alicante) reset to factory settings.
+- I decided to swap over from the MacBook and use the Linux laptop again; the machine which the [technician I hired to find evidence of hacking in April 2024](../2024/april.md#dpr-cyber-expert-alicante) had reset to factory settings.
 - I move my Google account over.
 - I then change the password to the laptop with no Internet connection.
 - After connecting the Linux laptop online again, a ridiculous Facebook post tells me they're in already.
@@ -343,7 +343,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 - I already knew it but this proves again that Dénia and North London criminals have *total* access to my devices no matter what I do.
 - I can't understand what's so special about me for them to have devoted so much effort into terrorizing me.
-- I start feeling really overwhelmed with what has happened to me over the last three years; everything I've lost, the silence from law-enforcement, the constant abuse I have been suffering, and the poisoning and drugging.
+- I start feeling really overwhelmed with what has happened to me over the last three years; everything I've lost, the silence from law-enforcement, the constant abuse I have been suffering, never mind the poisoning and drugging.
 - I tweet about it:
 
 [![Overwhelmed with the evil](../../content/tweets/overwhelmed-with-the-evil.jpg)](https://x.com/1FRGVN/status/1874100344021803398)
