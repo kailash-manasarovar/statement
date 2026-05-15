@@ -355,13 +355,17 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - At the time of writing, nearly 18-months later, precious little has changed and I understand the children of Dénia are still being sacrificed at the altars of porn.
 - I wasn't to know then that the constant drugging and poisoning was very much set to continue as soon as I arrived back in the UK.
 
-### The harmony teacher Alfonso pops up on`jctot19 x` Google search
+### The harmony teacher Alfonso pops up on Google search
 
-- The usual pics coming up. One that I have noticed over the last months but it didn't register until today was a very scared looking man who looks exactly like Alfonso the Harmony teacher in year 4.
-- He was very alarmed when I told everyone I had to leave because my life had been threatened.
-- The hackers on Twitter referred to him as "Brat". I assume that would be Domingo as he would know him best.
+- I do a search with `@jctot19 X`.
+- The usual pics come up.
+- One that I have noticed over the last months, but it didn't register until today, is a very scared looking man who looks exactly like Alfonso who taught harmony class from September 2023 at the conservatory.
+- He, alone, expressed alarm when I told everyone I had to leave my conservatory studies in March 2024 because my life had been threatened.
 
 ![harmony teacher looking scared](../../content/images/google-searches/harmony-teacher.png)
+
+- The hackers on Twitter referred to him as a "brat". 
+- Did Alfonso complain about what was going on, without realizing the fuller monstrous scale of the problem at the conservatory of Dénia.
 
 ### Lucyfer Adams
 
