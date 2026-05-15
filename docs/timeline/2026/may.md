@@ -52,7 +52,7 @@ function googleTranslateElementInit() {
 - One wonders if, while no-one cares about the porn-gangs destroying the world, populations of porn-gang targets (we must be in the millions by now) and of course Spain's honey-trap targets who cannot rely on healthcare and assume basic human rights, will drift away from society and form liminal-space communities as we have been, essentially, told we don't exist, that our lives don't matter. Seems a reasonable view into the future...
 - God reminds me that even if it is no fun at all; I have felt far worse for more inconsequential things, so that's good.
 
-## Kailash
+## Kailash preambles
 
 - I'm returning to Kailash after eleven years, God Willing, might need a horse though.
 - It's somewhat miraculous I am doing so, even though I might need a horse.
@@ -69,3 +69,19 @@ function googleTranslateElementInit() {
 - Then we'll be here in the swamp another trillion years.
 - Although, I'm gonna ask for special dispensation to not come back again. Perhaps I earned it this time.
 - I do feel like I could do a whole lot more good stuff, but hey.
+
+## Ark of Safety
+
+- Been thinking about this.
+
+![Ark of Safety](../../content/images/ark-of-safety.png)
+
+- Who might be able to supply one?
+- I think Baby Seal might be able to do it.
+- If she prays hard enough and we all pray along with her.
+
+![Baby seal US](../../content/images/baby-seal-us.png)
+![Baby seal IL](../../content/images/baby-seal-il.png)
+
+- No, I didn't lose my mind at all.
+- Let's do this.
