@@ -274,7 +274,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 ![stay alive](../../content/images/stay-alive.JPG)
 
 - Remember, Karolina is the name of the woman [Mike Wenham murdered](../2001-to-2010/2010.md#mike-wenham).
-- One of the fake accounts [I posted earlier](august.md#suspected-targets) likes one of my posts again. 
+- One of the fake accounts [I posted earlier](august.md#4) likes one of my posts again. 
 - I challenge them. 
 
 [![full banga challenge](../../content/images/fake-accounts/fullbanga-challenge.png)](https://x.com/1FRGVN/status/1872110003626414167)
