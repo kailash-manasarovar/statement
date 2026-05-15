@@ -325,7 +325,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - Were these threatening tweets about Toby more messages from criminals to law-enforcement that I was in the middle of?
 - Later, another account flies by with the message, "Trish does things".
 - I have no idea what it means but feel like my suspicions about Trish being involved malevolently in the porn-gangs grooming and stalking business were more than sound.
-- The question remains if she has any choice in the matter.
+- The question remains if she has any choice in the matter, or whether she has been allowed the mental capacity to even understand what's truly going on.
 
 ### New Year's Eve
 
