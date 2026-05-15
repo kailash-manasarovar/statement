@@ -338,6 +338,15 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - The account name is "Lucyfer Adams"
 - I note it.
 
+## A curious new intuitive skill
+
+- I'm not yet fully aware that my online conversations with criminal gangs have generated a lot of interest in international law enforcement organizations - although I'm sensing something's changed on the social-media hack I've been navigating for years.
+- My handwritten letters - particularly the supplementary page - obviously had an impact.
+- Every time I go online, I'm interacting directly with known criminals like Hazel Smith, the Denia porn-gang members, and other British and Spanish criminals.
+- The thing is, the ability to do this on a social media space is somewhat unique; a new and very interesting skill.
+- I expect my new-found ability is mostly to do with language pattern recognition abilities finely-tuned by years of spiked-hallucinogen intake.
+- The criminals really shot themselves in the feet, didn't they.
+
 ## Detoxing in Samui, an unusual poo
 
 - It is day 5 or 6 of the fast and cleanse.
