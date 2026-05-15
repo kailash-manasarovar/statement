@@ -255,10 +255,16 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 ## Ongoing torment and terrorizing
 
-- The stalking and harassment on Twitter has not ceased.
-- There have been constant threats from Hazel and Sandra Smith. It has been relentless actually. One saying "stay away bitch", I didn't manage to screenshot it but it will be available on the likes from this tweet: https://x.com/1FRGVN/status/1867853572647596391 as will many others, including a bunch of messages in profiles about Toby going missing (Patricia's son); such as *Where's Toby?".
-- I send a message to [mailto:016-online@igualdad.gob.es](https://violenciagenero.igualdad.gob.es/en/informacionUtil/recursos/telefono016/home.htm) asking for help about what I'm going to do when I come back to Spain and explaining how much danger I'm in.
-- I get no help or advice from them in reply, just a message to say I can contact them for advice. They give me no advice. I read the reply email and get an immediate communication.
+- The stalking and harassment on Twitter is unceasing.
+- There have been constant threats from Hazel and Sandra Smith.
+- It has been relentless actually.
+- One saying "stay away bitch" - I didn't manage to screenshot it but it will be available on the likes from this tweet: https://x.com/1FRGVN/status/1867853572647596391 as will many others, including a bunch of messages in fake-account profiles about [Toby (Patricia's son) going missing](#wheres-toby).
+- Are they worried that Trish's husband is going to drop them in it too?
+- I send a message to [mailto:016-online@igualdad.gob.es](https://violenciagenero.igualdad.gob.es/en/informacionUtil/recursos/telefono016/home.htm), a gender violence organization in Spain, asking for help about what I'm going to do when I come back to Spain in January.
+- I explain how much danger I'm in.
+- I get no help or advice from them in reply, just a message to say I can contact them for advice.
+- They give me no advice at all.
+- I read the reply from them and receive an immediate communication, *no one cares*.
 
 ![no one cares](../../content/images/no-one-cares.JPG)
 
@@ -266,22 +272,26 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 ![stay alive](../../content/images/stay-alive.JPG)
 
-- One of the fake accounts from [suspected targets I posted earlier](august.md#suspected-targets) likes one of my posts again. I challenge them: https://x.com/1FRGVN/status/1872110003626414167. 
+- Remember, Karolina is the name of the woman who [Mike Wenham murdered](../2001-to-2010/2010.md#mike-wenham).
+- One of the fake accounts with a picture of a [suspected target that I posted earlier](august.md#suspected-targets) likes one of my posts again. 
+- I challenge them. 
 
-![full banga challenge](../../content/images/fake-accounts/fullbanga-challenge.png)
+[![full banga challenge](../../content/images/fake-accounts/fullbanga-challenge.png)](https://x.com/1FRGVN/status/1872110003626414167)
 
-- I ask if the "pussy" they're referring to is mine from when I was a minor: https://x.com/1FRGVN/status/1872129900842545220.
+- And I ask them if the "pussy" they're referring to is mine from when I was a minor: https://x.com/1FRGVN/status/1872129900842545220.
 - There is no reply.
-- Another dodgy account makes reference to gang rape by black men.
+- I challenge another dodgy account making reference to gang rape by black men.
 
 ![porn gang or constabulary](../../content/images/fake-accounts/porn-gang-or-constabulary.png)
 
-- On December 30th, I receive interactions from fake accounts related to Winston May.
-- The first like is from a name "Winston" on a tweet of mine about women's safety. So I look.
+- On December 30th, I receive interactions from fake accounts containing content related to Winston May.
+- The first like is from a name "Winston" on a tweet of mine about women's safety. 
+- So I look.
+- I'm just noticing other curiously significant messages on here too (time of writing May 2026).
 
 ![winston 1](../../content/images/fake-accounts/winston-like-1.JPG)
 
-- The first post on this fake account has his birthday, 5th December.
+- The first post on this fake account has Winston May's birthday, 5th December.
 
 ![winston 2](../../content/images/fake-accounts/winston-like-2.JPG)
 
@@ -289,14 +299,14 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 ![winston 3](../../content/images/fake-accounts/winston-like-3.JPG)
 
-- I continue to be completely alone against thousands.
-- It seems many many people would like me silenced.
+- I feel like I'm fighting a raging battle, all on my own, against thousands of perverts and their handmaidens.
+- It seems that many, many people would like me silenced.
     - Criminal porn gangs from London.
     - Criminal porn gangs from Dénia.
-    - Any supporting the above including the Generalitat de Valencia.
-    - Ineffective police in UK and Spain.
+    - Criminals supporting the above including the Generalitat de Valencia.
+    - Ineffective and corrupt police in the UK and Spain.
     - Misogynists generally.
-    - women's groups who have been told things to discredit me that they believe.
+    - Women's groups and sexual violence organizations who have been told to ignore me.
 
 ### Where's Toby?
 
