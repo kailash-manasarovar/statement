@@ -258,7 +258,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - The stalking and harassment on Twitter is unceasing.
 - There have been constant threats from Hazel and Sandra Smith.
 - It has been relentless actually.
-- One saying "stay away bitch" - I didn't manage to screenshot it but it will be available on the likes from this tweet: https://x.com/1FRGVN/status/1867853572647596391 as will many others, including a bunch of messages in fake-account profiles about [Toby (Patricia's son) going missing](#wheres-toby).
+- One saying "stay away bitch" - I didn't manage to screenshot it but it will be available on the likes from this tweet: https://x.com/1FRGVN/status/1867853572647596391 as will many others, including a bunch of messages in fake-account profiles about [Toby (Trish Penny's son) going missing](#wheres-toby).
 - Are they worried that Trish's husband is going to drop them in it too?
 - They do seem to be fighting amongst themselves, and I find this encouraging.
 - I send a message to [mailto:016-online@igualdad.gob.es](https://violenciagenero.igualdad.gob.es/en/informacionUtil/recursos/telefono016/home.htm), a gender violence organization in Spain, asking for help about what I'm going to do when I come back to Spain in January.
@@ -285,9 +285,9 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 ![porn gang or constabulary](../../content/images/fake-accounts/porn-gang-or-constabulary.png)
 
-- On December 30th, I receive interactions from fake accounts containing content related to Winston May.
+- On December 30th, I receive interactions from fake accounts containing content related to Winston May, North London rape-gang boss.
 - The first like is from a name "Winston" on a tweet of mine about women's safety. 
-- So I look.
+- So I go look at the profile.
 - I'm just noticing other curiously significant messages on here too (time of writing May 2026).
 
 ![winston 1](../../content/images/fake-accounts/winston-like-1.JPG)
