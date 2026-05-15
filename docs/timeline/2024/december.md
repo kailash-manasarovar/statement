@@ -322,6 +322,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - Is Toby suffering the same as me (time of writing May 2026)?
 - Was he so appalled by the outrageous and murderous goings-on in the region - and even perhaps what was happening to his own mother and family - that he is now stalked relentlessly by British and Spanish criminal gangs to the extent that he is stateless?
 - Is Japan the only country they can't get a hold of him?
+- Did Toby apply for asylum in Japan?
 - Were these threatening tweets about Toby more messages from criminals to law-enforcement that I was in the middle of?
 - Later, another account flies by with the message, "Trish does things".
 - I have no idea what it means but feel like my suspicions about Trish being involved malevolently in the porn-gangs grooming and stalking business were more than sound.
