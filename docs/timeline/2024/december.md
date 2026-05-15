@@ -372,7 +372,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - A yappy stalker account flies by a lot over the month.
 - The account name is "Lucyfer Adams".
 - I note it as significant without knowing why.
-- When I meet Paul - tasked with distracting me, topping me up, persuading me to travel to more illicit-porn film shoot locations, and God knows what else - in early January he will tell me about [his best mate Lucy](../2025/january.md#pauls-friend-lucy).
+- When I meet Paul - tasked with distracting me, topping me up, persuading me to travel to more illicit-porn filming locations, and God knows what else - in early January he will tell me about [his best mate Lucy](../2025/january.md#pauls-friend-lucy).
 - Lucy is clearly a criminal gang member and I will bump into her a couple of times over the next few months in dubious circumstances.
 - Is she the *Adams*, Adams?
 - Are they offering her up too?
@@ -383,10 +383,11 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 - I'm not yet fully aware that my online conversations with criminal gangs have generated a lot of interest in international law enforcement organizations - although I'm sensing something's changed on the social-media hack I've been navigating for years.
 - My handwritten letters - particularly the supplementary page - obviously had an impact.
-- Every time I go online, I'm interacting directly with known criminals like Hazel Smith, the Denia porn-gang members, and other British and Spanish criminals.
+- Every time I go online, I'm interacting directly with known criminals like Hazel Smith, the Dénia porn-gang, and other British and Spanish criminals.
 - The thing is, the ability to do this on a social media space is somewhat unique; a new and very interesting skill.
 - I expect my new-found ability is mostly to do with language pattern recognition abilities finely-tuned by years of spiked-hallucinogen intake.
-- The criminals really shot themselves in the feet, didn't they.
+- An important note here is that I think that the efficacy of these skills relies entirely on Principle of Miracles no. 7 being in place, and without that pre-requisite I believe years of unfettered hallucinogen intake could have severe and devastating effects to the mind and is no doubt what the criminals expected from experience.
+- The criminals really shot themselves in their wee feetsies with me now, didn't they.
 
 ## Detoxing in Samui, an unusual poo
 
