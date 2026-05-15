@@ -257,7 +257,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 - The stalking and harassment on Twitter is unceasing.
 - There have been constant threats from Hazel and Sandra Smith.
-- It has been relentless actually.
+- The following is a tiny example of what I have been dealing with online constantly since [June 12th 2023](../2023/june.md#monday-12th-june-2023).
 - One saying "stay away bitch" - I didn't manage to screenshot it but it will be available on the likes from this tweet: https://x.com/1FRGVN/status/1867853572647596391 as will many others, including a bunch of messages in fake-account profiles about [Toby (Trish Penny's son) going missing](#wheres-toby).
 - Are they worried that Trish's husband is going to drop them in it too?
 - They do seem to be fighting amongst themselves, and I find this encouraging.
