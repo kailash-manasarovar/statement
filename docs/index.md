@@ -137,7 +137,7 @@ I do, however, have a lot of God.
 
 ### Police and government corruption
 
-- I reported hacking and gang-stalking to the Spanish police three times from March 2024; each time I did I emphasized my serious concerns about the safety of Spanish children studying at the conservatory of Dénia.
+- I reported hacking and gang-stalking to the Spanish police three times from March 2024; each time I did I emphasized my serious concerns about the safety of children studying at the conservatory of Dénia.
 - I reported hacking to the company I was working for in March 2024, [Polygon](timeline/2024/march/1-12.md#reporting-hacking-to-polygon-labs), and I told many of my colleagues there that I was being viciously gang-stalked by local criminals.
 - I had already reported gang-stalking by teachers and staff, and my serious concerns about children's safety, to the Spanish government department that runs the conservatories multiple times from October 2023.
 - It turns out, the *trumpet teacher porn-scam* is well known to the Spanish government's education board, the Generalitat, and has taken place many times before.
