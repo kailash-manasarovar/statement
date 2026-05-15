@@ -258,7 +258,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - The stalking and harassment on Twitter is unceasing.
 - There have been constant threats from Hazel and Sandra Smith.
 - The following is a tiny example of what I have been dealing with online constantly since [June 12th 2023](../2023/june.md#monday-12th-june-2023).
-- One saying "stay away bitch" - I didn't manage to screenshot it but it will be available on the likes from this tweet: https://x.com/1FRGVN/status/1867853572647596391 as will many others, including a bunch of messages in fake-account profiles about [Toby (Trish Penny's son) going missing](#wheres-toby).
+- One profile message says, "stay away bitch" - I didn't manage to screenshot it but it will be available on the likes from this tweet: https://x.com/1FRGVN/status/1867853572647596391 as will many others, including a bunch of messages in fake-account profiles about [Toby (Trish Penny's son) going missing](#wheres-toby).
 - Are they worried that Trish's husband is going to drop them in it too?
 - They do seem to be fighting amongst themselves, and I find this encouraging.
 - I send a message to [mailto:016-online@igualdad.gob.es](https://violenciagenero.igualdad.gob.es/en/informacionUtil/recursos/telefono016/home.htm), a gender violence organization in Spain, asking for help about what I'm going to do when I come back to Spain in January.
@@ -273,8 +273,8 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 ![stay alive](../../content/images/stay-alive.JPG)
 
-- Remember, Karolina is the name of the woman who [Mike Wenham murdered](../2001-to-2010/2010.md#mike-wenham).
-- One of the fake accounts with a picture of a [suspected target that I posted earlier](august.md#suspected-targets) likes one of my posts again. 
+- Remember, Karolina is the name of the woman [Mike Wenham murdered](../2001-to-2010/2010.md#mike-wenham).
+- One of the fake accounts [I posted earlier](august.md#suspected-targets) likes one of my posts again. 
 - I challenge them. 
 
 [![full banga challenge](../../content/images/fake-accounts/fullbanga-challenge.png)](https://x.com/1FRGVN/status/1872110003626414167)
@@ -286,17 +286,17 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 ![porn gang or constabulary](../../content/images/fake-accounts/porn-gang-or-constabulary.png)
 
 - On December 30th, I receive interactions from fake accounts containing content related to Winston May, North London rape-gang boss.
-- The first like is from a name "Winston" on a tweet of mine about women's safety. 
+- The first like from "Winston" is on a tweet of mine about women's safety. 
 - So I go look at the profile.
 - I'm just noticing other curiously significant messages on here too (time of writing May 2026).
 
 ![winston 1](../../content/images/fake-accounts/winston-like-1.JPG)
 
-- The first post on this fake account has Winston May's birthday, 5th December.
+- The first post on the profile has Winston May's birthday, 5th December.
 
 ![winston 2](../../content/images/fake-accounts/winston-like-2.JPG)
 
-- The tweet this account likes is from 5th December also.
+- The tweet the account liked is also from 5th December.
 
 ![winston 3](../../content/images/fake-accounts/winston-like-3.JPG)
 
