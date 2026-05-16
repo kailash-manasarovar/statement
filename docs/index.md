@@ -177,6 +177,8 @@ I do, however, have a lot of God.
 - I'm certain the caliphate knew it, and knew it very well, and have laughingly paid billions to get their enemies to run their tech.
 - Who knew the porn-addict was essentially a fool? It was always obvious to me.
 
+![Planning the murder of innocents](content/images/planning-the-murder-of-innocents.png)
+
 ## A friend on the inside
 
 - At some point, something happened between myself and a gang member, inexplicably and miraculously, that made him change his mind about his grim purpose.
