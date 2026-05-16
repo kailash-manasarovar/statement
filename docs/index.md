@@ -164,7 +164,7 @@ I do, however, have a lot of God.
 - Might they pay to sedate and rape her too?
 - Might they even get their female human-resource-and-conference teams to hire people for the express purpose of terrorizing her, and to organize travel and venues so that the whole company and its special guests might have a go too?
 - I wonder how much a ticket for a show like that might cost?
-- My horror-porn tenure at [Polygon](timeline/2023/november.md#polygon) - while I was living as an unwitting sedated-sex-slave in my spy-cam apartment at Carrer Furs - and culminating in [daily attacks at a conference in Bali](timeline/2024/may.md#bali), after which I was fired, is probably the most egregious example ever known of what happens when tech employees have 24-7 online access to a female colleague.
+- My horror-porn tenure at [Polygon](timeline/2023/november.md#polygon) - while I was living as an unwitting sedated-sex-slave in my spy-cam apartment at Carrer Furs - and culminating in [daily attacks at a conference in Bali](timeline/2024/may.md#bali), after which I was fired, is probably the most egregious example ever known of what happens when male tech employees have 24-7 online access to a female colleague.
 - Colleagues at my role prior to Polygon at [zkSync](timeline/2023/march.md#work-stress) were also obviously watching everything that was happening to me at home, and taking part as much as possible.
 - In fact, so many of my roles over the last years have felt like going into battle every day from being under constant and vicious attack from my close male colleagues, my guess is that many of my work roles were set up by the porn-gangs themselves for paid humiliation-content purposes.
 - And, of course, as all criminal porn-addicts eventually find out, their due is never just an ejaculation, a hand covering a guffaw, or a subscription fee alone.
@@ -173,7 +173,7 @@ I do, however, have a lot of God.
 - So what is running in those gargantuan processing hubs?
 - My guess is that the triumphant, boner-obsessed idiots were forced to run the caliphate AI systems whose sole goal is total destruction of the West, and the poor boys threatened with scandal and jail agreed.
 - Not one of them thought saving the world was more important than saving his mother's erroneous good opinion of him.
-- Who knew that the porn-community of billions of men wouldn't be able to find a single conscience among them?
+- Who knew there wasn't a single conscience amongst the p*rn-addict community of billions of men?
 - I'm certain the caliphate knew it, and knew it very well, and have laughingly paid billions to get their enemies to run their tech.
 - Who knew the porn-addict was essentially a fool? It was always obvious to me.
 
