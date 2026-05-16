@@ -433,7 +433,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - Did someone reach out and tell him to back off?
 - Instead, I ask Paul if he will help me. 
 
-## Man bares his teeth at me
+## A man I recognize bares his teeth at me
 
 - In the restaurant at the Spa Resorts.
 - British man with long greasy hair, a Spanish wife and child, and very big teeth which he bares at me.
