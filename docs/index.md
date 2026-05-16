@@ -155,7 +155,7 @@ I do, however, have a lot of God.
 
 - The audience for criminal porn is massive.
 - My guess is 1-in-3 men pay for and regularly watch some version of rape online.
-- The gangs ability to find willing conspirators, anywhere I was in the world, is evidence for this and my experience shows how connected up they all are.
+- The gangs' ability to find willing conspirators, anywhere I was in the world, is evidence for this and my experience shows how connected up they all are.
 - This police statement details a small sample revealing the connectivity of global porn-addict networks, and the instant fervour invoked in their members when an unwitting victim is around.
 - Examples include tutorial students of mine still at school, a neighbor at the bottom of the road, random men in the street halfway around the world, random snickering men from England given seats next to me on a bus in Valencia, a Tibetan monk living in France, an ophthalmologist at Moorfields, the whole town of Dénia, a traffic cop in Teruel, random men in Madrid, a whole bunch of Buddhist mediators in Avila, a male flight attendant on Qatar airways, a hotel technician in Bandol, it just goes on and on.
 - The only country I traveled to over the last few years where the gangs had zero reach is Israel.
@@ -174,7 +174,7 @@ I do, however, have a lot of God.
 - My guess is that the triumphant, boner-obsessed idiots were forced to run the caliphate AI systems whose sole goal is total destruction of the West, and the poor boys threatened with scandal and jail agreed.
 - Not one of them thought saving the world was more important than saving his mother's erroneous good opinion of him.
 - Who knew there wasn't a single conscience amongst the p*rn-addict community of billions of men?
-- I'm certain the caliphate knew it, and knew it very well, and have laughingly paid billions to get their enemies to run their tech.
+- I'm certain the caliphate knew it, and knew it very well, and have laughingly paid billions to get their enemies to run their tech-weaponry.
 - Who knew the porn-addict was essentially a fool? It was always obvious to me.
 
 ![Planning the murder of innocents](content/images/planning-the-murder-of-innocents.png)
