@@ -427,6 +427,9 @@ This police statement is set out into different sections.
 ## The Ark Project Trilogy
 
 - *Fear & Loathing in Las Marinas* is the third and final part of the Ark Project Trilogy, something I started thinking about way back in 2012. 
+
+![Ark of Safety](content/images/ark-of-safety.png)
+
 - I remember telling someone about it in October 2012 in Thailand, just before I moved back to Dénia, and it'll be in my online notes so the gangs will have seen it mentioned when it first *popped up*.
 - Part two, prophetic-horror [*AntiChrist by Jack Chardwood*](https://www.amazon.com/AntiChrist-Jack-Chardwood-ebook/dp/B0167HVL2K/) written in 2015, was inspired by the events at the conservatory of Dénia between 2014-2015, specifically the bizarre relationship with Domingo Lopez Cano, a true-blue misogynist possibly serial-killer.
 - Themes arising in this book appear to have also been inspired by events going on without my knowledge including while I was unconscious.
