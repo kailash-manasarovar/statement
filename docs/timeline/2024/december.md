@@ -390,6 +390,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - The criminals really shot themselves in their wee feetsies with me now though, didn't they.
 
 ## Detoxing in Samui, an unusual poo
+### In the spirit of purification
 
 - It is day 5 or 6 of the fast and cleanse.
 - I go, as usual, to pick up my last detox drink at 7 o'clock.
@@ -399,20 +400,21 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - Well.
 - I am on the toilet for about 2 hours.
 - There are at least three separate sittings as I think I've finished, get off, and then have to rush back quickly.
-- It's as if the whole nasty Denia business, every second of it, is being released into the toilet bowl.
+- It's as if the whole nasty Dénia business, every second of it, is being released into the toilet bowl.
 - I feel like I've been holding onto some serious poison for a long time, and here it is disappearing, down the toilet.
-- On the last go, as I said about two hours after I started, I pretty much felt that was it, I could get going to my massage after I flush the toilet and wash my hands.
+- On the last go, as I said about two hours after I started, I pretty much felt that that was it and I could get going to my massage after I flush the toilet and wash my hands.
 - I looked into the toilet bowl.
 - The poo had formed into an X.
 - Yes, an X.
-- An not just any X, the Twitter X itself.
+- An not just any X, the Twitter X itself!
 - It was a wow moment for me, I must say.
 - I wondered what it could mean? It was very specific, very clear.
-- Was it an instruction?
+- Was it an Instruction?
 - Is X going down the toilet?
 - I thought a lot about that poo, and never came up with anything particularly solid (no pun intended).
 - I may have tweeted about Mary owning X due to it.
-- Sorry about that.
+- I had no idea about squirrel's diamond nut at the time.
+- (My apologies for this section if it was a bit gross.)
 
 ## My Belgian friend
 
