@@ -149,7 +149,7 @@ I do, however, have a lot of God.
 - The conservatory is just one example of criminal porn-gang infiltration into the whole of society in the region - the most horrific bar the baby-rape industry.
 - All over Dénia, men young and old drive flashy new sports cars worth minimum $50K and upwards and this is a poor town with apparently zero industry.
 - I detail other unusual events taking place in and around the town, and often centred on the conservatory, that may point to international trafficking.
-- I also believe that the unusual protections awarded to all criminals in the town of Dénia has already made the place somewhat infamous and this infamy has, therefore, attracted multiple criminal gangs to come and set up shop over the years with the understanding that they can do whatever they like, to anyone! 
+- I also believe that the unusual protections awarded to all criminals in the town of Dénia has made the place somewhat infamous and this infamy has attracted multiple criminal gangs to come and set up shop over the years with the understanding that they can do whatever they like, to anyone! 
 
 ### The global tech-bro porn-addict community
 
@@ -181,18 +181,22 @@ I do, however, have a lot of God.
 
 ## A friend on the inside
 
-- At some point, something happened between myself and a gang member, inexplicably and miraculously, that made him change his mind about his grim purpose.
-- I believe it is to do with my memory of [a man sobbing his heart out in my arms](timeline/2023/march.md#dreaming-of-the-trumpet-teacher) in my bed one Monday night after chamber music classes at the height of the switcheroo scam and my unconditional and relentless good feelings for him that continue to this day.
-- I believe he changed his mind about his grim purpose and maybe even asked them to stop, and they didn't - an impossible request anyway - and instead he started to help me in a clandestine manner.
+- At some point during the switcheroo-porn production, probably in March 2023, something happened between myself and a gang member, inexplicably and miraculously, that made him change his mind about his grim purpose.
+- I believe it is to do with my memory of [the trumpet teacher sobbing his heart out in my arms](timeline/2023/march.md#dreaming-of-the-trumpet-teacher) in my bed one Monday night after chamber music class, and my unconditional and relentless good feelings for him that continue to this day.
+- I believe this man, at that moment, changed his mind about what he was doing, and maybe even asked the gangs to stop, and they didn't - an impossible request anyway - so instead he started to help me in a clandestine manner.
 - He told me about the region's decades-long honey-trap enterprise, sending me photographic evidence in the process.
-- He sent me pictures of countless other female victims the gangs had targeted over many decades, some sexploitation blackmail victims, but many of whom I believe to have been murdered.
+- Putting his own life at considerable risk, he sent me pictures of countless other female victims the gangs had targeted over many decades; some sexploitation blackmail victims, many of them groomed and drugged into porn and prostitution, some manipulated into having babies for porn, and many I believe to have been murdered.
 - He sent me pictures of the men involved in [the conservatory switcheroo porn-scam](crimes/protagonists/vidal-sastre.md#at-least-four) and much information I have been adding to this police statement.
-- He told me about the proliferation of child-porn and the baby-rape industry in Dénia; one of the gang’s major sources of income.
+- He told me about the proliferation of child-pornography in the region and how hackers are now expected to target children and toddlers online.
+- He told me about the baby-rape industry in Dénia, now thought to be the gang’s major source of income.
 - He warned me about poisoning in my home, and my car, amongst other things.
 - While I was being severely and daily drugged with hallucinogens and toxic substances without my knowledge, it was hard to make sense of the information I was receiving, but I have been steadily piecing it all together.
 - There is no doubt in my mind that without this man's help, I would not be here today.
+- I also understand that after the gangs failed once again to murder me in [July 2025](timeline/2025/july.md#lourdes), he requested asylum in Israel and it was granted.
 
 ![Super-hero squirrel](content/images/super-hero-squirrel.png)
+
+- I'm happy he's safe.
 
 ## From honey-traps to world domination
 
