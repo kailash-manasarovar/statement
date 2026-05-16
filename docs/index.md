@@ -424,13 +424,6 @@ This police statement is set out into different sections.
 1. A **Conclusion** in editorial which I'm dreaming about updating as soon as the babies and children are safe.
 1. **The novel** is a section I use to store book cover designs.
 
-## Contact the author
-
-- Contact me for any further information you may require on the-chief-of-police@fearandloathinginlasmarinas.com.
-- Agent and publisher details coming soon.
-
-![book cover option](content/images/the-novel/cover-3.webp)
-
 ## The Ark Project Trilogy
 
 - *Fear & Loathing in Las Marinas* is the third and final part of the Ark Project Trilogy, something I started thinking about way back in 2012. 
@@ -439,3 +432,10 @@ This police statement is set out into different sections.
 - Themes arising in this book appear to have also been inspired by events going on without my knowledge including while I was unconscious.
 - Part one, multi-universe romance [*Life Without The Liar by Margaret Murphy*](https://www.amazon.com/Life-Without-Liar-Margaret-Murphy-ebook/dp/B00M0CZN94), was inspired, I thought, by the need to heal myself from the 1989 North London rape-gang events.
 - However, again, themes and characters arising in this novel perhaps more closely reflect the sex crimes going on Dénia without my knowledge over many years and, without that context, I related everything to what I did know.
+
+### Contact me
+
+- Contact me for any further information you may require on the-chief-of-police@fearandloathinginlasmarinas.com.
+- Agent and publisher details coming soon.
+
+![book cover option](content/images/the-novel/cover-3.webp)
