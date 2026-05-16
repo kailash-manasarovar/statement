@@ -174,7 +174,8 @@ I do, however, have a lot of God.
 - My guess is that all those triumphant boner-obsessed idiots that enjoy terrorizing women were forced to run the caliphate AI systems whose goal is total destruction of the West, and the poor boys threatened with the scandal and jail could do nothing to stop it.
 - Not one of them thought saving the world was more important than saving his mother's erroneous good opinion of him.
 - Who knew that the porn-community of billions wouldn't be able to find a single conscience amongst them.
-- I'm sure the caliphate knew it and probably paid the criminal gangs billions to run their tech in this sneaky way.
+- I'm sure the caliphate knew it and probably paid the criminal gangs billions to get their enemies run their tech.
+- Who knew the porn-addict was a fool.
 
 ## A friend on the inside
 
