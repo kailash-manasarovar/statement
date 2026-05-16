@@ -45,3 +45,5 @@ function googleTranslateElementInit() {
 - Except now, with the porn epidemic in full swing, and men more and more enticed into pedophilia and worse as they bore of the daily sexual violence against women and children, with baby-rape porn the most lucrative of all, a culture like this is probably doomed if they don't do something about it, and quick.
 
 ![The bullfight evolved](../content/images/bull-fight.png)
+
+- A little ipad testy-poo.
