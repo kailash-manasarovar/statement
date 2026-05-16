@@ -381,12 +381,12 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 ## A curious new intuitive skill
 
-- I'm not yet fully aware that my online conversations with criminal gangs have been generating a lot of interest in international law enforcement organizations - although I'm sensing something's changed on the social-media hack I've been navigating for years.
-- My [handwritten letters - particularly the supplementary page](august.md#the-handwritten-letters) - obviously had an impact.
+- I'm not yet fully aware that my online conversations with criminal gangs have been generating a lot of interest inside international law-enforcement organizations - although I'm sensing something's changed on the social-media hack I've been navigating for years.
+- My [handwritten letters](august.md#the-handwritten-letters) - particularly the supplementary page - obviously had an impact.
 - Every time I go online, I'm interacting directly with known criminals like Hazel Smith, the Dénia porn-gangs, and other British and Spanish criminals.
-- The thing is, the ability to do this alone and without help on a social media space like X is somewhat unique; a new and I think very interesting skill.
-- I expect my new-found ability is mostly to do with language pattern-recognition abilities, finely-tuned by years of spiked-hallucinogen intake.
-- An important note here is that I believe the efficacy of these skills relies entirely on Principle of Miracles no. 7 - *Miracles are everyone’s right, but purification is necessary first* - being somewhat in place, and without that pre-requisite years of unfettered hallucinogen intake could have severe and devastating effects to the mind and is no doubt what the criminals expected to happen to me from their own plentiful historical data.
+- The thing is, the ability to do this alone and without help on a social media space like X is somewhat unique; a new and rather interesting skill.
+- I expect my newly-discovered gift is mostly to do with language pattern-recognition abilities, finely-tuned by years of spiked-hallucinogen intake.
+- An important note here is that I believe the efficacy of these skills relies entirely on Principle of Miracles no. 7 from A Course in Miracles - *Miracles are everyone’s right, but purification is necessary first.* - being somewhat in place, and without that pre-requisite years of unfettered hallucinogen intake could have severe and devastating effects to the mind and is no doubt what the criminals expected to happen to me from their own plentiful historical data.
 - The criminals really shot themselves in their wee feetsies with me now though, didn't they.
 
 ## Detoxing in Samui, an unusual poo
