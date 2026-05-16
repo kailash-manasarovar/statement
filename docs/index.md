@@ -155,27 +155,27 @@ I do, however, have a lot of God.
 
 - The audience for criminal porn is massive.
 - My guess is 1-in-3 men pay for and regularly watch some version of rape online.
-- The gangs ability to find willing conspirators, anywhere I was in the world, is evidence for this and my experiences shows how connected up they all are.
-- This police statement details a small sample revealing the state of global porn-addict networks and the instant fervour invoked in their members when an unwitting victim is around.
-- Examples include and are not limited to tutorial students of mine still at school, a neighbor at the bottom of the road, random men in the street halfway around the world, random men from England given seats next to mine on a bus in Valencia, a Tibetan monk living in Spain, the whole town of Dénia, random men in Madrid, a whole bunch of Buddhist mediators in Avila, a male flight attendant on Qatar airways, it just goes on and on.
+- The gangs ability to find willing conspirators, anywhere I was in the world, is evidence for this and my experience shows how connected up they all are.
+- This police statement details a small sample revealing the connectivity of global porn-addict networks, and the instant fervour invoked in their members when an unwitting victim is around.
+- Examples include tutorial students of mine still at school, a neighbor at the bottom of the road, random men in the street halfway around the world, random snickering men from England given seats next to mine on a bus in Valencia, a Tibetan monk living in France, an ophthalmologist at Moorfields, the whole town of Dénia, a traffic cop in Teruel, random men in Madrid, a whole bunch of Buddhist mediators in Avila, a male flight attendant on Qatar airways, a hotel technician in Bandol, it just goes on and on.
 - The only country I traveled to over the last few years where the gangs had zero reach is Israel.
-- So it is no surprise to me to learn that in every tech company I have worked in over the last decades, where I'm often the only woman in amongst hundreds of men, the porn-gangs have quickly found a paying subscriber who knows (or will know) me from my porn-stardom.
-- In fact, it doesn't take an Einstein to figure out that those sorts of subscribers, with ready cash usually crypto, might pay extraordinary amounts to see a female colleague (usually despised, sometimes murdered for existing) in varying degrees of sexual humiliation.
-- Might they even pay to sedate and rape her too?
-- Might they even get their female human resources and conference teams to hire people and venues for the express purpose of terrorizing her and where the whole company and its special guests might safely get to have a go at her too?
+- So it is no surprise that at every tech company I have worked for over the last decades - where I'm often the only woman in amongst hundreds of men - the porn-gangs have quickly found a male colleague who knows (or will soon know) me from my rape-porn-stardom.
+- In fact, it doesn't take an Einstein to figure out that these sorts of subscribers - with ready cash, usually crypto - might pay extraordinary amounts to see a female colleague (usually despised, sometimes murdered for existing) in varying degrees of sexual humiliation.
+- Might they pay to sedate and rape her too?
+- Might they even get their female human-resource-and-conference teams to hire people for the express purpose of terrorizing her, and set up venues so that the whole company and its special guests might have a go too?
 - I wonder how much a ticket for a show like that might cost?
-- My horror-porn tenure at [Polygon](timeline/2023/november.md#polygon) - while I was living as an unwitting sedated-sex-slave in Carrer Furs - and culminating in [daily attacks at a conference in Bali](timeline/2024/may.md#bali), after which I was fired, is probably the most egregious example ever known of what happens when tech employees have 24-7 online access to a female colleague.
+- My horror-porn tenure at [Polygon](timeline/2023/november.md#polygon) - while I was living as an unwitting sedated-sex-slave in my spy-cam apartment at Carrer Furs - and culminating in [daily attacks at a conference in Bali](timeline/2024/may.md#bali), after which I was fired, is probably the most egregious example ever known of what happens when tech employees have 24-7 online access to a female colleague.
 - Colleagues at my role prior to Polygon at [zkSync](timeline/2023/march.md#work-stress) were also obviously watching everything that was happening to me at home, and taking part as much as possible.
-- In fact, so many of my roles over the last years have felt like going into battle every day from being under constant and vicious attack from my close male colleagues, my guess is that many of my work roles were set up by the porn-gangs themselves for paid content purposes.
-- And, of course, as all criminal porn-addicts eventually find out, payment is never just an ejaculation, a hand covering a guffaw, or a subscription fee alone.
+- In fact, so many of my roles over the last years have felt like going into battle every day from being under constant and vicious attack from my close male colleagues, my guess is that many of my work roles were set up by the porn-gangs themselves for paid humiliation-content purposes.
+- And, of course, as all criminal porn-addicts eventually find out, their rewards are never just an ejaculation, a hand covering a guffaw, or a subscription fee alone.
 - No.
-- The porn-gangs - while pretending it was all belly laughs and slapped backs - were hiding their true aim: taking control of massive backend data systems built to run products that never exist. This is the true state of the crypto industry.
-- So what is running in those vast gargantuan processing hubs?
-- My guess is that all those triumphant boner-obsessed idiots that enjoy terrorizing women were forced to run the caliphate AI systems whose goal is total destruction of the West, and the poor boys threatened with the scandal and jail could do nothing to stop it.
+- The porn-gangs - while pretending it was all belly laughs and slapped backs - were hiding their true aim: taking control of massive backend data systems built to run products that will never exist - the true state of the crypto industry.
+- So what is running in those gargantuan processing hubs?
+- My guess is that all those triumphant boner-obsessed idiots that enjoy terrorizing women were forced to run the caliphate AI systems whose goal is total destruction of the West, and the poor boys threatened with scandal and jail would do nothing to stop it.
 - Not one of them thought saving the world was more important than saving his mother's erroneous good opinion of him.
-- Who knew that the porn-community of billions wouldn't be able to find a single conscience amongst them.
-- I'm sure the caliphate knew it and probably paid the criminal gangs billions to get their enemies run their tech.
-- Who knew the porn-addict was a fool.
+- Who knew that the porn-community of billions of men wouldn't be able to find a single conscience among them?
+- I'm certain the caliphate knew it very well, and have probably paid billions to get their enemies run their tech.
+- Who knew the porn-addict was essentially a fool?
 
 ## A friend on the inside
 
