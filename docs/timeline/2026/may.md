@@ -85,3 +85,7 @@ function googleTranslateElementInit() {
 
 - No, I didn't lose my mind at all.
 - Let's do this.
+
+## May 16th Shanidev jyanti
+
+![Shani dev](../../content/images/shani-dev.png)
