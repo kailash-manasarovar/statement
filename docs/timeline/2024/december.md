@@ -386,7 +386,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - Every time I go online, I'm interacting directly with known criminals like Hazel Smith, the Dénia porn-gangs, and other British and Spanish criminals.
 - The thing is, the ability to do this alone and without help on a social media space like X is somewhat unique; a new and I think very interesting skill.
 - I expect my new-found ability is mostly to do with language pattern-recognition abilities, finely-tuned by years of spiked-hallucinogen intake.
-- An important note here is that I believe the efficacy of these skills relies entirely on Principle of Miracles no. 7 - *Miracles are everyone’s right, but purification is necessary first* - being in place, and without that pre-requisite years of unfettered hallucinogen intake could have severe and devastating effects to the mind and is no doubt what the criminals expected to happen to me from historical data.
+- An important note here is that I believe the efficacy of these skills relies entirely on Principle of Miracles no. 7 - *Miracles are everyone’s right, but purification is necessary first* - being somewhat in place, and without that pre-requisite years of unfettered hallucinogen intake could have severe and devastating effects to the mind and is no doubt what the criminals expected to happen to me from their own plentiful historical data.
 - The criminals really shot themselves in their wee feetsies with me now though, didn't they.
 
 ## Detoxing in Samui, an unusual poo
