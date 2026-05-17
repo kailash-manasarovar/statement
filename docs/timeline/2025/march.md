@@ -10,7 +10,7 @@
 - When I get back to my car, I see a car parked beside, or in front maybe, of mine.
 - In the driver's seat is a black woman, and I think I know her.
 - She was the accomplice of the man that tried to rob H Samuels in Brent Cross with a fake credit card, my summer job when I was 16, the week before I was targeted by the Jamaican rape-gangs!
-- The same man that [bared his teeth at me](../2024/december.md#man-bares-his-teeth-at-me) at the Spa in Koh Samui in December 2024.
+- The same man that [bared his teeth at me](../2024/december.md#a-man-i-recognize-bares-his-teeth-at-me) at the Spa in Koh Samui in December 2024.
 - She looked exactly like her, just a bit older.
 - She has aged well.
 - Was she an "introduction agent" for the rape gangs? 

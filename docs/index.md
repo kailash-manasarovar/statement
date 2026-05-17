@@ -85,7 +85,7 @@ I do, however, have a lot of God.
 - With zero concern for consequences, they even wheeled out [the 1989 North London rape-gang boss Winston May](timeline/2024/june.md#winston-may), who I had complained about twice to the Metropolitan Police; once in 2006, and then again in 2015. 
 - Given he could hardly walk he was so high when I saw him, I expect he had been in prison at the time and was given a day out for the sole purpose of terrorizing me.
 
-### Drugging and poisoning with brake-fluid, pesticides, and other substances
+### Drugging with hallucinogens and poisoning with brake-fluid, pesticides, and other substances
 
 - From February 2022 to October 2025, I was drugged continuously with hallucinogens and other substances.
 - My brain had already been damaged by poisoning over many years to give me a perceptual stroke-like injury whereby I'm unable to recognize objects out of context.
