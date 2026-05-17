@@ -136,25 +136,25 @@ I do, however, have a lot of God.
 
 ### Police and government corruption
 
-- I reported hacking and gang-stalking to the Spanish police three times from March 2024; each time I did I emphasized my serious concerns about the safety of children studying at the conservatory of Dénia.
+- I reported hacking and gang-stalking to the Spanish police three times from March 2024; and each time I did, I emphasized my serious concerns about the safety of children studying at the conservatory of Dénia.
 - I reported hacking to the company I was working for in March 2024, [Polygon](timeline/2024/march/1-12.md#reporting-hacking-to-polygon-labs), and I told many of my colleagues there that I was being viciously gang-stalked by local criminals.
 - I had already reported gang-stalking by teachers and staff, and my serious concerns about children's safety, to the Spanish government department that runs the conservatories multiple times from October 2023.
 - It turns out, the *trumpet teacher porn-scam* is well known to the Spanish government's education board, the Generalitat, and has taken place many times before.
 - I never stopped trying to get help.
 - I must have written hundreds of letters and emails to organizations all over the world set up to, apparently, protect women and children in Spain and elsewhere.
 - My numerous complaints were, and continue to be, consistently ignored.
-- The porn-gangs of Dénia function under the assumption that they are untouchable.
+- The porn-gangs of Dénia are untouchable.
 - Targets are often foreign women and children, or Spanish outsiders; those who don't know *how they do things* in the Valencian region. 
 - The conservatory is just one example of criminal porn-gang infiltration into the whole of society in the region - the most horrific bar the baby-rape industry.
 - All over Dénia, men young and old drive flashy new sports cars worth minimum $50K and upwards and this is a poor town with apparently zero industry.
 - I detail other unusual events taking place in and around the town, and often centred on the conservatory, that may point to international trafficking.
-- I also believe that the unusual protections awarded to all criminals in the town of Dénia has made the place somewhat infamous and this infamy has attracted multiple criminal gangs to come and set up shop over the years with the understanding that they can do whatever they like, to anyone! 
+- I also believe that the unusual protections awarded to criminals in the town of Dénia has made the place somewhat infamous, and this infamy has attracted multiple criminal gangs to come and set up shop over the years with the understanding that they can do whatever they like, to anyone! 
 
 ### The global tech-bro porn-addict community
 
 - The audience for criminal porn is massive.
 - My guess is 1-in-3 men pay for and regularly watch some version of rape online.
-- The gangs' ability to find willing conspirators, anywhere I was in the world, is evidence for this and my experience shows how connected up they all are.
+- The gangs' ability to find willing conspirators, anywhere I am in the world, is evidence for this.
 - This police statement details a small sample revealing the connectivity of global porn-addict networks, and the instant fervour invoked in their members when an unwitting victim is around.
 - Examples include tutorial students of mine still at school, a neighbor at the bottom of the road, random men in the street halfway around the world, random snickering men from England given seats next to me on a bus in Valencia, a Tibetan monk living in France, an ophthalmologist at Moorfields, the whole town of Dénia, a traffic cop in Teruel, random men in Madrid, a whole bunch of Buddhist mediators in Avila, a male flight attendant on Qatar airways, a hotel technician in Bandol, it just goes on and on.
 - The only country I traveled to over the last few years where the gangs had zero reach is Israel.
