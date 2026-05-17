@@ -412,7 +412,7 @@ function googleTranslateElementInit() {
 
 ![Pros and cons](../../content/images/pros-and-cons.jpeg)
 
-- I've no idea there was [at least four men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) pretending to be the same trumpet teacher at the music school.
+- I've no idea there was [at least four men](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) pretending to be the same trumpet teacher at the music school.
 - The weird "communication" continues between my new fake account and the `@jctot19` account.
 - I'm so upset (and drugged without knowing it) that I can't think straight, and so I don't realize this means my phone is hacked. 
 - I have a long WhatsApp chat with [Sandra Rita Diaz](../early-years/2014.md#sandra-rita-diaz), my French "friend" who I believe is a spy for the criminal gangs.
@@ -485,7 +485,7 @@ function googleTranslateElementInit() {
     - I have been seeing the man in this video since June 2023.
     - To me, he was *always* the trumpet teacher who came to the conservatory to take classes.
     - Except, he's only one of them, [number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man).
-    - His appearance is not even slightly similar to [any of the others](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
+    - His appearance is not even slightly similar to [any of the others](../../crimes/protagonists/vidal-sastre.md#six-distinct-men).
     - You cannot imagine how shocked and horrified I am to learn that, until [September 2025](../2025/october.md#thunderbolt-clarity), for over two-and-a-half years, I mistook at least four very different looking men for the same one man.
     - Until January 2025, I was being regularly drugged by the gangs in Dénia in my home without my knowledge, and whenever I traveled via items I brought with me from home.
     - This is just part of a solid explanation for this.

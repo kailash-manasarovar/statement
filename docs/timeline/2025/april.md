@@ -85,7 +85,7 @@
 - It's extraordinarily stressful, you cannot imagine.
 - However, the whole distract-and-drug thing did not occur to me.
 - Were they keeping me *topped up*, as it were?
-- Is this why it took me so long to remember the [most obvious switcheroo men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men)?
+- Is this why it took me so long to remember the [most obvious switcheroo men](../../crimes/protagonists/vidal-sastre.md#six-distinct-men)?
 - Why would these women be interested in me *not* remembering these men were different?
 - It reminded me of another incident back in maybe 2010 or 2011 when my mum and I would go to the Finchley Lido cinema on a Saturday night together and drive down and park outside.
 - One night, two women who had a similar appearance to these Cambridge women; blond, oldish, sort of Cell Block H types, tried to get into the back seats of our car while we were in the car and getting ready to leave.

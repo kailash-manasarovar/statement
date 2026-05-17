@@ -100,7 +100,7 @@ function googleTranslateElementInit() {
 - Was bumping into [Lucia on the beach](october.md#lucia-lorraines-friend-and-colleague) another test they mistakenly believed I had passed?
 - I did not remember the man from Lourdes in Benijembla on that day because whatever drugs and poisons I had been ingesting without my knowledge since moving into my apartment - and possibly before in Lourdes too - had successfully battered my memory and cognition.
 - It was an irony that the whole of Benijembla was celebrating a domestic violence movement that month.
-- Anyway, I passed the test, hence the grinning, which meant [the *switcheroo* porn could go ahead](../../crimes/protagonists/vidal-sastre.md#four-distinct-men), and so he turned up the following week at the conservatory, with the others, to start the Denia TV special, I expect, live-streamed on criminal and non-criminal porn networks across the world, perhaps even on Pornhub if the [Pakistani Yorkshire-man at Bali](../2024/may.md#the-pakistani-yorkshire-man) is to be believed.
+- Anyway, I passed the test, hence the grinning, which meant [the *switcheroo* porn could go ahead](../../crimes/protagonists/vidal-sastre.md#six-distinct-men), and so he turned up the following week at the conservatory, with the others, to start the Denia TV special, I expect, live-streamed on criminal and non-criminal porn networks across the world, perhaps even on Pornhub if the [Pakistani Yorkshire-man at Bali](../2024/may.md#the-pakistani-yorkshire-man) is to be believed.
 
 ## A sexualized 4-year-old at the Chinese bazaar
 

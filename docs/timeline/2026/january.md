@@ -90,7 +90,7 @@ function googleTranslateElementInit() {
 - The picture on the left was taken in September 2023, just after [the Dénia hackers revealed themselves](../2023/august.md#the-hackers-reveal-themselves) and I was so terrified about going back to my home in Carrer Furs [I go public on Twitter](../2023/september.md#going-public-on-twitter).
 - The cyber-and-in-person stalking at that time was intense and relentless.
 - I can see fear and frustration in my expression.
-- At that time, I had no idea I had been starring in [sedated switcheroo porn at the music school](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) between 28th November 2022 and June 12th 2023.
+- At that time, I had no idea I had been starring in [sedated switcheroo porn at the music school](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) between 28th November 2022 and June 12th 2023.
 - I also had no idea I was being poisoned and drugged continually in my apartments in Dénia, over decades, and wherever the Dénia gypsy gangs could access my room, my toiletries, and my food while I was away traveling.
 - I find out later that the purpose behind that was regular episodes of sedated rape, live-streamed on criminal porn networks.
 - No-one expected me to [not have stopped at Alicante airport](../2023/june.md#sunday-18th-june-alicante-airport) for the [third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) just after the conservatory switcheroo-porn-special ended; with me eventually running around naked in a field after a horse, live-streamed to the paying perverts, and then murdered and fed to the pigs.

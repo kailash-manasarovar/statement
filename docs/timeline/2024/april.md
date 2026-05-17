@@ -696,7 +696,7 @@ function googleTranslateElementInit() {
 
 - You can see the two boys in the most recent pic above.
 - The B.A. Feldman account and another account named Andrew posted pictures of (apparently) themselves as boys sometime back in November 2023.
-- I'm supposed to think these are [the trumpet teacher and his brother](../2023/december.md#the-trumpet-teacher-has-a-brother) who I thought must be twins but were in fact [the first and second of the switcheroo set](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
+- I'm supposed to think these are [the trumpet teacher and his brother](../2023/december.md#the-trumpet-teacher-has-a-brother) who I thought must be twins but were in fact [the first and second of the switcheroo set](../../crimes/protagonists/vidal-sastre.md#six-distinct-men).
 - I wasn't too convinced at the time because these two don't look at all like twins.
 - The pics of these boys remain to this day (Sunday 21st April 2024) on my Google search and I only ever looked at them once in November 2023.
 

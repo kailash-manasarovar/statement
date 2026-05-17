@@ -127,7 +127,7 @@ function googleTranslateElementInit() {
 - I can pinpoint exactly when this manipulation started; it was while I was staying at the Port Dénia hotel in December 2021, waiting to move into my new apartment at Carrer Furs, and I was working online in the hotel.
 - The offsite never took place, for some reason, thank God.
 - It was not rescheduled either; the idea of a company offsite happening just sort of disintegrated and no-one spoke about it anymore.
-- Once cancelled, probably around April 2022 at the same time I was signing up for [the conservatory switcheroo porn](../../crimes/protagonists/vidal-sastre.md#four-distinct-men), the romantic ideas I was having about Lubin stopped - they were fundamentally connected to the offsite and the thought I'd meet him in person.
+- Once cancelled, probably around April 2022 at the same time I was signing up for [the conservatory switcheroo porn](../../crimes/protagonists/vidal-sastre.md#six-distinct-men), the romantic ideas I was having about Lubin stopped - they were fundamentally connected to the offsite and the thought I'd meet him in person.
 - So weird and sinister.
 - I wonder if that was when the (criminal-porn-subscriber) bullying started to ramp up, so they could get me to leave and go somewhere else so I could attend a different offsite.
 

@@ -57,7 +57,7 @@ function googleTranslateElementInit() {
 ## Horses
 
 - This is a particularly insidious meme.
-- While the [switcheroo porn was going on](../crimes/protagonists/vidal-sastre.md#four-distinct-men) at the conservatory over the period November 2022 to June 2023, I was tricked continuously into believing there was a love affair going on between myself and the *trumpet teacher*.
+- While the [switcheroo porn was going on](../crimes/protagonists/vidal-sastre.md#six-distinct-men) at the conservatory over the period November 2022 to June 2023, I was tricked continuously into believing there was a love affair going on between myself and the *trumpet teacher*.
 - I had no idea there were [a minimum of four men playing this teaching role](../crimes/protagonists/vidal-sastre.md#at-least-six) at the time because I had been drugged every day without my knowledge since February 2022, possibly earlier, and I was also being drugged with aphrodisiac-type substances whilst attending classes at the conservatory.
 - I remain unaware of whatever sedated-woman-training exercises they will have used on me, perfected over many decades if not centuries.
 - They further reinforced the trick with the [Ana Requena love-triangle myth](../timeline/2022/november.md#the-trumpet-teacher) at the conservatory, also providing what would sound like a bizarre and unhinged alibi if I ever complained before understanding the whole story.

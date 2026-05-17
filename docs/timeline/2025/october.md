@@ -6,7 +6,7 @@
 - A miracle.
 - The four men I remember as playing the role of *trumpet teacher* become clear in my mind and I realize I can detail them and may even have some pictures of them.
 - It is possible there are many more men involved.
-- I detail the [results of my new and sudden clarity](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
+- I detail the [results of my new and sudden clarity](../../crimes/protagonists/vidal-sastre.md#six-distinct-men).
 - The gangs stop drugging me.
 
 ## Communication example
@@ -17,7 +17,7 @@
 
 [![Communication examples](../../content/tweets/communication-examples.png)](https://x.com/1FRGVN/status/1802460545662022005)
 
-- I had just updated detailed information on the [four distinct men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) who came to the conservatory under the name Vidal Sastre Sanchez Hornero posing as a peripatetic trumpet teacher for the Generalitat Valenciana.
+- I had just updated detailed information on the [four distinct men](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) who came to the conservatory under the name Vidal Sastre Sanchez Hornero posing as a peripatetic trumpet teacher for the Generalitat Valenciana.
 - It must have annoyed them.
 - This has been happening to me very obviously since [June 12th 2023](../2023/june.md#monday-12th-june-2023).
 - In the profile messages, I will see related messages and names will reflect people I know from the area.

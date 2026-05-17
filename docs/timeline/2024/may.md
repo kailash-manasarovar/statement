@@ -500,7 +500,7 @@ function googleTranslateElementInit() {
 - At the time, and due to the outrageous [military coup on my job already mentioned](#ajay-alicia-aman-pandey-and-mushroom-man-perform-a-military-coup-on-my-job), I assume what's happening must be to do with [Nadim getting hold of my X account](../2023/november.md#nadim-kobesi) the November before and telling everyone I'm a "transphobe".
 - I've no idea the Dénia rape-gangs have this sort of reach. I still think they are mostly silly little boys with too much electronic power.
 - I wonder if things would have been the same any of us knew about the mass-pedophile, baby-rape, murderous porn network live-streaming from private homes in Dénia; I'm guessing it's the best-loved and most well-known criminal porn studio in the world, and very likely connected to the Madeline McCann kidnap and consequent investigation fumble.
-- I guess the men were delighted about the [sedated *switcheroo* porn](../../crimes/protagonists/vidal-sastre.md#four-distinct-men), especially Gabriel who made sure to [mention it when he took over my job in August](august.md#gabriel-silvas-first-team-meeting-as-manager).
+- I guess the men were delighted about the [sedated *switcheroo* porn](../../crimes/protagonists/vidal-sastre.md#six-distinct-men), especially Gabriel who made sure to [mention it when he took over my job in August](august.md#gabriel-silvas-first-team-meeting-as-manager).
 - I can't imagine any of the women knew about it, but you never know.
 - Gabriel Silva, nothing to do with the writing team at this point, announces how he is going to be sorting out the docs (my work) using other people who are not on the writing team; another military coup.
 - I had a meeting with Jarrod Watts and Brian Seong who have been given instructions from Gabriel about how he wants them to *sort out the docs*.
@@ -666,7 +666,7 @@ function googleTranslateElementInit() {
 
 - One of the vilest things the porn-gangs do is to set women and children against each other.
 - They do this relentlessly.
-- The [Ana love triangle](../2022/november.md#the-trumpet-teacher) myth is an excellent example of this from my story and notice the [switcheroo sedated-rape porn](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) wasn't able to get started before this essential manipulation technique was in place.
+- The [Ana love triangle](../2022/november.md#the-trumpet-teacher) myth is an excellent example of this from my story and notice the [switcheroo sedated-rape porn](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) wasn't able to get started before this essential manipulation technique was in place.
 - There were other examples: Trish of course, Chris BJ, all isolating tactics.
 - Online, the derogatory comments the hackers made about women, including Ana Trish and Chris BJ, were also relentless.
 - The idiots even sent me pics of 100s of women they've likely murdered. I mean, you can't get more stupid than this, but they do it because they think we're the idiots, and nearly all of the joy they get out of it is in letting us know what they think of us.
@@ -780,7 +780,7 @@ function googleTranslateElementInit() {
 - The founder Sandeep is annoyed that I don't know who he is, and I met him only the day before.
 - The following day I do not recognize him again.
 - Everyone talks to me like I'm the antichrist, and any tiny defect seems to be proof of it, this included.
-- Do they know I'm being intentionally blinded by poison for the [sedated switcheroo porn specials](../../crimes/protagonists/vidal-sastre.md#four-distinct-men)?
+- Do they know I'm being intentionally blinded by poison for the [sedated switcheroo porn specials](../../crimes/protagonists/vidal-sastre.md#six-distinct-men)?
 - My sight is still blurry today.
 - I was eventually [diagnosed with an unusual pre-glaucoma condition](november.md#pre-glaucoma-diagnosis) at Rutnin Eye Hospital in Bangkok in November 2024.
 

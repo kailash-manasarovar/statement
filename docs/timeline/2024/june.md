@@ -131,7 +131,7 @@ function googleTranslateElementInit() {
 - I now believe they were instructed to behave this way towards me. 
 - I had to be got rid of. And quick.
 - I wasn't to know any of this.
-- I still had no idea I am an *international spy-cam sedated female-tech-colleague [switcheroo rape-porn star](../../crimes/protagonists/vidal-sastre.md#four-distinct-men)* and wasn't to know this for over a year more.
+- I still had no idea I am an *international spy-cam sedated female-tech-colleague [switcheroo rape-porn star](../../crimes/protagonists/vidal-sastre.md#six-distinct-men)* and wasn't to know this for over a year more.
 - My job at Polygon had become impossible with my team refusing to do any work or respond to me whenever I tried to communicate with them.
 - My manager Paul should have sorted it out immediately, but he didn't.
 - My manager David should have sorted it out immediately, but he didn't.

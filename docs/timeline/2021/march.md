@@ -24,7 +24,7 @@ function googleTranslateElementInit() {
 - He looks like [the Benijembla trumpet teacher](../2022/november.md#walking-in-benijembla-with-the-english-ladies), except I'm not to meet the trumpet teacher for 18-24 months still.
 - Whenever he visited, on usually a Sunday or Monday night, he got together with some of the younger men there and they had loud drinking sessions into the night and played loud rave music.
 - The staff at the Acacia will remember him; as will the male residents who drank with him, some of whom I will know too.
-- Was he sent by British criminal gangs to hack into my home network and begin poisoning me so that I became brain damaged, making me unable to recognize differences in objects out of context - and so believe [four different men to be the same one man](../../crimes/protagonists/vidal-sastre.md#four-distinct-men)?
+- Was he sent by British criminal gangs to hack into my home network and begin poisoning me so that I became brain damaged, making me unable to recognize differences in objects out of context - and so believe [four different men to be the same one man](../../crimes/protagonists/vidal-sastre.md#six-distinct-men)?
 - I also believe today that [he was one of Ugly's drivers](../2001-to-2010/2001.md#amsterdam) back in 2001, and he probably wanted to test I didn't recognize him from then either.
 
 !!! tip "Thoughts on this startling realization"
@@ -74,9 +74,9 @@ function googleTranslateElementInit() {
 - The lawyer tells me they're not interested in taking it any further - small fry, I guess.
 - Of course it's only now thinking back I realize that all those communications were monitored by international porn gangs, perhaps even with Qredo's knowledge.
 - Horrifyingly, when I join ConsenSys, I find out that one of my teams is working closely with Qredo and this is one of the reasons they were interested in hiring me.
-- I've no option but to tell ConsenSys the truth, which probably explains the tantrums and ridiculousness from French male engineers, some of whom most definitely will have had a subscription to [the sedated switcheroo](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) at the music school.
+- I've no option but to tell ConsenSys the truth, which probably explains the tantrums and ridiculousness from French male engineers, some of whom most definitely will have had a subscription to [the sedated switcheroo](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) at the music school.
 - Was the Qredo role with Anita Diamond a staggering overplay by the global porn-addict tech elite? 
-- Or an investigatory gauge on how much dedicated effort would be required - like how would I react to 1989 triggers - and how many tech-bro porn addicts were expected to sign up and pay for expensive subscriptions for the [*switcheroo* sedated rape-porn planned for me on my inevitable and already-being-prepared return to Dénia](../../crimes/protagonists/vidal-sastre.md#four-distinct-men).
+- Or an investigatory gauge on how much dedicated effort would be required - like how would I react to 1989 triggers - and how many tech-bro porn addicts were expected to sign up and pay for expensive subscriptions for the [*switcheroo* sedated rape-porn planned for me on my inevitable and already-being-prepared return to Dénia](../../crimes/protagonists/vidal-sastre.md#six-distinct-men).
 - Or both?
 
 ### Anita tells me about her experience as a female-tech-colleague-you-hate

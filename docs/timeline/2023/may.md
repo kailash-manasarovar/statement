@@ -115,13 +115,13 @@ function googleTranslateElementInit() {
 - I turn around and catch the trumpet teacher's eyes.
 - The trumpet teachers have swapped again, this is [Mark again](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013).
 - At the time I don't notice anything because they have successfully merged at least four men into one person in my perception with their gypsy animal training techniques alongside sedated sexual assaults, online manipulation, and drugging and poisoning that causes brain damage. 
-- As I think back, it's possible that [more of the team](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) turned up that afternoon and swapped a few times during this concert.
+- As I think back, it's possible that [more of the team](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) turned up that afternoon and swapped a few times during this concert.
 
 !!! tip "Tracking the returning memories"
     - It's interesting to see how much of the conspiracy I had figured out when I originally drafted this section.
     - On the first draft, I had not yet realized I was being drugged continuously.
     - On the second or third drafts, I hadn't realized there were two trumpet teachers, and that I was sedated and starring in rape-porn live-streamed from my apartment on a regular basis.
-    - On a more recent draft of this section which adds the notification box below, I'm aware there are [at least four trumpet teachers](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) starring in switcheroo-porn at the conservatory with me starring.
+    - On a more recent draft of this section which adds the notification box below, I'm aware there are [at least four trumpet teachers](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) starring in switcheroo-porn at the conservatory with me starring.
     - I guess that means this chamber music concert itself must have been live-streamed, and there are copies of it all over the world.
 
 !!! danger "Feigned jealousy from the love-triangle"

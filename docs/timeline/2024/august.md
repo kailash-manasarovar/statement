@@ -721,7 +721,7 @@ function googleTranslateElementInit() {
 - She also has to be continuously drugged to make her confused in situations in which those men appear.
 - The woman-hating is off the scale.
 - Of course, given the whole *switcheroo* at the conservatory thing had finished on [12th June 2023](../2023/june.md#monday-12th-june-2023) and I was obviously still of the mind there was *only one man*, everyone must have thought I'd never figure it out.
-- But I had been looking at actual photos of the [very different-looking men](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) who made up the *switcheroo* team at the conservatory since June 2023.
+- But I had been looking at actual photos of the [very different-looking men](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) who made up the *switcheroo* team at the conservatory since June 2023.
 - It really was only a matter of time before I figured it out, and so murder is most likely the next step for women like me, and this must be understood very well by all involved.
 - Time was ticking and my memory would be coming back...
 - Is this the main reason behind the vicious persecution at work to get me to leave as soon as possible? 

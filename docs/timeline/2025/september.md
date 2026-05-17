@@ -166,7 +166,7 @@
 - I remain assured whatever it is will be nothing I can't handle.
 
 !!! info "Remembering a *whole bunch* of things"
-    - Around a week after the course I remember [the four distinct men who acted as trumpet teacher](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) at the conservatory in the switcheroo porn scam and [how Gabriel Silva had used the word "switcheroo" in the process of trying to bully me out of my job in August 2024](../2024/august.md#gabriel-silvas-first-team-meeting-as-manager).
+    - Around a week after the course I remember [the four distinct men who acted as trumpet teacher](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) at the conservatory in the switcheroo porn scam and [how Gabriel Silva had used the word "switcheroo" in the process of trying to bully me out of my job in August 2024](../2024/august.md#gabriel-silvas-first-team-meeting-as-manager).
     - I remember [my father's involvement](../early-years/2015.md#inexplicable-anal-fissure) with Domingo Lopez Cano from 2013 onwards.
     - I remember [my cousin Igor's unusual interest in my apartment at Ramon Ortega](../early-years/2012.md#passeig-periodista-ramon-ortega) that my father had repeatedly and excitedly told him about, insisting he must bring his young family there to visit.
     - I remember that, even though I had moved out of the apartment at Ramon Ortega, my cousin did [bring his young family on their summer holiday to Denia](../early-years/2014.md#marie-carmen-from-tlc) for a few weeks in 2014.

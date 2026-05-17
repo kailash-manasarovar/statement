@@ -222,7 +222,7 @@ function googleTranslateElementInit() {
 ### A TT participant in Dublin mentions the woman
 
 - An Irish woman who attended two successive cycles of Transforming Touch - one in Galway and another in Dublin - seemed to be running distractions and class disruptions and it only recently occurred to me she may have been asked to do so.
-- Given it took nearly three years for me to see four very different-looking men were *not* the same man, you might expect criminal gangs making millions on [switcheroo porn filmed in a Spanish school with Spanish school children starring](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) to be doing their very best to make sure I didn't get clear about this in my mind, and running interference on Steve's healing courses seems like a good place to start.
+- Given it took nearly three years for me to see four very different-looking men were *not* the same man, you might expect criminal gangs making millions on [switcheroo porn filmed in a Spanish school with Spanish school children starring](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) to be doing their very best to make sure I didn't get clear about this in my mind, and running interference on Steve's healing courses seems like a good place to start.
 - This woman spoke to me repeatedly about the 1989 rave scene in breaks, about telepathic masturbation, and she also seemed to know very personal information about me that only people who had been watching my every move online for twenty-odd years would know.
 - I thought nothing much of it at the time. 
 - I was still perma-high and incessantly cyber-stalked those days so it was difficult to gather my thoughts about anything in a normal way.

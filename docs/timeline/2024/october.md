@@ -52,7 +52,7 @@ function googleTranslateElementInit() {
 - They are very obviously building up to firing me.
 - Rather like [refusing to stop my piano studies at the conservatory in June 2023](../2023/june.md#monday-19th-june), I have no reason to leave the job I love and am very good at (brain-damage from years of poisoning notwithstanding).
 - However, my colleagues' demeanor towards me at the [Bali offsite](may.md#bali) - which Elon may have briefly attended - solidified in my mind what had been going on since the previous November when I started my job; especially with [Nadim Kobesi](../2023/november.md#nadim-kobesi), [Hans Bodani](../2023/november.md#hans-bodani), and [the military coup on my role by the marketing teams](../2024/may.md#ajay-alicia-aman-pandey-and-mushroom-man-perform-a-military-coup-on-my-job).
-- I have no idea I'm being targeted because I'm a sedated Dénia porn-gang sensation and had been starring in [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) and live-stream spy-cam porn direct from my apartment for years.
+- I have no idea I'm being targeted because I'm a sedated Dénia porn-gang sensation and had been starring in [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) and live-stream spy-cam porn direct from my apartment for years.
 - I had no idea.
 - The only possible reason I could come up with for the constant abuse at work were my political views on trans ideology and women's rights.
 - Gabriel Silva meets me and I ask him what he's going to do about [Hans's and Anthony's outrageous insubordination](june.md#polygon).
@@ -89,7 +89,7 @@ function googleTranslateElementInit() {
 - Fetch is a direct reference to the company in Cambridge UK, Fetch.AI, [where a man flashed his crotch at me in an online meeting](../early-years/interim.md#fetchai) a week after I started.
 - When I meet Alyssa again, I tell her about my experience at Fetch without mentioning the company name.
 - At our next team meeting, Gabriel Silva makes sure to mention we *must* all watch this meeting if we haven't already, especially me.
-- Polygon then hires a [man who targeted me at zkSync](../2023/june.md#work-stress) in April 2023 while the [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) was in full swing, Coogan.
+- Polygon then hires a [man who targeted me at zkSync](../2023/june.md#work-stress) in April 2023 while the [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) was in full swing, Coogan.
 - Alyssa tells me Rebecca Rettig wants to talk to me about what's been going on and I agree to talk to her when I understand the process fully.
 - We never speak. 
 - They fire me first.
@@ -218,7 +218,7 @@ function googleTranslateElementInit() {
 
 ![seeing carmen](../../content/images/seeing-carmen.png)
 
-- After seeing Carmen a few times this month - she makes no effort to hide herself - I realize with horror that the woman who had turned up to listen to the [chamber music concert in May 2023](../2023/may.md#chamber-music-concert), pretending to be Pablo's mum, the only parent that showed up along with at least two of the [switcheroo-porn trumpet-teacher team](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) pretending to be the same one man, Vidal Sastre Sanchez Hornero, was her too!
+- After seeing Carmen a few times this month - she makes no effort to hide herself - I realize with horror that the woman who had turned up to listen to the [chamber music concert in May 2023](../2023/may.md#chamber-music-concert), pretending to be Pablo's mum, the only parent that showed up along with at least two of the [switcheroo-porn trumpet-teacher team](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) pretending to be the same one man, Vidal Sastre Sanchez Hornero, was her too!
 
 !!! tip "The video files"
     - You'll have to wait for access to these because I don't have a good option for content delivery of multiple large files at the current homeless-and-jobless time.
@@ -252,7 +252,7 @@ function googleTranslateElementInit() {
 
 - The man on her right smiles at her, and I see his face. 
 - His teeth, in profile, make him look like a possum.
-- You may remember, inexplicably, [I have been seeing *possums* on my X feed](../2023/may.md#possums) since at least May 2023 when [the switcheroo porn](../../crimes/protagonists/vidal-sastre.md#four-distinct-men) was in production at the conservatory.
+- You may remember, inexplicably, [I have been seeing *possums* on my X feed](../2023/may.md#possums) since at least May 2023 when [the switcheroo porn](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) was in production at the conservatory.
 - There was a flurry of possums on my X feed for a few days after seeing him, and probably until I left for Madrid to talk to [the Spanish official, Paloma](#meeting-inma-and-paloma-the-spanish-official-in-madrid).
 
 ![pic]( ../../content/images/fake-accounts/messages-oct/6.png) 
