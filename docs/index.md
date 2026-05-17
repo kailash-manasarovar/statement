@@ -109,7 +109,7 @@ I do, however, have a lot of God.
 - My eyesight was severely affected while being poisoned.
 - Something I was ingesting thinned my bones and I had three repeated rib fractures at an already weakened area over the switcheroo period and on the run up to the [Bali horror-porn events](timeline/2024/may.md#bali).
 - I lost a great deal of my mental capacity and cognitive skills, and I found my ability to play chess - previously exceptional - totally obliterated.
-- I suspect this was very intentional.
+- I suspect this was very intentional, and possibly in answer to specific requests.
 
 ### Sedated-rape
 
