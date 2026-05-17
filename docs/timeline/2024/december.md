@@ -418,13 +418,13 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 ## My Belgian friend says he will help me
 
-- I'm posting snippets from this police statement every day online, particular on my Facebook account.
+- I'm posting snippets from this police statement every day online, particularly on my Facebook account.
 - The information I'm sharing is horrific.
 - I'm basically asking for help, screaming for it, by writing this police statement.
 - Except, no-one seems to care.
 - So I keep writing, until someone does.
 - All I have is my words and there's no other option but to use them.
-- One of my friends, who [I had visited in Brussels back in July while I was at EthCC](july.md#meeting-my-belgian-friend) and told him what was going on for me, as far as I knew it at that time, tells me he's coming to help me move back to London.
+- One of my friends, who [I had visited in Brussels back in July while I was at EthCC](july.md#meeting-my-belgian-friend) and told what was going on for me, as far as I knew it at that time, tells me he's coming to help me move back to London.
 - I'm so relieved. 
 - Finally, a friend will help me.
 - He's very *very* concerned, it seems.
