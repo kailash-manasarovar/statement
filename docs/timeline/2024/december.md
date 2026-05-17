@@ -430,7 +430,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - He's very *very* concerned, it seems.
 - It's such a relief, you cannot imagine.
 - Then he ghosts me, for days.
-- Eventually, quietly and with no apology or explanation, he says he can't do it because he has to take his kids to school.
+- Eventually after I ask him what's happening, quietly and with no apology or explanation, he says he can't do it because he has to take his kids to school.
 - Did someone reach out and tell him to back off?
 - Does he have a porn-subscription too?
 - At the time it didn't occur to me but there were some unusual events around Nicos.
@@ -445,7 +445,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - I guess we'll find out.
 - At the time, I find this ability to ask for help quite powerful - I don't usually, cos no-one does.
 - I decide instead I'll ask Paul if he will accompany me to the Madrid police to make a further statement about attempted murder by poison in October 2024, and to help me move my stuff back to London from Spain.
-- I haven't seen Paul since 2001 - when he, Niall, and Simon visited me and Brian in Hastings one night.
+- I haven't seen Paul since 2001 - when he, Niall, and Simon visited me and my boyfriend at the time Brian at our flat in Hastings one night.
 - I have no idea Paul is on the North London porn-gang payroll as well.
 
 ## A man I recognize bares his teeth at me
