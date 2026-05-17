@@ -85,11 +85,11 @@ I do, however, have a lot of God.
 - With zero concern for consequences, they even wheeled out [the 1989 North London rape-gang boss Winston May](timeline/2024/june.md#winston-may), who I had complained about twice to the Metropolitan Police; once in 2006, and then again in 2015. 
 - Given he could hardly walk he was so high when I saw him, I expect he had been in prison at the time and was given a day out for the sole purpose of terrorizing me.
 
-### Drugging with hallucinogens and poisoning with brake-fluid, pesticides, and other substances
+### Hallucinogens, aphrodisiacs, brake-fluid, pesticides, and other substances
 
 - From February 2022 to October 2025, I was drugged continuously with hallucinogens and other substances.
 - My brain had already been damaged by poisoning over many years to give me a perceptual stroke-like injury whereby I'm unable to recognize objects out of context.
-- This ensured that a group of vastly different-looking men - dressing the same, using the same voice (only one of them speaks), and performing the same actions - I confused as the same one man.
+- This ensured that a group of vastly different-looking men - dressing the same, using the same voice (only siblings amongst them speak), and performing the same actions - I confused as the same one man.
 - The constant hallucinogen-dosing ensured the efficacy of [the switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) while it was going on, and a continued inability to understand it afterwards.
 - The hallucinogens were also used to exaggerate all emotional content; specifically terror, confusion and anxiety resulting from constant gang-stalking, and intense and overwhelming sexual arousal resulting from aphrodisiac intake coupled with online manipulation from hacked devices.
 - My view is that the hallucinogens, along with sedatives and *happy pills*, were also used to keep my mind in a confused state so that I failed to notice the obvious signs of sedating-events when they happened.
@@ -101,11 +101,10 @@ I do, however, have a lot of God.
 - I felt physically twenty-years younger for a short period and I have to wonder if those feelgood emotions were intended as preparation for the planned post-switcheroo, faux-relationship-leading-to-marriage honey-trap - resulting in sudden death and inheritance.
 - Alongside all this, the gangs were poisoning me repeatedly with brake-fluid, antifreeze, pesticides, and similarly deadly substances.
 - It's not clear why they would continuously risk the life of their live-streaming, sex-slave porn-star other than that they are murderously insane and their hatred of women makes the caliphate look like pussycats.
-
-- I was drugged and poisoned without my knowledge; [in class at the conservatory](timeline/2023/january.md#serious-poisoning-at-chamber-music-class), at home via tampered-with water mains and air systems, in my car (sprayed/misted onto surfaces) and onto all my belongings before I moved them to London, in my hotel rooms and wherever criminals gained illicit access for adding poisons and drugs to my personal items such as food, water, makeup and bathroom products - the most recent egregious example of this occurring in [July 2025 in Lourdes](timeline/2025/july.md#lourdes) - and in the street during numerous distract-and-drug events I detail in this statement.
+- I was drugged and poisoned without my knowledge; [in class at the conservatory](timeline/2023/january.md#serious-poisoning-at-chamber-music-class), at home via tampered-with water mains and air systems, in my car (sprayed/misted onto surfaces) and onto all my belongings before I moved them to London, in my hotel rooms and wherever criminals gained illicit access for adding poisons and drugs to my personal items such as food, water, makeup and bathroom products - the most recent egregious example of this occurring in [July 2025 in Lourdes](timeline/2025/july.md#lourdes) - and in the street during numerous distract-and-drug events.
 - On Halloween night in 2023, [I was poisoned with brake-fluid or anti-freeze](timeline/2023/november.md#starting-my-new-job) and expected to sustain a serious injury or death at that time.
 - At the end of October 2024, I was supposed to die by poisoning with brake-fluid, anti-freeze, methanol or similar, [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-kill), doused over all my belongings, and added to my bathroom products for absorption through the skin.
-- The porn-gangs and their subscribing audiences, from lengthy experience, were absolutely certain of my demise and their freedom to murder a victim without consequence.
+- The porn-gangs and *all* their subscribing audiences, from lengthy experience, were absolutely certain of my demise and their freedom to murder a victim without consequence.
 - I sustained an injury to my right kidney which might now just be scarring (time of writing). 
 - My eyesight was severely affected while being poisoned.
 - Something I was ingesting thinned my bones and I had three repeated rib fractures at an already weakened area over the switcheroo period and on the run up to the [Bali horror-porn events](timeline/2024/may.md#bali).
