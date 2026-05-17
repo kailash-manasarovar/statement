@@ -34,7 +34,7 @@ I continue to be gang-stalked and cyber-terrorized online and in-person to this 
 
 Up until I remembered [something extraordinary about the Tenor Cortis conservatory of Dénia, a government-run music school, in September 2025](timeline/2025/october.md#thunderbolt-clarity) and how it doubles as a porn-studio using teachers, staff, and children as its actors - with unwitting students as its drugged and brain-damaged *porn-stars* - I continued to suffer clandestine drugging and poisoning (attempted murder) anywhere I was in the world.
 
-After I realized the extent to which the Spanish school system has been taken over by international criminal porn-gangs, I was only briefly drugged one time in Lourdes in April 2026 and all poisoning has since ceased.
+After I realized the extent to which the Spanish school system has been taken over by international criminal porn-gangs, I was only briefly drugged one time in Lourdes in April 2026 and all poisoning, one would hope, has since ceased.
 
 ![Novel cover](content/images/the-novel/cover.webp)
 
