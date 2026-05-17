@@ -22,7 +22,7 @@ function googleTranslateElementInit() {
 
 ## Summary statement to the police
 
-This document details the multiple crimes committed against myself, and countless others, by an international criminal porn enterprise based in North London and Spain, over many decades since I was a child.
+This document details the multiple crimes committed against myself, and countless others, by an international, criminal porn-enterprise based in North London and Spain, over many decades since I was a child.
 
 I am Dr Katharine Margaret Murphy, Y2775989H; previously residing at Carrer Furs 15, Bloque 1, Escalera 2, Piso 3, Apartamento 17, Dénia, 03700 Alicante, Spain; an apartment set up with advanced spy-cam technology.
 
@@ -66,7 +66,7 @@ I do, however, have a lot of God.
 - When it became apparent I would not be parting with any money, they attempted to murder me by poisoning - in the understanding that my money would still be available to them via an inheriting family member (my brother) into whom they already had their claws.
 - I survived the poisoning attempt, so they switched tack and I joined their brain-damage program instead.
 - For nearly twenty years I was slowly poisoned by deadly herbs so that I would lose the ability to recognize objects out of context; a stroke-like symptom.
-- This was so that between November 2022 and June 2023, the gangs could set up a [*switcheroo* horror-porn show](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) filmed live at the conservatory, in and around the town, and in my apartment without my knowledge, where at least four different men turned up to teach a class at the music school, children attending, and I would only know them as one man.
+- This was so that between November 2022 and June 2023, the gangs could set up a [*switcheroo* horror-porn show](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) filmed live at the conservatory, in and around the town, and in my apartment without my knowledge, where at least six different men turned up to teach a class at the music school, children attending, and I would only know them as one man.
 - This scam also required intense hallucinogenic intake to work effectively and I was drugged  intensely at my home before class, and topped up as I entered the music school by teachers, staff, and students.
 - It was also intended that I would invite the "trumpet teacher" to my home - a man they had manipulated me into finding sexually attractive - where they planned to live-stream sessions of *switcheroo* porn through the 24-7 spy-cam network, me somewhat conscious.
 - This did not happen as the man's rather pathetic romantic-advance (*oh, I'm in town on Monday afternoons*) gave me a PTSD reaction like no other.
@@ -81,8 +81,8 @@ I do, however, have a lot of God.
 - So, in order to "explain away" these expected trauma-reactions to a sedated-rape victim, the gangs create incessant and intricate, carefully choreographed, terror-vignettes starring multiple known protagonists that render a victim so anxious she doesn't notice the true inexplicability of the anxiety and depression.
 - I detail these daily instances of physical stalking assisted by pinpoint tracking of my movements via my hacked mobile phones in order to harass me and create anxiety-forming situations with the sole intention of terrorizing me into believing that the extreme anxiety and grievous mental and emotional harm I was suffering, due to repeated sedated rape, had a "logical reason".
 - I assume the gangs expected this anxiety to also mask the toxic physical side-effects arising from constant drugging and poisoning.
-- Back in the UK in July 2024, while the terror was ongoing, I stood as a [candidate for general election](timeline/2024/june.md#volunteers-not-what-they-seem) and was stalked endlessly by criminal gangs.
-- They even wheeled out [the 1989 North London rape-gang boss Winston May](timeline/2024/june.md#winston-may) who I complained about twice to the Metropolitan Police; once in 2006, and then again in 2015. 
+- Back in the UK in July 2024, while the terror was ongoing, I stood as a [candidate for general election](timeline/2024/june.md#volunteers-not-what-they-seem) and was stalked endlessly by criminal gangs in North London.
+- With zero concern for consequences, they even wheeled out [the 1989 North London rape-gang boss Winston May](timeline/2024/june.md#winston-may), who I had complained about twice to the Metropolitan Police; once in 2006, and then again in 2015. 
 - Given he could hardly walk he was so high when I saw him, I expect he had been in prison at the time and was given a day out for the sole purpose of terrorizing me.
 
 ### Drugging and poisoning with brake-fluid, pesticides, and other substances
