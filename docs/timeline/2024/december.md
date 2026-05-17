@@ -416,22 +416,34 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - I had no idea about squirrel's diamond nut at the time.
 - (My apologies for this section if it was a bit gross.)
 
-## My Belgian friend
+## My Belgian friend says he will help me
 
-- I'm posting snippets from this police statement every day online.
-- The information I have is horrific.
-- I'm basically asking for help by writing this police statement.
+- I'm posting snippets from this police statement every day online, particular on my Facebook account.
+- The information I'm sharing is horrific.
+- I'm basically asking for help, screaming for it, by writing this police statement.
 - Except, no-one seems to care.
-- So I keep writing.
+- So I keep writing, until someone does.
 - All I have is my words and there's no other option but to use them.
-- One of my friends, who [I had visited back in July while I was at EthCC](july.md#meeting-my-belgian-friend) and told him what was going on for me, as far as I knew it at that time, tells me he's coming to help me move back to London from Denia.
+- One of my friends, who [I had visited in Brussels back in July while I was at EthCC](july.md#meeting-my-belgian-friend) and told him what was going on for me, as far as I knew it at that time, tells me he's coming to help me move back to London.
 - I'm so relieved. 
 - Finally, a friend will help me.
-- He's very *very* concerned.
-- I then don't hear from him at all, for days.
-- It's a bit like he's ghosted me.
+- He's very *very* concerned, it seems.
+- Then he ghosts me, for days.
 - Did someone reach out and tell him to back off?
-- Instead, I ask Paul if he will help me. 
+- Does he have a porn-subscription too?
+- At the time it didn't occur to me but there were some unusual events around Nicos.
+- Nicos "popped up" in 2012 in East Finchley out of the blue when I was back home suffering with colitis.
+- He invited me to a gig in Brussels which his band was playing, and I went along.
+- At the gig, I remember his musician friends saying, specifically, how Valencia was full of excellent horn players.
+- It could be nothing, but then I remember that in July at EthCC, Nicos plays me a song he has written about how he was violated by a woman sexually when he was 16.
+- She was, as he put it, a bit rough with him.
+- I'm sitting there wondering if he's taking the piss out of me, and then decide he isn't.
+- Perhaps he was.
+- I guess we'll find out.
+- At the time, I find an ability to ask for help quite powerful - I don't usually, cos no-one does.
+- I decide instead I'll ask Paul if he will accompany me to the Madrid police to make a further statement about poisoning in October 2024, and to help me move my stuff back to London from Spain.
+- I haven't seen Paul since 2001 - when he, Niall, and Simon visited me and Brian in Hastings one night.
+- I have no idea Paul is on the North London porn-gang payroll as well.
 
 ## A man I recognize bares his teeth at me
 
