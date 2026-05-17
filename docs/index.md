@@ -353,6 +353,7 @@ I do, however, have a lot of God.
 - Are they prisoners in their own homes or forced to get involved against their will?
 - Will they be killed or maimed if they complain, countless examples available?
 - How many have refused to do porn, or tried to stop some evil, and ended up crippled by pesticides or murdered?
+- How many parents have lost their daughters to the porn-gangs?
 - Are all victims of horror-porn, even the unwitting ones, summarily maimed or killed?
 - Staying alive and well is always a strong motive.
 - Are people's children threatened?
