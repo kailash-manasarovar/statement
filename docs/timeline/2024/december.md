@@ -446,7 +446,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - I guess we'll find out.
 - At the time, I find this ability to ask for help quite powerful - I don't usually, cos no-one does.
 - I decide instead I'll ask Paul if he will accompany me to the Madrid police to make a further statement about attempted murder by poison in October 2024, and to help me move my stuff back to London from Spain.
-- I haven't seen Paul since 2001 - when he, Niall, and Simon visited me and my boyfriend at the time Brian at our flat in Hastings one night.
+- I haven't seen Paul since 2001 - when he, Niall, and Simon visited me and, my boyfriend at the time, Brian at our flat in Hastings one night.
 - I have no idea Paul is on the North London porn-gang payroll as well.
 
 ## A man I recognize bares his teeth at me
