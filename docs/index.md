@@ -162,9 +162,9 @@ I do, however, have a lot of God.
 - In fact, it doesn't take an Einstein to figure out that these sorts of subscribers - with ready cash, usually crypto - might pay extraordinary amounts to see a female colleague (usually despised, sometimes murdered for existing) in varying degrees of sexual humiliation.
 - Might they pay to sedate and rape her too?
 - Might they even get their female human-resource-and-conference teams to hire people for the express purpose of terrorizing her, and to organize travel and venues so that the whole company and its special guests might have a go too?
-- I wonder how much a ticket for a show like that might cost?
-- My horror-porn tenure at [Polygon](timeline/2023/november.md#polygon) - while I was living as an unwitting sedated-sex-slave in my spy-cam apartment at Carrer Furs - and culminating in [daily attacks at a conference in Bali](timeline/2024/may.md#bali), after which I was fired, is probably the most egregious example ever known of what happens when male tech employees have 24-7 online access to a female colleague.
-- Colleagues at my role prior to Polygon at [zkSync](timeline/2023/march.md#work-stress) were also obviously watching everything that was happening to me at home, and taking part as much as possible.
+- I wonder how much a ticket for an interactive show like that might cost?
+- My horror-porn tenure at [Polygon](timeline/2023/november.md#polygon) - while I was living as an unwitting sedated-sex-slave in my spy-cam apartment at Carrer Furs - and culminating in [nightly attacks at a conference in Bali](timeline/2024/may.md#bali), after which I was fired, is probably the most egregious example ever known of what male tech employees will justify if they have 24-7 online access to a female colleague. And everyone knows it's not just me!
+- Colleagues at the job I worked prior to Polygon, [zkSync](timeline/2023/march.md#work-stress), were also obviously watching everything that was happening to me at home, and taking part as much as possible.
 - In fact, so many of my roles over the last years have felt like going into battle every day from being under constant and vicious attack from my close male colleagues, my guess is that many of my work roles were set up by the porn-gangs themselves for paid humiliation-content purposes.
 - And, of course, as all criminal porn-addicts eventually find out, their due is never just an ejaculation, a hand covering a guffaw, or a subscription fee alone.
 - No.
@@ -173,7 +173,7 @@ I do, however, have a lot of God.
 - My guess is that the triumphant, boner-obsessed idiots were forced to run the caliphate AI systems whose sole goal is total destruction of the West, and the poor boys threatened with scandal and jail agreed.
 - Not one of them thought saving the world was more important than saving his mother's erroneous good opinion of him.
 - Who knew there wasn't a single conscience amongst the p*rn-addict community of billions of men?
-- I'm certain the caliphate knew it, and knew it very well, and have laughingly paid billions to get their enemies to run their tech-weaponry.
+- I'm certain the caliphate knew it, and knew it very well, and have laughingly paid billions to get their own enemies to run their tech-weaponry.
 - Who knew the porn-addict was essentially a fool? It was always obvious to me.
 
 ![Planning the murder of innocents](content/images/planning-the-murder-of-innocents.png)
