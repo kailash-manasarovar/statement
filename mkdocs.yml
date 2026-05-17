@@ -52,6 +52,7 @@ nav:
   - Home: 
     - Summary: index.md
   - Timeline:
+    - Summary: timeline/contents.md
     - "2021":
       - January: timeline/2021/january.md
       - March: timeline/2021/march.md 
