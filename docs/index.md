@@ -185,7 +185,7 @@ I do, however, have a lot of God.
 - I believe this man, at that moment, changed his mind about what he was doing, and maybe even asked the gangs to stop, and they didn't - an impossible request anyway - so instead he started to help me in a clandestine manner.
 - He told me about the region's decades-long honey-trap enterprise, sending me photographic evidence in the process.
 - Putting his own life at considerable risk, he sent me pictures of countless other female victims the gangs had targeted over many decades; some sexploitation blackmail victims, many of them groomed and drugged into porn and prostitution, some manipulated into having babies for porn, and many I believe to have been murdered.
-- He sent me pictures of some of the other men involved in [the conservatory switcheroo porn-scam](crimes/protagonists/vidal-sastre.md#at-least-four) and much information I have been adding to this police statement.
+- He sent me pictures of some of the other men involved in [the conservatory switcheroo porn-scam](crimes/protagonists/vidal-sastre.md#at-least-six) and much information I have been adding to this police statement.
 - He told me about the proliferation of child-pornography in the region and how hackers are forced to target children and toddlers online.
 - He told me about the baby-rape industry in Dénia, now thought to be the gang’s major source of income.
 - He warned me about poisoning in my home, and my car, amongst other things.
@@ -265,7 +265,7 @@ I do, however, have a lot of God.
 - Perhaps you'll find someone who saw me going to the toilet, or showering, or doing yoga in my sitting room, or taking an enema.
 - Maybe someone heard me farting loudly.
 - Many of the men will have seen footage of me masturbating in my bedroom or bathroom while I was drugged out of my mind on spiked hallucinogens and aphrodisiacs.
-- No doubt they will have seen the regular sedated-rape sessions broadcast live from my apartment, or even [the preliminary switcheroo sex-assaults filmed live at music classes at the conservatory](crimes/protagonists/vidal-sastre.md#at-least-four).
+- No doubt they will have seen the regular sedated-rape sessions broadcast live from my apartment, or even [the preliminary switcheroo sex-assaults filmed live at music classes at the conservatory](crimes/protagonists/vidal-sastre.md#at-least-six).
 - You could ask them if they were watching the porn specials back in 2015, 2013, or even 2008 from my other homes.
 - Why not ask them who else they're watching in similar situations; there's bound to be masses of live-action spy-cam sex-slaves everyone knows about.
 - Ask them how many of those women ended up dead, and if you like, you could ask them if they expected the same for me.
@@ -408,7 +408,7 @@ This police statement is set out into different sections.
 1. **Timeline** of significant events:
     1. The largest section and in continuous evolution (all other sections at the time of writing are in an early draft state).
     1. There are at least three Netflix-seasons in here:
-        1. The sedated-sex-slave, conservatory switcheroo-porn terror; between February 2022 and let's say until surviving poisoning once again in October 2024.
+        1. The sedated-sex-slave, conservatory switcheroo-porn terror; prepped in Lourdes from January 2021, arriving in Las Marinas in February 2022, and let's say until surviving poisoning once again in October 2024.
         1. Our heroine struggles to save her own life; from November 2024 to this day.
         1. Background and history of significant and related events from our heroine's life; from 1980-2021, and this section could be split further:
             1. Childhood signs and symbols.

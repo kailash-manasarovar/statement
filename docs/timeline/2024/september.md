@@ -349,7 +349,7 @@ function googleTranslateElementInit() {
 
 ##### 14. `@dattyhed`
 
-- The `@dattyhed` fake account has been stalking me for well over a year, perhaps even since [19th June 2023 (the pinned tweet's date)](../2023/june.md#sunday-18th-june-alicante-airport), the day after Gloria the school receptionist's brother, the [third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno), attempted to take physical control over me.
+- The `@dattyhed` fake account has been stalking me for well over a year, perhaps even since [19th June 2023 (the pinned tweet's date)](../2023/june.md#sunday-18th-june-alicante-airport), the day after Gloria the school receptionist's brother, the [third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno), attempted to take physical control over me.
 - The account owner, still party to everything I do online, even liked a post of mine this morning (the time of writing being 8th January 2026).
 
 ![pic]( ../../content/images/targeted-women/39-ai-mix-now.png ) 
@@ -485,7 +485,7 @@ function googleTranslateElementInit() {
 - You can see from my tweet how little I knew of the truth; although I knew enough to be a candidate for murder.
 - I wonder if "special events" includes groomed and sedated women that aren't consenting, even if their eyes are open; women who know the men in the community, and in the porn, hidden behind masks.
 - I ask the hacker/trumpet teacher if that was his intention when meeting me at Alicante airport on [18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport); my very own "special event".
-- I'm not aware at the time that I'm addressing [the third man of the four conservatory-porn-gang trumpet-teacher actors](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno) and probably Gloria the receptionists brother Ivan.
+- I'm not aware at the time that I'm addressing [the third man of the four conservatory-porn-gang trumpet-teacher actors](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) and probably Gloria the receptionists brother Ivan.
 - I look the club up online and see the same robot masks.
 - I also see a strange skinny woman with her back to the camera in a blond wig.
 - She's wearing a top hat.

@@ -84,8 +84,8 @@ function googleTranslateElementInit() {
 - There is a door into the next room where Ana goes with her instrument. I believe the other trumpet teachers are waiting behind this door to make their switcheroo appearances in the porn special.
 - One of the trumpet teachers flirts with me outrageously in public. I flirt back. It's quite amusing.
 - I remember I have cause to say, after he asks me about my surname, and just after Ana has been in, that "Katharine is sufficient," and he giggles. He primes this, of course.
-- It's hard to remember which trumpet teacher that was but I'm pretty sure it was [one of the second lot of trumpet teachers](../../crimes/protagonists/vidal-sastre.md#three-more).
-- For the next significant event, the trumpet teacher is played by [Gloria the-school-receptionist's brother Ivan](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno).
+- It's hard to remember which trumpet teacher that was but I'm pretty sure it was [one of the second lot of trumpet teachers](../../crimes/protagonists/vidal-sastre.md#at-least-four-more).
+- For the next significant event, the trumpet teacher is played by [Gloria the-school-receptionist's brother Ivan](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno).
 - I'm sitting in my chair, he is standing in front of me, our eyes lock and there is a powerful and undeniably reciprocal sexual attraction which is rather overwhelming.
 - I will be reminded of the look I give him at this moment when I see [plate lady online in July](../../content/images/plate-lady/plate-lady-love.png).
 - This moment has no history which concerns me immensely.
@@ -105,7 +105,7 @@ function googleTranslateElementInit() {
 ![Chamber music concert](../../content/images/chamber-music-concert.png)
 
 - The trumpet teacher who says this is [Mark from English class in 2014](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013).
-- Later, the [third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno) enters again without me noticing.
+- Later, the [third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) enters again without me noticing.
 - Carmen Lopez Cano, Domingo's sister, a tiny blond woman, was playing the role of Pablo's "mum" in the audience and she was the only other adult person in the room apart from the "teachers".
 - She brought a small child with her.
 - The concert ends and I leave to walk out.

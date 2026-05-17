@@ -682,7 +682,7 @@ function googleTranslateElementInit() {
 - Other than that Alicia and the other handful of women were part of the marketing and administration teams.
 - Alicia, and everyone else, will have been persuaded to hate on me due to my women's rights activism.
 - She wouldn't have known about the spy-cam and sedating porn going on at my apartment in Dénia at the time. I didn't know myself.
-- She certainly wouldn't have known how I had been [starring online internationally in *switcheroo* porn with teachers and staff at the conservatory of Dénia since November 2022](../../crimes/protagonists/vidal-sastre.md#at-least-four).
+- She certainly wouldn't have known how I had been [starring online internationally in *switcheroo* porn with teachers and staff at the conservatory of Dénia since November 2022](../../crimes/protagonists/vidal-sastre.md#at-least-six).
 - My male colleagues knew about that.
 - Although none of my colleagues will have known how I had been a target for [criminal porn-gangs since 2003](../2001-to-2010/2003.md#porn-fatwa) when I came into a lot of money from the Lockerbie air terrorist attack compensation that they decided they would rob me of (and didn't, but instead made billions on non-consenting and sedated porn with me starring).
 - Anyway, shortly after Bali, maybe the next week, Alicia leaves the firm.
@@ -709,7 +709,7 @@ function googleTranslateElementInit() {
 
 - The inevitable paranoia arising from my experiences at work and then back in Dénia completely isolated after Bali where I suffered even more poisoning, drugging, and attacks, made me wonder if the book was AI generated and part of the plot.
 - For a porn-gang target, whose normal law-abiding tax-paying daily life, and every human right she ever had, has been totally stripped away, including her health, sight, and mental capacity which have been obliterated by poison and drugs, the title seems to be something a pimp or violent male might say to a woman or child while threatening their life.
-- The title read like a curious choker-seed for when my life is truly threatened after I'm caught up in the intended honey-trap relationship where they take my considerable wealth, the only thing I have left, and probably set me up with [number 3 trumpet teacher](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno), a man who has fathered countless children in the region, I'm told: all of them porn-fodder no doubt.
+- The title read like a curious choker-seed for when my life is truly threatened after I'm caught up in the intended honey-trap relationship where they take my considerable wealth, the only thing I have left, and probably set me up with [number 3 trumpet teacher](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno), a man who has fathered countless children in the region, I'm told: all of them porn-fodder no doubt.
 - I was informed the gang intended to split my stolen wealth up amongst themselves, they may have even waited to collect my family's house in North London.
 - It's what they do.
 - Anyways.

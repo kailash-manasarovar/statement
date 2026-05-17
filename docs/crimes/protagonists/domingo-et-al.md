@@ -32,7 +32,7 @@
 ### Online-stalker memes related to Domingo
 
 - The name "Cano" relates to dogs, and "Lopez" to wolves. 
-- While I was being stalked and terrorized online after the [switcheroo porn scandal at the conservatory](vidal-sastre.md#at-least-four) had ended and I had not behaved as expected (as victims usually do), I saw multiple online memes and references to these animals, and particularly when the stalking took a more seriously threatening or abusive turn.
+- While I was being stalked and terrorized online after the [switcheroo porn scandal at the conservatory](vidal-sastre.md#at-least-six) had ended and I had not behaved as expected (as victims usually do), I saw multiple online memes and references to these animals, and particularly when the stalking took a more seriously threatening or abusive turn.
 - Indeed, dogs featured constantly in the online harassment and threats.
 - Hackers reveal their close connection to Domingo Lopez Cano in August 2023 just as I'm about to return to my home in Dénia.
 
@@ -74,7 +74,7 @@
 
 ![Carmen Cano playing the flute](../../content/images/youtube-video.png)
 
-- She was also the woman who attended the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) in May 2023, led by [the trumpet teachers I've highlighted as a brother and a local man Mark](vidal-sastre.md#three-more) and [Gloria's brother](vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno).
+- She was also the woman who attended the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) in May 2023, led by [the trumpet teachers I've highlighted as a brother and a local man Mark](vidal-sastre.md#at-least-four-more) and [Gloria's brother](vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno).
 - She came to the concert in the guise of Pablo's mum - the boy student who attended the class along with me.
 - On 1st November 2024, I see her leaving my apartment building with another older dark-haired lady; the woman with the monstrous voice who I often saw going [in and out of apartment number 18](../../timeline/2024/october.md#activity-in-the-nextdoor-apartment-number-18) next door after I returned to Dénia from France at the end of September 2024.
 - The older woman could even have been the woman in [the picture above sitting on the right of Domingo](#domingo-lopez-cano) from 2016.
@@ -91,7 +91,7 @@
 
 ![Trumpet teachers and Gloria receptionist](../../content/images/fake-accounts/ai-mix-of-trumpet-teachers-and-gloria.png)
 
-- Possibly a close relation to the [third man of the conservatory's switcheroo porn-gang](vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno); school receptionist an ideal job.
+- Possibly a close relation to the [third man of the conservatory's switcheroo porn-gang](vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno); school receptionist an ideal job.
 
 ### Ana Requena 
 

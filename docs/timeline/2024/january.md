@@ -228,7 +228,7 @@ function googleTranslateElementInit() {
 - Did I surprise them?
 - My tweet was a direct reference to Winston May; the rape-gang ring-leader from North London who I will see for the first time in over thirty years in [June 2024 while campaigning for the general election in the UK](june.md#winston-may).
 - Winston May (who I detested when I was a child, by the way, but who totally controlled me) always looked me dead in the eyes while raping me.
-- Given I was being triggered to remember events and instances from 1989, and [one of the trumpet teachers had reminded me of Winston May](../2023/september.md#alex-and-paul) - [the second trumpet teacher; the brother and Mark both reminded me of Winston May](../../crimes/protagonists/vidal-sastre.md#three-more) - it is unsurprising that odd memories like this *popped up* from time to time.
+- Given I was being triggered to remember events and instances from 1989, and [one of the trumpet teachers had reminded me of Winston May](../2023/september.md#alex-and-paul) - [the second trumpet teacher; the brother and Mark both reminded me of Winston May](../../crimes/protagonists/vidal-sastre.md#at-least-four-more) - it is unsurprising that odd memories like this *popped up* from time to time.
 - This may well be in my statement to the police, but it is also possibly viewable in the porn.
 - The other option is that the Spanish gangs were working closely with the rape-gangs of North London and Winston May told them in detail about his sexual MO with vulnerable girls, and they used the information to procure children and terrorize me.
 - There was no further interaction.

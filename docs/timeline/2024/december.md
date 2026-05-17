@@ -251,7 +251,7 @@ function googleTranslateElementInit() {
 | ![pic]( ../../content/images/fake-accounts/nov-24/Screenshot%202024-12-02%20at%204.12.56 PM.png)  
 The pic above is one of a series I saw of a woman photographed without her consent while on a date. |
 | ![pic]( ../../content/images/fake-accounts/nov-24/daughter-of-innocent-lady.png) |
-The woman in the pic above I believe is the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101)'s daughter. They look very alike and I have seen her in countless pics. She also looks a lot like [Bruno, one of the conservatory trumpet teachers](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno), Gloria the music-school secretary's brother, and the same man that was [waiting for me at Alicante airport arrivals on 18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport). Could he be the father and therefore the groomer? |
+The woman in the pic above I believe is the [innocent lady groomed into porn](august.md#grooming-an-innocent-girl-into-porn-101)'s daughter. They look very alike and I have seen her in countless pics. She also looks a lot like [Bruno, one of the conservatory trumpet teachers](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno), Gloria the music-school secretary's brother, and the same man that was [waiting for me at Alicante airport arrivals on 18th June 2023](../2023/june.md#sunday-18th-june-alicante-airport). Could he be the father and therefore the groomer? |
 
 ## Ongoing torment and terrorizing
 

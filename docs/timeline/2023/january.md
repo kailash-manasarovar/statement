@@ -179,7 +179,7 @@ function googleTranslateElementInit() {
 
 - The doctor **never comes to class again**.
 - He came to two classes in total. Of course, he may have been more regularly present at my apartment after class without my knowledge. 
-- When Pablo and I asked what happened to the doctor, the trumpet teacher ([number two](../../crimes/protagonists/vidal-sastre.md#three-more)) told us he was at the hospital as he was a doctor.
+- When Pablo and I asked what happened to the doctor, the trumpet teacher ([number two](../../crimes/protagonists/vidal-sastre.md#at-least-four-more)) told us he was at the hospital as he was a doctor.
 - Incidentally, the porn-gangs may have taken my Google-search self-diagnosis very seriously as [it seems they may have gotten the police to block the road so that I cannot go hiking again in the mountains the following weekend](#denia-police-close-the-road-for-me).
 
 ### Going to my doctor

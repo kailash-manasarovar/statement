@@ -508,7 +508,7 @@ function googleTranslateElementInit() {
 - I had been late 15 minutes to the appointment, so I thought maybe he did it so I'd never come back.
 - But it was too egregious to explain away like that.
 - Someone managed to poison this man's view to the extent where he would butcher, literally, a woman's hair.
-- This was the time just after I had realized [the conservatory scam had been a switcheroo porn special](../../crimes/protagonists/vidal-sastre.md#at-least-four), and on the back of that I had quickly remembered [the sedated anal-rape incest porn](../early-years/2015.md#inexplicable-anal-fissure), and the gangs had obviously cranked up [the suicide manipulation again on my social media](../2025/november.md#suicide-content-on-my-jackchardwood-account), so my view is that the porn-gangs of North London somehow got him to apply an extra psychological wounding, the way they do.
+- This was the time just after I had realized [the conservatory scam had been a switcheroo porn special](../../crimes/protagonists/vidal-sastre.md#at-least-six), and on the back of that I had quickly remembered [the sedated anal-rape incest porn](../early-years/2015.md#inexplicable-anal-fissure), and the gangs had obviously cranked up [the suicide manipulation again on my social media](../2025/november.md#suicide-content-on-my-jackchardwood-account), so my view is that the porn-gangs of North London somehow got him to apply an extra psychological wounding, the way they do.
 
 ### Still unwell
 
@@ -582,7 +582,7 @@ function googleTranslateElementInit() {
 !!! tip "Info on this note"
     - This is the original text I wrote on Sunday 24th November while drafting this police statement.
     - In just a few days time, hackers will successfully block my access to my laptop.
-    - It's interesting to read this in retrospect and note that I still believe Sandra Smith is Hazel's mother, I still believe just a few people are targeting me online - not a whole population of porn-addicts and criminal pornographers - and that there is only one trumpet teacher that came to teach classes at the conservatory, not [the actual four or more](../../crimes/protagonists/vidal-sastre.md#at-least-four) that I understand to be the same one man after having been successfully brain-damaged with deadly poisons.
+    - It's interesting to read this in retrospect and note that I still believe Sandra Smith is Hazel's mother, I still believe just a few people are targeting me online - not a whole population of porn-addicts and criminal pornographers - and that there is only one trumpet teacher that came to teach classes at the conservatory, not [the actual four or more](../../crimes/protagonists/vidal-sastre.md#at-least-six) that I understand to be the same one man after having been successfully brain-damaged with deadly poisons.
     - It's upsetting for me to read back these words that show I have no idea that I have been cerebrally maimed and repeatedly sedated and raped by thousands, probably, over many decades.
 
 - I have had sufficient messages from hackers on fake accounts at this time to be concerned they will impede this statement-writing process.

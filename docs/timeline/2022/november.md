@@ -46,7 +46,7 @@ function googleTranslateElementInit() {
 ![Hornero or whatever his name is, and his dad](../../content/images/hornero/horn-pic-4.jpg).
 
 - Except, it was probably not this man and instead the younger brother of this man, although they do look alike (and I believe the photo is quite old and closer to the age of the actual man I saw in Benijembla).
-- The man in Benijembla that afternoon was [man two of the switcheroo set](../../crimes/protagonists/vidal-sastre.md#three-more), the same man that had lived next door to me from time to time in [Lourdes in 2021](../2021/march.md#the-portuguese-man-next-door).
+- The man in Benijembla that afternoon was [man two of the switcheroo set](../../crimes/protagonists/vidal-sastre.md#at-least-four-more), the same man that had lived next door to me from time to time in [Lourdes in 2021](../2021/march.md#the-portuguese-man-next-door).
 - I wasn't included in the discussion between them and, while I was standing there, I noticed a woman sitting on the bench outside the Bon Aire restaurant, just where this guy had got up from.
 
 ![Bon Aire restaurant in Benijembla](../../content/images/restaurante-bon-aire.png)
@@ -170,7 +170,7 @@ function googleTranslateElementInit() {
 - Does anyone care that they've been doing it so long they got bored of adult women and went for the kids and the babies instead?
 - Ching-ching, after all.
 - At the second chamber music class, the switcheroos continued.
-- The trumpet teacher, [one of the second bunch of men I remember](../../crimes/protagonists/vidal-sastre.md#three-more), looked at me wearing that same grin I'd seen on him in Benijembla. 
+- The trumpet teacher, [one of the second bunch of men I remember](../../crimes/protagonists/vidal-sastre.md#at-least-four-more), looked at me wearing that same grin I'd seen on him in Benijembla. 
 - It was disturbing.
 - As I wrote this statement out, I noted that this grin had reminded me of the 1989 pedophile's grin, something I had also reported in [my police statement of 2015](../early-years/2015.md#statement-to-the-metropolitan-police).
 - I realize that he was grinning with delight because I had been successfully brain-damaged and was mistaking numerous men as the same one man.

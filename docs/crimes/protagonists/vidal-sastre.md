@@ -25,7 +25,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ### Four distinct men 
 
-#### At least four
+#### At least six
 
 - As my mind clears and my heart heals from decades of abuse at the hands of the Canos, the Smiths, and their associates in Dénia, France, and North London, clearer memories of what happened to me and by whom are returning.
 - I realize now that the *trumpet teacher* was made up of (minimum) four distinct men who came to the conservatory of Dénia under the role of teacher and using the name Vidal Sastre Sanchez Hornero.
@@ -51,7 +51,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
     ![The real trumpet teacher](../../content/images/hornero/hh1.png)
 
-- This is an old picture, the man is about 10 years older now. However, this younger picture demonstrates the likeness between him and the [next bloke I mention](#three-more) who must be a family relation of some sort.
+- This is an old picture, the man is about 10 years older now. However, this younger picture demonstrates the likeness between him and the [next bloke I mention](#at-least-four-more) who must be a family relation of some sort.
 - I wonder if the gypsies made sure that one of the men would be someone I was strongly attracted to in order for the trick to work?
 - Did they examine our astrological charts or consult a witch?
 - Did they use and abuse Saint Valentine in evil rituals designed for controlling women and girls?
@@ -60,7 +60,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - I believe, also, this is the man who would take the blame if I ever went to the police while still brain-damaged and believing that four very different-looking men were the same one man. 
 - Has that happened in Spain before?
 
-### Three more
+### At least four more
 
 - There could be two or three similar looking men making up these memories.
 - One or two of them looked enough like the [older, slimmer man](#the-older-slimmer-greyer-man) for me to mistake them after brain damage and whatever [sedated psychological mistaking-people training](#sedated-training-for-recognizing-faces) they do.
@@ -86,10 +86,11 @@ The chances of me being the oldest victim, at least in the conservatory system, 
     - He was the man involved in [poisoning me by overdose](../../timeline/2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice.
     - He was the man who brought the music sheets from Gloria and [handed me his phone](../../timeline/2023/march.md#the-trumpet-teacher-hands-me-his-phone).
     - The man who [was angry at me](../../timeline/2023/april.md#back-in-chamber-music-class) after I followed the `@jctot19` account.
-    - The man who switched with [the other large man](#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno) right at the end of the [May 2023 concert](../../timeline/2023/may.md#chamber-music-concert).
+    - The man who switched with [the other large man](#a-man-called-bruno-with-at-least-one-son-called-bruno) right at the end of the [May 2023 concert](../../timeline/2023/may.md#chamber-music-concert).
     - The man who led my *funeral* on [12th June 2023](../../timeline/2023/june.md#monday-12th-june-2023).
 
 - I don't have a picture of this man but would recognize him immediately.
+- Tall, muscular, always dressed in black.
 
 #### The brother of the Mercadona check out woman
 
@@ -98,7 +99,18 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - He may have been scared of Gloria.
 - Someone will be able to confirm.
 
-### A man possibly called Bruno, with at least one son called Bruno
+#### A dashing, Heathcliff-sort, good-looking younger man with lots of black hair
+
+- Something purple about him.
+- Wearing black with some purple..
+- The handsome man in amongst the three other brutes; a pic I saw repeatedly on X but never screenshot for some strange reason.
+
+#### An older man maybe
+
+- With a burgundy shirt open at the top.
+- I wonder if I've mixed this memory up with someone else.
+
+### A man called Bruno, with at least one son called Bruno
 
 - A similarly tall but even larger, lumbering man was a key component of the switcheroo trumpet-teacher team.
 - He was one of the main men starring in the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) with Carmen Cano in attendance (masquerading or not) as Pablo's mum.
@@ -157,15 +169,15 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - They have been targeting, coercing into porn and prostitution, honey-trapping and extorting women and girls for decades.
 - Their business has now evolved into procuring babies for porn and infiltrating the Spanish school system to set up porn studios in children's classrooms.
 - They are 100% protected by Spanish authorities who prefer to wait for complainants to be murdered than do anything to protect the children these monsters have constant access to.
-- Bold and confident, they even AI'ed their faces together, mixing the conservatory receptionist Gloria's face in too (as [the third man](#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno) is likely her brother Ivan).
+- Bold and confident, they even AI'ed their faces together, mixing the conservatory receptionist Gloria's face in too (as [the third man](#a-man-called-bruno-with-at-least-one-son-called-bruno) is likely her brother Ivan).
 - They then tormented me endlessly with a fake AI-auto-posting account, `@Susan_E_J_USA`, that had this photo as a profile.
 - The vile auto-posting misandry spouting from the account appears to be coming from prompted and process-heavy criminal AI systems and I suspect managed by Hazel and Sandra Smith. 
 
 ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/ai-mix-of-trumpet-teachers-and-gloria.png)
 
 - Gloria's face, the music school receptionist, is the clearest image in this AI photo.
-- The face of the [first man](#the-older-slimmer-greyer-man) and the [second men](#three-more) are missing.
-- The eyes are from [the deep-set monstrous man](#dark-thick-curly-haired-deep-set-man), and the overall face shape is the [third man](#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno), probably Gloria's brother Ivan.
+- The face of the [first man](#the-older-slimmer-greyer-man) and the [second men](#at-least-four-more) are missing.
+- The eyes are from [the deep-set monstrous man](#dark-thick-curly-haired-deep-set-man), and the overall face shape is the [third man](#a-man-called-bruno-with-at-least-one-son-called-bruno), probably Gloria's brother Ivan.
 - The arrogance of the gang and their absolute certainty they will never be brought to justice is staggering.
 - The account today in January 2026 has the back of someone's head as a profile pic and is posting the same wild and sexist content as before.
 
@@ -239,7 +251,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Was the enormous and exaggerated anxiety I felt just after the attack on the 12th June 2023 in fact (and it makes much more sense to be) due to the grand rape-gang finale having occurred at my house that night?
 - Could part of the mind training and manipulation (*rehearsals* he called it at class) have included staring at me full in the face while I was sedated and my eyes were open and I was looking straight at them so I would recognize their faces in real life?
 - If they had assaulted me prior to June 12th 2023, I would have found them frightening in real life, and I didn’t, although they gave me a bad feeling that made me anxious and recoil… apart from the first older man who I never stopped having an extremely good feeling about.
-- From 12th June 2023, I *did* find him frightening, and ran away when [I saw one of them at Alicante airport](../../timeline/2023/june.md#sunday-18th-june-alicante-airport); I believe this one was the [unknown man that led the chamber music class](#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno) so it is likely sedated rape had begun.
+- From 12th June 2023, I *did* find him frightening, and ran away when [I saw one of them at Alicante airport](../../timeline/2023/june.md#sunday-18th-june-alicante-airport); I believe this one was the [unknown man that led the chamber music class](#a-man-called-bruno-with-at-least-one-son-called-bruno) so it is likely sedated rape had begun.
 - This whole process is so professional, so finely-tuned; none of them felt they were taking *any risk at all*. They must have done the same to hundreds, perhaps thousands of women and girls.
 
 ### The Truwoman Show or Please Turn My Wife into a Porn Star

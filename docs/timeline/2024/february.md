@@ -464,7 +464,7 @@ function googleTranslateElementInit() {
 
 - Is this an admission from the porn-gangs that they are using all the babies they can get their hands on in the region for porn, even the babies born to their own family-members, and the (potential) mothers know it?
 - Have the gangs become so bold now that, not only have they successfully infiltrated the school system, but all the women in the region know exactly what's been happening to the babies over the last decades; generations of children growing up severely traumatized?
-- Is the Mark Moseley character the [second trumpet teacher](../../crimes/protagonists/vidal-sastre.md#three-more), the [third, Gloria's brother, known to have fathered multiple children in the region](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno), or [the monster](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man)?
+- Is the Mark Moseley character the [second trumpet teacher](../../crimes/protagonists/vidal-sastre.md#at-least-four-more), the [third, Gloria's brother, known to have fathered multiple children in the region](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno), or [the monster](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man)?
 - Would all those men be involved in procuring babies for Hazel Smith and the British porn-gang's most lucrative product made by their flourishing baby-rape department?
 - Was this a line that, once crossed, a tiny segment of the community could not live with?
 

@@ -517,7 +517,7 @@ function googleTranslateElementInit() {
 
 ![Alicante arrivals hall](../../content/images/alicante.png)
 
-- In November 2025, I know that this man was the [third of the set of trumpet teachers](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno) that came to the conservatory to teach.
+- In November 2025, I know that this man was the [third of the set of trumpet teachers](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) that came to the conservatory to teach.
 - I can't believe it could be him; I'm horrified actually.
 - I pull my hat down over my eyes and rush through.
 - I forget about this, thinking I must have made a mistake because it's so weird. 
@@ -573,7 +573,7 @@ function googleTranslateElementInit() {
 - I remembered many concerning incidents at the conservatory, and with Domingo, that became more horribly meaningful after my experience at the hands of teachers and staff.
 - I also knew that if I backed down and ran away, the evil would just grow.
 - I had no idea that running away was not what they really wanted, although from my conservatory studies yes. 
-- I had no idea that [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno) *had* been waiting for me at [Alicante airport](#sunday-18th-june-alicante-airport) the night before with deeply malevolent intentions.
+- I had no idea that [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) *had* been waiting for me at [Alicante airport](#sunday-18th-june-alicante-airport) the night before with deeply malevolent intentions.
 - It's still unclear how many teachers and staff knew about the voyeurism, poisoning, drugging, and spy-cam porn; sadly my experience, which was yet to worsen, suggests that the whole town of Dénia is aware of what's going on at the conservatory and elsewhere in the region.
 - I still think I'm dealing with a bunch of silly boys; not an international crime gang that makes billions on criminal porn genres.
 

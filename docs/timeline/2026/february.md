@@ -162,7 +162,7 @@ function googleTranslateElementInit() {
 ## Keeping me topped-up in 2025
 
 - Something was keeping me high throughout 2025, and I have the [DESO account](https://desocialworld.com/u/KingForg) to prove it.
-- Obviously, the gangs had a strong motive for keeping me high which was to keep me oblivious about the trumpet teacher being made up of [a number of distinct and different looking men](../../crimes/protagonists/vidal-sastre.md#at-least-four), that I even had photos for!
+- Obviously, the gangs had a strong motive for keeping me high which was to keep me oblivious about the trumpet teacher being made up of [a number of distinct and different looking men](../../crimes/protagonists/vidal-sastre.md#at-least-six), that I even had photos for!
 - There were some obvious incidents like the [Cambridge ugly ladies](../2025/april.md#shoe-zone-harlow-essex) last April, and [July's murder attempt](../2025/july.md#lourdes), but I'm still without an explanation of why I was high *all the time* in London throughout 2025 until [I remembered the switcheroo](../2025/october.md#thunderbolt-clarity), at which point it stopped.
 - If the porn-gangs own my brother, as I suspect they have done since his Thailand episode, could they have involved him in some way in maintaining my confused mental state while I was living at 31 Trinity Road N2?
 - Is that why Paul was so *keen* [to become his mentor](../2025/february.md#paul-and-my-brother)?

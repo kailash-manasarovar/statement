@@ -58,7 +58,7 @@ function googleTranslateElementInit() {
 
 - This is a particularly insidious meme.
 - While the [switcheroo porn was going on](../crimes/protagonists/vidal-sastre.md#four-distinct-men) at the conservatory over the period November 2022 to June 2023, I was tricked continuously into believing there was a love affair going on between myself and the *trumpet teacher*.
-- I had no idea there were [a minimum of four men playing this teaching role](../crimes/protagonists/vidal-sastre.md#at-least-four) at the time because I had been drugged every day without my knowledge since February 2022, possibly earlier, and I was also being drugged with aphrodisiac-type substances whilst attending classes at the conservatory.
+- I had no idea there were [a minimum of four men playing this teaching role](../crimes/protagonists/vidal-sastre.md#at-least-six) at the time because I had been drugged every day without my knowledge since February 2022, possibly earlier, and I was also being drugged with aphrodisiac-type substances whilst attending classes at the conservatory.
 - I remain unaware of whatever sedated-woman-training exercises they will have used on me, perfected over many decades if not centuries.
 - They further reinforced the trick with the [Ana Requena love-triangle myth](../timeline/2022/november.md#the-trumpet-teacher) at the conservatory, also providing what would sound like a bizarre and unhinged alibi if I ever complained before understanding the whole story.
 - Furthermore, the trick was reinforced continually with words and images on my hacked browsers through X, Google search, YouTube, and other websites that might be *suggested* to me via hacking.
@@ -182,7 +182,7 @@ function googleTranslateElementInit() {
 - This was an early days trigger-word repeated in hushed whispers behind nudged elbows by teachers at the conservatory whenever I was close by.
 - I had always assumed it was in regards to Domingo's repeated [coffee dates](../timeline/early-years/2014.md#first-piano-class-at-the-end-end-of-september) in 2014, and my subsequent complaint about their inappropriateness to [Joan Carles](../timeline/early-years/2015.md#joan-carles) at the time I had no idea my apartment was spy-cammed up and multiple local men were gaining entry after I went to bed to rape me while I was rendered unconscious by sedating gas.
 - *Coffee* then became part of the sedating rape-cult's secret language; as piano-teacher Maria Hontanilla can confirm.
-- Whenever she suggested we might go for coffee - then grin and say *or two, or three, or four* - she was referring directly to the [*switcheroo* horror-porn special filmed live from the conservatory](../crimes/protagonists/vidal-sastre.md#at-least-four).
+- Whenever she suggested we might go for coffee - then grin and say *or two, or three, or four* - she was referring directly to the [*switcheroo* horror-porn special filmed live from the conservatory](../crimes/protagonists/vidal-sastre.md#at-least-six).
 - The *coffee* meme gave online X stalker-accounts much fun too, as one can see in the replies to this particular tweet I sent while the sedating-and-drugging terror was at its peak.
 
 [![Coffee meme](../content/tweets/coffee.jpg)](https://x.com/1FRGVN/status/1728919144022864336)

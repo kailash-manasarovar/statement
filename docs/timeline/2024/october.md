@@ -201,7 +201,7 @@ function googleTranslateElementInit() {
 - She is wearing a man's shirt, and nothing else.
 - It's yet another *after-sex* photo.
 - I saw so many of them, hundreds, many with underage girls.
-- I don't know why, but I get the feeling the man behind the camera is [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno).
+- I don't know why, but I get the feeling the man behind the camera is [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno).
 - I know I said I was perma-high and hallucinating over this period, but a great deal of this is verifiable, which is nice.
 
 ## Saturday 5th October
@@ -1298,7 +1298,7 @@ function googleTranslateElementInit() {
 
 - `@SisterKaff` is an obvious reference to me.
 - This account was used to gain my sympathy, I believe.
-- The patchwork design started to come up in various guises; one was a painting the trumpet teacher was doing that I had apparently inspired which in retrospect was obviously [the three siblings](../../crimes/protagonists/vidal-sastre.md#a-man-possibly-called-bruno-with-at-least-one-son-called-bruno) that may well be Gloria the conservatory receptionist, Ivan the terror of the Marina Alta, and [the man that blew in my face in March](march/13-end.md#wednesday-13th-march) on the evening I became convinced I was going to be murdered. 
+- The patchwork design started to come up in various guises; one was a painting the trumpet teacher was doing that I had apparently inspired which in retrospect was obviously [the three siblings](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) that may well be Gloria the conservatory receptionist, Ivan the terror of the Marina Alta, and [the man that blew in my face in March](march/13-end.md#wednesday-13th-march) on the evening I became convinced I was going to be murdered. 
 - Is Ivan a painter?
 - The painting I was shown repeatedly had these three sitting reading comics and the background was like a patchwork quilt of comic book titles.
 - I liked it.
