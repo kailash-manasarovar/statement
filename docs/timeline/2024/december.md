@@ -438,7 +438,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - He turned up at 31 Trinity, randomly, to invite us to a gig in Brussels which his band was playing, and I went along.
 - He spoke to my dad at length that afternoon; my brother and mother were in bed and weren't emerging that day.
 - Robert, post-losing-his-mind-in-Thailand earlier that year, and whatever the gangs had done to extract his money from him, never really recovered fully and my mother failed to recover along with him...
-- At the gig in Brussels (I think in November 2012), I remember his musician friends saying, specifically, how Valencia was full of excellent horn players.
+- At the gig in Brussels (I think in November 2011), I remember his musician friends saying, specifically, how Valencia was full of excellent horn players.
 - It could be nothing, but then I remember that in July at EthCC, Nicos plays me a song he has written about how he was violated by a woman sexually when he was 16.
 - She was, as he put it, a bit rough with him.
 - I’m sitting there wondering if he’s taking the piss out of me, and then decide the hatred-levels required for something like that are just too preposterous.
