@@ -185,8 +185,8 @@ I do, however, have a lot of God.
 - I believe this man, at that moment, changed his mind about what he was doing, and maybe even asked the gangs to stop, and they didn't - an impossible request anyway - so instead he started to help me in a clandestine manner.
 - He told me about the region's decades-long honey-trap enterprise, sending me photographic evidence in the process.
 - Putting his own life at considerable risk, he sent me pictures of countless other female victims the gangs had targeted over many decades; some sexploitation blackmail victims, many of them groomed and drugged into porn and prostitution, some manipulated into having babies for porn, and many I believe to have been murdered.
-- He sent me pictures of the men involved in [the conservatory switcheroo porn-scam](crimes/protagonists/vidal-sastre.md#at-least-four) and much information I have been adding to this police statement.
-- He told me about the proliferation of child-pornography in the region and how hackers are expected to target children and toddlers online.
+- He sent me pictures of some of the other men involved in [the conservatory switcheroo porn-scam](crimes/protagonists/vidal-sastre.md#at-least-four) and much information I have been adding to this police statement.
+- He told me about the proliferation of child-pornography in the region and how hackers are forced to target children and toddlers online.
 - He told me about the baby-rape industry in Dénia, now thought to be the gang’s major source of income.
 - He warned me about poisoning in my home, and my car, amongst other things.
 - While I was being severely and daily drugged with hallucinogens and toxic substances without my knowledge, it was hard to make sense of the information I was receiving, but I have been steadily piecing it all together.
