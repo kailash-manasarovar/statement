@@ -426,7 +426,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - All I have is my words and there's no other option but to use them.
 - One of my friends, who [I had visited in Brussels back in July while I was at EthCC](july.md#meeting-my-belgian-friend), and who I had told at that time what was going on for me - as far as I knew it - tells me he's coming to help me go to the police in Madrid in the first week of January, and help me move my stuff back to London from Dénia.
 - I'm so relieved. 
-- Finally, a friend will help me.
+- Finally, a friend will help me!
 - He's very *very* concerned, it seems.
 - It's such a relief, you cannot imagine.
 - Then he ghosts me, for days.
@@ -434,13 +434,14 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - Did someone reach out and tell him to back off?
 - Does he have a porn-subscription too?
 - At the time it didn't occur to me but there were some unusual events around Nicos.
-- Nicos "popped up" in 2012 in East Finchley out of the blue when I was back home suffering with colitis.
+- Nicos "popped up" in 2011 in East Finchley out of the blue when I was back home suffering with colitis.
 - He turned up at 31 Trinity, randomly, to invite us to a gig in Brussels which his band was playing, and I went along.
 - He spoke to my dad at length that afternoon; my brother and mother were in bed and weren't emerging that day.
+- Robert, post-losing-his-mind-in-Thailand earlier that year, and whatever the gangs had done to extract his money from him, never really recovered fully and my mother failed to recover along with him...
 - At the gig in Brussels (I think in November 2012), I remember his musician friends saying, specifically, how Valencia was full of excellent horn players.
 - It could be nothing, but then I remember that in July at EthCC, Nicos plays me a song he has written about how he was violated by a woman sexually when he was 16.
 - She was, as he put it, a bit rough with him.
-- I'm sitting there wondering if he's taking the piss out of me, and then decide he isn't.
+- I’m sitting there wondering if he’s taking the piss out of me, and then decide the hatred-levels required for something like that are just too preposterous.
 - Perhaps he was.
 - I guess we'll find out.
 - At the time, I find this ability to ask for help quite powerful - I don't usually, cos no-one does.
