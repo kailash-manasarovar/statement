@@ -78,7 +78,7 @@ I do, however, have a lot of God.
 - When moving from spy-cam, honey-trap love affairs to sedated-rape back in the 90s, the gangs will have noticed that targets suffer with intense anxiety and depression after being sedated and raped. 
 - I report on other women in the region who may have been targeted in the same way I was due to their inexplicable panic attacks and other suspicious symptoms, including my mother.
 - In fact, my guess is this community has been brain-damaging women for centuries in order to rape them in macabre ways, and then laugh and point, and undoubtedly the same trauma effects have arisen in all victims historically.
-- So, in order to "explain away" these expected trauma-reactions to a sedated-rape victim, the gangs create incessant and intricate, carefully choreographed, terror-vignettes starring multiple known protagonists that render a victim so anxious she doesn't notice the true inexplicability of the anxiety and depression.
+- So, in order to "explain away" these expected trauma-reactions to a sedated-rape victim, the gangs create incessant and intricate, carefully-choreographed terror-vignettes starring multiple known protagonists that render a victim so anxious she doesn't notice the true inexplicability of the anxiety and depression.
 - I detail these daily instances of physical stalking assisted by pinpoint tracking of my movements via my hacked mobile phones in order to harass me and create anxiety-forming situations with the sole intention of terrorizing me into believing that the extreme anxiety and grievous mental and emotional harm I was suffering, due to repeated sedated rape, had a "logical reason".
 - I assume the gangs expected this anxiety to also mask the toxic physical side-effects arising from constant drugging and poisoning.
 - Back in the UK in July 2024, while the terror was ongoing, I stood as a [candidate for general election](timeline/2024/june.md#volunteers-not-what-they-seem) and was stalked endlessly by criminal gangs in North London.
@@ -121,12 +121,12 @@ I do, however, have a lot of God.
 - And of course, [whatever was going on at my work's event in Bali in May 2024](timeline/2024/may.md#bali), with me in the starring role, is extraordinarily indicative of nightly sedated-rape by my crypto-tech colleagues and their friends.
 - These are the sedated-rape events I'm sure about but it would not surprise me if there were many, many more.
 - I believe British gangs colluded with my father from as early as 1989 when child-rape-porn starring myself was disseminating through the networks.
-- I expect the people that showed him these films were instrumental in his unusual and sudden decisions to visit me in Spain in 2013, 2015, and 2016 when he brought my mother with him.
+- I expect the people that showed him these films were instrumental in his unusual and sudden decisions to visit me in Spain in 2013, 2015, and in 2016 when he brought my mother with him.
 - He had never visited me before, ever, without an exceptional reason to do so, and was habitually totally disinterested in anything going on in my life.
 - I believe he was set up to [take a starring role](timeline/early-years/2015.md#inexplicable-anal-fissure) in an incest-porn special filmed at Joan Fuster in 2015 which everyone knows about.
-- During the gang-stalking terror at the conservatory, the *father* meme was reinforced constantly as if the whole town had watched my father anally-rape me while sedated, grinning in the bathroom after I woke up injured to see him run out of my bedroom door, and they all simply delighted in it!
-- When my mother visited with him in 2016, they stayed at the Hotel Costa Blanca; the same establishment in which I experienced an inexplicable emotional reaction the night after my first piano lesson with Domingo Lopez Cano.
-- My mother experienced a panic attack while staying there with my father in 2016, and they even went to A&E because she thought she was having a heart attack.
+- During the gang-stalking terror at the conservatory, the *father* meme was reinforced constantly as if the whole town had watched my father anally-rape me while sedated, grinning in the bathroom after I woke up injured to see him run out of my bedroom door.
+- When my mother visited with him in 2016, they stayed at the Hotel Costa Blanca; the same establishment in which I experienced an inexplicable emotional reaction the night after my first piano lesson with Domingo Lopez Cano in September 2014.
+- My mother experienced a panic attack while staying there with my father in early Spring of 2016, and they even went to A&E because she thought she was having a heart attack.
 - My father did not want to tell me about it, and had told my mother not to tell me, but she told me over lunch the next day.
 - My father's involvement in all this finally triggered a severe suicidal depression for which I had no context and thus assumed had to be again related to the 1989 North London attacks. 
 - This depression, ironically, prompted me to report a more detailed history about what had happened to me in 1989 to the Metropolitan Police.
@@ -147,7 +147,7 @@ I do, however, have a lot of God.
 - Targets are often foreign women and children, or Spanish outsiders; those who don't know *how they do things* in the Valencian region. 
 - The conservatory is just one example of criminal porn-gang infiltration into the whole of society in the region - the most horrific bar the baby-rape industry.
 - All over Dénia, men young and old drive flashy new sports cars worth minimum $50K and upwards and this is a poor town with apparently zero industry.
-- I detail other unusual events taking place in and around the town, and often centred on the conservatory, that may point to international trafficking.
+- I detail other unusual events taking place in and around the town, and often centred on the conservatory, that may point to international human trafficking.
 - I also believe that the unusual protections awarded to criminals in the town of Dénia has made the place somewhat infamous, and this infamy has attracted multiple criminal gangs to come and set up shop over the years with the understanding that they can do whatever they like, to anyone! 
 
 ### The global tech-bro porn-addict community
