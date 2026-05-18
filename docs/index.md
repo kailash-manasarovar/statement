@@ -210,13 +210,13 @@ I do, however, have a lot of God.
 - This is how effective their manipulation tech is.
 - At some point, some bright spark amongst them must have realized that porn was just one of a million lucrative themes the manipulation tech could be used for.
 - Did they start experimenting at that time?
-- Did the criminals of Dénia eventually [sell their manipulation-tech to the caliphate](timeline/2001-to-2010/2008.md#dubai) once they had demonstrated its power by tricking [Alessandra into undergoing an unnecessary bone-marrow transplant](timeline/2001-to-2010/2009.md#alessandra-gets-sick-or-does-she), and [Lorraine's daughter into believing she's a boy](timeline/early-years/2013.md#lorraines-trans-child), and no doubt many other successful mind-control tricks which we'll soon hear about.
+- Did the criminals of Dénia eventually [sell their manipulation-tech to the caliphate](timeline/2001-to-2010/2008.md#dubai) once they had demonstrated its power by tricking [Alessandra into undergoing an unnecessary bone-marrow transplant](timeline/2001-to-2010/2009.md#alessandra-gets-sick-or-does-she), and [Lorraine's daughter into believing she's a boy](timeline/early-years/2013.md#lorraines-trans-child), and no doubt many other successful mind-control tricks we'll soon hear about.
 - From here, I believe the gangs went back-to-basics using targets like myself for blackmailing porn-obsessed tech CEOs into giving them use of their massive processing hubs in order to run the caliphate-AI social-media hypno-tech.
 - Just over ten years of this lie-spreading-software out in the wild and the world has gone totally mad.
 - We are suffering from a tidal wave of sexual perversion and hatred towards women and children and Jewish people.
 - We have children's minds scrambled by their zombified teachers; society quite happy to render them incapable of ever having an orgasm or their own children on an ideological basis alone.
 - In Spain, your child might be starring in porn, with-or-without your knowledge, while attending school.
-- Even more worryingly is the mass delusions of apparently educated people towards barbaric Islamic groups coupled with a terrifying rise in antisemitism which is starting to look like scenes from Nazi Germany.
+- Even more worrying is the mass delusional support, by apparently educated people, of barbaric Islamic groups coupled with a terrifying rise in antisemitism.
 - And every day a man is in court in the UK having downloaded thousands of baby-rape videos; the judge giving him a slap on the wrist.
 - I believe the criminality allowed to flourish and distend in Dénia - baby-rape capital of the world - is behind it all.
 - In a town accountable to no-one, where zero morals reign and obvious detrimental long-term consequences are ignored, I believe the criminal gangs and the local people have completely lost their minds.
