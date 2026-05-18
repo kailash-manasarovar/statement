@@ -70,6 +70,19 @@ function googleTranslateElementInit() {
 - Although, I'm gonna ask for special dispensation to not come back again. Perhaps I earned it this time.
 - I do feel like I could do a whole lot more good stuff, but hey.
 
+## Dreaming of Saint Michael on Ascension day
+
+- I'm lying in bed, drifting off to sleep, thinking about the wonderful, marvelous Saint Michael, and the stained-window of him at the church in Cauterets, and how amazing he is, and the best boss a person could have, always giving the right challenge, never too much, never too little, and how I love him so, and I'm going off into one and I can practically see his giant legs that go up into the sky.. then WHACK!!
+- He hits me around the head!
+- Well, it's like an incision actually, a semi-circular thin scar on the top of my head to the left, and I can see light coming out of it.
+- And it REALLY HURTS!!!!
+- Well, it's confusing to say the least because of my lovey-dovey state just before.
+- What could it mean, I wonder.
+- A few days later, I'm looking up the path of the eclipse online and it reminds me of the scar, a lot, and I think... wow.
+- And I still don't know what it means.
+- So I'll leave it with you.
+- <3
+
 ## Ark of Safety
 
 - Been thinking about this.
