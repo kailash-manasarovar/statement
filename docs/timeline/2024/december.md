@@ -456,7 +456,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - I'm sitting in the restaurant having some food and reading the set of Psalms I've been reading every Sunday on my mobile phone.
 - I become aware of a man hovering around.
 - I'm immediately suspicious of him.
-- He's British - I can hear him speaking with the waiters.
+- He's pale, white, British - I can hear him speaking with the waiters.
 - He has long, very greasy black hair, and what seems to be a Spanish wife (from the accent) and a daughter of about eight-years-old.
 - He glares at me baring his big, shining-white, well-dentistried teeth.
 
