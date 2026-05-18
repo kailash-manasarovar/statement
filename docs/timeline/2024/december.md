@@ -154,6 +154,18 @@ function googleTranslateElementInit() {
 - And a first point of call should be Lorraine Blackbourn's family, and anyone that knew her, and to have a look at any police complaints she may have made prior to her untimely death by suicide.
 - Furthermore, if I was an investigator, I'd make sure to check every single student that Domingo Cano Lopez the piano teacher has taught over the years to see how many of them ended up in porn or prostitution, had an early death, and/or were exploited financially in some way.
 
+## Roberto look-alike at Poolsawat
+
+- I stay at the Poolsawat hotel for a few weeks before moving to the Spa Resorts to detox.
+- I'm scared there. I feel like I'm being followed.
+- I'm worried about the neighbors and I go down one night at 2am to ask hotel staff if they have security cameras on all night.
+- I think they might have been friends now, but at the time I wasn't sure of anything at all.
+- Every day at the Poolsawat beach restaurant a man turns up with a woman.
+- He looks exactly like [Roberto from Alicante](../early-years/2011.md#roberto-from-alicante--catalina) and I tweet about familiar faces.
+- I also wonder if they're friendly.
+- I guess I was getting everything mixed up at that time, or not.
+- I still don't know it was all so stressful at that time and I was still being drugged.
+
 ## Pedro sends a Christmas greeting
 
 - Pedro, the previous caretaker from Carrer Furs, sends me [a Christmas video-greeting on WhatsApp](../../content/whatsapps/WhatsApp%20Chat%20with%20PEDRO.zip).
@@ -478,4 +490,16 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 ## A shift in the game
 
-- wip
+- The terror continues and I remain stressed and anxious.
+- As has been the case since June 2023, I'm surrounded by people wherever I am in the world who very obviously, to me, have no good intention towards me.
+- However, something now changes, and as well as the crowds of wrong'uns that seems to be terribly interested in me, I start to notice good folk amongst them, who are also interested in me.
+- Something big has changed, but I cannot say for sure what it is because I can only feel it in the people I see and interact with.
+- God, I believe, is also sending folk to help me out.
+- One example of this is when I got on the Bangkok Airways plan in Samui, I was so stressed with everything that had been going on, I was sort of collapsing under the weight of the intensity of an international criminal enterprise watching everything I do.
+- I sat next to an Indian couple on the plane.
+- They were from Gujarat.
+- We got talking and quickly the subject changed to the Ramayana and Hindu stories.
+- My whole nervous system came down from high intensity to a relaxed stillness, and I have to thank God for that.
+- Whoever you were, thank you <3
+- Oh, and I did visit, just like I promised.
+
