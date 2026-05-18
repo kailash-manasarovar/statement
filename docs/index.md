@@ -431,7 +431,7 @@ This police statement is set out into different sections.
 ![Ark of Safety](content/images/ark-of-safety.png)
 
 - I remember telling someone about it in October 2012 in Thailand, just before I moved back to Dénia, and it'll be in my online notes so the gangs will have seen it mentioned when it first *popped up*.
-- Part two, prophetic-horror [*AntiChrist by Jack Chardwood*](https://www.amazon.com/AntiChrist-Jack-Chardwood-ebook/dp/B0167HVL2K/) written in 2015, was inspired by the events at the conservatory of Dénia between 2014-2015, specifically the bizarre relationship with Domingo Lopez Cano, a true-blue misogynist possibly serial-killer.
+- Part two, prophetic-horror [*AntiChrist by Jack Chardwood*](https://www.amazon.com/AntiChrist-Jack-Chardwood-ebook/dp/B0167HVL2K/) written in 2015, was inspired by the events at the conservatory of Dénia between 2014-2015, specifically the bizarre relationship with Domingo Lopez Cano, a true-blue misogynist possibly murderer (one having the tendency to lead to the other).
 - Themes arising in this book appear to have also been inspired by events going on without my knowledge including while I was unconscious.
 - Part one, multi-universe romance [*Life Without The Liar by Margaret Murphy*](https://www.amazon.com/Life-Without-Liar-Margaret-Murphy-ebook/dp/B00M0CZN94), was inspired, I thought, by the need to heal myself from the 1989 North London rape-gang events.
 - However, again, themes and characters arising in this novel perhaps more closely reflect the sex crimes going on Dénia without my knowledge over many years and, without that context, I related everything to what I did know.
