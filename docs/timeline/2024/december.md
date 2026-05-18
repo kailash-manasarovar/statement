@@ -163,8 +163,8 @@ function googleTranslateElementInit() {
 - Every day at the Poolsawat beach restaurant a man turns up with a woman.
 - He looks exactly like [Roberto from Alicante](../early-years/2011.md#roberto-from-alicante--catalina) and I tweet about familiar faces.
 - I also wonder if they're friendly.
-- I guess I was getting everything mixed up at that time, or not.
-- I still don't know it was all so stressful at that time and I was still being drugged.
+- I guess I was getting everything mixed up, or not.
+- I still don't know it was all so stressful at that time and I was still being drugged somehow.
 
 ## Pedro sends a Christmas greeting
 
