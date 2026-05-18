@@ -187,7 +187,7 @@ I do, however, have a lot of God.
 - He sent me pictures of some of the other men involved in [the conservatory switcheroo porn-scam](crimes/protagonists/vidal-sastre.md#at-least-six) and much information I have been adding to this police statement.
 - He told me about the proliferation of child-pornography in the region and how hackers are forced to target children and toddlers online.
 - He told me about the baby-rape industry in Dénia, now thought to be the gang’s major source of income.
-- He warned me about poisoning in my home, and my car, amongst other things.
+- He warned me about the poisoning in my home, and my car, amongst other things.
 - While I was being severely and daily drugged with hallucinogens and toxic substances without my knowledge, it was hard to make sense of the information I was receiving, but I have been steadily piecing it all together.
 - There is no doubt in my mind that without this man's help, I would not be here today.
 - I also understand that, after the gangs failed once again to murder me in [July 2025](timeline/2025/july.md#lourdes), he requested asylum in Israel and it was granted.
