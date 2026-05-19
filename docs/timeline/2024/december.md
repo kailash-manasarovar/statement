@@ -156,16 +156,20 @@ function googleTranslateElementInit() {
 
 ## Roberto look-alike at Poolsawat
 
-- I stay at the Poolsawat hotel for a few weeks before moving to the Spa Resorts to detox.
-- I'm scared there. I feel like I'm being followed.
-- I'm worried about the neighbors and I go down one night at 2am to ask hotel staff if they have security cameras on all night.
-- I think they might have been friends now, but at the time I wasn't sure of anything at all.
+- I stay at the Poolsawat hotel for a few weeks before moving to the Spa Resorts to detox later in the month.
+- I'm scared there.
+- I feel like I'm being followed.
+- I'm so worried about the German people in a neighboring room one night - one of whom looks like he could be gypsy - I go down to reception at 2am to ask hotel staff if they have security cameras on all night and for how long they keep the films.
+- The woman at reception reassures me that everything is fine, and I'm grateful.
+- I believe it's possible the Germans might have been friends now, but at the time I wasn't sure of anything at all and expected to be murdered at any moment.
+- In fact, the expectation that I might be murdered at any moment, anywhere I am in the world, has been ongoing since October 2024, peaking again in July 2025, and really only disappeared completely a day or two ago after reaching Part II of my seven-year long study of A Course in Miracles' workbook lessons where I've been doing a lesson a week since I moved to Dénia in February 2022.
+- Honestly, to have made it to Part II in one piece is a miracle of miracles!
 - Every day at the Poolsawat beach restaurant a man turns up with a woman.
-- He looks exactly like [Roberto from Alicante](../2011-to-2020/2011.md#roberto-from-alicante-and-catalina), except he's small in height.
-- I tweet about familiar faces because of it.
+- He looks exactly like [Roberto from Alicante](../2011-to-2020/2011.md#roberto-from-alicante-and-catalina), except he's much smaller in height.
+- I tweet about familiar faces because of him.
 - I also wonder if they're friendly.
 - I guess I was getting everything mixed up, or not.
-- I still don't know it was all so stressful and I was still being drugged, somehow.
+- It was all so stressful, and I was still being drugged, somehow.
 
 ## Pedro sends a Christmas greeting
 
