@@ -496,14 +496,14 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 - The terror continues and I remain stressed and anxious.
 - As has been the case since June 2023, I'm surrounded by people wherever I am in the world who very obviously, to me, have no good intention towards me.
-- However, something now changes, and as well as the crowds of wrong'uns that seems to be terribly interested in me, I start to notice good folk amongst them, who are also interested in me.
-- Something big has changed, but I cannot say for sure what it is because I can only feel it in the people I see and interact with.
-- God, I believe, is also sending folk to help me out.
-- One example of this is when I got on the Bangkok Airways plan in Samui, I was so stressed with everything that had been going on, I was sort of collapsing under the weight of the intensity of an international criminal enterprise watching everything I do.
+- However, something has changed this month, and as well as the crowds of wrong'uns that seem to be terribly interested in me, I start to notice good folk amongst them, who are also interested in me.
+- Something big has changed, but I cannot say for sure what it is because I can only feel the energy of it in the people I see and interact with.
+- God, I believe, is also sending folk to help me out when I really need someone.
+- One example of this is when I got on the Bangkok Airways plan in Samui, I was so stressed with everything that had been going on, I was sort of collapsing under the weight of the intensity of an international criminal enterprise having 24-7 access to me, and watching everything I do.
 - I sat next to an Indian couple on the plane.
 - They were from Gujarat.
 - We got talking and quickly the subject changed to the Ramayana and Hindu stories.
 - My whole nervous system came down from high intensity to a relaxed stillness, and I have to thank God for that.
-- Whoever you were, thank you <3
+- Whoever you were, man with the name that only you have in the whole world.
+- Thank you <3
 - Oh, and I did visit, just like I promised.
-
