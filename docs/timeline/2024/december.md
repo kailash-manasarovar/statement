@@ -166,7 +166,6 @@ function googleTranslateElementInit() {
 - Honestly, to have made it to Part II in one piece, and a way better piece than when I started, is a miracle of miracles!
 - Every day at the Poolsawat beach restaurant a man turns up with a woman.
 - He looks exactly like [Roberto from Alicante](../2011-to-2020/2011.md#roberto-from-alicante-and-catalina), except he's much smaller in height.
-- I tweet about familiar faces because of him. I cannot find this tweet but I'm sure I tweeted it.
 - I also wonder if these two are friendly.
 - I guess I was getting everything mixed up, or not.
 - It was all so stressful, and I was still being drugged, somehow.
