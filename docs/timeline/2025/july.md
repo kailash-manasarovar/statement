@@ -218,7 +218,7 @@
 - They are giving me the run around; they can't find my files now.
 - Does the global spy-cam porn conspiracy extend so far that even the British government are prepared to cover up the systematic targeting of women and children for porn and worse for decades in Spain?
 - Do they think that, perhaps, once society is totally immoral no-one will care anyway and they won't have to worry about ignoring 1000s of complaints, probably [Lorraine Blackbourn's too](../2021/july.md#lorraine-blackbourn-commits-suicide).
-- Is the conspiracy wrapped up in the [medical-transitioning of children](../early-years/2013.md#lorraines-trans-child) scandal too?
+- Is the conspiracy wrapped up in the [medical-transitioning of children](../2011-to-2020/2013.md#lorraines-trans-child) scandal too?
 - Is this why whenever I desperately tried to get help from the UK embassy or foreign office, they ignored me, even put the phone down on me?
 - Is this why the [Metropolitan Police](../2025/january.md#i-call-the-police) might as well have told me I'm an idiot, knowing full well I'm a rape-gang survivor?
 - Is this why Spanish gangs feel 100% completely safe, and don't even care about leaving an evidential trail that a blind cat on catnip could follow?
@@ -331,7 +331,7 @@
 
 ## Damning updates
 
-- I write a number of damning updates such as [Alessandra's fake illness](../2001-to-2010/2009.md#alessandra-gets-sick-or-does-she) and [Lorraine's daughter's online grooming](../early-years/2013.md#lorraines-trans-child).
+- I write a number of damning updates such as [Alessandra's fake illness](../2001-to-2010/2009.md#alessandra-gets-sick-or-does-she) and [Lorraine's daughter's online grooming](../2011-to-2020/2013.md#lorraines-trans-child).
 - An account follows me immediately afterwards.
 - Note they are even able to manipulate the date of the follow to two days previous.
 

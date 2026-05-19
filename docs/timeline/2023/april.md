@@ -76,7 +76,7 @@ function googleTranslateElementInit() {
 
 ## Easter Saturday
 
-- I meet [Sandra Rita Diaz in Lourdes](../early-years/2014.md#march-to-july). 
+- I meet [Sandra Rita Diaz in Lourdes](../2011-to-2020/2014.md#march-to-july). 
 - I tell her I'm in love.
 - I talk incessantly about the thoughts racing through and looping around my mind continuously. 
 - Sandra Rita Diaz can confirm how crazy I was about all this, and for how long too. It went on for well over 18 months more; I assume while I was being drugged.
@@ -301,7 +301,7 @@ function googleTranslateElementInit() {
 
 ![Studio Ghibli](../../content/images/ghibli.png)
 
-- At the very moment I was looking at this picture, [Sandra Diaz, fellow volunteer at the hospitalite of Lourdes](../early-years/2014.md#sandra-rita-diaz) WhatsApp'ed me.
+- At the very moment I was looking at this picture, [Sandra Diaz, fellow volunteer at the hospitalite of Lourdes](../2011-to-2020/2014.md#sandra-rita-diaz) WhatsApp'ed me.
 - She's been asked to find out what I'm thinking.
 - They're worried about me saying, "surprise".
 - I told her the trumpet teacher had sent me beautiful pictures.
@@ -441,7 +441,7 @@ function googleTranslateElementInit() {
 - I expect to bump into him at any moment. It's not clear why I believe this.
 - Instead, I "bump" into two young girls when my hat flies off and they hand it back to me. I wonder later if the girls pulled my hat off.
 - The two girls, who resembled the two girls I had seen on his facebook page in December, were angry or scared looking.
-- I'm starting to realize now that people involved in the scam are quite often angry and scared, like Mercedes was when she [first mentioned studying piano at the conservatory](../early-years/2013.md#meeting-mercedes) or my [landlady who was alway furious](../2021/december.md#too-good-to-be-true-on-the-8th-december).
+- I'm starting to realize now that people involved in the scam are quite often angry and scared, like Mercedes was when she [first mentioned studying piano at the conservatory](../2011-to-2020/2013.md#meeting-mercedes) or my [landlady who was alway furious](../2021/december.md#too-good-to-be-true-on-the-8th-december).
 - I wonder if that's because they don't really want to be involved in a murderous conspiracy or is it unconscious guilt coming up.
 - I hold my scarf up to the air as I walk away. 
 - It has a picture of a burning sun with a rolling eyes emoji on it.

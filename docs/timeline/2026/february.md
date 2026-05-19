@@ -133,7 +133,7 @@ function googleTranslateElementInit() {
 - I believe these men connected via their shared interest in under age girls, compared notes, and divulged information about the girls they had persuaded they were safe.
 - Richard would literally have three or four underage girls in the back of his van and he would take us around to show his other mates in the area.
 - Did they respect him more for it, or was he doing it for "casting" purposes?
-- Richard even made it into my [2015 police statement](../early-years/2015.md#statement-to-the-metropolitan-police) he was such an obvious perv.
+- Richard even made it into my [2015 police statement](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) he was such an obvious perv.
 - Porn was always lurking in the background, mentioned within earshot amongst the men.
 - While I was seeing Simon, he kept mentioning porn.
 - He had a friend who he hung around with (can't remember his name but he lived down on Falloden Way in the suburb over a shop with his mum).

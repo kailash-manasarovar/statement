@@ -23,7 +23,7 @@ function googleTranslateElementInit() {
 - I tell him about my love the gypsy trumpeter.
 - I tell dad that I believe I'm in serious danger.
 - I tell him that if anything happens to me, I've prepared a pack for him containing a copy of [the handwritten letters](august.md#the-handwritten-letters), including the supplementary page, and a memory stick with archives of both my X accounts: `@1frgvn` and `@jackchardwood`, and he is to give it to the police.
-- I tell dad that Domingo Lopez Cano and his family are behind everything that's happening to me and I make sure that [he remembers meeting Domingo in 2014](../early-years/2014.md#trip-to-london) at Christmas.
+- I tell dad that Domingo Lopez Cano and his family are behind everything that's happening to me and I make sure that [he remembers meeting Domingo in 2014](../2011-to-2020/2014.md#trip-to-london) at Christmas.
 - As I tell him my story, what I know at the time, dad keeps saying; *heavy, heavy*.
 - I ask him why he keeps saying this.
 - He tells me about an African leader who was so fat, they called him *heavy*, and once when he was giving a speech he fell through the stage as they were shouting *heavy, heavy*.
@@ -51,7 +51,7 @@ function googleTranslateElementInit() {
 - I'm also suspicious of the hotel cleaning staff who come once-a-week, they're Spanish. Normally I don't let people come in my room but this year I did for some reason.
 - The walking guides I use talk about how the *Spanish are crazy* in a way that makes me think of the Pelicot men and their total lack of concern towards a targeted woman as if they completely forgot women are also human beings.
 - Do some of the men in Cauterets know who I am?
-- My "friend" [Sandra Rita Diaz](../early-years/2014.md#sandra-rita-diaz), often visits my room for five minutes and uses my bathroom.
+- My "friend" [Sandra Rita Diaz](../2011-to-2020/2014.md#sandra-rita-diaz), often visits my room for five minutes and uses my bathroom.
 - I have always had my suspicions but something's not right with Sandra. 
 - She is constantly talking about the old women she sings with in the choir at Lourdes; in particular one woman, Mireille, who is apparently evil, *everyone says so*, giggle.
 - Sandra says, repeatedly, that she thinks Mireille is poisoning her.
@@ -355,7 +355,7 @@ function googleTranslateElementInit() {
 ![pic]( ../../content/images/targeted-women/39-ai-mix-now.png ) 
 
 - My view is that Hazel Smith controls this account and has been using it to either muddy the waters, or to demonstrate how little she cares about the results of her murderous activities in the world.
-- The woman's face also looks like it could have been AI'ed into the photos of the `@BertDalziel` stalker account holder, along with [Samuel from harmony class](../2022/september.md#harmony) and the [crazy yoga teacher](../early-years/2015.md#nati-de-prati-yoga) from 2015 who, along with multiple other conspirators, military-couped Natalia's professional life into the porn-gang's hands.
+- The woman's face also looks like it could have been AI'ed into the photos of the `@BertDalziel` stalker account holder, along with [Samuel from harmony class](../2022/september.md#harmony) and the [crazy yoga teacher](../2011-to-2020/2015.md#nati-de-prati-yoga) from 2015 who, along with multiple other conspirators, military-couped Natalia's professional life into the porn-gang's hands.
 - Like the other targeted-women accounts, the account profile is bogus but the profile pic is genuine and thoroughly incongruent.
 - I was initially startled to see an expression that looks shocked and upset while viewing something on a computer screen.
 
@@ -455,7 +455,7 @@ function googleTranslateElementInit() {
 
 - After Transforming Touch in Dublin, I fly back to Madrid, meet Inma briefly, and then drive back down to Dénia and home in Carrer Furs.
 - Inma tells me that the woman she knows will visit Madrid in about three weeks to meet me when I stop on my drive to Fátima.
-- On my way home, driving through the countryside, I suddenly remember something peculiar about the hotel I stayed in on the March morning in 2014 when [Mike Wenham's wife emails everyone to ask for help because he's been arrested for murder](../early-years/2014.md#mike-wenham-murders-a-woman).
+- On my way home, driving through the countryside, I suddenly remember something peculiar about the hotel I stayed in on the March morning in 2014 when [Mike Wenham's wife emails everyone to ask for help because he's been arrested for murder](../2011-to-2020/2014.md#mike-wenham-murders-a-woman).
 
 ### Remembering the woman in the picture with the scissors
 

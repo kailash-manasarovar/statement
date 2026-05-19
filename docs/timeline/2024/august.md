@@ -16,7 +16,7 @@ function googleTranslateElementInit() {
 - Online harassment is ongoing, the [conversation with the hacker is continuous](july.md#big-chat-with-the-hacker-begins), and I am bombarded with porn.
 - Curiously, I do find myself sexually aroused in Cauterets after having my coffee on a Monday morning, and no other time specifically.
 - It's not clear why that would happen.
-- [Sandra Diaz](../early-years/2014.md#sandra-rita-diaz) often visited on a Sunday evening and she always used the toilet.
+- [Sandra Diaz](../2011-to-2020/2014.md#sandra-rita-diaz) often visited on a Sunday evening and she always used the toilet.
 - I noticed suspicious people around the whole time I was in Cauterets and, given accessing hotel rooms is no challenge for these people, it's likely they were coming into my room.
 - Did whoever was tasked with adding the sexual-arousal drugs to my food or water do a bad job of it so that it only worked on a Monday morning, for some reason?
 - Were they new and inexperienced porn-gang members?
@@ -182,7 +182,7 @@ function googleTranslateElementInit() {
 ![family](../../content/images/fake-accounts/family/andrew%20the%20brother.png)
 ![family](../../content/images/fake-accounts/family/curious%20boy%20family.png)
 
-- I also have the strange sensation that the brother is called Andre because the name flies by incessantly online from dodgy stalker accounts; but I could be mistaking all the Andrew references to [the Greek man with a twitch from 2015](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie).
+- I also have the strange sensation that the brother is called Andre because the name flies by incessantly online from dodgy stalker accounts; but I could be mistaking all the Andrew references to [the Greek man with a twitch from 2015](../2011-to-2020/2015.md#greek-man-with-a-twitch-and-sylvie).
 
 #### Why would they do this?
 

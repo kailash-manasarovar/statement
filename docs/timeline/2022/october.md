@@ -64,7 +64,7 @@ function googleTranslateElementInit() {
 ## Bullying starts quietly
 
 - People are talking about me negatively at the conservatory; cold looks, weird laughter, a frosty feeling.
-- I hear the word "coffee" a lot and relate it to me complaining that [Domingo invited me for coffee back in 2014](../early-years/2014.md#he-gets-to-me), and he shouldn't have.
+- I hear the word "coffee" a lot and relate it to me complaining that [Domingo invited me for coffee back in 2014](../2011-to-2020/2014.md#he-gets-to-me), and he shouldn't have.
 - I'm having a hard time at work too.
 - I'm stressing unnecessarily.
 - I have a strong sense that something sinister is going on that I'm unaware of. 
@@ -119,7 +119,7 @@ function googleTranslateElementInit() {
 - She talks about looking after her tiny granddaughter but something is wrong, she's not happy, she's holding something back.
 - She mentions a man, a British policeman, who lived near her who had really scary eyes.
 - It was a weird thing for her to mention, and she repeated it. 
-- It reminded me of a short story I had written for the writing club I used to go to in Dénia in 2007, which incidentally [Dandy the gay English teacher](../early-years/2013.md#the-gays-leave-suddenly) was also a member of.
+- It reminded me of a short story I had written for the writing club I used to go to in Dénia in 2007, which incidentally [Dandy the gay English teacher](../2011-to-2020/2013.md#the-gays-leave-suddenly) was also a member of.
 - This was a piece I wrote at the time I started to write about child sexual abuse and North London grooming rape-gangs in short-story form.
 - I had described one of the pedophiles, Winston May, with the exact words she used in our conversation.
 

@@ -123,16 +123,16 @@ I do, however, have a lot of God.
 - I believe British gangs colluded with my father from as early as 1989 when child-rape-porn starring myself was disseminating through the networks.
 - I expect the people that showed him these films were instrumental in his unusual and sudden decisions to visit me in Spain in 2013, 2015, and in 2016 when he brought my mother with him.
 - He had never visited me before, ever, without an exceptional reason to do so, and was habitually totally disinterested in anything going on in my life.
-- I believe he was set up to [take a starring role](timeline/early-years/2015.md#inexplicable-anal-fissure) in an incest-porn special filmed at Joan Fuster in 2015 which everyone knows about.
+- I believe he was set up to [take a starring role](timeline/2011-to-2020/2015.md#inexplicable-anal-fissure) in an incest-porn special filmed at Joan Fuster in 2015 which everyone knows about.
 - During the gang-stalking terror at the conservatory, the *father* meme was reinforced constantly as if the whole town had watched my father anally-rape me while sedated, grinning in the bathroom after I woke up injured to see him run out of my bedroom door.
 - When my mother visited with him in 2016, they stayed at the Hotel Costa Blanca; the same establishment in which I experienced an inexplicable emotional reaction the night after my first piano lesson with Domingo Lopez Cano in September 2014.
 - My mother experienced a panic attack while staying there with my father in early Spring of 2016, and they even went to A&E because she thought she was having a heart attack.
 - My father did not want to tell me about it, and had told my mother not to tell me, but she told me over lunch the next day.
 - My father's involvement in all this finally triggered a severe suicidal depression for which I had no context and thus assumed had to be again related to the 1989 North London attacks. 
 - This depression, ironically, prompted me to report a more detailed history about what had happened to me in 1989 to the Metropolitan Police.
-- While I was writing [that police statement online in 2015](timeline/early-years/2015.md#statement-to-the-metropolitan-police), the criminals were relishing every word.
+- While I was writing [that police statement online in 2015](timeline/2011-to-2020/2015.md#statement-to-the-metropolitan-police), the criminals were relishing every word.
 - In 2023, during the gang-stalking at the conservatory, teachers, staff, students, and townsfolk repeated words, phrases, and acted-out scenes taken directly from this police statement.
-- And incidentally and ironically, suspected victim [Maria, with the swollen liver](timeline/early-years/2015.md#vipasana-maria), had signed this statement as a witness. 
+- And incidentally and ironically, suspected victim [Maria, with the swollen liver](timeline/2011-to-2020/2015.md#vipasana-maria), had signed this statement as a witness. 
 
 ### Police and government corruption
 
@@ -210,7 +210,7 @@ I do, however, have a lot of God.
 - This is how effective their manipulation tech is.
 - At some point, some bright spark amongst them must have realized that porn was just one of a million lucrative themes the manipulation tech could be used for.
 - Did they start experimenting at that time?
-- Did the criminals of Dénia eventually [sell their manipulation-tech to the caliphate](timeline/2001-to-2010/2008.md#dubai) once they had demonstrated its power by tricking [Alessandra into undergoing an unnecessary bone-marrow transplant](timeline/2001-to-2010/2009.md#alessandra-gets-sick-or-does-she), and [Lorraine's daughter into believing she's a boy](timeline/early-years/2013.md#lorraines-trans-child), and no doubt many other successful mind-control tricks we'll soon hear about.
+- Did the criminals of Dénia eventually [sell their manipulation-tech to the caliphate](timeline/2001-to-2010/2008.md#dubai) once they had demonstrated its power by tricking [Alessandra into undergoing an unnecessary bone-marrow transplant](timeline/2001-to-2010/2009.md#alessandra-gets-sick-or-does-she), and [Lorraine's daughter into believing she's a boy](timeline/2011-to-2020/2013.md#lorraines-trans-child), and no doubt many other successful mind-control tricks we'll soon hear about.
 - From here, I believe the gangs went back-to-basics using targets like myself for blackmailing porn-obsessed tech CEOs into giving them use of their massive processing hubs in order to run the caliphate-AI social-media hypno-tech.
 - Just over ten years of this lie-spreading-software out in the wild and the world has gone totally mad.
 - We are suffering from a tidal wave of sexual perversion and hatred towards women and children and Jewish people.
@@ -344,7 +344,7 @@ I do, however, have a lot of God.
 - I believe Lorraine Blackbourn stumbled across something the gangs were doing that she literally couldn't live with (and you could take your pick here but my guess it was that the whole town was sedating and raping her friends - maybe even her too, for added suicidal depression).
 - I believe she tried to get help, like I did, and was totally ignored, like I was/am.
 - I believe this tipped her over the edge and she was unable to withstand the online suicide suggestions which I can tell you from first-hand experience are extremely powerful, albeit fake.
-- I recall [a British woman telling me she'd refused to do porn](timeline/early-years/2013.md#the-british-woman-who-refused-to-do-porn) with her *much-younger-Spanish-boyfriend* and that he'd become enraged.
+- I recall [a British woman telling me she'd refused to do porn](timeline/2011-to-2020/2013.md#the-british-woman-who-refused-to-do-porn) with her *much-younger-Spanish-boyfriend* and that he'd become enraged.
 - When I saw her again, fifteen years later, she was crippled; my guess is due to regular pesticide-dousing of clothes and belongings, like they do.
 - Then there was unusually irascible Maria, living alone, her liver swollen to three times its size; all her doctors and even the hospital in Valencia telling her it was nothing!
 - I remember seeing crippled locals; a youngish man working in a tobacconist, someone I had known not so long before as fit and healthy.

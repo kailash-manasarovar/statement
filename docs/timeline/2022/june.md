@@ -26,7 +26,7 @@ function googleTranslateElementInit() {
 - I thought Lorraine had died from illness.
 - "Her daughter found her", Zoe kept mentioning.
 - I had no idea my every move was being tracked at that time, but now it seems sensible to assume that meeting, like every meeting I had, was set up by Hazel Smith and the Cano-Lopez family.
-- I recall seeing Zoe BJ, in another finely-tuned choreographic moment, in 2014 while I'm [waiting for Domingo in the car outside my apartment in Joan Fuster](../early-years/2014.md#trip-to-london).
+- I recall seeing Zoe BJ, in another finely-tuned choreographic moment, in 2014 while I'm [waiting for Domingo in the car outside my apartment in Joan Fuster](../2011-to-2020/2014.md#trip-to-london).
 - When things go really bad for me, and the Cano-Lopez's make no attempt to hide the fact they are trying to murder me, I reach out to Zoe and Marie online repeatedly.
 - They ignore me.
 - As time goes by, I realize every tiny interaction I have had with these people should be under scrutiny.
@@ -54,7 +54,7 @@ function googleTranslateElementInit() {
 ### Maria and Domingo
 
 - I go upstairs. 
-- [Maria Hontanilla](../2023/april.md#maria-hontanilla), my piano teacher from [2015-16](../early-years/2015.md#maria-hontanilla), is standing outside a piano room.
+- [Maria Hontanilla](../2023/april.md#maria-hontanilla), my piano teacher from [2015-16](../2011-to-2020/2015.md#maria-hontanilla), is standing outside a piano room.
 - We meet and say hello.
 - While Maria and I are talking, Domingo comes up the stairs. Two young female students are with him; minors of about 12 or 13 years old.
 - It's all very contrived and set up.

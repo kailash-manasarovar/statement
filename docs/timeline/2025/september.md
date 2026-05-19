@@ -73,7 +73,7 @@
 - This was when I really noticed I could not at all look at bright lights.
 - I'd be in the audience, watching the show and listening to the speakers, and in between each person the lights would roll around the conference hall and I literally had to cover my eyes and close them till it was finished.
 - This is another thing that sparked my further concern.
-- I was reminded of the [first time I went to the optician about this weird and inexplicable problem](../early-years/2013.md#boots-opticians-north-finchley), probably sometime in 2013.
+- I was reminded of the [first time I went to the optician about this weird and inexplicable problem](../2011-to-2020/2013.md#boots-opticians-north-finchley), probably sometime in 2013.
 
 ### Rutland House Surgery Muswell Hill
 
@@ -119,7 +119,7 @@
 - She states her appointment is not for another hour-and-a-half but thought she'd come anyway because she's feeling anxious.
 - She quickly launches into a fake speech about nothing; the way they do.
 - I sense darker intentions.
-- I wonder if this is [Verity's weird roommate](../early-years/2013.md#traveling-back-to-uk-at-christmas-with-verity-sawyer)?
+- I wonder if this is [Verity's weird roommate](../2011-to-2020/2013.md#traveling-back-to-uk-at-christmas-with-verity-sawyer)?
     
 ## Richard at Newgrange 
 
@@ -167,9 +167,9 @@
 
 !!! info "Remembering a *whole bunch* of things"
     - Around a week after the course I remember [the four distinct men who acted as trumpet teacher](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) at the conservatory in the switcheroo porn scam and [how Gabriel Silva had used the word "switcheroo" in the process of trying to bully me out of my job in August 2024](../2024/august.md#gabriel-silvas-first-team-meeting-as-manager).
-    - I remember [my father's involvement](../early-years/2015.md#inexplicable-anal-fissure) with Domingo Lopez Cano from 2013 onwards.
-    - I remember [my cousin Igor's unusual interest in my apartment at Ramon Ortega](../early-years/2012.md#passeig-periodista-ramon-ortega) that my father had repeatedly and excitedly told him about, insisting he must bring his young family there to visit.
-    - I remember that, even though I had moved out of the apartment at Ramon Ortega, my cousin did [bring his young family on their summer holiday to Denia](../early-years/2014.md#marie-carmen-from-tlc) for a few weeks in 2014.
+    - I remember [my father's involvement](../2011-to-2020/2015.md#inexplicable-anal-fissure) with Domingo Lopez Cano from 2013 onwards.
+    - I remember [my cousin Igor's unusual interest in my apartment at Ramon Ortega](../2011-to-2020/2012.md#passeig-periodista-ramon-ortega) that my father had repeatedly and excitedly told him about, insisting he must bring his young family there to visit.
+    - I remember that, even though I had moved out of the apartment at Ramon Ortega, my cousin did [bring his young family on their summer holiday to Denia](../2011-to-2020/2014.md#marie-carmen-from-tlc) for a few weeks in 2014.
     - I mentioned this fact to dad, with horror; he becomes angry and says, *I'd better speak to Igor* in a tone that sounded like he was condemning me for something.
     - Both my parents, at that moment, start going on about my previous interest in Haitian spiritual practices as if that will assure the world I'm not worth listening to.
     - My aunt Patricia would also do that.

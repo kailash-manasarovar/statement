@@ -131,7 +131,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - I guess Ivan is a nickname and due to him being monstrous to women, children... pregnant women and babies.
 - I'm reliably informed by solid international sources that this man's name is Bruno.
 - He also appears to be the father of Natalia's son; who is also called Bruno.
-- I suspect he could also be the father of the [gloomy yoga teacher](../../timeline/early-years/2015.md#nati-de-prati-yoga); npc from Natalia's terror team back in 2015.
+- I suspect he could also be the father of the [gloomy yoga teacher](../../timeline/2011-to-2020/2015.md#nati-de-prati-yoga); npc from Natalia's terror team back in 2015.
 - Bruno is a curiously Germanic name and I therefore wonder if he could be a descendent of Nazi war criminals who found safe-haven in Dénia and the surrounds after the second world war; a very open secret.
 
 ### Dark thick-curly-haired deep-set man
@@ -151,7 +151,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 [![Youtube](../../content/images/youtube-video.png)](../../timeline/2023/june.md#another-young-girls-funeral)
 
 - Due to the age of these numerous YouTube films, I'm pretty sure they function as *music-student-porn-genre* adverts which means the danger to children studying music in Spain could be country-wide.
-- I also recognize this man as the same man who [interviewed me for a job where I would be looking at genitals all day](../../timeline/early-years/2016.md#march) in 2016, and who I saw in the town not long after.
+- I also recognize this man as the same man who [interviewed me for a job where I would be looking at genitals all day](../../timeline/2011-to-2020/2016.md#march) in 2016, and who I saw in the town not long after.
 - I believe he told me his name is Viktor, and that he is the man with [the nickname Vigas](../../timeline/2024/august.md#interview-with-the-hacker) who is running the [Beams grooming account](../../timeline/2024/may.md#beams).
 - He is the man depicted as a monster on this [police statement's book cover](../../index.md) sitting alongside Domingo Cano Lopez.
 - It's possible there's a group of similar looking men who may be brothers and cousins with curly black hair, some tall some not so, with chunky bodies.

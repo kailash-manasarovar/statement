@@ -113,7 +113,7 @@ function googleTranslateElementInit() {
 - I realize this was the man driving in the [blue car incident](../2023/november.md#ana-in-the-blue-van); ducking down so he wouldn't be seen and the myth of the [trumpet teacher's new car and relationship with Ana](../2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car) could continue.
 - He is small enough to not be seen if he ducked down.
 - I also remember this man from when I met [Paul and Alessandra back in September 2023](../2023/september.md#alex-and-paul) in a cafe as one of the people who suddenly sat down beside us.
-- And I realized even later that this was [the man who told me how everyone got used to the yoga teacher's relaxing horror-show music](../early-years/2015.md#nati-de-prati-yoga) back in 2015.
+- And I realized even later that this was [the man who told me how everyone got used to the yoga teacher's relaxing horror-show music](../2011-to-2020/2015.md#nati-de-prati-yoga) back in 2015.
 - Ana barks *Hola* to me. 
 - I find this event utterly ironic, and I wonder if all Spanish people are psychopaths.
 - In Bali, I see a tweet that suggests indeed the Spanish are pedophilic-psychopaths and have normalized the worst.
@@ -143,7 +143,7 @@ function googleTranslateElementInit() {
 
 ![Dreaming of the pedophile](../../content/images/dreaming-of-the-pedophile.png)
 
-- I don't think I have ever dreamed of Winston May, apart from once; a few months after the [child sex attacks occurred in 1989](../early-years/2015.md#statement-to-the-metropolitan-police). 
+- I don't think I have ever dreamed of Winston May, apart from once; a few months after the [child sex attacks occurred in 1989](../2011-to-2020/2015.md#statement-to-the-metropolitan-police). 
 - At that time, I dreamed he and I were in the same house in Plevna Crescent, and I asked him if I could go to the toilet, like a child asks an adult.
 - He gave me permission, and when I went to the toilet in the dream, I wet the bed in real life.
 - I was 16.
@@ -163,7 +163,7 @@ function googleTranslateElementInit() {
     - The `@Beams_Game` account and all its interactions are a direct reference to my dad.
     - "The beam" was a game my dad used to play with us when we were little - this is even referred to in the chat we have.
     - Even more disturbing is some of the references the account owner makes to "enjoying it" with my father.
-    - Only with knowledge of [the incest filmed at Joan Fuster](../early-years/2015.md#inexplicable-anal-fissure), do online interactions like these become even more hideous.
+    - Only with knowledge of [the incest filmed at Joan Fuster](../2011-to-2020/2015.md#inexplicable-anal-fissure), do online interactions like these become even more hideous.
 
 - Grooming via social media, and unknown substances I'm ingesting without realizing it, continues apace on the run up to the Bali trip.
 - An account interacts with my `@JackChardwood` account [in an usual way](https://x.com/search?q=%20(to%3Ajackchardwood)(from%3Abeams_game)&src=typed_query&f=live).
@@ -205,7 +205,7 @@ function googleTranslateElementInit() {
 - It is "Vigas". 
 - I become convinced that this is the trumpet teacher's nickname because he has big legs.
 - At least, three of the set of trumpet teachers have big legs; not the [first man](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man), although they might be thickish they're not big and muscular like the [fourth muscle man](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man), or like the other two (or three) who were tall men.
-- Certainly the [fourth man](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man), the man that [interviewed me online with perfect English in 2016](../early-years/2016.md#march) was pumping iron.
+- Certainly the [fourth man](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man), the man that [interviewed me online with perfect English in 2016](../2011-to-2020/2016.md#march) was pumping iron.
 - Could this indeed be that guy's nickname? I bet it is.
 - There are sinister references from this account too, suggestions of violence.
 - Another post talks about just having had *coffee and pork crusts*.
@@ -285,7 +285,7 @@ function googleTranslateElementInit() {
 !!! info "Messages for me"
     - Was the trumpet teacher alerting me to child sex trafficking in Dénia, with the conservatory somehow operating as the training and/or recruitment ground?
     - It seemed preposterous to me.
-    - More likely, I felt, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../early-years/2015.md#statement-to-the-metropolitan-police).
+    - More likely, I felt, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../2011-to-2020/2015.md#statement-to-the-metropolitan-police).
     - But indeed, perhaps something even more startling was going on.
     - Did I recruit [trumpet teacher number one](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) to save the world with me without even knowing it?
 

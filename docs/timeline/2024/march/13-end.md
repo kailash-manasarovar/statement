@@ -25,7 +25,7 @@ function googleTranslateElementInit() {
 - I meet Sara and she says we should go to the main square outside the tunnel to talk, I'm not sure why. 
 - Was she told to take me there by someone? If so who? 
 - The square is completely empty.
-- I tell Sara everything; the child sexual abuse I suffered (she's very alarmed at this) and how it made me intolerant of children being sexualized at the conservatory (she's even more alarmed at this), and how I believed I had been targeted for [mentioning that very informally in 2015 to Joan Carles](../../early-years/2015.md#joan-carles).
+- I tell Sara everything; the child sexual abuse I suffered (she's very alarmed at this) and how it made me intolerant of children being sexualized at the conservatory (she's even more alarmed at this), and how I believed I had been targeted for [mentioning that very informally in 2015 to Joan Carles](../../2011-to-2020/2015.md#joan-carles).
 - As I tell her the story of how I have been gang-stalked and cyber-stalked by teachers and staff at the conservatory, and the [appalling spectacle of someone dressing up as Lorraine Blackbourn, deceased](../march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory), from the night before at the Casa de Cultura, it must be very obvious how traumatizing it all is.
 - My voice is shaking; I'm holding back a lot of stress.
 - She says to me, "Oh at least you know you're not imagining it". 
@@ -446,7 +446,7 @@ function googleTranslateElementInit() {
 ![Blokes and woman](../../../content/images/brutes-plus-woman.png)
 
 - They have timed this precisely; someone directing them knows my exact location by either my phone or from a conspirator in the office who has been waiting for me to leave, or both probably.
-- The woman looks like a nurse who used to [sing in Klara Sarkadi's choir back in 2013](../../../crimes/introduction-agents.md#klara-sarkadi) just before [I met Mercedes there and she suggested I study the piano at the conservatory](../../early-years/2013.md#meeting-mercedes).
+- The woman looks like a nurse who used to [sing in Klara Sarkadi's choir back in 2013](../../../crimes/introduction-agents.md#klara-sarkadi) just before [I met Mercedes there and she suggested I study the piano at the conservatory](../../2011-to-2020/2013.md#meeting-mercedes).
 
 #### Asking for the CCTV of the men
 
@@ -554,7 +554,7 @@ function googleTranslateElementInit() {
 - I don't want to upset them too much, but I'm very scared and someone needs to know what's going on in case something happens to me.
 - I tell them I believe that Domingo and his family are planning to murder me.
 - I explain that I am no longer depressed, and why, and that I would NOT commit suicide.
-- I remind them of what Domingo told me all those years ago, [the threat of poisoning](../../early-years/2014.md#poisoned-aunts), something that I had told them and some friends at the time as it was so frightful. 
+- I remind them of what Domingo told me all those years ago, [the threat of poisoning](../../2011-to-2020/2014.md#poisoned-aunts), something that I had told them and some friends at the time as it was so frightful. 
 - As I read this letter back today, I find that in the middle of this hell-on-earth there is something very loving and kind around and within me that I am expressing with my words.
 - It's really obvious from this letter I had no idea to what extent I had been drugged and poisoned, and for how long.
 - And I have no inkling there could have been [more than one trumpet teacher](../../../crimes/protagonists/vidal-sastre.md#six-distinct-men) either.
@@ -578,8 +578,8 @@ function googleTranslateElementInit() {
     - [Denuncia page 3](../../../content/documents/evidence/Madrid%203.JPG).
 
 - I explain the following:
-    - How it all began in [2014 with Domingo's unwanted attention](../../early-years/2014.md#first-piano-class-at-the-end-end-of-september).
-    - The officer neglects to mention the [threat of poisoning](../../early-years/2014.md#poisoned-aunts) I told her about.
+    - How it all began in [2014 with Domingo's unwanted attention](../../2011-to-2020/2014.md#first-piano-class-at-the-end-end-of-september).
+    - The officer neglects to mention the [threat of poisoning](../../2011-to-2020/2014.md#poisoned-aunts) I told her about.
     - How Domingo's sexualized attitude to the little girls was extremely concerning.
     - How a man calling himself Vidal SASTRE SANCHEZ HORNERO turned up in the role of trumpet teacher in November 2022.
     - The officer has skimmed through everything I said about the cyber-stalking on page two of the report, and she has mixed stories up and consequently makes a lot of errors.
@@ -982,7 +982,7 @@ function googleTranslateElementInit() {
 
 - Quite often, I'd see X spaces set up with a whole bunch of familiar fake accounts attending.
 - Interestingly, in the [Lorraine Tortured Whistleblower](#lorraine-tortured-whistleblower) pics, we see another account I believe was run by Hazel, or her Northern Ireland associates, [`@BelfastBeatnik`](https://x.com/BelfastBeatnik) running a space.
-- I'm curious about the Northern Ireland connection now, and [the horrible experience I had in 2020](../../early-years/2020.md#targeted-by-online-scammers) as I left my toxic environment in London and sought a new and better life, and seemed to be attacked by swarms of sinister people and events wherever I went from that moment onwards...
+- I'm curious about the Northern Ireland connection now, and [the horrible experience I had in 2020](../../2011-to-2020/2020.md#targeted-by-online-scammers) as I left my toxic environment in London and sought a new and better life, and seemed to be attacked by swarms of sinister people and events wherever I went from that moment onwards...
 
 ## 19th March
 
@@ -1003,7 +1003,7 @@ function googleTranslateElementInit() {
 !!! danger "Drugs and poisons in my toiletries"
     - It took until December 2024 before I was certain that criminal gang members - certainly Carmen Cano but no doubt my neighbors at Carrer Furs and others - were entering my apartment while I wasn't there to add substances to my toiletries.
     - This meant they could continue to dose me up long term, even when I was away for long periods of time.
-    - Given I had been sufficiently terrorized into leaving my conservatory studies, they could safely begin the maiming with the intention of blinding at a minimum (so I could be more easily robbed I guess) and then eventually murder by some illness caused by constant poisoning like perhaps [Vipassana Maria the Buddhist was experiencing](../../early-years/2015.md#vipasana-maria); her doctors and the hospitals claiming there was no problem with the huge abdominal growth near her liver area.
+    - Given I had been sufficiently terrorized into leaving my conservatory studies, they could safely begin the maiming with the intention of blinding at a minimum (so I could be more easily robbed I guess) and then eventually murder by some illness caused by constant poisoning like perhaps [Vipassana Maria the Buddhist was experiencing](../../2011-to-2020/2015.md#vipasana-maria); her doctors and the hospitals claiming there was no problem with the huge abdominal growth near her liver area.
     - My suspicion is low-level methanol doses which affected my sight detrimentally (I now have a pre-glaucoma condition) but, worse, *decimated* my cognitive capacity.
     - Not being able to do the most simple task of changing a PIN number on a bank card at an ATM machine was the first time I really noticed my cognitive skills in decline.
     - Prior to March 2024, I was doing detailed and complicated mental tasks at work on a daily basis with no issue.
@@ -1051,7 +1051,7 @@ function googleTranslateElementInit() {
 - I emailed Mike to tell him. He was really angry and sent a(n Irish) million emails trying to get me to stay; *I want you to love your job*, he said. I had.
 - It was devastating.
 - Anyway...
-- Cut to March 2014, the [first day of my service with Our Lady at Lourdes](../../early-years/2014.md#mike-wenham-murders-a-woman): Mike's wife emails everyone to tell us Mike has murdered a woman and would we be able to help with character references for the police as everyone thought he'd gone temporarily insane.
+- Cut to March 2014, the [first day of my service with Our Lady at Lourdes](../../2011-to-2020/2014.md#mike-wenham-murders-a-woman): Mike's wife emails everyone to tell us Mike has murdered a woman and would we be able to help with character references for the police as everyone thought he'd gone temporarily insane.
 - Turned out he had had a penis enlargement operation which had gone horribly wrong, and instead of gaining a huge penis, he lost a few inches of what he already had, and after that he had become obsessed with murdering a woman.
 - All of this came out in court and was reported in the media, the [Mirror](https://www.mirror.co.uk/news/uk-news/michael-wenham-dad-who-decapitated-5069212) mainly.
 - Some of his colleagues took the stand to say what a good bloke he was.

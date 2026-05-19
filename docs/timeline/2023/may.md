@@ -60,7 +60,7 @@ function googleTranslateElementInit() {
 
 !!! danger "Teachers repeat phrases from my police statement"
     - Someone told Ana to say this to me as I walked past her, and she did as she was told.
-    - This came directly from my [statement to the police in 2015](../early-years/2015.md#statement-to-the-metropolitan-police) in which I detailed clear memories from that time, including things people had said to me.
+    - This came directly from my [statement to the police in 2015](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) in which I detailed clear memories from that time, including things people had said to me.
     - This phrase, specifically, was something an old school friend had said to me when I was in a traumatized PTSD freeze state. 
     - I didn't know my police statement was being read by the original British porn and prostitution gangs themselves, and their Spanish counterparts in Dénia, and that a repeat of everything that had happened to me when I was 16 was being replayed in 2023.
     - On the run up to the 12th June 2023, when I was supposed to have been so terrorized I would leave my studies at the conservatory and never come back, these triggering events became more frequent.
@@ -171,7 +171,7 @@ function googleTranslateElementInit() {
 - [Paqui Fornet Pastor](../../crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor) was there, my final piano teacher at the conservatory when I eventually left in fear of my life in March 2024; someone very much involved in the conspiracy and gang-stalking although I couldn't have known that at the time.
 - I saw Klara Sarkadi, the choir master, for the first time in nearly 10 years and we chatted for a while. 
 - She spoke to me in a concerned way. She seemed nervous. Her mouth was dry and she kept tripping up on her words.
-- Klara Sarkadi is a good friend of Domingo Cano. She has known him for years. She would ask me about him, what I thought of him and similar, back in [2014 when I first had classes with him](../early-years/2014.md#first-piano-class-at-the-end-end-of-september). I didn't realize she was reporting back.
+- Klara Sarkadi is a good friend of Domingo Cano. She has known him for years. She would ask me about him, what I thought of him and similar, back in [2014 when I first had classes with him](../2011-to-2020/2014.md#first-piano-class-at-the-end-end-of-september). I didn't realize she was reporting back.
 - Klara has more recently been studying to be an orchestral conductor at the superior conservatory of Alicante.
 
 ![Klara Sarkadi linkedin](../../content/images/klara-sarkadi.png)
@@ -319,7 +319,7 @@ function googleTranslateElementInit() {
 - To kill or maim her?
 - They got close. 
 - I'm still struggling with basic cognitive skills in May 2025, something that low-level doses of methanol, or whatever, can obliterate.
-- He did [threaten to poison me](../early-years/2014.md#poisoned-aunts) after all.
+- He did [threaten to poison me](../2011-to-2020/2014.md#poisoned-aunts) after all.
 - I guess he was just making good on his threat.
 
 ## TEB with Robin

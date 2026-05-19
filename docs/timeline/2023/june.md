@@ -127,11 +127,11 @@ function googleTranslateElementInit() {
 - I play Philip Glass etude no 2: https://www.youtube.com/watch?v=850kyfwmRcM.
 - Before the concert begins, and as we were all preparing, and just as I was a few bars into rehearsing my piece, Domingo shouts **"Again?"** in an accusatory tone, very very loudly.
 - The whole auditorium hears him.
-- I wonder what he means. Does he mean another ridiculous *apparent* romantic tryst for me at the conservatory like in [2014](../early-years/2014.md#first-piano-class-at-the-end-end-of-september)? Or something more sinister, perhaps, like a replay of the child sexual abuse events from 1989?
+- I wonder what he means. Does he mean another ridiculous *apparent* romantic tryst for me at the conservatory like in [2014](../2011-to-2020/2014.md#first-piano-class-at-the-end-end-of-september)? Or something more sinister, perhaps, like a replay of the child sexual abuse events from 1989?
 - As I am returning to my seat after rehearsing, another one of the piano teachers, a woman teacher who looks like her other job is porn-star, asks me **"Are you alright"?**
 - I have no idea why she is asking me this.
 - You may remember this happened before when Ana Girbes asked me, incongruously, "Are you alright?" just before the [chamber music concert](may.md#chamber-music-concert), and more recently online stalkers repeated it during the relentless online terror. 
-- These words and phrases came directly from my [police statement of 2015](../early-years/2015.md#statement-to-the-metropolitan-police).
+- These words and phrases came directly from my [police statement of 2015](../2011-to-2020/2015.md#statement-to-the-metropolitan-police).
 - The only way they could only have known about these specifics was if the Metropolitan police had given my statement to the teachers and staff at the conservatory, or if my apartment was hacked in 2014-2016 and Domingo Cano had access to my activity.
 - Domingo must have instructed the woman to say this to me.
 - Interestingly, given that no-one was permitted to communicate with me at all outside of regular classes while I was being targeted, the only time anyone ever said anything to me turned out to be *significant* like this.
@@ -402,7 +402,7 @@ function googleTranslateElementInit() {
 
 ## Ireland
 
-- It's the first Transforming Touch course I've taken in person since [February 2020 in Cork](../early-years/2020.md#transforming-touch).
+- It's the first Transforming Touch course I've taken in person since [February 2020 in Cork](../2011-to-2020/2020.md#transforming-touch).
 - I'm utterly traumatized from my experience over the last six months, and especially over the last week.
 - I don't bring my connected devices so I cannot use my own Twitter account.
 - I do have my mobile phone, however.
@@ -415,7 +415,7 @@ function googleTranslateElementInit() {
 - I've no idea there was [at least four men](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) pretending to be the same trumpet teacher at the music school.
 - The weird "communication" continues between my new fake account and the `@jctot19` account.
 - I'm so upset (and drugged without knowing it) that I can't think straight, and so I don't realize this means my phone is hacked. 
-- I have a long WhatsApp chat with [Sandra Rita Diaz](../early-years/2014.md#sandra-rita-diaz), my French "friend" who I believe is a spy for the criminal gangs.
+- I have a long WhatsApp chat with [Sandra Rita Diaz](../2011-to-2020/2014.md#sandra-rita-diaz), my French "friend" who I believe is a spy for the criminal gangs.
 - I complain that the man is lazy. 
 - I hear about him being lazy again and again over the next year or so online.
 - I believe that she has told them. 

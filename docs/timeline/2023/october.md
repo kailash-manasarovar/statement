@@ -167,7 +167,7 @@ function googleTranslateElementInit() {
 - Paqui does a good job of pretending she's neutral.
 - I like her teaching style. 
 - It's a breath of fresh air after Maria.
-- It reminds me of when I studied with Joan Carles after becoming [totally fed up with Domingo in 2015](../early-years/2015.md#first-class-of-january).
+- It reminds me of when I studied with Joan Carles after becoming [totally fed up with Domingo in 2015](../2011-to-2020/2015.md#first-class-of-january).
 
 ## Porn and sexual arousal
 
@@ -371,7 +371,7 @@ function googleTranslateElementInit() {
 - He flinches.
 - I recognize him from somewhere.
 - I believe he was [playing the guitar](september.md#gypsy-serenades) to accompany the woman belting about the frog in a box.
-- And I am now absolutely certain [he came with the fat man to move my piano out of my flat](../early-years/2016.md#leaving-denia) in Joan Fuster in June 2016.
+- And I am now absolutely certain [he came with the fat man to move my piano out of my flat](../2011-to-2020/2016.md#leaving-denia) in Joan Fuster in June 2016.
 
 ## My car is damaged on the Montgo
 
@@ -580,7 +580,7 @@ function googleTranslateElementInit() {
 [![You made me love you](../../content/tweets/november-2023/you-made-me-love-you.png)](https://x.com/1FRGVN/status/1719532076725072313)
 
 - I suppose Laurent could be Domingo's uncle; a man able to hire, fire, award pensions, and target women and students at the conservatory.
-- The very same uncle, maybe, related to [Domingo's aunt whose hair fell out and went yellow when she left him](../early-years/2014.md#poisoned-aunts).
+- The very same uncle, maybe, related to [Domingo's aunt whose hair fell out and went yellow when she left him](../2011-to-2020/2014.md#poisoned-aunts).
 - I guess he could be Hazel Smith's partner in crime too; the elusive Paco Sendra.
 - He also looked a bit like the [man Patricia Penny was with at Christmas 2021](../2021/december.md#christmas).
 - Are these three men one and the same?
@@ -627,7 +627,7 @@ function googleTranslateElementInit() {
 [![Updates](../../content/tweets/october-2023/summary-updates.png)](https://x.com/1FRGVN/status/1716065908488040538)
 
 - I mention that I kept a secret once. I'm referring to something Domingo asked me to keep secret, which I did until I told everyone he'd lied about being sick on December 5th 2014 to get off classes. 
-- I'm guessing now he didn't even have to lie and his trip to the doctor on that morning before we [left for the airport](../early-years/2014.md#trip-to-london) was for some other reason.
+- I'm guessing now he didn't even have to lie and his trip to the doctor on that morning before we [left for the airport](../2011-to-2020/2014.md#trip-to-london) was for some other reason.
 
 [![Keeping secrets](../../content/tweets/october-2023/keeping-domingos-secret.png)](https://x.com/1FRGVN/status/1709965218531488064)
 
@@ -711,7 +711,7 @@ function googleTranslateElementInit() {
 
 #### Poisoned aunt
 
-- This tweet is the first, last, and only time I mention anything to do with [Domingo's threat in 2014](../early-years/2014.md#poisoned-aunts).
+- This tweet is the first, last, and only time I mention anything to do with [Domingo's threat in 2014](../2011-to-2020/2014.md#poisoned-aunts).
 
 [![Poisoned aunt](../../content/tweets/october-2023/poisoned-aunt.png)](https://x.com/1FRGVN/status/1715741021655466380)
 

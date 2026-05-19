@@ -95,7 +95,7 @@
 - The bar staff address the man by name, which I have forgotten.
 - The interrogator reminds me of someone, but I don't place it for a few weeks...
 - It's Domingo.
-- The whole scene reminded me of the time we went out for dinner at the Japanese restaurant in Dénia in 2014 (before [he came to London](../early-years/2014.md#trip-to-london))and he kind of *performed* for the people sitting around the table, as if he knew them, and they had to respect him, even though his loud behavior was terribly ignorant.
+- The whole scene reminded me of the time we went out for dinner at the Japanese restaurant in Dénia in 2014 (before [he came to London](../2011-to-2020/2014.md#trip-to-london))and he kind of *performed* for the people sitting around the table, as if he knew them, and they had to respect him, even though his loud behavior was terribly ignorant.
 - The way Domingo spoke at that time was as if everyone had no choice but to listen to him, and smile, and agree, and that was exactly what I was seeing at the Red Lion.
 - Who was this overbearing, slightly camp 50-year-old white man with a moustache presiding over a table of British Muslim Asian men who may well have been second-generation Pakistanis?
 - And why did they sit right beside us instead of in one of the more private areas elsewhere?
@@ -113,7 +113,7 @@
 - I wasn't going to include any of this because I didn't think it relevant to the main story, but perhaps it is...
 - Anyway, he said yes.
 - So, delighted, I immediately made my travel arrangements.
-- I hadn't visited Israel since 2012 when [I fell in love with the country and its people](../early-years/2012.md#tiferet).
+- I hadn't visited Israel since 2012 when [I fell in love with the country and its people](../2011-to-2020/2012.md#tiferet).
 - It's Purim.
 - At the last minute, Steve has to cancel his course because of health issues.
 - I'm unable to cancel my travel plans and it's not clear when he's rescheduling, so I go on my own and have a blissful time wandering around Jerusalem and taking it all in; visiting The Wall every day and praying.

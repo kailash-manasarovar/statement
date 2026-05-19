@@ -495,18 +495,18 @@ function googleTranslateElementInit() {
 
 ### Gabriel Silva and Polygon's campaign of terror on a child rape-gang survivor
 
-- Gabriel and I have an [extraordinarily weird meeting in January 2024](../2024/january.md#a-strange-meeting-with-gabriel-silva) in which he's looking at the screen in the same way my father looked at Domingo in [my kitchen in December 2014](../early-years/2014.md#trip-to-london).
+- Gabriel and I have an [extraordinarily weird meeting in January 2024](../2024/january.md#a-strange-meeting-with-gabriel-silva) in which he's looking at the screen in the same way my father looked at Domingo in [my kitchen in December 2014](../2011-to-2020/2014.md#trip-to-london).
 - I don't see Gabriel for a couple of months after that. 
 - He's stopped giving me work.
 - At some point, it's not entirely clear when, Gabriel starts complaining about my work to me personally and to other colleagues; he doesn't like my writing style, he puts me down in meetings, he tells colleagues that my docs system is a *single point of failure*.
 
 !!! tip "Single point of failure"
-    - Like teachers and staff at the conservatory played back events, words, and emotions I had described in [my police statement in 2015](../early-years/2015.md#statement-to-the-metropolitan-police) that had probably been live-streamed to the town as I wrote it, so too do the pornocracy use events, words, and emotions from past professional (apparent, certainly intended) *humiliations* in a severely abusive and underhand manner.
+    - Like teachers and staff at the conservatory played back events, words, and emotions I had described in [my police statement in 2015](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) that had probably been live-streamed to the town as I wrote it, so too do the pornocracy use events, words, and emotions from past professional (apparent, certainly intended) *humiliations* in a severely abusive and underhand manner.
     - SPOF is a direct reference to a breakdown in communication with a colleague at Consensys in 2021 who was extraordinarily aggressive towards me, unable to speak calmly when challenged, tantruming even, and management did not support me against him.
-    - [*Fetch*](../early-years/interim.md#fetchai), a reference to a colleague exposing himself in an online meeting that no-one helped me with, is another example brought up in a company-wide HR meeting just before I was fired by Polygon that Gabriel insisted I make sure I watched.
+    - [*Fetch*](../2011-to-2020/interim.md#fetchai), a reference to a colleague exposing himself in an online meeting that no-one helped me with, is another example brought up in a company-wide HR meeting just before I was fired by Polygon that Gabriel insisted I make sure I watched.
     - Hackers even flashed up names of men who had been extremely unpleasant towards me at work in 2018; one such person, Harsha, interrogated me continually on what I knew about my own PhD, triumphant when he had convinced himself I was an idiot, other male colleagues glaring at me while I was at my desk or in meetings.
     - It must have been an abomination for the pornocracy to have been expected to work alongside a child rape-gang survivor, the porn from which they may have even masturbated to, never mind treat them as a fellow human being!
-    - I became 100% suicidal on getting fired from [the job with Adaptive](../early-years/interim.md#hired-for-sport-again) and made an attempt on my life not long after.
+    - I became 100% suicidal on getting fired from [the job with Adaptive](../2011-to-2020/interim.md#hired-for-sport-again) and made an attempt on my life not long after.
     - I wonder how many more exceptional women are going through this sort of hell in tech.
     - It is, after all, a porn genre now.
 
@@ -692,7 +692,7 @@ function googleTranslateElementInit() {
 
 [![Talking directly to stalkers](../../content/tweets/november-2023/talking-to-stalkers.png)](https://x.com/1FRGVN/status/1722879891593375965)
 
-- This tweet is a direct reference to [the behavior of Mercedes](../early-years/2013.md#meeting-mercedes).
+- This tweet is a direct reference to [the behavior of Mercedes](../2011-to-2020/2013.md#meeting-mercedes).
 
 [![The behavior of Mercedes](../../content/tweets/november-2023/reference-to-mercedes.png)](https://x.com/1FRGVN/status/1721197950951477588)
 

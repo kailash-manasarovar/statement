@@ -61,7 +61,7 @@
 - I meet Paul at Madrid airport.
 - He is emaciated; skin and bone.
 - He looks like he has been doing seriously hard drugs for decades.
-- He reminds me of Winston May's accomplice I saw outside [Rape Crisis Hornsey](../early-years/2017.md#rape-crisis-hornsey), Busby.
+- He reminds me of Winston May's accomplice I saw outside [Rape Crisis Hornsey](../2011-to-2020/2017.md#rape-crisis-hornsey), Busby.
 - Bizarrely, Paul did not come through to the arrivals hall at Madrid airport. Instead, he waits at the shuttle train station for about an hour.
 - When I arrive, I call him.
 - He's been there over an hour and he sort of pretends he doesn't know where he is or how to get out, and I tell him to come to arrivals as I'm collecting my bag.

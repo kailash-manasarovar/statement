@@ -347,7 +347,7 @@ function googleTranslateElementInit() {
 
 ![St Teresa's prayer](../../content/images/st-teresa-of-avila.jpg)
 
-- I'm communicating with [Sandra Rita Diaz](../early-years/2014.md#sandra-rita-diaz) a lot via WhatsApp.
+- I'm communicating with [Sandra Rita Diaz](../2011-to-2020/2014.md#sandra-rita-diaz) a lot via WhatsApp.
 - Sandra Rita Diaz has about four different French numbers and I never know which one to use.
 - Eventually she replies to me on one of them.
 - I tell her I'm in love and that I'm going to have a boyfriend soon.
@@ -420,13 +420,13 @@ function googleTranslateElementInit() {
 - While I'm working in the kitchen one afternoon, a man introduces himself, he has excellent English.
 - Rodrigo, I believe.
 - He asks me where I live, I tell him Denia.
-- He says did I know a [Maria who does Vipasana in Denia](../early-years/2015.md#vipasana-maria).
+- He says did I know a [Maria who does Vipasana in Denia](../2011-to-2020/2015.md#vipasana-maria).
 - I say yes.
-- I don't tell him [Maria signed my child sexual abuse statement to the Metropolitan Police in 2015](../early-years/2015.md#statement-to-the-metropolitan-police), but perhaps he knows already.
+- I don't tell him [Maria signed my child sexual abuse statement to the Metropolitan Police in 2015](../2011-to-2020/2015.md#statement-to-the-metropolitan-police), but perhaps he knows already.
 - He says they were a romantic item at one point.
 - I tell him the last time I saw her was nearly 10 years before, and she was very unwell with a liver problem.
 - He says, *pobrecita*.
-- In retrospect, I notice that he looks like [Nati's sailor man](../early-years/2015.md#nati-de-prati-yoga) I see on Facebook in 2025, and I wonder if they are one and the same.
+- In retrospect, I notice that he looks like [Nati's sailor man](../2011-to-2020/2015.md#nati-de-prati-yoga) I see on Facebook in 2025, and I wonder if they are one and the same.
 - It would not surprise me.
 - As with everyone else in this statement, I would recognize him in an instant.
 - Does he know something about why Maria was so ill and why the doctors were fobbing her off?
@@ -502,7 +502,7 @@ function googleTranslateElementInit() {
 
 !!! info "Memories triggered by theatrical and malicious eye twitches"
     - I'm reminded of a man I knew in Dénia in 2015 who I had been introduced to by a French woman, Sylvie, who worked in an estate agency.
-    - I have now reported this in the [2015 statement chapter](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie).
+    - I have now reported this in the [2015 statement chapter](../2011-to-2020/2015.md#greek-man-with-a-twitch-and-sylvie).
     - We had been out one night and he walked a little way towards my home with me, and the whole time he kept blinking and winking at me, while grinning, in an extraordinarily weird manner.
     - So weird, in fact, I mentioned it to the French woman in disgust.
     - The man was Greek and may have been one of the [muscle men](#muscle-men-outside-the-tunnel) I just mentioned.
@@ -602,7 +602,7 @@ function googleTranslateElementInit() {
 ### Seeing child rape-gang porn from 1989 again
 
 - I eventually realize Dénia cyber-stalkers and hackers are suggesting I had been in rape-gang-porn as a child, and they had seen it.
-- They had already [flashed some of it up once before](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x), alluded to it in their [beach chair displays](september.md#gang-stalking-on-the-beach), and made continued references to it taken directly from my [police statement](../early-years/2015.md#statement-to-the-metropolitan-police) such as [tables](september.md#table) or [spoken statements by conservatory teachers](may.md#chamber-music-concert) or shouting [*AGAIN?*](june.md#june-9th-piano-concert), for example, but it took a while for me to figure it out.
+- They had already [flashed some of it up once before](november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x), alluded to it in their [beach chair displays](september.md#gang-stalking-on-the-beach), and made continued references to it taken directly from my [police statement](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) such as [tables](september.md#table) or [spoken statements by conservatory teachers](may.md#chamber-music-concert) or shouting [*AGAIN?*](june.md#june-9th-piano-concert), for example, but it took a while for me to figure it out.
 - I had only ever had a suspicion of being filmed, no actual evidence, but everything that the people of Dénia were doing pointed to real pedophile-rape-gang-porn films that they had seen, and thoroughly enjoyed it appeared.
 - This month I see, again flashed up on my X feed, pictures of a young girl's naked body. The girl is me again; so pale her skin appears nearly blue and dappled. 
 - This time I see myself from behind my head, looking down on me.
@@ -660,7 +660,7 @@ function googleTranslateElementInit() {
 
 [![Beginning of the thread](../../content/tweets/december-2023/crying-for-love.png)](https://x.com/1FRGVN/status/1740273934833201503)
 
-- I still think the reason behind everything is [Domingo's vengeance for 2014](../early-years/2015.md#first-class-of-january).
+- I still think the reason behind everything is [Domingo's vengeance for 2014](../2011-to-2020/2015.md#first-class-of-january).
 
 [![Vengeance still](../../content/tweets/december-2023/still-think-its-vengeance-for-2014.png)](https://x.com/1FRGVN/status/1740127866447094097)
 

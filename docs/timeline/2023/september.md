@@ -556,7 +556,7 @@ function googleTranslateElementInit() {
 ![The gang](../../content/images/young-men-at-the-beach.png)
 
 - It is at this very moment, the time of writing, 21:56pm on the 4th June 2025, and not before, that I realize why they did this.
-- The gang rape I remembered from 1989 and gave details about in my [police statement from 2015](../early-years/2015.md#statement-to-the-metropolitan-police) described a group of young men sitting on kitchen or dining room chairs in a small circle or semi-circle.
+- The gang rape I remembered from 1989 and gave details about in my [police statement from 2015](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) described a group of young men sitting on kitchen or dining room chairs in a small circle or semi-circle.
 - One of the young men I will meet again on [Halloween at the Irish bar](october.md#halloween).
 
 ### The man in the Alhambra pic
@@ -957,7 +957,7 @@ function googleTranslateElementInit() {
 
 [![Bryan Ferry has aged](../../content/tweets/september-23-comms/bryan-ferry.png)](https://x.com/1FRGVN/status/1706609205908476079)
 
-- Nacho is the guy who [Domingo tried to set me up with](../early-years/2014.md#at-the-conservatory) when I didn't want anything further to do with him.
+- Nacho is the guy who [Domingo tried to set me up with](../2011-to-2020/2014.md#at-the-conservatory) when I didn't want anything further to do with him.
 - A cyber-stalker baits me about it, and I respond.
 
 [![Bryan Ferry terrorizing me](../../content/tweets/september-23-comms/bryan-ferry-2.png)](https://x.com/1FRGVN/status/1707151247059321125)
@@ -1033,7 +1033,7 @@ function googleTranslateElementInit() {
 - There's a bunch of adults in the choir class.
 - I don't know what any of them do, apart from Samuel who doesn't talk to me anymore anyway.
 - Except, Salva is constantly mentioning how this one particular man is a *maths teacher*.
-- I believe this is a direct reference to my father and highlights how everyone knows about [the incest-porn from 2015](../early-years/2015.md#inexplicable-anal-fissure).
+- I believe this is a direct reference to my father and highlights how everyone knows about [the incest-porn from 2015](../2011-to-2020/2015.md#inexplicable-anal-fissure).
 - Every tiny thing they do and say is to terrorize me; to retrigger sexual trauma.
 
 ## Apes beating their chests

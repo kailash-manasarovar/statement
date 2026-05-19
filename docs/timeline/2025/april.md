@@ -44,7 +44,7 @@
 
 - At one point, there is communication online with regards to how I've had enough and I'm not playing anymore.
 - The following day, I do a Google search on my X name and all I see is fridges.
-- I'm reminded of Domingo Cano telling everyone at the conservatory I was [frigid](../early-years/2014.md#poisoned-aunts) and wonder if that's something his other targets are very familiar with on their social media?
+- I'm reminded of Domingo Cano telling everyone at the conservatory I was [frigid](../2011-to-2020/2014.md#poisoned-aunts) and wonder if that's something his other targets are very familiar with on their social media?
 - I showed my mother this page of fridges on Google search.
 - She was sitting beside me at the time.
 

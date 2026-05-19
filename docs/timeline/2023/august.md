@@ -147,7 +147,7 @@ function googleTranslateElementInit() {
 
 [![Offers of healing, promise of friends](../../content/tweets/august-comms/offers-of-healing-promise-of-friends-3.png)](https://x.com/1FRGVN/status/1691010959555379200)
 
-- I started referring to the upcoming 4th year of professional studies as season 3. Season 2 was the trumpet teacher debacle and season 1 was the [first attempt to control me in 2014](../early-years/2014.md#conservatory-audition).
+- I started referring to the upcoming 4th year of professional studies as season 3. Season 2 was the trumpet teacher debacle and season 1 was the [first attempt to control me in 2014](../2011-to-2020/2014.md#conservatory-audition).
 
 - This post below blew my mind a little. The pic on the last post of the thread came up on a random gif selection, but I don't believe it was random at all. The character here actually looks gaunt and unwell just like Domingo. 
 
@@ -481,7 +481,7 @@ function googleTranslateElementInit() {
 - I told the UK recruiter I was not interested because I believed it was a scam and I gave the background that I was being cyber-stalked and probably hacked at that time.
 - You can confirm with him: Morgan McCarthy @ Spectrum Search.
 - The one-page release website never moved into a released stage, and I checked regularly for months afterwards. Now the URL is dead.
-- At the time, I didn't relate any of this to previous experiences that I had forgotten completely, such as [interviewing for a company where I'd be looking at genitals all day long](../early-years/2016.md#march)
+- At the time, I didn't relate any of this to previous experiences that I had forgotten completely, such as [interviewing for a company where I'd be looking at genitals all day long](../2011-to-2020/2016.md#march)
 - The man that interviewed me at that time was the [third man I have remembered as being the *trumpet teacher*](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man).
 - It seems like the porn-gangs have not only infiltrated the school system in Spain, but they've also brushed their processes up and are infiltrating the working world in which *any woman doing a job search* could be targeted and she wouldn't suspect a thing.
 - Here's the recruiter's [replies to me on LinkedIn](../../content/documents/emails/Torus-email-to-recruiter.pdf), a conversation we had after I'd got home in September.

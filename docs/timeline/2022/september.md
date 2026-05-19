@@ -75,7 +75,7 @@ function googleTranslateElementInit() {
 ### Piano
 
 - My teacher is Maria Hontanilla Alfonso. 
-- [Mercedes](../early-years/2013.md#meeting-mercedes) is her student also. This doesn't make sense because Mercedes was in the first year in 2015-16, which means she should have finished her studies two years previously.
+- [Mercedes](../2011-to-2020/2013.md#meeting-mercedes) is her student also. This doesn't make sense because Mercedes was in the first year in 2015-16, which means she should have finished her studies two years previously.
 - It's even more curious given that Mercedes has clearly done no practice in 6 years.
 - Whenever I go to class, Mercedes is finishing her class and I wait 20/30 minutes while she eats into my class time (because she was late) before she finishes. 
 - Then Mercedes spends 10/15/20 minutes talking to Maria before she actually leaves. 
@@ -102,7 +102,7 @@ function googleTranslateElementInit() {
 !!! tip "Samuel's girlfriend"
     - Samuel's girlfriend is Venezuelan; an outsider.
     - She works at the English House.
-    - This is, interestingly enough, run by the same woman who *noticed* my [freshly mud-packed face in 2015](../early-years/2016.md#evidence-the-town-is-surveilling-me-without-my-knowledge) which seemed to me like she had seen me, except I had been in my flat in private.
+    - This is, interestingly enough, run by the same woman who *noticed* my [freshly mud-packed face in 2015](../2011-to-2020/2016.md#evidence-the-town-is-surveilling-me-without-my-knowledge) which seemed to me like she had seen me, except I had been in my flat in private.
     - Samuel creates tension between myself and his girlfriend by telling her something that upsets her about me.
     - I notice this at the [choir concert in December](december.md#choir-concert) where she is very obviously not happy with me.
 

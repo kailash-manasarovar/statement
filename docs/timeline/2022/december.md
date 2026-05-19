@@ -87,7 +87,7 @@ function googleTranslateElementInit() {
 
 ## A seizure in Thailand
 
-- Online and in-person bullying by criminal gangs, and teachers and staff at the conservatory of Dénia included using my own words and experiences that I had described in detail in my [2015 police statement I sent via email to the Metropolitan Police](../early-years/2015.md#statement-to-the-metropolitan-police), and repeating and replaying them back to me in order to cause me enormous distress and psychological injury.
+- Online and in-person bullying by criminal gangs, and teachers and staff at the conservatory of Dénia included using my own words and experiences that I had described in detail in my [2015 police statement I sent via email to the Metropolitan Police](../2011-to-2020/2015.md#statement-to-the-metropolitan-police), and repeating and replaying them back to me in order to cause me enormous distress and psychological injury.
 - I did not know this was happening at this time. Indeed, it has only become clear to me in early 2025 after leaving Dénia, replacing all my bathroom products, and washing or throwing away most of my belongings which the criminals had doused in pesticides while I was away from my apartment, probably in mid-October 2024.
 - In any case, constant triggering and reminders of my experience of being sexually abused by a North London rape-gang when I was a child was the backdrop to my psychological and emotional state while I was on holiday in Thailand over Christmas 2022.
 - It is highly likely the bathroom products I brought from Spain contained some psychoactive substance, maybe even low level doses of methanol or anti-freeze.

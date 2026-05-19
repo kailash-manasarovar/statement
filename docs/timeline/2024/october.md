@@ -84,9 +84,9 @@ function googleTranslateElementInit() {
 - I wait some time for a process document which the company doesn't seem to have.
 - While this is going on, the HR team has a company-wide meeting in which they mention my experience as a *female-tech-colleague-you-despise* in an underhand way.
 - James Dawes (ex-colleague of [Hans Bodani](../2023/november.md#polygon) at Mantle) leads the meeting and alludes to something exciting coming up.
-- He starts to mention the word [Fetch](../early-years/interim.md#fetchai) over and over for no particular reason.
+- He starts to mention the word [Fetch](../2011-to-2020/interim.md#fetchai) over and over for no particular reason.
 - "Remember", Alyssa says laughing later on, "Remember the word Fetch!".
-- Fetch is a direct reference to the company in Cambridge UK, Fetch.AI, [where a man flashed his crotch at me in an online meeting](../early-years/interim.md#fetchai) a week after I started.
+- Fetch is a direct reference to the company in Cambridge UK, Fetch.AI, [where a man flashed his crotch at me in an online meeting](../2011-to-2020/interim.md#fetchai) a week after I started.
 - When I meet Alyssa again, I tell her about my experience at Fetch without mentioning the company name.
 - At our next team meeting, Gabriel Silva makes sure to mention we *must* all watch this meeting if we haven't already, especially me.
 - Polygon then hires a [man who targeted me at zkSync](../2023/june.md#work-stress) in April 2023 while the [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) was in full swing, Coogan.
@@ -478,7 +478,7 @@ function googleTranslateElementInit() {
 - I always found him unsavory, and something about him reminded me of Matthew Diamond.
 - He seemed to be perma-seething; visually and vocally.
 - Martin could have been his name.
-- Anyway, there he was on the bench with this woman who reminded me a little bit of Marie Carmen, the owner of the TLC language academy who had an apartment in [Joan Fuster](../early-years/2014.md#joan-fuster); her daughter maybe.
+- Anyway, there he was on the bench with this woman who reminded me a little bit of Marie Carmen, the owner of the TLC language academy who had an apartment in [Joan Fuster](../2011-to-2020/2014.md#joan-fuster); her daughter maybe.
 - Neither of them acknowledged me although I was right in front of them and he knows me.
 - She's holding a clipboard and he's answering her questions.
 - It sounds like he's detailing a crime or some nuisance, like he's making a complaint and she's taking notes.
@@ -579,7 +579,7 @@ function googleTranslateElementInit() {
 - Thank you Paloma! 🙏🏼 It was a great idea.
 - She tells me that with a timeline, she can help me, and maybe get Interpol involved.
 - She says her sister lives in La Sella and she will talk to her to find out what's going on.
-- La Sella is just a few kilometers up the road from Dénia. It’s where the [Scottish woman lives, close friends with Zoe BJ, the woman with chronic cystitis who runs a charity](../early-years/2016.md#the-scottish-woman).
+- La Sella is just a few kilometers up the road from Dénia. It’s where the [Scottish woman lives, close friends with Zoe BJ, the woman with chronic cystitis who runs a charity](../2011-to-2020/2016.md#the-scottish-woman).
 - Paloma tells me that once we have the timeline, we can help [Irene](august.md#irene-the-plate-lady) and the other women and children.
 - I hug her and thank her, but I don't expect to see or hear from her again.
 - As I leave, I give her, written down by hand on a piece of paper, the names of [the two little girls from Madrid that Domingo teaches](../2023/september.md#my-friend-the-german-translator) and I tell her I'm extremely concerned about their safety, and the safety of their wealthy single mother who he had persuaded to buy a Steinway. 
@@ -872,7 +872,7 @@ function googleTranslateElementInit() {
     - It's curious the name Sandra comes up so much amongst honey-trapping conspirators.
     - I have mentioned my thoughts before about the name coming from ["throwing sand in the eyes"...](march/1-12.md#i-make-a-donation-on-x).
     - I now notice that this Sandra is *Sandra D*, star of summer loving, a classic honey-trapping meme.
-    - When I first met her in [2014](../early-years/2014.md#sandra-rita-diaz), just before starting as Domingo Lopez Cano's piano student, she was simply Sandra D.
+    - When I first met her in [2014](../2011-to-2020/2014.md#sandra-rita-diaz), just before starting as Domingo Lopez Cano's piano student, she was simply Sandra D.
     - She added the Rita in a lot later.
 
 ## Nota simple from the neighbors flats
@@ -1062,8 +1062,8 @@ function googleTranslateElementInit() {
 - It seemed a little far-fetched given the intensity of the attacks and the jeering tone of the information.
 - Moreover, it wasn't the only suggestion around what they meant by *Silvia*.
 - I eventually wondered if the name was *code* for a targeted-woman as it is a pun on the Spanish word for *whistle*.
-- I then remembered my [French friend Sylvie](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie) who was clearly surrounded by perverts back in 2015, and I wondered if that was really her name or they'd told her to use it when dealing with me.
-- Also, the photo of the child reminded me of the photo that [Sandra Diaz used on her WhatsApp in 2014](../early-years/2014.md#sandra-rita-diaz) when I met her. 
+- I then remembered my [French friend Sylvie](../2011-to-2020/2015.md#greek-man-with-a-twitch-and-sylvie) who was clearly surrounded by perverts back in 2015, and I wondered if that was really her name or they'd told her to use it when dealing with me.
+- Also, the photo of the child reminded me of the photo that [Sandra Diaz used on her WhatsApp in 2014](../2011-to-2020/2014.md#sandra-rita-diaz) when I met her. 
 - Its salaciousness took me aback, like many of her antics.
 - She was dressed in a skintight jeans and a leopard-print top and she was holding a cat in exactly the same manner as the child in the photo.
 - I added the [Sylvia meme information](../../evidence/memes-and-triggers.md#sylvia) to the evidence section.

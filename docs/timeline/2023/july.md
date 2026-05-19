@@ -355,7 +355,7 @@ function googleTranslateElementInit() {
 
 - I see a picture of a young woman who I recognize from Dénia.
 - She is taking a pill in an exaggerated manner.
-- I know this is related to the 1989 drug scene and what I told Domingo at the [airport in 2014](../early-years/2014.md#trip-to-london).
+- I know this is related to the 1989 drug scene and what I told Domingo at the [airport in 2014](../2011-to-2020/2014.md#trip-to-london).
 - I will see this woman in real life in September singing loudly at me about [frogs in boxes at the end of the tunnel in Dénia](september.md#gypsy-serenades) with a gypsy guitarist.
 - The account had *Suarez* in the name and there were numerous pictures of her, all rather threatening.
 - I saw her on another fake account more recently.

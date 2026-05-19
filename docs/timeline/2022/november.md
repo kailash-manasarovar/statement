@@ -67,11 +67,11 @@ function googleTranslateElementInit() {
 - He made sure I saw his face very clearly.
 - His look reminded me of a look on one of the grooming gangs faces when I was 16. A man who had looked at me with delight before he raped me. A look of evil.
 - You don't forget looks like that.
-- This was something I had mentioned very clearly in my [police statement from 2016](../early-years/2015.md#statement-to-the-metropolitan-police).
+- This was something I had mentioned very clearly in my [police statement from 2016](../2011-to-2020/2015.md#statement-to-the-metropolitan-police).
 - The following week the same guy turns up to teach chamber music class. He is the missing trumpet teacher.
 
 !!! warning "Intentionally triggering memories of child sexual abuse"
-    - I believe that the look the trumpet teacher gave me that day in Benijembla was a look of recognition, but also a look that was meant to (perhaps by God, and by him unintentionally) remind me of something I had said in my [police statement](../early-years/2015.md#statement-to-the-metropolitan-police).
+    - I believe that the look the trumpet teacher gave me that day in Benijembla was a look of recognition, but also a look that was meant to (perhaps by God, and by him unintentionally) remind me of something I had said in my [police statement](../2011-to-2020/2015.md#statement-to-the-metropolitan-police).
     - This look, another [choker seed](march.md#planting-the-choker-seeds), was something criminal gangs believed would trigger PTSD related to the child rape-gang abuse I had experienced in 1989.
     - Online triggering of memories of the same crimes, including the music of the time, violent rape images on Twitter, and rave scene connections, was taking place in parallel.
     - The man continued to give me *that look* in the first few classes.
@@ -118,7 +118,7 @@ function googleTranslateElementInit() {
 - He is the trumpet teacher.
 - I ask him his name.
 - He says his name is Vidal.
-- He is carrying a big black scruffy leather case, apparently for his trumpet, although I believe he brought it to look like the [VHS video recorder case](../early-years/2015.md#statement-to-the-metropolitan-police) I had reported to the Met in 2006 and 2015.
+- He is carrying a big black scruffy leather case, apparently for his trumpet, although I believe he brought it to look like the [VHS video recorder case](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) I had reported to the Met in 2006 and 2015.
 - In the Generalitat Valenciana systems, his name is Vidal Sastre Sanchez Hornero, although I was told by a government official in October 2024 that the person doesn't exist in the Generalitat database! 
 
 !!! tip "Spanish school pornographers protected top-to-bottom"
@@ -172,7 +172,7 @@ function googleTranslateElementInit() {
 - At the second chamber music class, the switcheroos continued.
 - The trumpet teacher, [one of the second bunch of men I remember](../../crimes/protagonists/vidal-sastre.md#at-least-four-more), looked at me wearing that same grin I'd seen on him in Benijembla. 
 - It was disturbing.
-- As I wrote this statement out, I noted that this grin had reminded me of the 1989 pedophile's grin, something I had also reported in [my police statement of 2015](../early-years/2015.md#statement-to-the-metropolitan-police).
+- As I wrote this statement out, I noted that this grin had reminded me of the 1989 pedophile's grin, something I had also reported in [my police statement of 2015](../2011-to-2020/2015.md#statement-to-the-metropolitan-police).
 - I realize that he was grinning with delight because I had been successfully brain-damaged and was mistaking numerous men as the same one man.
 - Scam of the century.
 
@@ -220,7 +220,7 @@ function googleTranslateElementInit() {
 - He mentioned *coffee* a lot, but never invited me out for coffee.
 - I liked him and had only positive thoughts about him although I could smell Domingo all over everything that was going on.
 - It is hard to reconcile what was happening to me at the conservatory with my generous feelings about this person.
-- I wonder now if my excruciating ambivalence was due to constant online manipulation while drugged, just like a Pavlov dog; something else I mentioned in my [police statement written in 2015](../early-years/2015.md#statement-to-the-metropolitan-police).
+- I wonder now if my excruciating ambivalence was due to constant online manipulation while drugged, just like a Pavlov dog; something else I mentioned in my [police statement written in 2015](../2011-to-2020/2015.md#statement-to-the-metropolitan-police).
 
 ![Forglov's dogs](../../content/images/forg/forglovs-dogs.png)
 

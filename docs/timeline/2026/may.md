@@ -30,7 +30,7 @@ function googleTranslateElementInit() {
 - I made a note of this on the account photo, also mentioning that he somehow reminded me of the gardener at Cami Llavador, someone Lorraine knew very well (had gone to school with I believe).
 - Yesterday, driving through Soulom on my way back home from shopping, the man was standing facing me at the area where there's usually a chip van.
 - He was with a group of people.
-- The man has [that squirrel look](../early-years/2013.md#daniel) but he's fairer and fatter-faced. 
+- The man has [that squirrel look](../2011-to-2020/2013.md#daniel) but he's fairer and fatter-faced. 
 - Yesterday evening, another couple of odd men I sort of maybe recognize are pointed out to me out-of-context on an Anne Frank Facebook group.
 - Are they up from Dénia to finish me off?
 - My guess is they're not the only ones who want rid of me.

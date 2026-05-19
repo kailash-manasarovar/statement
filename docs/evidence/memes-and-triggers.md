@@ -71,7 +71,7 @@ function googleTranslateElementInit() {
 ### Police documentary
 
 - While I was suicidally depressed in India in 2016 after leaving Dénia, I *stumbled across* a documentary about a woman who had rejoined the police and was undercover filming her male colleagues' appalling behavior.
-- I [wrote about this already](../timeline/early-years/2016.md#asia), then forgot I had.
+- I [wrote about this already](../timeline/2011-to-2020/2016.md#asia), then forgot I had.
 - We see two male police officers snickering over a video clip on a WhatsApp group on their phones.
 - They tell the female police officer they're looking at a naked woman running around a field somewhere after a horse.
 - I was horrified. 
@@ -156,7 +156,7 @@ function googleTranslateElementInit() {
 
 - This name came up constantly.
 - I wonder if it is a code name for the targeted woman?
-- My thoughts eventually went to a [French woman, Sylvie, I did know in 2015](../timeline/early-years/2015.md#greek-man-with-a-twitch-and-sylvie) who was surrounded by the Denia body-building massive, i.e. Domingo Cano's friend, and I wonder if people could have been referring to her.
+- My thoughts eventually went to a [French woman, Sylvie, I did know in 2015](../timeline/2011-to-2020/2015.md#greek-man-with-a-twitch-and-sylvie) who was surrounded by the Denia body-building massive, i.e. Domingo Cano's friend, and I wonder if people could have been referring to her.
 - However, this would mean that people fully engaged in terrorizing me were suddenly finding some heart and trying to warn me about what was going on, especially if some ill has befallen Sylvie, so I expect the connection is coincidence.
 
 ## Donatello
@@ -180,7 +180,7 @@ function googleTranslateElementInit() {
 ## Coffee
 
 - This was an early days trigger-word repeated in hushed whispers behind nudged elbows by teachers at the conservatory whenever I was close by.
-- I had always assumed it was in regards to Domingo's repeated [coffee dates](../timeline/early-years/2014.md#first-piano-class-at-the-end-end-of-september) in 2014, and my subsequent complaint about their inappropriateness to [Joan Carles](../timeline/early-years/2015.md#joan-carles) at the time I had no idea my apartment was spy-cammed up and multiple local men were gaining entry after I went to bed to rape me while I was rendered unconscious by sedating gas.
+- I had always assumed it was in regards to Domingo's repeated [coffee dates](../timeline/2011-to-2020/2014.md#first-piano-class-at-the-end-end-of-september) in 2014, and my subsequent complaint about their inappropriateness to [Joan Carles](../timeline/2011-to-2020/2015.md#joan-carles) at the time I had no idea my apartment was spy-cammed up and multiple local men were gaining entry after I went to bed to rape me while I was rendered unconscious by sedating gas.
 - *Coffee* then became part of the sedating rape-cult's secret language; as piano-teacher Maria Hontanilla can confirm.
 - Whenever she suggested we might go for coffee - then grin and say *or two, or three, or four* - she was referring directly to the [*switcheroo* horror-porn special filmed live from the conservatory](../crimes/protagonists/vidal-sastre.md#at-least-six).
 - The *coffee* meme gave online X stalker-accounts much fun too, as one can see in the replies to this particular tweet I sent while the sedating-and-drugging terror was at its peak.

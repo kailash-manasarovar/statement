@@ -308,7 +308,7 @@ function googleTranslateElementInit() {
 - I feel like she is mine to do whatever I want with.
 - There is also a delighted sensation, like a tingling, that I am going to treat her badly and she won't be able to do anything about it.
 - This is the tingling of all my tormentors, quickly turning to extreme fear when challenged by Love.
-- She reminds me a little bit of [Sylvie](../early-years/2015.md#greek-man-with-a-twitch-and-sylvie) but I don't see her face.
+- She reminds me a little bit of [Sylvie](../2011-to-2020/2015.md#greek-man-with-a-twitch-and-sylvie) but I don't see her face.
 - I scroll away and when I go back to look at the photo again it is gone. 
 - I never see it again.
 - Like the jealousy I felt at [Madrid airport](#madrid-airport), it was as if, not just that I was in someone else's head but that I was that person.
@@ -328,7 +328,7 @@ function googleTranslateElementInit() {
 
 - Online in conversation with hackers, I mention that everyone might benefit from getting on my table.
 - A post flashes up ***I'M NOT DOING THAT!!***, as if shouting.
-- I realize later they are referring to the gang-rape on the table incident I had mentioned in [my police statement from 2015](../early-years/2015.md#statement-to-the-metropolitan-police) that Dénia terrorists had been trying to [remind me of at the beach](../2023/september.md#rape-gang-reminders), and on [Google search results](../2023/september.md#table) that showed only tables, and the [Carmen account mentioning tables](../2023/july.md#carmen) again and again.
+- I realize later they are referring to the gang-rape on the table incident I had mentioned in [my police statement from 2015](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) that Dénia terrorists had been trying to [remind me of at the beach](../2023/september.md#rape-gang-reminders), and on [Google search results](../2023/september.md#table) that showed only tables, and the [Carmen account mentioning tables](../2023/july.md#carmen) again and again.
 - They had been triggering me online with the 'table' meme since at least August 2023, possibly even as far back as 2014.
 - I really had no idea what they were going on about, until [I saw myself in a still from child gang-rape porn](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) in November 2023, but even then I was not wholly certain about the table references.
 - It's a curious irony that practitioners call the TT trauma therapy bed a table.
@@ -407,7 +407,7 @@ function googleTranslateElementInit() {
 [![Ana smiles sweetly](../../content/tweets/january-2024/ana-smiles-sweetly.png)](https://x.com/1FRGVN/status/1747527940173082745)
 
 !!! danger "More reenactments coming directly from information in my statement to the Metropolitan police"
-    - Curiously, this was also part of my [child sexual abuse statement to the police](../early-years/2015.md#statement-to-the-metropolitan-police).
+    - Curiously, this was also part of my [child sexual abuse statement to the police](../2011-to-2020/2015.md#statement-to-the-metropolitan-police).
     - I described in detail what the pedophile had done to terrorize me and make me too afraid to say no to him.
     - One of those things was that he would be furiously angry with me, and then be kind, and then be angry again, and repeat this process; sometimes these changes happened in seconds.
     - The angry times included violent threats to my life.
@@ -510,7 +510,7 @@ function googleTranslateElementInit() {
 - He is asking them if they'll *go for a coffee*.
 - I ask Samuel what's going on, why are they saying *coffee* loudly.
 - Samuel says, oh it's just a game.
-- *Coffee* is one of the terror-terms Domingo, TT, and their co-conspirators had [used relentlessly since 2014](../early-years/2015.md#joan-carles), and at the [commencement of the bullying when I started my studies in 2022](../2022/october.md#bullying-starts-quietly), and by [TT himself in the sporadic classes he attended](../2022/november.md#flirting).
+- *Coffee* is one of the terror-terms Domingo, TT, and their co-conspirators had [used relentlessly since 2014](../2011-to-2020/2015.md#joan-carles), and at the [commencement of the bullying when I started my studies in 2022](../2022/october.md#bullying-starts-quietly), and by [TT himself in the sporadic classes he attended](../2022/november.md#flirting).
 
 ### Nacho follows me around town
 

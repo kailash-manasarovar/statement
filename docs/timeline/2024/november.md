@@ -508,7 +508,7 @@ function googleTranslateElementInit() {
 - I had been late 15 minutes to the appointment, so I thought maybe he did it so I'd never come back.
 - But it was too egregious to explain away like that.
 - Someone managed to poison this man's view to the extent where he would butcher, literally, a woman's hair.
-- This was the time just after I had realized [the conservatory scam had been a switcheroo porn special](../../crimes/protagonists/vidal-sastre.md#at-least-six), and on the back of that I had quickly remembered [the sedated anal-rape incest porn](../early-years/2015.md#inexplicable-anal-fissure), and the gangs had obviously cranked up [the suicide manipulation again on my social media](../2025/november.md#suicide-content-on-my-jackchardwood-account), so my view is that the porn-gangs of North London somehow got him to apply an extra psychological wounding, the way they do.
+- This was the time just after I had realized [the conservatory scam had been a switcheroo porn special](../../crimes/protagonists/vidal-sastre.md#at-least-six), and on the back of that I had quickly remembered [the sedated anal-rape incest porn](../2011-to-2020/2015.md#inexplicable-anal-fissure), and the gangs had obviously cranked up [the suicide manipulation again on my social media](../2025/november.md#suicide-content-on-my-jackchardwood-account), so my view is that the porn-gangs of North London somehow got him to apply an extra psychological wounding, the way they do.
 
 ### Still unwell
 
