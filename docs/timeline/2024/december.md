@@ -498,6 +498,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - As has been the case since June 2023, I'm surrounded by people wherever I am in the world who very obviously, to me, have no good intention towards me.
 - However, something has changed this month, and as well as the crowds of wrong'uns that seem to be terribly interested in me, I start to notice good folk amongst them, who are also interested in me.
 - Something big has changed, but I cannot say for sure what it is because I can only feel the energy of it in the people I see and interact with.
+- I suspect it must be to do with [my handwritten letters](august.md#the-handwritten-letters).
 - God, I believe, is also sending folk to help me out when I really need someone.
 - One example of this is when I got on the Bangkok Airways plan in Samui, I was so stressed with everything that had been going on, I was sort of collapsing under the weight of the intensity of an international criminal enterprise having 24-7 access to me, and watching everything I do.
 - I sat next to an Indian couple on the plane.
