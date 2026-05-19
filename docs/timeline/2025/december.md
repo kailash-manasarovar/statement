@@ -42,7 +42,7 @@
 
 - A cockney geezer is hanging out on Lamai beach every day.
 - He's about 60, black hair probably dyed, geezer.
-- He has two young women with him who don't speak.
+- He has two young women with him who don't speak (are they policewomen?).
 - He speaks.
 - A lot.
 - He's always shouting on his phone.
