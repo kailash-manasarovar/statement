@@ -56,7 +56,7 @@
 - When I go to have a massage at the pier near the resort, a very serious looking older Thai couple walk past me and the woman says, *you should stay at home*, as she passes me.
 - I feel like everyone knows who I am.
 - I don't go back to the pier for a massage.
-- The only reason I went there was because there is a strange feeling at the usual place I go to also.
+- The only reason I went there was because there is a strange feeling at the usual place I go to.
 - It's like they close the shop to all other customers when I turn up.
 - It's very strange, and I don't like it.
 - The owner who was very friendly towards me the year before, is now distant.
