@@ -154,7 +154,7 @@ function googleTranslateElementInit() {
 - And a first point of call should be Lorraine Blackbourn's family, and anyone that knew her, and to have a look at any police complaints she may have made prior to her untimely death by suicide.
 - Furthermore, if I was an investigator, I'd make sure to check every single student that Domingo Cano Lopez the piano teacher has taught over the years to see how many of them ended up in porn or prostitution, had an early death, and/or were exploited financially in some way.
 
-## Roberto look-alike at Poolsawat
+## Roberto lookalike at Poolsawat
 
 - I stay at the Poolsawat hotel for a few weeks before moving to the Spa Resorts to detox later in the month.
 - I'm scared there.
