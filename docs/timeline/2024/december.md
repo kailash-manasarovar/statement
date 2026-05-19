@@ -504,6 +504,5 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - They were from Gujarat.
 - We got talking and quickly the subject changed to the Ramayana and Hindu stories.
 - My whole nervous system came down from high intensity to a relaxed stillness, and I have to thank God for that.
-- Whoever you were, man with the name that only you have in the whole world.
-- Thank you <3
+- Whoever you were - woman and man with the name that only you have in the whole world - thank you <3.
 - Oh, and I did visit, just like I promised.
