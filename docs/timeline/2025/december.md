@@ -60,5 +60,5 @@
 - It's like they close the shop to all other customers when I turn up.
 - It's very strange, and I don't like it.
 - The owner who was very friendly towards me the year before, is now distant.
-- They're calling me khun-khun too, which I think is a little derogatory.
+- They're calling me *khun-khun* too, which I think is a little derogatory.
 - If I'm so famous everywhere, why hasn't anyone been nicked yet?
