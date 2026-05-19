@@ -161,7 +161,7 @@ function googleTranslateElementInit() {
 - I'm worried about the neighbors and I go down one night at 2am to ask hotel staff if they have security cameras on all night.
 - I think they might have been friends now, but at the time I wasn't sure of anything at all.
 - Every day at the Poolsawat beach restaurant a man turns up with a woman.
-- He looks exactly like [Roberto from Alicante](../early-years/2011.md#roberto-from-alicante--catalina), except he's small in height.
+- He looks exactly like [Roberto from Alicante](../early-years/2011.md#roberto-from-alicante-and-catalina), except he's small in height.
 - I tweet about familiar faces because of it.
 - I also wonder if they're friendly.
 - I guess I was getting everything mixed up, or not.
