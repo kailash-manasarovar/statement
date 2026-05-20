@@ -17,10 +17,10 @@ function googleTranslateElementInit() {
 - I reach out to a Baroness at the House of Lords who is a strong support for women and girls in the fight against the abuses of trans ideology.
 - I have had some communication with [Baroness Nicholson](https://en.wikipedia.org/wiki/Emma_Nicholson,_Baroness_Nicholson_of_Winterbourne) previously.
 - Significantly, I emailed her probably sometime in March after [I became afraid for my life](../2024/march/13-end.md#wednesday-13th-march).
-- At the time she responded with a note that I understood to mean we should expect certain cultures to behave in the way the people of Dénia have been behaving towards me.
-- We have a long correspondence where I explain how scared I am, and why, and how I believe I'm going to be murdered.
+- At the time she responded with a note that I understood to mean we should expect certain cultures to behave in the way the people of Dénia have been behaving towards me which perplexed me at the time.
+- This month, we have a long correspondence where I explain how scared I am, and why, and how I believe I'm going to be murdered.
 - Here is [most of the email thread](../../content/documents/emails/the%20witch%20must%20drown-3-6.pdf).
-- She basically tells me I'm hysterical!
+- After speaking with Lauren Ott from the Metropolitan Police - who I explained was the investigating officer on my North London rape-gang case from 2015 - she basically tells me I'm hysterical!
 
 [![Take the doctors pills](../../content/images/take-the-doctors-pills.jpg)](../../content/documents/emails/the%20witch%20must%20drown-3-6.pdf)
 
@@ -31,8 +31,8 @@ function googleTranslateElementInit() {
 - This is just one of a bunch of emails I sent to the Baroness and to the police in the UK, the last one dated February 2026.
 - Whenever things got really overwhelming for me, I would reach out to them.
 - After the first few times I got no response, I stopped expecting a response, but still felt compelled to try again to get help.
-- As well as the Baroness, the email recipients included Lauren Ott who had been one of the investigating officers working on my North London rape-gang case in 2015, a policeman sent to assist me while I was campaigning at the UK general election in June 2024, the election police lead involved in protecting candidates for general election in London, anyone and everyone I had details for that I thought might care or be able to help.
-- I received no reply from anyone.. apart from a couple of vague but pleasant responses from the Baroness, and Lauren Ott responded to me once directly telling me to call 999 when I get home to London, which I do: another [spectacular dismissal](#i-call-the-police).
+- As well as the Baroness, the emails went to Lauren Ott, a policeman sent to assist me while I was campaigning at the UK general election in June 2024, the election police lead involved in protecting candidates for general election in London, anyone and everyone I had details for that I thought might care or be able to help.
+- I received no reply from anyone.. apart from a couple of vague but pleasant responses from the Baroness, and Lauren Ott responding to me once directly telling me to call 999 when I get home to London, which I do: another [spectacular dismissal](#i-call-the-police) for the widow.
 
 ## Twitter translators
 
