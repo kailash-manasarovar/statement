@@ -17,7 +17,7 @@ function googleTranslateElementInit() {
 - I reach out to a Baroness at the House of Lords who is a strong support for women and girls in the fight against the abuses of trans ideology.
 - I have had some communication with [Baroness Nicholson](https://en.wikipedia.org/wiki/Emma_Nicholson,_Baroness_Nicholson_of_Winterbourne) previously.
 - Significantly, I emailed her probably sometime in March after [I became afraid for my life](../2024/march/13-end.md#choir).
-- At the time she responded with a note that I understood to mean we should expect certain cultures to behave in the way the people of Dénia have been behaving towards me which perplexed me.
+- At the time she responded with a note that I understood to mean we should expect certain cultures to behave in the way the people of Dénia have been behaving towards me, which perplexed me but I had no capacity to think about it further.
 - This month, we have a long correspondence where I explain how scared I am, and why, and how I believe I'm going to be murdered.
 - Here is [most of the email thread](../../content/documents/emails/the%20witch%20must%20drown-3-6.pdf).
 - After she has a word with Lauren Ott from the Metropolitan Police - who I explained was the investigating officer on my North London rape-gang case from 2015 - she basically tells me I'm hysterical!
