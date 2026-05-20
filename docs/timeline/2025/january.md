@@ -8,14 +8,31 @@ function googleTranslateElementInit() {
 }
 </script>
 
-## Thoughts getting straight
+## The persistent widow
 
-- After three years, and having got rid of my toiletries, I am suddenly starting to see things more clearly.
-- I realize that probably I'm going to be murdered by either Domingo the piano teacher and Hazel Smith's organizations, gitano and British criminal gangs, or the Spanish police, or even the British police for their possible collusion.
-- I reach out to a Baroness at the House of Lords who supports women and girls in our fight against the abuses of trans ideology.
+- After having thrown my toiletries away and completed an intense seven-day fast and detox in Samui, I am suddenly starting to see things more clearly.
+- It's obvious how badly my mind was affected and for how long too.
+- I'm seriously concerned I'm going to be murdered by either Domingo Lopez Cano's family working alongside Hazel Smith's organization, or gitano and British criminal gangs anywhere in the world, or the Spanish police when I get back to Spain, or even the British police for their possible collusion.
+- I'm scared and I don't know what to do.
+- I reach out to a Baroness at the House of Lords who is a strong support for women and girls in the fight against the abuses of trans ideology.
 - I have had some communication with [Baroness Nicholson](https://en.wikipedia.org/wiki/Emma_Nicholson,_Baroness_Nicholson_of_Winterbourne) previously.
-- She responds with an [email](../../content/documents/emails/the%20witch%20must%20drown-3-6.pdf) saying I'm hysterical.
-- So I'll just accept that I'm gonna be murdered or disappeared next week or sometime in the future.
+- Significantly, I emailed her probably sometime in March after [I became afraid for my life](../2024/march/13-end.md#wednesday-13th-march).
+- At the time she responded with a note that I understood to mean we should expect certain cultures to behave in the way the people of Dénia have been behaving towards me.
+- We have a long correspondence where I explain how scared I am, and why, and how I believe I'm going to be murdered.
+- Here is [most of the email thread](../../content/documents/emails/the%20witch%20must%20drown-3-6.pdf).
+- She basically tells me I'm hysterical!
+
+[![Take the doctors pills](../../content/images/take-the-doctors-pills.jpg)](../../content/documents/emails/the%20witch%20must%20drown-3-6.pdf)
+
+- I'm angry about her reply, and I tell her what I think.
+- Later on, after some prayer and reflection, I decide that she *must* be telling me - without telling me - that there is a big investigation going on into the Spanish conservatories (music and dance) where children are in peril, and also into the medical professionals also colluding with the gangs (doctor's pills).
+- I hold onto this dwindling certainty, without which my perception of the world is in tatters.
+- I reply to her, apologizing for getting cross.
+- This is just one of a bunch of emails I sent to the Baroness and to the police in the UK, the last one dated February 2026.
+- Whenever things got really overwhelming for me, I would reach out to them.
+- After the first few times I got no response, I stopped expecting a response, but still felt compelled to try again to get help.
+- As well as the Baroness, the email recipients included Lauren Ott who had been one of the investigating officers working on my North London rape-gang case in 2015, a policeman sent to assist me while I was campaigning at the UK general election in June 2024, the election police lead involved in protecting candidates for general election in London, anyone and everyone I had details for that I thought might care or be able to help.
+- I received no reply from anyone.. apart from a couple of vague but pleasant responses from the Baroness, and Lauren Ott responded to me once directly telling me to call 999 when I get home to London, which I do: another [spectacular dismissal](#i-call-the-police).
 
 ## Twitter translators
 
