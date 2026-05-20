@@ -11,7 +11,7 @@ function googleTranslateElementInit() {
 ## The persistent widow
 
 - After having thrown my toiletries away and completed an intense seven-day fast and detox in Samui, I am suddenly starting to see things more clearly.
-- It's obvious how badly my mind was affected and for how long too.
+- It's obvious how badly my mind has been affected by drugs and poisons, and for how long too.
 - I'm seriously concerned I'm going to be murdered by either Domingo Lopez Cano's family working alongside Hazel Smith's organization, or gitano and British criminal gangs anywhere in the world, or the Spanish police when I get back to Spain, or even the British police for their possible collusion.
 - I'm scared and I don't know what to do.
 - I reach out to a Baroness at the House of Lords who is a strong support for women and girls in the fight against the abuses of trans ideology.
