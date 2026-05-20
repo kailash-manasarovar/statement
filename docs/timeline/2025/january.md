@@ -25,7 +25,7 @@ function googleTranslateElementInit() {
 [![Take the doctors pills](../../content/images/take-the-doctors-pills.jpg)](../../content/documents/emails/the%20witch%20must%20drown-3-6.pdf)
 
 - I'm angry about her reply, and I tell her what I think.
-- Later on, after some prayer and reflection, I decide that she *must* be telling me - without telling me - that there is a big investigation going on into the Spanish conservatories (music and dance) where children are in peril, and also into the medical professionals also colluding with the gangs (doctor's pills).
+- Later on, after some prayer and reflection, I decide that she *must* be telling me - without telling me - that there is a big investigation going on into the Spanish conservatories (music and dance) where children are in peril, and also into the medical professionals colluding with the gangs (doctor's pills).
 - I hold onto this dwindling certainty, without which my perception of the world is in tatters.
 - I reply to her, apologizing for getting cross.
 - This is just one of a bunch of emails I sent to the Baroness and to the police in the UK, the last one dated February 2026.
