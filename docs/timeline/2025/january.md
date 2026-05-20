@@ -32,7 +32,7 @@ function googleTranslateElementInit() {
 - Whenever things got really overwhelming for me, I would reach out to them.
 - After the first few times I got no response, I stopped expecting a response, but still felt compelled to try again to get help.
 - As well as the Baroness, the emails went to Lauren Ott, a policeman sent to assist me while I was campaigning at the UK general election in June 2024, the election police lead involved in protecting candidates for general election in London, and anyone and everyone I had details for that I thought might care or be able to help.
-- I received no reply from anyone.. apart from a couple of vague but pleasant responses from the Baroness, and Lauren Ott responding to me once directly telling me to call 999 when I get home to London, which I do: another [spectacular dismissal](#i-call-the-police) for the widow.
+- I received no reply from anyone.. apart from a couple of vague but pleasant responses from the Baroness, and Lauren Ott responding to me once directly telling me to call 999 when I get home to London, which I do: another [spectacular disappointment](#i-call-the-police) for the widow.
 
 ## Twitter translators
 
