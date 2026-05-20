@@ -799,11 +799,11 @@ function googleTranslateElementInit() {
 ## They're calling me a *grass* now
 
 - Hackers start calling me a grass online, relentlessly, in a British English manner.
-- It matches, and enhances [Paqui Fornet Pastor's declaration about me being a *grass-total*](january.md#ana-and-ana-and-paqui) the previous month.
+- It matches, and enhances my piano teacher [Paqui Fornet Pastor's declaration about me being a *grass-total*](january.md#ana-and-ana-and-paqui) the previous month.
 - It's kind of amusing, and concerning.
 - I remind them, on X, that to be a grass you first have to be on the same side.
-- Later in 2024, ironically, the gangs will start grassing each other up left-right-and-centre.
-- But the most concerning thing about this is that it seemed to be one of their terror-protocols; i.e. something they could use to silence teenagers and children being terrorized by their own community in the classrooms.
+- Later in 2024 and continually catastrophically for them over 2025 and 2026, and very ironically too, the gangs will start grassing each other up left-right-and-centre.
+- But the most concerning thing about this is that it seemed to be one of their terror-protocols; i.e. something they rely on from experience to silence teenagers and children being terrorized by their own community in the classrooms.
 
 ## Searching for a security expert to help me find the porn I'm starring in, sedated
 
