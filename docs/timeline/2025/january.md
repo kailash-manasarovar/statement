@@ -1,9 +1,12 @@
 # January 2025
 
-## Samui
-
-- The man that looks like the fraudster from H Samuels in 1989 bares his teeth at me.
-- Is he the same man [my brother spoke about in 2010](../2001-to-2010/2010.md#christmas-with-jitendra) that advised him how to get really high all the time, and he lost his mind in the process?
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
 
 ## Thoughts getting straight
 
