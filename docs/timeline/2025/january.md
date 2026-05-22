@@ -168,6 +168,24 @@ function googleTranslateElementInit() {
 - He seems to be seething with everyone, and deliberately does his own thing and breaks things, then charges £100 an hour.
 - Is he taking advantage of Ritzy?
 
+### Paul promises me he's not doing heroin
+
+- It seems obvious to me Paul has been doing heroin, but he's adamant he is off the drugs since July 2024 and was only doing crack.
+- Even so, I take my handbag to the toilet when I go I'm so concerned about him.
+- I explain I'm sending him home because he looks like a drug addict and I wanted someone to be there for me who would command a bit of respect.
+- He goes into a massive meltdown about how he's never done heroin and it's all my fault for suggesting it, and how I'm always telling lies about everyone, and how dare I.. that sort of thing.
+- It's quite a performance, so I tell him fair enough and I let it go.
+
+### Writing about Paul in my book
+
+- I take the opportunity to write a few notes in here about Paul (knowing that everyone is reading them and assuming there's a massive investigation going on) because I'm so concerned about him.
+- I commit a description of him arriving at Madrid airport on his BA flight but not going through to arrivals and instead waiting where the little train stops until I call him.
+- It's the sort of thing you'd do if you didn't want to walk through customs/border control on your own looking like he does.
+- I wonder if he had some drugs on him.
+- Did someone tell him to do that; to wait for me?
+- After I send Paul home, he tells me when I next see him that police at Heathrow had searched him and even taken a DNA swab from his mouth.
+- I take this as more proof of the big investigation going on.
+
 ### A child sexual abuse survivor gets retraumatized
 
 - I tell Paul later that it is extraordinarily common for people who have been groomed and abused as children to become retraumatized as adults and have breakdowns; specifically when their same-sex kids get to the same age they were when they were groomed by a predator.
