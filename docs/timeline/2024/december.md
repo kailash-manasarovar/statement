@@ -465,33 +465,6 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - I haven't seen Paul since 2001 - when he, Niall, and Simon visited me and, my boyfriend at the time, Brian at our flat in Hastings one night.
 - I have no idea Paul is on the North London porn-gang payroll as well.
 
-## A man I recognize bares his teeth at me
-
-- I'm getting ready to leave the Spa Resorts in Lamai and travel back to Madrid where I will meet my friend Inma who's going to come with me to the gender-violence police department to augment [the complaint I already made to them](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid) back in March.
-- I've also organized that [Paul will accompany me too](../2025/january.md#paul) because perhaps if I bring a man along with me they might actually do something.
-- I'm sitting in the restaurant having some food and reading the set of Psalms I've been reading every Sunday on my mobile phone.
-- I become aware of a man hovering around.
-- I'm immediately suspicious of him.
-- He's pale, white, British - I can hear him speaking with the waiters.
-- He has long, very greasy black hair, and what seems to be a Spanish wife (from the accent) and a daughter of about eight-years-old.
-- He glares at me baring his big, shining-white, well-dentistried teeth.
-
-![Man bares teeth](../../content/images/man-baring-teeth.png)
-
-- It's very threatening.
-- But, I realize I know this man.
-- He's the man who tried to rob H. Samuel the jewelers with a fake credit card while I was on the till in Brent Cross in ... you guessed it ... the summer of 1989, just before the North London rape-gangs got hold of me.
-- I knew that immediately; what I didn't realize until later is he is also the man [I dreamt about when I was seven](../pre-2001/1980.md#a-nightmare-about-my-brother), the man who imprisoned my brother with an evil matchbox mechanism that grabbed his forearm.
-- Could he also be the same *really nice geezer* my brother met in Lamai in 2010?
-- The man who gave my brother the drugs and instructions on how to buy them at the pharmacy, just before he totally lost his mind.
-- The same man who it was *really important* my brother told me about having met - while he was grinding his teeth, still furious with me, when he popped into the Spa the last time I would see him relatively conscious in Thailand.
-- My guess is the whole scam with my brother over the years with his new *mates* was about ensuring his woman-loathing was so intense, his disgust with my femaleness would mean he would never think once about helping me when, as it was so planned, I would really need it.
-- Perhaps they felt they needed something even more given that, even though my brother was going through this woman-hating, pay-to-rape hell in Thailand, when I met him to hang out that Christmas we were friendly; the connection is strong and I don't take things personally.
-- What was the evil matchbox mechanism, I wonder, and how does it relate to my brother's forearm?
-- Oh, and I see the same woman the following year when I visit, and she's not Spanish and doesn't appear to have a daughter either.
-- She's Brazilian maybe, and she smiled and said hello to me in a pleasant and familiar way.
-- I love these Miss Marple sections, don't you!
-
 ## A shift in the game
 
 - The terror continues and I remain stressed and anxious.

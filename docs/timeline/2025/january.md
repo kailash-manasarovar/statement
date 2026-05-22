@@ -8,6 +8,33 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## A man I recognize bares his teeth at me
+
+- I'm getting ready to leave the Spa Resorts in Lamai and travel back to Madrid where I will meet my friend Inma who's going to come with me to the gender-violence police department to augment [the complaint I already made to them](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid) back in March.
+- I've also organized that [Paul will accompany me too](../2025/january.md#paul) because perhaps if I bring a man along with me they might actually do something.
+- I'm sitting in the restaurant having some food and reading the set of Psalms I've been reading every Sunday on my mobile phone.
+- I become aware of a man hovering around.
+- I'm immediately suspicious of him.
+- He's pale, white, British - I can hear him speaking with the waiters.
+- He has long, very greasy black hair, and what seems to be a Spanish wife (from the accent) and a daughter of about eight-years-old.
+- He glares at me baring his big, shining-white, well-dentistried teeth.
+
+![Man bares teeth](../../content/images/man-baring-teeth.png)
+
+- It's very threatening.
+- But, I realize I know this man.
+- He's the man who tried to rob H. Samuel the jewelers with a fake credit card while I was on the till in Brent Cross in ... you guessed it ... the summer of 1989, just before the North London rape-gangs got hold of me.
+- I knew that immediately; what I didn't realize until later is he is also the man [I dreamt about when I was seven](../pre-2001/1980.md#a-nightmare-about-my-brother), the man who imprisoned my brother with an evil matchbox mechanism that grabbed his forearm.
+- Could he also be the same *really nice geezer* my brother met in Lamai in 2010?
+- The man who gave my brother the drugs and instructions on how to buy them at the pharmacy, just before he totally lost his mind.
+- The same man who it was *really important* my brother told me about having met - while he was grinding his teeth, still furious with me, when he popped into the Spa the last time I would see him relatively conscious in Thailand.
+- My guess is the whole scam with my brother over the years with his new *mates* was about ensuring his woman-loathing was so intense, his disgust with my femaleness would mean he would never think once about helping me when, as it was so planned, I would really need it.
+- Perhaps they felt they needed something even more given that, even though my brother was going through this woman-hating, pay-to-rape hell in Thailand, when I met him to hang out that Christmas we were friendly; the connection is strong and I don't take things personally.
+- What was the evil matchbox mechanism, I wonder, and how does it relate to my brother's forearm?
+- Oh, and I see the same woman the following year when I visit, and she's not Spanish and doesn't appear to have a daughter either.
+- She's Brazilian maybe, and she smiled and said hello to me in a pleasant and familiar way.
+- I love these Miss Marple sections, don't you!
+
 ## The persistent widow
 
 - After having thrown my toiletries away and completed an intense seven-day fast and detox in Samui, I am suddenly starting to see things more clearly.
@@ -79,7 +106,12 @@ function googleTranslateElementInit() {
     - In fact, I believe this is what drew me and Paul together and made drugs and alcohol so appealing; our shared child sexual grooming experiences.
 
 - I meet Paul at Madrid airport.
-- He is emaciated; skin and bone.
+- I picked the car up there the day before.
+- It was at the airport garage for two months.
+- Hackers have been warning me about getting in the car, and when I do get in the car after two months I immediately start feeling symptoms of unwellness: scratchy throat, rheumatic pains in my hands.
+- We stay at a Eurostars hotel on the outskirts of the city but near enough to drive in.
+- I've asked Paul to bring masks and gloves because I believe the car is poisoned with pesticides.
+- Paul is emaciated; skin and bone.
 - He looks like he has been doing seriously hard drugs for decades.
 - He reminds me of Winston May's accomplice I saw outside [Rape Crisis Hornsey](../2011-to-2020/2017.md#rape-crisis-hornsey), Busby.
 - Bizarrely, Paul did not come through to the arrivals hall at Madrid airport. Instead, he waits at the shuttle train station for about an hour.
@@ -116,6 +148,15 @@ function googleTranslateElementInit() {
 - I give him my coat and a decent woolen jumper and tell him not to sell them.
 - I think about the many good people I know in North London whose lives were destroyed by drugs.
 
+### Dinner at the hotel in Madrid
+
+- Paul and I sit down to a late supper at the hotel.
+- He won't shut up talking.
+- For some reason I decide to call home, and talk to dad for a while.
+- Dad tells a racist(ish) joke and tells me to tell Paul.
+- I find myself giggly, high. I apologize to Paul for being giggly.
+- Why was I giggly?
+
 ### Ritzy
 
 - When I call Paul from Thailand to arrange to meet him at Madrid airport he's with Ritzy.
@@ -137,11 +178,21 @@ function googleTranslateElementInit() {
 - He, like me, never had any real support from family as they didn't seem to know what was going on for him, and, like me, he was blamed by them for everything that was happening to him that his child's mind couldn't really comprehend.
 - It was unfair for him, and me.
 - Paul went to pieces around about the same time his second son who he was parenting reached the age that Paul was groomed.
+
+### Paul's lies about the Royal Family, and other things
+
 - Paul told me a lot of stories, most of them lies I expect, I hope.
 - He did mention that he had met both Charles and Diana because his grandfather had been the chief librarian at the Times and they came in when he was there and knew his grandfather by name.
 - He told another story about Diana bumping into him in Camden High Street somewhere when she was hounded by paparazzi and he had caught her and she remembered him by name.
-- Paul told a great deal of porkies while we were together. Some were really nasty stories about people you could tell he was "getting back" for something.
+- Paul told a great deal of porkies while we were together. 
+- Some were really nasty stories about people I knew, and you could tell he was trying to "get them back" for something.
 - The stories he told about his grandfather, mostly, I really wanted to be true.
+
+### Paul the famous chef
+
+- It's another one of his scams.
+- I realize he wants to cook everywhere and talks about cooking as if he's a famous chef so he'll be able to eat.
+- He clearly chooses drugs over food and has done for years.
 
 ### Paul's friend Lucy
 
@@ -172,7 +223,7 @@ function googleTranslateElementInit() {
 - He explains it's a place he often goes to with [Lucy](#pauls-friend-lucy).
 - I'm certain he has been instructed to take me there so I can be "viewed".
 
-### Harassment in UK
+## Harassment in UK
 
 - I'm targeted a fair bit when I'm back in UK as you will read across these next months.
 - Just like in Denia, it seemed that every time I left the house some rare event occurred.
@@ -183,12 +234,17 @@ function googleTranslateElementInit() {
 
 - I contact Michael to tell him I've written about [the dream I had while I was staying at his house](../2022/july.md#crystal-dreaming) in July 2022.
 - He is FURIOUS with me.
-- It's irrational.
-- His reaction is unsettling; and very, very curious.
+- He wants to know why I'm telling him this.
+- His rage is irrational, unsettling, and very, very curious.
+- I try to explain it to myself as pure misogynistic gaslighting, but there's something more to it than that
+- I start to wonder about Michael's poor health and body paralysis.
+- I explain, gently, to Michael that perhaps if a reporter was to come and do detox with him, he might like to mention my book which includes a short description of my stay at the end of July 2022.
 
 ## Madrid policia 
 
-- I send Paul home because his drug-addiction has made him a beggar man and I can't possibly bring him to the police station with me looking like he does.
+- In Madrid on 6th January.
+- I picked Paul up the evening before at the airport but he's alarmed me so much I have to send him home.
+- I send Paul home because his drug-addiction has made him look like a beggar man and I can't possibly bring him to the police station with me looking like he does.
 - I had wanted a man to come with me for support, but Paul needs more help than anyone else.
 - He also seems to be on something because he cannot shut up; or the North London porn gangs, still panicking about my continued survival, have instructed him to distract me, to not let me think, and so he's shouting continuously at me.
 - I buy him a plane ticket and send him home.
@@ -225,7 +281,8 @@ function googleTranslateElementInit() {
 
 ## I call the police
 
-- On my return to London, I call the police to report the numerous crimes I'm aware of that have been committed on my person while living in Spain at the pleasure of British and Spanish criminal gangs, and others, as advised by my contacts in the Met.
+- I've left the car in Madrid at the airport again.
+- The day after my brief return to London, I call the police to report the numerous crimes I'm aware of that have been committed on my person while living in Spain at the pleasure of British and Spanish criminal gangs, and others, as advised by my contacts in the Met.
 
 ![Call reference](../../content/images/met-police-reference.jpg)
 
@@ -268,18 +325,34 @@ function googleTranslateElementInit() {
 - As I told him my story, he kept saying: *heavy*, *heavy*,; I thought it was just him taking the piss, as he usually does. He then told me to be careful as I could be beaten by a man and made to be a prostitute.
 - Did he pretend to be supportive to me and then tell my mother and brother I was not to be believed?
 - I had told my brother everything I knew in June 2024 about what was going on for me and how much danger I was in. We were tracked in the pub at that time by *operatives*, police I expect.
+- He was spectacularly disinterested at the time, as if what I was telling him was nothing.
 - He speaks to me like he thinks I'm a little fool imagining things. Is that what dad told him too?
 - I access the Israel website for asylum seekers and try to make an application.
+- I understand Israel to be the only country I'm safe in.
 - My web access is continuously blocked.
 - I give up.
 
 ## Glastonbury with Paul
 
-- I want to update my will and I have a will registered in Glastonbury which I want to formally delete - although I already made a new one.
+- I want to update my will.
+- I have a will registered in Glastonbury which I want to formally delete - although I already made a new one.
 - I want a will which will leave the forgivenet to the whole world (I changed my mind on this now too so need to update the one I registered with the UK public will database), and leave all my wealth to the Hospitalite of Lourdes.
 - I would now like to leave the forgivenet to the country of Israel, if that's possible, because with Israel it will be safe for the whole world.
 - I do not want anyone evil inheriting from me and I'm aware that if I die and my money goes to family members, criminal gangs will target them if they haven't already.
 - I ask Paul to accompany me to Glastonbury as I feel unsafe everywhere (ironic innit).
+- We travel down 16-18 January.
+
+### Telling Paul what's going on for me
+
+- At a service station on the M3, finally, Paul stops talking for five minutes.
+- I have the chance to tell him what's been going on.
+- I explain what teachers and staff at the conservatory had done.
+- He asks quietly: *How didn't you go mad?*
+- At the time I thought a statement like this was not entirely appropriate, but couldn't really figure out why.
+- I think if I had been in Paul's position, I would have reacted differently, alarmed, shocked, angry, upset, trying to think of ways to help.
+- Paul's quiet statement perhaps reflects a sense of knowing exactly what had been going on and not caring about the evil of it.
+- Did Paul have a subscription to my sedated sex-slave stardom, or know someone who showed him?
+- Was *going mad* a betting outcome for me for the addicts worldwide?
 
 ### No ordinary girl, or boy
 
