@@ -110,6 +110,18 @@
 - Paul knows Anita Diamond too.
 - Was this an attempt to get me back on the networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, sedated naked me?
 
+#### Fat-bergs
+
+- I'm curious about something.
+- Paul's an odd-job man.
+- I ask Paul if he's ever had to clear a fat-berg from someone's drain.
+- He tells me yes.
+- I ask him how.
+- He says he gets the rod, pokes it down, and just keeps pushing on it.
+- *You just keep going at it and eventually it gives*, he says.
+- In the Autumn of this year, I will ask [Lea Batton](../pre-2001/1991.md#lea-batton) on Facebook to tell Paul my story is like a fat-berg, *you just keep at it for long enough and eventually it'll move on through*.
+- Paul, it will transpire, and all his mates, know [Ugly](../2024/august.md#ugly), pretty well by all accounts.
+
 ## Moving back to UK
 
 - I spend most of February moving my stuff back to my house in London.
@@ -119,6 +131,17 @@
 ### My belongings have been doused in pesticides
 
 - I realize all my belongings have been doused in pesticides or similar.
+- I notice this starkly as I sleep under my own bedding for about two weeks after bring my stuff home and leaving for Israel to attend the Transforming Touch course as an assistant on Module 2.
+- Over this time, my whole body starts to ache and the pain is bone-deep.
+- For some reason, I just put up with it, don't think about it, but everything aches, my neck, back, hip, legs, hands, everything.
+- It's weird I don't do something about it until I get to Israel and I'm in a hotel for two days when I realize all the pains have ceased completely, apart from my feet which start getting worse.
+- I contact my mother from Israel and tell her to bag up my duvet and put it in the loft as it has been doused in pesticides.
+- For some reason, she throws it away - gets Robert to because that's what he does most days for some reason.
+- I end up throwing nearly all my belongings away as they are poisoned.
+- I'm horrified that they're going to the public dump and it's all good stuff and my fear is people will take it home with them thinking it's good decent stuff, no idea it's doused with pesticides, and they might let their kids sleep under my duvets, I mean it's just horrific.
+- I tell this to the police and the Baroness too, in one of my many missives.
+- I get no response.
+- No-one cares.
 
 ### My conservatory papers
 
