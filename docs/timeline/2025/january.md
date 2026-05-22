@@ -252,14 +252,15 @@ function googleTranslateElementInit() {
 
 ## Harassment in UK
 
-- I'm targeted a fair bit when I'm back in UK as you will read across these next months.
-- Somehow I'm totally high, all the time.
+- I'm targeted a fair bit when I'm back in UK as you will read across these next months until October.
+- Somehow, also, I'm totally high, all the time.
 - Apart from a few obvious moments, such as [the two women in Harlow](april.md#shoe-zone-harlow-essex), it's not clear how they're managing to spike me.
-- I realize later that they're really powering up the dosage too.
+- I realize later that they're powering up the dosage too.
 - Did my job ensure they kept the dosage down to barely obvious?
-- Just like in Denia, it seems that every time I left the house some rare event occurs.
-- I'm certain it was criminal gang activity, especially considering Paul's sudden "popping up".
-- Was the frenetic activity from criminal gangs in London... even getting a junkie involved - the most disloyal people in the universe - and all the harassment at that time early in the year, and during the general election the year before… is it because they know my dad, and my family in fact, would see me dead before helping me?
+- Just like in Denia, it seems that every time I leave the house some rare event occurs.
+- I'm certain it was criminal gang activity, especially considering Paul's sudden "popping up" and his erratic behavior, dishonesty, and obvious hard drug addiction.
+- Was the frenetic activity from criminal gangs in London... even getting a junkie involved - the most disloyal people in the universe - and all the harassment at that time early in the year, and during the general election the year before… is it because they know my dad, and my whole family in fact, would see me dead before helping me?
+- Or were they panicking and drugging me harder to make sure I didn't remember [the switcheroo men](../../crimes/protagonists/vidal-sastre.md#at-least-six), perhaps also holding out on the hope they might be able to get me into a situation where I'd part with my money?
 
 ## Michael from Wearyall Hill
 
