@@ -111,5 +111,6 @@ function googleTranslateElementInit() {
 !!! quote
     - You're the Woodstock to my Snoopy, the Mulder to my Scully, the Elvis to myyyy co-ol-o-nel.
 
-- Inspired by Apples Snoopy and Friends on Flight 0202 from Paris to Beijing.
+- It's country style Janis.
+- Inspired by Apples Snoopy and Friends on Flight 0202 from Paris to Beijing, and a recent music sesh.
 - Brilliant!
