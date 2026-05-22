@@ -114,3 +114,5 @@ function googleTranslateElementInit() {
 - It's country style Janis.
 - Inspired by Apples Snoopy and Friends on Flight 0202 from Paris to Beijing, and a recent music sesh.
 - Brilliant!
+- There is, after all, a wedding planned for June as per my understanding, is there not?
+- I guess we'll find out.
