@@ -184,7 +184,7 @@ function googleTranslateElementInit() {
 - I wonder if he had some drugs on him.
 - Did someone tell him to do that; to wait for me?
 - After I send Paul home, he tells me when I next see him that police at Heathrow had searched him and even taken a DNA swab from his mouth.
-- I take this as more proof of the big investigation going on.
+- I take this as more proof of the big investigation going on, but perhaps he's lying about this too.
 
 ### A child sexual abuse survivor gets retraumatized
 
