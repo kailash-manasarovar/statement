@@ -74,13 +74,14 @@
 - There's a feeder light usually. At least there was the last time I drove here, over 5 years previously.
 - Paul says, go go, it's green, so I move forward, but there is oncoming traffic so I can't turn right.
 - I break and ride the clutch a little bit but the car won't move, it is revving hard, but not moving, and I'm trying to go in and out of first, and I can smell this awful smell.
-- Paul pulled the handbrake button without my knowledge.
+- Paul been pulling the handbrake button without my knowledge.
 - "What's that smell?" I say.
 - "You hammered the clutch," Paul says.
 - It's too late to think about this more but I know something's wrong.
 - I leave Paul at his car and thank him for saving my life.
+- "You saved my life Paul", I say and I'm very grateful.
 - I drive home alone.
-- At some point a car pulls out in front of me and I end up following it all the way to Church Lane N2.
+- At some point a car pulls in front of me and I end up following it all the way from Muswell Hill to Church Lane N2.
 - It's number plate is XXXX WTF. (The Xs are numbers I can't remember.)
 
 #### Paul and my brother

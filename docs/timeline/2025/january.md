@@ -377,7 +377,7 @@ function googleTranslateElementInit() {
 - He asks quietly: *How didn't you go mad?*
 - At the time I thought a statement like this was not entirely appropriate, but couldn't really figure out why.
 - I think if I had been in Paul's position, I would have reacted differently, alarmed, shocked, angry, upset, trying to think of ways to help.
-- Paul's quiet statement perhaps reflects a sense of knowing exactly what had been going on and not caring about the evil of it.
+- Paul's quiet statement perhaps reflects a sense of knowing exactly what had been going on, the severity of the attack, and not caring much.
 - Did Paul have a subscription to my sedated sex-slave stardom, or know someone who showed him?
 - Was *going mad* a betting outcome for me for the addicts worldwide?
 

@@ -24,6 +24,7 @@
 
 - I send some content to an interested party, someone who works in education for the Generalitat Valenciana.
 - I start the email with a greeting in Welsh. I have never ever done that before in my life.
+- I do that because it's the day after I return from Ireland and I stayed in Wales one night and that's how they say good morning, bore dar.
 - Later that day, I take my dad out.
 - As we arrive at the library, we see an extremely weird guy sitting outside. He has an orange old bashed-up car with him.
 - The minute I open the door of my car, he jumps up and starts saying, "Oh, are you Welsh, are you Welsh".
@@ -36,6 +37,8 @@
 - He is wearing black ear phones like the ones I used to have and he is dancing [exactly like I did around my room sometimes](../2023/august.md#fighting-back) when I was being drugged and hacked in Spain and France.
 - He grins at me wildly and doesn't move so I have to slow down.
 - He side steps away.
+- He lives at the bottom of the road (or did at the time), I saw him again being a normal person.
+- Is he one of those with a porn-subscription that can be relied upon?
 
 ## Spy-cams in London N2 also??
 
@@ -54,3 +57,11 @@
 ![Camera on](../../content/images/fake-accounts/camera-on.png)
 
 - Bear in mind I have no activity on this account at all anymore and the last interaction on here was over 40 days ago.
+
+## Meeting Chris & Desa before I fly to Israel
+
+- I meet old friends Chris Ludwick and Desa.
+- I'm flying to Israel the following morning to assist Steve on a TT module 2 in Jerusalem.
+- Desa repeatedly says to me, "you saved my life" regarding a weekend up North in 2019.
+- I ask her why.
+- She doesn't explain.
