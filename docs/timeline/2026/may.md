@@ -102,3 +102,14 @@ function googleTranslateElementInit() {
 ## May 16th Shanidev jyanti
 
 ![Shani dev](../../content/images/shani-dev.png)
+
+## Gemini
+
+- I'm writing a song.
+- I've got a few lines:
+
+!!! quote
+    - You're the Woodstock to my Snoopy, the Mulder to my Scully, the Elvis to myyyy co-ol-o-nel.
+
+- Inspired by Apples Snoopy and Friends on Flight 0202 from Paris to Beijing.
+- Brilliant!
