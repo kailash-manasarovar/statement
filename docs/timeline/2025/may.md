@@ -65,10 +65,12 @@
 - Desa repeatedly says to me, "you saved my life" regarding a weekend up North in 2019.
 - I ask her why.
 - She doesn't explain.
+- She also angrily tells me I must never, ever go back to Spain. I guess it's the manner of her caring.
+- I wasn't planning on it.
 
 ## A woman in Israel reacts normally to my story
 
-- I attend a TT course in Israel where I'm assisting.
+- I attend a Transforming Touch course in Israel where I'm assisting.
 - At one point, a woman and I are chatting in the kitchen, it's a break time, and she just so happens to ask me about my life and how I am, what's going on.
 - And I tell her.
 - I've no reason to lie.
@@ -77,3 +79,5 @@
 - I'm amazed because for the first time someone has reacted normally to what's going on for me.
 - I'm normally surrounded by totally unhelpful people, all the time, and it is somewhat inexplicable to me.
 - Her reaction is so powerful, it prompts me to write again to the police and the Baroness when I'm on detox in a few weeks time in Devon.
+- The second time someone reacts normally is in April 2026 on another TT course I'm attending as a student in Dublin.
+- There has not yet been a third time.
