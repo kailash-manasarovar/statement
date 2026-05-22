@@ -67,6 +67,7 @@
 - She doesn't explain.
 - She also angrily tells me I must never, ever go back to Spain. I guess it's the manner of her caring.
 - I wasn't planning on it.
+- I wonder what Chris's mates Des and Nikki would have said about all this.
 
 ## A woman in Israel reacts normally to my story
 
