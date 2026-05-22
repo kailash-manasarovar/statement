@@ -216,12 +216,21 @@ function googleTranslateElementInit() {
 ### The gay bar
 
 - When I'm back in London prior to going to get my stuff I see Paul a lot.
+- We use his car to visit Glastonbury as mine is in Madrid.
+- He's around a lot. 
 - One day, we're in the Old White Lion in N2.
+- There's a menacing bloke at an opposite table.
 - He gets a WhatsApp and suddenly says, let's go somewhere else.
 - We head to a bar in Highgate Village which is apparently a gay bar.
 - There's no reason for this.
 - He explains it's a place he often goes to with [Lucy](#pauls-friend-lucy).
-- I'm certain he has been instructed to take me there so I can be "viewed".
+- He suggests we sit on the raised table in the window.
+- I say no.
+- Two women sit close by us. I'm pretty sure one of them is his friend Lucy.
+- Is Lucy the youngest Adams' daughter?
+- How does Paul really know her and for what purpose?
+- At the time, I'm certain he has been instructed to take me to this pub so I can be "viewed".
+- Does he get a payment for his services while I'm in the toilet?
 
 ## Harassment in UK
 
