@@ -57,6 +57,14 @@ function googleTranslateElementInit() {
 - X notifications about things happening at the baths stop.
 - I wonder if when the women find out exactly what the men have been doing all these years, the whole thing stops.
 
+### Chucking my iPhone
+
+- I throw away my iPhone and a Samsung pad at the decheterrie in Lourdes.
+- I also make my X accounts, `@1FRGVN` and `@JackChardwood` inaccessible to me without jumping through some hoops.
+- All my bad days cease.
+- Isn't that interesting.
+- I hope someone bothered to collect it.
+
 ### Drugging and poisoning
 
 - I'm drugged at least one time while I'm at Lourdes; I start feeling Mary very close to me, all around, and I'm having clear visions of a spectacular wedding dress.
