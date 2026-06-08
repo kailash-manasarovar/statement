@@ -12,9 +12,25 @@ function googleTranslateElementInit() {
 
 - I'm terrified about returning back to Spain on 5th January via Qatar airways from Bangkok to Madrid.
 - It's clear I'm stalked by some very dangerous people, but it's even clearer that no-one cares.
-- In fact, the powers that (used to) be are communicating directly with the criminal gangs via my X activity as if I'm not even human.
+- In fact, the powers that (used to) be are communicating directly with the criminal gangs via my X activity, as if I'm not even human.
+- Is this how British women, children, and babies end up murdered for porn, with every security service helping the criminals along as much as they can?
+- Even though my heart is dismayed at the lack of activity from law enforcement, and my stomach turns in fear of what fate my be intended for me at everyone's pleasure, I never give up trying to get help.
 - I write to the British embassy on X and via email explaining how much danger I'm in and asking for help.
-- Like my many emails beforehand, I receive no reply.
+- Like all my emails and communications asking, not unreasonably for help, I receive no reply.
+
+![Emails to the police in the UK](../../content/documents/emails/emails-to-police-in-the-uk/how-scared-i-am.jpg)
+
+### Email examples
+
+- Here are a few examples of emails I wrote to the police in the UK and Baroness Nicholson asking for help.
+
+[![Emails to the police in the UK](../../content/documents/emails/emails-to-police-in-the-uk/how-scared-i-am.jpg)](../../content/documents/emails/emails-to-police-in-the-uk/)
+
+- I never gave up trying to get help from the police in the UK.
+- I was always wasting my time, however.
+
+[The widows continued disappointments](../../content/documents/emails/emails-to-police-in-the-uk/the-widows-continued-disappointments.pdf)
+[Numerous requests for help](../../content/documents/emails/emails-to-police-in-the-uk/numerous-requests-for-help.pdf)
 
 ### Qatar airways
 
@@ -35,7 +51,7 @@ function googleTranslateElementInit() {
 
 ## A man I recognize bares his teeth at me
 
-- I'm getting ready to leave the Spa Resorts in Lamai and travel back to Madrid where I will meet my friend Inma who's going to come with me to the gender-violence police department to augment [the complaint I already made to them](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid) back in March.
+- The afternoon I'm getting ready to leave the Spa Resorts in Lamai and travel back to Madrid where I will meet my friend Inma who's going to come with me to the gender-violence police department to augment [the complaint I already made to them](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid) back in March.
 - I've also organized that [Paul will accompany me too](../2025/january.md#paul) because perhaps if I bring a man along with me they might actually do something.
 - I'm sitting in the restaurant having some food and reading the set of Psalms I've been reading every Sunday on my mobile phone.
 - I become aware of a man hovering around.

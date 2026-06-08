@@ -1,0 +1,336 @@
+Delivered-To: drkmurphy@ieee.org
+Received: by 2002:ad4:5965:0:b0:880:460f:272 with SMTP id eq5csp47037qvb;
+        Fri, 30 Jan 2026 01:55:43 -0800 (PST)
+X-Received: by 2002:a05:6402:26c5:b0:658:bcb4:6b17 with SMTP id 4fb4d7f45d1cf-658de55a10fmr1478010a12.5.1769766943799;
+        Fri, 30 Jan 2026 01:55:43 -0800 (PST)
+ARC-Seal: i=2; a=rsa-sha256; t=1769766943; cv=pass;
+        d=google.com; s=arc-20240605;
+        b=fzmB9xpDaNhy1sl0fkyDHngs8qv3Lz9GqUjwLlpEXqcapm8FzZS2Q+xeOF8dHtdF0R
+         BbUAYoBO7Bq0aotsSBfEXZGuCcZ6VD5s4Ciy80mNGOWsho9kqSYHLehySSGMYZUkRH28
+         S/V+B1EGGXlRvKFFZlBrUd08sIJIXFD1xIB5egSE9DJZsiPt+pt4W6ytiFsne6+0/aFk
+         upjSefSpCh3mGWrTtDQIzhBQBDnadbrrFBJnNfom10H78Ncy1iJCXV03VhNMpBJy67bl
+         Vxuu0AP2A33YaZa4yjWkNZPyOrSiEIG512zSBswam8HY2G+Q/uQo3MbEwxHNm3wdbne2
+         /zRw==
+ARC-Message-Signature: i=2; a=rsa-sha256; c=relaxed/relaxed; d=google.com; s=arc-20240605;
+        h=auto-submitted:precedence:mime-version:subject:references
+         :in-reply-to:message-id:date:from:to:dkim-signature:dkim-signature;
+        bh=8uS3wUtsaptLE6AzwG+KqpP1I52wze/wSWYszg5HTmE=;
+        fh=ZA7Q9mq7WpkqBDy3FfH1hq6yESLTI+XKugWKZc9ylaQ=;
+        b=T1c72CZ9wg5DL00mKOyLMmEfdJ2ek2M+waD8QL0fv7Qv90ZnmuZEkr4XZhfVxuhjVv
+         8otPdC+Kxj/xOXDj7YLPpMoGvK6fKGgcBmTZO+UJ36in/IBMwHgShZ5uwygP+0dKwL3y
+         sLzXCgbSe+d3UaIWDroMKgtRLrbhPMPpvfZNEdKThLGmMXSjJ9xiMcDsdBKyyOO9MOsG
+         jNNbAIKThX7sIk7E/RXIwzPJXlomvO/sjEJGn9y1LGTMIQ8s1XocgEFeLsM5psBr4jVk
+         gjgl3tPJdKuDwuPtdnOlAOvexHJX1lY5lMN5melMbVurVvLZZGF8kPoNYEiRZlty0JRq
+         ga5g==;
+        dara=google.com
+ARC-Authentication-Results: i=2; mx.google.com;
+       dkim=pass header.i=@thetimes.co.uk header.s=pp1 header.b=FvsK3xv9;
+       dkim=pass header.i=@thetimes.co.uk header.s=google header.b=VcYvaWL5;
+       arc=pass (i=1);
+       spf=pass (google.com: domain of timesfeedback-sm+canned.response@thetimes.co.uk designates 205.220.170.48 as permitted sender) smtp.mailfrom=timesfeedback-sm+canned.response@thetimes.co.uk;
+       dara=neutral header.i=@ieee.org
+Return-Path: <timesfeedback-sm+canned.response@thetimes.co.uk>
+Received: from mx.expurgate.net (mx.expurgate.net. [195.190.135.10])
+        by mx.google.com with ESMTPS id 4fb4d7f45d1cf-658b444b7e0si6818560a12.7.2026.01.30.01.55.43
+        for <drkmurphy@ieee.org>
+        (version=TLS1_2 cipher=ECDHE-ECDSA-CHACHA20-POLY1305 bits=256/256);
+        Fri, 30 Jan 2026 01:55:43 -0800 (PST)
+Received-SPF: pass (google.com: domain of timesfeedback-sm+canned.response@thetimes.co.uk designates 205.220.170.48 as permitted sender) client-ip=205.220.170.48;
+Authentication-Results: mx.google.com;
+       dkim=pass header.i=@thetimes.co.uk header.s=pp1 header.b=FvsK3xv9;
+       dkim=pass header.i=@thetimes.co.uk header.s=google header.b=VcYvaWL5;
+       arc=pass (i=1);
+       spf=pass (google.com: domain of timesfeedback-sm+canned.response@thetimes.co.uk designates 205.220.170.48 as permitted sender) smtp.mailfrom=timesfeedback-sm+canned.response@thetimes.co.uk;
+       dara=neutral header.i=@ieee.org
+Received: from mx.expurgate.net (helo=localhost)
+	by mx.expurgate.net with esmtp
+	id 1vllE7-00DNgj-EY
+	for drkmurphy@ieee.org; Fri, 30 Jan 2026 10:55:43 +0100
+Authentication-Results: eu.smtp.expurgate.cloud; dkim=pass header.s=pp1 header.d=thetimes.co.uk header.i="@thetimes.co.uk" header.h="Content-Type:Date:From:In-Reply-To:Message-ID:MIME-Version:References:Subject:To"; dkim=pass header.s=google header.d=thetimes.co.uk header.i="@thetimes.co.uk" header.h="Auto-Submitted:Precedence:MIME-Version:Subject:References:In-Reply-To:Message-ID:Date:From:To"
+Received: from [205.220.170.48] (helo=mx0a-00596a01.pphosted.com)
+	by tlsNG-ebf023.mxtls.expurgate.net with ESMTPS (eXpurgate 4.55.0)
+	(envelope-from <timesfeedback-sm+canned.response@thetimes.co.uk>)
+	id 697c801d-a6da-0a2a45040019-cddcaa301582-3
+	for <drkmurphy@ieee.org>; Fri, 30 Jan 2026 10:55:43 +0100
+Received: from pps.filterd (m0297011.ppops.net [127.0.0.1])
+	by mx0a-00596a01.pphosted.com (8.18.1.11/8.18.1.11) with ESMTP id 60TKZnK93922555
+	for <drkmurphy@ieee.org>; Fri, 30 Jan 2026 09:55:41 GMT
+DKIM-Signature: v=1; a=rsa-sha256; c=relaxed/relaxed; d=thetimes.co.uk;
+	 h=content-type:date:from:in-reply-to:message-id:mime-version
+	:references:subject:to; s=pp1; bh=8uS3wUtsaptLE6AzwG+KqpP1I52wze
+	/wSWYszg5HTmE=; b=FvsK3xv9IbRv9l/OgGpivrBytYnzndBwieMXPYJ2Cq8ZhS
+	XKIEMfbmc5PZKfxZ5/w9j5Vdf6RCvMP0FdGiyeo1UMEKaZluRCD0nfKNt80BnEGC
+	zaWJcmjZmRYLx5qt3Pzu8n2bmVkXHXRDTy6bf2kYOFtHujP8I1DarZISdwlsM3rc
+	6SREb+ZuA8dY8RSp8pJA9str1okGikSJ5rb7WSAZ9O+f6OUX2EeEZe3+sivRqYUn
+	DTOr5S1UgeyTh/kSqNQjDWzgZdF8cEuKWttEeM31DHIKcNrzMZCG1vu5gP4CMvoW
+	HcTPTXP+81i1HOAWFONek784bosYbt5cJbxLPgtw==
+Received: from mail-dy1-f197.google.com (mail-dy1-f197.google.com [74.125.82.197])
+	by mx0a-00596a01.pphosted.com (PPS) with ESMTPS id 4c0eqd50ab-1
+	(version=TLSv1.3 cipher=TLS_AES_128_GCM_SHA256 bits=128 verify=NOT)
+	for <drkmurphy@ieee.org>; Fri, 30 Jan 2026 09:55:41 +0000 (GMT)
+Received: by mail-dy1-f197.google.com with SMTP id 5a478bee46e88-2b71d3ac508so2044970eec.0
+        for <drkmurphy@ieee.org>; Fri, 30 Jan 2026 01:55:41 -0800 (PST)
+ARC-Seal: i=1; a=rsa-sha256; t=1769766940; cv=none;
+        d=google.com; s=arc-20240605;
+        b=HN2tqihejHx25mXVxjjf1sJmI0MjjxhmzWYvZ4RP6v+wRiitstBAeWwJ99EuxqB2bJ
+         eFR8yKGdABAe+/0niNAjpli5EUyBoSBcsSApxo31v6RAAMILAh4X2ZUkuooAMHGh6LAJ
+         cLO5v1WbxMuXLXI9CDtF6j3lBXCtjL1kLwd3CBzgg2uaFUOkofT+LZyf0Nu1mEG8pYq0
+         MvD6PyN63IvTEdNsdPNcYxrz8alPh3pMXDnmmi0u19c9DpTFvc255LOKMHXVwVOJy7tg
+         4DgGpnua5+BsMdzLgt2JOeHKQ8EQiXs2y5KpoFNp6dKflzhN8+AGQZCOBKwh26iSHTRg
+         mDxQ==
+ARC-Message-Signature: i=1; a=rsa-sha256; c=relaxed/relaxed; d=google.com; s=arc-20240605;
+        h=auto-submitted:precedence:mime-version:subject:references
+         :in-reply-to:message-id:date:from:to:dkim-signature;
+        bh=8uS3wUtsaptLE6AzwG+KqpP1I52wze/wSWYszg5HTmE=;
+        fh=ZA7Q9mq7WpkqBDy3FfH1hq6yESLTI+XKugWKZc9ylaQ=;
+        b=VzGZGuXanAzo73cd8j5R4KJc7uF2/n9MzjzLXi2KHOQQR3MaaxORBZsBo24LA9bQK0
+         jfL94baEYhsq2DzVYlTjDV5zy+YB0p+UvgX9NlCEyeNJgq8xZUrHpkkF8sZ5iRvXt5I0
+         dUo2nuxQ3m1cuROrFVw3mND6VOp3ZM6XnVvyB84VRFyk4qJZdp07KV4jXngcfejOug1Y
+         WjblLWQELZOHIvuu3o5+F1YTh2hwslIiXyJMaVT55+1h4WNK9YJ5U8Wmovdmi+TAW2xz
+         X7evMRwpMltCTkgVAnrQ9yyIXED/xhG4/72ZB1FvRkV/Ck+ctbpGVotdxHxfU9igCyCH
+         o0yg==;
+        darn=ieee.org
+ARC-Authentication-Results: i=1; mx.google.com; arc=none
+DKIM-Signature: v=1; a=rsa-sha256; c=relaxed/relaxed;
+        d=thetimes.co.uk; s=google; t=1769766940; x=1770371740; darn=ieee.org;
+        h=auto-submitted:precedence:mime-version:subject:references
+         :in-reply-to:message-id:date:from:to:from:to:cc:subject:date
+         :message-id:reply-to;
+        bh=8uS3wUtsaptLE6AzwG+KqpP1I52wze/wSWYszg5HTmE=;
+        b=VcYvaWL5ls/29EkiPkv+8/ufIWLSjjikmi3rZfoRnLRzuhTQ5kx38V5F17GcGHrCPB
+         W2ZMYNoVa2xQX5HdlBYN9G2jCh1g043RPjIXqsFta8oy6f9K4AOavbSEA3d3BnzzhAoT
+         lj/9skonmj0OaBiZa4vQx1bGxqoIdptiONRTE=
+X-Google-DKIM-Signature: v=1; a=rsa-sha256; c=relaxed/relaxed;
+        d=1e100.net; s=20230601; t=1769766940; x=1770371740;
+        h=auto-submitted:precedence:mime-version:subject:references
+         :in-reply-to:message-id:date:from:to:x-gm-gg:x-gm-message-state:from
+         :to:cc:subject:date:message-id:reply-to;
+        bh=8uS3wUtsaptLE6AzwG+KqpP1I52wze/wSWYszg5HTmE=;
+        b=urgDqt5u36ZN9Ui5yNMtYUq8BqDMrQE1h2s7/UssHXlaNM6Go2R4NM8v2G91QGBerK
+         roWY1VugOrX3Hjp0jepfDWIMD4ZIvQ6rA3m6sc/p57i4yBuSqcpxiPNSIpTgXvj51tOm
+         sgFBmlAuMRb1HFUNkjuwPn9t33jm6JDt7tL+PWeXx+Wj2Ep1cndqhXiHB/K3i01hIxCs
+         M5mvjyuHMSjtMtgmeE3GYYn3E4hugHI9KqwrQfW2w9MAjC3/IDMpcrZkhfkQPQsvZsjt
+         SsFSIi1waKwBfHRGwKDNOxW5EtRDSfAdQxSxkK5hXIaJRusokcVY64k7oaXsfJJBbhYk
+         b35g==
+X-Gm-Message-State: AOJu0YzavtIbkCiYMk1a3ohzgDD6ly+Zw2dfv2D1AZLFc4/33E6wOnaw
+	UXMYlWZYAu8ymyo7qEj592LqnMbe3NWMzwWLRDx5+R/WYQg529fWlL3YGieQPkXVK2UE51kkUjj
+	MK30D4czitK4uukHZBwM/axghVZMw7Rbex3MW+yH0rBTFpW9gOr6wJb4QN77eojpehXv2cwzl5N
+	4L/OHbLkfrfFB2hpkBix6ZQMccvGsrUIbr5P8gkzZGyUCjnxX8uVAkiBSA/g0g0BJ3uVa2dunaS
+	9he/I61p+31
+X-Gm-Gg: AZuq6aKLCBT1IOEzNc9xMt3AX4Ejss5kChbsFdAkQzdqdv5gc7NdZEo9L/XRbjj3j1k
+	R468yTYwaqU0tFeT1JikIUzqImlacGAJxAeS+3usA7q4Djm66MojWImCN1HVjOb/jwP2Oa+GK01
+	C8NJu+a/OwoFxzSYWAmxgdPxWJ/2lseeOr1iAcZK5rD1WNLqxmNEzS3z4OvvTMpMHw94Wcv6soD
+	FpMzzik
+X-Received: by 2002:a05:7300:8186:b0:2b4:6ed1:2ef4 with SMTP id 5a478bee46e88-2b7c864ce60mr1026741eec.10.1769766940597;
+        Fri, 30 Jan 2026 01:55:40 -0800 (PST)
+X-Received: by 2002:a05:7300:8186:b0:2b4:6ed1:2ef4 with SMTP id 5a478bee46e88-2b7c864ce60mr1026736eec.10.1769766940182;
+        Fri, 30 Jan 2026 01:55:40 -0800 (PST)
+To: drkmurphy@ieee.org
+From: "SM - Times, Times Feedback" <timesfeedback-sm+canned.response@thetimes.co.uk>
+Date: Fri, 30 Jan 2026 01:55:40 -0800
+Message-ID: <CABAmGpN5b7WqbxYAiYXEqYXKp9gDzuaCoeJXPqH0uaekNnSagw@mail.gmail.com>
+In-Reply-To: <CAEYCiPOQ=hG+SeDKxeLhoFeAmPZZ8WX0Zq-nqbXPQY7etqQbtw@mail.gmail.com>
+References: <CAEYCiPMvs12WKnby+eryLtJBgf4O5CSJzPW28be0aKnCe+At0Q@mail.gmail.com>
+	<CAEYCiPMnCuRsvEdhYwHAH8bVaP+KHogC2VgpTD3ZsV=K3U6i2A@mail.gmail.com>
+	<CAEYCiPNXqKfaYaHa56Cs+RhfJgU8BCBM4wPo0M5VAA5khsLbew@mail.gmail.com>
+	<CAEYCiPOEfXKnNddeVEwz0LyiztMyyt+X=upgqZhXED2G3MFSZQ@mail.gmail.com>
+	<CAEYCiPPgW-G8TLEuEA_yBQLWpSjpVh_oTX5msg9Ly0OuX=vDdw@mail.gmail.com>
+	<CAEYCiPOGU=rsenz-sDo+Ge+TjFF_GCpnchNtBDjMG2jXXLCPHQ@mail.gmail.com>
+	<CAEYCiPPHFdgeuHOS4uudqeoc3XoTarssKzQwi9Z-5pWAawZhrw@mail.gmail.com>
+	<CAEYCiPOMA6tT21QQh2mCo0hF-TqZy66qJ5RK94TBqvN1A_npZg@mail.gmail.com>
+	<LO0P265MB4976E992843B40D26A9F51B7F6042@LO0P265MB4976.GBRP265.PROD.OUTLOOK.COM>
+	<CAEYCiPPJKYWmr27mMZyAChBaxUsPGwHm0Tt-kX69dKCkKS+uhw@mail.gmail.com>
+	<CAEYCiPMSOasB6k4L_EkzRuBqOK+g2qpKk2Rz2Mj5RnXbVRC35g@mail.gmail.com>
+	<697c792b.050a0220.217928.68af.GMR@mx.google.com>
+	<CAEYCiPOQ=hG+SeDKxeLhoFeAmPZZ8WX0Zq-nqbXPQY7etqQbtw@mail.gmail.com>
+Subject: Re: Fwd: forgive me the spam, something you might find interesting
+MIME-Version: 1.0
+Precedence: bulk
+X-Autoreply: yes
+Auto-Submitted: auto-replied
+Content-Type: multipart/alternative; 
+	boundary="----=_Part_52_265570418.1769766940016"
+X-Proofpoint-Spam-Details-Enc: AW1haW4tMjYwMTMwMDA3OSBTYWx0ZWRfX/g1HVvw5dLWE
+ 0wuVUN7tIu6Qf7ocBwHXy2WyH/uy9BFybBBgY7nhoIyi5HwAR7FAHX3/E112TURugxY3KeWhqnm
+ BR97WYlHslHx6q7mqSPJfPEE+qG0qwI6mIUx08gIf1zj4JgFmeijDhkUEsVZtx23Tux1ccF/szI
+ MnGDH/06QqVtFfWZi5CY9ti2VBl5L+ZAugzGH0nmFyL0P+Be8Gx8jdL7ZlkAKD3wHafDA7Glb8H
+ J5Qx/qRWnEh+MMAywe8ivd11Pi8fELNKISm1aCYSY0aFJcxVxfIEatOmb6dQDDa9+fiHdIIMVBE
+ JB71TyIR1w72CtJwwC6i+ctYABRjCpYK4XzdEy9nnM+Q86M9gzBBx+A7rJ7CT117hwt6N99N3Ps
+ 9XkhieWMaDVCTqpzllPRb4Lbo/+Y1skcZ6L9BMfis7eaCMgGNDv2P+/xOtgQ634B7O4lxOz1DZp
+ RiitNO0aElRtUP+EuvA==
+X-Proofpoint-ORIG-GUID: 7Sw2BfhnK4t9EG6SOq8Yi7Z8U4t_Gr9Q
+X-Authority-Analysis: v=2.4 cv=bIob4f+Z c=1 sm=1 tr=0 ts=697c801d cx=c_pps
+ a=Uww141gWH0fZj/3QKPojxA==:117 a=o_eLSqQny5yCotxr:21 a=vUbySO9Y5rIA:10
+ a=ABPeR9NImr4A:10 a=e7Q7ievz794A:10 a=ZZnuYtJkoWoA:10
+ a=VkNPw1HP01LnGYTKEx00:22 a=PqniFKoSAAAA:8 a=iza8bJunwHrtcd0Q8jwA:9
+ a=QEXdDO2ut3YA:10 a=N7qfu5aNYFAL54vkNDcA:9 a=JLpim8PEHSJxdnEY:21
+ a=PxkB5W3o20Ba91AHUih5:22 a=NWVoK91CQySWRX1oVYDe:22
+X-Proofpoint-GUID: 7Sw2BfhnK4t9EG6SOq8Yi7Z8U4t_Gr9Q
+x-pps-mx: cddc3c6d-2cb8-43f4-89f3-b4439041f6ce
+X-Proofpoint-Virus-Version: vendor=baseguard
+ engine=ICAP:2.0.293,Aquarius:18.0.1121,Hydra:6.1.51,FMLib:17.12.100.49
+ definitions=2026-01-30_01,2026-01-29_01,2025-10-01_01
+X-Proofpoint-Spam-Details: rule=outbound_notspam policy=outbound score=0
+ bulkscore=0 clxscore=1031 suspectscore=0 malwarescore=0 adultscore=0
+ priorityscore=1501 spamscore=0 impostorscore=0 phishscore=0
+ lowpriorityscore=0 classifier=typeunknown authscore=0 authtc= authcc=
+ route=outbound adjust=0 reason=mlx scancount=1 engine=8.22.0-2601150000
+ definitions=main-2601300079
+X-purgate-ID: tlsNG-ebf023/1769766943-C0E548A2-F4821256/0/0
+X-purgate-type: clean
+X-purgate-size: 7777
+
+------=_Part_52_265570418.1769766940016
+Content-Type: text/plain; charset="UTF-8"
+Content-Transfer-Encoding: quoted-printable
+Content-Disposition: inline
+
+This is an automated message.
+Thank you for your email.  The Times takes complaints about editorial
+content seriously.  To read our complaints policy, click here
+<https://www.thetimes.co.uk/static/the-times-editorial-complaints/>.   We
+are committed to abiding by the Independent Press Standards Organisation
+(=E2=80=9CIPSO=E2=80=9D) rules and regulations and the Editors=E2=80=99 Cod=
+e of Practice that IPSO
+enforces.
+Correspondence may be published.
+
+Feedback
+The Times
+thetimes.co.uk/feedback
+@TimesFeedback
+
+--=20
+
+
+
+
+
+--
+
+"Please consider the environment before printing this e-mail"
+
+
+This e-mail and any attachments are confidential, may be
+
+legally=20
+privileged and are the property of News Corp UK & Ireland
+
+Limited on whose=20
+systems they were generated. News Corp UK
+
+& Ireland Limited is the holding=20
+company for the News UK group,
+
+is registered in England & Wales under=20
+number 81701, has its=20
+
+registered office at 1 London Bridge Street,=20
+London, SE1 9GF and=20
+
+is registered with VAT number GB 243 8054 69. If you=20
+have received=20
+
+this e-mail in error, please notify the sender immediately=20
+and do not
+
+use, distribute, store or copy it in any way. Statements or=20
+opinions in
+
+this e-mail or any attachment are those of the author and are=20
+not=20
+necessarily agreed or authorised by News Corp UK & Ireland Limited=20
+
+or any member of its group. News Corp UK & Ireland Limited may
+
+monitor=20
+outgoing or incoming emails as permitted by law. =C2=A0It acceptsno liabili=
+ty=20
+for viruses introduced by this e-mail or attachments.=C2=A0
+
+News=C2=A0Corp UK &=20
+Ireland Limited and its titles are committed to abiding=C2=A0by=C2=A0IPSO's=
+=20
+regulations and the Editors' Code of Practice that IPSO enforces.
+
+
+------=_Part_52_265570418.1769766940016
+Content-Type: text/html; charset="UTF-8"
+Content-Transfer-Encoding: quoted-printable
+Content-Disposition: inline
+
+<div dir=3D"ltr"><div dir=3D"ltr">This is an automated message.=C2=A0<div>T=
+hank you for your email.=C2=A0 The Times takes complaints about editorial c=
+ontent seriously.=C2=A0 To read our complaints policy,=C2=A0<a href=3D"http=
+s://www.thetimes.co.uk/static/the-times-editorial-complaints/" target=3D"_b=
+lank">click here</a>. =C2=A0 We are committed to abiding by the Independent=
+ Press Standards Organisation (=E2=80=9CIPSO=E2=80=9D) rules and regulation=
+s and the Editors=E2=80=99 Code of Practice that IPSO enforces.</div><div>C=
+orrespondence may be published.</div><div><br></div><div><div dir=3D"ltr" c=
+lass=3D"gmail_signature"><div dir=3D"ltr"><div>Feedback</div><div>The Times=
+</div><div><a href=3D"http://thetimes.co.uk/feedback" target=3D"_blank">the=
+times.co.uk/feedback</a></div><div>@TimesFeedback</div><div><br></div></div=
+></div></div></div><div><div dir=3D"ltr" class=3D"gmail_signature"><div dir=
+=3D"ltr"><div></div><div><br></div></div></div></div></div>
+
+<br>
+<span style=3D"color:rgb(34,34,34);font-family:Arial,Helvetica,sans-serif;f=
+ont-size:1.3em"><p dir=3D"ltr" style=3D"line-height:1.15;margin-top:0pt;mar=
+gin-bottom:0pt"><span style=3D"font-size:13px;font-family:Arial;vertical-al=
+ign:baseline"><br></span></p><p dir=3D"ltr" style=3D"line-height:1.15;margi=
+n-top:0pt;margin-bottom:0pt"><span style=3D"font-size:13px;font-family:Aria=
+l;vertical-align:baseline">--</span></p><p dir=3D"ltr" style=3D"line-height=
+:1.15;margin-top:0pt;margin-bottom:0pt"><span style=3D"font-size:13px;font-=
+family:Arial;vertical-align:baseline">&quot;Please consider the environment=
+ before printing this e-mail&quot;</span></p><br><p dir=3D"ltr" style=3D"li=
+ne-height:1.15;margin-top:0pt;margin-bottom:0pt"><span style=3D"font-size:1=
+3px;font-family:Arial;vertical-align:baseline">This e-mail and any attachme=
+nts are confidential, may be</span></p><p dir=3D"ltr" style=3D"line-height:=
+1.15;margin-top:0pt;margin-bottom:0pt"><span style=3D"font-size:13px;font-f=
+amily:Arial;vertical-align:baseline">legally privileged and are the propert=
+y of News Corp UK &amp; Ireland</span></p><p dir=3D"ltr" style=3D"line-heig=
+ht:1.15;margin-top:0pt;margin-bottom:0pt"><span style=3D"font-size:13px;fon=
+t-family:Arial;vertical-align:baseline">Limited on whose systems they were =
+generated. News Corp UK</span></p><p dir=3D"ltr" style=3D"line-height:1.15;=
+margin-top:0pt;margin-bottom:0pt"><span style=3D"font-size:13px;font-family=
+:Arial;vertical-align:baseline">&amp; Ireland Limited is the holding compan=
+y for the News UK group,</span></p><p dir=3D"ltr" style=3D"line-height:1.15=
+;margin-top:0pt;margin-bottom:0pt"><span style=3D"font-size:13px;font-famil=
+y:Arial;vertical-align:baseline">is registered in England &amp; Wales under=
+ number 81701, has its </span></p><p dir=3D"ltr" style=3D"line-height:1.15;=
+margin-top:0pt;margin-bottom:0pt"><span style=3D"font-size:13px;font-family=
+:Arial;vertical-align:baseline">registered office at 1 London Bridge Street=
+, London, SE1 9GF and </span></p><p dir=3D"ltr" style=3D"line-height:1.15;m=
+argin-top:0pt;margin-bottom:0pt"><span style=3D"font-size:13px;font-family:=
+Arial;vertical-align:baseline">is registered with VAT number GB 243 8054 69=
+. If you have received </span></p><p dir=3D"ltr" style=3D"line-height:1.15;=
+margin-top:0pt;margin-bottom:0pt"><span style=3D"font-size:13px;font-family=
+:Arial;vertical-align:baseline">this e-mail in error, please notify the sen=
+der immediately and do not</span></p><p dir=3D"ltr" style=3D"line-height:1.=
+15;margin-top:0pt;margin-bottom:0pt"><span style=3D"font-size:13px;font-fam=
+ily:Arial;vertical-align:baseline">use, distribute, store or copy it in any=
+ way. Statements or opinions in</span></p><p dir=3D"ltr" style=3D"line-heig=
+ht:1.15;margin-top:0pt;margin-bottom:0pt"><span style=3D"font-size:13px;fon=
+t-family:Arial;vertical-align:baseline">this e-mail or any attachment are t=
+hose of the author and are not </span><span style=3D"font-size:13px;font-fa=
+mily:Arial;vertical-align:baseline"><br></span><span style=3D"font-size:13p=
+x;font-family:Arial;vertical-align:baseline">necessarily agreed or authoris=
+ed by News Corp UK &amp; Ireland Limited </span></p><p dir=3D"ltr" style=3D=
+"line-height:1.15;margin-top:0pt;margin-bottom:0pt"><span style=3D"font-siz=
+e:13px;font-family:Arial;vertical-align:baseline">or any member of its grou=
+p. News Corp UK &amp; Ireland Limited may</span></p><p dir=3D"ltr" style=3D=
+"line-height:1.15;margin-top:0pt;margin-bottom:0pt"><span style=3D"font-siz=
+e:13px;font-family:Arial;vertical-align:baseline">monitor outgoing or incom=
+ing emails as permitted by law. =C2=A0It accepts</span></p><span style=3D"f=
+ont-size:13px;font-family:Arial;vertical-align:baseline">no liability for v=
+iruses introduced by this e-mail or attachments.=C2=A0</span></span><div st=
+yle=3D"color:rgb(34,34,34);font-family:Arial,Helvetica,sans-serif;font-size=
+:13.3333px"><span style=3D"font-family:Arial;font-size:small"><br></span></=
+div><div style=3D"color:rgb(34,34,34);font-family:Arial,Helvetica,sans-seri=
+f;font-size:13.3333px"><span style=3D"font-family:Arial;font-size:small">Ne=
+ws=C2=A0</span><span style=3D"font-family:Arial;font-size:small">Corp UK &a=
+mp; Ireland Limited and its titles are committed to abiding=C2=A0</span><sp=
+an style=3D"font-family:Arial;font-size:small">by=C2=A0</span><div><span st=
+yle=3D"font-family:Arial;font-size:small">IPSO&#39;s regulations and the Ed=
+itors&#39; Code of Practice that IPSO enforces.</span></div></div>
+------=_Part_52_265570418.1769766940016--
