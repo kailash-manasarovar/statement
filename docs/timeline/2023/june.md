@@ -733,6 +733,13 @@ function googleTranslateElementInit() {
 - She actually looked like one of the bank tellers at the ING bank in the Marquis de Campo.
 - I don't believe the woman was aware she was being filmed.
 - The man's back was to the camera - as usual, such cowardice.
+- It's amazing to me that they would proudly post, *look at me, look what I'm doing*, porn on my timeline.
+- I think a lot about how delighted all these men are with themselves when they rape women and children.
+- And daughters, wives, and babies I guess too.
+- It's as if their raping promotes them to the human they could only ever dream of being... and how the assumption is better than all the ones who don't rape ans humiliate..
+- This monster was throwing the bank teller around by the throat in, I assume, her own kitchen as if he was a king.
+- His stance is totally self assured... like he's at the top of his game .. his feet in first position, knobbly knees together.. just totally lost in arrogance.
+- No doubt a million pats-on-the-back coming down the high street later on...
 
 ### Interesting tweets from this period that suggest communication with online groups unknown
 
