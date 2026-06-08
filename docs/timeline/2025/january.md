@@ -8,29 +8,41 @@ function googleTranslateElementInit() {
 }
 </script>
 
-## Furious emails and texts to the British embassy
+## Furious emails to the UK police, and texts to the British embassy
 
-- I'm terrified about returning back to Spain on 5th January via Qatar airways from Bangkok to Madrid.
-- It's clear I'm stalked by some very dangerous people, but it's even clearer that no-one cares.
+- I'm terrified about returning to Spain on 5th January with Qatar airways from Bangkok to Madrid.
+- It's clear I'm stalked by some very dangerous people who want me dead, but it's even more clear that no-one cares.
 - In fact, the powers that (used to) be are communicating directly with the criminal gangs via my X activity, as if I'm not even human.
-- Is this how British women, children, and babies end up murdered for porn, with every security service helping the criminals along as much as they can?
-- Even though my heart is dismayed at the lack of activity from law enforcement, and my stomach turns in fear of what fate my be intended for me at everyone's pleasure, I never give up trying to get help.
-- I write to the British embassy on X and via email explaining how much danger I'm in and asking for help.
+- Is this how British women, children, and babies end up murdered for porn; with every security service helping the criminals as much as they can?
+- Even though my heart is dismayed at the lack of activity from law enforcement, and my stomach turns in fear of the fate intended for me at everyone's pleasure, I never give up trying to get help.
+- I write to the British embassy in Spain on X yet again, and to the police on email explaining how much danger I'm in.
 - Like all my emails and communications asking, not unreasonably for help, I receive no reply.
 
 ![Emails to the police in the UK](../../content/documents/emails/emails-to-police-in-the-uk/how-scared-i-am.jpg)
 
+- It's as obvious to me 18-months later as it was at the time that, if I did not attempt to get help, and in writing too, the British and Spanish porn-gangs that run our countries in place of our elected governments and our police services would have done away with me very quickly indeed.
+
 ### Email examples
 
-- Here are a few examples of emails I wrote to the police in the UK and Baroness Nicholson asking for help.
+- Here are a few examples of emails I wrote to the police in the UK, Baroness Nicholson, and the British press in 2004-2025 asking for help.
 
-[![Emails to the police in the UK](../../content/documents/emails/emails-to-police-in-the-uk/how-scared-i-am.jpg)](../../content/documents/emails/emails-to-police-in-the-uk/)
+    1. [Email asking for help](../../content/documents/emails/emails-to-police-in-the-uk/forgive%20me%20the%20spam,%20something%20you%20might%20find%20interesting.eml).
+    1. [Email asking Lauren Ott for help](../../content/documents/emails/emails-to-police-in-the-uk/Hi%20Lauren.eml).
+    1. [Long email thread asking for help](../../content/documents/emails/emails-to-police-in-the-uk/numerous-requests-for-help.pdf).
+    1. [Another email asking for help](../../content/documents/emails/emails-to-police-in-the-uk/Party%20Of%20Women%20-%20Finchley%20and%20Golders%20Green.eml).
+    1. [The widow's continued disappointments](../../content/documents/emails/emails-to-police-in-the-uk/the-widows-continued-disappointments.pdf).
 
+- Lauren Ott was one of the investigating officers from 2015 who looked into my complaint against Winston May and the North London rape-gangs - all pertaining communications being read online by British and Spanish criminal gangs who had hacked me since at least 2003.
+- Jan Lovell is the East Finchley community officer who I complained about nearly being robbed (no doubt by a British criminal gang member who had access to my phone camera and knew I - unusually - had a wad of cash in my handbag).
+- Jan was tasked with stalking me in East Finchley after I had written these desperate emails whereby she would show up at the library, for example, and glare at me without speaking.
+- On one occasion, I decided to introduce myself to her, and I went over and said hi, and mentioned I had been writing to her and others (of course she knew), and she totally ignored me.
+- I wonder if she was taking instruction directly from Adams at that stage, like they all were it seems.
 - I never gave up trying to get help from the police in the UK.
 - I was always wasting my time, however.
-
-[The widows continued disappointments](../../content/documents/emails/emails-to-police-in-the-uk/the-widows-continued-disappointments.pdf)
-[Numerous requests for help](../../content/documents/emails/emails-to-police-in-the-uk/numerous-requests-for-help.pdf)
+- British gangs such as the Adams family were obviously telling the police to ignore me, at best.
+- I wonder what the motive behind the constant stalking in 2025 was; the confirmations of being watched online, the continued drugging, the vomiting bug seemingly set up by a gang member, the relentless attempts by Paul at getting me in another dangerous situation, etc.
+- Were they hoping I'd get depressed and kill myself before I had a chance to remember the switcheroo scam at the music school in Spain, or the Bali work-colleague-rape-fest events they must have made a fortune on?
+- It seems likely.
 
 ### Qatar airways
 
@@ -41,10 +53,10 @@ function googleTranslateElementInit() {
 
 ### An official checking up on me at Madrid airport
 
-- Somehow, however, people have been reading my multiple emails asking for help, but it appears they prefer to answer to the criminal gangs instead of their victims.
-- Nevertheless, on my arrival in Madrid, a government official appears to make sure I arrive off the plane.
-- Do criminal gangs own the UK and Spain? It seems so.
-- The gangs, who think they own me, have decided I'm to go home, to the UK, where no-one will help me and, I guess, they expect they can persuade me to kill myself online like they do, or maybe they'll make good on some of their threats of having me stabbed or whatever.
+- Somehow, officials have been reading my multiple emails asking for help, but it appears they prefer to answer to the criminal gangs instead of their victims.
+- On my arrival in Madrid, a government official appears to make sure I'm on the plane.
+- Did the criminal gangs request this service from British embassy staff?
+- The gangs, who believe they own me, have ordained I'm to go home, to the UK, where no-one will help me and, I guess, they expect they can persuade me to kill myself online like they do, or maybe they'll make good on some of their threats of having me stabbed in the street, or whatever.
 - Whatever the story, the criminal gangs are calling the shots and no-one is going to help me or the countless other victims of the porn-gangs.
 - In fact, they're so safe and comfortable with how things are - clearly certain of my demise and disappearance into obscurity along with the many thousands of other British nationals murdered without consequence - they tell me even more horrors that they're involved with, as if they're proud of themselves.
 - They're a bit stupid, I think.
