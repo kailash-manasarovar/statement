@@ -66,7 +66,7 @@ function googleTranslateElementInit() {
 - The reason I say that is because at that time, and for many years, my brother utterly despised me and rarely spoke to me at all.
 - This hatred, curiously, began in Thailand and I wonder what really prompted it. You see, we had sort of become friends again in 2009 in Koh Samui, and any male support for an online tech-colleague porn-target would have to be dealt with.
 - I know he *met* a British man in Lamai in 2010 (the year of [Jitendra Das](../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star) and [Mike Wenham](../2024/march/13-end.md#mike-wenham)) who egged him into getting extraordinarily high every day and he had a sort of mini-breakdown and I had to go and rescue him with the Thai police.
-- I wonder if the man who set my brother up with debilitating medication that Christmas in Lamai was the same man who [bared his teeth at me](../2024/december.md#a-man-i-recognize-bares-his-teeth-at-me) in the Spa Resorts restaurant at Christmas 2024.
+- I wonder if the man who set my brother up with debilitating medication that Christmas in Lamai was the same man who [bared his teeth at me](../2025/january.md#a-man-i-recognize-bares-his-teeth-at-me) in the Spa Resorts restaurant at Christmas 2024.
 - I guess they targeted my brother so assiduously in 2010 to ensure I have no male support.
 - Did they keep an open channel of communication with him, that they could rely upon when and if necessary?
 - Back at Adaptive on one occasion they ask me what I think of Elon Musk.

@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 ## A man I recognize bares his teeth at me
 
-- I'm getting ready to leave the Spa Resorts in Lamai and travel back to Madrid where I will meet my friend Inma who's going to come with me to the gender-violence police department to augment [the complaint I already made to them](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid) back in March.
+- I'm getting ready to leave the Spa Resorts in Lamai and travel back to Madrid where I will meet my friend Inma who's going to come with me to the gender-violence police department to augment [the complaint I already made to them](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid) back in March.
 - I've also organized that [Paul will accompany me too](../2025/january.md#paul) because perhaps if I bring a man along with me they might actually do something.
 - I'm sitting in the restaurant having some food and reading the set of Psalms I've been reading every Sunday on my mobile phone.
 - I become aware of a man hovering around.
