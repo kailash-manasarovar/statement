@@ -64,6 +64,8 @@ function googleTranslateElementInit() {
 - One day I'm working from home and I'm requested to attend a meeting in which I'm TOTALLY ignored for two hours. 
 - My brother comes down and says, "made you a secretary again have they?" ... and that is also quite curious.
 - The reason I say that is because at that time, and for many years, my brother utterly despised me and rarely spoke to me at all.
+- I guess he was following the British porn-gang instructions: *make sure she never feels comfortable and safe at home, do whatever you have to do to make sure she moves back to Denia, oh, and here's some drugs and poisons to keep her confused and scared too.*, and he's like, *Sure, is dad gonna take mum to Denia again to get raped by the locals? Can I come?*
+- Dear God, please wipe the smug off of all these nasty rapist-faces in spectacular fashion.
 - This hatred, curiously, began in Thailand and I wonder what really prompted it. You see, we had sort of become friends again in 2009 in Koh Samui, and any male support for an online tech-colleague porn-target would have to be dealt with.
 - I know he *met* a British man in Lamai in 2010 (the year of [Jitendra Das](../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star) and [Mike Wenham](../2024/march/13-end.md#mike-wenham)) who egged him into getting extraordinarily high every day and he had a sort of mini-breakdown and I had to go and rescue him with the Thai police.
 - I wonder if the man who set my brother up with debilitating medication that Christmas in Lamai was the same man who [bared his teeth at me](../2025/january.md#a-man-i-recognize-bares-his-teeth-at-me) in the Spa Resorts restaurant at Christmas 2024.
