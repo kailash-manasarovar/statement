@@ -8,6 +8,23 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## My brother works for the gangs
+
+- He has obviously been tasked with making my life so unpleasant at 31 that I never consider it a safe haven.
+- This ensures I will return to Denia for the trillion-dollar snuff subscriptions they've got planned.
+- Or was it that I'd marry, they'd murder my father, drug me so it looks like I'm grieving but I'm really just rendered mute with a herds dose of ketamin, and they can then fake a suicide and inherit.
+- By that time I had half a million... so it would be more than worth it.
+- If so, then my dad's choreographer at Sadlers Wells, a Portuguese woman, would have poisoned him with that intention.
+
+### Is my brother a Dave Porter character?
+
+- Having been trained into despising women by Paul Van G et al, Robert was more than ready to get stuck into making my life a misery and so conspiring with the porn gangs for whatever end they had in mind for me.
+- But did they ask him to do the same with other women? Like they had with Dave Porter all those years previously?
+- Robert had a couple of Islamic girlfriends.
+- Do the gangs over the Islamicists the service of a nasty love-bombing boyfriend who might leave them never wanting another boyfriend again.
+- The gangs are certainly very VERY pally with the Islamicists.
+- Is this yet another example of their most un-Western and decidedly un-British activities in support of the Islamic takeover of the West?
+
 ## July 2017 to January 2019
 
 - I've become completely dependent on valium. I cannot go to work and be around people without it due to the anxiety I'm suffering.
