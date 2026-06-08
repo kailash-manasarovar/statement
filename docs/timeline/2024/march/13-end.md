@@ -255,6 +255,18 @@ function googleTranslateElementInit() {
 - Was I frog-marched back home, like [the other drugged lady](../../2023/november.md#tonya) I used to see regularly?
 - I don't remember anything more about the evening until much later when I wake up in my bed in a state of terror.
 
+### The Pillow Game
+
+- They walked me home sedated; Gloria's brother who blew in my face, probably Gloria and her other brother the pimp/pornographer/trumpet teacher Bruno, Maria Hontanilla (she can tell us who else but probably Paqui), and a couple of the men.
+- They held my face and top half down under the duvet and pillows, cutting off my air supply.
+- My bottom half was free and my legs were going up and down trying to free myself from them.
+- Someone told me about this on X with an AI cat who's bottom legs were going wild while it's top half was completely still and someone says: *look at him on his little bicycle*.
+- I hear Maria Hontanilla say: *leave her, she's had enough now*.
+- They stop applying the weight to my face and chest.
+- I gasp extremely loudly taking the air in.
+- I wake up once they've left my apartment and I'm convinced I'm going to be murdered.
+- This is how they get me to finally leave my studies at the conservatory.
+
 ### State of terror
 
 - The next thing I remember is being conscious of something evil in my vicinity, to the point of being concerned that I might be murdered and they would make it look like suicide.
@@ -345,6 +357,7 @@ function googleTranslateElementInit() {
 - At choir the night before, I was getting a cold.
 - The following morning, it worsens and I lose my voice.
 - The cold deteriorates into a chest infection and constant coughing fits.
+- This is to do with a bunch of the teachers, and Gloria's brothers, trying to murder me by smothering with the pillows.
 - I'm extremely unwell for the next few weeks and I can hardly talk.
 - Eventually, in India in the first week of April, three weeks later, I'm prescribed hardcore antibiotics for pneumonia and medicine for pleurisy by the hotel doctor.
 - I call the hotel doctor after [I snap the same weak rib I snapped in yoga](1-12.md#cracked-rib) from coughing so hard.
