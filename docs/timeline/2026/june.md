@@ -36,3 +36,6 @@ function googleTranslateElementInit() {
 - I thought I might just go and volunteer for the rest of my life at orphanages in India maybe, something like that.
 - I don't think the world has had enough horror to make it ready for healing.
 - My guess is there's a million years more to go before anyone's truly had enough of this hellscape.
+- My view is that the *queer* business ensured everyone's total OK'ness about the sexualization of minors and it is my view that this was a very intentional weapon forged against the West with the help of the gitano manipulators since 2012 and earlier.
+- My view is that the Islamicists know very well the arrogance of the West and it's adherents' inability to admit being tricked in this way, to it's continued detriment.
+- Very smart indeed from the Islamicists, and supported by their terrified attitudes towards their own women and children, hiding them away just in case the same might happen... I guess.
