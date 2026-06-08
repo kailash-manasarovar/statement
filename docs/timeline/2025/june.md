@@ -43,6 +43,6 @@
 - Who's told her I'm going to be there.
 - Who told her to glare at me angrily and blank me when I mention my emails.
 - Adams?
-- Probably... little Lucy was so desperate to meet me in January/February, and was so excited about showing me her new "girlfriend" who had put plastic down and was clearly about to self-harm for porn (I guess Lucy manipulating it all the way)... maybe even kill herself, who knows.
+- Probably... little Lucyfer Adams was so desperate to meet me in January/February, and was so excited about showing me her new "girlfriend" who had put plastic down in front of a full length mirror beside a bed and was clearly about to self-harm for porn (I guess Lucy manipulating it all the way)... maybe even kill herself for the porn, who knows.
 - Nice lot.
 - Aren't they.
