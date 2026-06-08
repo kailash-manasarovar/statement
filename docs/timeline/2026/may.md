@@ -39,6 +39,7 @@ function googleTranslateElementInit() {
 - Or, are they terrified their own wives and mothers will find out? That might be it.
 - It's difficult to assess total insanity objectively.
 - Oh, is he *the* Paco Sendra?
+- Is he handing himself in? Is he on the good's side now?
 
 ## Me and Steve were chatting
 
@@ -51,24 +52,6 @@ function googleTranslateElementInit() {
 - I'm not joking about my life being no fun at all though.
 - One wonders if, while no-one cares about the porn-gangs destroying the world, populations of porn-gang targets (we must be in the millions by now) and of course Spain's honey-trap targets who cannot rely on healthcare and assume basic human rights, will drift away from society and form liminal-space communities as we have been, essentially, told we don't exist, that our lives don't matter. Seems a reasonable view into the future...
 - God reminds me that even if it is no fun at all; I have felt far worse for more inconsequential things, so that's good.
-
-## Kailash preambles
-
-- I'm returning to Kailash after eleven years, God Willing, might need a horse though.
-- It's somewhat miraculous I am doing so, even though I might need a horse.
-- We can go anytime.
-- I remember as we walked around the mountain back in 2015, I found out about the jyotirlinga and I made the decision to visit all 12 of them at that time - apart from the one in Pakistan, obviously.
-- I'm returning having completed the task I (maybe) set for myself at Kailash, and other tasks too.
-- Since 2015, I have become the world's most famous sedated-rape horror-porn star; sometimes featuring friends and family, animals, children, men in superhero outfits, blond-wigged women in fishnet tights and top hats, monks and work colleagues, random men in restaurants, random North-of-England men on busses, and God knows what else.
-- Mahadev's detailed and disgusting endurance test is finally over.
-- I guess it's New Instructions time, if not a beam-me-up...
-
-![Kailash](../../content/images/kailash.jpg){width=100%}
-
-- Unless someone *gets* me before hand, I guess. 
-- Then we'll be here in the swamp another trillion years.
-- Although, I'm gonna ask for special dispensation to not come back again. Perhaps I earned it this time.
-- I do feel like I could do a whole lot more good stuff, but hey.
 
 ## Dreaming of Saint Michael on Ascension day
 
