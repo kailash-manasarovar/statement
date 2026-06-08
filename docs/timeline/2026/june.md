@@ -24,7 +24,7 @@ function googleTranslateElementInit() {
 - Then the fatigue kicked in.. could I have been poisoned again? 
 - I gave up on my hopes for Kailash kora pretty quickly, but then it turned out the weather was so bad they closed the kora for everyone.
 - I don't feel I missed anything but might return in my 60s God willing.
-- The chest infection started to remind me of being smothered with pillows at my home on 13th March 2024 and I realize that my legs must have been free while that was happening ing and I tried to free myself from being suffocated by them... for sure Maria hontanilla was there... Bruno younger brother probably Gloria... another man or two to apply the weight to my face so I couldn't breathe ... all these memories came with the chest infection at Kailash.
+- In any event, the chest infection started to remind me of being smothered with pillows at my home on 13th March 2024 and I realize that my legs must have been free while that was happening and I tried to free myself from being suffocated under the weight pushing down... for sure Maria hontanilla was there... Bruno's younger brother, probably Gloria... another man or two to apply the weight to my face so I couldn't breathe ... all these memories came with the chest infection at Kailash.
 
 ![Kailash](../../content/images/kailash.jpg)
 
