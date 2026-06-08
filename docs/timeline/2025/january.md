@@ -8,6 +8,31 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Furious emails and texts to the British embassy
+
+- I'm terrified about returning back to Spain on 5th January via Qatar airways from Bangkok to Madrid.
+- It's clear I'm stalked by some very dangerous people, but it's even clearer that no-one cares.
+- In fact, the powers that (used to) be are communicating directly with the criminal gangs via my X activity as if I'm not even human.
+- I write to the British embassy on X and via email explaining how much danger I'm in and asking for help.
+- Like my many emails beforehand, I receive no reply.
+
+### Qatar airways
+
+- I upgrade to business class.
+- On the Bangkok to Doha portion of the trip, I sit next to a man who appears to recognize me and takes video footage of me the whole flight.
+- On the Doha to Madrid portion of the flight, the steward also appears to know me.
+- It's all too much to take.
+
+### An official checking up on me at Madrid airport
+
+- Somehow, however, people have been reading my multiple emails asking for help, but it appears they prefer to answer to the criminal gangs instead of their victims.
+- Nevertheless, on my arrival in Madrid, a government official appears to make sure I arrive off the plane.
+- Do criminal gangs own the UK and Spain? It seems so.
+- The gangs, who think they own me, have decided I'm to go home, to the UK, where no-one will help me and, I guess, they expect they can persuade me to kill myself online like they do, or maybe they'll make good on some of their threats of having me stabbed or whatever.
+- Whatever the story, the criminal gangs are calling the shots and no-one is going to help me or the countless other victims of the porn-gangs.
+- In fact, they're so safe and comfortable with how things are - clearly certain of my demise and disappearance into obscurity along with the many thousands of other British nationals murdered without consequence - they tell me even more horrors that they're involved with, as if they're proud of themselves.
+- They're a bit stupid, I think.
+
 ## A man I recognize bares his teeth at me
 
 - I'm getting ready to leave the Spa Resorts in Lamai and travel back to Madrid where I will meet my friend Inma who's going to come with me to the gender-violence police department to augment [the complaint I already made to them](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid) back in March.
