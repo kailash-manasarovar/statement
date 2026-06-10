@@ -143,7 +143,7 @@ function googleTranslateElementInit() {
 - Sendra, it turns out, is the name of one of the crime families in the region involved in destroying women and children and babies for porn, and is likely the name of the trumpet teacher who has been helping me all these years too.
 - I added this section as a sort of eureka moment when it happened, but it wasn't really exciting other than I remembered correctly something very specific Hazel Smith said nearly twenty years previously.
 - This, on it's own, shows the veracity of my memory function and was the beginning of more memories returning about things that had happened to me, even while sedated, that I have added to this police statement and should have been taken very seriously and not ignored in the hope that ... they'd eventually murder me and everyone could get on with their criminal porn addictions in peace.
-- It is the *only* explanation for the lack of British police and/or government action, as I see it.
+- It is the *only* explanation for the total lack of British police and government action against serious crimes against humanity, as I see it.
 
 ## Max Power
 
