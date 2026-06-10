@@ -125,6 +125,7 @@ function googleTranslateElementInit() {
 - The persistent widow is a parable of Jesus about a widow who went to the judge again and again to get help with her *adversary*, and he ignored her again and again, but eventually did something about her problem.
 - Jesus points out that if the judge will eventually relent, worried about the fact he didn't help the woman coming back to haunt him somehow, what more might happen when the judge is God Himself and, indeed, I have been going to my God again and again asking for help with my *adversary*, which turns out to be thousands of rapists who thought sedating women meant they'd get away with it.
 - My prayer today is that every single one of those men's penises just withers away and drops off.
+- Oh, and even the ones of the *helper* men that may have thought themselves safe because they didn't partake. No, even those penises too.
 - That would be AMAZING!
 
 ## Trumpet teacher
