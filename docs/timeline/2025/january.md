@@ -132,7 +132,7 @@ function googleTranslateElementInit() {
 - Oh, and even the penises belonging to the *helper* men who may have thought themselves safe because they didn't partake.
 - No, even those penises too, and sometimes especially if they've been paying for their expensive holidays by sharing the porn around.
 - That outcome would be AMAZING!
-- Thank you in advance Father.
+- Thank you in advance Father, they don't seem to care do they, perhaps a shock is what they need.
 
 ## The trumpet teacher's real name
 
