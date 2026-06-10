@@ -119,14 +119,19 @@ function googleTranslateElementInit() {
 - This is just one of a bunch of emails I sent to the Baroness and to the police in the UK, the last one dated February 2026.
 - I've added [some more of my communications in an earlier section](#email-examples) on this page.
 - Whenever things got really overwhelming for me, I would reach out to the police.
-- After the first few times I got no response, I stopped expecting a response, but still felt compelled to try again to get help as any normal tax-paying upstanding citizen would do with the expectation help would be going.
+- After the first few times I got no response, I stopped expecting a response, but still felt compelled to try again to get help as any normal tax-paying upstanding citizen would do with the reasonable expectation that help would be forthcoming.
 - As well as the Baroness, the emails went to Lauren Ott, a policeman sent to assist me while I was campaigning at the UK general election in June 2024, the election police lead involved in protecting candidates for general election in London, the local community police officer in N2 Jan Lovell, and anyone and everyone I had details for that I thought might care or be able to help.
 - I received no reply from anyone.. ever.. apart from a couple of vague but pleasant responses from the Baroness, and Lauren Ott responding to me once directly telling me to call 999 when I get home to London, which I do: another [spectacular disappointment](#i-call-the-police) for the widow.
-- The persistent widow is a parable of Jesus about a widow who went to the judge again and again to get help with her *adversary*, and he ignored her again and again, but eventually did something about her problem.
-- Jesus points out that if the judge will eventually relent, worried about the fact he didn't help the woman coming back to haunt him somehow, what more might happen when the judge is God Himself and, indeed, I have been going to my God again and again asking for help with my *adversary*, which turns out to be thousands of rapists who thought sedating women meant they'd get away with it.
-- My prayer today is that every single one of those men's penises just withers away and drops off.
-- Oh, and even the ones of the *helper* men that may have thought themselves safe because they didn't partake. No, even those penises too, and sometimes especially.
-- That would be AMAZING!
+
+### A parable from brother Jesus Christ
+
+- The persistent widow is [a parable of Jesus](https://www.biblegateway.com/passage/?search=luke%2018:1-8&version=NIV) about a widow who went to the judge again and again to get help with her *adversary*, and he ignored her again and again, but eventually did something about her problem because he was worried she might cause him a lot of trouble if he didn't.
+- Jesus points out that the judge eventually relents and helps the widow, worried about the woman's predicament coming back to haunt him somehow.
+- Jesus then asks what more might happen when the judge is God Himself and, indeed, I have been going to my God again and again asking for help with my *adversary*, which turns out to be thousands of rapists who thought sedating women meant they'd get away with it.
+- My prayer today is that every single one of those men's penises just withers away and drops off, testicles along with them.
+- Oh, and even the penises belonging to the *helper* men who may have thought themselves safe because they didn't partake.
+- No, even those penises too, and sometimes especially if they've been paying for their expensive holidays by sharing the porn around.
+- That outcome would be AMAZING!
 - Thank you in advance Father.
 
 ## The trumpet teacher's real name
