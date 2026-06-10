@@ -136,13 +136,14 @@ function googleTranslateElementInit() {
 
 ## The trumpet teacher's real name
 
-- A sudden memory returned about something Hazel Smith told me [in 2007](../2001-to-2010/2007.md#hazel-smith).
+- The original commit of this section is when a sudden memory returned about something Hazel Smith told me [in 2007](../2001-to-2010/2007.md#hazel-smith) at dinner with her *mum* the night we went out dancing, a few nights before she tried to murder me by poisoning.
 - At the moment I remembered this, I believed the trumpet teacher's real name must be Paco Sendra, the married man [Hazel Smith told she was having an affair with](../2001-to-2010/2007.md#i-put-people-in-boxes) back in 2007.
-- I still believe there is only one trumpet teacher at this stage; not the six or seven, or more that I have been recognizing as the same one man due to brain damaging poisons.
+- I still believe there is only one trumpet teacher at this stage; not the six or seven, or more that I have been recognizing as the same one man due to brain-damaging poisons.
 - It turns out Paco Sendra is the name of a famous footballer, but probably Hazel Smith would not have known that at the time.
 - Sendra, it turns out, is the name of one of the crime families in the region involved in destroying women and children and babies for porn, and is likely the name of the trumpet teacher who has been helping me all these years too.
-- I added this section as a sort of eureka moment when it happened, but it wasn't really other than I remembered something very specific Hazel Smith said nearly twenty years previously.
-- This, on it's own, shows the veracity of my memory function and was the beginning of more memories coming back about things that had happened to me, even while sedated, that I have added to this police statement and should have been taken very seriously and not ignored in the hope that ... they'd eventually murder me and everyone could get on with their criminal porn addictions in peace.
+- I added this section as a sort of eureka moment when it happened, but it wasn't really exciting other than I remembered correctly something very specific Hazel Smith said nearly twenty years previously.
+- This, on it's own, shows the veracity of my memory function and was the beginning of more memories returning about things that had happened to me, even while sedated, that I have added to this police statement and should have been taken very seriously and not ignored in the hope that ... they'd eventually murder me and everyone could get on with their criminal porn addictions in peace.
+- It is the *only* explanation for the lack of British police and/or government action, as I see it.
 
 ## Max Power
 
