@@ -122,6 +122,10 @@ function googleTranslateElementInit() {
 - After the first few times I got no response, I stopped expecting a response, but still felt compelled to try again to get help as any normal tax-paying upstanding citizen would do with the expectation help would be going.
 - As well as the Baroness, the emails went to Lauren Ott, a policeman sent to assist me while I was campaigning at the UK general election in June 2024, the election police lead involved in protecting candidates for general election in London, the local community police officer in N2 Jan Lovell, and anyone and everyone I had details for that I thought might care or be able to help.
 - I received no reply from anyone.. ever.. apart from a couple of vague but pleasant responses from the Baroness, and Lauren Ott responding to me once directly telling me to call 999 when I get home to London, which I do: another [spectacular disappointment](#i-call-the-police) for the widow.
+- The persistent widow is a parable of Jesus about a widow who went to the judge again and again to get help with her *adversary*, and he ignored her again and again, but eventually did something about her problem.
+- Jesus points out that if the judge will eventually relent, worried about the fact he didn't help the woman coming back to haunt him somehow, what more might happen when the judge is God Himself and, indeed, I have been going to my God again and again asking for help with my *adversary*, which turns out to be thousands of rapists who thought sedating women meant they'd get away with it.
+- My prayer today is that every single one of those men's penises just withers away and drops off.
+- That would be AMAZING!
 
 ## Trumpet teacher
 
