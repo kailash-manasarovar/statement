@@ -61,6 +61,12 @@ function googleTranslateElementInit() {
 - In fact, they're so safe and comfortable with how things are - clearly certain of my demise and disappearance into obscurity along with the many thousands of other British nationals murdered without consequence - they tell me even more horrors that they're involved with, as if they're proud of themselves.
 - They're a bit stupid, I think.
 
+### Twitter translators
+
+- Currently all my tweets are getting just a few views as usual and a large proportion of views are translating.
+- It seems that Spanish speakers are very interested in what is being said online.
+- It's obvious that the multiple English speakers (international law enforcement agencies and criminals) are simply reading everything going on with my hacked X feed directly.
+
 ## A man I recognize bares his teeth at me
 
 - The afternoon I'm getting ready to leave the Spa Resorts in Lamai and travel back to Madrid where I will meet my friend Inma who's going to come with me to the gender-violence police department to augment [the complaint I already made to them](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid) back in March.
@@ -116,10 +122,6 @@ function googleTranslateElementInit() {
 - After the first few times I got no response, I stopped expecting a response, but still felt compelled to try again to get help as any normal tax-paying upstanding citizen would do with the expectation help would be going.
 - As well as the Baroness, the emails went to Lauren Ott, a policeman sent to assist me while I was campaigning at the UK general election in June 2024, the election police lead involved in protecting candidates for general election in London, the local community police officer in N2 Jan Lovell, and anyone and everyone I had details for that I thought might care or be able to help.
 - I received no reply from anyone.. ever.. apart from a couple of vague but pleasant responses from the Baroness, and Lauren Ott responding to me once directly telling me to call 999 when I get home to London, which I do: another [spectacular disappointment](#i-call-the-police) for the widow.
-
-## Twitter translators
-
-- Currently all my tweets are getting few views as usual and a lot of translations.
 
 ## Trumpet teacher
 
