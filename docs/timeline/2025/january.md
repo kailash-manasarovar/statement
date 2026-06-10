@@ -63,7 +63,7 @@ function googleTranslateElementInit() {
 
 ### Twitter translators
 
-- Currently all my tweets are getting just a few views as usual and a large proportion of views are translating.
+- Currently all my tweets are getting just a few views as usual and a large proportion of those views are translating the text.
 - It seems that Spanish speakers are very interested in what is being said online.
 - It's obvious that the multiple English speakers (international law enforcement agencies and criminals) are simply reading everything going on with my hacked X feed directly.
 
