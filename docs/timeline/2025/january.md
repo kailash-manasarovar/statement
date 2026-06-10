@@ -94,11 +94,11 @@ function googleTranslateElementInit() {
 
 - After having thrown my toiletries away and completed an intense seven-day fast and detox in Samui, I am suddenly starting to see things more clearly.
 - It's obvious how badly my mind has been affected by drugs and poisons, and for how long too.
-- I'm seriously concerned I'm going to be murdered by either Domingo Lopez Cano's family working alongside Hazel Smith's organization, or gitano and British criminal gangs anywhere in the world, or the Spanish police when I get back to Spain, or even the British police for their possible collusion.
+- I'm seriously concerned I'm going to be murdered by either Domingo Lopez Cano's family working alongside Hazel Smith's British criminal organization, or gitano and British criminal gangs anywhere in the world, or the Spanish police when I get back to Spain, or even the British police and UK government because they seem to be throwing me to the wolves.
 - I'm scared and I don't know what to do.
 - I reach out to a Baroness at the House of Lords who is a strong support for women and girls in the fight against the abuses of trans ideology.
 - I have had some communication with [Baroness Nicholson](https://en.wikipedia.org/wiki/Emma_Nicholson,_Baroness_Nicholson_of_Winterbourne) previously.
-- Significantly, I emailed her probably sometime in March after [I became afraid for my life](../2024/march/13-end.md#choir).
+- Significantly, I emailed her probably sometime in March 2024 after teachers and staff suffocated me with pillows and my own duvet while I was sedated at home and [I became afraid for my life](../2024/march/13-end.md#choir).
 - At the time she responded with a note that I understood to mean we should expect certain cultures to behave in the way the people of Dénia have been behaving towards me, which perplexed me but I had no capacity to think about it further.
 - This month, we have a long correspondence where I explain how scared I am, and why, and how I believe I'm going to be murdered.
 - Here is [most of the email thread](../../content/documents/emails/the%20witch%20must%20drown-3-6.pdf).
@@ -111,10 +111,11 @@ function googleTranslateElementInit() {
 - I hold onto this dwindling certainty, without which my reasonable moral expectations for our world are in tatters.
 - I reply to her, apologizing for getting cross.
 - This is just one of a bunch of emails I sent to the Baroness and to the police in the UK, the last one dated February 2026.
-- Whenever things got really overwhelming for me, I would reach out to them.
-- After the first few times I got no response, I stopped expecting a response, but still felt compelled to try again to get help.
-- As well as the Baroness, the emails went to Lauren Ott, a policeman sent to assist me while I was campaigning at the UK general election in June 2024, the election police lead involved in protecting candidates for general election in London, and anyone and everyone I had details for that I thought might care or be able to help.
-- I received no reply from anyone.. apart from a couple of vague but pleasant responses from the Baroness, and Lauren Ott responding to me once directly telling me to call 999 when I get home to London, which I do: another [spectacular disappointment](#i-call-the-police) for the widow.
+- I've added [some more of my communications in an earlier section](#email-examples) on this page.
+- Whenever things got really overwhelming for me, I would reach out to the police.
+- After the first few times I got no response, I stopped expecting a response, but still felt compelled to try again to get help as any normal tax-paying upstanding citizen would do with the expectation help would be going.
+- As well as the Baroness, the emails went to Lauren Ott, a policeman sent to assist me while I was campaigning at the UK general election in June 2024, the election police lead involved in protecting candidates for general election in London, the local community police officer in N2 Jan Lovell, and anyone and everyone I had details for that I thought might care or be able to help.
+- I received no reply from anyone.. ever.. apart from a couple of vague but pleasant responses from the Baroness, and Lauren Ott responding to me once directly telling me to call 999 when I get home to London, which I do: another [spectacular disappointment](#i-call-the-police) for the widow.
 
 ## Twitter translators
 
