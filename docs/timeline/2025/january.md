@@ -228,6 +228,10 @@ function googleTranslateElementInit() {
 - I give him my coat and a decent woolen jumper and tell him not to sell them.
 - I think about the many good people I know in North London whose lives were destroyed by drugs.
 
+### Paul tells me he's proud of his ten-year-old son telling him he's bisexual
+
+- More sick results from the Denia manipulation fest world-wide.
+
 ### Dinner at the hotel in Madrid
 
 - Paul and I sit down to a late supper at the hotel.
