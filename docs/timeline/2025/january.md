@@ -157,7 +157,7 @@ function googleTranslateElementInit() {
 
 - Again, the only way these criminals would be so stupid as to tell me everything, is if they were certain of my murder, or demise some other way, just like the hundreds of British and Irish women, and other foreign nationals already dealt with over many decades.
 - Google searches confirm the Max Power theme in January 2025, with multiple results on the search terms: *1frgvn x* related to porn channel Max Power.
-- It's worth considering that these references were just another attempt to throw someone under the bus, in this case a porn distribution company, suggesting that the more mainstream companies such as PornHub, etc, are up to their necks in criminal porn content produced in Dénia and Las Marinas, maybe even brokering *special requests* for victims from their loving audiences.
+- It's worth considering that these references were just another attempt to throw someone under the bus, in this case a petty porn distribution company, suggesting that the more mainstream companies such as PornHub, etc, are up to their necks in criminal porn content produced in Dénia and Las Marinas, maybe even brokering *special requests* for victims from their loving audiences.
 
 ## Paul
 
