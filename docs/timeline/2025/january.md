@@ -133,7 +133,7 @@ function googleTranslateElementInit() {
 - No, even those penises too, and sometimes especially if they've been paying for their expensive holidays by sharing the porn around.
 - That outcome would be AMAZING!
 - Thank you in advance Father, they don't seem to care do they, perhaps a shock is what they need.
-- May they experience the stress of being threatened with constant murder, at the very least.
+- May they experience the stress of being threatened with constant murder, and no-one giving a damn, at the very least.
 
 ## The trumpet teacher's real name
 
@@ -148,8 +148,15 @@ function googleTranslateElementInit() {
 
 ## Max Power
 
-- I get continual info on Twitter over January and late December informing me that the porn brand they are using to distribute whatever porn they make is Max Power, which makes [Samuel's email](../2022/october.md#sam-shares-some-files-with-me) from 2022 quite interesting.
-- Indeed, when I do a Google search on this, I notice many of the links that I can see on 1frgvn x google search videos are related to Max Power.
+- I get continual informed on Twitter while I'm in Thailand and on into January that the porn brand they are using to distribute whatever porn they make of sedated women in Spain is Max Power.
+- This makes [Samuel's email](../2022/october.md#sam-shares-some-files-with-me) from 2022 even more interesting than it first appeared.
+- They were telling me, as early on as September 2022, that I was starring on criminal porn networks live and sedated from my own home.
+- They were also telling me, in that foolish way they seem hopelessly addicted to, that an adult male student at the conservatory who spends *a lot* of time with minor girls works for porn distribution networks.
+
+![Samuel works for porn distribution networks](../../content/images/samuel-works-for-porn-distribution-networks.jpg)
+
+- Again, the only way these criminals would be so stupid as to tell me everything, is if they were certain of my murder, or demise some other way, just like the hundreds of women already dealt with over many decades.
+- Google searches confirm the Max Power theme in January 2025, with multiple results on the search terms: *1frgvn x* related to porn channel Max Power.
 
 ## Paul
 
