@@ -133,6 +133,7 @@ function googleTranslateElementInit() {
 - No, even those penises too, and sometimes especially if they've been paying for their expensive holidays by sharing the porn around.
 - That outcome would be AMAZING!
 - Thank you in advance Father, they don't seem to care do they, perhaps a shock is what they need.
+- May they experience the stress of being threatened with constant murder, at the very least.
 
 ## The trumpet teacher's real name
 
