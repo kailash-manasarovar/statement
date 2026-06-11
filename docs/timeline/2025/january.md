@@ -24,7 +24,7 @@ function googleTranslateElementInit() {
 
 ### Email examples
 
-- Here are a few examples of emails I wrote to the police in the UK, Baroness Nicholson, and the British press in 2004-2025 asking for help.
+- Here are a few examples of emails I wrote to the police in the UK, Baroness Nicholson, and the British press in 2024-2025 asking for help.
 
     1. [Email asking for help](../../content/documents/emails/emails-to-police-in-the-uk/forgive%20me%20the%20spam,%20something%20you%20might%20find%20interesting.eml).
     1. [Email asking Lauren Ott for help](../../content/documents/emails/emails-to-police-in-the-uk/Hi%20Lauren.eml).
