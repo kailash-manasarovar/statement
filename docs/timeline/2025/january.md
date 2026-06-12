@@ -229,17 +229,22 @@ function googleTranslateElementInit() {
 
 ## Ritzy
 
-- When I call Paul from Thailand to arrange to meet him at Madrid airport he's with Ritzy.
+- I call Paul from Thailand the night before I fly back to arrange to meet him at Madrid airport.
+- He says he's with Ritzy.
 - He's laughing and exuberant over the phone.
-- I don't know who Ritzy is and worry it sounds like a gang name and could be someone dodgy.
-- I expect Lucy has told him to tell me about Ritzy. 
+- It's the first time I've spoken to him in nearly 25 years, and so I don't understand this to be unusual.
+- I don't know who Ritzy is, however, and I worry it sounds like a gang name and could be someone dodgy.
+- I expect Lucy has told Paul to tell me about Ritzy. 
 - Ritzy was a nightclub in Tottenham where the rape-gangs would go looking for little white girls.
-- I tell him not to speak to anyone.
+- I tell Paul not to speak to anyone at all.
 - He laughs and says, *oh, it's just Ritzy*.
 - She's in her 90s and he does odd jobs for her, *all the time*.
 - Paul will do a few odd jobs for my mum and dad over January and February.
-- He seems to be seething with everyone, and deliberately does his own thing and breaks things, then charges £100 an hour.
-- Is he taking advantage of Ritzy?
+- His exuberance quickly shifts into seething, I think when he realizes I'm not going to be giving him any drugs money.
+- He deliberately does his own thing, and breaks things, then charges £100 an hour.
+- He really pissed my mother off.
+- Is he taking advantage of Ritzy too?
+- It seems likely.
 
 ## Meeting Paul in Madrid
 
