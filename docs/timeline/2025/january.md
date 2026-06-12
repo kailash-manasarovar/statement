@@ -161,18 +161,23 @@ function googleTranslateElementInit() {
 
 ## Paul
 
-- Paul Pompeus is an old friend of mine and I have seen him since I was living in Hastings with my ex-boyfriend Brian in the Autumn of 2001.
-- I'm terrified, and desperate for someone to help me move from Dénia but I struggle to ask people for help, for obvious reasons.
+- Paul Pompeus is an old friend of mine and I hadn't seen him since I was living in Hastings with my ex-boyfriend Brian in the Autumn of 2001.
+- I'm terrified, however, and desperate for someone to accompany me to the police in Madrid and help me move my belongings from Dénia, but I struggle to ask people for help, for obvious reasons.
+- [After Nicos says he'll help me then ghosts me](../2024/december.md#my-belgian-friend-says-he-will-help-me), Paul seems like a good option.
+- He was *very* friendly with me online in June 2024 when I was campaigning for the UK general election, but I never saw him in person at that time.
 
 !!! danger "Asking for help"
     - When a sexual abuse victim asks for help they are typically ignored, fastidiously disbelieved, sometimes even attacked, rarely heard.
+    - Before it became obvious to me that I had been mass-targeted by British and Spanish criminal gangs for decades, I used to think that Hazel had tried to poison me back in 2007 as an attack on a similarly sexually abused person and I told people I had been attacked by someone for that reason -  without telling anyone the fuller story. 
+    - This was how I understood what had happened to me at her hands in 2007; criminal psychopathy triggered by someone reminding her of her own experience of sexual abuse.
     - It gets to the stage you realize you have to do everything for yourself.
-    - It's exhausting, but can you imagine how exhausted I am, most sedated-and-raped woman that ever walked the planet?
-    - You stop asking for help, as it is a waste of time.
-    - It seems like the cult of the sexual predator is so powerful, so thoroughly protected, and controls everyone's mind, that even your own family ends up despising you, even when the men are complicit.
+    - It's exhausting, but can you imagine how exhausted I am, the most sedated-and-raped woman that ever walked the planet?
+    - You just stop asking for help, as it is a waste of time.
+    - It seems like the cult of the sexual predator is so powerful, so thoroughly protected, and controls everyone's mind, that even your own family ends up despising you, even when the men in your family are complicit.
     - They probably believe their own BS.
 
-- Anyway, I'm telling my story online and it is alarming some people I know, thankfully they're not all lost, maybe.
+- I'm not enjoying any of this, by the way.
+- Anyway, in January 2025, I'm telling my story online and it is alarming some people I know; thankfully they're not all lost, I think, now with a big maybe.
 - A Belgian friend Nicos - who [I visited during EthCC](../2024/july.md#meeting-my-belgian-friend) seems to be extremely concerned about me.
 - He says he'll come and help me, but then he then doesn't contact me at all for a few days. 
 - He ghosts me, in fact, and when I message him he says something about having to take his children to school.
