@@ -251,15 +251,15 @@ function googleTranslateElementInit() {
 - I meet Paul at Madrid airport.
 - He looks like an Ouderkerk ghoul, like someone who has chosen drugs over food for many years, like someone who does a lot of seriously hard drugs all the time.
 - He's borrowed clothes from the man he is apparently living with (it's a lie, he lives in his car) and it looks like he leant him rags.
-- He reminds me of [how Busby, Winston May's partner, looked outside the Rape Crisis centre in Hornsey in 2017](../2011-to-2020/2017.md#rape-crisis-hornsey).
+- He reminds me of [how Busby, Winston May's rape-gang partner, looked outside the Rape Crisis centre in Hornsey in 2017](../2011-to-2020/2017.md#rape-crisis-hornsey).
 - I tell Paul he looks like a beggar man.
-- The day before I meet Paul at the airport, I picked the car which I had parked in the public car park close to departures.
+- The day before I meet Paul at the airport, I collected the car which I had parked in the public car park close to departures.
 - My car was at the airport garage in Madrid for two months.
 - Hackers had been warning me about getting in the car, and when I do get in the car after two months I immediately start feeling symptoms of unwellness: scratchy throat, rheumatic pains in my hands.
 - This hand-pain becomes a recurrent theme from criminal gang members stalking me in 2025, and the wheel and gearstick appear to *still* be poisonous to the hands even in March 2026.
 - I book a Eurostars hotel on the outskirts of the city for a few nights.
 - I go to pick up Paul the next evening.
-- I bought him his ticket with British airways from London.
+- I bought him his ticket with British Airways from London.
 - I asked Paul to bring masks and gloves because I believe the car is poisoned with pesticides.
 - He does so, but he's not taking anything I'm telling him seriously.
 - In fact, he won't shut up, as if he's speeding, hard.
