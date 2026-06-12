@@ -421,13 +421,13 @@ function googleTranslateElementInit() {
 
 !!! tip "Inma still tries to contact me regularly"
     - I'm never sure what exactly she wants.
-    - It seems clear that back in October 2024, her and Paloma's interaction with me was to decide whether to tell the gangs to go ahead and murder me, which they attempted immediately once I was also fired from my job at Polygon.
-    - They failed.
-    - The other times I heard from her, it seems like someone was about to try to murder me again, certainly in July 2025 in Lourdes that is *exactly* what [the Spanish woman calling herself Taya who also appears to be involved in multiple other murders](july.md#eyes-and-kidneys-again-and-heart-now-too) intended for me.
+    - It seems clear that back in October 2024, [her and Paloma's interaction with me](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid) was to decide whether to tell the gangs to go ahead and murder me, which they attempted immediately once I was also fired from my job at Polygon a few days later.
+    - They failed, of course.
+    - The other times I heard from her, it seems like someone was about to try to murder me again; certainly in July 2025 in Lourdes that is *exactly* what [the Spanish woman calling herself Taya who also appears to be involved in multiple other murders](july.md#eyes-and-kidneys-again-and-heart-now-too) intended for me.
     - What could Inma want by continually contacting me?
     - I hope it's Spanish government anxiety.
     - That would be most welcome.
-    - Perverts!
+    - Perverts and pedophiles!
 
 ## Paul's best friend Lucy
 
