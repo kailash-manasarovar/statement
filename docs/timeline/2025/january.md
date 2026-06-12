@@ -418,6 +418,14 @@ function googleTranslateElementInit() {
 - They're just ignoring the fate of their own children by blaming a victim. It's more than astonishing and it was around this time I started to realize that the Spanish are sacrificing their own children and babies to porn; Topheth style.
 - God cannot let this go on. Please God sort them out IMMEDIATELY!!!!!
 
+!!! tip "Inma still tries to contact me regularly"
+    - I'm never sure what exactly she wants.
+    - It seems clear that back in October 2024, her and Paloma's interaction with me was to decide whether to tell the gangs to go ahead and murder me, which they attempted immediately once I was also fired from my job.
+    - The other times I heard from her, it seems like someone was about to try to murder me again.
+    - What could she want by contacting me?
+    - I hope it's Spanish government anxiety. That would be most welcome.
+    - Perverts!
+
 ## Paul's best friend Lucy
 
 - Paul tells me again and again about how I'm one of his best friends in the whole world, that he has only three best friends in the whole world, and that I'm one of them.
