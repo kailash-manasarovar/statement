@@ -227,6 +227,19 @@ function googleTranslateElementInit() {
 - Seems likely.
 - It is a common MO with these sedating rapists after all, cos, mainly, they're total cowards.
 
+#### A child sexual abuse survivor gets retraumatized
+
+- I tell Paul later that it is extraordinarily common for people who have been groomed and abused as children to become retraumatized as adults and have breakdowns; specifically when their same-sex kids get to the same age they were when they were groomed by a predator.
+- I believed this is what happened to Paul to propel him into a ravaging drug addiction that took his life from him.
+- Paul denied the abuse and repeatedly stood up for this random man who had destroyed the relationship these boys had with their parents.
+- I told him there wasn't a planet in the universe where what Dennis had done was OK.
+- Paul was a great guy, one of the best I had thought. 
+- He, like me, never had any real support from family as they didn't seem to know what was going on for him, and, like me, he was blamed by them for everything that was happening to him that his child's mind couldn't really comprehend.
+- It was unfair for him, and me.
+- Paul went to pieces around about the same time his second son who he was parenting reached the age that Paul was groomed.
+- However, Paul also lost his bearings at the same time as my ex-boyfriend Brian and his family and friends were sedating and raping me.
+- I guess that sort of evil-doing has disastrous outcomes too.
+
 ## Ritzy
 
 - I call Paul from Thailand the night before I fly back to arrange to meet him at Madrid airport.
@@ -304,7 +317,7 @@ function googleTranslateElementInit() {
 - I give him my coat and a decent woolen jumper and tell him not to sell them.
 - I think about the many good people I know in North London whose lives have been destroyed by rampant criminal gang activity that the police will do nothing about.
 
-### Paul tells me he's proud of his ten-year-old son telling him he's bisexual
+## Paul tells me he's proud of his ten-year-old son telling him he's bisexual
 
 - At dinner, and over the next couple of months, we talk about family a little.
 - Paul is upset with his family because they wrote him out of the will because he spent 10k on drugs that was supposed to be for doing the house up.
@@ -316,7 +329,7 @@ function googleTranslateElementInit() {
 - No-one seems to realize that they've all been manipulated by North London and Spanish criminal gangs into believing the most outrageous things concerning sex and children, just so they'll be able to sell more criminal porn at extortionate prices.
 - And they're mostly gonna be too arrogant to admit they were tricked!
 
-### Dinner at the hotel in Madrid
+## Dinner at the hotel in Madrid
 
 - Paul and I sit down to a late supper at the hotel.
 - He won't shut up talking.
@@ -328,7 +341,7 @@ function googleTranslateElementInit() {
 - Was Paul aware of what my dad had done in Dénia to me and my mother?
 - The better question is was any male unaware of it?
 
-### Paul promises me he's not doing heroin
+## Paul promises me he's not doing heroin
 
 - It seems obvious to me Paul has been doing heroin, but he's adamant he is off the drugs since July 2024 and was only doing crack.
 - Even so, I take my handbag to the toilet when I go I'm so concerned about him.
@@ -345,17 +358,6 @@ function googleTranslateElementInit() {
 - Did someone tell him to do that; to wait for me?
 - After I send Paul home, he tells me when I next see him that police at Heathrow had searched him and even taken a DNA swab from his mouth.
 - I take this as more proof of the big investigation going on, but perhaps he's lying about this too.
-
-### A child sexual abuse survivor gets retraumatized
-
-- I tell Paul later that it is extraordinarily common for people who have been groomed and abused as children to become retraumatized as adults and have breakdowns; specifically when their same-sex kids get to the same age they were when they were groomed by a predator.
-- I believe this is what happened to Paul.
-- Paul denied the abuse and repeatedly stood up for this random man who had destroyed the relationship these boys had with their parents.
-- I told him there wasn't a planet in the universe where what Dennis had done was OK.
-- Paul was a great guy, one of the best. 
-- He, like me, never had any real support from family as they didn't seem to know what was going on for him, and, like me, he was blamed by them for everything that was happening to him that his child's mind couldn't really comprehend.
-- It was unfair for him, and me.
-- Paul went to pieces around about the same time his second son who he was parenting reached the age that Paul was groomed.
 
 ### Paul's lies about the Royal Family, and other things
 
