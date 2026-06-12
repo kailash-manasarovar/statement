@@ -631,6 +631,7 @@ function googleTranslateElementInit() {
 - Is it possible to lose the arrogance that ensures this belief is never questioned, even though just ten years ago no-one in their right minds would have believed it in the same way they would have never bought into the *born in the wrong body* whopper.
 - There is another explanation for Steve's reactions towards me which is somewhat, no, a whole lot biblical; but I'll leave that for the ponderers but just to say it involves a whole lot of jealousy and two thousand years of severely psychopathic woman-hating that has not abated in any way at all.
 - I wonder who Helen was.
+- To quote Helen... I believe this section is important concerning the *right message* and the vile lies that have taken over our world - you didn't notice?
 
 ## I've been injected somehow
 
