@@ -156,8 +156,8 @@ function googleTranslateElementInit() {
 ![Samuel works for porn distribution networks](../../content/images/samuel-works-for-porn-distribution-networks.jpg)
 
 - Again, the only way these criminals would be so stupid as to tell me everything, is if they were certain of my murder, or demise some other way, just like the hundreds of British and Irish women, and other foreign nationals already dealt with over many decades.
-- Google searches confirm the Max Power theme in January 2025, with multiple results on the search terms: *1frgvn x* related to porn channel Max Power.
-- It's worth considering that these references were just another attempt to throw someone under the bus, in this case a petty porn distribution company, suggesting that the more mainstream companies such as PornHub, etc, are up to their necks in criminal porn content produced in Dénia and Las Marinas, maybe even brokering *special requests* for victims from their loving audiences.
+- Google searches confirm the Max Power theme in January 2025, with multiple results on the search term *1frgvn x* related to porn channel Max Power.
+- It's worth considering that these references were just another attempt to throw someone under the bus, in this case a petty porn distribution company, suggesting that the more mainstream companies such as PornHub, etc, are up to their necks in criminal porn content produced in Dénia and Las Marinas, maybe even brokering *special requests* for victims from their loving tech-bro audiences.
 
 !!! tip "How pissed I am!"
     - It's extraordinary that I have detailed hundreds of British and Irish, and other nationalities, murder victims targeted over many many decades, with photos, and it's years later, and I'm still alive (up yours British and Spanish police and governments!) and I'm still writing about the blatant criminality in Dénia and North London and nothing has been done!
@@ -177,16 +177,21 @@ function googleTranslateElementInit() {
 - I'm terrified, however, and desperate for someone to accompany me to the police in Madrid and help me move my belongings from Dénia, but I struggle to ask people for help, for obvious reasons.
 - [After Nicos says he'll help me then ghosts me](../2024/december.md#my-belgian-friend-says-he-will-help-me), Paul seems like a good option.
 - Nicolas made a huge fuss of being concerned about me.
-- He's the man [I visited during EthCC](../2024/july.md#meeting-my-belgian-friend), a family friend of my dad, in fact, who incidentally became ridiculously jealous about my mother and his father on an occasion they visited. 
-- I wonder about that now.
+- He's the man [I visited during EthCC](../2024/july.md#meeting-my-belgian-friend), a family friend of my dad, in fact, who incidentally became ridiculously jealous about my mother and Nicos' father Patrick on an occasion they visited. 
+- Now that the mask has slipped, never to return, I do wonder what was really behind that.
 - When I message a few days later him asking if he's coming like he said he would be, he says something vague about having to take his children to school.
-- Is he a criminal-porn subscriber too?
-- It would not surprise me.
+- Are the Belgian family-friends criminal-porn subscribers too?
+- Have they all masturbated over me being raped by groups of black men when I was a child?
+- It would not surprise me one bit.
+- You might like to check on how he makes his money (i.e. masses of European funds paying for a rock band no-one's ever heard of..).
+- Anyway, I did mention I'm pissed off.
 
 !!! danger "Asking for help"
     - When a sexual abuse victim asks for help they are typically ignored, fastidiously disbelieved, sometimes even attacked, rarely heard.
-    - Before it became obvious to me that I had been mass-targeted by British and Spanish criminal gangs for decades, I used to think that Hazel had tried to poison me back in 2007 as an attack on a similarly sexually abused person and I told people I had been physically attacked by someone for that reason -  without telling anyone the fuller story. 
+    - Before it became obvious to me that I had been mass-targeted by British and Spanish criminal gangs for decades, I used to think that [Hazel had tried to poison me back in 2007](../2001-to-2010/2007.md#hazel-tries-to-kill-me) as an unconscious and irrational attack on a similarly sexually abused person from belief in the lie that attacking someone just like her would somehow help her heal from her own experience - the human mind is very insane after all.
+    - I told people I had been physically attacked by someone because I was a victim of sexual abuse for that reason - without telling anyone the fuller story. 
     - This was how I understood what had happened to me at her hands in 2007; criminal psychopathy triggered by someone reminding her of her own experience of sexual abuse.
+    - I guess I'm still right about that - without the fuller story.
     - It gets to the stage you realize you have to do everything for yourself.
     - It's exhausting, but can you imagine how exhausted I am, the most sedated-and-raped woman that ever walked the planet?
     - You just stop asking for help, as it is a waste of time.
