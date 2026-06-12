@@ -225,6 +225,20 @@ function googleTranslateElementInit() {
 - Did they scurry away ashamed? Unable to face looking me in the eye the next morning?
 - Seems likely.
 
+## Ritzy
+
+- When I call Paul from Thailand to arrange to meet him at Madrid airport he's with Ritzy.
+- He's laughing and exuberant over the phone.
+- I don't know who Ritzy is and worry it sounds like a gang name and could be someone dodgy.
+- I expect Lucy has told him to tell me about Ritzy. 
+- Ritzy was a nightclub in Tottenham where the rape-gangs would go looking for little white girls.
+- I tell him not to speak to anyone.
+- He laughs and says, *oh, it's just Ritzy*.
+- She's in her 90s and he does odd jobs for her, *all the time*.
+- Paul will do a few odd jobs for my mum and dad over January and February.
+- He seems to be seething with everyone, and deliberately does his own thing and breaks things, then charges £100 an hour.
+- Is he taking advantage of Ritzy?
+
 ## Meeting Paul in Madrid
 
 - I meet Paul at Madrid airport.
@@ -300,17 +314,6 @@ function googleTranslateElementInit() {
 - I think Paul managed to spike me and I think there was some *understanding* between my dad and Paul that kind of emerged over the dinner table.
 - Was Paul aware of what my dad had done in Dénia to me and my mother?
 - The better question is was any male unaware of it?
-
-### Ritzy
-
-- When I call Paul from Thailand to arrange to meet him at Madrid airport he's with Ritzy.
-- I don't know who this is and worry it sounds like a gang name and could be someone dodgy.
-- I tell him not to speak to anyone.
-- He laughs and says, *oh, it's just Ritzy*.
-- She's in her 90s and he does odd jobs for her, *all the time*.
-- Paul will do a few odd jobs for my mum and dad over January and February.
-- He seems to be seething with everyone, and deliberately does his own thing and breaks things, then charges £100 an hour.
-- Is he taking advantage of Ritzy?
 
 ### Paul promises me he's not doing heroin
 
