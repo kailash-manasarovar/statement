@@ -338,13 +338,16 @@ function googleTranslateElementInit() {
 
 - Paul and I sit down to a late supper at the hotel.
 - He won't shut up talking.
-- For some reason I decide to call home, and talk to dad for a while.
-- Dad tells a racist(ish) joke and tells me to tell Paul.
-- I find myself giggly, high. I apologize to Paul for being giggly.
+- For some reason I decide to call home, and talk to dad for a while. He's not long out of hospital I guess.
+- Dad tells a racist(ish) joke about Indians and tells me to tell Paul who is of Sri Lankan heritage.
+- I find myself giggly, high.
+- I'm laughing inappropriately.
+- I apologize to Paul for being giggly.
 - Why was I giggly?
-- I think Paul managed to spike me and I think there was some *understanding* between my dad and Paul that kind of emerged over the dinner table.
+- I think Paul managed to spike me at some point.
+- I also think there was some *understanding* between my dad and Paul that kind of emerged over the dinner table that night, in that curiously intuitive way things happen to me when criminal gangs are spiking me with drugs.
 - Was Paul aware of what my dad had done in Dénia to me and my mother?
-- The better question is was any male unaware of it?
+- The better question is, is any male porn-addict worth his subscription unaware of it?
 
 ## Paul promises me he's not doing heroin
 
