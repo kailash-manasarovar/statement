@@ -378,49 +378,68 @@ function googleTranslateElementInit() {
 - The stories he told about his grandfather, mostly, I really wanted to be true.
 - He told those again and again, especially to my dad for some reason.
 
-### Paul the famous chef
+#### Paul the famous chef
 
 - It's another one of his scams.
 - I realize he wants to cook everywhere and talks about cooking as if he's a famous chef so he'll be able to eat.
 - He clearly chooses drugs over food and has done for years.
 
-### Paul's friend Lucy
+## Paul's best friend Lucy
 
-- Paul tells me how I'm one of his best friends in the whole world, that he has only three best friends in the whole world, and I'm one of them.
+- Paul tells me again and again about how I'm one of his best friends in the whole world, that he has only three best friends in the whole world, and that I'm one of them.
 - He tells me this repeatedly.
 - It's weird.
-- I haven't seen the man in twenty years.
+- I haven't seen the man in twenty-five years.
 - Is he trying to butter me up?
 - One of the other best friends of Paul's in the whole world is a woman called Lucy.
 - He mentions her even more.
 - I don't know who she is, but something rings suspicious.
-- Something reminds me of [Lucyfer Adams](../2024/december.md#lucyfer-adams).
+- Something reminds me of [Lucyfer Adams](../2024/december.md#lucyfer-adams) and I suspect this woman Lucy, Paul's best friend who I have never heard of, is one and the same.
+- In early 2026, this is confirmed online that she is the youngest Adam's daughter.
 - I ask Paul how long he's known Lucy. 
 - He says a few years.
 - He talks about how they go on 50k bicycle rides up to Cheshunt and back, stopping at the pub to drink a few pints.
 - Lucy would drink three pints and carry on. Paul would only manage one.
-- The thing is, Paul couldn't walk more than about twenty metres without his ankles giving way and he was talking about these bike rides happening just a year or so before.
-- He seems to be in constant communication with Lucy on WhatsApp, and he calls her too.
+- The thing is, Paul couldn't walk more than about twenty metres without his ankles giving way and he was talking about these bike rides happening just a year or so before, maybe even the previous summer.
+- He's talking shite, but why?
+- Is she asking him to tell me things?
+- He seems to be in constant communication with Lucy on WhatsApp, and he calls her too and chats laughingly and exuberantly.
 - Paul shows me a picture of Lucy on his phone. It's her WhatsApp profile pic.
+- The same woman will [stalk me outside the Elephant pub in North Finchley](april.md#theres-something-in-the-water) later in the year shouting, *there's something in the water*, repeatedly; a reference to the Cano Lopez's adding poisons to the water mains at my flat in Las Marinas.
+
+### Lucy gets Paul to show me her new girlfriend
+
+- Lucy texts Paul instructing him to show me her new girlfriend.
+- I have no idea why anyone might think I would be interested in such a thing, but Paul does what he is told.
+- I'm shown a photo of a long dark haired woman who is semi or fully naked in front of a full length mirror beside a bed.
+- There is plastic covering the floor and I'm reminded of Mike Wenham.
+- I wonder what this woman is about to do; it seems like some sort of self-harming is going on.
+- I realize this *Lucy* is manipulating this woman into doing porn for her and I feel quite unwell.
 
 ### The gay bar
 
-- When I'm back in London prior to going to get my stuff I see Paul a lot.
-- We use his car to visit Glastonbury as mine is in Madrid.
+- I return to London for about a week before going to get my stuff from Spain in early February.
+- I also have a Transforming Touch course to attend in Dublin.
+- When I'm back in London, I see Paul a lot.
+- We use his car as mine is in Madrid.
+- I pay him to take me to the airport and pick me up.
+- He's helpful.
 - He's around a lot. 
-- One day, we're in the Old White Lion in N2.
+- One Sunday, we're in the Old White Lion in N2.
 - There's a menacing bloke at an opposite table.
 - He gets a WhatsApp and suddenly says, let's go somewhere else.
 - We head to a bar in Highgate Village which is apparently a gay bar.
-- There's no reason for this.
-- He explains it's a place he often goes to with [Lucy](#pauls-friend-lucy).
+- There's no reason for us going there.
+- He explains it's a place he often goes to with his best friend [Lucy](#pauls-friend-lucy).
 - He suggests we sit on the raised table in the window.
 - I say no.
-- Two women sit close by us. I'm pretty sure one of them is his friend Lucy.
-- Is Lucy the youngest Adams' daughter?
-- How does Paul really know her and for what purpose?
+- Two women sit close by us.
+- I'm pretty sure one of them is his friend Lucy.
+- I'm told online in early 2026 that this Lucy is the youngest Adams' daughter and has been stalking me online since September 2023.
+- How does Paul really know her?
 - At the time, I'm certain he has been instructed to take me to this pub so I can be "viewed".
 - Does he get a payment for his services while I'm in the toilet?
+- He did seem to get quiet that night.
 
 ## Harassment in UK
 
