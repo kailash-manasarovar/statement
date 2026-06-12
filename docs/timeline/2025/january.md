@@ -164,7 +164,12 @@ function googleTranslateElementInit() {
 - Paul Pompeus is an old friend of mine and I hadn't seen him since I was living in Hastings with my ex-boyfriend Brian in the Autumn of 2001.
 - I'm terrified, however, and desperate for someone to accompany me to the police in Madrid and help me move my belongings from Dénia, but I struggle to ask people for help, for obvious reasons.
 - [After Nicos says he'll help me then ghosts me](../2024/december.md#my-belgian-friend-says-he-will-help-me), Paul seems like a good option.
-- He was *very* friendly with me online in June 2024 when I was campaigning for the UK general election, but I never saw him in person at that time.
+- Nicolas made a huge fuss of being concerned about me.
+- He's the man [I visited during EthCC](../2024/july.md#meeting-my-belgian-friend), a family friend of my dad, in fact, who incidentally became ridiculously jealous about my mother and his father. 
+- I wonder about that now.
+- When I message him asking if he's coming like he said he would be, he says something about having to take his children to school.
+- Is he a criminal-porn subscriber too?
+- It would not surprise me.
 
 !!! danger "Asking for help"
     - When a sexual abuse victim asks for help they are typically ignored, fastidiously disbelieved, sometimes even attacked, rarely heard.
@@ -177,27 +182,26 @@ function googleTranslateElementInit() {
     - They probably believe their own BS.
 
 - I'm not enjoying any of this, by the way.
-- Anyway, in January 2025, I'm telling my story online and it is alarming some people I know; thankfully they're not all lost, I think, now with a big maybe.
-- A Belgian friend Nicos - who [I visited during EthCC](../2024/july.md#meeting-my-belgian-friend) seems to be extremely concerned about me.
-- He says he'll come and help me, but then he then doesn't contact me at all for a few days. 
-- He ghosts me, in fact, and when I message him he says something about having to take his children to school.
-- What has he heard? Is he a criminal-porn subscriber too?
-- It would not surprise me.
-- I ask Paul, my [old friend who connected with me the previous June](../2024/june.md#social-media-and-paul), if he will help me go to the police in Madrid in the first week of January, and if he will help me move my belongings back to London in February too.
+- Paul was *very* friendly with me online in June 2024 when I was campaigning for the UK general election and fighting the British criminal gangs who endlessly stalked me at that time, with the help of the police and government, but I never saw Paul in person at that time or I probably wouldn't have bothered asking him for help.
+- I ask Paul, my [old friend who connected with me the previous June](../2024/june.md#social-media-and-paul), if he will help me go to the police in Madrid in the first week of January, and if he will help me move my belongings back to London from Dénia in February too.
 - He agrees.
-- He's working for the British criminal gangs, in fact, and they are paying him in drugs to keep an eye on me.
-- I suspect this, especially once he starts telling me about his best friend Lucy, but I let him dig his own grave.
+- What I don't know immediately is that he's working for the British criminal gangs, in fact, and they are paying him in drugs to keep an eye on me.
+- I do suspect this however, especially once he starts telling me about his *best friend* Lucy, but I let him dig his own grave.
 
-!!! danger "Grooming and the CB radio"
-    - Paul and a group of his mates were groomed over the CB radio by a gay man called Dennis in the 70s.
-    - CB radio was the first ever social media and, as you might imagine, pedophiles and predators immediately made use of it to get close to their chosen targets.
-    - The mass online grooming going on today would have blown their minds.
-    - Dennis groomed the boys into believing that he was a replacement for their parents, convincing Paul of the utter uselessness of his own father.
-    - This group of 14 year old boys would go and hang out with this gay adult male at his house and elsewhere.
-    - Paul's parents were horrified, and rightly so, but groomers know very well which children to target and whatever they tried to do about it failed.
-    - Paul never got over it and, to this day, he believes Dennis was a force for good in his life.
-    - In fact, I believe this is what drew me and Paul together as friends in the 90s, and made drugs and alcohol so appealing; our shared child sexual grooming experiences.
-    - I wasn't to know for sometime that he knew all about Ugly and my ex-boyfriend Brian's criminal activities in Amsterdam in 2001 (they were very close mates), and potential repeat of that in Hastings with the boys not long after.
+### Paul is a victim of sexual grooming too
+
+- And everyone knows it, except Paul.
+- Paul and a group of his mates were groomed over the CB radio by a gay man called Dennis in the 70s.
+- CB radio was the first ever social media and, as you might imagine, pedophiles and predators immediately made use of it to get close to their chosen targets.
+- The mass online grooming going on today would have blown their minds.
+- Dennis groomed the boys into believing that he was a replacement for their parents, convincing Paul of the utter uselessness of his own father.
+- This group of 14 year old boys would go and hang out with this gay adult male at his house and elsewhere.
+- Paul's parents were horrified, and rightly so, but groomers know very well which children to target and whatever they tried to do about it failed.
+- Paul never got over it and, to this day, he believes Dennis was a force for good in his life.
+- In fact, I believe this is what drew me and Paul together as friends in the 90s, and made drugs and alcohol so appealing; our shared child sexual grooming experiences.
+- I wasn't to know for sometime that he knew all about Ugly and my ex-boyfriend Brian's criminal activities in Amsterdam in 2001 (they were very close mates), and potential repeat of that in Hastings with the boys not long after.
+
+## Meeting Paul in Madrid
 
 - I meet Paul at Madrid airport.
 - I picked the car up there the day before.
