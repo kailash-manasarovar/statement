@@ -159,6 +159,18 @@ function googleTranslateElementInit() {
 - Google searches confirm the Max Power theme in January 2025, with multiple results on the search terms: *1frgvn x* related to porn channel Max Power.
 - It's worth considering that these references were just another attempt to throw someone under the bus, in this case a petty porn distribution company, suggesting that the more mainstream companies such as PornHub, etc, are up to their necks in criminal porn content produced in Dénia and Las Marinas, maybe even brokering *special requests* for victims from their loving audiences.
 
+!!! tip "How pissed I am!"
+    - It's extraordinary that I have detailed hundreds of British and Irish, and other nationalities, murder victims targeted over many many decades, with photos, and it's years later, and I'm still alive (up yours British and Spanish police and governments!) and I'm still writing about the blatant criminality in Dénia and North London and nothing has been done!
+    - Extraordinary!
+    - The scoop of the millennia gets scoopier and scoopier with every delay.
+    - Feels like the total collapse of society is coming when we find out what men are doing to women, and have been doing to women for decades, and how, apart from some token arrests, they are totally protected indeed urged to carry on regardless.
+    - Feels to me like the UK is worse than Afghanistan for women and girls.
+    - At least there you never bump into the evil bastards cos you're not allowed out of the house, or to speak to anyone either.
+    - I'm thinking about developing mutism for myself.
+    - I might as well be mute, don't you think.
+
+    ![Women silenced, sedated, raped by masses of snickering men](../../content/images/women-silenced-sedated-raped.png)
+
 ## Paul
 
 - Paul Pompeus is an old friend of mine and I hadn't seen him since I was living in Hastings with my ex-boyfriend Brian in the Autumn of 2001.
