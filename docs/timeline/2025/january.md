@@ -213,14 +213,23 @@ function googleTranslateElementInit() {
 - The mass online grooming going on today would have blown their minds.
 - Dennis groomed the boys into believing that he was a replacement for their parents, convincing Paul of the utter uselessness of his own father.
 - This group of 14 year old boys would go and hang out with this gay adult male at his house and elsewhere.
-- Paul's parents were horrified, and rightly so, but groomers know very well which children to target and whatever they tried to do about it failed.
+- Paul told me they would masturbate each other, and that a pedophile tried to get into bed with one of the other boys.
+- He said these things as if they proved nothing was wrong with the situation, but I was truly horrified at what he was telling me.
+- Paul's parents were horrified too, and rightly so, but groomers know very well which children to target and whatever they tried to do about the situation failed.
+- Dennis had taken over the boys' minds against their parents.
 - Paul never got over it and, to this day, he believes Dennis was a force for good in his life.
-- In fact, I believe this is what drew me and Paul together as friends in the 90s, and made drugs and alcohol so appealing; our shared child sexual grooming experiences.
-- I wasn't to know for sometime that he knew all about Ugly and my ex-boyfriend Brian's criminal activities in Amsterdam in 2001 (they were very close mates), and potential repeat of that in Hastings with the boys not long after.
+- In fact, I believe this is what drew me and Paul together as friends in the 90s - aside from perhaps the pedophile porn I was starring in that everyone but myself knew about.
+- Our shared child sexual grooming experiences made drugs and alcohol very appealing.
+- I wasn't to know until late 2025 that Paul knew all about [Ugly and my ex-boyfriend Brian's criminal activities in Amsterdam in 2001](../2001-to-2010/2001.md#amsterdam) (Paul and Brian were very close mates at the time), and I suspect there was a potential repeat of the sedating-and-raping in Hastings with the boys not long after.
+- In fact, the last time I ever saw Paul was that night [he turned up with the boys](../2001-to-2010/2001.md#the-boys-come-round) and Brian became apoplectic with jealousy about something he couldn't tell me about, and the boys left before anyone else got up and I never saw any of them again.
+- Did they scurry away ashamed? Unable to face looking me in the eye the next morning?
+- Seems likely.
 
 ## Meeting Paul in Madrid
 
 - I meet Paul at Madrid airport.
+- He looks like an Ouderkerk ghoul, like someone who has chosen drugs over food for many years, like someone who does a lot of drugs all the time.
+- He reminds me of [how Busby looked outside the Rape Crisis centre in Hornsey in 2017](../2011-to-2020/2017.md#rape-crisis-hornsey).
 - I picked the car up there the day before.
 - It was at the airport garage for two months.
 - Hackers have been warning me about getting in the car, and when I do get in the car after two months I immediately start feeling symptoms of unwellness: scratchy throat, rheumatic pains in my hands.
