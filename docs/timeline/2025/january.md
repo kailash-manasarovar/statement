@@ -630,8 +630,21 @@ function googleTranslateElementInit() {
 - They're not denying it.
 - Is it possible to lose the arrogance that ensures this belief is never questioned, even though just ten years ago no-one in their right minds would have believed it in the same way they would have never bought into the *born in the wrong body* whopper.
 - There is another explanation for Steve's reactions towards me which is somewhat, no, a whole lot biblical; but I'll leave that for the ponderers but just to say it involves a whole lot of jealousy and two thousand years of severely psychopathic woman-hating that has not abated in any way at all.
-- I wonder who Helen was.
+- I wonder who Helen was. Marta maybe?
 - To quote Helen... I believe this section is important concerning the *right message* and the vile lies that have taken over our world - you didn't notice?
+
+### An early dream about Helen and BKS
+
+- Some time after I had been drugged, attacked, and made famous in pedo-rape-porn in 1989, I started to get into spiritual stuff; Castaneda that sort of thing.
+- I had no memories of what had happened to me while sedated with Winston May but clearly the trauma was huge as my daily life was nearly impossible.
+- I practiced dreaming techniques from Castaneda's instructions, it was quite interesting and experimental.
+- I was also getting interested in Hinduism (without realizing it) from some of the books I was reading. 
+- I read spiritual books voraciously (I don't read at all now, apart from ACIM, and we know why.. brain-damage ahem.)
+- Anyway, one night I asked for a dream (you can do that) to show me my gurus. 
+- Two people turned up.
+- The first was an old Indian man at the front door, which I opened. I didn't recognize him at the time but he was, in fact, BKS Iyengar and I wasn't to get into yoga practice with him for 10 years and I only realized it was him in the dream much later (cos my yoga practice was fiercely non-woo-woo for years).
+- The other woman was Helen Schucman. I also had no idea who this woman was until probably 20 years later when I saw a picture of her and slowly remembered she'd popped her head around my bedroom door to see me sleeping.
+- Cool, innit.
 
 ## I've been injected somehow
 
