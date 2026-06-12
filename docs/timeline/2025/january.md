@@ -652,17 +652,22 @@ function googleTranslateElementInit() {
 - I scratch it, just a little, and it starts to bleed.
 - Not a little, a whole lot; in fact it does not stop bleeding rather profusely for hours.
 - I have a whole bin of bloody tissues I was using to try to staunch it, which didn't work at all.
+- It was so bloody I felt I had to show someone; and I did. I showed my parents but we understand now they are 100% working for the porn-gangs so they're utterly unreliable.
 - It feels like I was stuck here, injected I mean, without my knowledge.
 - Could Paul have done this?
 - Could it explain my mind's continued fogginess?
 - Was it another failed attempt to murder me?
+- In June 2026, there is still a little raised bump at this spot on my arm.
 
 ## Justice is a miracle
 
-- For all those many millions of men self-harming with porn, and destroying our beautiful world in the process, a reckoning is due, and that is a loving act, i.e. a miracle.
+- For all those many millions of men self-harming with porn, and destroying our beautiful world in the process, a reckoning is due, and that is a loving act, i.e. a miracle because it is unloving to let people hurt themselves through total madness.
 - For all those many many millions of men and women who believe the lies fed to us by porn-gangs interested in making money off the misery of humanity, it's time to get your heads straight.
 - Yes, it might be painful, but that is just egocentric fear, and a very dangerous sort of fear as JC puts it in the course.
 - Well, he's right isn't he.
-- He came back in the nick of time, but I guess we needed a full demonstration of how mad our hatred of each other can get.
+- He came back in the nick of time, but I guess we needed a full demonstration of how mad our hatred of each other can get, not that we needed one having had so many recent examples.
+- But these lies we believe today are something else, aren't they, don't you agree?
+- The lies that we cannot mention or people will go quite mad and maybe get violent towards us.
 - Are we gonna let it go on?
 - Haven't we had enough yet?
+- Will the world be destroyed by bare arrogance?
