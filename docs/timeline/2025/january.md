@@ -415,7 +415,8 @@ function googleTranslateElementInit() {
 - It's astonishing.
 - Is she really telling me that whatever I have uncovered about porn-industry infiltration of Spanish schools is irrelevant because I was sedated and raped as a child by groups of Jamaican men in North London?
 - A few days later, Inma tells me that the poisoning laboratory told her they will not test my samples without an order from the police.
-- They're just ignoring the fate of their own children by blaming a victim. It's more than astonishing and it was around this time I started to realize that Spanish are sacrificing their own children to porn; Topheth style.
+- They're just ignoring the fate of their own children by blaming a victim. It's more than astonishing and it was around this time I started to realize that the Spanish are sacrificing their own children and babies to porn; Topheth style.
+- God cannot let this go on. Please God sort them out IMMEDIATELY!!!!!
 
 ## Paul's best friend Lucy
 
