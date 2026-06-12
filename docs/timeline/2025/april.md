@@ -108,7 +108,7 @@
 - A couple of people, a youngish short woman with blond hair who was with someone else, steam past us. 
 - She is saying loudly, "There's something in the water. There's something in the water."
 - I think I recognize her.
-- It's [Lucy](january.md#pauls-friend-lucy).
+- It's [Lucy](january.md#pauls-best-friend-lucy).
 - Paul's "friend".
 - I recognize her because he showed me her picture on his phone.
 - The jeering is, obviously, a reference to the poisoning at my Spanish apartment.

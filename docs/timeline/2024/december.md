@@ -388,7 +388,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - A yappy stalker account flies by a lot over the month.
 - The account name is "Lucyfer Adams".
 - I note it as significant without knowing why.
-- When I meet Paul - tasked with distracting me, topping me up, persuading me to travel to more illicit-porn filming locations, and God knows what else - in early January he will tell me about [his best mate Lucy](../2025/january.md#pauls-friend-lucy).
+- When I meet Paul - tasked with distracting me, topping me up, persuading me to travel to more illicit-porn filming locations, and God knows what else - in early January he will tell me about [his best mate Lucy](../2025/january.md#pauls-best-friend-lucy).
 - Lucy is clearly a criminal gang member and I will bump into her a couple of times over the next few months in dubious circumstances.
 - Is she the *Adams*, Adams?
 - Are they offering her up too?

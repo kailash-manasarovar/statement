@@ -399,22 +399,23 @@ function googleTranslateElementInit() {
 - I ask Paul how long he's known Lucy. 
 - He says a few years.
 - He talks about how they go on 50k bicycle rides up to Cheshunt and back, stopping at the pub to drink a few pints.
-- Lucy would drink three pints and carry on. Paul would only manage one.
+- Lucy would drink three pints and carry on. Paul would only manage one, he said.
 - The thing is, Paul couldn't walk more than about twenty metres without his ankles giving way and he was talking about these bike rides happening just a year or so before, maybe even the previous summer.
 - He's talking shite, but why?
 - Is she asking him to tell me things?
 - He seems to be in constant communication with Lucy on WhatsApp, and he calls her too and chats laughingly and exuberantly.
-- Paul shows me a picture of Lucy on his phone. It's her WhatsApp profile pic.
-- The same woman will [stalk me outside the Elephant pub in North Finchley](april.md#theres-something-in-the-water) later in the year shouting, *there's something in the water*, repeatedly; a reference to the Cano Lopez's adding poisons to the water mains at my flat in Las Marinas.
+- Paul shows me a picture of Lucy on his phone.
+- It's her WhatsApp profile pic.
+- The same woman [stalks me outside the Elephant pub in North Finchley](april.md#theres-something-in-the-water) later in the year shouting, *there's something in the water*, repeatedly; a reference to the Cano Lopez's adding poisons to the water mains at my flat in Las Marinas.
 
 ### Lucy gets Paul to show me her new girlfriend
 
 - Lucy texts Paul instructing him to show me her new girlfriend.
 - I have no idea why anyone might think I would be interested in such a thing, but Paul does what he is told.
 - I'm shown a photo of a long dark haired woman who is semi or fully naked in front of a full length mirror beside a bed.
-- There is plastic covering the floor and I'm reminded of Mike Wenham.
-- I wonder what this woman is about to do; it seems like some sort of self-harming is going on.
-- I realize this *Lucy* is manipulating this woman into doing porn for her and I feel quite unwell.
+- There is plastic sheeting covering the floor, and I'm reminded of Mike Wenham murdering Carolina.
+- I wonder what this woman is about to do; it seems like some sort of self-harming is about to go on.
+- I realize this *Lucy* is manipulating this woman into doing porn for her, and I feel quite unwell.
 
 ### The gay bar
 
@@ -423,6 +424,7 @@ function googleTranslateElementInit() {
 - When I'm back in London, I see Paul a lot.
 - We use his car as mine is in Madrid.
 - I pay him to take me to the airport and pick me up.
+- I buy him meals; he's obviously not eating.
 - He's helpful.
 - He's around a lot. 
 - One Sunday, we're in the Old White Lion in N2.
@@ -430,16 +432,16 @@ function googleTranslateElementInit() {
 - He gets a WhatsApp and suddenly says, let's go somewhere else.
 - We head to a bar in Highgate Village which is apparently a gay bar.
 - There's no reason for us going there.
-- He explains it's a place he often goes to with his best friend [Lucy](#pauls-friend-lucy).
+- He explains it's a place he often goes to with his best friend [Lucy](#pauls-best-friend-lucy) who's a lesbian.
 - He suggests we sit on the raised table in the window.
 - I say no.
 - Two women sit close by us.
-- I'm pretty sure one of them is his friend Lucy.
-- I'm told online in early 2026 that this Lucy is the youngest Adams' daughter and has been stalking me online since September 2023.
+- I'm pretty sure one of them is his friend Lucy, I recognize her from the WhatsApp profile pic Paul showed me.
+- I'm told online in early 2026 that this Lucy is the youngest Adams' daughter and that she has been stalking me online since September 2023 with varying X accounts `@LucyInBetween` being one such account.
 - How does Paul really know her?
 - At the time, I'm certain he has been instructed to take me to this pub so I can be "viewed".
 - Does he get a payment for his services while I'm in the toilet?
-- He did seem to get quiet that night.
+- He did seem to go quiet that night, which wasn't unwelcome.
 
 ## Harassment in UK
 
