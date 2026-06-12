@@ -324,13 +324,13 @@ function googleTranslateElementInit() {
 ## Paul tells me he's proud of his ten-year-old son telling him he's bisexual
 
 - At dinner, and over the next couple of months, we talk about family a little.
-- Paul is upset with his family because they wrote him out of the will because he spent 10k on drugs that was supposed to be for doing the house up.
+- Paul is upset with his family because they wrote him out of the will because he spent 10k (possibly a low estimate just for me) on drugs that was supposed to be for doing his parent's house up and selling it.
 - It seems he's always involved in one scam or another to drum up drugs-funds.
-- I understand why he lives in his car... more money for drugs.
-- His older son was living with a crackhead over twenty years his senior, apparently.
+- I understand why he lives in his car now... money for drugs.
+- His older son was living with a violent crackhead over twenty years his senior, apparently.
 - I'm even more concerned about his attitude towards his younger son and how *proud he was* when his son told him he was bisexual.
-- I think the boy was 8 at the time, Paul said.
-- No-one seems to realize that they've all been manipulated by North London and Spanish criminal gangs into believing the most outrageous things concerning sex and children, just so they'll be able to sell more criminal porn at extortionate prices.
+- I think Paul said the boy was 8 at the time.
+- No-one seems to realize that they've all been manipulated by North London and Spanish criminal gangs into believing the most outrageous things concerning sex and children, just so these non-humans can sell more criminal porn to even more broken minds at extortionate prices.
 - And they're mostly gonna be too arrogant to admit they were tricked!
 
 ## Dinner at the hotel in Madrid
