@@ -179,7 +179,7 @@ function googleTranslateElementInit() {
 - Nicolas made a huge fuss of being concerned about me.
 - He's the man [I visited during EthCC](../2024/july.md#meeting-my-belgian-friend), a family friend of my dad, in fact, who incidentally became ridiculously jealous about my mother and Nicos' father Patrick on an occasion they visited. 
 - Now that the mask has slipped, never to return, I do wonder what was really behind that.
-- When I message a few days later him asking if he's coming like he said he would be, he says something vague about having to take his children to school.
+- When I message him a few days later to ask if he's coming like he said he would be, he says something vague about having to take his children to school.
 - Are the Belgian family-friends criminal-porn subscribers too?
 - Have they all masturbated over me being raped by groups of black men when I was a child?
 - It would not surprise me one bit.
@@ -188,7 +188,8 @@ function googleTranslateElementInit() {
 
 !!! danger "Asking for help"
     - When a sexual abuse victim asks for help they are typically ignored, fastidiously disbelieved, sometimes even attacked, rarely heard.
-    - Before it became obvious to me that I had been mass-targeted by British and Spanish criminal gangs for decades, I used to think that [Hazel had tried to poison me back in 2007](../2001-to-2010/2007.md#hazel-tries-to-kill-me) as an unconscious and irrational attack on a similarly sexually abused person from belief in the lie that attacking someone just like her would somehow help her heal from her own experience - the human mind is very insane after all.
+    - Before it became obvious to me that I had been mass-targeted by British and Spanish criminal gangs for decades, I used to think that [Hazel had tried to poison me back in 2007](../2001-to-2010/2007.md#hazel-tries-to-kill-me) as an unconscious and irrational attack on a similarly sexually abused person.
+    - This urge would have come from her belief in the lie that attacking someone just like her would somehow help her heal from her own experience - or deflect the guilt rather - the human mind is very insane after all.
     - I told people I had been physically attacked by someone because I was a victim of sexual abuse for that reason - without telling anyone the fuller story. 
     - This was how I understood what had happened to me at her hands in 2007; criminal psychopathy triggered by someone reminding her of her own experience of sexual abuse.
     - I guess I'm still right about that - without the fuller story.
