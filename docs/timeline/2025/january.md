@@ -384,6 +384,37 @@ function googleTranslateElementInit() {
 - I realize he wants to cook everywhere and talks about cooking as if he's a famous chef so he'll be able to eat.
 - He clearly chooses drugs over food and has done for years.
 
+## Madrid policia 
+
+- In Madrid on 6th January, without Paul.
+- I picked Paul up the evening before at the airport but he's alarmed me so much I have to send him home.
+- I send Paul home because his drug-addiction has made him look like a beggar man and I can't possibly bring him to the police station with me looking like he does.
+- I had wanted a man to come with me for support, but Paul needs more help than anyone else.
+- He also seems to be on something because he cannot shut up; or the North London porn gangs, still panicking about my continued survival, have instructed him to distract me, to not let me think, and so he's shouting continuously at me.
+- I buy him a plane ticket and send him home.
+- Later, he tells me that UK border police give him a DNA test at the airport in the UK on arrival; a cheek swab.
+- I find that extremely interesting.
+- So, only Inma and I attend the police station in Calle Huertas on 7th January to report malicious poisoning and bring samples and a timeline of events; our [second visit](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
+- They're totally disinterested.
+- I tell them I have samples of poisoned items for testing.
+- Just like they told me I had to pay to privately prove hacking before they'd investigate hacking, they tell me I have to pay a private laboratory to confirm poisoning before they'll investigate poisoning!
+- I hand them my 200 page printed report (an early draft of this statement and the original intention for writing it)...
+- The chief throws it on the table in disgust, and instructs his officer to "send it to Dénia".
+- But not before flicking through it and pointing to some of the women - photos I have printed in high resolution - including [Elsa](../2024/august.md#18) and the [innocent women](../2024/august.md#grooming-an-innocent-girl-into-porn-101) groomed (and drugged) into doing porn.
+- The chief says, "who's that?", pointing to them.
+- I tell him that Elsa is Domingo Cano Lopez's piano student at the conservatory and I don't know who the innocent woman is.
+- The chief says nothing.
+- They want nothing to do with me.
+- I suspect the report goes in the bin once we've left.
+- Later that evening over tea, Inma talks about how I used to be interested in Haitian spiritual practices ([I wrote a novel in Lourdes using Haiti as a theme](https://www.amazon.co.uk/Life-Without-Liar-Margaret-Murphy/dp/1500734381)) in a semi-condemning manner.
+- I explain that Mother Mary introduced me to the practice, and it turned out to be a strong psychological protective barrier against my fear of the Jamaican rape-gangs from 1989.
+- Inma goes into the kitchen and returns after a while with a slice of Reyes cake.
+- I bite into something hard. It's a little figure of the black wise-man of the three kings.
+- She's telling me something... 
+- I think it is that everyone believes I'm the guilty one because I was raped by black men when I was a child.
+- Is she really telling me that whatever I have uncovered about porn-industry infiltration of Spanish schools is irrelevant because I was sedated and raped as a child by groups of Jamaican men in North London?
+- A few days later, Inma tells me that the poisoning laboratory told her they will not test my samples without an order from the police.
+
 ## Paul's best friend Lucy
 
 - Paul tells me again and again about how I'm one of his best friends in the whole world, that he has only three best friends in the whole world, and that I'm one of them.
@@ -402,11 +433,11 @@ function googleTranslateElementInit() {
 - Lucy would drink three pints and carry on. Paul would only manage one, he said.
 - The thing is, Paul couldn't walk more than about twenty metres without his ankles giving way and he was talking about these bike rides happening just a year or so before, maybe even the previous summer.
 - He's talking shite, but why?
-- Is she asking him to tell me things?
-- He seems to be in constant communication with Lucy on WhatsApp, and he calls her too and chats laughingly and exuberantly.
+- Is she telling him to tell me things, with a promise of some drug or other?
+- He seems to be in constant communication with Lucy on WhatsApp while I'm with Paul, and he calls her too and chats laughingly and exuberantly.
 - Paul shows me a picture of Lucy on his phone.
 - It's her WhatsApp profile pic.
-- The same woman [stalks me outside the Elephant pub in North Finchley](april.md#theres-something-in-the-water) later in the year shouting, *there's something in the water*, repeatedly; a reference to the Cano Lopez's adding poisons to the water mains at my flat in Las Marinas.
+- The same woman [stalks me outside the Elephant pub in North Finchley](april.md#theres-something-in-the-water) later in the year shouting, *there's something in the water*, repeatedly; a reference to the Cano Lopez's adding drugs and poisons to the water mains at their victim's flats in Las Marinas and elsewhere.
 
 ### Lucy gets Paul to show me her new girlfriend
 
@@ -464,37 +495,6 @@ function googleTranslateElementInit() {
 - I try to explain it to myself as pure misogynistic gaslighting, but there's something more to it than that
 - I start to wonder about Michael's poor health and body paralysis.
 - I explain, gently, to Michael that perhaps if a reporter was to come and do detox with him, he might like to mention my book which includes a short description of my stay at the end of July 2022.
-
-## Madrid policia 
-
-- In Madrid on 6th January.
-- I picked Paul up the evening before at the airport but he's alarmed me so much I have to send him home.
-- I send Paul home because his drug-addiction has made him look like a beggar man and I can't possibly bring him to the police station with me looking like he does.
-- I had wanted a man to come with me for support, but Paul needs more help than anyone else.
-- He also seems to be on something because he cannot shut up; or the North London porn gangs, still panicking about my continued survival, have instructed him to distract me, to not let me think, and so he's shouting continuously at me.
-- I buy him a plane ticket and send him home.
-- Later, he tells me that UK border police give him a DNA test at the airport in the UK on arrival; a cheek swab.
-- I find that extremely interesting.
-- So, only Inma and I attend the police station in Calle Huertas on 7th January to report malicious poisoning and bring samples and a timeline of events; our [second visit](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
-- They're totally disinterested.
-- I tell them I have samples of poisoned items for testing.
-- Just like they told me I had to pay to privately prove hacking before they'd investigate hacking, they tell me I have to pay a private laboratory to confirm poisoning before they'll investigate poisoning!
-- I hand them my 200 page printed report (an early draft of this statement and the original intention for writing it)...
-- The chief throws it on the table in disgust, and instructs his officer to "send it to Dénia".
-- But not before flicking through it and pointing to some of the women - photos I have printed in high resolution - including [Elsa](../2024/august.md#18) and the [innocent women](../2024/august.md#grooming-an-innocent-girl-into-porn-101) groomed (and drugged) into doing porn.
-- The chief says, "who's that?", pointing to them.
-- I tell him that Elsa is Domingo Cano Lopez's piano student at the conservatory and I don't know who the innocent woman is.
-- The chief says nothing.
-- They want nothing to do with me.
-- I suspect the report goes in the bin once we've left.
-- Later that evening over tea, Inma talks about how I used to be interested in Haitian spiritual practices ([I wrote a novel in Lourdes using Haiti as a theme](https://www.amazon.co.uk/Life-Without-Liar-Margaret-Murphy/dp/1500734381)) in a semi-condemning manner.
-- I explain that Mother Mary introduced me to the practice, and it turned out to be a strong psychological protective barrier against my fear of the Jamaican rape-gangs from 1989.
-- Inma goes into the kitchen and returns after a while with a slice of Reyes cake.
-- I bite into something hard. It's a little figure of the black wise-man of the three kings.
-- She's telling me something... 
-- I think it is that everyone believes I'm the guilty one because I was raped by black men when I was a child.
-- Is she really telling me that whatever I have uncovered about porn-industry infiltration of Spanish schools is irrelevant because I was sedated and raped as a child by groups of Jamaican men in North London?
-- A few days later, Inma tells me that the poisoning laboratory told her they will not test my samples without an order from the police.
 
 ## Seonaid Dawn and Granny Smith
 
