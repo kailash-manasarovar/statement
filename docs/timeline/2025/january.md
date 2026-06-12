@@ -610,8 +610,35 @@ function googleTranslateElementInit() {
 - While we're in the shop with the notebook, the bookseller from the shop over the road runs in excitedly, hopping around like they do, breathing hard, and looking at me in glances.
 - Another horror-porn fan.
 
-## TT in Dublin
+## Transforming Touch in Dublin
 
-- Module 3 again.
-- I ask Steve if I can come to Israel with him.
+- It's Module 3 again at the Avila centre.
+- Something prompts me to ask Steve if he needs an assistant for Israel.
 - He says yes.
+- I book my flights immediately.
+- I believe God gave me a little nudge on that, and I'm so happy to be returning after all these years.
+- I also tell Steve that I believe I'm an international porn star and have been for decades.
+- He laughs.
+- Not just a little laugh; a resounding bellow that gets larger which each guffaw.
+- I'm utterly horrified, and I do not understand it at all.
+- Later, at the hotel, he appears to tell me in a roundabout way that he has a large penis.
+- Again, I do not understand any of this and I'm rather horrified, but I love Steve so give him a hug and say goodnight.
+- I cannot believe men have become so lost that they think sedating and raping women in their own homes is OK, normal, what they do!
+- But, there is yet another lie propagated by the British and Spanish manipulators to the whole wide world, just like the preposterous idea that sterilizing children is a good thing, a vile lie that supports this irrational and hateful view of women and children as porn fodder.
+- And that lie is, *sex work is work*, yet another piece of BS in support of criminal porn and sterilizing children.
+- Yes, it's that lot once again.
+- They're not denying it.
+- Is it possible to lose the arrogance that ensures this belief is never questioned, even though just ten years ago no-one in their right minds would have believed it in the same way they would have never bought into the *born in the wrong body* whopper.
+- There is another explanation for Steve's reactions towards me which is somewhat, no, a whole lot biblical; but I'll leave that for the ponderers but just to say it involves a whole lot of jealousy and two thousand years of severely psychopathic woman-hating that has not abated in any way at all.
+- I wonder who Helen was.
+
+## I've been injected somehow
+
+- In my bedroom one night at 31 Trinity, I notice a bump on my right arm close to my elbow.
+- I scratch it, just a little, and it starts to bleed.
+- Not a little, a whole lot; in fact it does not stop bleeding rather profusely for hours.
+- I have a whole bin of bloody tissues I was using to try to staunch it, which didn't work at all.
+- It feels like I was stuck here, injected I mean, without my knowledge.
+- Could Paul have done this?
+- Could it explain my mind's continued fogginess?
+- Was it another failed attempt to murder me?
