@@ -321,18 +321,23 @@ function googleTranslateElementInit() {
 - I give him my coat and a decent woolen jumper and tell him not to sell them.
 - I think about the many good people I know in North London whose lives have been destroyed by rampant criminal gang activity that the police will do nothing about.
 
-## Paul tells me he's proud of his ten-year-old son telling him he's bisexual
+#### Paul promises me he's not doing heroin
 
-- At dinner, and over the next couple of months, we talk about family a little.
-- Paul is upset with his family because they wrote him out of the will because he spent 10k (possibly a low estimate just for me) on drugs that was supposed to be for doing his parent's house up and selling it.
-- It seems he's always involved in one scam or another to drum up drugs-funds.
-- I understand why he lives in his car now... money for drugs.
-- His older son was living with a violent crackhead over twenty years his senior, apparently.
-- I'm even more concerned about his attitude towards his younger son and how *proud he was* when his son told him he was bisexual.
-- I think Paul said the boy was 8 at the time.
-- No-one seems to realize that they've all been manipulated by North London and Spanish criminal gangs into believing the most outrageous things concerning sex and children, just so these non-humans can sell more criminal porn to even more broken minds at extortionate prices.
-- And they're mostly gonna be too arrogant to admit they were tricked!
-- Makes me despair.
+- It seems obvious to me Paul has been doing heroin, but he's adamant he is off the drugs since July 2024 and was only doing crack then, no heroin.
+- Even so, I take my handbag to the toilet when I go I'm so concerned about him.
+- I explain I'm sending him home because he looks like a drug addict and I wanted someone to be there for me who would command a bit of respect.
+- He goes into a massive meltdown about how he's never done heroin and it's all my fault for suggesting it, and how I'm always telling lies about everyone, and how dare I.. that sort of thing.
+- It's quite a performance, so I tell him fair enough, and I let it go, and immediately change his flight.
+
+#### Writing about Paul's weird behavior
+
+- I take the opportunity to write a few notes in here about Paul (knowing that everyone is reading them and assuming there's a massive investigation going on) because I'm so concerned about him.
+- I commit a description of him arriving at Madrid airport on his BA flight but not going through to arrivals and instead waiting where the little train stops until I call him.
+- It's the sort of thing you'd do if you didn't want to walk through customs/border control on your own looking like he does.
+- I wonder if he had some drugs on him.
+- Did someone tell him to do that; to wait for me?
+- After I send Paul home, he tells me when I next see him that police at Heathrow had searched him and even taken a DNA swab from his mouth.
+- I take this as more proof of the big investigation going on, but perhaps he's lying about this too.
 
 ## Dinner at the hotel in Madrid
 
@@ -349,32 +354,29 @@ function googleTranslateElementInit() {
 - Was Paul aware of what my dad had done in Dénia to me and my mother?
 - The better question is, is any male porn-addict worth his subscription unaware of it?
 
-## Paul promises me he's not doing heroin
+## Paul tells me he's proud of his ten-year-old son telling him he's bisexual
 
-- It seems obvious to me Paul has been doing heroin, but he's adamant he is off the drugs since July 2024 and was only doing crack.
-- Even so, I take my handbag to the toilet when I go I'm so concerned about him.
-- I explain I'm sending him home because he looks like a drug addict and I wanted someone to be there for me who would command a bit of respect.
-- He goes into a massive meltdown about how he's never done heroin and it's all my fault for suggesting it, and how I'm always telling lies about everyone, and how dare I.. that sort of thing.
-- It's quite a performance, so I tell him fair enough and I let it go.
-
-### Writing about Paul in my book
-
-- I take the opportunity to write a few notes in here about Paul (knowing that everyone is reading them and assuming there's a massive investigation going on) because I'm so concerned about him.
-- I commit a description of him arriving at Madrid airport on his BA flight but not going through to arrivals and instead waiting where the little train stops until I call him.
-- It's the sort of thing you'd do if you didn't want to walk through customs/border control on your own looking like he does.
-- I wonder if he had some drugs on him.
-- Did someone tell him to do that; to wait for me?
-- After I send Paul home, he tells me when I next see him that police at Heathrow had searched him and even taken a DNA swab from his mouth.
-- I take this as more proof of the big investigation going on, but perhaps he's lying about this too.
+- At dinner, and over the next couple of months, we talk about family a little.
+- Paul is upset with his family because they wrote him out of the will because he spent 10k (possibly a low estimate just for me) on drugs that was supposed to be for doing his parent's house up and selling it.
+- It seems he's always involved in one scam or another to drum up drugs-funds.
+- I understand why he lives in his car now... money for drugs.
+- His older son was living with a violent crackhead over twenty years his senior, apparently.
+- I'm even more concerned about his attitude towards his younger son and how *proud he was* when his son told him he was bisexual.
+- I think Paul said the boy was 8 at the time.
+- No-one seems to realize that they've all been manipulated by North London and Spanish criminal gangs into believing the most outrageous things concerning sex and children, just so these non-humans can sell more criminal porn to even more broken minds at extortionate prices.
+- And they're mostly gonna be too arrogant to admit they were tricked!
+- Makes me despair.
 
 ### Paul's lies about the Royal Family, and other things
 
-- Paul told me a lot of stories, most of them lies I expect, I hope.
-- He did mention that he had met both Charles and Diana because his grandfather had been the chief librarian at the Times and they came in when he was there and knew his grandfather by name.
+- Paul tells me a lot of stories, most of them lies I expect, I hope.
+- He mentioned repeatedly that he had met both Charles and Diana because his grandfather had been the chief librarian at the Times and they came in when he was there and they knew his grandfather by name.
 - He told another story about Diana bumping into him in Camden High Street somewhere when she was hounded by paparazzi and he had caught her and she remembered him by name.
 - Paul told a great deal of porkies while we were together. 
 - Some were really nasty stories about people I knew, and you could tell he was trying to "get them back" for something.
+- The story he told about Niall Higgins dressed in stockings and suspenders was a bit upsetting.
 - The stories he told about his grandfather, mostly, I really wanted to be true.
+- He told those again and again, especially to my dad for some reason.
 
 ### Paul the famous chef
 
