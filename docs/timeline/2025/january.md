@@ -228,20 +228,24 @@ function googleTranslateElementInit() {
 ## Meeting Paul in Madrid
 
 - I meet Paul at Madrid airport.
-- He looks like an Ouderkerk ghoul, like someone who has chosen drugs over food for many years, like someone who does a lot of drugs all the time.
+- He looks like an Ouderkerk ghoul, like someone who has chosen drugs over food for many years, like someone who does a lot of seriously hard drugs all the time.
+- He's borrowed clothes from the man he is apparently living with (it's a lie, he lives in his car) and it looks like he leant him rags.
 - He reminds me of [how Busby looked outside the Rape Crisis centre in Hornsey in 2017](../2011-to-2020/2017.md#rape-crisis-hornsey).
-- I picked the car up there the day before.
-- It was at the airport garage for two months.
-- Hackers have been warning me about getting in the car, and when I do get in the car after two months I immediately start feeling symptoms of unwellness: scratchy throat, rheumatic pains in my hands.
-- We stay at a Eurostars hotel on the outskirts of the city but near enough to drive in.
-- I've asked Paul to bring masks and gloves because I believe the car is poisoned with pesticides.
-- Paul is emaciated; skin and bone.
-- He looks like he has been doing seriously hard drugs for decades.
-- He reminds me of Winston May's accomplice I saw outside [Rape Crisis Hornsey](../2011-to-2020/2017.md#rape-crisis-hornsey), Busby.
-- Bizarrely, Paul did not come through to the arrivals hall at Madrid airport. Instead, he waits at the shuttle train station for about an hour.
+- I tell Paul he's like a beggar man.
+- The day before I meet Paul at the airport, I picked the car which I had parked in the public car park close to departures.
+- My car was at the airport garage in Madrid for two months.
+- Hackers had been warning me about getting in the car, and when I do get in the car after two months I immediately start feeling symptoms of unwellness: scratchy throat, rheumatic pains in my hands.
+- I book a Eurostars hotel on the outskirts of the city for a few nights.
+- I go to pick up Paul the next evening.
+- I've bought him his ticket with British airways from London.
+- I asked Paul to bring masks and gloves because I believe the car is poisoned with pesticides.
+- He does so, but he's not taking anything I'm telling him seriously.
+- In fact, he's not shutting up, as if he's speeding, hard.
+- Bizarrely, Paul did not come through to the arrivals hall at Madrid airport.
+- Instead, he waits at the shuttle train station for about an hour until I phone him.
 - When I arrive, I call him.
 - He's been there over an hour and he sort of pretends he doesn't know where he is or how to get out, and I tell him to come to arrivals as I'm collecting my bag.
-- Paul is far from stupid so this behavior concerns me enough to write about it in an earlier commit on the same evening.
+- Paul is far from stupid so this behavior concerns me enough to write about it - informing the law enforcement I believe are also hacking me - in an earlier commit on the same evening.
 - I delete the content later on as Paul does help me a lot and I feel a bit guilty about thinking badly of him.
 - I comment on the deletion.
 
@@ -257,24 +261,33 @@ function googleTranslateElementInit() {
 - I wonder if he was given advice about that because it seems an odd thing to think up if you didn't have anything to worry about.
 - Paul looks like one of the drug ghouls that used to roam around in a junkie shoal around the Oudekerk in Amsterdam.
 - I tell him this and rebook his return flight to go home the next day.
-- He is not coming to the police in Madrid with me looking like this.
+- He is not coming to the police in Madrid with me looking like he does.
 - He is offended. 
 - He has already told me he has diabetes which I believe, but diabetes doesn't make you look like he does, or shout incessantly about nothing.
 - He is doing my head in. 
 - I'm trying to think.
 - I tell him to shut up.
-- I feel like someone has told him to distract me constantly so that I do not have a minute to think or collect my thoughts about anything.
-- He tells me he is sharing a flat with a man in North London. It turns out he's sleeping on the sofa and the owner is an opium addict.
+- I feel like someone has told him to distract me constantly so that I do not have a chance to think or collect my thoughts about anything.
+- I'm right about that. Lucy.
+- He tells me he is sharing a flat with a man in North London. It turns out he's sleeping on the sofa but really living in his car and the owner is an opium addict.
 - I find out later he's living in his car and has been for years; he kept it quiet.
 - He tells me he is not a heroin addict.
 - I have to take his word for it but it's hard to believe.
 - Nevertheless, I have no choice but to send him home and go to the police in Madrid without him.
 - I give him my coat and a decent woolen jumper and tell him not to sell them.
-- I think about the many good people I know in North London whose lives were destroyed by drugs.
+- I think about the many good people I know in North London whose lives have been destroyed by drugs.
 
 ### Paul tells me he's proud of his ten-year-old son telling him he's bisexual
 
-- More sick results from the Denia manipulation fest world-wide.
+- We talk about family a little.
+- Paul is upset with his family because they wrote him out of the will because he spent 10k on drugs that was supposed to be for doing the house up.
+- It seems he's always involved in one scam or another to drum up drugs-funds.
+- I understand why he lives in his car... more money for drugs.
+- His older son was living with a crackhead over twenty years his senior, apparently.
+- I'm even more concerned about his attitude towards his younger son and how *proud he was* when his son told him he was bisexual.
+- I think the boy was 8 at the time, Paul said.
+- No-one seems to realize that they've all been manipulated by North London and Spanish criminal gangs into believing the most outrageous things concerning sex and children, just so they'll be able to sell more criminal porn at extortionate prices.
+- And they're mostly gonna be too arrogant to admit they were tricked!
 
 ### Dinner at the hotel in Madrid
 
