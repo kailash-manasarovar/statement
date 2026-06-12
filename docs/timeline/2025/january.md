@@ -400,7 +400,7 @@ function googleTranslateElementInit() {
 - Just like they told me I had to pay to privately prove hacking before they'd investigate hacking, they tell me I have to pay a private laboratory to confirm poisoning before they'll investigate poisoning!
 - I hand them my 200 page printed report (an early draft of this statement and the original intention for writing it)...
 - The chief throws it on the table in disgust, and instructs his officer to "send it to Dénia".
-- But not before flicking through it and pointing to some of the women - photos I have printed in high resolution - including [Elsa, Domingo's minor student in clear peril](../2024/august.md#18) and the [innocent women](../2024/august.md#grooming-an-innocent-girl-into-porn-101) groomed (and drugged) into doing porn by Gloria the school receptionist's brother.
+- But not before flicking through it and pointing to some of the women - photos I have printed in high resolution - including [Elsa, Domingo's minor student in clear peril](../2024/august.md#18) and the [innocent women](../2024/august.md#grooming-an-innocent-girl-into-porn-101) groomed (and drugged) into doing porn by Gloria the school receptionist's brother Bruno.
 - The chief says, "who's that?", pointing to them.
 - I tell him that Elsa is Domingo Cano Lopez's piano student at the conservatory and I don't know who the innocent woman is.
 - The chief says nothing.
@@ -408,6 +408,7 @@ function googleTranslateElementInit() {
 - I suspect the report goes in the bin once we've left.
 - Later that evening over tea, Inma talks about how I used to be interested in Haitian spiritual practices ([I wrote a novel in Lourdes using Haiti as a theme](https://www.amazon.co.uk/Life-Without-Liar-Margaret-Murphy/dp/1500734381)) in a semi-condemning manner.
 - I explain that Mother Mary introduced me to the practice, and it turned out to be a strong psychological protective barrier against my fear of the Jamaican rape-gangs from 1989.
+- The gospel of Mary Magdalene talks about Mother Mary sending her angels to help people and I firmly believe that is what happened with the lwa, and with Archangel Michael, and with Hanuman too.
 - Inma goes into the kitchen and returns after a while with a slice of Reyes cake.
 - I bite into something hard. It's a little figure of the black wise-man of the three kings.
 - She's telling me something... 
@@ -420,10 +421,12 @@ function googleTranslateElementInit() {
 
 !!! tip "Inma still tries to contact me regularly"
     - I'm never sure what exactly she wants.
-    - It seems clear that back in October 2024, her and Paloma's interaction with me was to decide whether to tell the gangs to go ahead and murder me, which they attempted immediately once I was also fired from my job.
-    - The other times I heard from her, it seems like someone was about to try to murder me again.
-    - What could she want by contacting me?
-    - I hope it's Spanish government anxiety. That would be most welcome.
+    - It seems clear that back in October 2024, her and Paloma's interaction with me was to decide whether to tell the gangs to go ahead and murder me, which they attempted immediately once I was also fired from my job at Polygon.
+    - They failed.
+    - The other times I heard from her, it seems like someone was about to try to murder me again, certainly in July 2025 in Lourdes that is *exactly* what [the Spanish woman calling herself Taya who also appears to be involved in multiple other murders](july.md#eyes-and-kidneys-again-and-heart-now-too) intended for me.
+    - What could Inma want by continually contacting me?
+    - I hope it's Spanish government anxiety.
+    - That would be most welcome.
     - Perverts!
 
 ## Paul's best friend Lucy
