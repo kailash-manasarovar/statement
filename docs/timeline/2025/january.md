@@ -177,15 +177,15 @@ function googleTranslateElementInit() {
 - I'm terrified, however, and desperate for someone to accompany me to the police in Madrid and help me move my belongings from Dénia, but I struggle to ask people for help, for obvious reasons.
 - [After Nicos says he'll help me then ghosts me](../2024/december.md#my-belgian-friend-says-he-will-help-me), Paul seems like a good option.
 - Nicolas made a huge fuss of being concerned about me.
-- He's the man [I visited during EthCC](../2024/july.md#meeting-my-belgian-friend), a family friend of my dad, in fact, who incidentally became ridiculously jealous about my mother and his father. 
+- He's the man [I visited during EthCC](../2024/july.md#meeting-my-belgian-friend), a family friend of my dad, in fact, who incidentally became ridiculously jealous about my mother and his father on an occasion they visited. 
 - I wonder about that now.
-- When I message him asking if he's coming like he said he would be, he says something about having to take his children to school.
+- When I message a few days later him asking if he's coming like he said he would be, he says something vague about having to take his children to school.
 - Is he a criminal-porn subscriber too?
 - It would not surprise me.
 
 !!! danger "Asking for help"
     - When a sexual abuse victim asks for help they are typically ignored, fastidiously disbelieved, sometimes even attacked, rarely heard.
-    - Before it became obvious to me that I had been mass-targeted by British and Spanish criminal gangs for decades, I used to think that Hazel had tried to poison me back in 2007 as an attack on a similarly sexually abused person and I told people I had been attacked by someone for that reason -  without telling anyone the fuller story. 
+    - Before it became obvious to me that I had been mass-targeted by British and Spanish criminal gangs for decades, I used to think that Hazel had tried to poison me back in 2007 as an attack on a similarly sexually abused person and I told people I had been physically attacked by someone for that reason -  without telling anyone the fuller story. 
     - This was how I understood what had happened to me at her hands in 2007; criminal psychopathy triggered by someone reminding her of her own experience of sexual abuse.
     - It gets to the stage you realize you have to do everything for yourself.
     - It's exhausting, but can you imagine how exhausted I am, the most sedated-and-raped woman that ever walked the planet?
@@ -195,10 +195,10 @@ function googleTranslateElementInit() {
 
 - I'm not enjoying any of this, by the way.
 - Paul was *very* friendly with me online in June 2024 when I was campaigning for the UK general election and fighting the British criminal gangs who endlessly stalked me at that time, with the help of the police and government, but I never saw Paul in person at that time or I probably wouldn't have bothered asking him for help.
-- I ask Paul, my [old friend who connected with me the previous June](../2024/june.md#social-media-and-paul), if he will help me go to the police in Madrid in the first week of January, and if he will help me move my belongings back to London from Dénia in February too.
+- Nevertheless, there is no-one else, so I ask [Paul](../2024/june.md#social-media-and-paul) if he will help me go to the police in Madrid in the first week of January, and if he will help me move my belongings back to London from Dénia in February too.
 - He agrees.
-- What I don't know immediately is that he's working for the British criminal gangs, in fact, and they are paying him in drugs to keep an eye on me.
-- I do suspect this however, especially once he starts telling me about his *best friend* Lucy, but I let him dig his own grave.
+- What I don't know immediately is that he's working for the British criminal gangs, in fact, and they are paying him in drugs to keep an eye on me and keep me topped up with hallucinogens too so I don't remember the switcheroo scam or any of a plethora of other sexually-humiliating events directed by the gangs for me over many years in my homes, in my jobs, everywhere.
+- I do suspect him however, especially once he starts telling me about his *very best friend* Lucy, who I suspect is one of the Adams family, but I let him dig his own grave and he obliges most kindly.
 
 ### Paul is a victim of sexual grooming too
 
