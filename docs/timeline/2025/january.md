@@ -643,3 +643,13 @@ function googleTranslateElementInit() {
 - Could Paul have done this?
 - Could it explain my mind's continued fogginess?
 - Was it another failed attempt to murder me?
+
+## Justice is a miracle
+
+- For all those many millions of men self-harming with porn, and destroying our beautiful world in the process, a reckoning is due, and that is a loving act, i.e. a miracle.
+- For all those many many millions of men and women who believe the lies fed to us by porn-gangs interested in making money off the misery of humanity, it's time to get your heads straight.
+- Yes, it might be painful, but that is just egocentric fear, and a very dangerous sort of fear as JC puts it in the course.
+- Well, he's right isn't he.
+- He came back in the nick of time, but I guess we needed a full demonstration of how mad our hatred of each other can get.
+- Are we gonna let it go on?
+- Haven't we had enough yet?
