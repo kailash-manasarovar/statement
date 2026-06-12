@@ -297,6 +297,9 @@ function googleTranslateElementInit() {
 - Dad tells a racist(ish) joke and tells me to tell Paul.
 - I find myself giggly, high. I apologize to Paul for being giggly.
 - Why was I giggly?
+- I think Paul managed to spike me and I think there was some *understanding* between my dad and Paul that kind of emerged over the dinner table.
+- Was Paul aware of what my dad had done in Dénia to me and my mother?
+- The better question is was any male unaware of it?
 
 ### Ritzy
 
