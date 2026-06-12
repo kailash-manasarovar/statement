@@ -400,7 +400,7 @@ function googleTranslateElementInit() {
 - Just like they told me I had to pay to privately prove hacking before they'd investigate hacking, they tell me I have to pay a private laboratory to confirm poisoning before they'll investigate poisoning!
 - I hand them my 200 page printed report (an early draft of this statement and the original intention for writing it)...
 - The chief throws it on the table in disgust, and instructs his officer to "send it to Dénia".
-- But not before flicking through it and pointing to some of the women - photos I have printed in high resolution - including [Elsa](../2024/august.md#18) and the [innocent women](../2024/august.md#grooming-an-innocent-girl-into-porn-101) groomed (and drugged) into doing porn.
+- But not before flicking through it and pointing to some of the women - photos I have printed in high resolution - including [Elsa, Domingo's minor student in clear peril](../2024/august.md#18) and the [innocent women](../2024/august.md#grooming-an-innocent-girl-into-porn-101) groomed (and drugged) into doing porn by Gloria the school receptionist's brother.
 - The chief says, "who's that?", pointing to them.
 - I tell him that Elsa is Domingo Cano Lopez's piano student at the conservatory and I don't know who the innocent woman is.
 - The chief says nothing.
@@ -411,9 +411,11 @@ function googleTranslateElementInit() {
 - Inma goes into the kitchen and returns after a while with a slice of Reyes cake.
 - I bite into something hard. It's a little figure of the black wise-man of the three kings.
 - She's telling me something... 
-- I think it is that everyone believes I'm the guilty one because I was raped by black men when I was a child.
+- I think she is trying to tell me that everyone believes I'm the guilty one because I was raped by black men when I was a child!
+- It's astonishing.
 - Is she really telling me that whatever I have uncovered about porn-industry infiltration of Spanish schools is irrelevant because I was sedated and raped as a child by groups of Jamaican men in North London?
 - A few days later, Inma tells me that the poisoning laboratory told her they will not test my samples without an order from the police.
+- They're just ignoring the fate of their own children by blaming a victim. It's more than astonishing and it was around this time I started to realize that Spanish are sacrificing their own children to porn; Topheth style.
 
 ## Paul's best friend Lucy
 
