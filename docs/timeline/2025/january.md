@@ -427,7 +427,7 @@ function googleTranslateElementInit() {
     - What could Inma want by continually contacting me?
     - I hope it's Spanish government anxiety.
     - That would be most welcome.
-    - Perverts and pedophiles!
+    - Pervert and pedophile protectors!
 
 ## Paul's best friend Lucy
 
