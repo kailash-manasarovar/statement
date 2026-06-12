@@ -332,6 +332,7 @@ function googleTranslateElementInit() {
 - I think Paul said the boy was 8 at the time.
 - No-one seems to realize that they've all been manipulated by North London and Spanish criminal gangs into believing the most outrageous things concerning sex and children, just so these non-humans can sell more criminal porn to even more broken minds at extortionate prices.
 - And they're mostly gonna be too arrogant to admit they were tricked!
+- Makes me despair.
 
 ## Dinner at the hotel in Madrid
 
