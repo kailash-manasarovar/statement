@@ -196,14 +196,14 @@ function googleTranslateElementInit() {
     - It gets to the stage you realize you have to do everything for yourself.
     - It's exhausting, but can you imagine how exhausted I am, the most sedated-and-raped woman that ever walked the planet?
     - You just stop asking for help, as it is a waste of time.
-    - It seems like the cult of the sexual predator is so powerful, so thoroughly protected, and controls everyone's mind, that even your own family ends up despising you, even when the men in your family are complicit.
+    - It seems like the cult of the sexual predator is so powerful, so thoroughly protected, and controls everyone's minds, that even your own family ends up despising you, even when the men in your family are complicit.
     - They probably believe their own BS.
 
 - I'm not enjoying any of this, by the way.
 - Paul was *very* friendly with me online in June 2024 when I was campaigning for the UK general election and fighting the British criminal gangs who endlessly stalked me at that time, with the help of the police and government, but I never saw Paul in person at that time or I probably wouldn't have bothered asking him for help.
 - Nevertheless, there is no-one else, so I ask [Paul](../2024/june.md#social-media-and-paul) if he will help me go to the police in Madrid in the first week of January, and if he will help me move my belongings back to London from Dénia in February too.
 - He agrees.
-- What I don't know immediately is that he's working for the British criminal gangs, in fact, and they are paying him in drugs to keep an eye on me and keep me topped up with hallucinogens too so I don't remember the switcheroo scam or any of a plethora of other sexually-humiliating events directed by the gangs for me over many years in my homes, in my jobs, everywhere.
+- What I don't know immediately is that he's working for the British criminal gangs, in fact, and they are paying him in drugs to keep an eye on me and keep me topped up with hallucinogens too so I don't remember the switcheroo scam or any of a plethora of other sexually-humiliating events directed by the gangs for me over many years in my homes, at my jobs, everywhere.
 - I do suspect him however, especially once he starts telling me about his *very best friend* Lucy, who I suspect is one of the Adams family, but I let him dig his own grave and he obliges most kindly.
 
 ### Paul is a victim of sexual grooming too
@@ -252,7 +252,7 @@ function googleTranslateElementInit() {
 - I tell Paul not to speak to anyone at all.
 - He laughs and says, *oh, it's just Ritzy*.
 - She's in her 90s and he does odd jobs for her, *all the time*.
-- Paul will do a few odd jobs for my mum and dad over January and February.
+- Paul will do a few odd jobs for my elderly parents over January and February.
 - His exuberance quickly shifts into seething, I think when he realizes I'm not going to be giving him any drugs money.
 - He deliberately does his own thing, and breaks things, then charges £100 an hour.
 - He really pissed my mother off.
@@ -263,19 +263,19 @@ function googleTranslateElementInit() {
 
 - I meet Paul at Madrid airport.
 - He looks like an Ouderkerk ghoul, like someone who has chosen drugs over food for many years, like someone who does a lot of seriously hard drugs all the time.
-- He's borrowed clothes from the man he is apparently living with (it's a lie, he lives in his car) and it looks like he leant him rags.
+- He's borrowed clothes from the man he is apparently living with (it's a lie, he lives in his car) and it looks like the man leant him rags.
 - He reminds me of [how Busby, Winston May's rape-gang partner, looked outside the Rape Crisis centre in Hornsey in 2017](../2011-to-2020/2017.md#rape-crisis-hornsey).
 - I tell Paul he looks like a beggar man.
-- The day before I meet Paul at the airport, I collected the car which I had parked in the public car park close to departures.
+- The day before I meet Paul at the airport, I collected the car which I had parked in car park B close to departures.
 - My car was at the airport garage in Madrid for two months.
-- Hackers had been warning me about getting in the car, and when I do get in the car after two months I immediately start feeling symptoms of unwellness: scratchy throat, rheumatic pains in my hands.
+- Hackers had been warning me not to get in the car at the airport, not to drive, and when I do get in the car after two months I immediately start feeling symptoms of unwellness: scratchy throat, rheumatic pains in my hands.
 - This hand-pain becomes a recurrent theme from criminal gang members stalking me in 2025, and the wheel and gearstick appear to *still* be poisonous to the hands even in March 2026.
 - I book a Eurostars hotel on the outskirts of the city for a few nights.
 - I go to pick up Paul the next evening.
 - I bought him his ticket with British Airways from London.
 - I asked Paul to bring masks and gloves because I believe the car is poisoned with pesticides.
 - He does so, but he's not taking anything I'm telling him seriously.
-- In fact, he won't shut up, as if he's speeding, hard.
+- In fact, when I meet him he won't shut up, as if he's speeding, hard.
 
 ### Paul avoids coming through to arrivals on his own
 
@@ -285,8 +285,8 @@ function googleTranslateElementInit() {
 - He's been there over an hour and he sort of pretends he doesn't know where he is or how to get out, and I tell him to come to arrivals as I'm collecting my bag.
 - Paul is far from stupid so this behavior concerns me enough to write about it - informing the law enforcement agencies who are also hacking me - in an earlier commit on the same evening.
 - I delete the content later on as Paul does help me a lot and I feel a bit guilty about thinking badly of him.
-- This tendency has been problematic for me and I wonder if I just hated everyone things would be very different.
-- I make a comment on the deleted text.
+- This tendency has been problematic for me and I wonder if I just hated everyone like normal people do in this world, things might be very different.
+- I make a comment on the text I delete.
 
 !!! tip "Deleted commit content"
     - Regarding deleted commit content, I'm now unsure of who I can trust anywhere in the world.
@@ -294,26 +294,30 @@ function googleTranslateElementInit() {
     - Anything that might be a risk to my life, I have to take measures against, even if the risk appears to be low.
 
 - I'm justifying to myself why I don't trust Paul, as if it was needed.
+- I'm also horrified to notice how much I gaslight myself, and understand this is mostly caused by attitudes from the people around me and anyone I ask for help.
 - Paul talks non-stop like a machine gun.
 - He seems to be on drugs.
-- I'm convinced he's doing serious drugs and has drugs on him, and that he didn't want to come through to arrivals in case he was stopped.
+- I'm convinced he's doing serious drugs and has drugs on him, and that he didn't want to come through to arrivals on his own in case he was stopped.
 - I'm convinced he waited for me so that he would look more legit walking through with me.
-- I also believe he was told to do that cos he wouldn't think it up himself.
+- I also believe he was told to do that by the gangs, cos I'm pretty sure he wouldn't think up such a scheme himself.
 - Paul looks like one of the drug ghouls that used to roam around in a junkie shoal around the Oudekerk in Amsterdam.
-- I tell him this and rebook his return flight to go home the next day.
-- He is not coming to the police in Madrid with me looking like he does.
+- I tell him this, that I cannot have him at the police looking like he does, and I rebook his return flight to return to London the next day.
 - He is offended. 
 - He has already told me he has diabetes which I believe, but diabetes doesn't make you look like he does, or shout incessantly about nothing.
 - He is doing my head in. 
-- I'm trying to think.
+- And I'm trying to think.
 - I tell him to shut up.
-- I feel like someone has told him to distract me constantly so that I do not have a chance to think or collect my thoughts about anything.
+- I feel like someone has told him to distract me constantly so that I do not have a chance to think rationally or collect my thoughts about anything.
 - I'm right about that. Lucy.
-- He tells me he is sharing a flat with a man in North London. It turns out he's sleeping on the sofa but really living in his car and the owner is an opium addict.
-- I find out later he's living in his car and has been for years; he kept it quiet.
-- He tells me he is not a heroin addict.
-- I have to take his word for it but it's hard to believe.
-- Nevertheless, I have no choice but to send him home and go to the police in Madrid without him.
+- I tell him I believe the gangs plan on raping me to death and live-streaming it throughout the criminal porn networks.
+- I'm pretty sure that was their end goal from way back in 2007 even.
+- He calls them the *c* word.
+- From time to time, he seems to be on my side, but never for too long.
+- He tells me he is sharing a flat with a man in North London. It turns out he's sleeping on the sofa, the flat owner is an opium addict, and he's really been living in his car for years.
+- I find out later he's living in his car and has been for years when he starts telling me about how he manages not getting cold at winter, about avoiding the police, about where he can use the free wifi, etc; he kept his car-house quiet for as long as he could.
+- He tells me he is not a heroin addict but everything about him screams otherwise.
+- Nevertheless, I have to take his word for it, but it's hard to believe.
+- Even so, I have no choice but to send him home and go to the police in Madrid without him.
 - I give him my coat and a decent woolen jumper and tell him not to sell them.
 - I think about the many good people I know in North London whose lives have been destroyed by rampant criminal gang activity that the police will do nothing about.
 
