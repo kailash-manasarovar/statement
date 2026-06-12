@@ -161,30 +161,38 @@ function googleTranslateElementInit() {
 
 ## Paul
 
-- I need someone to help me move from Denia but I struggle to ask people for help, for obvious reasons.
+- Paul Pompeus is an old friend of mine and I have seen him since I was living in Hastings with my ex-boyfriend Brian in the Autumn of 2001.
+- I'm terrified, and desperate for someone to help me move from Dénia but I struggle to ask people for help, for obvious reasons.
 
 !!! danger "Asking for help"
     - When a sexual abuse victim asks for help they are typically ignored, fastidiously disbelieved, sometimes even attacked, rarely heard.
     - It gets to the stage you realize you have to do everything for yourself.
-    - You stop asking for help as it is a waste of time.
-    - It seems like the cult of the sexual predator is so powerful, and controls everyone's mind, that even your own family despises you.
+    - It's exhausting, but can you imagine how exhausted I am, most sedated-and-raped woman that ever walked the planet?
+    - You stop asking for help, as it is a waste of time.
+    - It seems like the cult of the sexual predator is so powerful, so thoroughly protected, and controls everyone's mind, that even your own family ends up despising you, even when the men are complicit.
+    - They probably believe their own BS.
 
-- I'm telling my story online and it is alarming some friends.
-- A Belgian friend Nicos - who [I visited during EthCC](../2024/july.md#meeting-my-belgian-friend) is extremely concerned and says he'll come and help me but he then doesn't contact me for a few days. 
-- He ghosts me, in fact, and when I message him he says something about his children.
-- What has he heard?
-- I ask Paul, my [old friend who connected with me the previous June](../2024/june.md#social-media-and-paul), if he will help me go to the police in Madrid, and help me move too.
+- Anyway, I'm telling my story online and it is alarming some people I know, thankfully they're not all lost, maybe.
+- A Belgian friend Nicos - who [I visited during EthCC](../2024/july.md#meeting-my-belgian-friend) seems to be extremely concerned about me.
+- He says he'll come and help me, but then he then doesn't contact me at all for a few days. 
+- He ghosts me, in fact, and when I message him he says something about having to take his children to school.
+- What has he heard? Is he a criminal-porn subscriber too?
+- It would not surprise me.
+- I ask Paul, my [old friend who connected with me the previous June](../2024/june.md#social-media-and-paul), if he will help me go to the police in Madrid in the first week of January, and if he will help me move my belongings back to London in February too.
 - He agrees.
+- He's working for the British criminal gangs, in fact, and they are paying him in drugs to keep an eye on me.
+- I suspect this, especially once he starts telling me about his best friend Lucy, but I let him dig his own grave.
 
 !!! danger "Grooming and the CB radio"
-    - Paul and a group of boys were groomed over the CB radio by a gay man called Dennis in the 70s.
-    - CB radio was the first ever social media and, as you might imagine, pedophiles and predators immediately made use of it to get close to targets.
+    - Paul and a group of his mates were groomed over the CB radio by a gay man called Dennis in the 70s.
+    - CB radio was the first ever social media and, as you might imagine, pedophiles and predators immediately made use of it to get close to their chosen targets.
     - The mass online grooming going on today would have blown their minds.
-    - Dennis convinced the boys that he was a decent replacement for their parents, convincing Paul of the utter uselessness of his own father.
+    - Dennis groomed the boys into believing that he was a replacement for their parents, convincing Paul of the utter uselessness of his own father.
     - This group of 14 year old boys would go and hang out with this gay adult male at his house and elsewhere.
     - Paul's parents were horrified, and rightly so, but groomers know very well which children to target and whatever they tried to do about it failed.
     - Paul never got over it and, to this day, he believes Dennis was a force for good in his life.
-    - In fact, I believe this is what drew me and Paul together and made drugs and alcohol so appealing; our shared child sexual grooming experiences.
+    - In fact, I believe this is what drew me and Paul together as friends in the 90s, and made drugs and alcohol so appealing; our shared child sexual grooming experiences.
+    - I wasn't to know for sometime that he knew all about Ugly and my ex-boyfriend Brian's criminal activities in Amsterdam in 2001 (they were very close mates), and potential repeat of that in Hastings with the boys not long after.
 
 - I meet Paul at Madrid airport.
 - I picked the car up there the day before.
