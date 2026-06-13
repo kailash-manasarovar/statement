@@ -413,24 +413,27 @@ function googleTranslateElementInit() {
 - The Madrid police - gender violence experts - in January 2025 are totally disinterested in my assertion that criminals have been poisoning me in my own home.
 - I tell them I have samples of poisoned items for testing; including water from my taps and bathroom products.
 - Just like they told me I had to pay to privately prove hacking before they'd investigate hacking, they tell me I have to pay a private laboratory to confirm poisoning before they'll investigate poisoning!
-- It seems like they're working for the poisoning pedophile and sedating-rape-pornographer thugs who have set up pedo-porn-studios in the music schools doesn't it?
+- It seems like they're working for the poisoning pedophile and sedating-rape-pornographer thugs who have set up pedo-porn-studios in Spanish music and dance schools doesn't it?
 - Someone has told them I'm to be ignored, completely.
 - I'm not surprised.
 - I hand them my 200 page printed report (an early draft of this statement and the original intention for writing it)...
 - The chief throws it on the table in disgust - he's behaving in a very defensive, angry, and guilty manner. 
 - He instructs his officer to "send it to Dénia".
-- But not before flicking through it and pointing to some of the women - photos I have printed in high resolution - including [Elsa, Domingo's minor student in clear peril](../2024/august.md#18) and the [innocent women](../2024/august.md#grooming-an-innocent-girl-into-porn-101) groomed (and drugged) into doing porn by Gloria the school receptionist's brother Bruno.
-- The chief says, "who's that?", pointing to them.
+- But not before flicking through it and pointing to some of the women - photos I have printed in high resolution - including [Elsa, Domingo's minor student in clear peril](../2024/august.md#18) and the [innocent woman](../2024/august.md#grooming-an-innocent-girl-into-porn-101) groomed (and drugged) into doing porn and having a child with Gloria the school receptionist's brother Bruno.
+- The chief barks, "who's that?", pointing to them.
 - I tell him that Elsa is Domingo Cano Lopez's piano student at the conservatory and I don't know who the innocent woman is.
 - The chief says nothing.
 - They want nothing to do with me.
 - I suspect the report goes in the bin once we've left.
-- Later that evening over tea, Inma talks about how I used to be interested in Haitian spiritual practices ([I wrote a novel in Lourdes using Haiti as a theme](https://www.amazon.co.uk/Life-Without-Liar-Margaret-Murphy/dp/1500734381)) in a semi-condemning manner.
-- I explain that Mother Mary introduced me to the practice, and it turned out to be a strong psychological protective barrier against my fear of the Jamaican rape-gangs from 1989.
-- The gospel of Mary Magdalene talks about Mother Mary sending her angels to help people and I firmly believe that is what happened with the lwa, and with Archangel Michael, and with Hanuman too.
+- Later that evening over tea, Inma talks about how I used to be interested in Haitian spiritual practices ([I wrote a multi-universe romance novel in Lourdes using Haiti as a part-theme](https://www.amazon.co.uk/Life-Without-Liar-Margaret-Murphy/dp/1500734381)) in a semi-condemning manner.
+- Was she trying to upset me, maybe trigger a suicidal depression - they weren't aware I'd been through the British and Spanish porn-gang suicide manipulation tech-ringer for years already, and survived, so they'll have to do a bit better.
+- I explain that Mother Mary introduced me to the Haitian religious practices, and her doing so provided the strongest psychological protective barrier against my fear of the Jamaican rape-gangs from 1989.
+- Thank you Mary.
+- Interestingly, the gospel of Mary Magdalene talks about Mother Mary sending her angels to help people and I firmly believe that is what happened with the lwa, and with Archangel Michael, and with Hanuman too.
+- Thank you Mary.
 - Inma goes into the kitchen and returns after a while with a slice of Reyes cake.
 - I bite into something hard. It's a little figure of the black wise-man of the three kings.
-- She's telling me something... 
+- *Oh, it's the negro*, she says (using a more derogatory term), but she's telling me something else... 
 - I think she is trying to tell me that everyone believes I'm the guilty one because I was raped by black men when I was a child!
 - It's astonishing.
 - Is she really telling me that whatever I have uncovered about porn-industry infiltration of Spanish schools is irrelevant because I was sedated and raped as a child by groups of Jamaican men in North London?
@@ -443,10 +446,11 @@ function googleTranslateElementInit() {
     - It seems clear that back in October 2024, [her and Paloma's interaction with me](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid) was to decide whether to tell the gangs to go ahead and murder me, which they attempted immediately once I was also fired from my job at Polygon a few days later.
     - They failed, of course.
     - The other times I heard from her, it seems like someone was about to try to murder me again; certainly in July 2025 in Lourdes that is *exactly* what [the Spanish woman calling herself Taya who also appears to be involved in multiple other murders](july.md#eyes-and-kidneys-again-and-heart-now-too) intended for me.
+    - Another spectacular fail.
     - What could Inma want by continually contacting me?
     - I hope it's Spanish government anxiety.
     - That would be most welcome.
-    - Pervert and pedophile protectors!
+    - Brazen pervert-and-pedophile protectors!
 
 ## Paul's best friend Lucy
 
