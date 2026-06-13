@@ -529,7 +529,7 @@ function googleTranslateElementInit() {
 - Oh, except for, that was the night I got angry at him because he told me he had told his family my crypto app makes grands-a-night.
 - He had no reason to say such a thing, and I never said anything remotely like this.
 - He was, however, using the exact words of Winston May, Tottenham rape-gang leader, that I had mentioned in my [2015 police statement](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) that the whole of Spain and North London seemed to be leering over while I wrote it.
-- She told him to say this, Lucy did didn't she, and he had no idea it had come from a known pedophile rape-gang leader.
+- She told him to say this, Lucy did, didn't she, and he had no idea it had come from a known pedophile rape-gang leader as part of an official witnesses Metropolitan police statement about North London rape-gangs.
 
 ## I report hacking, drugging, poisoning, illicit filming, and everything else contained in this statement to the Metropolitan police
 
@@ -557,20 +557,48 @@ function googleTranslateElementInit() {
 - Whenever I try to slow them down and deal with what I do have methodically, they start to rush me, demanding I show them something, and changing the subject when I'm trying to explain something to them.
 - It's very unpleasant.
 - I tell them British children are in danger in Spain. They're not interested.
-- I tell them I was stalked by North London rape-gang members I had already told the police about while I was campaigning for election in July.
-- They want to know who I stood for in the election. I tell them; Party of Women. 
-- They roll their eyes, I think, and get decidedly more aggressive.
-- They're obviously working for the porn-gangs aren't they.
-- They tell me the criminal gang members can go wherever they like. It's not a crime for Winston May, North London rape-gang leader, to turn up to my general election campaign with a story specifically told to me by [someone who is probably a police man (Steve)](../2024/june.md#volunteers-not-what-they-seem) to terrorize me - there is no other explanation for his behavior.
-- It's so incongruent, I'm clearly non-human with zero rights to them, I ask them if they've been told to dismiss everything I'm saying by someone.
+- I tell them many British women have been murdered in Spain. They're not interested.
+- I tell them the gangs are persuading people to kill themselves. They don't care.
+- I tell them I was stalked by North London rape-gang members while I was campaigning for election in July and I had already told the police about that.
+- They want to know who I stood for in the election. I tell them; *Party of Women*. 
+- They roll their eyes and get decidedly more aggressive.
+- They're obviously working for the porn-gangs aren't they, like everyone appears to be.
+- It's amazing!
+- They tell me the criminal gang members can go wherever they like and it's not a crime for Winston May, North London rape-gang leader, to turn up to my general election campaign with a story specifically told to me by [someone who is probably a police man (Steve)](../2024/june.md#volunteers-not-what-they-seem) to terrorize me - there is no other explanation for his behavior.
+- I tell them, item by item you can maybe discount, but the thousands of events I'm trying to tell you about constitute a mass stalking campaign at the very least, and this statement is a goldmine of criminal evidence.
+- They're not interested.
+- The situation is so incongruent, I've clearly somehow gained a non-human status with zero rights in the UK.
+- I ask them if they've been told to dismiss everything I'm saying by someone.
 - They get annoyed.
 - I take their numbers down on my hacked laptop.
-- The blond one says, "Oh, wait, we'll write it down for you." I say, no no, let me put your numbers in here.
+- The blond one says, "Oh, wait wait, we'll write it down for you."
+- I say, no no, let me put your numbers in here directly.
 - She still wants to write the numbers down for me, as if she's worried about whoever is hacking me seeing her details.
-- I believe that's why she doesn't want me to write their details into my hacked laptop.
-- I realize they are going to do nothing for me, as usual, so I let them leave. They were trying to get away from the minute we started to speak. They stayed 20 minutes.
+- I believe that's why she doesn't want me to write their details into my hacked laptop, they know very well who is watching my every move and they're frightened of them.
+- I realize the police are going to do nothing for me, as usual, so I let them leave.
+- They were trying to get away from the minute we started to speak. They stayed 20 minutes.
 
 ![We don't care](../../content/images/we-dont-care.png)
+
+- You can't imagine how stressful it was for me, after everything I've endured, to discover I have no human rights in my own country and anywhere else in the world either.
+
+### My parents and brother appear to be working for the criminal gangs too
+
+- I try to explain to my mother what's been going on.
+- She totally dismisses me, just like the police.
+- It's unfathomable and very hurtful.
+- Robert continues to seethe, just like he has since 2011 when he [lost his mind in Thailand](../2001-to-2010/2010.md#my-brother-loses-his-mind-in-thailand) and signed up for whatever the porn-gangs needed help with (conspiracy to murder me, or convince me to kill myself, at best).
+- Mother only got worse over 2025, and especially so when I remembered that my dad had starred in a sedated-rape-porn video at my house in Joan Fuster in 2015, and that he is pretty famous all over porn-world because of it.
+- Dad didn't say anything to me suggesting he disbelieved any of this and in fact gave me heaps of information about the gangs and his own outrageous betrayals over 2025.
+- When challenged with his actions at two of my houses in Dénia, including when he brought my mother with him to the town and she had a panic attack and went to A&E, and when I remembered he had excitedly told my cousin to visit Dénia, because something *very very good* was happening there that no-one told me about, and my cousin Igor took his young family to learn Spanish with TLC for two weeks one summer (a sedated-rape conspirator organization like the rest of them), he got so angry... he threatened, *I'm going to phone Igor to tell him*... but I wondered what he was going to say to Igor... *just deny everything* maybe? Like they do.
+- No doubt Igor's family will have been badly affected if they sedated them all, which seems likely.
+- Why wouldn't they? It's what they do. They make a lot of money on the criminal porn.
+- Better to make the money on unwitting participants, don't you think that's how they see it?
+- I know that after this event, relationships did break down with Igor's family, and there was illness, not unexpectedly.
+- My mother was sedated and raped too in Dénia at the Hotel Costa Blanca and at my apartment in Joan Fuster with me in the same bed; perhaps it's easier for her to throw me under the bus.
+- During 2025, they'd send me pictures of her in her nappies that they were taking from her hacked devices next to her bed, but she has some kind of brain-fog that refuses to accept all this is going on, which is so weird.
+- Perhaps they control her mind online too. It would not surprise me.
+- Anyway, to go from everything in here, to *my daughter makes it all up*, is a gargantuan and monstrous effort, and could only be fueled by an intense hatred for me coming from a very bad press form the swarms of misogynists around her and an inability to accept that the men of my family are, in fact, monsters.
 
 ## Harassment in UK
 
