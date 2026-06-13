@@ -401,19 +401,24 @@ function googleTranslateElementInit() {
 ## Madrid policia 
 
 - In Madrid on 6th January, without Paul.
-- I picked Paul up the evening before at the airport but he's alarmed me so much I have to send him home.
-- I send Paul home because his drug-addiction has made him look like a beggar man and I can't possibly bring him to the police station with me looking like he does.
-- I had wanted a man to come with me for support, but Paul needs more help than anyone else.
+- Paul alarmed me so much the night before, I have had to send him home.
+- His drug-addiction has made him look like a beggar man and I can't possibly bring him to the police station in Madrid looking like he does.
+- They'll probably nick him!
+- I had wanted a man to come with me for support, but it turns out Paul needs more help than anyone else.
 - He also seems to be on something because he cannot shut up; or the North London porn gangs, still panicking about my continued survival, have instructed him to distract me, to not let me think, and so he's shouting continuously at me.
+- I expect he'll confirm that.
 - I buy him a plane ticket and send him home.
-- Later, he tells me that UK border police give him a DNA test at the airport in the UK on arrival; a cheek swab.
-- I find that extremely interesting.
-- So, only Inma and I attend the police station in Calle Huertas on 7th January to report malicious poisoning and bring samples and a timeline of events; our [second visit](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
-- They're totally disinterested.
-- I tell them I have samples of poisoned items for testing.
+- So, only Inma and I attend the police station in Calle Huertas to report malicious poisoning and bring samples and a timeline of events; our [second visit to amplify the denuncia I already took out on teachers and staff at the conservatory a few days after they smothered me with pillows and my duvet while I was sedated in my own home](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid); actions which made me certain I was going to be murdered.
+- I didn't know they had the Bali tech-bro sedated-rape line-up organized and so they had no intention of murdering me until October when Paloma gave everyone the OK to go ahead and finish me off.
+- The Madrid police - gender violence experts - in January 2025 are totally disinterested in my assertion that criminals have been poisoning me in my own home.
+- I tell them I have samples of poisoned items for testing; including water from my taps and bathroom products.
 - Just like they told me I had to pay to privately prove hacking before they'd investigate hacking, they tell me I have to pay a private laboratory to confirm poisoning before they'll investigate poisoning!
+- It seems like they're working for the poisoning pedophile and sedating-rape-pornographer thugs who have set up pedo-porn-studios in the music schools doesn't it?
+- Someone has told them I'm to be ignored, completely.
+- I'm not surprised.
 - I hand them my 200 page printed report (an early draft of this statement and the original intention for writing it)...
-- The chief throws it on the table in disgust, and instructs his officer to "send it to Dénia".
+- The chief throws it on the table in disgust - he's behaving in a very defensive, angry, and guilty manner. 
+- He instructs his officer to "send it to Dénia".
 - But not before flicking through it and pointing to some of the women - photos I have printed in high resolution - including [Elsa, Domingo's minor student in clear peril](../2024/august.md#18) and the [innocent women](../2024/august.md#grooming-an-innocent-girl-into-porn-101) groomed (and drugged) into doing porn by Gloria the school receptionist's brother Bruno.
 - The chief says, "who's that?", pointing to them.
 - I tell him that Elsa is Domingo Cano Lopez's piano student at the conservatory and I don't know who the innocent woman is.

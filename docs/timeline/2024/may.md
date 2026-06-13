@@ -624,7 +624,7 @@ function googleTranslateElementInit() {
 - I know he has a young daughter.
 - Is he trying to warn me about something?
 
-### Spanish engineer I recognize
+### A Spanish engineer (or gypsy poisoner) I recognize
 
 - I meet a lot of the Spanish engineers.
 - One of them seems out of place, embarrassed. 
@@ -783,6 +783,26 @@ function googleTranslateElementInit() {
 - Do they know I'm being intentionally blinded by poison for the [sedated switcheroo porn specials](../../crimes/protagonists/vidal-sastre.md#six-distinct-men)?
 - My sight is still blurry today.
 - I was eventually [diagnosed with an unusual pre-glaucoma condition](november.md#pre-glaucoma-diagnosis) at Rutnin Eye Hospital in Bangkok in November 2024.
+
+### The Russian porn star
+
+- I had been working a little bit with the CDK development team prior to Bali, and post-Bali too until I was fired (along with a huge proportion of other people post-Bali, which is very suspicious).
+- Anyway.
+- There was a young Russian man on the team but he rarely came to meetings, and said nothing at all of any value when he was there.
+- I believe he was a porn star, hired to rape me while sedated.
+- Why do I believe this?
+- He looked very familiar. He was a muscle man. And he would definitely be the type. And there was no other reason for him working for the firm as he was no engineer at all.
+- He clearly did not know the job he was apparently doing.
+- The team lead, another Russian man, a cool guy (I don't think he came to Bali) was fired a few weeks after Bali.
+- I believe because he was starting to get suspicious about this useless man, and others, and perhaps there was some gossip going on about me, and the hundreds of men queuing outside my hotel room every night after 10pm when I'd gone to bed, and then Elon turning up.
+- Anyway.
+- The night I flew home, this guy, the Russian porn-star muscle man, followed me around the airport the whole time, just like they would do in Spain when I was out shopping, pretending they just "happened to be there", but always looking, or hopping, excited, snickering.
+- He was so obvious, I went over to speak to him.
+- He grinned inanely, and I kind of knew at that moment there was something going on I wasn't aware of, but should be.
+- I think he was hired to "perform", just like the Pakistani Yorkshireman, and the porn will prove it all, and in fact millions of men are already aware of all this evil.
+- Can anyone could be bothered protecting women from their porn-addict colleagues who seem to be with no limits on the evil they might think up and execute, quite certain they will never be held to account.
+- How many more like me? Must be hundreds.
+- May they all be SHAMED FOR THE REST OF THEIR LIVES and spend a very long time in jail.
 
 ### Post-Bali
 
