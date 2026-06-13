@@ -482,6 +482,7 @@ function googleTranslateElementInit() {
 - The same woman [stalks me outside the Elephant pub in North Finchley](april.md#theres-something-in-the-water) later in the year shouting, *there's something in the water*, repeatedly; a blatant reference to the Cano Lopez's adding drugs and poisons to the water mains at their brain-damaged-then-murdered-for-porn victims' flats in Las Marinas and elsewhere in Spain.
 - Do they do the same in North London now too?
 - Seems likely.
+- I expect none of them expected me to recognize her due to the brain-damaging, even though I'd seen a few pictures already, but God tells me everything I need to know.
 
 ### Lucy gets Paul to show me her new girlfriend
 
