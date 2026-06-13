@@ -344,20 +344,20 @@ function googleTranslateElementInit() {
 - I wonder if he had some drugs on him.
 - Did someone tell him to do that; to wait for me?
 - After I send Paul home, he tells me when I next see him that police at Heathrow had searched him and even taken a DNA swab from his mouth.
-- I take this as more proof of the big investigation going on, but probably he's been told by the gangs to lie about this.
+- I take this as more proof of the big investigation going on, but probably he's been told by the gangs to lie about this to me.
 
 ## Dinner at the hotel in Madrid
 
 - Paul and I sit down to a late supper at the hotel.
 - He won't shut up talking.
-- For some reason I decide to call home, and talk to dad for a while. He's not long out of hospital I guess.
+- For some reason I decide to call home, and talk to dad for a while. He's not long out of hospital I guess but I need a break from Paul too.
 - Dad tells a racist(ish) joke about Indians and tells me to tell Paul who is of Sri Lankan heritage.
 - I find myself giggly, high.
 - I'm laughing inappropriately.
 - I apologize to Paul for being giggly.
 - Why was I giggly?
 - I think Paul managed to spike me at some point.
-- I also think there was some *understanding* between my dad and Paul that kind of emerged over the dinner table that night, in that curiously intuitive way things happen to me when criminal gangs are spiking me with drugs.
+- I also think there was some *understanding* between my dad and Paul that kind of emerged over the dinner table that night, in that curiously intuitive way things happen to me whenever criminal gangs are spiking me with drugs.
 - Was Paul aware of what my dad had done in Dénia to me and my mother?
 - The better question is, is any male porn-addict worth his subscription unaware of it?
 
