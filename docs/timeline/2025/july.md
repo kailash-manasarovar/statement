@@ -220,7 +220,7 @@
 - Do they think that, perhaps, once society is totally immoral no-one will care anyway and they won't have to worry about ignoring 1000s of complaints, probably [Lorraine Blackbourn's too](../2021/july.md#lorraine-blackbourn-commits-suicide).
 - Is the conspiracy wrapped up in the [medical-transitioning of children](../2011-to-2020/2013.md#lorraines-trans-child) scandal too?
 - Is this why whenever I desperately tried to get help from the UK embassy or foreign office, they ignored me, even put the phone down on me?
-- Is this why the [Metropolitan Police](../2025/january.md#i-call-the-police) might as well have told me I'm an idiot, knowing full well I'm a rape-gang survivor?
+- Is this why the [Metropolitan Police](../2025/january.md#i-report-hacking-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police) might as well have told me I'm an idiot, knowing full well I'm a rape-gang survivor?
 - Is this why Spanish gangs feel 100% completely safe, and don't even care about leaving an evidential trail that a blind cat on catnip could follow?
 - Do they know they are protected at the highest level?
 - They must know it can't go on forever.

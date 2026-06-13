@@ -121,7 +121,7 @@ function googleTranslateElementInit() {
 - Whenever things got really overwhelming for me, I would reach out to the police.
 - After the first few times I got no response, I stopped expecting a response, but still felt compelled to try again to get help as any normal tax-paying upstanding citizen would do with the reasonable expectation that help would be forthcoming.
 - As well as the Baroness, the emails went to Lauren Ott, a policeman sent to assist me while I was campaigning at the UK general election in June 2024, the election police lead involved in protecting candidates for general election in London, the local community police officer in N2 Jan Lovell, and anyone and everyone I had details for that I thought might care or be able to help.
-- I received no reply from anyone.. ever.. apart from a couple of vague but pleasant responses from the Baroness, and Lauren Ott responding to me once directly telling me to call 999 when I get home to London, which I do: another [spectacular disappointment](#i-call-the-police) for the widow.
+- I received no reply from anyone.. ever.. apart from a couple of vague but pleasant responses from the Baroness, and Lauren Ott responding to me once directly telling me to call 999 when I get home to London, which I do: another [spectacular disappointment](#i-report-hacking-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police) for the widow.
 
 ### A parable from brother Jesus Christ
 
@@ -515,49 +515,18 @@ function googleTranslateElementInit() {
 - I say no.
 - Two women sit close by us.
 - I'm pretty sure one of them is his friend Lucy, I recognize her from the WhatsApp profile pic Paul showed me.
-- I'm told online in early 2026 that this Lucy is the youngest Adams' daughter and that she has been stalking me online since September 2023 with varying X accounts `@LucyInBetween` being one such account.
+- I'm told online in early 2026 that this Lucy is the youngest Adams' daughter and that she has been stalking me online since September 2023 with the rest of the gang - thousands of them - using varying X accounts: `@LucyInBetween` being one such account.
 - How does Paul really know her?
 - At the time, I'm certain he has been instructed to take me to this pub so I can be "viewed".
-- From the way the bar staff are glaring at me angrily, then smiling sweetly, everyone seems to be involved with the scam.
+- From the way the bar staff are glaring at me angrily, then smiling sweetly, reminding me of Ana and the teachers at the conservatory, everyone seems to be involved with the scam.
 - Could I be *that* famous from sedated-rape-porn and gender-humiliation at work?
-- It's appalling.
+- It's an appalling thought.
 - Does Paul get a payment for his services while I'm in the toilet?
 - He did seem to go quiet that night, which wasn't unwelcome.
 
-## Harassment in UK
+## I report hacking, poisoning, illicit filming, and everything else contained in this statement to the Metropolitan police
 
-- I'm targeted a fair bit when I'm back in UK as you will read across these next months until October.
-- Somehow, also, I'm totally high, all the time.
-- Apart from a few obvious moments, such as [the two women in Harlow](april.md#shoe-zone-harlow-essex), it's not clear how they're managing to spike me.
-- I realize later that they're powering up the dosage too.
-- Did my job ensure they kept the dosage down to barely obvious?
-- Just like in Denia, it seems that every time I leave the house some rare event occurs.
-- I'm certain it was criminal gang activity, especially considering Paul's sudden "popping up" and his erratic behavior, dishonesty, and obvious hard drug addiction.
-- Was the frenetic activity from criminal gangs in London... even getting a junkie involved - the most disloyal people in the universe - and all the harassment at that time early in the year, and during the general election the year before… is it because they know my dad, and my whole family in fact, would see me dead before helping me?
-- Or were they panicking and drugging me harder to make sure I didn't remember [the switcheroo men](../../crimes/protagonists/vidal-sastre.md#at-least-six), perhaps also holding out on the hope they might be able to get me into a situation where I'd part with my money?
-
-## Michael from Wearyall Hill
-
-- I contact Michael to tell him I've written about [the dream I had while I was staying at his house](../2022/july.md#crystal-dreaming) in July 2022.
-- He is FURIOUS with me.
-- He wants to know why I'm telling him this.
-- His rage is irrational, unsettling, and very, very curious.
-- I try to explain it to myself as pure misogynistic gaslighting, but there's something more to it than that
-- I start to wonder about Michael's poor health and body paralysis.
-- I explain, gently, to Michael that perhaps if a reporter was to come and do detox with him, he might like to mention my book which includes a short description of my stay at the end of July 2022.
-
-## Seonaid Dawn and Granny Smith
-
-- Both suspect accounts, mentioned in [fake account list](../../evidence/twitter-account.md#fake-accounts), [Hazel Smith references from May 2024](../2024/may.md#hazel-smith-pretends-to-be-esteve-online), and elsewhere.
-
-![curious](../../content/tweets/granny-smith-seonaid-barber.png)
-
-- I've now started to block the criminal gang members and porn accounts, including these.
-
-## I call the police
-
-- I've left the car in Madrid at the airport again.
-- The day after my brief return to London, I call the police to report the numerous crimes I'm aware of that have been committed on my person while living in Spain at the pleasure of British and Spanish criminal gangs, and others, as advised by my contacts in the Met.
+- The day after I returned to London from Madrid, on Lauren Ott's only advice for me - the only advice I ever got from the Metropolitan police after sharing [a goldmine of information about criminal gangs with them](#email-examples) - I call the police to report the numerous crimes I'm aware of that have been committed on my person while living in Spain at the pleasure of British and Spanish criminal gangs, and others.
 
 ![Call reference](../../content/images/met-police-reference.jpg)
 
@@ -589,6 +558,49 @@ function googleTranslateElementInit() {
 - I realize they are going to do nothing for me, as usual, so I let them leave. They were trying to get away from the minute we started to speak. They stayed 20 minutes.
 
 ![We don't care](../../content/images/we-dont-care.png)
+
+## Harassment in UK
+
+- I'm targeted a fair bit when I'm back in UK as you will read across these next months until October.
+- Somehow, also, I'm totally high, all the time.
+- Apart from a few obvious moments, such as [the two women in Harlow](april.md#shoe-zone-harlow-essex), it's not clear how they're managing to spike me.
+- I realize later that they're powering up the dosage too.
+- Did my job ensure they kept the dosage down to barely obvious?
+- Just like in Denia, it seems that every time I leave the house some rare event occurs.
+- I'm certain it was criminal gang activity, especially considering Paul's sudden "popping up" and his erratic behavior, dishonesty, and obvious hard drug addiction.
+- Was the frenetic activity from criminal gangs in London... even getting a junkie involved - the most disloyal people in the universe - and all the harassment at that time early in the year, and during the general election the year before… is it because they know my dad, and my whole family in fact, would see me dead before helping me?
+- Or were they panicking and drugging me harder to make sure I didn't remember [the switcheroo men](../../crimes/protagonists/vidal-sastre.md#at-least-six), perhaps also holding out on the hope they might be able to get me into a situation where I'd part with my money?
+
+### I've been injected somehow
+
+- In my bedroom one night at 31 Trinity, I notice a bump on my right arm close to my elbow.
+- I scratch it, just a little, and it starts to bleed.
+- Not a little, a whole lot; in fact it does not stop bleeding rather profusely for hours.
+- I have a whole bin of bloody tissues I was using to try to staunch it, which didn't work at all.
+- It was so bloody I felt I had to show someone; and I did. I showed my parents but we understand now they are 100% working for the porn-gangs so they're utterly unreliable.
+- It feels like I was stuck here, injected I mean, without my knowledge.
+- Could Paul have done this?
+- Could it explain my mind's continued fogginess?
+- Was it another failed attempt to murder me?
+- In June 2026, there is still a little raised bump at this spot on my arm.
+
+## Michael from Wearyall Hill
+
+- I contact Michael to tell him I've written about [the dream I had while I was staying at his house](../2022/july.md#crystal-dreaming) in July 2022.
+- He is FURIOUS with me.
+- He wants to know why I'm telling him this.
+- His rage is irrational, unsettling, and very, very curious.
+- I try to explain it to myself as pure misogynistic gaslighting, but there's something more to it than that
+- I start to wonder about Michael's poor health and body paralysis.
+- I explain, gently, to Michael that perhaps if a reporter was to come and do detox with him, he might like to mention my book which includes a short description of my stay at the end of July 2022.
+
+## Seonaid Dawn and Granny Smith
+
+- Both suspect accounts, mentioned in [fake account list](../../evidence/twitter-account.md#fake-accounts), [Hazel Smith references from May 2024](../2024/may.md#hazel-smith-pretends-to-be-esteve-online), and elsewhere.
+
+![curious](../../content/tweets/granny-smith-seonaid-barber.png)
+
+- I've now started to block the criminal gang members and porn accounts, including these.
 
 ## Seeking asylum in another country
 
@@ -681,19 +693,6 @@ function googleTranslateElementInit() {
 - The first was an old Indian man at the front door, which I opened. I didn't recognize him at the time but he was, in fact, BKS Iyengar and I wasn't to get into yoga practice with him for 10 years and I only realized it was him in the dream much later (cos my yoga practice was fiercely non-woo-woo for years).
 - The other woman was Helen Schucman. I also had no idea who this woman was until probably 20 years later when I saw a picture of her and slowly remembered she'd popped her head around my bedroom door to see me sleeping.
 - Cool, innit.
-
-## I've been injected somehow
-
-- In my bedroom one night at 31 Trinity, I notice a bump on my right arm close to my elbow.
-- I scratch it, just a little, and it starts to bleed.
-- Not a little, a whole lot; in fact it does not stop bleeding rather profusely for hours.
-- I have a whole bin of bloody tissues I was using to try to staunch it, which didn't work at all.
-- It was so bloody I felt I had to show someone; and I did. I showed my parents but we understand now they are 100% working for the porn-gangs so they're utterly unreliable.
-- It feels like I was stuck here, injected I mean, without my knowledge.
-- Could Paul have done this?
-- Could it explain my mind's continued fogginess?
-- Was it another failed attempt to murder me?
-- In June 2026, there is still a little raised bump at this spot on my arm.
 
 ## Justice is a miracle
 
