@@ -545,6 +545,9 @@ function googleTranslateElementInit() {
 - I explain it is happening now, this very moment, in North London, England. They don't care.
 - I tell them I've been to the police numerous times in Spain and they don't care.
 - Not our problem, they say.
+- I tell them the Spanish were hacking my computer when I wrote my police statement about the rape-gangs in 2015.
+- They don't care.
+- We can't do anything about that, they said.
 - I tell them I have been shown flashed images of rape-porn I was in as a child.
 - They say, "show us", and obviously I can't.
 - I tell them, "they're not stupid, they're not going to give me evidence for that but I know it was me."
