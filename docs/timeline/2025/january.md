@@ -337,13 +337,14 @@ function googleTranslateElementInit() {
 
 #### Writing about Paul's weird behavior
 
-- I take the opportunity to write a few notes in here about Paul (knowing that everyone is reading them and assuming there's a massive investigation going on) because I'm so concerned about him.
+- Switching off from Paul's perma-rant temporarily, I take the opportunity to write a few notes in this police statement about Paul (knowing that everyone is reading everything I write, and assuming there's a massive investigation going on - there bloody well should be and, if there isn't, SHAME!!!!) because I'm so concerned about him.
+- God help us all if I was only ever talking to the criminal gangs - seems likely though doesn't it.
 - I commit a description of him arriving at Madrid airport on his BA flight but not going through to arrivals and instead waiting where the little train stops until I call him.
 - It's the sort of thing you'd do if you didn't want to walk through customs/border control on your own looking like he does.
 - I wonder if he had some drugs on him.
 - Did someone tell him to do that; to wait for me?
 - After I send Paul home, he tells me when I next see him that police at Heathrow had searched him and even taken a DNA swab from his mouth.
-- I take this as more proof of the big investigation going on, but perhaps he's lying about this too.
+- I take this as more proof of the big investigation going on, but probably he's been told by the gangs to lie about this.
 
 ## Dinner at the hotel in Madrid
 
