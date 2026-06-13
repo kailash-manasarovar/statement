@@ -457,6 +457,11 @@ function googleTranslateElementInit() {
     - That would be most welcome.
     - Brazen pervert-and-pedophile protectors!
 
+- There was an updated police report written that morning. They write it for you.
+- It said absolutely nothing, and I'm not sure what I did with it.
+- It's shame if they have a copy, shame if they've "lost" it.
+- It's a shame-total situation for the powers that be.
+
 ## Paul's best friend Lucy
 
 - Paul tells me again and again about how I'm one of his best friends in the whole world, that he has only three best friends in the whole world, and that I'm one of them.
