@@ -246,13 +246,13 @@ function googleTranslateElementInit() {
 
 ## Ritzy
 
-- I call Paul from Thailand the night before I fly back to arrange to meet him at Madrid airport.
+- I call Paul from Thailand the night before I fly back to Spain to arrange to meet him at Madrid airport.
 - He says he's with Ritzy.
 - He's laughing and exuberant over the phone.
 - It's the first time I've spoken to him in nearly 25 years, and so I don't understand this to be unusual.
 - I don't know who Ritzy is, however, and I worry it sounds like a gang name and could be someone dodgy.
-- I expect Lucy has told Paul to tell me about Ritzy. 
-- Ritzy was a nightclub in Tottenham where the rape-gangs would go looking for little white girls.
+- Later, I expect lil Lucy Adams has told Paul to tell me about Ritzy. 
+- Ritzy was a nightclub in Tottenham where the rape-gangs would go looking for little white girls, and everyone knows it.
 - I tell Paul not to speak to anyone at all.
 - He laughs and says, *oh, it's just Ritzy*.
 - She's in her 90s and he does odd jobs for her, *all the time*.
