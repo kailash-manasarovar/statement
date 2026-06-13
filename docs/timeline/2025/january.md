@@ -487,11 +487,11 @@ function googleTranslateElementInit() {
 ### Lucy gets Paul to show me her new girlfriend
 
 - Lucy texts Paul instructing him to show me her new girlfriend.
-- I have no idea why anyone might think I would be interested in such a thing, but Paul does what he is told.
-- I'm shown a photo of a long dark haired woman who is semi or fully naked in front of a full length mirror beside a bed.
+- I have no idea why anyone might think I would be interested in such a thing, or why this Lucy character thinks I'd be interested in anything she has to say, but Paul does what he is told.
+- I'm shown a photo of a long-and-dark-haired woman who is semi or fully naked in front of a full length mirror beside a bed.
 - There is plastic sheeting covering the floor, and I'm reminded of Mike Wenham murdering Carolina.
 - I wonder what this woman is about to do; it seems like some sort of self-harming is about to go on.
-- I realize this *Lucy* is manipulating this woman into doing porn for her, and I feel quite unwell.
+- I realize that this *Lucy* is manipulating the woman into doing porn for her, that she's proud of it and feels the need to show-and-tell, and I feel quite unwell.
 
 ### The gay bar
 
