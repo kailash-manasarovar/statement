@@ -385,6 +385,9 @@ function googleTranslateElementInit() {
 - The story he told about Niall Higgins dressed in stockings and suspenders was a bit upsetting.
 - The stories he told about his grandfather, mostly, I really wanted to be true.
 - He told those again and again, especially to my dad for some reason.
+- He liked to tell the story about how his grandfather paid for prostitutes to come round to their house in Clovely Road and his mum would be angry.
+- He thought it was OK for his grandfather to do that and that his mum had been out of order!
+- I started wondering if this really was the same person I had known all those years ago.. or was I simply zombified about men like everyone else due to sexual trauma at the time.
 
 #### Paul the famous chef
 
