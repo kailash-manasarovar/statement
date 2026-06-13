@@ -219,7 +219,7 @@ function googleTranslateElementInit() {
 - Paul's parents were horrified too, and rightly so, but groomers know very well which children to target and whatever they tried to do about the situation failed.
 - Dennis had turned the boys' minds against their parents.
 - Paul never got over it and, to this day, he believes Dennis was a force for good in his life.
-- In fact, I believe this is what drew me and Paul together as friends in the 90s - aside from the pedophile porn I was starring in that everyone but myself knew about.
+- In fact, I believe this is what drew me and Paul together as friends in the 90s - aside from the pedophile porn I was starring in that everyone knew about except me.
 - Our shared child sexual grooming experiences made escape with drugs and alcohol very appealing.
 - I wasn't to know until late 2025 that Paul knew all about [Ugly and my ex-boyfriend Brian's criminal sex-offending activities in Amsterdam in 2001](../2001-to-2010/2001.md#amsterdam) (Paul and Brian were very close mates at the time), and I suspect there was a potential repeat of the sedating-and-raping in Hastings with the boys not long after.
 - In fact, the last time I ever saw Paul was that night [he turned up with the boys](../2001-to-2010/2001.md#the-boys-come-round) and Brian became apoplectic with jealousy about something he wouldn't tell me about, and the boys left before anyone else got up and I never saw any of them again.
@@ -230,7 +230,7 @@ function googleTranslateElementInit() {
 #### A child sexual abuse survivor gets retraumatized
 
 - I tell Paul later that it is extraordinarily common for people who have been groomed and abused as children to become retraumatized as adults and have breakdowns; specifically when their same-sex kids get to the same age they were when they were groomed by a predator.
-- I believed this is what happened to Paul to propel him into a ravaging drug addiction that took his life from him.
+- I believed this is what happened to Paul, propelling him into a ravaging drug addiction that took his life from him.
 - Paul denied the abuse and repeatedly stood up for this random man who had destroyed the relationship these boys had with their parents.
 - I told him there wasn't a planet in the universe where what Dennis had done was OK.
 - Paul was a great guy, one of the best I had thought. 
@@ -238,6 +238,7 @@ function googleTranslateElementInit() {
 - It was unfair for him, and me.
 - Paul went to pieces around about the same time his second son who he was parenting reached the age that Paul was groomed.
 - However, Paul also lost his bearings at the same time as my ex-boyfriend Brian and his family and friends were sedating and raping me.
+- Brian never recovered from the evil secret-he-couldn't-tell either.
 - I guess that sort of evil-doing has disastrous outcomes too.
 
 ## Ritzy
@@ -671,3 +672,5 @@ function googleTranslateElementInit() {
 - Are we gonna let it go on?
 - Haven't we had enough yet?
 - Will the world be destroyed by bare arrogance?
+- Does the lack of order in miracles mean we can save the world, easily, if we really want to?
+- I need your help though.
