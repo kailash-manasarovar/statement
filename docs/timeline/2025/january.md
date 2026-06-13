@@ -389,8 +389,11 @@ function googleTranslateElementInit() {
 #### Paul the famous chef
 
 - It's another one of his scams.
-- I realize he wants to cook everywhere and talks about cooking as if he's a famous chef so he'll be able to eat.
+- I realize he wants to cook everywhere and talks about cooking as if he's a famous chef so people will let him cook in their kitchens and he'll be able to eat.
 - He clearly chooses drugs over food and has done for years.
+- I guess it must make you think up ways to eat.
+- He told me he stole packets of rice from time to time.
+- I was horrified, upset, but he didn't seem to care.
 
 ## Madrid policia 
 
