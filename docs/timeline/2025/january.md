@@ -524,6 +524,13 @@ function googleTranslateElementInit() {
 - Does Paul get a payment for his services while I'm in the toilet?
 - He did seem to go quiet that night, which wasn't unwelcome.
 
+#### Paul makes a reference to Winston May's statement, grands-a-night
+
+- Oh, except for, that was the night I got angry at him because he told me he had told his family my crypto app makes grands-a-night.
+- He had no reason to say such a thing, and I never said anything remotely like this.
+- He was, however, using the exact words of Winston May, Tottenham rape-gang leader, that I had mentioned in my [2015 police statement](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) that the whole of Spain and North London seemed to be leering over while I wrote it.
+- She told him to say this, Lucy did didn't she, and he had no idea it had come from a known pedophile rape-gang leader.
+
 ## I report hacking, drugging, poisoning, illicit filming, and everything else contained in this statement to the Metropolitan police
 
 - When I return to London, on Lauren Ott's only advice for me - the only advice I ever got from the Metropolitan police after sharing [a goldmine of information about British and Spanish criminal gangs, people who have murdered hundreds, with them](#email-examples) - I call the police to report the numerous crimes I'm aware of that have been committed on my person while living in Spain at the pleasure of British and Spanish criminal gangs, and others.
