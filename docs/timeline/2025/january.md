@@ -459,11 +459,11 @@ function googleTranslateElementInit() {
 - It's weird.
 - I haven't seen the man in twenty-five years.
 - Is he trying to butter me up?
-- One of the other best friends of Paul's in the whole world is a woman called Lucy.
+- One of the other best friends of Paul's in the whole wide world is a woman called Lucy.
 - He mentions her even more.
 - I don't know who she is, but something rings suspicious.
 - Something reminds me of [Lucyfer Adams](../2024/december.md#lucyfer-adams) and I suspect this woman Lucy, Paul's best friend who I have never heard of, is one and the same.
-- In early 2026, this is confirmed online that she is the youngest Adam's daughter.
+- In early 2026, this is confirmed online that she is the youngest Adam's daughter, criminal porn-enterprise operative and online tech-manipulator, amongst other evils no doubt.
 - I ask Paul how long he's known Lucy. 
 - He says a few years.
 - He talks about how they go on 50k bicycle rides up to Cheshunt and back, stopping at the pub to drink a few pints.
@@ -471,10 +471,12 @@ function googleTranslateElementInit() {
 - The thing is, Paul couldn't walk more than about twenty metres without his ankles giving way and he was talking about these bike rides happening just a year or so before, maybe even the previous summer.
 - He's talking shite, but why?
 - Is she telling him to tell me things, with a promise of some drug or other?
-- He seems to be in constant communication with Lucy on WhatsApp while I'm with Paul, and he calls her too and chats laughingly and exuberantly.
+- He seems to be in constant communication with Lucy on WhatsApp whenever I'm with Paul, and he calls her too and chats laughingly and exuberantly.
 - Paul shows me a picture of Lucy on his phone.
 - It's her WhatsApp profile pic.
-- The same woman [stalks me outside the Elephant pub in North Finchley](april.md#theres-something-in-the-water) later in the year shouting, *there's something in the water*, repeatedly; a reference to the Cano Lopez's adding drugs and poisons to the water mains at their victim's flats in Las Marinas and elsewhere.
+- The same woman [stalks me outside the Elephant pub in North Finchley](april.md#theres-something-in-the-water) later in the year shouting, *there's something in the water*, repeatedly; a reference to the Cano Lopez's adding drugs and poisons to the water mains at their brain-damaged-then-murdered-for-porn victims' flats in Las Marinas and elsewhere in Spain.
+- Do they do the same in North London now too?
+- Seems likely.
 
 ### Lucy gets Paul to show me her new girlfriend
 
