@@ -519,7 +519,7 @@ function googleTranslateElementInit() {
 - How does Paul really know her?
 - At the time, I'm certain he has been instructed to take me to this pub so I can be "viewed".
 - From the way the bar staff are glaring at me angrily, then smiling sweetly, reminding me of Ana and the teachers at the conservatory, everyone seems to be involved with the scam.
-- Could I be *that* famous from sedated-rape-porn and gender-humiliation at work?
+- Could I be *that* famous from sedated-rape-porn and gender-humiliation at work and while studying the piano at a music school?
 - It's an appalling thought.
 - Does Paul get a payment for his services while I'm in the toilet?
 - He did seem to go quiet that night, which wasn't unwelcome.
