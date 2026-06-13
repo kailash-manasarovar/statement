@@ -378,7 +378,8 @@ function googleTranslateElementInit() {
 
 - Paul tells me a lot of stories, most of them lies I expect, I hope.
 - He mentioned repeatedly that he had met both Charles and Diana because his grandfather had been the chief librarian at the Times and they came in when he was there and they knew his grandfather by name.
-- He told another story about Diana bumping into him in Camden High Street somewhere when she was hounded by paparazzi and he had caught her and she remembered him by name.
+- He told another story about Diana bumping into him in Camden High Street somewhere when she was being hounded by paparazzi and he had caught her as she fell backwards, and she remembered him by name.
+- *Oh Paul*, Paul said she had said!
 - Paul told a great deal of porkies while we were together. 
 - Some were really nasty stories about people I knew, and you could tell he was trying to "get them back" for something.
 - The story he told about Niall Higgins dressed in stockings and suspenders was a bit upsetting.
