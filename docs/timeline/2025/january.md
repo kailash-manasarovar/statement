@@ -696,3 +696,4 @@ function googleTranslateElementInit() {
 - We all know them. They are our fathers, our brothers, our boyfriends, husbands, mates. They are all men including the ones who don't rape, but know about it and say nothing.
 - Our world's security and safety is meaningless to these idiots.
 - So yes, Hazel can confirm.
+- I always knew she'd be our greatest helper.
