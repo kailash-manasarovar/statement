@@ -492,6 +492,8 @@ function googleTranslateElementInit() {
 - There is plastic sheeting covering the floor, and I'm reminded of Mike Wenham murdering Carolina.
 - I wonder what this woman is about to do; it seems like some sort of self-harming is about to go on.
 - I realize that this *Lucy* is manipulating the woman into doing porn for her, that she's proud of it and feels the need to show-and-tell, and I feel quite unwell.
+- Do you think she was so sure I'd be murdered, or perhaps that my mind would be mashed into pieces like they've done to my cousin Leah, that she could tell me anything she liked.
+- Amazing.
 
 ### The gay bar
 
