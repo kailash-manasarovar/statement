@@ -497,7 +497,7 @@ function googleTranslateElementInit() {
 
 ### The gay bar
 
-- I return to London for about a week before going to get my stuff from Spain in early February.
+- I return to London for about a week before going to collect my belongings from Spain in early February.
 - I also have a Transforming Touch course to attend in Dublin.
 - When I'm back in London, I see Paul a lot.
 - We use his car as mine is in Madrid.
@@ -507,7 +507,7 @@ function googleTranslateElementInit() {
 - He's around a lot. 
 - One Sunday, we're in the Old White Lion in N2.
 - There's a menacing bloke at an opposite table.
-- He gets a WhatsApp and suddenly says, let's go somewhere else.
+- He gets a WhatsApp and suddenly suggests we go somewhere else.
 - We head to a bar in Highgate Village which is apparently a gay bar.
 - There's no reason for us going there.
 - He explains it's a place he often goes to with his best friend [Lucy](#pauls-best-friend-lucy) who's a lesbian.
@@ -518,7 +518,10 @@ function googleTranslateElementInit() {
 - I'm told online in early 2026 that this Lucy is the youngest Adams' daughter and that she has been stalking me online since September 2023 with varying X accounts `@LucyInBetween` being one such account.
 - How does Paul really know her?
 - At the time, I'm certain he has been instructed to take me to this pub so I can be "viewed".
-- Does he get a payment for his services while I'm in the toilet?
+- From the way the bar staff are glaring at me angrily, then smiling sweetly, everyone seems to be involved with the scam.
+- Could I be *that* famous from sedated-rape-porn and gender-humiliation at work?
+- It's appalling.
+- Does Paul get a payment for his services while I'm in the toilet?
 - He did seem to go quiet that night, which wasn't unwelcome.
 
 ## Harassment in UK
