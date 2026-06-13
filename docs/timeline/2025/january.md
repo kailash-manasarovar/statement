@@ -262,6 +262,7 @@ function googleTranslateElementInit() {
 - He really pissed my mother off.
 - Is he taking advantage of Ritzy too?
 - It seems likely.
+- It's how drug addicts operate, isn't it; what they do.
 
 ## Meeting Paul at Madrid airport
 
