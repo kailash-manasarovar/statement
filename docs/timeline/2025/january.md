@@ -258,8 +258,8 @@ function googleTranslateElementInit() {
 - She's in her 90s and he does odd jobs for her, *all the time*.
 - Paul will do a few odd jobs for my elderly parents over January and February.
 - His exuberance quickly shifts into seething, I think when he realizes I'm not going to be giving him any drugs money.
-- He deliberately does his own thing, and breaks things, then charges £100 an hour.
-- He really pissed my mother off.
+- He deliberately does his own thing, ignoring my mother's requests, and breaks things on purpose, doesn't clean up, then charges £100 an hour.
+- He really pissed my mother off, and me.
 - Is he taking advantage of Ritzy too?
 - It seems likely.
 - It's how drug addicts operate, isn't it; what they do.
@@ -678,3 +678,21 @@ function googleTranslateElementInit() {
 - Will the world be destroyed by bare arrogance?
 - Does the lack of order in miracles mean we can save the world, easily, if we really want to?
 - I need your help though.
+
+## Who's gonna spill the beans about the manipulation tech
+
+- My view is Hazel Smith and other women gang-members and helpers will be happy to expound on everything their manipulation tech does, including:
+    - Persuading people to commit suicide (Lorraine).
+    - Persuading people to commit homicide (Mike Wenham).
+    - Persuading people to undergo life-changing surgeries for no reason (Alessandra).
+    - Mass persuading children and toddlers to do DIY porn (multiple filmed evidence, my trumpet teacher friend might be happy to expound on this one and how the gangs expect their techs to target children, toddlers, and babies online and how a great many of these young men do not like this obligation which they cannot refuse).
+    - Persuading the West to sterilize it's own children (multiple examples, including a whole medical industry formed); a sick manipulation technique that started life as an autistic 13-year-old girl self-harming porn genre and then was co-opted by transvestites.
+    - Persuading the West that transvestite men (white, old, wealthy) are a new type of species of human, the most oppressed, and that the children convinced to sterilize themselves are somehow in the same set of new humans.
+    - Persuading the West that vile women-hating, gay-hating, oppressive nations are the good guys! I mean... it's extraordinary but follows quite easily from the rest of it.
+- The way that everyone believed the opposite of these things just a decade ago, and had done forever, cannot be ignored.
+- What have I missed?
+- Oh, obviously, persuading women and girls that doing porn is good for them; the *sex work is work* fallacy everyone and his cat seems to have bought into, utterly insanely, quietly forgetting that the majority of porn-addicts are seeking to destroy women, children, and babies, and only destruction and humiliation will satisfy their boners.
+- Sedating is all the rage due to this. They can't get enough of it but are unable to look people in the eye afterwards so their whole beings know the truth of their mistakes.
+- We all know them. They are our fathers, our brothers, our boyfriends, husbands, mates. They are all men including the ones who don't rape, but know about it and say nothing.
+- Our world's security and safety is meaningless to these idiots.
+- So yes, Hazel can confirm.
