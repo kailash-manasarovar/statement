@@ -326,10 +326,10 @@ function googleTranslateElementInit() {
 - I give him my coat and a decent woolen jumper and tell him not to sell them.
 - I think about the many good people I know in North London whose lives have been destroyed by rampant criminal gang activity that the police will do nothing about.
 
-#### Paul promises me he's not doing heroin
+#### Paul promises he's not doing heroin
 
-- It seems obvious to me Paul has been doing heroin, but he's adamant he is off the drugs since July 2024 and was only doing crack then, no heroin.
-- Even so, I take my handbag to the toilet when I go I'm so concerned about him.
+- It seems obvious to me Paul has been doing heroin, but he's adamant he is off the drugs since July 2024 and tells me he was only doing crack then, no heroin!
+- Even so, I take my handbag to the toilet in our hotel room I'm so concerned about him.
 - I explain I'm sending him home because he looks like a drug addict and I wanted someone to be there for me who would command a bit of respect.
 - He goes into a massive meltdown about how he's never done heroin and it's all my fault for suggesting it, and how I'm always telling lies about everyone, and how dare I.. that sort of thing.
 - It's quite a performance, so I tell him fair enough, and I let it go, and immediately change his flight.
