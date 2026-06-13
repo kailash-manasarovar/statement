@@ -410,23 +410,25 @@ function googleTranslateElementInit() {
 - I buy him a plane ticket and send him home.
 - So, only Inma and I attend the police station in Calle Huertas to report malicious poisoning and bring samples and a timeline of events; our [second visit to amplify the denuncia I already took out on teachers and staff at the conservatory a few days after they smothered me with pillows and my duvet while I was sedated in my own home](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid); actions which made me certain I was going to be murdered.
 - I didn't know they had the Bali tech-bro sedated-rape line-up organized and so they had no intention of murdering me until October when Paloma gave everyone the OK to go ahead and finish me off.
-- The Madrid police - gender violence experts - in January 2025 are totally disinterested in my assertion that criminals have been poisoning me in my own home.
+- The Madrid police at Calle Huertas - apparently gender violence experts - in January 2025 are totally disinterested in my assertion that criminals working as teachers amongst children at a music school have been poisoning me in my own home.
 - I tell them I have samples of poisoned items for testing; including water from my taps and bathroom products.
 - Just like they told me I had to pay to privately prove hacking before they'd investigate hacking, they tell me I have to pay a private laboratory to confirm poisoning before they'll investigate poisoning!
-- It seems like they're working for the poisoning pedophile and sedating-rape-pornographer thugs who have set up pedo-porn-studios in Spanish music and dance schools doesn't it?
+- I explain I have been terrorized for three years by these people and become emotional.
+- They're not interested.
+- It seems to me the police in Spain, just like the police in North London, are working for the poisoning pedophile and sedating-rape-pornographer thugs who have set up pedo-porn-studios in Spanish music and dance schools.
 - Someone has told them I'm to be ignored, completely.
 - I'm not surprised.
 - I hand them my 200 page printed report (an early draft of this statement and the original intention for writing it)...
 - The chief throws it on the table in disgust - he's behaving in a very defensive, angry, and guilty manner. 
 - He instructs his officer to "send it to Dénia".
-- But not before flicking through it and pointing to some of the women - photos I have printed in high resolution - including [Elsa, Domingo's minor student in clear peril](../2024/august.md#18) and the [innocent woman](../2024/august.md#grooming-an-innocent-girl-into-porn-101) groomed (and drugged) into doing porn and having a child with Gloria the school receptionist's brother Bruno.
-- The chief barks, "who's that?", pointing to them.
+- But not before flicking through it and pointing to some of the women - photos I have printed in high resolution - including [Elsa, Domingo's minor student in clear peril](../2024/august.md#18) and the [innocent woman](../2024/august.md#grooming-an-innocent-girl-into-porn-101) groomed (and drugged) into doing porn and having a child with Gloria the music school receptionist's brother and one of [the multiple switcheroo-porn trumpet teachers](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) Bruno.
+- The chief barks, "who's that?", pointing to the girls.
 - I tell him that Elsa is Domingo Cano Lopez's piano student at the conservatory and I don't know who the innocent woman is.
 - The chief says nothing.
 - They want nothing to do with me.
 - I suspect the report goes in the bin once we've left.
 - Later that evening over tea, Inma talks about how I used to be interested in Haitian spiritual practices ([I wrote a multi-universe romance novel in Lourdes using Haiti as a part-theme](https://www.amazon.co.uk/Life-Without-Liar-Margaret-Murphy/dp/1500734381)) in a semi-condemning manner.
-- Was she trying to upset me, maybe trigger a suicidal depression - they weren't aware I'd been through the British and Spanish porn-gang suicide manipulation tech-ringer for years already, and survived, so they'll have to do a bit better.
+- Was she trying to upset me, maybe trigger a suicidal depression - they weren't aware I'd been through the British and Spanish porn-gang suicide manipulation tech-ringer for years already, family and colleagues assisting at every opportunity, and survived, so they'll have to do a bit better than projecting their guilt onto me.
 - I explain that Mother Mary introduced me to the Haitian religious practices, and her doing so provided the strongest psychological protective barrier against my fear of the Jamaican rape-gangs from 1989.
 - Thank you Mary.
 - Interestingly, the gospel of Mary Magdalene talks about Mother Mary sending her angels to help people and I firmly believe that is what happened with the lwa, and with Archangel Michael, and with Hanuman too.
@@ -438,12 +440,15 @@ function googleTranslateElementInit() {
 - It's astonishing.
 - Is she really telling me that whatever I have uncovered about porn-industry infiltration of Spanish schools is irrelevant because I was sedated and raped as a child by groups of Jamaican men in North London?
 - A few days later, Inma tells me that the poisoning laboratory told her they will not test my samples without an order from the police.
-- They're just ignoring the fate of their own children by blaming a victim. It's more than astonishing and it was around this time I started to realize that the Spanish are sacrificing their own children and babies to porn; Topheth style.
-- God cannot let this go on. Please God sort them out IMMEDIATELY!!!!!
+- I must be one of thousands of victims in Spain.
+- I'm horrified to understand that Spanish officials are just ignoring the fate of their own children by blaming a victim. 
+- It's more than astonishing and it was around this time I started to realize that the Spanish are sacrificing their own women, children, and babies to porn as well as the thousands of foreign nationals already murdered; Topheth style.
+- God cannot let this go on. 
+- Please God sort them out IMMEDIATELY!!!!!
 
 !!! tip "Inma still tries to contact me regularly"
     - I'm never sure what exactly she wants.
-    - It seems clear that back in October 2024, [her and Paloma's interaction with me](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid) was to decide whether to tell the gangs to go ahead and murder me, which they attempted immediately once I was also fired from my job at Polygon a few days later.
+    - It seems clear that back in October 2024, [her and Paloma's interaction with me](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid) was to decide whether to tell the gangs to go ahead and murder me, which they attempted immediately and repeatedly once I was also fired from my job at Polygon a few days later.
     - They failed, of course.
     - The other times I heard from her, it seems like someone was about to try to murder me again; certainly in July 2025 in Lourdes that is *exactly* what [the Spanish woman calling herself Taya who also appears to be involved in multiple other murders](july.md#eyes-and-kidneys-again-and-heart-now-too) intended for me.
     - Another spectacular fail.
@@ -459,8 +464,8 @@ function googleTranslateElementInit() {
 - It's weird.
 - I haven't seen the man in twenty-five years.
 - Is he trying to butter me up?
-- One of the other best friends of Paul's in the whole wide world is a woman called Lucy.
-- He mentions her even more.
+- One of the other best friends of Paul's in the whole wide world is an Irish woman who lives with her mum and is probably a prostitute he works for from time to time (I forget her name), and a woman called Lucy.
+- He goes on about Lucy the most.
 - I don't know who she is, but something rings suspicious.
 - Something reminds me of X stalker-account [Lucyfer Adams](../2024/december.md#lucyfer-adams) and I suspect this woman Lucy, Paul's best friend who I have never heard of, is one and the same.
 - In early 2026, this is confirmed online that Lucy is indeed the youngest Adam's daughter, criminal porn-enterprise manager and online tech-manipulator, amongst other evils no doubt.
