@@ -140,7 +140,7 @@
 - For some reason, she throws it away - gets Robert to because that's what he does most days for some reason.
 - I end up throwing nearly all my belongings away as they are poisoned.
 - I'm horrified that they're going to the public dump and it's all good stuff and my fear is people will take it home with them thinking it's good decent stuff, no idea it's doused with pesticides, and they might let their kids sleep under my duvets, I mean it's just horrific.
-- I have explained that all my stuff is doused in pesticides and this is what I'm going to have to do with it to the [two policewomen who turn up to disappoint me](january.md#i-report-hacking-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police).
+- I have explained that all my stuff is doused in pesticides and this is what I'm going to have to do with it to the [two policewomen who turn up to disappoint me](january.md#i-report-hacking-drugging-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police).
 - I tell this to the police and the Baroness too, in one of my many missives.
 - I get no response.
 - No-one cares.

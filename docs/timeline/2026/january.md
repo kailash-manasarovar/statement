@@ -122,7 +122,7 @@ function googleTranslateElementInit() {
         - [Gang stalking and hacking in March 2024](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid)
         - [Poisoning and attempted murder in January 2025](../2025/january.md#madrid-policia)
     - I was told initially it was a civil matter, and then I was told I'd have to pay for expensive private analysis of hacked devices and poison samples before they would investigate.
-    - I have spoken to the UK police countless times about what has been happening to me. They ignore me or [suggest it's nothing](../2025/january.md#i-report-hacking-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police).
+    - I have spoken to the UK police countless times about what has been happening to me. They ignore me or [suggest it's nothing](../2025/january.md#i-report-hacking-drugging-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police).
 - I have spoken to embassies, newspapers, famous people... no-one wants to help me.
 - It's difficult to know what to do with myself.
 - I turns out even [my family members](../2011-to-2020/2015.md#inexplicable-anal-fissure) were targeted by North London gangs working closely with Domingo's family gang (my piano teacher - you can see him sitting proudly and triumphantly with his Lourdes poisoning associate to the far left, and a new victim beside him in [the first picture in this section](../2025/july.md#lourdes)) to conspire in sedated porn events with me and, you can't imagine how horrifyingly, even my mother.

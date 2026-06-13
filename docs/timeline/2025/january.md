@@ -121,7 +121,7 @@ function googleTranslateElementInit() {
 - Whenever things got really overwhelming for me, I would reach out to the police.
 - After the first few times I got no response, I stopped expecting a response, but still felt compelled to try again to get help as any normal tax-paying upstanding citizen would do with the reasonable expectation that help would be forthcoming.
 - As well as the Baroness, the emails went to Lauren Ott, a policeman sent to assist me while I was campaigning at the UK general election in June 2024, the election police lead involved in protecting candidates for general election in London, the local community police officer in N2 Jan Lovell, and anyone and everyone I had details for that I thought might care or be able to help.
-- I received no reply from anyone.. ever.. apart from a couple of vague but pleasant responses from the Baroness, and Lauren Ott responding to me once directly telling me to call 999 when I get home to London, which I do: another [spectacular disappointment](#i-report-hacking-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police) for the widow.
+- I received no reply from anyone.. ever.. apart from a couple of vague but pleasant responses from the Baroness, and Lauren Ott responding to me once directly telling me to call 999 when I get home to London, which I do: another [spectacular disappointment](#i-report-hacking-drugging-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police) for the widow.
 
 ### A parable from brother Jesus Christ
 
@@ -524,9 +524,9 @@ function googleTranslateElementInit() {
 - Does Paul get a payment for his services while I'm in the toilet?
 - He did seem to go quiet that night, which wasn't unwelcome.
 
-## I report hacking, poisoning, illicit filming, and everything else contained in this statement to the Metropolitan police
+## I report hacking, drugging, poisoning, illicit filming, and everything else contained in this statement to the Metropolitan police
 
-- The day after I returned to London from Madrid, on Lauren Ott's only advice for me - the only advice I ever got from the Metropolitan police after sharing [a goldmine of information about criminal gangs with them](#email-examples) - I call the police to report the numerous crimes I'm aware of that have been committed on my person while living in Spain at the pleasure of British and Spanish criminal gangs, and others.
+- When I return to London, on Lauren Ott's only advice for me - the only advice I ever got from the Metropolitan police after sharing [a goldmine of information about British and Spanish criminal gangs, people who have murdered hundreds, with them](#email-examples) - I call the police to report the numerous crimes I'm aware of that have been committed on my person while living in Spain at the pleasure of British and Spanish criminal gangs, and others.
 
 ![Call reference](../../content/images/met-police-reference.jpg)
 
@@ -570,6 +570,16 @@ function googleTranslateElementInit() {
 - I'm certain it was criminal gang activity, especially considering Paul's sudden "popping up" and his erratic behavior, dishonesty, and obvious hard drug addiction.
 - Was the frenetic activity from criminal gangs in London... even getting a junkie involved - the most disloyal people in the universe - and all the harassment at that time early in the year, and during the general election the year before… is it because they know my dad, and my whole family in fact, would see me dead before helping me?
 - Or were they panicking and drugging me harder to make sure I didn't remember [the switcheroo men](../../crimes/protagonists/vidal-sastre.md#at-least-six), perhaps also holding out on the hope they might be able to get me into a situation where I'd part with my money?
+
+### The state of my mind
+
+- It's foggy, confused, high.
+- I have clearer recall from my time in Denia and up until I returned to the UK.
+- Somehow, they're spiking me regularly.
+- Could my brother or dad be helping them out?
+- Is it Paul?
+- Or is it random people "bumping into me" in the street or while traveling.
+- Somehow, they're keeping me very confused.
 
 ### I've been injected somehow
 

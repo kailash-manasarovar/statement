@@ -84,7 +84,7 @@ function googleTranslateElementInit() {
 - On my return to the UK in January 2025, I find out I'm officially unsafe in the UK too.
 - I spend the entire time I live in London in 2025 with nowhere else to go in a sort of liminal stateless state.
 - I'm unable to access healthcare or even go outside without a horror-porn addict recognizing me, or a criminal gang member showing up to growl at me.
-- After the [Metropolitan Police make it clear to me that they do not consider me a citizen with the same rights as everyone else](../2025/january.md#i-report-hacking-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police), I realize that if anything bad were to happen to me in the UK, no-one would come to my assistance.
+- After the [Metropolitan Police make it clear to me that they do not consider me a citizen with the same rights as everyone else](../2025/january.md#i-report-hacking-drugging-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police), I realize that if anything bad were to happen to me in the UK, no-one would come to my assistance.
 - You cannot imagine how stressful that realization was.
 - In July 2025, I'll find out [I'm officially unsafe in France](../2025/july.md#lourdes) and pretty much everywhere and anywhere in the world.
 - I have no option but to start a new life in a perma-liminal state; stateless essentially as anyone could do anything at all to me and no-one would assist.
