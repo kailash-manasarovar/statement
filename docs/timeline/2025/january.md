@@ -533,7 +533,7 @@ function googleTranslateElementInit() {
 
 ## I report hacking, drugging, poisoning, illicit filming, and everything else contained in this statement to the Metropolitan police
 
-- When I return to London, on Lauren Ott's only advice for me - the only advice I ever got from the Metropolitan police after sharing [a goldmine of information about British and Spanish criminal gangs, people who have murdered hundreds, with them](#email-examples) - I call the police to report the numerous crimes I'm aware of that have been committed on my person while living in Spain at the pleasure of British and Spanish criminal gangs, and others.
+- When I return to London, on Lauren Ott's only advice for me - the only advice I ever got from the Metropolitan police after sharing [a goldmine of information about British and Spanish criminal gangs, people who are well known to have murdered hundreds](#email-examples) - I call the police to report the numerous crimes I'm aware of that have been committed on my person while living in Spain at the pleasure of British and Spanish criminal gangs, and others.
 
 ![Call reference](../../content/images/met-police-reference.jpg)
 
@@ -554,10 +554,12 @@ function googleTranslateElementInit() {
 - If you can't show us, we're not interested.
 - It's as if they know I'm telling the truth, and they're being as harsh as possible with me to offset their own guilt.
 - I tell them I'm being continually threatened online on X.
-- I show them some of the online threats I've endured, including the picture of my brother with RIP below it. They tell me nothing I have shown them is a threat.
+- I show them some of the online threats I've endured, [including the picture of my brother with RIP below it](../2024/november.md#a-threat-to-my-brothers-life).
+- They tell me nothing I have shown them is a threat.
 - The blond one keeps cutting me off and saying, forcefully, "You haven't shown us anything, just show us something".
 - I try to but everything I say is cut off as not being criminal.
-- Whenever I try to slow them down and deal with what I do have methodically, they start to rush me, demanding I show them something, and changing the subject when I'm trying to explain something to them.
+- Whenever I try to slow them down and deal with what I do have methodically, they start to rush me, demanding I show them something, and change the subject while I'm trying to explain something carefully to them.
+- They're worried about my solid presence of mind - they weren't expecting that at all - so they are not going to let me speak.
 - It's very unpleasant.
 - I tell them British children are in danger in Spain. They're not interested.
 - I tell them many British women have been murdered in Spain. They're not interested.
@@ -567,8 +569,9 @@ function googleTranslateElementInit() {
 - They roll their eyes and get decidedly more aggressive.
 - They're obviously working for the porn-gangs aren't they, like everyone appears to be.
 - It's amazing!
-- They tell me the criminal gang members can go wherever they like and it's not a crime for Winston May, North London rape-gang leader, to turn up to my general election campaign with a story specifically told to me by [someone who is probably a police man (Steve)](../2024/june.md#volunteers-not-what-they-seem) to terrorize me - there is no other explanation for his behavior.
-- I tell them, item by item you can maybe discount, but the thousands of events I'm trying to tell you about constitute a mass stalking campaign at the very least, and this statement is a goldmine of criminal evidence.
+- They tell me the criminal gang members can go wherever they like and it's not a crime for Winston May, North London rape-gang leader, to turn up to my general election campaign alongside a story specifically told to me by [someone who is probably a police man (Steve)](../2024/june.md#volunteers-not-what-they-seem) to terrorize me - there is no other explanation for his behavior.
+- I don't mention that Winston May was probably in prison at the time and allowed out just to terrorize me, but they probably know very well and is one of the reasons I'm being shouted down.
+- I tell them, look, item by item you can maybe discount, but the thousands of events I'm trying to tell you about constitute a mass stalking campaign at the very least, and this statement is a goldmine of criminal evidence.
 - They're not interested.
 - The situation is so incongruent, I've clearly somehow gained a non-human status with zero rights in the UK.
 - I ask them if they've been told to dismiss everything I'm saying by someone.
