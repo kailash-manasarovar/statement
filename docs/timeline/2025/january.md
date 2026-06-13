@@ -238,8 +238,11 @@ function googleTranslateElementInit() {
 - It was unfair for him, and me.
 - Paul went to pieces around about the same time his second son who he was parenting reached the age that Paul was groomed.
 - However, Paul also lost his bearings at the same time as my ex-boyfriend Brian and his family and friends were sedating and raping me.
-- Brian never recovered from the evil secret-he-couldn't-tell either.
-- I guess that sort of evil-doing has disastrous outcomes too.
+- Brian never recovered from the evil secret-he-couldn't-tell either although his brother Niall, and his friend Chris Ludwick, are always putting him first.
+- Niall had a go at me when I left Brian!
+- Chris tells me he's worried about Brian (the sedating rapist) and doesn't want to upset him.
+- Interesting.
+- I guess the sedating-porn sort of evil-doing has disastrous outcomes too, for all, particularly those making a lot of money from their sedated and raped friends, one prays for FULL and complete justice so that the world might know what men are really like (not that we don't already know very well).
 
 ## Ritzy
 
