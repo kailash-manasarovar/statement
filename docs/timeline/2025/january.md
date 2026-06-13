@@ -328,9 +328,10 @@ function googleTranslateElementInit() {
 
 #### Paul promises he's not doing heroin
 
-- It seems obvious to me Paul has been doing heroin, but he's adamant he is off the drugs since July 2024 and tells me he was only doing crack then, no heroin!
-- Even so, I take my handbag to the toilet in our hotel room I'm so concerned about him.
-- I explain I'm sending him home because he looks like a drug addict and I wanted someone to be there for me who would command a bit of respect.
+- It seems obvious to me Paul has been doing heroin, but he's adamant he's been off the drugs since July 2024, and tells me he was only doing crack then, no heroin!
+- Mk.
+- I take my handbag to the toilet in our hotel room I'm so concerned about him.
+- I explain I'm sending him home because he looks like a drug addict and I wanted someone to attend the policia offices alongside me who would command a bit of respect, a male essentially.
 - He goes into a massive meltdown about how he's never done heroin and it's all my fault for suggesting it, and how I'm always telling lies about everyone, and how dare I.. that sort of thing.
 - It's quite a performance, so I tell him fair enough, and I let it go, and immediately change his flight.
 
@@ -692,6 +693,7 @@ function googleTranslateElementInit() {
 - The way that everyone believed the opposite of these things just a decade ago, and had done forever, cannot be ignored.
 - What have I missed?
 - Oh, obviously, persuading women and girls that doing porn is good for them; the *sex work is work* fallacy everyone and his cat seems to have bought into, utterly insanely, quietly forgetting that the majority of porn-addicts are seeking to destroy women, children, and babies, and only destruction and humiliation will satisfy their boners.
+- It's no accident, of course, that the loudest and most violent voices against anyone daring to suggest all this is totally insane, and no good for humans, are masked porn-addict males.
 - Sedating is all the rage due to this. They can't get enough of it but are unable to look people in the eye afterwards so their whole beings know the truth of their mistakes.
 - We all know them. They are our fathers, our brothers, our boyfriends, husbands, mates. They are all men including the ones who don't rape, but know about it and say nothing.
 - Our world's security and safety is meaningless to these idiots.
