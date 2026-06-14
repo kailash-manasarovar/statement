@@ -763,6 +763,15 @@ function googleTranslateElementInit() {
 - The other woman was Helen Schucman. I also had no idea who this woman was until probably 20 years later when I saw a picture of her and slowly remembered she'd popped her head around my bedroom door to see me sleeping.
 - Cool, innit.
 
+#### The great thing about Helen
+
+- Was she was so academically rigid let's say careful, quite sceptic, and this made her very believable.
+- I used to be.. which as part of a spiritual practice was very helpful.
+- But I think the thing which makes me an excellent course student has been my inability to see the bad in people, particularly the people that I assumed loved me and would do nothing to hurt me.
+- This ability to be totally gaslit meant no-one saw me coming, did they.
+- HAHA! Up yours criminals and their evil helpers - is that the helped and the helpers, all falling together.
+- We're closing in now.
+
 ## Justice is a miracle
 
 - For all those many millions of men self-harming with porn, and destroying our beautiful world in the process, a reckoning is due, and that is a loving act, i.e. a miracle because it is unloving to let people hurt themselves through total madness.
