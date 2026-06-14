@@ -69,10 +69,10 @@ function googleTranslateElementInit() {
 
 ![Rahu loses his head](../../content/images/rahu-loses-his-head.jpg)
 
-!!! tip "Important question about Mars"
-    - How long before the mass raping begins as Elon and co head off to Mars, 1 woman to every 300 men on board, just like their sedating-and-raping work conferences?
+!!! tip "Important questions about Elon's Mars intentions"
+    - How long before the mass raping begins as Elon and co head off to Mars, 1 woman to every 300 men onboard, just like their sedating-and-raping work conferences?
     - My guess is they won't be outside the earth's atmosphere before they all lose their minds, again, and start raping the women.
-    - They'll be lucky to arrive with any still alive.
+    - They'll be lucky to arrive with any woman still alive.
     - Pretty sure Elon is our Rahu of the times.
 
     ![Elon is Rahu](../../content/images/elon-is-rahu.png)
