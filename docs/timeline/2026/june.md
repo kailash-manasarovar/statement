@@ -63,8 +63,9 @@ function googleTranslateElementInit() {
 - Who knew that the most egregious of lies would cause apparently sane people to go quite mad in defense of it. It's not like we haven't seen that happen before now have we.
 - There's so many of us, so insane, it's difficult to see how we might pull ourselves back from the brink of the hell we've been happily creating for ourselves.
 - The porn-addicts don't even know how evil they've become, nor care; they think they're the great winners of everything.
-- But God sees everything and they can't even look women in the eye anymore at all; perhaps this serves to make them more murderous towards us.
-- Nevertheless, back in the day, Rohini tricked them all, and thus saved the world, thank God.
+- But God sees everything and they can't even look women in the eye anymore at all; perhaps this serves to make them even more murderous towards us.
+- They must be so annoyed at all the criminals who assured them, repeatedly, that there'd be no victim alive very shortly after they'd *had a go* at her, him, whoever, and they believed them. Fools!
+- Nevertheless, back in the day, and perhaps today too, Rohini tricked them all, and thus saved the world, thank God.
 
 ![Rohini](../../content/images/rohini-me.png)
 
@@ -76,7 +77,7 @@ function googleTranslateElementInit() {
     - How long before the mass raping begins as Elon and co head off to Mars, 1 woman to every 300 men onboard, just like their sedating-and-raping work conferences?
     - My guess is they won't be outside the earth's atmosphere before they all lose their minds, again, and start raping the women.
     - They'll be lucky to arrive with any woman still alive.
-    - Pretty sure Elon is our Rahu of the times, and the elixir is the manipulation tech which, for Elon and the tech-bros states *porn-is-very-good* and *women-are-evil-and-must-be-murdered-after-being-sedated-and-raped*.
+    - Pretty sure Elon is our Rahu of the times, and the elixir is the manipulation-and-lies tech which, for Elon and the tech-bros states *porn-is-very-good* and *women-are-evil-and-must-be-murdered-after-being-sedated-and-raped*, and they believe it and are ready to go to jail for every to defend the lie too.
 
     ![Elon is Rahu](../../content/images/elon-is-rahu.png)
 

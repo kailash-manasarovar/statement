@@ -616,7 +616,11 @@ function googleTranslateElementInit() {
 
 ## Harassment in UK
 
-- I'm targeted a fair bit when I'm back in UK as you will read across these next months until October.
+- I'm targeted constantly when I'm back in UK, as you will read across these next months until October when I find something so appalling out about my father that I can no longer be anywhere near my family without feeling like I'm disintegrating.
+- I'm reminded of a picture from the General Election count in the UK. Let's see if I can find it.
+
+
+
 - Somehow, also, I'm totally high nd confused, all the time.
 - Apart from a few obvious moments, such as [the two women in Harlow](april.md#shoe-zone-harlow-essex) and I wonder why they would risk themselves getting caught so obviously, it's not clear how they're managing to spike me.
 - I realize later that they're powering up the dosage too because I'm still foggy about those times and I had pretty solid clarity on events and dates prior to attempted murder by poisoning in October 2024.
