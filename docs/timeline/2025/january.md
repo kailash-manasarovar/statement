@@ -767,10 +767,11 @@ function googleTranslateElementInit() {
 
 - Was she was so academically rigid let's say careful, quite sceptic, and this made her very believable.
 - I used to be.. which as part of a spiritual practice was very helpful.
-- But I think the thing which makes me an excellent course student has been my inability to see the bad in people, particularly the people that I assumed loved me and would do nothing to hurt me.
+- But I think the thing which makes me an excellent course student has been my somewhat pathological inability to see the bad in people, particularly the people that I assumed loved me and would do nothing to hurt me.
 - This ability to be totally gaslit meant no-one saw me coming, did they.
-- HAHA! Up yours criminals and their evil helpers - is that the helped and the helpers, all falling together.
+- HAHA! Up yours criminals and their evil helpers - is that the helped and the helpers, all falling together?
 - We're closing in now.
+- 31 will fall. God says so.
 
 ## Justice is a miracle
 
