@@ -60,11 +60,12 @@ function googleTranslateElementInit() {
 - Perhaps it's not all hopeless.
 - But it does feel like we are at a global state as perilous as when the asuras nearly got hold of the amrit, the elixir of God, and the world was about to descend into total chaos.
 - This time around, they've all turned into brazen rapists, happy to let the world descend into rape chaos while fighting to sterilize everyone's children or ignoring it while everyone goes mad on the Las Marinas manipulation tech.
-- Who knew that the most egregious of lies would cause apparently sane people to go quite mad in defense of it. It's not like we haven't seen that happen before now have we.
+- Maybe the churning of the ocean of milk refers to a similar assault on the feminine back in antiquity which threatened the stability of the universe in a similar way.
+- Who knew that the most egregious of lies (raping-and-murdering-women-is-a-good-thing) would cause apparently sane people to go quite mad in defense of it. It's not like we haven't seen that happen before now have we.
 - There's so many of us, so insane, it's difficult to see how we might pull ourselves back from the brink of the hell we've been happily creating for ourselves.
 - The porn-addicts don't even know how evil they've become, nor care; they think they're the great winners of everything.
-- But God sees everything and they can't even look women in the eye anymore at all; perhaps this serves to make them even more murderous towards us.
-- They must be so annoyed at all the criminals who assured them, repeatedly, that there'd be no victim alive very shortly after they'd *had a go* at her, him, whoever, and they believed them. Fools!
+- But God sees it all and they can't even look women in the eye anymore at all; perhaps this serves to make them even more murderous towards us.
+- They must be so annoyed at all the criminals who assured them, repeatedly, that there'd be no victim alive very shortly after they'd all *had a go* at her, him, whoever, and they believed them. Fools!
 - Nevertheless, back in the day, and perhaps today too, Rohini tricked them all, and thus saved the world, thank God.
 
 ![Rohini](../../content/images/rohini-me.png)
@@ -85,6 +86,8 @@ function googleTranslateElementInit() {
 - Some people (most) clearly don't give a damn.
 
 ![Bye bye Evilon](../../content/images/bye-bye-evilon.png)
+
+- I'll get back to work now but this has been fun, and I needed some.
 
 ## Dreams
 
