@@ -60,8 +60,11 @@ function googleTranslateElementInit() {
 - Perhaps it's not all hopeless.
 - But it does feel like we are at a global state as perilous as when the asuras nearly got hold of the amrit, the elixir of God, and the world was about to descend into total chaos.
 - This time around, they've all turned into brazen rapists, happy to let the world descend into rape chaos while fighting to sterilize everyone's children or ignoring it while everyone goes mad on the Las Marinas manipulation tech.
-- They don't even know how evil they've become, they think they're winners, but God sees everything and they can't look women in the eye anymore at all.
-- Rohini tricked them all, and thus saved the world, thank God.
+- Who knew that the most egregious of lies would cause apparently sane people to go quite mad in defense of it. It's not like we haven't seen that happen before now have we.
+- There's so many of us, so insane, it's difficult to see how we might pull ourselves back from the brink of the hell we've been happily creating for ourselves.
+- The porn-addicts don't even know how evil they've become, nor care; they think they're the great winners of everything.
+- But God sees everything and they can't even look women in the eye anymore at all; perhaps this serves to make them more murderous towards us.
+- Nevertheless, back in the day, Rohini tricked them all, and thus saved the world, thank God.
 
 ![Rohini](../../content/images/rohini-me.png)
 
@@ -77,4 +80,5 @@ function googleTranslateElementInit() {
 
     ![Elon is Rahu](../../content/images/elon-is-rahu.png)
 
-<!--![Bye bye Evilon](../../content/images/bye-bye-evilon.png)-->
+![Bye bye Evilon](../../content/images/bye-bye-evilon.png)
+
