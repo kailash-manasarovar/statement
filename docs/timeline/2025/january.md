@@ -620,7 +620,7 @@ function googleTranslateElementInit() {
 - I'm reminded of a picture from the General Election count in the UK. Let's see if I can find it.
 
 
-
+- See me there with my dad (porn-world legend who anally raped his own sedated daughter in her own home in Spain and snickered endlessly about it, told all his perverted mates too who would leer over her whenever they saw her afterwards), my brother (man hell bent and following instructions to ensure his sister would be raped by thousands in her own homes in Spain by making her so miserable in London she couldn't live there for very long), and little Steve (undercover police officer/detective tasked with causing Kellie J Keen and her supporters endless trouble, and supplementary tasked with making sure I never realize the Adams porn-world family have been controlling my life for decades with the help of all the men they also control through their criminal porn-subscriptions and other methods, including the Metropolitan police service and the British government).
 - Somehow, also, I'm totally high nd confused, all the time.
 - Apart from a few obvious moments, such as [the two women in Harlow](april.md#shoe-zone-harlow-essex) and I wonder why they would risk themselves getting caught so obviously, it's not clear how they're managing to spike me.
 - I realize later that they're powering up the dosage too because I'm still foggy about those times and I had pretty solid clarity on events and dates prior to attempted murder by poisoning in October 2024.
