@@ -67,6 +67,8 @@ function googleTranslateElementInit() {
 
 - Fortunately only Rahu got a little bit of amrit, by lies, and then Rohini had to deal with him with Sudarshan - a sword not of man - and he lost his head and gave birth to eclipses where *very big things* happen, especially on Fire Horse years.
 
+![Rahu loses his head](../../content/images/rahu-loses-his-head.jpg)
+
 <!--![Elon is Rahu](../../content/images/elon-is-rahu.png)-->
 
 !!! tip "Important question about Mars"
@@ -74,5 +76,4 @@ function googleTranslateElementInit() {
     - My guess is they won't be outside the earth's atmosphere before they all lose their minds, again, and start raping the women.
     - They'll be lucky to arrive with any still alive.
 
-<!--![Bye bye Evilon](../../content/images/bye-bye-evilon.png)
-![Rahu loses his head](../../content/images/rahu-loses-his-head.jpg)-->
+<!--![Bye bye Evilon](../../content/images/bye-bye-evilon.png)-->
