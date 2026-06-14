@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 ## Kailash
 
-- I'm starting to realize that being homeless, not being able to settle and work because of sedated rape-porn stardom, not having any support at all from anyone, and finding out exactly how much my family despise me is now taking a toll on my health and wellbeing.
+- I'm starting to realize that being homeless, not being able to settle and work because of sedated rape-porn stardom, not having any support at all from anyone, and finding out exactly how much my family despise me, and for how long, is unsurprisingly taking a toll on my health and wellbeing.
 - Also, roaming relatively freely means anyone can have a pop at murdering me and perhaps, given recent miraculous events, certain folk might feel like trying is a valid *challenge*.
 - Well, just STOP IT. I'm not asking.
 - A sudden death at Everest Base Camp would be a good place to get rid of someone without question, I expect, and I wonder about how ill I got there.
@@ -34,13 +34,13 @@ function googleTranslateElementInit() {
 
 - These drugs are zombification herbs.
 - They detach the higher mind from the lower mind completely and temporarily (although probably they have caused some humans to go into a permanent vegetative state).
-- The human still has the lower functions available; movement, breathing, etc, and this is how the rapists are able to lead women and children around - and rape babies who show no response on the porn films they make of them - while they're completely unconscious and devoid of any memory.
+- The human still has the lower functions available; movement, breathing, etc, and this is how the rapists are able to lead women and children around - and rape babies who show no response on the porn films they make of them - while we're completely unconscious and devoid of any memory.
 - No speech, or thought, or higher brain activity is possible while under the influence of these herbs.. although it transpires that memories of these events do return after significant amounts of time, which I hope is terrifying millions of shameful men who need to be in jail.
 - My recurring dream of being in the forest and having no identity that started in 2011 in India and was ongoing into 2024 in Dénia is significant and indicative of being drugged in this way on a *very* regular basis.
 - Online stalkers would mention *the forest*, often, as if they wanted me to know what they were doing to me.
-- They mentioned other things as well; such as a razor sharp insert for the vagina which would rip men's penises into shreds, a long tale about someone's girlfriend asking her man if he would sedate her like he does the other girls, outrageous things like this, and I never got it while they were spiking me with hallucinogens and other drugs right on up to October 2025.
+- They mentioned other things as well; such as a razor sharp insert for the vagina which would rip men's penises into shreds, a long tale about someone's girlfriend asking her man if he would sedate her like he does the other girls, outrageous things like this, and I never got it while they were spiking me with hallucinogens and other confusing drugs right on up to October 2025 when I realized it was [a switcheroo porn-scam running live from the conservatory](../../crimes/protagonists/vidal-sastre.md#at-least-six).
 - Letting these people carry on regardless is a crime against humanity.
-- And anything a bit like, *they told us they'd stop*, which appears to be law-enforcement protocol across our brave new world of protected rapists, is an even bigger crime against humanity.
+- And anything a bit like, *they told us they'd stop, they pwomised us*, which appears to be law-enforcement protocol across our brave new world of protected rapists, is an even bigger crime against humanity.
 
 ## My current view on the world
 
@@ -48,11 +48,11 @@ function googleTranslateElementInit() {
 - I can see no hope at all for anyone if women, children, and babies are to be sacrificed at the altars of porn which are wholly protected by our elected governments and police services.
 - It's difficult to know what to do.
 - I thought I might just go and volunteer for the rest of my life at orphanages in India maybe, something like that.
-- I don't think the world has had enough horror to make it ready for healing and we're all too worshipful of the penis and it's mighty owners.
-- My guess is there's a million years more to go before anyone's truly had enough of this hellscape.
+- I don't think the world has had enough horror to make it ready for healing and we're all too worshipful of the penis and its mighty pip-squeak owners.
+- My guess is there's at least a million years more to go before anyone's truly had enough of this hellscape.
 - Perhaps God's Presence's removal of the Y chromosome will sort it all out. I expect so.
 - My view is that the *queer* business ensured everyone's total OK'ness about the sexualization of minors and it is my view that this was a very intentional weapon forged against the West with the help of the gitano manipulators making money off the caliphate's oil barons since 2012 and earlier.
-- My view is that the Islamicists know very well the arrogance of the West and it's adherents' inability to admit being tricked in this way, to it's continued detriment.
+- My view is that the Islamicists know very well the arrogance of the West and it's adherents' inability to admit to being tricked in this way, to it's continued detriment.
 - Very smart indeed from the Islamicists, and supported by their terrified attitudes towards their own women and children, hiding them away from everything, just in case the same might happen to them... I guess.
 
 ## I am Rohini
