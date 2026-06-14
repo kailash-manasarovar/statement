@@ -93,8 +93,8 @@ function googleTranslateElementInit() {
 - Willow was making a film, and I was helping her.
 - The film was about a massive tidal wave coming, and I realized the film *had* to be called *Closing In*.
 - I told Willow this, and assured her if there was a better name I'd be happy to listen.
-- We were heading to Nottingham for filming, I'm not sure why, and I was going to take the bike but in the end we decided to drive.
-- There was *blue rope* holding the doors shut, which we were opening, all of them.
+- We were heading to Nottingham for filming, I'm not sure why, and I was going to take the pushbike and I was trying to get it all ready, but I was going to have to shift it up and down the station stairs, and in the end we decided to drive anyway.
+- There was *blue rope* holding all the doors shut at the film editing room, which we were opening, all of them, all the doors were opening, the blue rope losing its tautness and falling to the ground.
 - I thought this must mean there's *a lot* of wiretap evidence (I bet there's reams of it) but I was also surprised to hear about Melanie Hall this morning found tied with blue rope.
 - Interesting.
-- I am, after all, a law-enforcing intuitive, and have been for some time (mostly without my knowledge until very recently) and we're now poised to save the world from it's mass-raping fiefdoms, cos someone had to do it, didn't they.
+- I am, after all, a law-enforcing intuitive, and have been for some time (mostly without my knowledge until very recently) and we're now poised to save the world from it's mass-raping and woman-murdering fiefdoms, cos someone had to do it, didn't they.
