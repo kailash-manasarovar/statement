@@ -78,7 +78,7 @@ function googleTranslateElementInit() {
     - How long before the mass raping begins as Elon and co head off to Mars, 1 woman to every 300 men onboard, just like their sedating-and-raping work conferences?
     - My guess is they won't be outside the earth's atmosphere before they all lose their minds, again, and start raping the women.
     - They'll be lucky to arrive with any woman still alive.
-    - Pretty sure Elon is our Rahu of the times, and the elixir is the manipulation-and-lies tech which, for Elon and the tech-bros states *porn-is-very-good* and *women-are-evil-and-must-be-murdered-after-being-sedated-and-raped*, and they believe it and are ready to go to jail for every to defend the lie too.
+    - Pretty sure Elon is our Rahu of the times, and the elixir is the manipulation-and-lies tech which, for Elon and the tech-bros states *porn-is-very-good* and *women-are-evil-and-must-be-murdered-after-being-sedated-and-raped*, and they believe it and are ready to go to jail for ever, it appears, to defend such lies.
 
     ![Elon is Rahu](../../content/images/elon-is-rahu.png)
 
