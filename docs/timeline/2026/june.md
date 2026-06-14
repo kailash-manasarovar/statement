@@ -101,3 +101,6 @@ function googleTranslateElementInit() {
 - I thought this must mean there's *a lot* of wiretap evidence (I bet there's reams of it) but I was also surprised to hear about Melanie Hall this morning found tied with blue rope.
 - Interesting.
 - I am, after all, a law-enforcing intuitive, and have been for some time (mostly without my knowledge until very recently) and we're now poised to save the world from it's mass-raping and woman-murdering fiefdoms, cos someone had to do it, didn't they.
+- Oh, and while we're at it, I'm happy to work for anyone devoted to making the world a better place, a safe place, a place with a shining loving future, which is why I love you all, but I absolutely *detest* being bullied.
+- As you might imagine.
+- I do not like it at all.
