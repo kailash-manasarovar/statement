@@ -673,7 +673,7 @@ function googleTranslateElementInit() {
 - Could it explain my mind's continued fogginess - was it a long-acting hallucinogen or similar?
 - Or was it another failed attempt to murder me?
 - In June 2026, there is still a little raised bump at this spot on my arm.
-- I believe this was yet another early murder attempt; something they had formally and secretly - everyone knows though - intended for me on my return to the UK.
+- I believe this was yet another early murder attempt; something they had formally and secretly - everyone commanded to ignore my every plea for help must know though - intended for me on my return to the UK.
 
 ## Michael from Wearyall Hill
 
