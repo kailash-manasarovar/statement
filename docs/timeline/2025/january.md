@@ -667,11 +667,11 @@ function googleTranslateElementInit() {
 - I have a whole bin of bloody tissues I was using to try to staunch it, which didn't work at all.
 - It was so bloody I felt I had to show someone; and I did. I showed my parents but we understand now they are 100% working for the porn-gangs so they're utterly unreliable.
 - You could ask them about it. They're old so they may not remember. If they deny it, however, we will know for sure how evil they are...
-- It feels like I was stuck here, injected I mean, without my knowledge.
-- I have a vague recall of a pain in my arm at this area one night and I'm thinking it was when I took a flight back to the UK.
-- Could Paul have done this when he picked me up?
-- Could it explain my mind's continued fogginess?
-- Was it another failed attempt to murder me?
+- It feels like I was injected here without my knowledge, quite deeply too.
+- I have a vague recall of a pain in my arm at this area one night, and I'm thinking it was when I took a flight back to the UK from Spain or Ireland.
+- Could Paul have done this when he picked me up one evening?
+- Could it explain my mind's continued fogginess - was it a long-acting hallucinogen or similar?
+- Or was it another failed attempt to murder me?
 - In June 2026, there is still a little raised bump at this spot on my arm.
 - I believe this was yet another early murder attempt; something they had formally and secretly - everyone knows though - intended for me on my return to the UK.
 
