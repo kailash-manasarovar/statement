@@ -649,9 +649,9 @@ function googleTranslateElementInit() {
 - From January 2025 in London, my perception and thought processes are foggy and confused.
 - I'm high actually, all the time.
 - I don't even start the [DESO account](april.md#deso) till April and it's so obvious I'm on something while I dream up that marvelous story about the lucky Forg with the help of God and my new bible study.
-- This is all in an unexpected (from the people trying to kill me's) retrospect.
-- I have clearer recall from my time in Dénia and up until I returned to the UK.
-- Somehow, the gangs are managing to spike me very consistently and regularly.
+- I can see all this in (totally unexpected from the people trying to kill me) retrospect.
+- I have clearer recall from my extended-drugged-and-poisoned life in Dénia and until I returned to the UK.
+- Somehow, the gangs are managing to spike me very consistently and very regularly.
 - Could my brother or dad be helping them out?
 - Is it Paul?
 - Or is it random people "bumping into me" in the street or while traveling.
