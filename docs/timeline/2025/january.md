@@ -687,9 +687,11 @@ function googleTranslateElementInit() {
 - The description of the dream I had at that time is not condemning to Michael or his business; somewhat the opposite in my view.
 - However, Michael's behavior is somehow condemning; certainly of me, and this is utterly irrational - a projection perhaps.
 - Did the Adams family give Michael instructions for me too? 
-- It was just prior to the switcheroo-porn scam at the conservatory everyone must have been so excited about, and I was away from Spain for over three months.
-- They may have needed to keep me topped-up with the brain-damaging substances...
-- I guess we'll find out.
+- My visit there was just prior to the switcheroo-porn scam at the conservatory everyone must have been so excited about, and I was away from Spain for over three months.
+- Was Michael instructed to be furious with me, another note from my police statement about Winston May being angry with me, then kind, then angry, and how this broke my child's mind.
+- Had he been assured of my certain demise like everyone else?
+- The gangs definitely needed to keep me topped-up with the brain-damaging substances that summer...
+- I guess we'll find out the truth, soon.
 
 ## Seonaid Dawn and Granny Smith
 
