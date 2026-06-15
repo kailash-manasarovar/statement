@@ -34,6 +34,11 @@ function googleTranslateElementInit() {
 
 ![Kailash](../../content/images/kailash.jpg)
 
+- Here's me six-months pregnant with triplets at Kailash. 
+- You can see Nandi too.
+
+![Me pregnant with triplets](../../content/images/me-pregnant-with-triplets.jpg)
+
 ### Sedating drugs and my dream of the forest
 
 - These drugs are zombification herbs.
