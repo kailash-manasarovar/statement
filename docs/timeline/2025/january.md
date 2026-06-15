@@ -741,6 +741,7 @@ function googleTranslateElementInit() {
 - I'm very clear that this is something that *must* be avoided and for that reason I'm not leaving any money to any of my family.
 - I'm also clear about the nature of the criminal gangs I'm referring to and I even mention Winston May - as when criminal gang interest in me started - and Lauren Ott - as someone who might be able to explain what's been going on for me given I wrote reams of explanatory emails to her (if she's not held up for treason for doing so) in this new will. 
 - But it's all in here anyway, isn't it.
+- Miracles are natural. When they do not occur, something has gone wrong.
 
 ## Glastonbury with Paul
 
