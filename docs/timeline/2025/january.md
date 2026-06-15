@@ -677,13 +677,19 @@ function googleTranslateElementInit() {
 
 ## Michael from Wearyall Hill
 
-- I contact Michael to tell him I've written about [the dream I had while I was staying at his house](../2022/july.md#crystal-dreaming) in July 2022.
+- I contact Michael to tell him I've written about [the dream I had while I was staying at his house](../2022/july.md#crystal-dreaming) in July 2022 while on detox there.
 - He is FURIOUS with me.
 - He wants to know why I'm telling him this.
 - His rage is irrational, unsettling, and very, very curious.
-- I try to explain it to myself as pure misogynistic gaslighting, but there's something more to it than that
-- I start to wonder about Michael's poor health and body paralysis.
-- I explain, gently, to Michael that perhaps if a reporter was to come and do detox with him, he might like to mention my book which includes a short description of my stay at the end of July 2022.
+- I try to explain it to myself as pure misogynistic gaslighting, but there's something more to it than that.
+- I start to wonder about Michael's poor health and unusual paralysis, and remember how unusually rough Fiona was with me too.
+- I explain, gently, to Michael that perhaps if a reporter was to come and do a detox with him, he might like to mention my book which includes a short description of my stay at the end of July 2022.
+- The description of the dream I had at that time is not condemning to Michael or his business; somewhat the opposite in my view.
+- However, Michael's behavior is somehow condemning; certainly of me, and this is utterly irrational - a projection perhaps.
+- Did the Adams family give Michael instructions for me too? 
+- It was just prior to the switcheroo-porn scam at the conservatory everyone must have been so excited about, and I was away from Spain for over three months.
+- They may have needed to keep me topped-up with the brain-damaging substances...
+- I guess we'll find out.
 
 ## Seonaid Dawn and Granny Smith
 
