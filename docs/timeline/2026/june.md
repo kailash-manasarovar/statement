@@ -24,6 +24,10 @@ function googleTranslateElementInit() {
 - Whenever I looked at the color white I saw pink.
 - My kidneys, too, were screaming just like they used to do whenever someone tried to kill me at home, or in Lourdes.
 - Then the fatigue kicked in.. could I have been poisoned again? 
+- Here I am half dead at Everest Base Camp.
+
+![Me half dead at EBC](../../content/images/me-half-dead-at-everest-base-camp.jpg)
+
 - I gave up on my hopes for Kailash kora pretty quickly, but then it turned out the weather was so bad they closed the kora for everyone.
 - I don't feel I missed out on anything, I spent a good few days at the holy feet of God Himself, but I might return in my 60s God willing.
 - In any event, the chest infection started to remind me of [being smothered with pillows and my duvet at my home on 13th March 2024](../2024/march/13-end.md#the-pillow-game) and I realize that my legs must have been free while that was happening and I tried to free myself from being suffocated under the weight being pushed down on me... for sure Maria hontanilla was there... Bruno's younger brother, probably Gloria... another man or two to apply the weight to my face so I couldn't breathe ... while my legs went around and around trying to get free, and they all laughed at me, all these memories came back with the chest infection at Kailash.
