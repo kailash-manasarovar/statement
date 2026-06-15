@@ -93,7 +93,7 @@ function googleTranslateElementInit() {
 
 - If only God could get his hands on that tech. We might be able to fix our colossal mess. Perhaps this is *all* this story is about.
 - It's been too easy to get distracted by the hoards of evil demons pretending to be human.
-- And some people (most people) clearly don't give a damn about our beautiful world.
+- And some people (most people) clearly don't give a damn about our beautiful world that God gave us to take care of.
 
 ![Bye bye Evilon](../../content/images/bye-bye-evilon.png)
 
