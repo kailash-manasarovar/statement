@@ -91,9 +91,11 @@ function googleTranslateElementInit() {
 
     ![Elon is Rahu](../../content/images/elon-is-rahu.png)
 
-- If only God could get his hands on that tech. We might be able to fix our colossal mess. Perhaps this is *all* this story is about.
-- It's been too easy to get distracted by the hoards of evil demons pretending to be human.
-- And some people (most people) clearly don't give a damn about our beautiful world that God gave us to take care of.
+- If only God could get his hands on that tech. We might be able to fix our colossal mess. 
+- Perhaps this is *all* this story is about.
+- Perhaps God needed a very special person for this, someone who wouldn't even know the task themselves till they'd achieved it.
+- It's been too easy to get distracted by the hoards of evil demons pretending to be human to think about these higher ideas mostly.
+- And some people (most people) clearly don't give a damn about our beautiful world that God gave us to take care of in perpetuity.
 
 ![Bye bye Evilon](../../content/images/bye-bye-evilon.png)
 
@@ -114,3 +116,5 @@ function googleTranslateElementInit() {
 - Oh, and while we're at it, I'm happy to work for anyone devoted to making the world a better place, a safe place, a place with a shining loving future, which is why I love you all, but I absolutely *detest* being bullied.
 - As you might imagine.
 - I do not like it at all.
+
+- There's a film I want to see but I'm reluctant because I have the feeling I might weep all the way through...
