@@ -92,7 +92,8 @@ function googleTranslateElementInit() {
     ![Elon is Rahu](../../content/images/elon-is-rahu.png)
 
 - If only God could get his hands on that tech. We might be able to fix our colossal mess. Perhaps this is *all* this story is about.
-- Some people (most people) clearly don't give a damn.
+- It's been too easy to get distracted by the hoards of evil demons pretending to be human.
+- And some people (most people) clearly don't give a damn about our beautiful world.
 
 ![Bye bye Evilon](../../content/images/bye-bye-evilon.png)
 
