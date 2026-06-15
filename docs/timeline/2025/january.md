@@ -369,7 +369,7 @@ function googleTranslateElementInit() {
 - I understand why he lives in his car now... money for drugs.
 - His older son was living with a violent crackhead over twenty years his senior, apparently.
 - I'm even more concerned about his attitude towards his younger son and how *proud he was* when his son told him he was bisexual.
-- I think Paul said the boy was 8 at the time.
+- I think Paul said the boy was 10 or younger at the time.
 - No-one seems to realize that they've all been manipulated by North London and Spanish criminal gangs into believing the most outrageous things concerning sex and children, just so these non-humans can sell more criminal porn to even more broken minds at extortionate prices.
 - And they're mostly gonna be too arrogant to admit they were tricked!
 - Makes me despair.
@@ -535,6 +535,7 @@ function googleTranslateElementInit() {
 - He had no reason to say such a thing, and I never said anything remotely like this.
 - He was, however, using the exact words of Winston May, Tottenham rape-gang leader, that I had mentioned in my [2015 police statement](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) that the whole of Spain and North London seemed to be leering over while I wrote it.
 - She told him to say this, Lucy did, didn't she, and he had no idea it had come from a known pedophile rape-gang leader as part of an official witnesses Metropolitan police statement about North London rape-gangs.
+- Of course, Winston May said this about little white posh girls all the time, because that's how much money he had been promised for sedating, gang-raping, and filming us.
 
 ## I report hacking, drugging, poisoning, illicit filming, and everything else contained in this statement to the Metropolitan police
 
@@ -602,7 +603,7 @@ function googleTranslateElementInit() {
 - Lauren didn't respond to that sad-but-true statement at the time.
 - I bet it's pretty commonplace for mothers to hate their abused daughters. The betrayal, for me, is off the scale, but nothing compared to my dad's betrayal.
 - Robert my brother continues to seethe, continues to ignore what's been happening for me, just like he has since 2011 when he [lost his mind in Thailand](../2001-to-2010/2010.md#my-brother-loses-his-mind-in-thailand) and signed up for whatever the porn-gangs needed help with - conspiracy to murder me, or convince me to kill myself with the help of my work colleagues at WeAreAdaptive perhaps (I wonder what treasonous data processes they're running in their massive server farms).
-- Mother only got worse over 2025, and especially so when I remembered that my dad had starred in a sedated-anal-rape-porn video at my house in Joan Fuster in 2015 which caused me injury, and that he is pretty famous all over porn-world because of how he hid in the bathroom grinning and snickering when I saw him running out of my room after being injured enough to wake up, and I ran after him and waited for him to come out of the bathroom, which he did with his hands over his face, hiding his snicker (although the spy-cams caught it to great applause across criminal porn-world, a *legend* they think of him).
+- Mother only got worse over 2025, and especially so when I remembered that my dad had starred in a sedated-anal-rape-porn video at my house in Joan Fuster in 2015 which caused me injury, and that he is pretty famous all over porn-world because of how he hid in the bathroom grinning and snickering when I saw him running out of my room after being injured enough to wake up out of sedation, and I ran after him and waited for him to come out of the bathroom, which he did with his hands over his face, hiding his snicker (although the spy-cams caught it to great applause across criminal porn-world, a *legend* they think of him).
 - Dad didn't say anything to me suggesting he disbelieved any of the information in this statement in January 2025, and in fact gave me heaps of information about the gangs and his own outrageous betrayals over 2025, including how he helped the North London gangs try to murder me, on request by one of them at the Red Lion pub in Barnet in July 2025 (except they failed again, of course).
 - When challenged with his actions at two of my houses in Dénia, including when he brought my mother with him to the town and she had a panic attack and went to A&E, and when I remembered he had excitedly told my cousin to visit Dénia, because something *very very good* was happening there at my apartment specifically, that Igor kept mentioning to me, but I couldn't understand what he was referencing cos no-one told me I was being sedated and raped there fairly regularly, and so my cousin Igor took his young family to learn Spanish with TLC for two weeks one summer on my dad's recommendation (another sedated-rape conspirator organization like the rest of them), and he got so angry... he threatened, *I'm going to phone Igor to tell him*... but I wondered what he was going to say to Igor... *just deny everything* maybe? Like they do.
 - No doubt Igor's family will have been badly affected if they sedated them all, which seems likely.
@@ -616,29 +617,45 @@ function googleTranslateElementInit() {
 
 ## Harassment in UK
 
-- I'm targeted constantly when I'm back in UK, as you will read across these next months until October when I find something so appalling out about my father that I can no longer be anywhere near my family without feeling like I'm disintegrating.
-- I'm reminded of a picture from the General Election count in the UK. Let's see if I can find it.
+- I'm targeted constantly when I'm back in the UK, as you will read across these next months until October 2025 when I find something so appalling out about my father that I can no longer be anywhere near my family without feeling like I'm disintegrating.
+- In fact, the attacks have been pre-arranged by the criminal gangs together with the police and UK government while I was in Thailand.
+- I don't realize any of this at the time - or I wouldn't have stayed so long in the UK - but it's pretty obvious looking back there were numerous hidden attempts at murder by poisoning - which puts [July's very obvious and open attempt](../2025/july.md#eyes-and-kidneys-again-and-heart-now-too) at murdering me into a curiously interesting light.
+- Something this morning while I write is reminding me of a picture from the General Election count in the UK on 4th July 2024. 
+- Let's see if I can find it.
 
+![Placeholder for General Election count pic]()
 
-- See me there with my dad (porn-world legend who anally raped his own sedated daughter in her own home in Spain and snickered endlessly about it, told all his perverted mates too who would leer over her whenever they saw her afterwards), my brother (man hell bent and following instructions to ensure his sister would be raped by thousands in her own homes in Spain by making her so miserable in London she couldn't live there for very long), and little Steve (undercover police officer/detective tasked with causing Kellie J Keen and her supporters endless trouble, and supplementary tasked with making sure I never realize the Adams porn-world family have been controlling my life for decades with the help of all the men they also control through their criminal porn-subscriptions and other methods, including the Metropolitan police service and the British government).
-- Somehow, also, I'm totally high nd confused, all the time.
-- Apart from a few obvious moments, such as [the two women in Harlow](april.md#shoe-zone-harlow-essex) and I wonder why they would risk themselves getting caught so obviously, it's not clear how they're managing to spike me.
+- Surprise, surprise, Adams got the police/UK security services to delete all my general election files when I was back in the UK in January 2026, as well as everything else they thought might be too condemning such as my katharinejchardwood@gmail.com account in its entirety, and my Facebook account which they managed to very easily get completely deleted while I was in the UK too.
+- Anyway. Everyone knows everything I've done has a million copies around the world in a trillion different interested hands, thankfully, so let me explain it and then we can pop it back in when the time comes.
+- See me there at the count at the Royal Airforce Museum in Hendon (I love the military and independence day connections) standing with my dad (porn-world legend who anally raped his own sedated daughter in her own home in Spain, and snickered endlessly about it, and told all his perverted mates too who would leer over her whenever they saw her afterwards), my brother (man hell bent on following Adams instructions to ensure his sister would be raped by thousands over many years in her own homes in Spain by making her so miserable at her family home in London - which I will be reacquiring thank you - she couldn't live there for very long at all), and little Steve (undercover police officer/detective tasked with causing Kellie J Keen and her supporters endless trouble, and supplementarily tasked with making sure I never realize the Adams porn-world family have been controlling my life for decades with the help of all the men and women they also control through criminal porn-subscriptions and other methods, including the Metropolitan police service and the British government).
+- Interesting, isn't it.
+- They can't have expected me to survive Dénia, then Thailand, then London, then... well, there's evidence everywhere now isn't there. 
+- Somehow, I'm totally high and confused all the time while I'm back in UK, more so than I was even in Spain or Thailand.
+- Apart from a few obvious moments, such as [the two Cambridge-Ugly women in Harlow doing their distract-and-drug thing](april.md#shoe-zone-harlow-essex) and Hamill going to the toilet in my hotel room in Aberdeen in March 2025, for example - every failure made a retry even more obvious I guess - it's not clear how people are managing to spike me with drugs and poisons in England.
 - I realize later that they're powering up the dosage too because I'm still foggy about those times and I had pretty solid clarity on events and dates prior to attempted murder by poisoning in October 2024.
-- Did my job ensure they kept the dosage down to barely obvious?
-- Just like in Dénia, it seems that every time I leave the house some rare event occurs.
-- I'm certain it was criminal gang activity, especially considering Paul's sudden "popping up" and his erratic behavior, dishonesty, and obvious hard drug addiction.
-- Was the frenetic activity from criminal gangs in London... even getting a junkie involved - the most disloyal people in the universe - and all the harassment at that time early in the year, and during the general election the year before… is it because they know my dad, and my whole family in fact, would see me dead before helping me?
-- Or were they panicking and drugging me harder to make sure I didn't remember [the switcheroo men](../../crimes/protagonists/vidal-sastre.md#at-least-six), perhaps also holding out on the hope they might be able to get me into a situation where I'd part with my money?
+- Did my job with Polygon ensure they kept the dosage down to barely obvious?
+- Certainly, firing me was the go-ahead for murder, there's no question about that and I wonder who gave Gabriel Silva the order, and I wonder if anyone at Polygon *didn't* know I was going to be murdered and they could all breathe again - well, that was the intention.
+- Just like in Dénia, it seems that every time I leave the house while I'm in the UK some rare event occurs.
+- I'm certain it was criminal gang activity, especially considering Paul's sudden "popping up" and his erratic behavior, dishonesty, and obvious hard drug addiction, never mind his friendship with lil Lucy Adams, and even going to school with other Adams family members.
+- This is going to be soooo exciting on Netflix...
+- Was the frenetic activity from criminal gangs in London... even getting a junkie involved - the most disloyal people in the universe - and all the harassment at that time early in the year, and during the general election the year before… and conspiring with my father to make sure I'd be murdered successfully in July in Lourdes... except they must have known I'd survive that too.
+- It's so interesting. We start to wonder who's double-crossing who while I'm walking around in a drug-induced haze.
+- Or perhaps they were panicking and drugging me harder to make sure I didn't remember [the switcheroo men](../../crimes/protagonists/vidal-sastre.md#at-least-six), perhaps they were also holding out on the hope they might be able to get me into a situation where I'd part with my not inconsiderable finances?
+- My guess is no-one had a clue what to do about this strange, quiet, God-fearing woman with some very interesting back-stories, who they were unable to kill.
+- As you can see, we're going all out now, and then, when the great silence descends upon me again, causing me so much upset, I guess I'll have to get a job as a short-order cook, or a librarian, or something. I'm so sick of this..
 
 ### The state of my mind
 
-- It's foggy, confused, high.
-- I have clearer recall from my time in Denia and up until I returned to the UK.
-- Somehow, they're spiking me regularly.
+- From January 2025 in London, my perception and thought processes are foggy and confused.
+- I'm high actually, all the time.
+- I don't even start the [DESO account](april.md#deso) till April and it's so obvious I'm on something while I dream up that marvelous story about the lucky Forg with the help of God and my new bible study.
+- This is all in an unexpected (from the people trying to kill me's) retrospect.
+- I have clearer recall from my time in Dénia and up until I returned to the UK.
+- Somehow, the gangs are managing to spike me very consistently and regularly.
 - Could my brother or dad be helping them out?
 - Is it Paul?
 - Or is it random people "bumping into me" in the street or while traveling.
-- Somehow, they're keeping me very confused.
+- Somehow, they're keeping me very confused, but my faith is so strong I know that they will have shot themselves in their giant two-left-feet, continuously, without me even knowing it, then and now.
 
 ### I've been injected somehow
 
@@ -687,6 +704,10 @@ function googleTranslateElementInit() {
 - I understand Israel to be the only country I'm safe in.
 - My web access is continuously blocked.
 - I give up.
+
+## Updating my will
+
+- wip
 
 ## Glastonbury with Paul
 
