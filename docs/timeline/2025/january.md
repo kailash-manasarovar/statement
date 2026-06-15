@@ -680,17 +680,19 @@ function googleTranslateElementInit() {
 - I contact Michael to tell him I've written about [the dream I had while I was staying at his house](../2022/july.md#crystal-dreaming) in July 2022 while on detox there.
 - He is FURIOUS with me.
 - He wants to know why I'm telling him this.
-- His rage is irrational, unsettling, and very, very curious.
+- His rage over my hacked phone is irrational, unsettling, and very, very curious.
 - I try to explain it to myself as pure misogynistic gaslighting, but there's something more to it than that.
-- I start to wonder about Michael's poor health and unusual paralysis, and remember how unusually rough Fiona was with me while administering my colonics too.
+- I start to wonder about Michael's poor health and unusual paralysis, and I remember how unusually rough Fiona was with me while administering my colonics, as if she disliked me intensely for some oddly irrational reason.
+- Certainly most people brought in to conspire against me for the gangs were unusually angry with me (my landlady, participants on the Transforming Touch courses sent to keep an eye on me.., for example).
 - I explain, gently, to Michael that perhaps if a reporter was to come and do a detox with him, he might like to mention my book which includes a short description of my stay at the end of July 2022.
 - The description of the dream I had at that time is not condemning to Michael or his business; somewhat the opposite in my view.
 - However, Michael's behavior *is* somehow condemning; certainly of me, and this is utterly irrational - a projection perhaps.
 - Did the Adams family give Michael instructions for me too? 
 - My visit there was just prior to the switcheroo-porn scam at the conservatory everyone must have been so excited about, and I was away from Spain for over three months.
 - Was Michael instructed to be furious with me - another note from my 2015 police statement about Winston May being angry with me, then kind, then angry, and how this broke my child's mind.
-- Had he been assured of my certain demise like everyone else?
-- The gangs definitely needed to keep me topped-up with the brain-damaging substances that summer... and perhaps my three-month trip away from Spain explains the reason the trumpet-teacher(s) didn't turn up till the end of November to take classes.
+- Had Michael been assured of my certain demise like everyone else?
+- Or was he trying to tell me something without incriminating himself to the gangs he knew were listening?
+- The gangs definitely needed to keep me topped-up with the brain-damaging substances that summer of 2022... and perhaps my three-month trip away from Spain explains the reason the trumpet-teacher(s) didn't turn up till the end of November to take classes.
 - I guess we'll find out all of the truth, very soon.
 
 ## Seonaid Dawn and Granny Smith
