@@ -682,16 +682,16 @@ function googleTranslateElementInit() {
 - He wants to know why I'm telling him this.
 - His rage is irrational, unsettling, and very, very curious.
 - I try to explain it to myself as pure misogynistic gaslighting, but there's something more to it than that.
-- I start to wonder about Michael's poor health and unusual paralysis, and remember how unusually rough Fiona was with me too.
+- I start to wonder about Michael's poor health and unusual paralysis, and remember how unusually rough Fiona was with me while administering my colonics too.
 - I explain, gently, to Michael that perhaps if a reporter was to come and do a detox with him, he might like to mention my book which includes a short description of my stay at the end of July 2022.
 - The description of the dream I had at that time is not condemning to Michael or his business; somewhat the opposite in my view.
-- However, Michael's behavior is somehow condemning; certainly of me, and this is utterly irrational - a projection perhaps.
+- However, Michael's behavior *is* somehow condemning; certainly of me, and this is utterly irrational - a projection perhaps.
 - Did the Adams family give Michael instructions for me too? 
 - My visit there was just prior to the switcheroo-porn scam at the conservatory everyone must have been so excited about, and I was away from Spain for over three months.
-- Was Michael instructed to be furious with me, another note from my police statement about Winston May being angry with me, then kind, then angry, and how this broke my child's mind.
+- Was Michael instructed to be furious with me - another note from my 2015 police statement about Winston May being angry with me, then kind, then angry, and how this broke my child's mind.
 - Had he been assured of my certain demise like everyone else?
-- The gangs definitely needed to keep me topped-up with the brain-damaging substances that summer...
-- I guess we'll find out the truth, soon.
+- The gangs definitely needed to keep me topped-up with the brain-damaging substances that summer... and perhaps my three-month trip away from Spain explains the reason the trumpet-teacher(s) didn't turn up till the end of November to take classes.
+- I guess we'll find out all of the truth, very soon.
 
 ## Seonaid Dawn and Granny Smith
 
