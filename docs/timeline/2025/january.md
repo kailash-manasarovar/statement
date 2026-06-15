@@ -683,7 +683,7 @@ function googleTranslateElementInit() {
 - His rage over my hacked phone is irrational, unsettling, and very, very curious.
 - I try to explain it to myself as pure misogynistic gaslighting, but there's something more to it than that.
 - I start to wonder about Michael's poor health and unusual paralysis, and I remember how unusually rough Fiona was with me while administering my colonics, as if she disliked me intensely for some oddly irrational reason.
-- Certainly most people brought in to conspire against me for the gangs were unusually angry with me (my landlady, participants on the Transforming Touch courses sent to keep an eye on me.., for example).
+- Certainly most people brought in to conspire against me for the gangs were unusually angry with me (my landlady, participants on the Transforming Touch courses sent to keep an eye on me.., the manager at the Hotel Costa Blanca forced to let bunches rapists into guests rooms where sedated women were going to filmed for porn, for example).
 - I explain, gently, to Michael that perhaps if a reporter was to come and do a detox with him, he might like to mention my book which includes a short description of my stay at the end of July 2022.
 - The description of the dream I had at that time is not condemning to Michael or his business; somewhat the opposite in my view.
 - However, Michael's behavior *is* somehow condemning; certainly of me, and this is utterly irrational - a projection perhaps.
