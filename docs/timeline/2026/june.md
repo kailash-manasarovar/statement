@@ -119,3 +119,8 @@ function googleTranslateElementInit() {
 
 - There's a film I want to see but I'm reluctant because I have the feeling I might weep all the way through...
 - Maybe I need that, though.
+
+- Yesterday I saw the sweetest little girl. She was in her swimming costume, swimming hat, and had her rubber ring on.
+- She was holding her mummy's hand as they went to the pool.
+- As I passed her she exclaimed, "Look, I am going swimming now!".
+- She made my whole day.
