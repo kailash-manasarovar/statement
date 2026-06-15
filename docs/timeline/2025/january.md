@@ -715,14 +715,32 @@ function googleTranslateElementInit() {
 - I had told my brother everything I knew in June 2024 about what was going on for me and how much danger I was in. We were tracked in the pub at that time by *operatives*, police I expect.
 - He was spectacularly disinterested at the time, as if what I was telling him was nothing.
 - He speaks to me like he thinks I'm a little fool imagining things. Is that what dad told him too?
+- They both took the piss of this police statement endlessly while I was at home; *oh, chapter three is it now*, they'd say in derogatory tones.
 - I access the Israel website for asylum seekers and try to make an application.
 - I understand Israel to be the only country I'm safe in.
-- My web access is continuously blocked.
-- I give up.
+- The reason I understand this is because the whole country has basically endured what I've been enduring on a daily basis.
+- I feel they'll understand my predicament and help me.
+- My web access to make the application is continuously blocked.
+- I eventually give up.
+- The British government will obviously not let me make an application to find safety for myself now, will they, and it's clear they're hacking me along with North London's finest.
+- Well of course not, North London's finest control the UK completely and have done for decades: criminal murdering pedo-porn gangs and baby-rapists working closely with pornographers and drugging gitano poisoners in Spain, Portugal and anywhere else in the world these people might be available to *pop-up* and help silence anyone with a problem about the destruction of our world in the hands of mass-rapists.
 
 ## Updating my will
 
-- wip
+- Well now.
+- Something has made me realize I need to update my will and update it quick.
+- I wonder if I'm subconsciously aware - while being high most of the rest of the time - of the constant attempts to bump me off.
+- As it stands, it's likely they will murder me and it goes to my brother, and they will then be able to extract my money from him very easily.
+- I explain this to my dad, and he doesn't disagree, but stays quiet, like he does.
+- He's aware of everything - I don't know this at the time.
+- I also want to leave the forgivenet to the whole world - I've changed my mind about that since then because I don't think the world as a whole is responsible enough to take care of it, so I need to adjust the will once again and leave it to the State of Israel who I believe are the only people responsible enough to take care of such an app.
+- No-one will help me write a new legal will, and I ask a few actually lawyers, firstly because of my wishes for the app which confuses things, and secondly because I'm not leaving anything to my brother.
+- I can't explain the criminal gang involvement to random people in law offices without them saying something stupid like, *why don't you tell the police*... so... after some thought...
+- I write my own will and register it with the UK public will database and keep a copy with me.
+- In my latest will, I explain that criminal gangs have been trying to find ways to relieve me of my not inconsiderable wealth for many years in the UK and Spain, with the help of police and government, and if I was to die and my money went to my brother, he would more or less hand it over to them just like he did with his Lockerbie compensation which he spent on drugs - with the help of North London's finest residing in North London and elsewhere, i.e. Samui - in just a few years.
+- I'm very clear that this is something that *must* be avoided and for that reason I'm not leaving any money to any of my family.
+- I'm also clear about the nature of the criminal gangs I'm referring to and I even mention Winston May - as when criminal gang interest in me started - and Lauren Ott - as someone who might be able to explain what's been going on for me given I wrote reams of explanatory emails to her (if she's not held up for treason for doing so) in this new will. 
+- But it's all in here anyway, isn't it.
 
 ## Glastonbury with Paul
 
