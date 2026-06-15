@@ -639,8 +639,10 @@ function googleTranslateElementInit() {
 - I'm certain it was criminal gang activity, especially considering Paul's sudden "popping up" and his erratic behavior, dishonesty, and obvious hard drug addiction, never mind his friendship with lil Lucy Adams, and even going to school with other Adams family members.
 - This is going to be soooo exciting on Netflix...
 - Was the frenetic activity from criminal gangs in London... even getting a junkie involved - the most disloyal people in the universe - and all the harassment at that time early in the year, and during the general election the year before… and conspiring with my father to make sure I'd be murdered successfully in July in Lourdes... except they must have known I'd survive that too.
-- It's so interesting. We start to wonder who's double-crossing who while I'm walking around in a drug-induced haze.
-- Or perhaps they were panicking and drugging me harder to make sure I didn't remember [the switcheroo men](../../crimes/protagonists/vidal-sastre.md#at-least-six), perhaps they were also holding out on the hope they might be able to get me into a situation where I'd part with my not inconsiderable finances?
+- It's so interesting. We start to wonder who's double-crossing who while I was walking around in a drug-induced haze.
+- Or perhaps they were panicking and drugging me harder to make sure I didn't remember [the switcheroo men working as pedo-porn-studio teachers for the Generalitat Valenciana](../../crimes/protagonists/vidal-sastre.md#at-least-six).
+- And no doubt they were also holding out on the hope they might be able to get me into a situation where I'd part with my not inconsiderable finances?
+- My renewed and urgent interest (God tells me everything) in [protecting my money from my brother on the event of my death and him giving it all to Adams like he did before](#updating-my-will) by rewriting my will was born from this very obvious criminal gang plan.
 - My guess is no-one had a clue what to do about this strange, quiet, loving, beautiful, smart, funny, God-fearing woman with some very *very* interesting back-stories, who they were unable to kill.
 - As you can see, we're going all out now, and then, when the great and unbelievable silence descends upon me again, as it seems to do quite regularly, causing me so much upset, I guess I'll have to get a job as a short-order cook, or a librarian, or something. I'm so sick of this..
 
