@@ -117,10 +117,16 @@ function googleTranslateElementInit() {
 - As you might imagine.
 - I do not like it at all.
 
+### Disclosure Day
+
 - There's a film I want to see but I'm reluctant because I have the feeling I might weep all the way through...
 - Maybe I need that, though.
+
+### Beautiful things every day
 
 - Yesterday I saw the sweetest little girl. She was in her swimming costume, swimming hat, and had her rubber ring on.
 - She was holding her mummy's hand as they went to the pool.
 - As I passed her she exclaimed, "Look, I am going swimming now!".
 - She made my whole day.
+- Let's have an amazing day today good people.
+- Let all evil people find their way quickly, very quickly, swiftly even, to justice and redemption and the saving of the world.
