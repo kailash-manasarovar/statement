@@ -91,8 +91,8 @@ function googleTranslateElementInit() {
 
     ![Elon is Rahu](../../content/images/elon-is-rahu.png)
 
-- If only God could get his hands on that tech. We might be able to fix our colossal mess.
-- Some people (most) clearly don't give a damn.
+- If only God could get his hands on that tech. We might be able to fix our colossal mess. Perhaps this is *all* this story is about.
+- Some people (most people) clearly don't give a damn.
 
 ![Bye bye Evilon](../../content/images/bye-bye-evilon.png)
 
