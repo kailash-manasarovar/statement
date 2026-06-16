@@ -642,7 +642,7 @@ function googleTranslateElementInit() {
 - It's so interesting. We start to wonder who's double-crossing who while I was walking around in a drug-induced haze.
 - Or perhaps they were panicking and drugging me harder to make sure I didn't remember [the switcheroo men working as pedo-porn-studio teachers for the Generalitat Valenciana](../../crimes/protagonists/vidal-sastre.md#at-least-six).
 - And no doubt they were also holding out on the hope they might be able to get me into a situation where I'd part with my not inconsiderable finances.
-- My renewed and urgent interest (God tells me everything) in [protecting my money from my brother on the event of my death and him giving it all to Adams like he did before](#updating-my-will) by rewriting my will was born from this very obvious criminal gang plan that I could practically see written out in front of me it was so obvious.
+- My renewed and urgent interest (God tells me everything) in [protecting my money from my brother on the event of my death and him giving it all to Adams like he did before](#an-urgent-need-to-update-my-will) by rewriting my will was born from this very obvious criminal gang plan that I could practically see written out in front of me it was so obvious.
 - My guess is no-one had a clue what to do about this strange, quiet, loving, beautiful, smart, funny, God-fearing woman with some very *very* interesting back-stories, who they were unable to kill.
 - As you can see, we're going all out now, and then, when the great and unbelievable silence descends upon me again, as it seems to do quite regularly, causing me so much upset, I guess I'll have to get a job as a short-order cook, or a librarian, or something. I'm so sick of this..
 
@@ -757,25 +757,24 @@ function googleTranslateElementInit() {
 - Anyone who has watched criminal porn can be used by the gangs in any way they like.
 - It really is an army of darkness and ignorance taking over the world.
 - I was all alone against a world of these f**kers, and you were all just waiting till they got me like they get everyone, weren't you. Bas***rds, I'm British you know. HOW DARE YOU!!!!!
-- And if Israel ever receives my request for asylum, I'd still love to live in the best country in the whole world, I'd be able to breathe normally again I reckon.
+- And if Israel ever receives my request for asylum, I'd still love to live in the best country in the whole world.
+- I'd be able to breathe normally again I reckon.
 
-## Updating my will
+## An urgent need to update my will
 
-- Well now.
 - Something has made me realize I need to update my will and update it quick.
 - I wonder if I'm subconsciously aware - while being high most of the rest of the time - of the constant attempts to bump me off.
-- As it stands, it's likely they will murder me and it goes to my brother, and they will then be able to extract my money from him very easily.
-- I explain this to my dad, and he doesn't disagree, but stays quiet, like he does.
-- He's aware of everything - I don't know this at the time.
-- I also want to leave the forgivenet to the whole world - I've changed my mind about that since then because I don't think the world as a whole is responsible enough to take care of it, so I need to adjust the will once again and leave it to the State of Israel who I believe are the only people responsible enough to take care of such an app.
-- No-one will help me write a new legal will, and I ask a few actually lawyers, firstly because of my wishes for the app which confuses things, and secondly because I'm not leaving anything to my brother.
+- As it stands, I figure it's likely the gangs will murder me, and because of the nature of my will as it stood at the time, my money could end up with my brother, and the gangs would then be able to extract my money from him very easily just like they did before.
+- I explain this to my dad, and he doesn't disagree; but he stays quiet, like he does.
+- He's aware of everything - I don't know this at the time - but I know he agrees with me about my money.
+- I also want to leave the forgivenet to the whole world - I've changed my mind about that since then because I don't think the world as a whole is responsible enough to take care of it, so I need to adjust the will once again and leave it to the State of Israel who I believe are the only people mature and responsible enough to take care of such an app.
+- No-one will help me write a new legal will, and I speak to a few actual lawyers about this; firstly because of my wishes for the app which confuses things, and secondly because I'm not leaving anything to my brother which means my will could be contested, they tell me and I find out exactly why I feel the urgency I'm feeling.
 - I can't explain the criminal gang involvement to random people in law offices without them saying something stupid like, *why don't you tell the police*... so... after some thought...
 - I write my own will and register it with the UK public will database and keep a copy with me.
-- In my latest will, I explain that criminal gangs have been trying to find ways to relieve me of my not inconsiderable wealth for many years in the UK and Spain, with the help of police and government, and if I was to die and my money went to my brother, he would more or less hand it over to them just like he did with his Lockerbie compensation which he spent on drugs - with the help of North London's finest residing in North London and elsewhere, i.e. Samui - in just a few years.
+- In my latest will, I explain that criminal gangs have been trying to find ways to relieve me of my not inconsiderable wealth for many years in the UK and Spain, with the help of police and government, and if I was to die and my money went to my brother, he would more or less hand it over to them just like he did with his Lockerbie compensation which he spent on drugs - with the help of North London's finest manipulating-teams residing in North London and elsewhere, i.e. Samui - in just a few years.
 - I'm very clear that this is something that *must* be avoided and for that reason I'm not leaving any money to any of my family.
-- I'm also clear about the nature of the criminal gangs I'm referring to and I even mention Winston May - as when criminal gang interest in me started - and Lauren Ott - as someone who might be able to explain what's been going on for me given I wrote reams of explanatory emails to her (if she's not held up for treason for doing so) in this new will. 
-- But it's all in here anyway, isn't it.
-- Miracles are natural. When they do not occur, something has gone wrong.
+- I'm also clear about the nature of the criminal gangs I'm referring to and I even mention Winston May - to explain when and how the criminal gang interest in me began - and Lauren Ott - as someone who might be able to explain what's been going on for me given I wrote reams of explanatory emails to her over the last years - if she's not held up for treason ! (I know, amazing isn't it) for doing so - in this new will. 
+- But it's all in here in this police statement anyway, isn't it.
 
 ## Glastonbury with Paul
 
