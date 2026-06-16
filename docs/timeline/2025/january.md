@@ -779,9 +779,10 @@ function googleTranslateElementInit() {
 - In my latest will, I explain that criminal gangs have been trying to find ways to relieve me of my not inconsiderable wealth for many years in the UK and Spain, with the help of police and government, and if I was to die and my money went to my brother, he would more or less hand it over to them just like he did with his Lockerbie compensation which he spent on drugs - with the help of North London's finest manipulating-teams residing in North London and elsewhere, i.e. Samui - in just a few years.
 - I'm very clear that this is something that *must* be avoided and for that reason I'm not leaving any money to any of my family.
 - I also state clearly in this new will the nature of the criminal gangs I'm referring to and I even mention Winston May - to explain when and how the criminal gang interest in me began - and Lauren Ott - as someone who might be able to explain what's been going on for me given I wrote reams of explanatory emails to her over the last years - if she's not held up for treason ! (I know, amazing isn't it) for doing so. 
-- But it's all in here in this police statement anyway, isn't it, replicated around the world umpteen times and read by thousands daily.
+- But it's all in here in this police statement anyway, isn't it, replicated around the world a trillion times and read by thousands daily.
 - Thank you folks!
 - <3
+- It is funny the way I say some things... even I am most often surprised. For You, Father, anything.
 
 ## Glastonbury with Paul
 
