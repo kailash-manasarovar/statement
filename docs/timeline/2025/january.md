@@ -272,9 +272,9 @@ function googleTranslateElementInit() {
 - Geetha and I, together without anyone else, went to Ritzy's nightclub on a Wednesday night.
 - Geetha's mum was in Antigua at the time.
 - It was after I had been sedated and gang-raped at Plevna Crescent by Winston, Busby (who anally-raped me), and the boys sitting on kitchen chairs (just like they "reminded" me in [September 2023 on Las Marinas beach](../2023/september.md#rape-gang-reminders)).
-- Winston had total control of my mind by that time using fear-aggression-violence-interspersed-with-kindness, and other animal-training techniques no doubt he got from the gypsies in Spain when he popped over for the sedating 101 workshop with Nicky not long before.
-- I think I was sedated in the nightclub that night; there was weird stuff going on that night and I don't even remember really being in the nightclub.
-- I remember being outside, with Geetha and Winston May, feeling quite sober (relatively so for a sexually-traumatized child).
+- Winston had total control of my mind by that time using fear-aggression-violence-interspersed-with-kindness, and other animal-training techniques no doubt he got from the gypsies in Spain when he popped over for [the sedating 101 workshop](../../crimes/protagonists/winston-may-and-nicky.md#a-trip-to-spain) with Nicky not long before.
+- I think I was likely sedated in the nightclub that night; there was weird stuff going on that night and I don't even remember really being in the nightclub apart from about 5 minutes after walking in.
+- I remember being outside though, after it had closed, with Geetha and Winston May, feeling quite sober (relatively so for a sexually-traumatized child).
 - Winston put Geetha in a taxi to get her home; he may have even paid for it.
 - Then I was alone with him, yet again, for more of the same to add to the pedo-rape-porn collection no doubt.
 - Curious isn't it.
