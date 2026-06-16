@@ -710,40 +710,54 @@ function googleTranslateElementInit() {
 - I've started to block the criminal gang members and porn accounts, including these at that time, not that it made any difference, they popped up on other social media accounts in other guises as quick as you can tell the British police that *women, children, and babies murdered for porn is not comedy*.
 - We wonder when they'll get it.
 
-## Seeking asylum in another country
+## Seeking asylum in Israel
 
-- I am clearly unsafe in the United Kingdom as well as in Spain and France, and especially in North London where my family live.
-- I was followed in Thailand also.
-- I'm not safe at home, it's an extraordinarily toxic environment and totally unsupportive.
+- I am clearly unsafe in the United Kingdom as well as in Spain and France, and especially in North London where my family live; the only place left I have to go.
+- I was followed endlessly in Thailand also so I'm probably not safe there either.
+- I'm not safe at home at 31 Trinity; it's an extraordinarily toxic environment and totally unsupportive.
 - I've spent my whole life being gaslit by people pretending nothing has ever happened to me and my mother's attitude towards me is especially upsetting.
-- My dad was aware of everything that was going on, I had explained everything to him in September 2024 in Lourdes and he appeared to understand the nature of my situation and how much danger I was in.
-- As I told him my story, he kept saying: *heavy*, *heavy*,; I thought it was just him taking the piss, as he usually does. He then told me to be careful as I could be beaten by a man and made to be a prostitute.
-- Did he pretend to be supportive to me and then tell my mother and brother I was not to be believed?
-- I had told my brother everything I knew in June 2024 about what was going on for me and how much danger I was in. We were tracked in the pub at that time by *operatives*, police I expect.
-- He was spectacularly disinterested at the time, as if what I was telling him was nothing.
-- He speaks to me like he thinks I'm a little fool imagining things. Is that what dad told him too?
-- They both took the piss of this police statement endlessly while I was at home; *oh, chapter three is it now*, they'd say in derogatory tones.
-- I access the Israel website for asylum seekers and try to make an application.
-- I understand Israel to be the only country I'm safe in.
-- The reason I understand this is because the whole country has basically endured what I've been enduring on a daily basis.
-- I feel they'll understand my predicament and help me.
-- My web access to make the application is continuously blocked.
-- I eventually give up.
+- My dad was aware of everything that was going on, [I had explained everything to him in September 2024 in Lourdes](../2024/september.md#lourdes-with-dad) and he appeared to understand the nature of my situation and how much danger I was in.
+- I wasn't aware of his total and unconditional support for the porn-gangs.
+- As I told him my horrific story, he kept saying: *heavy*, *heavy*; I thought it was just him taking the piss, as he usually does.
+- He then told me to be careful as I could be beaten by a man and made to be a prostitute which suggested to me he knew *exactly* what was going on for me without offering any practical help.
+- Did he pretend to be supportive to me to my face, and then tell my mother that I was not to be believed? Seems likely.
+- I had also [told my brother everything I knew in June 2024](../2024/june.md#telling-my-brother-everything-at-the-white-lion) about what was going on for me and how much danger I was in.
+- We were tracked in the pub at that time by *operatives*, police I expect.
+- He was spectacularly disinterested at the time, as if what I was telling him was nothing at all.
+- He speaks to me like he thinks I'm a little fool imagining things when he knows *exactly* what is going on.
+- It would be devastatingly hurtful if I wasn't so angry with him! How dare he! 
+- He and my dad both took the piss of this police statement endlessly while I was at home writing it - trying, alone, to save my own life - throughout 2025; *oh, chapter three is it now*, they'd say in derogatory tones.
+- If anyone needed a definition of evil, I just gave it.
+- One evening, soon after my return to the UK, in desperation, I access the Israel website for asylum seekers and I try to make an application.
+- I understand Israel to be the only country I'm safe in but perhaps Toby was right about Japan too; except clearly he was blocked from getting any help as would have been all British nationals in peril from the porn-gangs - a crime against the British people.
+- The reason I understand Israel to be a completely safe place for me is because the whole country has been enduring mass sexual assaults and gaslighting over the last few years since October 7th 2023, that I've been enduring on a daily basis for decades.
+- I feel they'll understand my predicament like no other nation might, and help me.
+- I'm sure they would have helped me, except my web access to make the application is continuously blocked by hackers.
+- I eventually give up trying.
 - The British government will obviously not let me make an application to find safety for myself now, will they, and it's clear they're hacking me along with North London's finest.
-- Well of course not, North London's finest control the UK completely and have done for decades: criminal murdering pedo-porn gangs and baby-rapists working closely with pornographers and drugging gitano poisoners in Spain, Portugal and anywhere else in the world these people might be available to *pop-up* and help silence anyone with a problem about the destruction of our world in the hands of mass-rapists.
-- To be fair, the British government are probably terrified of a mass-stampede of porn-gang-stalking victims to other countries, but from my perspective it would be very interesting to know how many thousands of us there are:
-    - Certainly any sexual crime victim and their families, especially children and babies, where the investigation is blundered by police are up there.
-    - Noah Donohoe, Madeline McCann, me, and many thousands of other women targeted for snuff porn or running around the field naked after the horse.
-    - Certainly Toby, Trish's son, who they clearly have been terrorizing for years.
-    - Alessandra and those like her who have been manipulated into the most outrageous acts.
+- Well of course not, North London's finest control the UK completely and have done for decades: criminal murdering pedo-porn gangs and baby-rapists working closely with pornographers and drugging gitano poisoners and honey-trap manipulators in Spain, Portugal and anywhere else in the world these people might be available to *pop-up* and help silence anyone with a problem about the destruction of our world in the hands of millions of tech-bro rapists.
+- And they've just been getting worse and worse over the years of total protection; and now, surprise surprise, they've set up porn-studios in actual schools.
+- Who'd have guessed that would happen!?
+- And what might they think up next, is the better question? 
+- To be fair, the British government are probably terrified of a mass-stampede of porn-gang-stalking victims to other countries - never mind the mass child rape-gang victims of Islamicist sex offenders - but from my perspective it would be very interesting to know just how many thousands of us have been silenced and are craving justice:
+    - Certainly any sexual crime victim and their families, especially when its children or babies, where the investigation is very obviously blundered-on-purpose by the police are on the list.
+    - Noah Donohoe, Madeline McCann, me, and many thousands of other women targeted for snuff porn or running around the field naked after the horse - something the British police just love to watch, and laugh about, the gangs made sure of that very early on.
+    - Certainly Toby, Trish's son, who they clearly have been terrorizing for years is on the list, and no doubt he knows about hundreds more just like him.
+    - Alessandra and those like her who have been manipulated into the most outrageous acts of self-harm.
     - Mike Wenham even.
-    - Perhaps, even, the families of tech-bros not so excited about running the caliphate AI systems too.
-- As I was being stalked by porn-gangs all over the world it was more than clear to me these people have made something of an art form of it, the criminal porn-stalking, drugging and poisoning, and they have willing operatives on every continent.
+    - Victims of manipulated suicide like Lorraine, and some teachers at the conservatory, and any child (along with their families when in support) manipulated into sterilizing themselves.
+    - Perhaps, even, the families of the tech-bros not so excited about running the caliphate AI systems or other treasonous criminal activity on their servers.
+    - My guess is it's going to be very, *very* eye-opening for the world and we might also find out about hundreds of female-tech-workers convinced they were hacked, and maybe even sedated and raped by their colleagues at work events - who reported and were silenced, or maybe even paid off (Alicia at Polygon after Bali).
+    - If the rapists think they'll get away with it, they'll do it.
+    - They are very, very stupid after all (thinking with an erection and not a brain makes for stupid, everyone knows that).
+- As I was being stalked by porn-gangs all over the world it was more than clear to me these people have made something of an art form of the criminal porn-stalking, drugging and poisoning, and they have willing operatives on every continent.
+- They could only get that far along with these crimes against humanity with total protection everywhere in the world.
 - There must be thousands upon thousands of victims.
 - I think we should find out exactly how many and how big the problem of porn-gangs owning the police and governments truly is.
 - Anyone who has watched criminal porn can be used by the gangs in any way they like.
 - It really is an army of darkness and ignorance taking over the world.
 - I was all alone against a world of these f**kers, and you were all just waiting till they got me like they get everyone, weren't you. Bas***rds, I'm British you know. HOW DARE YOU!!!!!
+- And if Israel ever receives my request for asylum, I'd still love to live in the best country in the whole world, I'd be able to breathe normally again I reckon.
 
 ## Updating my will
 
