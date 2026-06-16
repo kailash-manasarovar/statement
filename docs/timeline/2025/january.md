@@ -700,14 +700,16 @@ function googleTranslateElementInit() {
 ## Seonaid Dawn and Granny Smith
 
 - Seonaid Dawn stalked me endlessly alongside Hazel Smith, lil' Lucy Adams, and the rest of North London's finest from September 2023 or before.
-- Seonaid Dawn then ran for election with Kellie J Keen's Party of Women in June 2024 - which in retrospect was a little silly but they all expected me to be murdered, of course.
+- Seonaid Dawn then ran for election with Kellie J Keen's Party of Women in July 2024 - which in retrospect was a little silly but they all expected me to be murdered and forgotten like hundreds if not thousands of other British women - many of whom I have published photos of in this police statement.
+- Imagine being able to gaslight that away! 
+- You'd have to be extremely insane and full of hatred for women to expect to get away with it.
 - Granny Smith is very obviously Sandra Smith, Hazel's apparent mother (but not really her mother, probably more likely her lover and willing slave).
 - Both these suspect accounts are mentioned in my earlier and very incomplete [fake account list](../../evidence/twitter-account.md#fake-accounts), and [Hazel Smith references from May 2024](../2024/may.md#hazel-smith-pretends-to-be-esteve-online), and elsewhere.
 
 ![curious](../../content/tweets/granny-smith-seonaid-barber.png)
 
 - I'm wondering still about `@AllyBrisket`... could this account be run by Winston May himself? Seems likely.
-- I've started to block the criminal gang members and porn accounts, including these at that time, not that it made any difference, they popped up on other social media accounts in other guises as quick as you can tell the British police that *women, children, and babies murdered for porn is not comedy*.
+- I've started to block the criminal gang members and porn accounts, including these at that time, not that it made any difference - they popped up on other social media accounts in other guises as quick as you can tell the British police that *women, children, and babies murdered for porn is not comedy*.
 - We wonder when they'll get it.
 
 ## Seeking asylum in Israel
@@ -766,20 +768,23 @@ function googleTranslateElementInit() {
 - I wonder if I'm subconsciously aware - while being high most of the rest of the time - of the constant attempts to bump me off.
 - As it stands, I figure it's likely the gangs will murder me, and because of the nature of my will as it stood at the time, my money could end up with my brother, and the gangs would then be able to extract my money from him very easily just like they did before.
 - I explain this to my dad, and he doesn't disagree; but he stays quiet, like he does.
-- He's aware of everything - I don't know this at the time - but I know he agrees with me about my money.
+- He only gets vocal when he's lying about his involvement.
+- Perhaps he's quiet because he surprised about how clear I am on everything; perhaps it worries him. 
+- I hope so, in retrospect.
+- He's aware of everything that's been going on - I don't know this at the time - but I know he agrees with me about my money.
 - I also want to leave the forgivenet to the whole world - I've changed my mind about that since then because I don't think the world as a whole is responsible enough to take care of it, so I need to adjust the will once again and leave it to the State of Israel who I believe are the only people mature and responsible enough to take care of such an app.
 - No-one will help me write a new legal will, and I speak to a few actual lawyers about this; firstly because of my wishes for the app which confuses things, and secondly because I'm not leaving anything to my brother which means my will could be contested, they tell me and I find out exactly why I feel the urgency I'm feeling.
 - I can't explain the criminal gang involvement to random people in law offices without them saying something stupid like, *why don't you tell the police*... so... after some thought...
 - I write my own will and register it with the UK public will database and keep a copy with me.
 - In my latest will, I explain that criminal gangs have been trying to find ways to relieve me of my not inconsiderable wealth for many years in the UK and Spain, with the help of police and government, and if I was to die and my money went to my brother, he would more or less hand it over to them just like he did with his Lockerbie compensation which he spent on drugs - with the help of North London's finest manipulating-teams residing in North London and elsewhere, i.e. Samui - in just a few years.
 - I'm very clear that this is something that *must* be avoided and for that reason I'm not leaving any money to any of my family.
-- I'm also clear about the nature of the criminal gangs I'm referring to and I even mention Winston May - to explain when and how the criminal gang interest in me began - and Lauren Ott - as someone who might be able to explain what's been going on for me given I wrote reams of explanatory emails to her over the last years - if she's not held up for treason ! (I know, amazing isn't it) for doing so - in this new will. 
+- I also state clearly in this new will the nature of the criminal gangs I'm referring to and I even mention Winston May - to explain when and how the criminal gang interest in me began - and Lauren Ott - as someone who might be able to explain what's been going on for me given I wrote reams of explanatory emails to her over the last years - if she's not held up for treason ! (I know, amazing isn't it) for doing so. 
 - But it's all in here in this police statement anyway, isn't it.
 
 ## Glastonbury with Paul
 
-- I want to update my will.
-- I have a will registered in Glastonbury which I want to formally delete - although I already made a new one.
+- I travel to Glastonbury for a few days with Paul (who drives as my car is still in Madrid).
+- As mentioned, I want to update my will and I have a will registered in Glastonbury which I want to formally delete - although I already made a new one.
 - I want a will which will leave the forgivenet to the whole world (I changed my mind on this now too so need to update the one I registered with the UK public will database), and leave all my wealth to the Hospitalite of Lourdes.
 - I would now like to leave the forgivenet to the country of Israel, if that's possible, because with Israel it will be safe for the whole world.
 - I do not want anyone evil inheriting from me and I'm aware that if I die and my money goes to family members, criminal gangs will target them if they haven't already.
