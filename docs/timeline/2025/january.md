@@ -706,8 +706,8 @@ function googleTranslateElementInit() {
 
 ![curious](../../content/tweets/granny-smith-seonaid-barber.png)
 
-- I'm wondering still about `@AllyBrisket`... could this account be run by Winston May himself? Seems possible.
-- I've started to block the criminal gang members and porn accounts, including these at that time, not that it made any difference, they popped up on other social media accounts in other guises as quick as you can tell the police that *women, children, and babies murdered for porn is not comedy*.
+- I'm wondering still about `@AllyBrisket`... could this account be run by Winston May himself? Seems likely.
+- I've started to block the criminal gang members and porn accounts, including these at that time, not that it made any difference, they popped up on other social media accounts in other guises as quick as you can tell the British police that *women, children, and babies murdered for porn is not comedy*.
 - We wonder when they'll get it.
 
 ## Seeking asylum in another country
