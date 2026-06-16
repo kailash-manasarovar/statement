@@ -8,9 +8,15 @@ function googleTranslateElementInit() {
 }
 </script>
 
+!!! danger
+    - Most of the descriptions here are written under extreme drugging with hallucinogens and other substances including deadly ones.
+    - All of these accounts are stalker accounts; it was so easy to believe they could be legit, and they weren't.
+    - In fact, criminals took over my whole laptop and all of my devices and I rarely saw a single legit account while they were terrorizing me.
+    - All this needs a bit of a rewrite, therefore.
+
 ## Fake accounts
 
-- Here is a list of a small proportion the accounts that were, and still are in some cases, cyber stalking me.
+- Here is a list of a tiny proportion of the accounts that were, and still are in some cases, cyber stalking and terrorizing me.
 - Some have clear profile images of people I know, especially teachers and staff from the conservatory. I will note that where I can.
 - Some are obvious AI merges of people, sometimes people I know, sometimes not, and me.
 
