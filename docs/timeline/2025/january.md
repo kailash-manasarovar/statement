@@ -699,11 +699,16 @@ function googleTranslateElementInit() {
 
 ## Seonaid Dawn and Granny Smith
 
-- Both suspect accounts, mentioned in [fake account list](../../evidence/twitter-account.md#fake-accounts), [Hazel Smith references from May 2024](../2024/may.md#hazel-smith-pretends-to-be-esteve-online), and elsewhere.
+- Seonaid Dawn stalked me endlessly along size Hazel Smith, lil Lucy Adams, and the rest of North London's finest from September 2023.
+- Seonaid Dawn then ran for election with Kellie J Keen's Party of Women in June 2024 - which in retrospect was a little silly but they all expected me to be murdered, of course.
+- Granny Smith is very obviously Sandra Smith, Hazel's apparent mother (but not really her mother, probably more likely lover and slave).
+- Both suspect accounts are mentioned in my earlier and very incomplete [fake account list](../../evidence/twitter-account.md#fake-accounts), [Hazel Smith references from May 2024](../2024/may.md#hazel-smith-pretends-to-be-esteve-online), and elsewhere.
 
 ![curious](../../content/tweets/granny-smith-seonaid-barber.png)
 
-- I've now started to block the criminal gang members and porn accounts, including these.
+- I'm wondering still about `@AllyBrisket`... could this account be run by Winston May himself? Seems possible.
+- I've started to block the criminal gang members and porn accounts, including these at that time, not that it made any difference, they popped up on other social media accounts in other guises as quick as you can tell the police, *women, children, and babies murdered for porn is not comedy*.
+- We wonder when they'll get it.
 
 ## Seeking asylum in another country
 
