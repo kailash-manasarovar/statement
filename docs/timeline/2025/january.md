@@ -682,17 +682,19 @@ function googleTranslateElementInit() {
 - He wants to know why I'm telling him this.
 - His rage over my hacked phone is irrational, unsettling, and very, very curious.
 - I try to explain it to myself as pure misogynistic gaslighting, but there's something more to it than that.
-- I start to wonder about Michael's poor health and unusual paralysis, and I remember how unusually rough Fiona was with me while administering my colonics, as if she disliked me intensely for some oddly irrational reason.
-- Certainly most people brought in to conspire against me for the gangs were unusually angry with me (my landlady, participants on the Transforming Touch courses sent to keep an eye on me.., the manager at the Hotel Costa Blanca forced to let bunches of rapists into guest-rooms where sedated women were about to be filmed for porn, for example - one wonders if all the rooms are spy-cammed up at Spanish hotels these days).
-- I explain, gently, to Michael that perhaps if a reporter was to come and do a detox with him, he might like to mention my book which includes a short description of my stay at the end of July 2022.
-- The description of the dream I had at that time is not condemning to Michael or his business; somewhat the opposite in my view.
-- However, Michael's behavior *is* somehow condemning; certainly of me, and this is utterly irrational - a projection perhaps.
+- I start to wonder about Michael's poor health and paralysis, and I remember how unusually rough Fiona was with me while administering my colonics, as if she disliked me intensely for some oddly irrational reason.
+- Certainly most people brought in to conspire against me for the gangs were unusually angry with me (my landlady Beatriz, participants on the Transforming Touch courses sent to keep an eye on me or try to engage me or others in yet another honey-trap maybe, the overweight manager at the Hotel Costa Blanca forced to let bunches of rapists into guest-rooms where sedated women were about to be filmed for porn, for example - one wonders if all the rooms are spy-cammed up at Spanish hotels these days - seems likely).
+- I explain, gently, to Michael that perhaps if a reporter was to come and do a detox with him, he might like to mention my book which includes a short yet very interesting occultist's description of my stay at the end of July 2022.
+- The description of the dream I had at that time is not condemning to Michael or his business; somewhat the opposite in my view - just what his target audience might appreciate, in fact.
+- However, Michael's behavior over the phone *is* somehow condemning; certainly of me, and this is utterly irrational - a projection perhaps?
 - Did the Adams family give Michael instructions for me too? 
-- My visit there was just prior to the switcheroo-porn scam at the conservatory everyone must have been so excited about, and I was away from Spain for over three months.
-- Was Michael instructed to be furious with me - another note from my 2015 police statement about Winston May being angry with me, then kind, then angry, and how this broke my child's mind.
+- Did they tell him what cards to pull on the readings he gave me about the trumpet teacher relationship I ask him for over the next two summers?
+- My visit there was just prior to [yet another switcheroo-porn scam running at a conservatory music school in Spain - children very much involved and included -](../../crimes/protagonists/vidal-sastre.md#at-least-six) that porn-world in its entirety must have been so excited about, and I was away from Spain and my poisoned water-mains for over three months.
+- Was Michael instructed to be furious with me - another note from my 2015 police statement about Winston May being angry with me, then kind, then angry, and how this broke my child's mind?
 - Had Michael been assured of my certain demise like everyone else?
 - Or was he trying to tell me something without incriminating himself to the gangs he knew were listening?
-- The gangs definitely needed to keep me topped-up with the brain-damaging substances that summer of 2022... and perhaps my three-month trip away from Spain explains the reason the trumpet-teacher(s) didn't turn up till the end of November to take classes.
+- Or was he genuinely fearful, becoming full of rage because he knew how involved he'd been in targeting me, and he knew also, like everyone else, exactly what the end goal was for me?
+- The gangs definitely needed to keep me topped-up with the brain-damaging substances that summer of 2022... and perhaps my three-month trip away from Spain explains the reason the trumpet-teacher(s) waited till November before they turned up at the school to star in the porn-network-live-streamed classes.
 - I guess we'll find out all of the truth, very soon.
 
 ## Seonaid Dawn and Granny Smith
@@ -724,6 +726,19 @@ function googleTranslateElementInit() {
 - I eventually give up.
 - The British government will obviously not let me make an application to find safety for myself now, will they, and it's clear they're hacking me along with North London's finest.
 - Well of course not, North London's finest control the UK completely and have done for decades: criminal murdering pedo-porn gangs and baby-rapists working closely with pornographers and drugging gitano poisoners in Spain, Portugal and anywhere else in the world these people might be available to *pop-up* and help silence anyone with a problem about the destruction of our world in the hands of mass-rapists.
+- To be fair, the British government are probably terrified of a mass-stampede of porn-gang-stalking victims to other countries, but from my perspective it would be very interesting to know how many thousands of us there are:
+    - Certainly any sexual crime victim and their families, especially children and babies, where the investigation is blundered by police are up there.
+    - Noah Donohoe, Madeline McCann, me, and many thousands of other women targeted for snuff porn or running around the field naked after the horse.
+    - Certainly Toby, Trish's son, who they clearly have been terrorizing for years.
+    - Alessandra and those like her who have been manipulated into the most outrageous acts.
+    - Mike Wenham even.
+    - Perhaps, even, the families of tech-bros not so excited about running the caliphate AI systems too.
+- As I was being stalked by porn-gangs all over the world it was more than clear to me these people have made something of an art form of it, the criminal porn-stalking, drugging and poisoning, and they have willing operatives on every continent.
+- There must be thousands upon thousands of victims.
+- I think we should find out exactly how many and how big the problem of porn-gangs owning the police and governments truly is.
+- Anyone who has watched criminal porn can be used by the gangs in any way they like.
+- It really is an army of darkness and ignorance taking over the world.
+- I was all alone against a world of these f**kers, and you were all just waiting till they got me like they get everyone, weren't you. Bas***rds, I'm British you know. HOW DARE YOU!!!!!
 
 ## Updating my will
 
