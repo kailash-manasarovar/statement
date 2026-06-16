@@ -264,16 +264,17 @@ function googleTranslateElementInit() {
 - It seems likely.
 - It's how drug addicts operate, isn't it; what they do.
 
-### Ritzy with Geetha and Winston May
+### Ritzy's with Geetha and Winston May
 
 - I'm not sure if this is in my [2015 police statement about the Tottenham rape-gangs](../2011-to-2020/2015.md#statement-to-the-metropolitan-police).
 - I guess it probably is given the need to "remind" me of it.
-- Anyway, this event is interesting because of how they treated Geetha - a black and posh little girl - versus how they treated me.
+- Anyway, this event is interesting because of how they treated Geetha - a black and posh little girl from the suburbs - versus how they treated me - exactly the same but white and with an evil father everyone wanted to get back at.
 - Geetha and I, together without anyone else, went to Ritzy's nightclub on a Wednesday night.
+- Geetha's mum was in Antigua at the time.
 - It was after I had been sedated and gang-raped at Plevna Crescent by Winston, Busby (who anally-raped me), and the boys sitting on kitchen chairs (just like they "reminded" me in [September 2023 on Las Marinas beach](../2023/september.md#rape-gang-reminders)).
-- Winston had total control of my mind at that time.
-- I think I was sedated in the nightclub; there was weird stuff going on that night and I don't remember really being in the nightclub.
-- I remember being outside, with Geetha and Winston May.
+- Winston had total control of my mind by that time using fear-aggression-violence-interspersed-with-kindness, and other animal-training techniques no doubt he got from the gypsies in Spain when he popped over for the sedating 101 workshop with Nicky not long before.
+- I think I was sedated in the nightclub that night; there was weird stuff going on that night and I don't even remember really being in the nightclub.
+- I remember being outside, with Geetha and Winston May, feeling quite sober (relatively so for a sexually-traumatized child).
 - Winston put Geetha in a taxi to get her home; he may have even paid for it.
 - Then I was alone with him, yet again, for more of the same to add to the pedo-rape-porn collection no doubt.
 - Curious isn't it.
