@@ -866,7 +866,7 @@ function googleTranslateElementInit() {
 - He says yes.
 - I book my flights immediately.
 - I believe God gave me a little nudge on that, and I'm so happy to be returning after all these years.
-- Without [this trip to Israel](march.md#i-realize-again-all-my-stuff-is-toxic) - breaking up the constant confusion I was experiencing in London - I may have been crippled with the pesticides doused onto all my belongings.
+- Without [this trip to Israel](march.md#i-realize-again-all-my-stuff-is-toxic) - breaking up the constant confusion I was experiencing in London - I may have been permanently crippled with the pesticides doused onto all my belongings, like so many others have been by the limitless Las Marinas porn-gangs.
 - I also tell Steve that I believe I'm an international porn star and have been for decades.
 - He laughs.
 - Not just a little laugh; a resounding bellow that gets larger with each guffaw.
@@ -875,14 +875,15 @@ function googleTranslateElementInit() {
 - Later, at the hotel, he appears to tell me in a roundabout way that he has a large penis.
 - Again, I do not understand any of this and I'm rather horrified, but I love Steve so give him a hug and say goodnight.
 - I cannot believe men have become so lost that they think sedating and raping women in their own homes is OK, normal, what they do, part of good-ole porn!
-- But, there is yet another lie propagated by the British and Spanish porn-gang manipulators to the whole wide world, just like the preposterous idea that sterilizing children is a good thing, a vile lie that supports their crimes with an irrational and hateful view of women and children as porn fodder.
+- But, there is yet another lie propagated by the British and Spanish porn-gang manipulators to the whole wide world, just like the preposterous idea that sterilizing children is a good thing, a vile lie that supports their criminal activities with an even more irrational and hateful view of women and children as porn fodder.
 - And that lie is, *sex work is work*, yet another piece of astounding BS in support of criminal porn and sterilizing children.
 - Yes, it's that Las Marinas lot once again.
 - And they're not denying it.
 - Is it possible to lose the arrogance that ensures this belief is never questioned, even though just ten years ago no-one in their right minds would have believed such things, in the same way they would have never bought into, and stood ready to defend violently, the *born into the wrong body* whopper?
 - I hope so, and quick please.
 - There is another explanation for Steve's reactions towards me which is somewhat, no, a whole lot biblical; but I'll leave that for the ponderers but just to say it involves irrational jealousy and two thousand years of severely psychopathic woman-hating that has not abated in any way at all.
-- To quote Helen a little... I believe these sections are essential concerning the *right message* and the vile lies that have taken over our world - and why we're all here, now (you don't get to choose or amend the mission if it's coming from God, and it can make us a little uncomfortable from time to time - there's quotes about that too).
+- To quote Helen a little... I believe these sections are essential concerning the *right message* and the vile lies that have taken over our world - and why we're all here, now (you don't get to choose or amend the mission if it's coming from God, doing so is just delay and the amount of delay can be enormous here - especially when giving the sons of darkness time to consolidate and regroup. 
+- The mission will undoubtedly make us a little uncomfortable from time to time - there's quotes about that too.
 - I wonder who Helen was. Marta maybe?
 
 ### An early dream about Helen and BKS
