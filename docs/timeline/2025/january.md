@@ -803,13 +803,18 @@ function googleTranslateElementInit() {
 
 ## Glastonbury with Paul
 
-- I travel to Glastonbury for a few days with Paul (who drives as my car is still in Madrid).
-- As mentioned, I want to update my will and I have a will registered in Glastonbury which I want to formally delete - although I already made a new one.
-- I want a will which will leave the forgivenet to the whole world (I changed my mind on this now too so need to update the one I registered with the UK public will database), and leave all my wealth to the Hospitalite of Lourdes.
-- I would now like to leave the forgivenet to the country of Israel, if that's possible, because with Israel it will be safe for the whole world.
-- I do not want anyone evil inheriting from me and I'm aware that if I die and my money goes to family members, criminal gangs will target them if they haven't already.
-- I ask Paul to accompany me to Glastonbury as I feel unsafe everywhere (ironic innit).
-- We travel down 16-18 January.
+- I travel to Glastonbury for a few days with Paul (he's driving as my car is still in Madrid) on 16-18th January.
+- Paul talks and talks and talks; and some of it is very interesting.
+- As I just mentioned, I intended to update my will and I had a will registered in Glastonbury which I wanted to formally delete - although I already made a new one just before the general election - another urgently intuited need no doubt.
+- The lawyer in Glastonbury is one of the lawyers I speak to about all this.
+- Paul tries to stay in the meeting we have, but she kicks him out which I find amusing.
+
+### Asking Paul what I should do about my pesticide-ridden car
+
+- I've already told Paul about the poisoning in the car, probably pesticides (the irony is cramping me up, said Hazel once about me and squirrel... well... there's far bigger and wider reaching cramping ironies, isn't there love).
+- I ask him how I can clean the car of the poisons.
+- He tells me to get my car detailed.
+- I look for a car detailing place in Madrid where I'm staying - I've been lured online to a particular hotel around the corner from the El Pais offices, and there's a car detailer next door to the hotel too, which they've also lured me to for their own gangster purposes.
 
 ### Telling Paul what's going on for me
 
