@@ -803,47 +803,52 @@ function googleTranslateElementInit() {
 
 ## Glastonbury with Paul
 
-- I travel to Glastonbury for a few days with Paul (he's driving as my car is still in Madrid) on 16-18th January.
-- Paul talks and talks and talks; and some of it is very interesting.
+- I travel to Glastonbury for a few days with Paul on 16-18th January.
+- He's driving as my car is still in Madrid at the airport parking again.
+- Paul talks and talks and talks; and some - not a lot but some - of it is very interesting.
 - As I just mentioned, I intended to update my will and I had a will registered in Glastonbury which I wanted to formally delete - although I already made a new one just before the general election - another urgently intuited need no doubt.
 - The lawyer in Glastonbury is one of the lawyers I speak to about all this.
-- Paul tries to stay in the meeting we have, but she kicks him out which I find amusing.
+- Paul tries to stay in the meeting we have to listen and find out how much money I have, but she kicks him out which I find amusing.
 
 ### Asking Paul what I should do about my pesticide-ridden car
 
-- I've already told Paul about the poisoning in the car, probably pesticides (the irony is cramping me up, said Hazel once about me and squirrel... well... there's far bigger and wider reaching cramping ironies, isn't there love).
+- I've already told Paul about the poisoning in the car, probably pesticides (the irony is cramping me up, said Hazel once about me and squirrel... well... there's far bigger and wider reaching cramping-and-crippling-pesticide ironies, isn't there love).
 - I ask him how I can clean the car of the poisons.
 - He tells me to get my car detailed.
-- I look for a car detailing place in Madrid where I'm staying - I've been lured online to a particular hotel around the corner from the El Pais offices, and there's a car detailer next door to the hotel too, which they've also lured me to for their own gangster purposes.
+- I look for a car detailing place in Madrid where I'm staying - I'm lured online to a particular hotel around the corner from the El Pais offices, and there's a car detailer next door to the hotel too, which I will suspect works directly for the gangs once I get my car back from them and the space inside it seems to have been altered in an unusual way.
 
 ### Telling Paul what's going on for me
 
 - At a service station on the M3, finally, Paul stops talking for five minutes.
 - I have the chance to tell him what's been going on.
-- I explain what teachers and staff at the conservatory had done.
+- I explain what teachers and staff at the conservatory did; everything I understand at the time, which is not a lot and nowhere near the full scale of the crimes against me and other British and Irish, and Czech, and other women in the town.
 - He asks quietly: *How didn't you go mad?*
-- At the time I thought a statement like this was not entirely appropriate, but couldn't really figure out why.
-- I think if I had been in Paul's position, I would have reacted differently, alarmed, shocked, angry, upset, trying to think of ways to help.
+- At the time I thought a statement like this was not entirely appropriate, but I couldn't really figure out why.
+- I think if I had been in Paul's position, I would have reacted differently; alarmed, shocked, angry, upset, trying to think of ways to help.
 - Paul's quiet statement perhaps reflects a sense of knowing exactly what had been going on, the severity of the attack, and not caring much.
-- Did Paul have a subscription to my sedated sex-slave stardom, or know someone who showed him?
-- Was *going mad* a betting outcome for me for the addicts worldwide?
+- Did Paul have a subscription to my sedated sex-slave stardom, or know someone who did who showed him?
+- Was *going mad* a betting outcome for me for the porn-addicts worldwide?
+- Seems likely.
 
 ### No ordinary girl, or boy
 
-- While in Glastonbury we wander around the bookstores.
-- I'm looking for a new note book.
+- While in Glastonbury, Paul and I wander around the bookstores.
+- I'm looking for a new notebook.
 - I find one.
 
 ![No ordinary girl](../../content/images/no-ordinary-girl.jpg)
 
 - While I'm looking at the images on the notebook of a bookshelf containing hundreds of books about superhero girls, I'm reminded of the artist trumpet-teacher's painting of the three pedophile-porn-horror siblings: Bruno trumpet-teacher with a gaping vacuum around his lower chakras, Gloria music-school secretary, and their brother [who blew in my face outside the tunnel](../2024/march/13-end.md#did-they-rob-my-crypto-account), all reading comic books.
 - The painting's background was this notebook; except the superhero was male.
-<!-- This notebook will feature in extraordinary miracles later on in the year. -->
+- This notebook feature in extraordinary miracles later on in the year and in the future.
+- I believe this now to be proof of a solid telepathic and intuitive communication with squirrel.
+- I guess we'll find out for sure shortly.
 
 ### An excited bookseller
 
-- While we're in the shop with the notebook, the bookseller from the shop over the road runs in excitedly, hopping around like they do, breathing hard, and looking at me in glances.
-- Another horror-porn fan.
+- While we're in the shop and I'm looking at the notebook, the bookseller from the shop over the road runs in excitedly, hopping around like they do, breathing hard, and looking at me in glances.
+- Another horror-porn fan most likely.
+- They're everywhere these days.
 
 ## Transforming Touch in Dublin
 
