@@ -807,7 +807,7 @@ function googleTranslateElementInit() {
 - He's driving as my car is still in Madrid at the airport.
 - Paul talks and talks and talks; and some - not a lot but some - of it is very interesting.
 - He spills the beans a fair bit. 
-- And he's bound to hand the bean-tin over without much complaint.
+- And he's bound to hand the whole bean-tin over without much complaint.
 - We talk a lot about how he's going to come and help me move my stuff from Dénia back to London in a few weeks time.
 - As I just mentioned, I intended to update my will and I had a will registered in Glastonbury which I wanted to formally delete - although I already made a new one just before the general election - another urgently intuited need no doubt.
 - The lawyer in Glastonbury is one of the lawyers I speak to about all this.
@@ -815,10 +815,10 @@ function googleTranslateElementInit() {
 
 ### Asking Paul what I should do about my pesticide-ridden car
 
-- I've already told Paul about the poisoning in the car, probably pesticides (the irony is cramping me up, said Hazel once about me and squirrel... well... there's far bigger and wider reaching cramping-and-crippling-pesticide ironies, isn't there love).
+- I've already told Paul about the poisoning in the car, probably pesticides (*the irony is cramping me up*, said Hazel once about me and squirrel... well... there's far bigger and wider reaching cramping-and-crippling-pesticide ironies, isn't there love).
 - I ask him how I can clean the car of the poisons.
 - He tells me to get my car detailed.
-- I look for a car detailing place in Madrid where I'm staying - I'm lured online to a particular hotel around the corner from the El Pais offices, and there's a car detailer next door to the hotel too, who I will suspect work directly for the gangs once [I get my car back from them](february.md#car-detailing-in-madrid) and the space inside it seems to have been altered in an unusual way.
+- I look for a car detailing place in Madrid where I'm going to be staying in February - I'm lured online to a particular hotel around the corner from [the El Pais offices](february.md#el-pais) where I'll see a very interesting sedating-and-raping poster advertisement it seems - are they telling me that rapists control everything in Spain? seems likely - and there's a car detailer next door to the hotel too, who I will suspect work directly for the gangs once [I get my car back from them](february.md#car-detailing-in-madrid) and the space inside it seems to have been altered, lessened, in an unusual way as if they created a secret compartment behind the front dashboard for some reason.
 
 ### Telling Paul what's been going on for me
 
@@ -842,13 +842,14 @@ function googleTranslateElementInit() {
 
 ![No ordinary girl](../../content/images/no-ordinary-girl.jpg)
 
-- While I'm looking at the images on the notebook of a bookshelf containing hundreds of books about superhero girls, I'm reminded of the artist trumpet-teacher's painting of the three pedophile-porn-horror siblings: big ole [Bruno trumpet-teacher](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) with a gaping vacuum around his lower chakras, [Gloria music-school secretary](../../crimes/protagonists/domingo-et-al.md#gloria-the-school-receptionist), and their brother [who blew in my face outside the tunnel](../2024/march/13-end.md#distraction-then-drugging) before a bunch of them suffocated me, nearly killing me, while sedated in my own bed, all reading comic books as children.
+- While I'm looking at the images on the notebook of a bookshelf containing hundreds of books about superhero girls, I'm reminded of the artist trumpet-teacher's painting of the three pedophile-porn-horror siblings: big ole [Bruno trumpet-teacher](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) with a gaping vacuum around his lower chakras, [Gloria music-school secretary](../../crimes/protagonists/domingo-et-al.md#gloria-the-school-receptionist), and their brother [who blew in my face outside the tunnel](../2024/march/13-end.md#distraction-then-drugging) before a bunch of them suffocated me, nearly killing me and certainly weakening a rib with the weight on me (I'm beginning to think that these weird injuries I have are, in fact, rape injuries), while sedated in my own bed, all reading comic books as children.
 - The painting's background was this notebook; except the superhero was male.
-- This notebook features in extraordinary miracles later on in the year, and in the future too, none of them planned (it's hard not to plan but when I don't the miracles - memories returning from sedated states very much part of that - are amazing).
+- This notebook features in extraordinary miracles later on in the year, and in the future too, none of them planned (it's hard not to plan but when I don't the miracles - memories returning from sedated states very much part of that - are amazing, oh yes Elon, be worried love, be worried - oh wait.. I already remembered that one while it was happening, didn't I).
 
 ### An excited bookseller
 
 - While we're in the shop and I'm looking at the notebook, the bookseller from the shop over the road, a black man in his late 40s, runs in excitedly, hopping around like they do, breathing hard, and looking at me repeatedly in glances that never catch my eyes.
+- *There she is, there she is*, is he saying?
 - Another horror-porn fan most likely.
 - They're everywhere these days.
 
