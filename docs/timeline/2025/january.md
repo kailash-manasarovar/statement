@@ -881,9 +881,8 @@ function googleTranslateElementInit() {
 - And they're not denying it.
 - Is it possible to lose the arrogance that ensures this belief is never questioned, even though just ten years ago no-one in their right minds would have believed such things, in the same way they would have never bought into, and stood ready to defend violently, the *born into the wrong body* whopper.
 - There is another explanation for Steve's reactions towards me which is somewhat, no, a whole lot biblical; but I'll leave that for the ponderers but just to say it involves irrational jealousy and two thousand years of severely psychopathic woman-hating that has not abated in any way at all.
+- To quote Helen a little... I believe these sections are essential concerning the *right message* and the vile lies that have taken over our world - and why we're all here, now (you don't get to choose or amend the mission if it's coming from God, and it can make us a little uncomfortable from time to time - there's quotes about that too).
 - I wonder who Helen was. Marta maybe?
-- To quote Helen... I believe these sections are essential concerning the *right message* and the vile lies that have taken over our world - and why we're all here, now (you don't get to choose the mission if it's coming from God, and it can make us a little uncomfortable from time to time, as I very well know).
-- Go have a chat with my mother for a get out clause for that one.
 
 ### An early dream about Helen and BKS
 
