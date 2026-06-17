@@ -852,6 +852,7 @@ function googleTranslateElementInit() {
 - *There she is, there she is*, is he saying?
 - Another horror-porn fan most likely.
 - They're everywhere these days.
+- How long can the men keep it all secret... like they have been for decades. Not long now.
 
 ## Transforming Touch in Dublin
 
