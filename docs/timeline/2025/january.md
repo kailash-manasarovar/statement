@@ -889,26 +889,26 @@ function googleTranslateElementInit() {
 
 ### An early dream about Helen and BKS
 
-- Some time after I had been drugged, attacked, and made famous in pedo-rape-porn in 1989, I started to get into spiritual stuff; Castaneda that sort of thing.
-- I had no memories of what had happened to me while sedated with Winston May but clearly the trauma was huge as my daily life was nearly impossible.
+- Some time after I had been drugged, attacked, and made famous in pedo-rape-porn in 1989, I started to get into spiritual stuff; Castaneda, that sort of thing.
+- I had no memories of what had happened to me while sedated with Winston May but clearly the trauma was huge as living a normal daily life without constant fear was practically impossible.
 - I practiced dreaming techniques from Castaneda's instructions, it was quite interesting and experimental.
 - I was also getting interested in Hinduism (without realizing it) from some of the books I was reading. 
-- I read spiritual books voraciously (I don't read at all now, apart from ACIM, and we know why.. brain-damage ahem.)
+- I read spiritual books voraciously (I don't read at all now, apart from ACIM, and we know why.. intentional brain-damaging by poisoning since 2008 in Las Marinas... like so many others.)
 - Anyway, one night I asked for a dream (you can do that) to show me my gurus. 
 - Two people turned up.
 - The first was an old Indian man at the front door, which I opened. I didn't recognize him at the time but he was, in fact, BKS Iyengar and I wasn't to get into yoga practice with him for 10 years and I only realized it was him in the dream much later (cos my yoga practice was fiercely non-woo-woo for years).
 - The other woman was Helen Schucman. I also had no idea who this woman was until probably 20 years later when I saw a picture of her and slowly remembered she'd popped her head around my bedroom door to see me sleeping.
 - Cool, innit.
 
-#### The great thing about Helen
+#### The great thing about Helen..
 
-- Was she was so academically rigid let's say careful, quite sceptic, and this made her very believable.
-- I used to be.. which as part of a spiritual practice was very helpful.
+- ..was she was so academically rigid, let's say careful, and quite sceptic, and this made her very believable.
+- I used to be the same.. which as part of spiritual seeking was very helpful.
 - But I think the thing which makes me an excellent course student has been my somewhat pathological inability to see the bad in people, particularly the people that I assumed loved me and would do nothing to hurt me.
-- This ability to be totally gaslit meant no-one saw me coming, did they.
+- This ability to be totally gaslit meant no-one saw me coming, did they, least of all me!
 - HAHA! Up yours criminals and their evil helpers - is that the helped and the helpers, all falling together?
 - We're closing in now.
-- 31 will fall. God says so.
+- 31 will fall. God has said so.
 
 ## Justice is a miracle
 
