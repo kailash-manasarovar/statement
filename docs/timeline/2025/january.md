@@ -842,10 +842,9 @@ function googleTranslateElementInit() {
 
 ![No ordinary girl](../../content/images/no-ordinary-girl.jpg)
 
-- While I'm looking at the images on the notebook of a bookshelf containing hundreds of books about superhero girls, I'm reminded of the artist trumpet-teacher's painting of the three pedophile-porn-horror siblings: big ole [Bruno trumpet-teacher](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) with a gaping vacuum around his lower chakras, [Gloria music-school secretary](../../crimes/protagonists/domingo-et-al.md#gloria-the-school-receptionist), and their brother [who blew in my face outside the tunnel](../2024/march/13-end.md#distraction-then-drugging), all reading comic books.
+- While I'm looking at the images on the notebook of a bookshelf containing hundreds of books about superhero girls, I'm reminded of the artist trumpet-teacher's painting of the three pedophile-porn-horror siblings: big ole [Bruno trumpet-teacher](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) with a gaping vacuum around his lower chakras, [Gloria music-school secretary](../../crimes/protagonists/domingo-et-al.md#gloria-the-school-receptionist), and their brother [who blew in my face outside the tunnel](../2024/march/13-end.md#distraction-then-drugging) before a bunch of them suffocated me, nearly killing me, while sedated in my own bed, all reading comic books as children.
 - The painting's background was this notebook; except the superhero was male.
-- This notebook features in extraordinary miracles later on in the year, and in the future too, none of them planned (it's hard not to plan but when I don't the miracles - sedated memories returning very much part of that - are amazing).
-- I believe this now to be unquestionable proof of a solid telepathic and intuitive communication ability with squirrel.
+- This notebook features in extraordinary miracles later on in the year, and in the future too, none of them planned (it's hard not to plan but when I don't the miracles - memories returning from sedated states very much part of that - are amazing).
 
 ### An excited bookseller
 
