@@ -861,25 +861,29 @@ function googleTranslateElementInit() {
 ## Transforming Touch in Dublin
 
 - It's Module 3 again at the Avila centre.
-- Something prompts me to ask Steve if he needs an assistant for Israel.
+- I travel from LHR on British Airways and [good ole Paul](#paul) leaves me at the airport and picks me up on the way back.
+- While I'm on the course, something prompts me to ask Steve if he needs an assistant for Module 2 in Israel in March.
 - He says yes.
 - I book my flights immediately.
 - I believe God gave me a little nudge on that, and I'm so happy to be returning after all these years.
+- Without [this trip to Israel](march.md#i-realize-again-all-my-stuff-is-toxic) - breaking up the constant confusion I was experiencing in London - I may have been crippled with the pesticides doused onto all my belongings.
 - I also tell Steve that I believe I'm an international porn star and have been for decades.
 - He laughs.
-- Not just a little laugh; a resounding bellow that gets larger which each guffaw.
+- Not just a little laugh; a resounding bellow that gets larger with each guffaw.
+- He's laughing louder and louder into the space, all on his own.
 - I'm utterly horrified, and I do not understand it at all.
 - Later, at the hotel, he appears to tell me in a roundabout way that he has a large penis.
 - Again, I do not understand any of this and I'm rather horrified, but I love Steve so give him a hug and say goodnight.
-- I cannot believe men have become so lost that they think sedating and raping women in their own homes is OK, normal, what they do!
+- I cannot believe men have become so lost that they think sedating and raping women in their own homes is OK, normal, what they do, part of good-ole porn!
 - But, there is yet another lie propagated by the British and Spanish manipulators to the whole wide world, just like the preposterous idea that sterilizing children is a good thing, a vile lie that supports this irrational and hateful view of women and children as porn fodder.
-- And that lie is, *sex work is work*, yet another piece of BS in support of criminal porn and sterilizing children.
-- Yes, it's that lot once again.
-- They're not denying it.
-- Is it possible to lose the arrogance that ensures this belief is never questioned, even though just ten years ago no-one in their right minds would have believed it in the same way they would have never bought into the *born in the wrong body* whopper.
-- There is another explanation for Steve's reactions towards me which is somewhat, no, a whole lot biblical; but I'll leave that for the ponderers but just to say it involves a whole lot of jealousy and two thousand years of severely psychopathic woman-hating that has not abated in any way at all.
+- And that lie is, *sex work is work*, yet another piece of astounding BS in support of criminal porn and sterilizing children.
+- Yes, it's that Las Marinas lot once again.
+- And they're not denying it.
+- Is it possible to lose the arrogance that ensures this belief is never questioned, even though just ten years ago no-one in their right minds would have believed such things, in the same way they would have never bought into, and stood ready to defend violently, the *born into the wrong body* whopper.
+- There is another explanation for Steve's reactions towards me which is somewhat, no, a whole lot biblical; but I'll leave that for the ponderers but just to say it involves irrational jealousy and two thousand years of severely psychopathic woman-hating that has not abated in any way at all.
 - I wonder who Helen was. Marta maybe?
-- To quote Helen... I believe this section is important concerning the *right message* and the vile lies that have taken over our world - you didn't notice?
+- To quote Helen... I believe these sections are essential concerning the *right message* and the vile lies that have taken over our world - and why we're all here, now (you don't get to choose the mission if it's coming from God, and it can make us a little uncomfortable from time to time, as I very well know).
+- Go have a chat with my mother for a get out clause for that one.
 
 ### An early dream about Helen and BKS
 
