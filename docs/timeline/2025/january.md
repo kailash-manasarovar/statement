@@ -824,7 +824,7 @@ function googleTranslateElementInit() {
 
 - At a service station on the M3, finally, Paul stops talking for five minutes.
 - I have the chance to tell him what's been going on.
-- I explain what teachers and staff at the conservatory did; everything I understand at the time - which is not a lot and nowhere near the full scale of the crimes against me and other British and Irish, and Czech, and other women, children, and babies in the town.
+- I explain what teachers and staff at the conservatory did; everything I understand at the time - which is not a lot and nowhere near the full scale of the mass crimes committed against me and other British and Irish, and Czech, and other women, children, and babies in the town.
 - He asks quietly: *How didn't you go mad?*
 - And that is all he says.
 - At the time I thought a statement like this was not entirely appropriate, but I couldn't really figure out why.
