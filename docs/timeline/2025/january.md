@@ -784,11 +784,12 @@ function googleTranslateElementInit() {
 - As it stands, I figure it's likely the gangs will murder me, and because of the nature of my will as it stood at the time, my money could end up with my brother, and the gangs would then be able to extract my money from him very easily just like they did before.
 - I explain this to my dad, and he doesn't disagree; but he stays quiet, like he does.
 - He only gets vocal when he's lying about his involvement.
+- But maybe he's being thoughtful - trying to put two-and-two together - wondering how his own experience of being poisoned in North London by a Portuguese woman just a few years before - incidentally while the [switcheroo porn-scam was running at the conservatory and Bruno-trumpet-teacher was planning a quick wedding and then a quicker funeral](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) - could be connected into relieving his daughter of her money?
 - Perhaps he's quiet because he surprised about how clear I am on everything; perhaps it worries him. 
 - I hope so, in retrospect.
 - He's aware of everything that's been going on - I don't know this at the time - but I know he agrees with me about my money.
 - I also want to leave the forgivenet to the whole world - I've changed my mind about that since then because I don't think the world as a whole is responsible enough to take care of it, so I need to adjust the will once again and leave it to the State of Israel who I believe are the only people mature and responsible enough to take care of such an app.
-- No-one will help me write a new legal will, and I speak to a few actual lawyers about this; firstly because of my wishes for the app which confuses things, and secondly because I'm not leaving anything to my brother which means my will could be contested, they tell me and I find out exactly why I feel the urgency I'm feeling.
+- No-one will help me write a new legal will, and I speak to a few actual lawyers about this; firstly because of my wishes for the app which confuses things, and secondly because I'm not leaving anything to my brother which means my will could be contested, they tell me, and I find out exactly why I feel the urgency I'm feeling.
 - I can't explain the criminal gang involvement to random people in law offices without them saying something stupid like, *why don't you tell the police*... so... after some thought...
 - I write my own will and register it with the UK public will database and keep a copy with me.
 - In my latest will, I explain that criminal gangs have been trying to find ways to relieve me of my not inconsiderable wealth for many years in the UK and Spain, with the help of police and government, and if I was to die and my money went to my brother, he would more or less hand it over to them just like he did with his Lockerbie compensation which he spent on drugs - with the help of North London's finest manipulating-teams residing in North London and elsewhere, i.e. Samui - in just a few years.
@@ -797,7 +798,8 @@ function googleTranslateElementInit() {
 - But it's all in here in this police statement anyway, isn't it, replicated around the world a trillion times and read by thousands daily.
 - Thank you folks!
 - <3
-- It is funny the way I say some things... even I am most often surprised. For You, Father, anything.
+- It is funny the way I say some things... even I am most often surprised.
+- For You, my true and One-And-Only Father, anything.
 
 ## Glastonbury with Paul
 
