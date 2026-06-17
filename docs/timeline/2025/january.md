@@ -849,7 +849,7 @@ function googleTranslateElementInit() {
 
 ### An excited bookseller
 
-- While we're in the shop and I'm looking at the notebook, the bookseller from the shop over the road runs in excitedly, hopping around like they do, breathing hard, and looking at me in glances.
+- While we're in the shop and I'm looking at the notebook, the bookseller from the shop over the road runs in excitedly, hopping around like they do, breathing hard, and looking at me repeatedly in glances that never catch my eyes.
 - Another horror-porn fan most likely.
 - They're everywhere these days.
 
