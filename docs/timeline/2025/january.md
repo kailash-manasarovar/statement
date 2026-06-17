@@ -824,12 +824,12 @@ function googleTranslateElementInit() {
 
 - At a service station on the M3, finally, Paul stops talking for five minutes.
 - I have the chance to tell him what's been going on.
-- I explain what teachers and staff at the conservatory did; everything I understand at the time, which is not a lot and nowhere near the full scale of the crimes against me and other British and Irish, and Czech, and other women, children, and babies in the town.
+- I explain what teachers and staff at the conservatory did; everything I understand at the time - which is not a lot and nowhere near the full scale of the crimes against me and other British and Irish, and Czech, and other women, children, and babies in the town.
 - He asks quietly: *How didn't you go mad?*
+- And that is all he says.
 - At the time I thought a statement like this was not entirely appropriate, but I couldn't really figure out why.
 - I think if I had been in Paul's position, I would have reacted differently; alarmed, shocked, angry, upset, trying to think of ways to help.
-- Paul's quiet statement perhaps reflects a sense of knowing exactly what had been going on, and knowing way more than what I just told him including the severity of the continuous sexual and violent attacks while sedated, and just not caring much at all about it.
-- Paul does, after all, have bigger priorities.
+- Paul's quiet statement perhaps reflects a sense of knowing exactly what had been going on, and knowing way more than what I just told him including the severity of the continuous sexual and violent attacks while sedated, and just not caring much at all about it while being careful not to incriminate himself given he was well aware of [the Ugly business from twenty-five years previous](../2001-to-2010/2001.md#amsterdam).
 - Did Paul have a subscription to my sedated sex-slave stardom, or know someone who did who told him all about it?
 - Was *going mad* a betting outcome for me for the porn-addicts worldwide?
 - Seems likely.
