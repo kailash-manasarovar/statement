@@ -889,7 +889,7 @@ function googleTranslateElementInit() {
 
 ### An early dream about Helen and BKS
 
-- Some time after I had been drugged, attacked, and made famous in pedo-rape-porn in 1989, I started to get into spiritual stuff; Castaneda, that sort of thing.
+- Some time after I had been drugged, attacked, and made famous in pedo-rape-porn in 1989 by North London's finest, I started to get into spiritual stuff; Castaneda, that sort of thing.
 - I had no memories of what had happened to me while sedated with Winston May but clearly the trauma was huge as living a normal daily life without constant fear was practically impossible.
 - I practiced dreaming techniques from Castaneda's instructions, it was quite interesting and experimental.
 - I was also getting interested in Hinduism (without realizing it) from some of the books I was reading. 
@@ -916,7 +916,7 @@ function googleTranslateElementInit() {
 - For all those many many millions of men and women who believe the lies fed to us by porn-gangs interested in making money off the misery of humanity, it's time to get your heads straight.
 - Yes, it might be painful, but that is just egocentric fear, and a very dangerous sort of fear as JC puts it in the course.
 - Well, he's right isn't he.
-- He came back in the nick of time, but I guess we needed a full demonstration of how mad our hatred of each other can get, not that we needed one having had so many recent examples.
+- He came back in the nick of time, but I guess we needed a fuller demonstration of how mad our hatred of each other can get and the gargantuan evils it can persuade us to believe, not that we needed one having had so many recent examples.
 - But these lies we believe today are something else, aren't they, don't you agree?
 - The lies that we cannot mention or people will go quite mad and maybe get violent towards us.
 - Are we gonna let it go on?
