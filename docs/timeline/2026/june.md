@@ -130,3 +130,13 @@ function googleTranslateElementInit() {
 - She made my whole day.
 - Let's have an amazing day today good people.
 - Let all evil people find their way quickly, very quickly, swiftly even, to justice and redemption and the saving of the world.
+
+## Quoting Don Juan every morning
+
+- Every morning, I quote Don Juan from Castaneda..
+- *If it farts, it lives,* he famously said as Carlos came back from a wild datura experience or similar.
+- And I am most grateful.
+- I adjust a little too.
+- I say, if it's fat, it lives, as my appetite returns.
+- And I am most grateful.
+

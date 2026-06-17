@@ -742,7 +742,7 @@ function googleTranslateElementInit() {
 - We were tracked in the pub at that time by *operatives*, police I expect.
 - He was spectacularly disinterested at the time, as if what I was telling him was nothing at all.
 - He speaks to me like he thinks I'm a little fool imagining things when he knows *exactly* what is going on.
-- It would be devastatingly hurtful if I wasn't so angry with him! How dare he! 
+- It would be devastatingly hurtful if I wasn't so angry and disgusted with them all! How dare they! 
 - He and my dad both took the piss of this police statement endlessly while I was at home writing it - trying, alone, to save my own life - throughout 2025; *oh, chapter three is it now*, they'd say in derogatory tones.
 - If anyone needed a definition of evil, I just gave it.
 - One evening, soon after my return to the UK, in desperation, I access the Israel website for asylum seekers and I try to make an application.
