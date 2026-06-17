@@ -855,6 +855,8 @@ function googleTranslateElementInit() {
 - How long can the men keep it all secret... like they have been for decades. Not long now.
 - Are we gonna find out that murder-porn is enjoyed by millions of men all over the world, every single day?
 - I bet we do.
+- We know already don't we. Who are we trying to fool. Ourselves? Continuously?
+- Humans are so insane we probably deserve to destroy ourselves and let nature enjoy the planet without us.
 
 ## Transforming Touch in Dublin
 
