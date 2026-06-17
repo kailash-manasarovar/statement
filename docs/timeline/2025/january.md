@@ -853,6 +853,8 @@ function googleTranslateElementInit() {
 - Another horror-porn fan most likely.
 - They're everywhere these days.
 - How long can the men keep it all secret... like they have been for decades. Not long now.
+- Are we gonna find out that murder-porn is enjoyed by millions of men all over the world, every single day?
+- I bet we do.
 
 ## Transforming Touch in Dublin
 
