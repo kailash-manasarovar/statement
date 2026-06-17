@@ -180,7 +180,7 @@ I do, however, have a lot of God.
 
 ## A friend on the inside
 
-- At some point during the switcheroo-porn production, probably in March 2023, something happened between myself and a gang member, inexplicably and miraculously, that made him change his mind about his grim purpose.
+- At some point during [the switcheroo-porn production at the music school](crimes/protagonists/vidal-sastre.md#at-least-six), probably in March 2023, something happened between myself and a gang member, inexplicably and miraculously, that made him change his mind about his grim purpose.
 - I believe it is to do with my memory of [the trumpet teacher sobbing his heart out in my arms](timeline/2023/march.md#dreaming-of-the-trumpet-teacher) in my bed one Monday night after chamber music class, and my unconditional and relentless good feelings for him that continue to this day.
 - I believe this man, at that moment, changed his mind about what he was doing, and maybe even asked the gangs to stop, and they didn't - an impossible request anyway - so instead he started to help me in a clandestine manner.
 - He told me about the region's decades-long honey-trap enterprise, sending me photographic evidence in the process.
