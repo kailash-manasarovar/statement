@@ -804,8 +804,11 @@ function googleTranslateElementInit() {
 ## Glastonbury with Paul
 
 - I travel to Glastonbury for a few days with Paul on 16-18th January.
-- He's driving as my car is still in Madrid at the airport parking again.
+- He's driving as my car is still in Madrid at the airport.
 - Paul talks and talks and talks; and some - not a lot but some - of it is very interesting.
+- He spills the beans a fair bit. 
+- And he's bound to hand the bean-tin over without much complaint.
+- We talk a lot about how he's going to come and help me move my stuff from Dénia back to London in a few weeks time.
 - As I just mentioned, I intended to update my will and I had a will registered in Glastonbury which I wanted to formally delete - although I already made a new one just before the general election - another urgently intuited need no doubt.
 - The lawyer in Glastonbury is one of the lawyers I speak to about all this.
 - Paul tries to stay in the meeting we have to listen and find out how much money I have, but she kicks him out which I find amusing.
@@ -815,18 +818,19 @@ function googleTranslateElementInit() {
 - I've already told Paul about the poisoning in the car, probably pesticides (the irony is cramping me up, said Hazel once about me and squirrel... well... there's far bigger and wider reaching cramping-and-crippling-pesticide ironies, isn't there love).
 - I ask him how I can clean the car of the poisons.
 - He tells me to get my car detailed.
-- I look for a car detailing place in Madrid where I'm staying - I'm lured online to a particular hotel around the corner from the El Pais offices, and there's a car detailer next door to the hotel too, which I will suspect works directly for the gangs once I get my car back from them and the space inside it seems to have been altered in an unusual way.
+- I look for a car detailing place in Madrid where I'm staying - I'm lured online to a particular hotel around the corner from the El Pais offices, and there's a car detailer next door to the hotel too, who I will suspect work directly for the gangs once [I get my car back from them](february.md#car-detailing-in-madrid) and the space inside it seems to have been altered in an unusual way.
 
-### Telling Paul what's going on for me
+### Telling Paul what's been going on for me
 
 - At a service station on the M3, finally, Paul stops talking for five minutes.
 - I have the chance to tell him what's been going on.
-- I explain what teachers and staff at the conservatory did; everything I understand at the time, which is not a lot and nowhere near the full scale of the crimes against me and other British and Irish, and Czech, and other women in the town.
+- I explain what teachers and staff at the conservatory did; everything I understand at the time, which is not a lot and nowhere near the full scale of the crimes against me and other British and Irish, and Czech, and other women, children, and babies in the town.
 - He asks quietly: *How didn't you go mad?*
 - At the time I thought a statement like this was not entirely appropriate, but I couldn't really figure out why.
 - I think if I had been in Paul's position, I would have reacted differently; alarmed, shocked, angry, upset, trying to think of ways to help.
-- Paul's quiet statement perhaps reflects a sense of knowing exactly what had been going on, the severity of the attack, and not caring much.
-- Did Paul have a subscription to my sedated sex-slave stardom, or know someone who did who showed him?
+- Paul's quiet statement perhaps reflects a sense of knowing exactly what had been going on, and knowing way more than what I just told him including the severity of the continuous sexual and violent attacks while sedated, and just not caring much at all about it.
+- Paul does, after all, have bigger priorities.
+- Did Paul have a subscription to my sedated sex-slave stardom, or know someone who did who told him all about it?
 - Was *going mad* a betting outcome for me for the porn-addicts worldwide?
 - Seems likely.
 
@@ -838,11 +842,10 @@ function googleTranslateElementInit() {
 
 ![No ordinary girl](../../content/images/no-ordinary-girl.jpg)
 
-- While I'm looking at the images on the notebook of a bookshelf containing hundreds of books about superhero girls, I'm reminded of the artist trumpet-teacher's painting of the three pedophile-porn-horror siblings: Bruno trumpet-teacher with a gaping vacuum around his lower chakras, Gloria music-school secretary, and their brother [who blew in my face outside the tunnel](../2024/march/13-end.md#did-they-rob-my-crypto-account), all reading comic books.
+- While I'm looking at the images on the notebook of a bookshelf containing hundreds of books about superhero girls, I'm reminded of the artist trumpet-teacher's painting of the three pedophile-porn-horror siblings: big ole [Bruno trumpet-teacher](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) with a gaping vacuum around his lower chakras, [Gloria music-school secretary](../../crimes/protagonists/domingo-et-al.md#gloria-the-school-receptionist), and their brother [who blew in my face outside the tunnel](../2024/march/13-end.md#distraction-then-drugging), all reading comic books.
 - The painting's background was this notebook; except the superhero was male.
-- This notebook feature in extraordinary miracles later on in the year and in the future.
-- I believe this now to be proof of a solid telepathic and intuitive communication with squirrel.
-- I guess we'll find out for sure shortly.
+- This notebook features in extraordinary miracles later on in the year, and in the future too, none of them planned (it's hard not to plan but when I don't the miracles - sedated memories returning very much part of that - are amazing).
+- I believe this now to be unquestionable proof of a solid telepathic and intuitive communication ability with squirrel.
 
 ### An excited bookseller
 
