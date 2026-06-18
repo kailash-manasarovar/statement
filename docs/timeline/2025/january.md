@@ -928,20 +928,26 @@ function googleTranslateElementInit() {
 ## Who's gonna spill the beans about the manipulation tech
 
 - My view is Hazel Smith and other women gang-members and helpers will be happy to expound on everything their manipulation tech does, including:
-    - Persuading people to commit suicide (Lorraine).
+    - Persuading people to commit suicide (Lorraine, and a bunch of teachers working for the Generalitat who did not like what was going on).
     - Persuading people to commit homicide (Mike Wenham).
-    - Persuading people to undergo life-changing surgeries for no reason (Alessandra).
-    - Mass persuading children and toddlers to do DIY porn (multiple filmed evidence, my trumpet teacher friend might be happy to expound on this one and how the gangs expect their techs to target children, toddlers, and babies online and how a great many of these young men do not like this obligation which they cannot refuse).
-    - Persuading the West to sterilize it's own children (multiple examples, including a whole medical industry formed); a sick manipulation technique that started life as an autistic 13-year-old girl self-harming porn genre and then was co-opted by transvestites.
-    - Persuading the West that transvestite men (white, old, wealthy) are a new type of species of human, the most oppressed, and that the children convinced to sterilize themselves are somehow in the same set of new humans.
+    - Persuading healthy and robust people to believe they're ill enough to undergo life-changing surgeries (Alessandra).
+    - Mass persuading children and toddlers to do DIY porn (multiple filmed evidence, my trumpet teacher friend might be happy to expound on this one and how the gangs expect their techs to target children, toddlers, and babies online these days and how a great many of these young men do not like this obligation which they cannot refuse - evil does end up destroying itself like this.. but it could take millennia).
+    - Persuading the West to sterilize it's own children (multiple examples, including a whole money-making medical industry newly formed, like we do); a sick manipulation technique that started life as an autistic 13-year-old girl self-harming porn genre which was then co-opted by transvestites as the same thing they were experiencing (definite porn-gang involvement in here, they make so much money off the transvestites).. and no one can say a thing about it!
+    - To summarize that one: persuading the West that transvestite men (white, old, wealthy) are a new type of species of human, the most oppressed, and that the children convinced to sterilize themselves are somehow in the same set of new humans.
+    - Proof enough of how perilous the lies we believe have become, I would say.
     - Persuading the West that vile women-hating, gay-hating, oppressive nations are the good guys! I mean... it's extraordinary but follows quite easily from the rest of it.
 - The way that everyone believed the opposite of these things just a decade ago, and had done forever, cannot be ignored.
 - What have I missed?
-- Oh, obviously, persuading women and girls that doing porn is good for them; the *sex work is work* fallacy everyone and his cat seems to have bought into, utterly insanely, quietly forgetting that the majority of porn-addicts are seeking to destroy women, children, and babies, and only destruction and humiliation will satisfy their boners.
+- Oh, obviously, persuading women and girls that doing porn is good for them; the *sex work is work* fallacy everyone and his cat seems to have bought into, utterly insanely, quietly forgetting that the majority of porn-addicts are seeking to destroy women, children, and babies, and only violence, destruction, and humiliation will satisfy their boners ... as any money-making only fans woman knows only too well.
 - It's no accident, of course, that the loudest and most violent voices against anyone daring to suggest all this is totally insane, and no good for humans, are masked porn-addict males.
-- Sedating is all the rage due to this. They can't get enough of it but are unable to look people in the eye afterwards so their whole beings know the truth of their mistakes.
-- We all know them. They are our fathers, our brothers, our boyfriends, husbands, mates. They are all men including the ones who don't rape, but know about it and say nothing.
+- Sedating is all the rage due to this. They can't get enough of it but are unable to look people in the eye afterwards because their whole beings know the truth of their mistakes.
+- We all know them. They are our fathers, our brothers, our boyfriends, husbands, mates. 
+- They are all men including the ones who don't rape, but know about it and say nothing.
+- They use to get so upset with feminists saying *all men are rapists*... but it really looks like that they've done their best to prove it to us, doesn't it.
 - Our world's security and safety is meaningless to these idiots.
 - So yes, Hazel can confirm.
-- I always knew she'd be our greatest helper.
+- I always knew she'd be our greatest help.
 - She'll be worried about getting murdered now! HAHA!
+- I wonder how a whole bunch of people might like that horrible constant feeling... let's hope the karma comes quick.
+- Thanks for listening to quite a rant but I've been really upset.
+- I'll keep February a little more factual, a little less opinionated shall I? Yes, OK.
