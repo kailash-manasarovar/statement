@@ -882,7 +882,9 @@ function googleTranslateElementInit() {
 - Is it possible to lose the arrogance that ensures this belief is never questioned, even though just ten years ago no-one in their right minds would have believed such things, in the same way they would have never bought into, and stood ready to defend violently, the *born into the wrong body* whopper?
 - I hope so, and quick please.
 - There is another explanation for Steve's reactions towards me which is somewhat, no, a whole lot biblical; but I'll leave that for the ponderers but just to say it involves irrational jealousy and two thousand years of severely psychopathic woman-hating that has not abated in any way at all.
-- To quote Helen a little... I believe these sections are essential concerning the *right message* and the vile lies that have taken over our world - and why we're all here, now.
+- In fact, the hatred towards the female is so commonplace, so unquestionable, we hardly even notice its very obvious glaring ghoulish ugliness shaping our world.
+- I mean, I was thinking about the Lord of the Rings, and how much Domingo loved those films, and how there's no women in them, or girls, in these sorts of films, and how immature minds might very easily relate (unconsciously) the lack of women and girls they see to the pornographers need to hurt those women and girls and go quite mad, which they clearly have done.
+- To quote Helen a little... I believe these sections are essential concerning the *right message*... and the vile lies that have taken over our world; why we're all here, now.
 - You don't get to choose or amend the mission if it's coming from God, doing so is just delay and the amount of delay can be enormous here - especially when giving the sons of darkness time to consolidate and regroup. 
 - The mission will undoubtedly make us a little uncomfortable from time to time - there's quotes about that too.
 - I wonder who Helen was. Marta maybe?
