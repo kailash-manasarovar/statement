@@ -909,6 +909,13 @@ function googleTranslateElementInit() {
 - Is this why no man was upset about the Pelicot business? 
 - As if it was totally normal and acceptable and have been going on for years and he and all his normal-bloke mates in the town were just *unlucky*?
 
+!!! tip 
+    - Check all and any 1-in-300 female attendees at work events; not the administrative/marketing/conference staff but only the scientists and programmers.
+    - But maybe the other female staff get targeted by emboldened rapists attending the same well-publicized-on-the-tech-bro-porn-addict-networks event (Alicia?).
+    - Find out if any of them were fired just after the event.
+    - Find out of any of them became depressed and suicidal just after the event.
+    - Find out if there have been any buried complaints - probably thousands, as usual.
+
 ## Collecting my devices from the technical expert DPR
 
 - There are a bunch of emails over this time with the [perito in Alicante](../../content/documents/evidence/comms-with-perito.pdf).
