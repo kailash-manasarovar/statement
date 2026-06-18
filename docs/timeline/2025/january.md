@@ -949,5 +949,4 @@ function googleTranslateElementInit() {
 - I always knew she'd be our greatest help.
 - She'll be worried about getting murdered now! HAHA!
 - I wonder how a whole bunch of people might like that horrible constant feeling... let's hope the karma comes quick.
-- Thanks for listening to quite a rant but I've been really upset.
-- I'll keep February a little more factual, a little less opinionated shall I? Yes, OK.
+
