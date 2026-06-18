@@ -34,10 +34,27 @@ function googleTranslateElementInit() {
 - I suspect a poisoning system or drugs.
 - Paul, curiously, spends a great detail of energy in talking me down from my fears about this, and indeed everything criminal I have suspicions about with regards to the car and my apartment.
 
+### Toby
+
+- At least they left Toby his car to live in.
+- With me, they fully intended my total demise; personal, professional, taking breaths, everything.
+- That's why they poisoned my car; so I could not live in it when the need may arise - with the help of conspiring males of the family - if they didn't manage to *get me* beforehand, and by this time it was looking sketchy with the ole poisoning attempts... curious they didn't give up.
+- I guess it has been 100% effective on other mass porn-stalking victims and they must have thought there'd been an accident in the administering, or something.
+- They should have spoken to the super-duper poisoners who must have been *very surprised* by February 2025, not that it helped any mass porn-stalking victims.
+
 ## El Pais
 
 - TBC
 - Batman
+- They're trying to tell me online that it was only spiderman that they dressed up as before coming round to my house after I had gone to bed and been sedated while sleeping.
+- Nonsense.
+- A whole community of porn-addicts knew very well about *Batman and little girl*, an early meme from the switcheroo days.
+- It made me do a double take when I saw it on the wall of the El Pais offices, and that's why I decided to go into talk to a reporter.
+- I spoke to two reporters. A man who got me a woman to talk to.
+- I explained everything to her.
+- She was sort of bored, looking out of the window.
+- I never heard from her again although I emailed her a bunch of times.
+- Her name was... Lola.
 
 ## Paul helps me move back to UK
 
@@ -70,6 +87,16 @@ function googleTranslateElementInit() {
 - I tell him I think the Adams family are involved.
 - He tells me he went to school with one of them; a male who committed suicide.
 - I tell him I was right to be suspicious of him.
+
+### Lorraine's daughter (trans son) at the Chinese
+
+- I take Paul for dinner at the Chinese restaurant.
+- A bunch of the Moors & Christians group are having dinner there at the same time.
+- I've sat down for about ten minutes when Lorraine's trans daughter walks in.
+- They've obviously requested her/his attendance.
+- She/he looks a bit surprised, bemused, as if she wasn't expecting such a large group of people.
+- You know, if it wasn't because of the obvious animosity between Hazel and Lorraine back in 2008 or earlier, and Lorraine finding out stuff (sedating young famous good-looking Spanish men and then blackmailing them), and the vindictiveness of Hazel generally, they might have had me at "trans kids"... but not a chance in hell that isn't fully part of their hypno-tech.
+- Of course it is, for sick porn genres and then the lie spreads and grows and no-one knows how to contain it anymore... and it is such a sick and twisted lie, it's growth may end up destroying the world.
 
 ### Lourdes
 
