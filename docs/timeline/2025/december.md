@@ -38,6 +38,20 @@
 - I lose my sense of peace for a good few hours.
 - Something tells me that what I saw was related to events on [13th March 2024](../2024/march/13-end.md#wednesday-13th-march) when I woke up certain I was going to be murdered and texted everyone I knew (Chris BJ, Alessandra, Brenda, Sandra, maybe others) to that effect.
 
+## Someone dresses up as Gabriel Silva from Polygon
+
+- I'm relaxing by the beach a couple of days after arriving.
+- An American is standing at the posh hut nearest the beach talking to someone.
+- He has dressed up to look like [Gabriel Silva](../2024/august.md#gabriel-silvas-first-team-meeting-as-manager); cap, shorts.
+- Is he putting on his accent?
+- He's talking to the other person about how he's just got divorced.
+- I wonder why they would be winding me up like this?
+- Is it so I include the matter here?
+- I guess so.
+- Are they still doing *who goes to prison* deals?
+- I guess so.
+- I see the man a few days later, and he looks *completely* different and appears to be with a bunch of other Americans.
+
 ## The cockney geezer with the emotionless young women
 
 - A cockney geezer is hanging out on Lamai beach every day.
@@ -62,3 +76,4 @@
 - The owner who was very friendly towards me the year before, is now distant.
 - They're calling me *khun-khun* too, which I think is a little derogatory.
 - If I'm so famous everywhere, why hasn't anyone been nicked yet?
+- I guess we had to get *every last one of them*, innit.
