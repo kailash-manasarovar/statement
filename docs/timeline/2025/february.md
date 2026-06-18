@@ -55,6 +55,8 @@ function googleTranslateElementInit() {
 - She was sort of bored, looking out of the window.
 - I never heard from her again although I emailed her a bunch of times.
 - Her name was... Lola.
+- Do they all find it *hilarious* they way they're relentlessly destroying that which gave them life and sustains them mostly?
+- They're all that mad so, yes.
 
 ## Paul helps me move back to UK
 

@@ -885,6 +885,30 @@ function googleTranslateElementInit() {
 
 [![God](../../content/tweets/may-2024/only-god.jpg)](https://x.com/1FRGVN/status/1792130233975644212)
 
+### Thoughts on levels of collusion required for such horror
+
+- Again, like Dénia, this was nowhere near their first rodeo.
+- It was a well-oiled and efficient machine, that they had run many times before.
+- It would have also required *a lot* of local help too.
+- While in Bali in June 2026, I'm wondering if people in the know know who I am and are wondering why I came back.
+- Are they nervous?
+- An aggressive man at my hotel behaves in a way that appears to be trying to frighten me.
+- A taxi driver tells me off for going to the beach.
+- They all want to know about my first trip to Bali.
+- I tell them it was for work, and it was very very boring, but I liked the country so decided to come back.
+- Are they even more nervous about that?
+- I go for a massage across the road from my hotel.
+- The place is empty and there's about six beds available.
+- The woman puts me on the bed nearest to the door and appears to keep the curtains open for the light.
+- After the massage, I notice a massive cctv camera pointing to my bed (not one of the other beds, just mine).
+- I point to it and ask her about it.
+- She says, "it's not on", and laughs and walks off.
+- Is Bali - and other off-site spots - a known place that the tech-bros can bring their 1% female staff for the worst-thing-in-the-world?
+- Have they been doing it for years already?
+- Seems likely.
+- Is this why no man was upset about the Pelicot business? 
+- As if it was totally normal and acceptable and have been going on for years and he and all his normal-bloke mates in the town were just *unlucky*?
+
 ## Collecting my devices from the technical expert DPR
 
 - There are a bunch of emails over this time with the [perito in Alicante](../../content/documents/evidence/comms-with-perito.pdf).
