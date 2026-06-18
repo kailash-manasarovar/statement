@@ -91,6 +91,8 @@ function googleTranslateElementInit() {
 
     ![Elon is Rahu](../../content/images/elon-is-rahu.png)
 
+    - I mean, poor ole Elon, they went for his son knowing he'd still support them in any way he could against the women they manipulate and sedate for the tech-bros.
+
 - If only God could get his hands on that tech. We might be able to fix our colossal mess. 
 - Perhaps this is *all* this story is about.
 - Perhaps God needed a very special person for this, someone who wouldn't even know the task themselves till they'd achieved it.
