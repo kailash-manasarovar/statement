@@ -38,6 +38,14 @@
 - I lose my sense of peace for a good few hours.
 - Something tells me that what I saw was related to events on [13th March 2024](../2024/march/13-end.md#wednesday-13th-march) when I woke up certain I was going to be murdered and texted everyone I knew (Chris BJ, Alessandra, Brenda, Sandra, maybe others) to that effect.
 
+!!! tip "Thoughts on this"
+    - I think this probably did happen, but not on 13th March 2024.
+    - That event was a bunch of teachers and perverts [suffocating me with my pillows and duvet in my bedroom while I was sedated](../2024/march/13-end.md#the-pillow-game) to make sure I left my studies at the conservatory.
+    - It worked too; I quit the next day.
+    - I guess I was holding up the next session of switcheroo porn for one of the minor girls...
+    - Probably [the British girl](../2024/february.md#the-britishrussian-girl-at-the-conservatory) given we Brits seem to be the main source of feed for these animals; the feed that *no-one* will do anything to help.
+    - Must have been really annoying for them, all that delay.
+
 ## Someone dresses up as Gabriel Silva from Polygon
 
 - I'm relaxing by the beach a couple of days after arriving.
