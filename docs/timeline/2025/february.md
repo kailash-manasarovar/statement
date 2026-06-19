@@ -73,18 +73,21 @@ function googleTranslateElementInit() {
 - It's dark.
 - I think I probably met Inma for dinner that night but I can't remember.
 - I take a different route from the Metro down the road the El Pais offices are on.
-- Batman
+- There's a giant picture of Batman on the wall of the El Pais offices.
+
+![El Pais](../../content/images/el-pais.avif)
+
 - They're trying to tell me online that it was only spiderman that they dressed up as before coming round to my house after I had gone to bed and been sedated while sleeping.
 - Nonsense.
-- A whole community of porn-addicts knew very well about *Batman and little girl*, an early meme from the switcheroo days.
-- It made me do a double take when I saw it on the wall of the El Pais offices, and that's why I decided to go into talk to a reporter.
-- I spoke to two reporters. A man who got me a woman to talk to.
-- I explained everything to her.
+- A whole community of porn-addicts knew very well about *Batman and little girl*, an early meme from the very famous switcheroo days.
+- I do a double take when I see this and I decide to go into the offices the following day to talk to a reporter.
+- I speak to two reporters.
+- Firstly, a man who I explain a little about Denia, etc, and he gets me a woman to talk to.
+- I explain everything to her.
 - She was sort of bored, looking out of the window.
 - I never heard from her again although I emailed her a bunch of times.
 - Her name was... Lola.
-- Do they all find it *hilarious* they way they're relentlessly destroying that which gave them life and sustains them mostly?
-- They're all that mad so, yes.
+- I sent her, and another woman reporter at El Pais, all the letters to the UK embassy I describe in the next section.
 
 ## Visiting the British embassy in Madrid on 7th February
 
