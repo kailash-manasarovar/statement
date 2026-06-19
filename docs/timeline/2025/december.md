@@ -58,7 +58,7 @@
 - I guess so.
 - Are they still doing the *who goes to prison* deals?
 - I guess so.
-- I see the man a few days later, and he looks *completely* different and appears to be with a bunch of other Americans and his accent is nothing at all like Gabriel's.
+- I see the man a few days later, and he looks *completely* different and appears to be with a bunch of other Americans and his accent is nothing at all like Gabriel's, but he is definitely the same size, shape, and hair-color, the way they do.
 
 ## The cockney geezer with the emotionless young women
 
