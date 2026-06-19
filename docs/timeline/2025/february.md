@@ -80,14 +80,16 @@ function googleTranslateElementInit() {
 - They're trying to tell me online that it was only spiderman that they dressed up as before coming round to my house after I had gone to bed and been sedated while sleeping.
 - Nonsense.
 - A whole community of porn-addicts knew very well about *Batman and little girl*, an early meme from the very famous switcheroo days.
+- Even Maria Hontanilla would mention *Batman and little girl* at piano classes.
 - I do a double take when I see this and I decide to go into the offices the following day to talk to a reporter.
+- I go in and explain I have a major story and ask to speak to a reporter.
 - I speak to two reporters.
-- Firstly, a man who I explain a little about Denia, etc, and he gets me a woman to talk to.
+- Firstly, a man who I explain a little about Denia, sexploitation, spy-cam porn, etc, and he gets me a woman to talk to.
 - I explain everything to her.
-- She was sort of bored, looking out of the window.
+- She was sort of bored, looking out of the window, I was crying a little.
 - I never heard from her again although I emailed her a bunch of times.
 - Her name was... Lola.
-- I sent her, and another woman reporter at El Pais, all the letters to the UK embassy I describe in the next section.
+- I sent her, and another woman reporter at El Pais, copies of all the letters I sent to the UK embassy I describe in the next section.
 
 ## Visiting the British embassy in Madrid on 7th February
 
