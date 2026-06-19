@@ -51,14 +51,14 @@
 - I'm relaxing by the beach a couple of days after arriving.
 - An American is standing at the posh hut nearest the beach talking to someone.
 - He has dressed up to look like [Gabriel Silva](../2024/august.md#gabriel-silvas-first-team-meeting-as-manager); cap, shorts.
-- Is he putting on his accent?
+- Is he putting on his accent too; he sounds a bit like him also?
 - He's talking to the other person about how he's just got divorced.
 - I wonder why they would be winding me up like this?
 - Is it so I include the matter here?
 - I guess so.
-- Are they still doing *who goes to prison* deals?
+- Are they still doing the *who goes to prison* deals?
 - I guess so.
-- I see the man a few days later, and he looks *completely* different and appears to be with a bunch of other Americans.
+- I see the man a few days later, and he looks *completely* different and appears to be with a bunch of other Americans and his accent is nothing at all like Gabriel's.
 
 ## The cockney geezer with the emotionless young women
 
