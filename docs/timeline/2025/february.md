@@ -14,8 +14,8 @@ function googleTranslateElementInit() {
 - They started when I was in Thailand in December 2024, not long after I had parked it at Madrid airport, and while I was getting ready to return to Spain.
 - When I go to pick up the car from the carpark at Madrid airport in early January, I immediately have that feeling of toxicity in the air I'm breathing and on the things I'm touching.
 - My mouth and throat is dry and scratchy the whole night.
-- I'm perma-high at that time so I don't notice any chance in perception.
-- I suspect criminals accessed the car while it was in the carpark at Madrid airport and sprayed pesticides all over the upholstery and plastics, just like [they did with all my belongings, clothes, linen, furniture items, everything in my apartment](../2024/october.md#the-router-malfunctions), just like they do to all their criminal porn-targets who don't play nice and/or when they've finished with them.
+- I'm perma-high at that time so I don't notice any change in perception.
+- I suspect criminals accessed the car while it was in the carpark at Madrid airport and sprayed pesticides all over the upholstery and plastics, just like [they did with all my belongings, clothes, shoes, linen, bed clothes, furniture items, everything in my apartment](../2024/october.md#the-router-malfunctions), just like they do to all their criminal porn-targets who don't play nice and/or when they've finished with them.
 - I wonder if they're able to add continuous doses of toxins and drugs through the air vents too?
 - I remember getting high in the car on long drives - from Lourdes to Dénia for example - and it would always be about an hour after setting off I'd notice a significant change in perception, often including sexual arousal too.
 - [When I picked Paul up](january.md#paul) at Madrid, I ask him what to do about the toxicity in my car.
@@ -31,14 +31,16 @@ function googleTranslateElementInit() {
 - I book the car in for detailing in early February, and book a few days at the hotel while they do it.
 - I arrange for Paul to fly to Madrid from London after I have had the car cleaned, and I plan we drive down to the Marina Alta together.
 - Obviously, my online search results are controlled by criminal gangs, and I'm aware of this, but like all their porn targets relying on the Internet - and with zero help from law enforcement, that I'm aware of at the time - I have no choice in this at all.
+- Perhaps this means they've continually dropped themselves in it, for decades.
+- Amazing!
 - When I pick up the car from the detailers and start driving, it feels like the whole dashboard section has been moved closer inwards.
-- I'm not able to put the same items back in the glove compartment that I removed while they worked on the car (they were important documents in a folder, and a stack of CDs I didn't want nicked, so I removed them before I took the car in - probably no-one believed me, did they).
-- These items fit previously in the glove compartment without issue; and now they don't fit at all!
+- I'm not able to put the same items back in the glove compartment that I removed while they worked on the car (they were important documents in a folder, and a stack of CDs I didn't want nicked, some other things that I removed from the car before I took it in - probably no-one believed me, did they).
+- These items fit previously in the glove compartment without issue, and leaving a little space too; and now they don't fit at all! The CDs are under the front seat instead now.
 - My feet are misfiring also as they step on the clutch because it's in a different place; the pedal is too close and it's not the position of the car seat that's changed.
 - I wonder about this with Paul, and suggest the gangs might have got the detailers to put something in the car, or create a space in the car between the engine and the dashboard.
-- I suspect a poisoning/drugging system, or a compartment for drugs and I am seriously concerned I'm gonna be muled on the way back to London.
-- Paul, curiously, spends a great detail of energy in talking me down from my fears about this, and indeed everything criminal I have suspicions about with regards to the car and my apartment and my belongings and everything, in fact.
-- I don't know he's aware of everything that's been happening to me since 1989 at the hands of thousands of men who think they'll get away with raping sedated women or enjoying their suffering on the criminal and not-so criminal porn networks, isn't it.
+- I suspect a poisoning/drugging system, or a compartment for drugs, and I am seriously concerned I'm gonna be arrested for drug trafficking on the way back to London.
+- Paul, curiously, spends a great detail of energy in talking me down from my fears about this, and indeed everything criminal I have suspicions about with regards to the car and my apartment and my belongings and my personal safety, in fact.
+- I won't know till October that he's aware of everything that's been happening to me since 1989 at the hands of thousands of men who thought they'd get away with raping sedated women or enjoying their suffering on the criminal and not-so criminal porn networks, isn't it.
 
 ### I think Toby lives in his car, Trish tells me
 
