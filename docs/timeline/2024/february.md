@@ -845,8 +845,10 @@ function googleTranslateElementInit() {
 - I realized this child must be a major target for the gangs shortly afterwards, and when I eventually realized I had been drugged continuously, even in classes at the conservatory, I realized that she too was high when she had walked down the stairs that evening, just as I realized the same about [the two girls Domingo had with him for me to see](../2022/june.md#maria-and-domingo) in June 2022.
 - They must have set this whole thing up for me to see.
 - The grinning singing teacher gives me the score of the British national anthem they were using; I have no idea why at the time.
-- I kept it for some reason. It seemed significant that he would give it to me at the time.
+- I kept it for some reason.
+- It seemed significant that he would give it to me at the time.
 - It should be in my conservatory file in my bottom cupboard drawer at 31.
+- Today it feels like he was telling me... *we can do anything we like to British women and girls and here's a souvenir for you*.
 - The arrogance is staggering.
 - The psycho-pedo-sexual pathology is staggering.
 - I warned the British embassy about this girl, along with all the other children in what I believe to be imminent danger.
