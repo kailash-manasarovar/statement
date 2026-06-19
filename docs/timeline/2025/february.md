@@ -50,9 +50,10 @@ function googleTranslateElementInit() {
 
 - At least they left Toby his car to live in.
 - With me, they fully intended my total demise; personal, professional, taking breaths, everything.
-- That's why they poisoned my car; so I could not live in it when the need may arise - with the help of conspiring males of the family - if they didn't manage to *get me* beforehand, and by this time it was looking sketchy with the ole poisoning attempts... curious they didn't give up.
-- I guess it has been 100% effective on other mass porn-stalking victims and they must have thought there'd been an accident in the administering, or something.
-- They should have spoken to the super-duper poisoners who must have been *very surprised* by February 2025, not that it helped any mass porn-stalking victims.
+- That's why they poisoned my car; so I could not live in it when the need may arise - with the help of conspiring males of the family - if they didn't manage to *get me* beforehand, and by this time it was looking sketchy with the ole poisoning attempts...
+- It's curious they didn't give up; I guess that's the way of homicidal psychopathy.
+- I guess, however, the ole poisoning has been 100% effective on the thousands of other mass porn-stalking victims, that they must have thought there'd been an accident in the administering process, or something.
+- They should have spoken to the super-duper poisoners who must have been *very surprised* by February 2025, if not a while before, not that it helped any mass porn-stalking victims whose lives are in peril, then or now.
 
 ## El Pais
 
