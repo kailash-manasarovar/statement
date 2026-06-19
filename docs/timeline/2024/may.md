@@ -885,15 +885,16 @@ function googleTranslateElementInit() {
 
 [![God](../../content/tweets/may-2024/only-god.jpg)](https://x.com/1FRGVN/status/1792130233975644212)
 
-### Thoughts on levels of collusion required for such horror
+### Thoughts on local levels of collusion required for such horror
 
-- Again, like Dénia, this was nowhere near their first rodeo.
-- It was a well-oiled and efficient machine, that they had run many times before.
+- Again, just like in Dénia, this was nowhere near their first rodeo.
+- I was at the center of a well-oiled and efficient sedate-and-rape porn machine, that they had run many, many times before.
 - It would have also required *a lot* of local help too.
 - While in Bali in June 2026, I'm wondering if people in the know know who I am and are wondering why I came back.
+- Porn-addicts share information with every other porn-addict in existence after all, and even the men who don't like porn know everything too.
 - Are they nervous?
-- An aggressive man at my hotel behaves in a way that appears to be trying to frighten me.
-- A taxi driver tells me off for going to the beach.
+- An aggressive man at the beach by my hotel behaves in a way that appears to be trying to frighten me.
+- A taxi driver tells me off for going to the beach: *you should stay in Ubud*.
 - They all want to know about my first trip to Bali.
 - I tell them it was for work, and it was very very boring, but I liked the country so decided to come back.
 - Are they even more nervous about that?
@@ -904,10 +905,11 @@ function googleTranslateElementInit() {
 - I point to it and ask her about it.
 - She says, "it's not on", and laughs and walks off.
 - Is Bali - and other off-site spots - a known place that the tech-bros can bring their 1% female staff for the worst-thing-in-the-world?
-- Have they been doing it for years already?
+- Do they care so little about foreigner privacy because the main men have been doing it for years there already?
 - Seems likely.
-- Is this why no man was upset about the Pelicot business? 
-- As if it was totally normal and acceptable and have been going on for years and he and all his normal-bloke mates in the town were just *unlucky*?
+- Seems likely the whole island knows who I am then, doesn't it.
+- Is this why no man was upset about the Pelicot business in the summer of 2024? 
+- As if it was totally normal and acceptable and have been going on for years and he and all hundred nearly of his normal-bloke mates in the town were just *unlucky*?
 
 !!! tip 
     - Check all and any 1-in-300 female attendees at work events; not the administrative/marketing/conference staff but only the scientists and programmers.
@@ -915,6 +917,11 @@ function googleTranslateElementInit() {
     - Find out if any of them were fired just after the event.
     - Find out of any of them became depressed and suicidal just after the event.
     - Find out if there have been any buried complaints - probably thousands, as usual.
+
+#### Thoughts on the amount of women involved in raping women
+
+- It occurs to me, with absolute horror, that the amount of women fully involved in prepping and organizing situations in which women and children and babies will be raped by thousands of men for porn is truly off the scale.
+- What have humans become?
 
 ## Collecting my devices from the technical expert DPR
 
