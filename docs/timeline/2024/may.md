@@ -20,7 +20,7 @@ function googleTranslateElementInit() {
 - Is this what [Zoe was trying to do](../2001-to-2010/2008.md#lauding-male-violence) whenever she spoke to me relentlessly about violent relationships?
 - The criminal gangs only had a few weeks before Bali.
 - [I had just been porn-prepped after being drugged by the gypsies](april.md#drugged-in-the-street-by-denia-gypsies) on my way home from dinner, and I remember this whole period and on into June and beyond as being a time when I was *constantly* high.
-- Everyone involved is certain that no-one is going to help me.
+- Everyone involved - thousands of porn-addicts around the world including very famous people - are certain that no-one is going to help me, that I will never survive the mass assault.
 - Consequently, [Hazel Smith](../2001-to-2010/2007.md#hazel-smith) doesn't even bother trying to hide anymore.
 
 ## Hazel Smith pretends to be Esteve online
@@ -352,6 +352,10 @@ function googleTranslateElementInit() {
 - Is feminism in Spain reserved for those who will *never* be targeted by misogynist terrorist gangs?
 
 ## Bali
+
+!!! danger "Let's be clear about this..."
+    - If Polygon, Elon, Fireblocks, and all the rest of those sex offending tech-bros thought for one minute I might survive all this to tell the tale, it would have never happened.
+    - This certainty made them show and tell me things they might now wish they hadn't, so that's good.
 
 - I am in Bali from 11th-19th May with work.
 - We stay at the [Grand Hyatt](https://www.hyatt.com/grand-hyatt/en-US/balgh-grand-hyatt-bali).

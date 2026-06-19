@@ -452,7 +452,10 @@ function googleTranslateElementInit() {
 
 - Here's the rest of my communication on [WhatsApp with Roberto](../../content/whatsapps/WhatsApp%20Chat%20with%20Robert%20Rodriguez.zip) over the next months.
 - He clearly doesn't want anything to do with me.
-- One wonders what he found out and whether his Telegram pic suggests he knew *exactly* what was happening to me.
+- One wonders what he found out, or if he knew everything already.
+- His Telegram pic suggests he knew *exactly* what was happening to me and finds mass sedating-and-raping of women and children rather amusing.
+- Are all men like Roberto? 
+- It seems so from where I'm sitting.
 
 ![Roberto R 1](../../content/images/roberto-rodriguez/roberto-rodriguez-1.jpg)
 
@@ -774,33 +777,75 @@ function googleTranslateElementInit() {
 - Beside him is a young girl with blond hair.
 - It's set up so that I see her clearly (although I remember nothing specific about how she looked) but not him.
 - Is it his daughter?
-- If it is, the world just wobbled on its axis a little.
-- He looks exactly like he did at the [choir concert set up in December 2022](../2022/december.md#choir-concert) and other occasions. 
+- This is a key part of the trick; something that keeps me positively emotionally connected to the trumpet-teacher ghost.
+- He looks exactly like he did at the [choir concert set up in December 2022](../2022/december.md#choir-concert) and other occasions, from behind. 
 - I immediately see the trap and decide to ignore them completely.
 - I walk past them.
 - I'm nearly at the tunnel when the drugs kick in and I start to think differently about everything.
 - I nearly stop and turn to look, but I don't, I keep going towards the tunnel.
 - Just inside the tunnel, set up on the left side, is a guitarist busker. I leave him a euro.
 - I don't remember getting home.
-- The guitarist is someone I've never seen before but one of the [Spanish engineers in Bali](may.md#bali) will remind me of him.
+- The guitarist is someone I've never seen before but he has been invited to Bali by Polygon and I will recognize him as one of [Spanish engineers in Bali](may.md#bali) and be confused about seeing him until June 2026 when his presence in Bali suddenly makes perfect sense.
+
+### Prepped for sedated orgasms at the Polygon conference in Bali
+
+- This man the busker, and others, walk me home sedated.
+- I am animal-trained all night by them to have multiple orgasms while sedated (no higher mind function, no ability to say yes or no to what's happening to me, rape).
+- They will have been filming, of course, so there's evidence in my famous-sedated-rape-porn-star collectors items.
+- When I wake up the following morning my whole body is vibrating with having had multiple orgasms throughout the night, I'm still extremely high on some kind of aphrodisiac and hallucinogen, and I'm utterly confused about how I feel.
+- In absence of any other conscious memory at the time, I believe I'm in love.
+- I must be familiar with a least one of the men that came back to my house that night - trumpet teacher number one maybe - for the trick to have worked so effectively.
+- This other man - the gypsy busker who ends up in Bali working for Polygon as their own specialist sedating-and-drugging expert, the man who is able to bring the sedated woman to orgasm for the boys while raping her - must have been intensely *introduced* to me that night in my apartment so that my body would remember him very well in just a couple of week's time.
+- It's likely he came round again, to keep me prepped before I left for Madrid, and it is also likely he came to my hotel room in Madrid with [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) - and [the man who popped up at EthCC](july.md#meeting-a-weird-guy) - who were both definitely in my hotel room in Madrid while I was sedated.
+
+#### The golden fleece of the rapist and sex offender - orgasm
+
+- This must be why I'm so famous.
+- Back in 1989, Winston May made me orgasm with his series of emotional rollercoasters of fear, violence, agression, kindness, violence, aggression, threats to my life, kindness.
+- My guess is he [learned these animal-training techniques in Las Marinas from the gypsies](../../crimes/protagonists/winston-may-and-nicky.md#a-trip-to-spain) while finding out easy it is to sedated women and children and bulk buying some herbs - or did he get them on tick, paid for once he delivered the pedo rape-porn he'd signed up to make?
+- Whenever he brought a bit of kindness into the mix, my body would relax out of fear and nervous tension, he would give me some very powerful aphrodisiac drugs and rape me, and I would orgasm.
+- Loudly.
+- This must be why I'm sooooooooo famous in porn; the golden fleece of the rapist, getting the rape-victim to orgasm.
+- They don't realize it's animal training techniques perfected by gitano gangs over many centuries, and requires drugging and sedating a victim.
+- They don't care about the truth of it.
+- They must think it makes them the best men, the most marvelous men on the planet!
+- I guess that's why Elon and co paid millions to rape me in Bali, isn't it, and why the gypsies could hardly refuse such a massively lucrative scam.
+- But, everyone knows, don't they, and there'll be films of it on millions of people's phones, including law enforcement, won't there.
+- Idiots.
+- Oh yeah, not to forget that doing this to a woman is an act of murder.
+- No-one expects a person going through these levels of continued sexual assaults and rapes to ever recover and have a normal life.
+- No no, this is a murder attempt by millions of men.
+- My guess is eventually a massively lucrative snuff film was intended... probably that's what they usually end up doing, something the boys would be more than happy to pay for... perhaps requesting some kids or babies to star alongside me... or a horse maybe... they do love the animal porn the most.
+- It makes them snicker the loudest, before looking for another rape victim to obsess over..
+- Perhaps the gypsies had another one all ready to go.
+- Maybe [the British 14-year old](february.md#the-britishrussian-girl-at-the-conservatory) I kept trying to warn law enforcment about; the pedo porn scam which the conservatory teachers were so annoyed I was delaying so much... they must have been promised heaps of money for her.
+
+### After this night of sexual assaults/mass rape to orgasm
+
 - From now until I leave for Madrid, I'm higher than usual at home.
-- I find myself playing along more with the online stalking such as with the [Beams account](may.md#beams), and with fake accounts on [Telegram](may.md#telegramsignal) which I genuinely believe to be the trumpet teacher.
-- I believe the gypsies were instructed to drug me at this time, and organize something to happen back at my apartment while I was sedated, as preparation for the [Bali trip](may.md#bali) where numerous high-paying tech-bro porn-addicts lay in wait.
+- The online stalking ramps up to make sure I'm psychologically bound into being raped while sedated and sometimes, maybe, orgasming too.
+- I find myself playing along more with the online stalking such as with the [Beams account](may.md#beams), and with fake accounts on [Telegram](may.md#telegramsignal) which I genuinely believe to be the trumpet teacher the trick is so effective.
+- I believe the gypsies were instructed to drug me at this time, and organize a full night of sedating-rape-to-orgasm as preparation for the [Bali trip](may.md#bali) where numerous high-paying tech-bro porn-addicts lay in wait alongside my male colleages.
 - I guess there could be some CCTV of all that, there are countless cameras along the Carrer Diana.
+- My guess is there is clandestine film of *all of this* from my friends in law enforcement.
 
-!!! tip "Checking on X for clues on this evening's true date"
-    - I am up all night on 28th and way into Monday 29th's early hours, up to 6am, tweeting.
-    - I don't understand these tweet timings as I'm due to start work.
-    - Why didn't I go to sleep?
-    - Here's the [tweet search](https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-04-29%20since%3A2024-04-28&src=typed_query).
-    - I mention smelling toast, and I remember that as it was very unusual.
+### Clues on X about this night
 
-    [![Smelling toast](../../content/tweets/april-2024/smelling-toast.jpg)](https://x.com/1FRGVN/status/1784719295261384849)
+- I am up all night on 28th and way into Monday 29th's early hours, up to 6am, tweeting.
+- I don't understand these tweet timings as I'm due to start work.
+- Why didn't I go to sleep?
+- Here's the [tweet search](https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-04-29%20since%3A2024-04-28&src=typed_query).
+- Why am I up all night tweeting exuberantly?
+- I said "Earlier today" at 6.07am, what did I mean by earlier?
 
-    - Why am I up all night tweeting exuberantly?
-    - I said "Earlier today" at 6.07am, what did I mean by earlier?
-    - I must know what happened to make me so crazy in love with no-one.
-    - Then we'll be free.
+### Smelling toast
+
+- I mention smelling toast, and I remember that as it was very unusual.
+
+[![Smelling toast](../../content/tweets/april-2024/smelling-toast.jpg)](https://x.com/1FRGVN/status/1784719295261384849)
+
+- My view is that the kept me sedated for so long that night, about 9 hours in total, they must have had to readminister the herbs again and again.
+- My understanding of this is I was probably quite close to seizure or stroke by then, and that is why I was smelling toast.
 
 ### Another distraction event with a boy with fetal-alcohol-syndrome
 
@@ -830,6 +875,7 @@ function googleTranslateElementInit() {
 ![Peeping at preschoolers](../../content/images/fake-accounts/voyeurism-minors/3.jpg)
 
 - I believe it is the trumpet teacher I love trying to tell me something about Domingo.
+- I'm kept locked in for the Bali sedated-rape-fest.
 
 ### Same account in August 
 
