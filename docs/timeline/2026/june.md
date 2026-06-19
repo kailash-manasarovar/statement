@@ -141,4 +141,5 @@ function googleTranslateElementInit() {
 - I adjust a little too.
 - I say, if it's fat, it lives, as my appetite returns.
 - And I am most grateful.
-
+- I guess I'm exactly where God needs me... it's always curious to me how that happens.
+- Who thinks I'm here because some awful memory is about to return?
