@@ -61,6 +61,7 @@ function googleTranslateElementInit() {
 - I guess, however, the ole poisoning has been 100% effective on the thousands of other mass porn-stalking victims, that they must have thought there'd been an accident in the administering process, or something.
 - They should have spoken to the super-duper poisoners who must have been *very surprised* by February 2025, if not a while before, not that it helped any mass porn-stalking victims whose lives are in peril, then or now.
 - Did they sedate and rape Toby too?
+- Have they been doing it to the foreign kids at the schools for decades?
 - Seems likely.
 
 ## El Pais
