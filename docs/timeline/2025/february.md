@@ -193,59 +193,94 @@ Ps. The guy (honey-trapper's) name might be Paco Sendra. Whoever he is, the whol
 #### Speaking to the UK foreign office
 
 - The phone is ringing.
-- I hear an automated message and I'm asked to dial numbers (I can't remember this) but I am put through to the British Foreign Office in London.
-- A woman answers the phone.
+- I hear an automated message and I'm asked to dial numbers (I can't remember the specifics) but I am put through to the British Foreign Office in London.
+- A woman answers the phone. 
+- Her name is Anna, she says.
 - I explain what's going on.
 - Specifically, I tell her I have a letter for the ambassador because I'm afraid for my life and the life of my British friend who is coming to help me.
-- She asks me to explain what's happening.
-- I tell her I've been gang stalked by people Dénia, including my neighbours, and that they have been poisoning and drugging me, adding poison to my water, filming me, and coming into my house to douse my belongings with pesticides.
+- She asks me to explain more about what's happening.
+- I tell her I've been gang stalked by the people of Dénia, including my neighbours, and that they have been poisoning and drugging me, adding poisons to my water, filming me, and coming into my house to douse my belongings with pesticides.
 - The woman is *horrified*!
-- I cannot understate this.
+- I cannot understate how horrified Anna is.
 - She gives me a foreign office number and says she has opened a case.
 - I start to cry.
-- I always cry when people act normally about all this, or show any empathy at all, it's so unusual. I've had to be so hard, so unemotional, to survive all this.
+- I always cry when people act normally about all this, or show any empathy at all, it's so unusual. 
+- I've had to be so hard, so unemotional, to survive all this.
+- I wonder if I'll just collapse into a heap for years if anything ever gets done.
 - So I'm weeping, and I notice there's a gypsy woman hovering around.
-- I tell the woman at the foreign office I believe there's a woman listening to the call.
-- I am having this conversation in public at the reception table at the tower.
-- I notice the long-blond-haired woman in her 60s is texting.
+- I tell the woman at the foreign office I believe there's a woman listening to our call.
+- I am having this conversation in public at the reception table at the tower, and I'm obviously very upset.
+- I notice the long-blond-haired woman in her 60s is texting...
 - The woman in London tells me not to worry, and to continue to talk to h...
 
 #### I'm cut off
 
 - The phone call cuts off completely.
-- They put the phone down on me.
-- I had written the foreign office number on a little piece of paper the receptionist gave me, which I consequently lost.
+- They've put the phone down on me.
+- I had written the foreign office case number on a little piece of paper the receptionist gave me, which I consequently lost or it was stolen from me.
+- Maybe Paul got rid of it on instruction.
 
 #### I call back
 
 - I call back.
-- A man answers.
+- A man answers, his name is David he says when I eventually ask him for it.
 - He's very officious and he wants *nothing* to do with me.
-- I give him the number the woman gave me, I tell him more or less exactly what I told the woman in London.
+- He gives me the *Lauren Ott* special; *you have to call the police*, he says, *we can't help you*.
+- I give him the number the woman gave me, and I tell him more or less exactly what I told the woman in London.
 - He is totally uninterested.
 - I cannot understand it.
+- It's utterly incongruous.
 - He's trying to get rid of me.
-- I explain I have a letter for the ambassador and ask him if he is embassy staff.
+- I explain I have a letter for the ambassador and I ask him if he is embassy staff.
 - He says yes, he is embassy staff, but no-one is going to come down and collect my letter.
 - It's inexplicable.
-- I get annoyed with him and ask him if there is anyone at the office at all?
-- He suggest not, that they're all working from home.
+- I get annoyed with him and ask him if there is anyone at the office at all.
+- He suggests not, that they're all working from home.
 - This gives me some sense of an explanation; some sense of not being left to the pleasure of Spanish poisoners and murderers by my own country.
 - I get cross with him and ask him what might happen if there's an emergency.
-- It's a ridiculous conversation anyway; the man wants nothing to do with me.
+- It's a ridiculous conversation anyway; the man has been told to get rid of me, to have nothing to do with me.
 - I put the phone down.
 
 ### I write a few more pages describing these events to add to my letter
 
-- I'm amazed, as usual, by the total lack of interest from the UK government into British citizens especially minors in imminent danger in their homes and going about their daily lives in Spain.
-- Are they well aware of it and have decided to brush it all under the carpet?
-- That would mean hundreds maybe thousands of victims ignored over many decades.
+- I'm amazed, as usual, by the total lack of interest from the UK government into British citizens, especially minors, in imminent danger in their homes, schools, and going about their daily lives in Spain.
+- Are the British government well aware of what's going on and have decided to brush it all under the carpet?
+- It seems likely; or they're heavily involved in criminal porn distribution.
+- It means hundreds maybe thousands of victims ignored over many decades.
 - I go for lunch at El Corte Ingles and write a couple more angry pages to add to my letter.
 - Here they are.
 
 ![Further supplementary page front](../../content/documents/letter-to-the-ambassador/the-extra-letters-after-being-turned-away-and-the-phone-put-down-on-me/more-supplementary-frontside.jpg)
 ![Further supplementary page back](../../content/documents/letter-to-the-ambassador/the-extra-letters-after-being-turned-away-and-the-phone-put-down-on-me/more-supplementary-backside.jpg)
 
+#### Transcript of the further supplementary letters
+
+##### Supplementary front
+
+7th Feb 2025
+El Corte Inglés
+Callao
+Dear Alex
+I just came to the tower to hand this to your team personally.
+I was turned away.
+Even though I had spoken to Anna on the phone at reception in the tower, and Anna had sounded as concerned as you might expect after explaining some of my circumstances.
+My call with Anna was abruptly terminated - your side hung up - and getting back in touch was really impossible.
+I did speak to David who told me I must go to the police and he could do nothing, even after explaining that the police are totally disinterested.
+I asked him why no-one could pick up my Letter and it transpires the office isn't manned. I guess everyone woks from home. Even so, I have been ignored now by
+
+##### Supplementary backside
+
+the Spanish police 3 times, the UK police mere times than I can remember, and all emails/messages etc I send to numerous organizations are also completely ignored. In the case of the police, this makes me more concerned for our safety in Denia, and mine in London, and in the case of no reply to any messages or attempts to get help, it is likely due to the fact I'm 100% hacked and criminals have root access to all my devices so they can delete things before they go out. The reason I came in person. It's nearly impossible for me to understand why such heinous crimes against me and others are being completely ignored other than an unprecedented level of corruption, or maybe there might be some investigation coming to an imminent close and in this case I feel I'm/we're either safe without knowing it, or being sacrificed. It's impossible to know.
+Anyway. With the best. Tell your team to come into the office pls.
+
+#### Something I find interesting reading these back...
+
+- Is I'm always looking for a way to explain things so that everyone apparently *normal* comes out looking *normal*.
+- I literally cannot believe what is happening to me, how I'm being ignored and silenced, and I'm constantly trying to find ways to understand it that make rational and reasonable sense.
+- Is this the state that all the women, girls, and child victims find themselves in in Spain, if they survive long enough to complain about it?
+- I don't do this so much nowadays (time of writing June 2026) - because it's obvious the gangs are protected at the highest level - but at the time I could only understand these horrendous reactions to me being due to the gangs intercepting all my messages and deleting them.
+- I don't think they did that at all now.
+- They don't have to, for some horrible **HORRIBLE** reason that puts everyone traveling to Spain in porn-gang peril, and everyone deciding to move there in even more.
 
 ## El Pais
 
