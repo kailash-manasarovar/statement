@@ -291,7 +291,7 @@ I was turned away.
 Even though I had spoken to Anna on the phone at reception in the tower, and Anna had sounded as concerned as you might expect after explaining some of my circumstances.
 My call with Anna was abruptly terminated - your side hung up - and getting back in touch was really impossible.
 I did speak to David who told me I must go to the police and he could do nothing, even after explaining that the police are totally disinterested.
-I asked him why no-one could pick up my Letter and it transpires the office isn't manned. I guess everyone woks from home. Even so, I have been ignored now by
+I asked him why no-one could pick up my letter and it transpires the office isn't manned. I guess everyone woks from home. Even so, I have been ignored now by
 
 ##### Supplementary backside
 
@@ -300,7 +300,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 #### Something I find interesting reading these back...
 
-- Is I'm always looking for a way to explain things so that everyone apparently *normal* comes out looking *normal*.
+- I'm always looking for a way to explain things so that everyone apparently *normal* comes out looking *normal*.
 - I literally cannot believe what is happening to me, how I'm being ignored and silenced, and I'm constantly trying to find ways to understand it that make rational and reasonable sense.
 - Is this the state that all the women, girls, and child victims find themselves in in Spain, if they survive long enough to complain about it?
 - I don't do this so much nowadays (time of writing June 2026) - because it's obvious the gangs are protected at the highest level - but at the time I could only understand these horrendous reactions to me being due to the gangs intercepting all my messages and deleting them.
