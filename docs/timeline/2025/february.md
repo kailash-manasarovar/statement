@@ -64,7 +64,7 @@ function googleTranslateElementInit() {
 - Have they been sedating and raping and filming the foreign kids at the schools for decades?
 - Seems likely dunnit.
 - God is good and He can't believe what we've been doing to each other, it's so awful.
-- *Oh, I never meant to hurt any children and babies*, the nuts-and-bolts of the baby-raping empire will cry out..
+- *Oh, I never meant to hurt any children and babies*, the nuts-and-bolts financiers of the baby-raping empire will cry out..
 
 ## El Pais
 
