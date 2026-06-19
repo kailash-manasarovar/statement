@@ -89,7 +89,7 @@ function googleTranslateElementInit() {
 - She was sort of bored, looking out of the window, I was crying a little.
 - I never heard from her again although I emailed her a bunch of times.
 - Her name was... Lola.
-- I sent her, and another woman reporter at El Pais, copies of all the letters I sent to the UK embassy I describe in the next section.
+- I sent her, and another woman reporter at El Pais, copies of all the letters I sent to the UK embassy I detail in the next section.
 
 ## Visiting the British embassy in Madrid on 7th February
 
