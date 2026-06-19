@@ -48,10 +48,16 @@ function googleTranslateElementInit() {
 
 ### I think Toby lives in his car, Trish tells me
 
-- At least they left Toby his car to live in.
-- With me, they fully intended my total demise; personal, professional, taking breaths, everything.
-- That's why they poisoned my car; so I could not live in it when the need may arise - with the help of conspiring males of the family - if they didn't manage to *get me* beforehand, and by this time it was looking sketchy with the ole poisoning attempts...
-- It's curious they didn't give up; I guess that's the way of homicidal psychopathy.
+- Back in late 2022, when Trish and I were talking about Toby on a Saturday hike just before the start of [the switcheroo porn extravaganza running live and direct from the music school, children starring, and my apartment, the population of Dénia starring](../../crimes/protagonists/vidal-sastre.md#at-least-six), and everyone stopped talking to me so I'd be fully isolated from the normal world, she told me she thought Toby, her adult son, lives in his car in the UK.
+- She wasn't sure though.
+- She then expressed concern about his safety in the UK, and a wish that he would return to Spain where, she seemed to believe, he'd be safer.
+- I'm not so sure about that.
+- I guess Toby had aired his suspicions about the gangs, and his step-father even, and been targeted, probably from even when he was back in school out there.
+- But at least they left Toby his car to live in!
+- With me - and most women and children they target I guess - they fully intended my total demise; personal, professional, taking breaths, everything knowing no-one would ever help me, a British and Irish national, a foreigner, and they can do what they want with the foreigners.
+- I certainly surprised them, didn't I.
+- That's why they poisoned my car; so I could not live in it when the need may arise - with the help of porn-addict conspiring males of the family - if they didn't manage to *get me* beforehand, and by this time it was looking sketchy with the ole poisoning attempts...
+- It's curious they didn't give up; that must be the way of homicidal psychopathy.
 - I guess, however, the ole poisoning has been 100% effective on the thousands of other mass porn-stalking victims, that they must have thought there'd been an accident in the administering process, or something.
 - They should have spoken to the super-duper poisoners who must have been *very surprised* by February 2025, if not a while before, not that it helped any mass porn-stalking victims whose lives are in peril, then or now.
 
