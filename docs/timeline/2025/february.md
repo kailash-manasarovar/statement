@@ -54,7 +54,7 @@ function googleTranslateElementInit() {
 - I'm not so sure about that.
 - I guess Toby had aired his suspicions about the gangs, and his step-father even, and been targeted, probably from even when he was back in school out there.
 - But at least they left Toby his car to live in!
-- With me - and most women and children they target I guess - they fully intended my total demise; personal, professional, taking breaths, everything knowing no-one would ever help me, a British and Irish national, a foreigner, and they can do what they want with the foreigners.
+- With me - and most women and children they target I guess - they fully intended my total demise; personal, professional, taking breaths, everything; knowing no-one would ever help me, a British and Irish national, a foreigner, and they can do what they want with the foreigners.
 - I certainly surprised them, didn't I.
 - That's why they poisoned my car; so I could not live in it when the need may arise - with the help of porn-addict conspiring males of the family - if they didn't manage to *get me* beforehand, and by this time it was looking sketchy with the ole poisoning attempts...
 - It's curious they didn't give up; that must be the way of homicidal psychopathy.
