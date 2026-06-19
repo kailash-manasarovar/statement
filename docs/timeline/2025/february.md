@@ -10,31 +10,37 @@ function googleTranslateElementInit() {
 
 ## Car detailing in Madrid 
 
-- I am getting continuous warnings on X not to drive the car.
-- They started while I was in Thailand in December 2024 while I was getting ready to return to Europe.
-- When I pick up the car from the carpark at Madrid airport, I immediately have that feeling of toxicity in the air and things I'm touching.
+- I have been getting continuous warnings on X not to drive the car.
+- They started when I was in Thailand in December 2024, not long after I had parked it at Madrid airport, and while I was getting ready to return to Spain.
+- When I go to pick up the car from the carpark at Madrid airport in early January, I immediately have that feeling of toxicity in the air I'm breathing and on the things I'm touching.
 - My mouth and throat is dry and scratchy the whole night.
-- I suspect criminals accessed the car while it was in the carpark in Madrid airport and sprayed pesticides all over the upholstery and plastics, just as [they did in my apartment](../2024/october.md#the-router-malfunctions).
-- I wonder if they're able to add continuous doses of toxins through the air vents too.
-- [I picked Paul up at the same time](january.md#paul) and I ask him what to do about this as he works on cars.
-- I already asked him to bring industrial masks and gloves from London.
-- He says to find a detailer and get it cleaned.
+- I'm perma-high at that time so I don't notice any chance in perception.
+- I suspect criminals accessed the car while it was in the carpark at Madrid airport and sprayed pesticides all over the upholstery and plastics, just like [they did with all my belongings, clothes, linen, furniture items, everything in my apartment](../2024/october.md#the-router-malfunctions), just like they do to all their criminal porn-targets who don't play nice and/or when they've finished with them.
+- I wonder if they're able to add continuous doses of toxins and drugs through the air vents too?
+- I remember getting high in the car on long drives - from Lourdes to Dénia for example - and it would always be about an hour after setting off I'd notice a significant change in perception, often including sexual arousal too.
+- [When I picked Paul up](january.md#paul) at Madrid, I ask him what to do about the toxicity in my car.
+- Paul works on cars, you see.
+- I already asked him to bring industrial masks and gloves from London, which he did but he's not taking me seriously.
+- He says to find a detailer and get the car professionally cleaned.
 - I search for a car detailer online.
 - I find [a detailer near the El Pais offices in San Blas](https://garagedetail.es/) in Madrid.
 
 ![Detailers](../../content/images/detailers.png)
 
 - There's a hotel just a step away also.
-- I book the car in for detailing and book a few days at the hotel while they do it.
-- Obviously, my online search results are controlled by criminal gangs, and I'm aware of this, but I have no choice.
+- I book the car in for detailing in early February, and book a few days at the hotel while they do it.
+- I arrange for Paul to fly to Madrid from London after I have had the car cleaned, and I plan we drive down to the Marina Alta together.
+- Obviously, my online search results are controlled by criminal gangs, and I'm aware of this, but like all their porn targets relying on the Internet - and with zero help from law enforcement, that I'm aware of at the time - I have no choice in this at all.
 - When I pick up the car from the detailers and start driving, it feels like the whole dashboard section has been moved closer inwards.
-- I'm not able to put the same things back in the glove compartment that were there previously without issue; they don't fit!
-- My feet are misfiring as they step on the clutch because it's in a different place; it's too close and it's not the position of the car seat
+- I'm not able to put the same items back in the glove compartment that I removed while they worked on the car (they were important documents in a folder, and a stack of CDs I didn't want nicked, so I removed them before I took the car in - probably no-one believed me, did they).
+- These items fit previously in the glove compartment without issue; and now they don't fit at all!
+- My feet are misfiring also as they step on the clutch because it's in a different place; the pedal is too close and it's not the position of the car seat that's changed.
 - I wonder about this with Paul, and suggest the gangs might have got the detailers to put something in the car, or create a space in the car between the engine and the dashboard.
-- I suspect a poisoning system or drugs.
-- Paul, curiously, spends a great detail of energy in talking me down from my fears about this, and indeed everything criminal I have suspicions about with regards to the car and my apartment.
+- I suspect a poisoning/drugging system, or a compartment for drugs and I am seriously concerned I'm gonna be muled on the way back to London.
+- Paul, curiously, spends a great detail of energy in talking me down from my fears about this, and indeed everything criminal I have suspicions about with regards to the car and my apartment and my belongings and everything, in fact.
+- I don't know he's aware of everything that's been happening to me since 1989 at the hands of thousands of men who think they'll get away with raping sedated women or enjoying their suffering on the criminal and not-so criminal porn networks, isn't it.
 
-### Toby
+### I think Toby lives in his car, Trish tells me
 
 - At least they left Toby his car to live in.
 - With me, they fully intended my total demise; personal, professional, taking breaths, everything.
@@ -62,7 +68,7 @@ function googleTranslateElementInit() {
 
 - I have no one else to help me, so I ask [Paul](january.md#paul) if he would like an all expenses paid trip to Spain and back to help me collect my stuff.
 - He agrees.
-- I meet Paul at Madrid airport and we drive down to Denia to collect my stuff.
+- I meet Paul at Madrid airport and we drive down to Dénia to collect my stuff.
 - I ask him if he will have a look around the flat for anything suspicious and I tell him about the hole in the wall behind the mirror.
 - When we look, there's no massive hole in the wall; its a rather tiny hole in fact.
 - I realize I was hallucinating *hard* in October 2024 to have seen a fist-sized hole in the wall.
@@ -84,7 +90,7 @@ function googleTranslateElementInit() {
 
 ### Child gang-rape porn
 
-- I tell Paul the whole story about what's been going on in Denia and how it is related to when I was sexually abused as a child.
+- I tell Paul the whole story about what's been going on in Dénia and how it is related to when I was sexually abused as a child.
 - He asks me; "How didn't you go mad?"
 - I tell him I think the Adams family are involved.
 - He tells me he went to school with one of them; a male who committed suicide.
