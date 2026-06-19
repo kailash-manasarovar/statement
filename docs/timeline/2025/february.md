@@ -317,6 +317,10 @@ Anyway. With the best. Tell your team to come into the office pls.
 ![Delivered by hand backside](../../content/documents/letter-to-the-ambassador/proof-of-delivery/delivered-by-hand.jpg)
 ![To be opened by the addressee only](../../content/documents/letter-to-the-ambassador/proof-of-delivery/to-be-opened-by-addressee-only.jpg)
 
+## Reply?
+
+- There was none.
+
 ## Paul helps me move back to UK
 
 - I have no one else to help me, so I ask [Paul](january.md#paul) if he would like an all expenses paid trip to Spain and back to help me collect my stuff.
