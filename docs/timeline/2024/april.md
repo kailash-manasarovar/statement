@@ -49,6 +49,8 @@ function googleTranslateElementInit() {
 - My whispered wish becomes a bold statement: *Bring him to me!*.
 - And, at *exactly* the same time, matching every word of mine, I hear a booming voice coming from inside the temple saying, "Bring him to Me!".
 - I have no non-God explanation for this - apart from the mandrake that I must have been ingesting unawares from my toiletries, and that's also a God-explanation depending on who you talk to.
+- I think I went and followed the Instruction to the letter, didn't I.
+- Fabulous.
 
 ## Lunch with Christine
 
