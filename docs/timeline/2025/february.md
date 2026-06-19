@@ -68,8 +68,8 @@ function googleTranslateElementInit() {
 
 ## Visiting the British embassy in Madrid on 7th February
 
-- I'm in Madrid.
-- Paul is due to arrive I believe on Saturday 8th February in the afternoon when we plan to drive down to Dénia and stay in the Marriott two nights and on the Sunday collect my belongings from Carrer Furs.
+- I'm in Madrid and I'm scared.
+- Paul is due to arrive on Saturday 8th February in the afternoon when we plan to drive down to Dénia and stay in the Marriott for two nights and on the Sunday collect my belongings from Carrer Furs.
 - I have a British removal man coming on the morning of the 9th who will shift the big stuff for me.
 - I know very well that there's something about me personally, or me characteristically (I'm British and female) that means the British government do not care about my safety and have been trying to throw me to the wolves since I first complained to them in February 2024, if not before.
 - Even so, Paul is coming to Spain now and we'll be in the war zone itself.
@@ -81,10 +81,10 @@ function googleTranslateElementInit() {
 ### I write a long letter to the British ambassador
 
 - I decide the best thing to do is to approach the ambassador himself directly.
-- I have been ignored multiple times on email, I lost count how many times I tried to get help via messages to their X account `@ukinspain`, and whenever I called the British embassy in Madrid, I was fobbed off, so I figure my best bet is to go in person and hand deliver a letter so they cannot deny they have information about serious crimes against British, Irish, Argentinian, Czech, and other foreign women and children and babies living in Spain.
-- Here is my letter that I write by hand in my hotel in San Blas.
+- I have been ignored multiple times on email, I lost count how many times I tried to get help via messages to their X account `@ukinspain`, and whenever I called the British embassy in Madrid, I was fobbed off, so I figure my best bet is to go along in person and hand-deliver a letter so they cannot deny they have the information I have been collating with the help of friends about serious crimes against British, Irish, Argentinian, Czech, and other foreign women and children and babies living, holidaying, and studying, often disappearing and/or ending up murdered in Spain, and in case anything bad happens to me and Paul in Dénia at the weekend.
+- Here is the letter that I write by hand (due to hacking) in my hotel room in San Blas the night before I visit the embassy.
 
-[![Page 1 front](../../content/documents/letter-to-the-ambassador/the-original-letter/page-1-frontside.jpg)](../../content/documents/letter-to-the-ambassador/the-original-letter/page-1-frontside.jpg)
+![Page 1 front](../../content/documents/letter-to-the-ambassador/the-original-letter/page-1-frontside.jpg)
 ![Page 1 back](../../content/documents/letter-to-the-ambassador/the-original-letter/page-1-backside.jpg)
 ![Page 2 front](../../content/documents/letter-to-the-ambassador/the-original-letter/page-2-frontside.jpg)
 ![Page 2 back](../../content/documents/letter-to-the-ambassador/the-original-letter/page-2-backside.jpg)
@@ -99,13 +99,13 @@ Friday 7th February 2025
 Dear British Embassy in MADRID SPAIN
 My name is Katharine Margaret Murphy with passport number 533646044.
 I live at Carrer Furs 15, B1, Esc2, Piso3, Apt 17 Denia Alicante 03700.
-I am writing by hand because I have been hacked by criminal gangs in the Denia region, that include British citizens going under the name Hazel & Sandra Smith, probably since 2006, but in the last 3 years while living peacefully at my home (rented) in Denia, and paying substantial taxes, this hacking has become extraordinarily exaggerated and was coupled with the fact that my neighbours were able to add substances to the water I drank in tea/coffee and washed myself in. 
+I am writing by hand because I have been hacked by criminal gangs in the Denia region, that include British citizens going under the name Hazel & Sandra Smith, probably since 2006, but in the last 3 years while living peacefully at my home (rented) in Denia, and paying substantial taxes, this hacking has become extraordinarily exaggerated and was coupled with the fact that my neighbours were/are able to add substances to the water I drank in tea/coffee and washed myself in. 
 These substances, whatever they were, made me extraordinarly sexually aroused at times, at other times terified & anxiouss, and oftentimes unwell with kidney and eye
 
 ##### Page 1 backside
 
 problems, regular vomiting, zero alcohol tolerance, etc.
-I was targeted since 2006 because I had a compensation payment which H * S must have known about, and also I was the victim of a child rape gang when I was 16 in London which they also knew about "somehow"!
+I was targeted since 2006 because I had a compensation payment which H * S must have known about, and also I was the victim of a child rape gang when I was 16 in London which they also know about "somehow"!
 Nevertheless, I somehow managed to avoid whatever they had intended for me on two different occasions, 2007 meeting with Hazel where I believe she tried to murder me because it was clear I couldn't be blackmailed worth whatever rape gang porn she had of me, then again between 2014-2016
 at the conservatory of Denia (where I was lured into studying) and love bombed/honey trapped by a piano teacher there connected to HS/SS, Domingo Lopez Cane, who appears to be a member of a bonafide crime family in Denia or closely connected, a man who behaves inappropriately with minors in his care and may well be drugging as part of grooming etc, in class at the conservatory (this happened to me!)
 Then in the last 3 years since my return to Denia 2/22 to now where I have been living in a drugged environment and been the target
@@ -113,7 +113,7 @@ Then in the last 3 years since my return to Denia 2/22 to now where I have been 
 ##### Page 2 front
 
 of the most outrageous gang stalking imaginable which I believe was intended to drive me to suicide. The whole town was involved!
-It has been horrendous and I believe that as well as filming me masturbating in my home from either my laptop camera (even my work laptop found evidence of hacking) or other devices, they had secret cameras set up all over the house (there is a massive hole behind the mirror in the bathroom) and I believe it is highly likely they sedated me and entered my home and filmed me beng raped!
+It has been horrendous and I believe that as well as filming me masturbating in my home from either my laptop camera (even my work (laptop) found evidence of hacking) or other devices, they had secret cameras set up all over the house (there is a massive hole behind the mirror in the bathroom) and I believe it is highly likely they sedated me and entered my home and filmed me beng raped!
 Certainly they were entering my home and adding substances to my toiletries and it is only since mid-December that I realized I was still being poisoned. I was in Thailand where I was visiting for 2 months and I was still feeling extremely unwell, especially my eyes.
 I threw away all my toiletries, indeed anything they might have sprayed too, and after a few days started to feel better finally, after 3 years!!
 Bangkok Rutnin Eye Hospital diagnosed nue with PACS at that time which to me, is inexplicable outside of poisoning.
@@ -134,20 +134,117 @@ I wrote to you again and again online and
 
 no-one ever replies. I don't know if you receive anything.
 Indeed, I have phoned and spoken to someone at the embassy twice now. It was the same voice also, a woman. First time was March 13th or 14th last year, second time was 2 days ago.
-Is it possible they are intercepting my calls to you? That certainly has been the case in other scenarios. The woman told me I had to go to the police but obviously that's not working.
+Is it possible they are intercepting my calls to you? That certainly has been the case in other scenarios. The (in March) woman told me I had to go to the police but obviously that's not working.
 Basically, what I need you to know is that myself and my British friend, Paul Pompeus who is arriving tomorrow from Stansted on flight FR5994 to Madrid gong to Denia to collect my things, then, God willing leaving on Monday.
 I have a removal man coming also on Sunday @ 10am to carry some of the bigger stuff. Wayne from Coast2Coastremovals.com
 As well as the criminal toxicity issues, (I have been getting my cas detailed this week as I believe they had access to my car, including air vents) and felt unwell driving it for 5 mins.
 
 ##### Page 3 backside
 
-I believe our lives are in danger, HS/SS clearly have lost their minds completely and very much enjoy causing people to die, whether directly by poisoning or indirectly through drugging/terrorizing online. So, given that, all the security services I have approached don't care, and do not give me any assurances that I'm safe, I need to have made a good effort to protect myself and my friends, and anyone who has come into contact with this evil in Denia including and perhaps most especially the minor children targeted at the conservatory, one of WHOM was pointed out to me as being in IMMINENT AND SPECIFIC DANGER, a lovely girl, maybe 13/14 studying singing who is half British (I forget her name). She was performing in a rehearsal I had with Joan Carles on 11th March at around 19:00 in room 11 of the conservatory.
+I believe our lives are in danger, HS/SS clearly have lost their minds completely and very much enjoy causing people to die, whether directly by poison or indirectly through drugging/terrorizing online. So, given that, all the security services I have approached don't care, and do not give me any assurances that I'm safe, I need to have made a good effort to protect myself and my friends, and anyone who has come into contact with this evil in Denia including and perhaps most especially the minor children targeted at the conservatory, one of WHOM was pointed out to me as being in IMMINENT AND SPECIFIC DANGER, a lovely girl, maybe 13/14 studying singing who is half British (I forget her name). She was performing in a rehearsal I had with Joan Carles on 11th March at around 19:00 in room 11 of the conservatory.
 Thank you, and always in your service, and service to the King with the very best ♡
 Katharine Margaret Murphy
 07545-235-465
 
+### Supplementary pages
+
+- I put the letter in an envelope and add the address and delivered-by-hand instructions.
+- A short while later, I realize I haven't finished, and I write two more supplementary pages.
+- I do my best to explain [the trumpet-teacher switcheroo-porn scam](../../crimes/protagonists/vidal-sastre.md#at-least-six) even though I have a while before I figure out what happened myself.
+- I still think it is one man.
+
+![Page 4 front](../../content/documents/letter-to-the-ambassador/the-supplementary-letters/page-4-supplementary-front.jpg)
+![Page 4 back](../../content/documents/letter-to-the-ambassador/the-supplementary-letters/page-4-supplementary-backside.jpg)
+
+- It's just extraordinary to me the amount of evil they piled onto me.
+- It seems to never ever stop.
+- If it was just me, it wouldn't be a big deal, but these people have been murdering and scamming women, girls, and babies for porn for decades.
+- It's time it stopped.
+
+#### Transcript of the supplementary letters
+
+##### Page 4 supplementary front
+
+SUPPLEMENTARY
+If you wanted my opinion, you probably don't, it looks like HS/SS started a sexploitation epidemic in Denia and joined forced with the Spanish criminals who had been targeting women in this way for decades, esp ex pats with money or property for inheriting.
+I was targeted by one such honey-trapper who's real name I don't know but he was able to get a temporary job at the conservatory under a false name foe the sole purpose or making me "fall in love" with him via drugging and manipulation online and offline. This quy even (qualified for) got a pension during those few months he was there.
+I believe HS/SS took all this honey-trapping to another level and likely have incriminating footage of many important people in the area. They are clearly closely connected to international porn + prostitution gangs too and I was unformed that they even target kids online.
+Anyway.
+It Denia ever becomes safe again I'll
+
+##### Page 4 supplementary backside
+
+return in an eye-blink as it was the perfect place to live wak for me, I loved it, I loved the people, I loved everything about it
+I had no idea how much evil lurked in the town & I still cant believe teachers and friends were persuaded and justified treating me worse than you can imagine.
+It still doesn't make sense to me. I pray they tend peace.
+Thank you again
+P
+Ps. The guy (honey-trapper's) name might be Paco Sendra. Whoever he is, the whole town knows him!! And will know his real name toe. He has a twin brother.
 
 ### I take the letter in person to the embassy
+
+- The next morning, I take the letter in person to the embassy at the tower on the Paseo de la Castellana.
+- It's raining and cold.
+- I go to reception and ask the receptionist if I can deliver a letter to the British embassy.
+- She says no, I cannot. They do not have a post service at the reception.
+- She says I can take it downstairs to the basement to the post department, but that sounds like a bad idea to me.
+- She says that I can call them from her phone, and she picks up the phone and dials the embassy.
+
+#### Speaking to the UK foreign office
+
+- The phone is ringing.
+- I hear an automated message and I'm asked to dial numbers (I can't remember this) but I am put through to the British Foreign Office in London.
+- A woman answers the phone.
+- I explain what's going on.
+- Specifically, I tell her I have a letter for the ambassador because I'm afraid for my life and the life of my British friend who is coming to help me.
+- She asks me to explain what's happening.
+- I tell her I've been gang stalked by people Dénia, including my neighbours, and that they have been poisoning and drugging me, adding poison to my water, filming me, and coming into my house to douse my belongings with pesticides.
+- The woman is *horrified*!
+- I cannot understate this.
+- She gives me a foreign office number and says she has opened a case.
+- I start to cry.
+- I always cry when people act normally about all this, or show any empathy at all, it's so unusual. I've had to be so hard, so unemotional, to survive all this.
+- So I'm weeping, and I notice there's a gypsy woman hovering around.
+- I tell the woman at the foreign office I believe there's a woman listening to the call.
+- I am having this conversation in public at the reception table at the tower.
+- I notice the long-blond-haired woman in her 60s is texting.
+- The woman in London tells me not to worry, and to continue to talk to h...
+
+#### I'm cut off
+
+- The phone call cuts off completely.
+- They put the phone down on me.
+- I had written the foreign office number on a little piece of paper the receptionist gave me, which I consequently lost.
+
+#### I call back
+
+- I call back.
+- A man answers.
+- He's very officious and he wants *nothing* to do with me.
+- I give him the number the woman gave me, I tell him more or less exactly what I told the woman in London.
+- He is totally uninterested.
+- I cannot understand it.
+- He's trying to get rid of me.
+- I explain I have a letter for the ambassador and ask him if he is embassy staff.
+- He says yes, he is embassy staff, but no-one is going to come down and collect my letter.
+- It's inexplicable.
+- I get annoyed with him and ask him if there is anyone at the office at all?
+- He suggest not, that they're all working from home.
+- This gives me some sense of an explanation; some sense of not being left to the pleasure of Spanish poisoners and murderers by my own country.
+- I get cross with him and ask him what might happen if there's an emergency.
+- It's a ridiculous conversation anyway; the man wants nothing to do with me.
+- I put the phone down.
+
+### I write a few more pages describing these events to add to my letter
+
+- I'm amazed, as usual, by the total lack of interest from the UK government into British citizens especially minors in imminent danger in their homes and going about their daily lives in Spain.
+- Are they well aware of it and have decided to brush it all under the carpet?
+- That would mean hundreds maybe thousands of victims ignored over many decades.
+- I go for lunch at El Corte Ingles and write a couple more angry pages to add to my letter.
+- Here they are.
+
+![Further supplementary page front](../../content/documents/letter-to-the-ambassador/the-extra-letters-after-being-turned-away-and-the-phone-put-down-on-me/more-supplementary-frontside.jpg)
+![Further supplementary page back](../../content/documents/letter-to-the-ambassador/the-extra-letters-after-being-turned-away-and-the-phone-put-down-on-me/more-supplementary-backside.jpg)
 
 
 ## El Pais
