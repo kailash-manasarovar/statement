@@ -66,6 +66,25 @@ function googleTranslateElementInit() {
 - God is good and He can't believe what we've been doing to each other, it's so awful.
 - *Oh, I never meant to hurt any children and babies*, the nuts-and-bolts financiers of the baby-raping empire will cry out..
 
+## El Pais
+
+- One evening, I get back to my hotel quite late.
+- It's dark.
+- I think I probably met Inma for dinner that night but I can't remember.
+- I take a different route from the Metro down the road the El Pais offices are on.
+- Batman
+- They're trying to tell me online that it was only spiderman that they dressed up as before coming round to my house after I had gone to bed and been sedated while sleeping.
+- Nonsense.
+- A whole community of porn-addicts knew very well about *Batman and little girl*, an early meme from the switcheroo days.
+- It made me do a double take when I saw it on the wall of the El Pais offices, and that's why I decided to go into talk to a reporter.
+- I spoke to two reporters. A man who got me a woman to talk to.
+- I explained everything to her.
+- She was sort of bored, looking out of the window.
+- I never heard from her again although I emailed her a bunch of times.
+- Her name was... Lola.
+- Do they all find it *hilarious* they way they're relentlessly destroying that which gave them life and sustains them mostly?
+- They're all that mad so, yes.
+
 ## Visiting the British embassy in Madrid on 7th February
 
 - I'm in Madrid and I'm scared.
@@ -282,21 +301,15 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I don't think they did that at all now.
 - They don't have to, for some horrible **HORRIBLE** reason that puts everyone traveling to Spain in porn-gang peril, and everyone deciding to move there in even more.
 
-## El Pais
+### Proof of delivery
 
-- TBC
-- Batman
-- They're trying to tell me online that it was only spiderman that they dressed up as before coming round to my house after I had gone to bed and been sedated while sleeping.
-- Nonsense.
-- A whole community of porn-addicts knew very well about *Batman and little girl*, an early meme from the switcheroo days.
-- It made me do a double take when I saw it on the wall of the El Pais offices, and that's why I decided to go into talk to a reporter.
-- I spoke to two reporters. A man who got me a woman to talk to.
-- I explained everything to her.
-- She was sort of bored, looking out of the window.
-- I never heard from her again although I emailed her a bunch of times.
-- Her name was... Lola.
-- Do they all find it *hilarious* they way they're relentlessly destroying that which gave them life and sustains them mostly?
-- They're all that mad so, yes.
+- Here are the letters I bound up.
+- I also sent this registered/signed for at the Callao post office just after I wrote the previous two pages.
+- The letter was successfully delivered to the embassy a day or two later.
+
+![Delivered by hand](../../content/documents/letter-to-the-ambassador/proof-of-delivery/delivered-by-hand-frontside.jpg)
+![Delivered by hand backside](../../content/documents/letter-to-the-ambassador/proof-of-delivery/delivered-by-hand.jpg)
+![To be opened by the addressee only](../../content/documents/letter-to-the-ambassador/proof-of-delivery/to-be-opened-by-addressee-only.jpg)
 
 ## Paul helps me move back to UK
 
