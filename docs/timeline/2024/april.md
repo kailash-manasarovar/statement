@@ -64,6 +64,7 @@ function googleTranslateElementInit() {
 - Or was it just because I have a friend who the criminal gangs were previously unaware of?
 - Did they do a bit of research on him and find something out something that caused them anxiety?
 - Were they worried about us being CIA intuitives?
+- (Perhaps I was one, for a time, one of the very best; so good at my role, I didn't even know about it meself, but I got them all doing all of it they thought they'd get away with for eternity, I guess, getting worse and worse and worse year-by-year!!! Not on God's watch! HAHAHAAAAAAAA!!!!!)
 - Of course, the most worrying thing for a brave and bold criminal gang terrorizing a single woman living alone is if she is not, after all, alone. 
 - Little did they know... although I did keep telling them.
 - The inherent cowardice is off the scale.
