@@ -79,7 +79,7 @@ function googleTranslateElementInit() {
 
 - In 2026, as I draft this section, the criminals try to tell me online that [it was only spiderman that they dressed up as](../2024/march/13-end.md#spider-man) before coming round to my house after I had gone to bed and been sedated while sleeping.
 - And I say nonsense.
-- A whole community of porn-addicts knows very well about [*Batman and little girl*](../../evidence/memes-and-triggers.md#batman-and-little-girl), an early meme from the very famous [switcheroo days](../../crimes/protagonists/vidal-sastre.md#a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair) where Batman was one of the taller more muscular men, a genuinely good looking man, but a total twat in his behavior.
+- A whole community of porn-addicts knows very well about [*Batman and little girl*](../../evidence/memes-and-triggers.md#batman-and-little-girl), an early meme from the very famous [switcheroo days](../../crimes/protagonists/vidal-sastre.md#a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair) where Batman was one of the taller more muscular men pretending to be a school teacher at the conservatory, a genuinely good looking man, but a total twat in his behavior.
 - Was he the dummy good-looking trumpet teacher who was a little bit thick who seemed to have never spoken to a woman in his whole life; someone they always relied on for the film star element of the love affair trick?
 - I have this man down in [second place, one of at least four potentials](../../crimes/protagonists/vidal-sastre.md#at-least-four-more), next to [the first man](../../crimes/protagonists/vidal-sastre.md#an-older-man-maybe) who does seem like he could be some sort of relation.
 - I can state, categorically, that I will remember each and every one of the men that turned up to classes at the conservatory when I see pictures of them again, and certainly even some of the men that turned up in my bedroom too, some of whom I was familiar with from [over twenty-five years ago](../2001-to-2010/2001.md#amsterdam).
@@ -94,10 +94,11 @@ function googleTranslateElementInit() {
 - I never heard from her again although I emailed her a bunch of times.
 - Her name was... Lola.
 - No joke.
-- Remember: the porn-gangs know exactly where I am and what I am doing at any moment. They have probably got the man with a porn-subscription to talk to me, and got him to bring a donut out, or a woman who has been told I'm an idiot.
+- Remember: the porn-gangs know exactly where I am and what I am doing at any moment. 
+- They have probably got the man with a porn-subscription to talk to me - and what man in Spain doesn't have a criminal porn subscription these days - and got him to bring a donut out, or a woman who has been told I'm an idiot.
 - I sent Lola, and another woman reporter at El Pais - possibly Isabel Valdes - copies of all the letters I sent to the British consulate offices in Madrid that I detail in the next section.
 - I think this is probably where I refer to the criminal gangs deleting my emails before they get sent.
-- I now believe Spain is utterly broken by criminal porn, top to bottom - they have infiltrated the schools after all - and the gangs were more than happy, proud even, for me to see Batman on the wall of El Pais, because they clearly own the media as well as the police.
+- I now believe Spain is utterly broken by criminal porn, top to bottom - they have infiltrated the schools after all - and the gangs were more than happy, proud even, for me to see Batman on the wall of El Pais, because they clearly own the media as well as the government school-board and police.
 
 ## Visiting the British embassy in Madrid on 7th February
 
