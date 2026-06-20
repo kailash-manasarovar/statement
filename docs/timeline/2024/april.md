@@ -64,7 +64,6 @@ function googleTranslateElementInit() {
 - Or was it just because I have a friend who the criminal gangs were previously unaware of?
 - Did they do a bit of research on him and find something out something that caused them anxiety?
 - Were they worried about us being CIA intuitives?
-- (Perhaps I was one, for a time, one of the very best; so good at my role, I didn't even know about it meself, but I got them all doing all of it they thought they'd get away with for eternity, I guess, getting worse and worse and worse year-by-year!!! Not on God's watch! HAHAHAAAAAAAA!!!!!)
 - Of course, the most worrying thing for a brave and bold criminal gang terrorizing a single woman living alone is if she is not, after all, alone. 
 - Little did they know... although I did keep telling them.
 - The inherent cowardice is off the scale.
@@ -792,7 +791,7 @@ function googleTranslateElementInit() {
 - I don't remember getting home.
 - The guitarist is someone I've never seen before but he has been invited to Bali by Polygon and I will recognize him as one of [the Spanish engineers in Bali](may.md#bali) and be pretty confused about seeing him there until June 2026 when his presence in Bali suddenly makes perfect sense.
 
-### Prepped for sedated orgasms at the Polygon conference in Bali
+### Prepped for sedated orgasms while being raped at the Polygon conference in Bali
 
 - This man the busker, and others, walk me home sedated.
 - I am animal-trained all night by them to have multiple orgasms while sedated (no higher mind function, no ability to consent to what's happening to me, rape).
@@ -840,17 +839,22 @@ function googleTranslateElementInit() {
 - I guess there could be some CCTV of the distract-and-drug, there are countless cameras along the Carrer Diana.
 - My guess is there is clandestine film of *all of this* from my friends in law enforcement.
 - And I'm pretty certain they've all dropped each other in it already anyway; thanks Ugly love <3
-- I guess I'm proving the existence of the hypno-tech, and *everything* it can do, all by meself.
-- June 2026 post-Kailash commentary: So right now, I'm not sure Who's tricked Who, but I'm guessing - with good reason - that God is the winner.
 
 ### Clues on X about this night
 
-- I am up all night on 28th and way into Monday 29th's early hours, up to 6am, tweeting.
-- I don't understand these tweet timings as I'm due to start work.
-- Why didn't I go to sleep?
-- Here's the [tweet search](https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-04-29%20since%3A2024-04-28&src=typed_query).
+- I am up all night on 28th and way into Monday 29th's early hours, and on up to 6/7am, tweeting.
+- I don't understand these tweet timings as it is not a holiday and I'm due to start work.
+- I'm literally up all night, it seems.
+- Did they sedated-and-rape, let me tweet a bit, go again, let me tweet a bit, go again, like that?
+- Why didn't I go to sleep after being [drugged by the gypsies in the street](#drugged-in-the-street-by-denia-gypsies)?
+- Here's the [tweet search](https://x.com/search?q=(from%3A1frgvn)%20until%3A2024-04-29%20since%3A2024-04-28&src=typed_query) from that night.
+- Did I go to work the next day?
+- Would Polygon have ingnored it if I didn't turn up?
+- Can we check? Ooooh, they've started dropping each other in it there too have they? Great!
 - Why am I up all night tweeting exuberantly?
 - I said "Earlier today" at 6.07am, what did I mean by earlier?
+- Why do I still think it's *today*?
+- I appear to be extremely high.
 
 ### Smelling toast
 
