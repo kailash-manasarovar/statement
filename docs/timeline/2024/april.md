@@ -827,15 +827,17 @@ function googleTranslateElementInit() {
 - It makes them snicker the loudest, before looking for another rape victim to obsess over..
 - Perhaps the gypsies had another one all ready to go.
 - Maybe [the beautiful British 14-year-old girl](february.md#the-britishrussian-girl-at-the-conservatory) I kept trying to warn law enforcment about; the pedo porn scam which the conservatory teachers were so annoyed I was delaying so much... they must have been promised heaps of money for her.
+- Did Elon put a down payment on the child too?
 
-### After this night of sexual assaults/mass rape to orgasm
+### After this night of rape-induced orgasm
 
 - From now until I leave for Madrid, I'm higher than usual at home.
 - The online stalking ramps up to make sure I'm psychologically bound into being raped while sedated and sometimes, maybe, orgasming too.
 - I find myself playing along more with the online stalking such as with the [Beams account](may.md#beams), and with fake accounts on [Telegram](may.md#telegramsignal) which I genuinely believe to be the trumpet teacher the trick is so effective.
-- I believe the gypsies were instructed to drug me at this time, and organize a full night of sedating-rape-to-orgasm as preparation for the [Bali trip](may.md#bali) where numerous high-paying tech-bro porn-addicts lay in wait alongside my male colleages.
-- I guess there could be some CCTV of all that, there are countless cameras along the Carrer Diana.
+- I believe the gypsies were instructed to drug me and organize a full night of sedating-rape-to-orgasm as preparation for the [Bali trip](may.md#bali) where numerous high-paying tech-bro porn-addicts lay in wait alongside my male colleages.
+- I guess there could be some CCTV of the distract-and-drug, there are countless cameras along the Carrer Diana.
 - My guess is there is clandestine film of *all of this* from my friends in law enforcement.
+- And I'm pretty certain they've all dropped each other in it already anyway; thanks Ugly love <3
 
 ### Clues on X about this night
 
