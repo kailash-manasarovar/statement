@@ -867,16 +867,18 @@ function googleTranslateElementInit() {
 - Did they wait outside the door while the sedating gas came through the vent again and sedated me once more?
 - My understanding of this is that, after 9 hours of being sedated repeatedly, I was probably quite close to brain seizure or stroke, and that is why I was smelling toast.
 
-### Another distraction event with a boy with fetal-alcohol-syndrome
+### Another distract-and-drug event with a boy with fetal-alcohol-syndrome who everyone knows
 
-- This happened before.
-- Probably around September 2023 after the *switcheroo* season at the conservatory had ended and I didn't leave, and then the whole town really got involved.
-- I was walking out of the tunnel and at the entrace there was a group of gypsies.
-- A little boy was riding a toy tricycle and came up beside me on the right so I looked down.
+- This happened before, I realized.
+- Probably in July 2023 after the *switcheroo* season at the conservatory had ended and I didn't leave my studies, and then the whole town really got involved.
+- I was walking out of the tunnel, on my way back home after practicing the piano at the conservatory.
+- At the entrace there was a group of gypsies.
+- A little boy was riding a toy tricycle which made a lot of noise.
+- He came up beside me on the right so I looked down.
 - I don't remember much after that but I do remember the boy.
 - He was small but probably a teenager pretending to be younger.
-- He looked like he had suffered from fetal-alcohol-syndrome quite badly.
-- I'm guessing while I was looking down at him and smiling, someone was applying something to some bare skin on my left side.
+- He looked like he suffered from fetal-alcohol-syndrome quite badly.
+- I'm guessing while I was looking down at him and smiling, someone was applying something to some bare skin on my left side, and I guess I was walked home and raped live on spy-cam that afternoon.
 
 ## Fake account posts about "peeping at pre-schoolers"
 
