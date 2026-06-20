@@ -48,7 +48,7 @@ function googleTranslateElementInit() {
 - In the queue I have been preparing what I want to ask for, the sentence is ready, but when I go to whisper my waffly request into Nandi's ear, something takes over.
 - My whispered wish becomes a bold statement: *Bring him to me!*.
 - And, at *exactly* the same time, matching every word of mine, I hear a booming voice coming from inside the temple saying, "Bring him to Me!".
-- I have no non-God explanation for this - apart from the mandrake that I must have been ingesting unawares from my toiletries, and that's also a God-explanation depending on who you talk to.
+- I have no non-God explanation for this - apart from the mandrake or ketamine that I must have been ingesting unawares from my toiletries.
 - I think I went and followed the Instruction to the letter, didn't I.
 - Fabulous.
 
@@ -61,8 +61,9 @@ function googleTranslateElementInit() {
 - She asks me these questions over and over.
 - I think it bizarre, and I'm perplexed that a random man in my life is way more interesting to her than the hell I'm enduring at home in Dénia.
 - Was she sent to gather urgent intel on Yan and report back?
-- Was it because I have a friend who the criminal gangs were previously unaware of?
+- Or was it just because I have a friend who the criminal gangs were previously unaware of?
 - Did they do a bit of research on him and find something out something that caused them anxiety?
+- Were they worried about us being CIA intuitives?
 - Of course, the most worrying thing for a brave and bold criminal gang terrorizing a single woman living alone is if she is not, after all, alone. 
 - Little did they know... although I did keep telling them.
 - The inherent cowardice is off the scale.
@@ -677,6 +678,7 @@ function googleTranslateElementInit() {
 ![let that sink in](../../content/images/let-that-sink-in.jpg)
 
 - The message, I felt, was a kind of middle finger to me after having to leave my piano studies.
+- But in fact it was a reference to Elon, letting him in, at the [Polygon Bali work-conference cum sedating-and-rape fest](may.md#bali).
 
 ### Owns conservatory
 
@@ -787,7 +789,7 @@ function googleTranslateElementInit() {
 - I nearly stop and turn to look, but I don't, I keep going towards the tunnel.
 - Just inside the tunnel, set up on the left side, is a guitarist busker. I leave him a euro.
 - I don't remember getting home.
-- The guitarist is someone I've never seen before but he has been invited to Bali by Polygon and I will recognize him as one of [Spanish engineers in Bali](may.md#bali) and be confused about seeing him until June 2026 when his presence in Bali suddenly makes perfect sense.
+- The guitarist is someone I've never seen before but he has been invited to Bali by Polygon and I will recognize him as one of [the Spanish engineers in Bali](may.md#bali) and be pretty confused about seeing him there until June 2026 when his presence in Bali suddenly makes perfect sense.
 
 ### Prepped for sedated orgasms at the Polygon conference in Bali
 
