@@ -831,13 +831,16 @@ function googleTranslateElementInit() {
 
 ### After this night of rape-induced orgasm
 
-- From now until I leave for Madrid, I'm higher than usual at home.
-- The online stalking ramps up to make sure I'm psychologically bound into being raped while sedated and sometimes, maybe, orgasming too.
-- I find myself playing along more with the online stalking such as with the [Beams account](may.md#beams), and with fake accounts on [Telegram](may.md#telegramsignal) which I genuinely believe to be the trumpet teacher the trick is so effective.
+- From now until I leave for Madrid in a week's time, I'm higher than usual at home.
+- The online stalking ramps up to make sure I'm psychologically bound into being regularly raped while sedated and sometimes orgasming too.
+- I find myself playing along more with the online stalking such as with the [Beams account](may.md#beams), and with fake accounts on [Telegram](may.md#telegramsignal) which I genuinely believe to be the trumpet teacher.
+- The trick of experiencing enormous physical feelings with zero conscious memory is so effective at distracting me with online stalking activity and making me believe lies.
 - I believe the gypsies were instructed to drug me and organize a full night of sedating-rape-to-orgasm as preparation for the [Bali trip](may.md#bali) where numerous high-paying tech-bro porn-addicts lay in wait alongside my male colleages.
 - I guess there could be some CCTV of the distract-and-drug, there are countless cameras along the Carrer Diana.
 - My guess is there is clandestine film of *all of this* from my friends in law enforcement.
 - And I'm pretty certain they've all dropped each other in it already anyway; thanks Ugly love <3
+- I guess I'm proving the existence of the hypno-tech, and *everything* it can do, all by meself.
+- June 2026 post-Kailash commentary: So right now, I'm not sure Who's tricked Who, but I'm guessing - with good reason - that God is the winner.
 
 ### Clues on X about this night
 
