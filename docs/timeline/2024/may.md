@@ -22,6 +22,8 @@ function googleTranslateElementInit() {
 - [I had just been porn-prepped after being drugged by the gypsies](april.md#drugged-in-the-street-by-denia-gypsies) on my way home from dinner, and I remember this whole period and on into June and beyond as being a time when I was *constantly* high.
 - Everyone involved - thousands of porn-addicts around the world including very famous people - are certain that no-one is going to help me, that I will never survive the mass assault.
 - Consequently, [Hazel Smith](../2001-to-2010/2007.md#hazel-smith) doesn't even bother trying to hide anymore.
+- My view on this in June 2026 is she was instructed to ramp up the stalking to fever-pitched levels in order to distract me from the true criminal intentions which was the [preparatory sedating-raping-and-orgasm sessions](april.md#the-golden-fleece-of-the-rapist-sex-offender-and-rape-porn-addict-the-victims-orgasm) prior to the [Polygon Bali conference](#bali), and she and many others just like her had no choice, apparently, but to obey the mass rapists in their targeting of unusually lucrative victims.
+- Am I right? Of course I am.
 
 ## Hazel Smith pretends to be Esteve online
 
