@@ -84,9 +84,9 @@ function googleTranslateElementInit() {
 - I wait some time for a process document which the company doesn't seem to have.
 - While this is going on, the HR team has a company-wide meeting in which they mention my experience as a *female-tech-colleague-you-despise* in an underhand way.
 - James Dawes (ex-colleague of [Hans Bodani](../2023/november.md#polygon) at Mantle) leads the meeting and alludes to something exciting coming up.
-- He starts to mention the word [Fetch](../2011-to-2020/interim.md#fetchai) over and over for no particular reason.
+- He starts to mention the word [Fetch](../2011-to-2020/2019.md#fetchai) over and over for no particular reason.
 - "Remember", Alyssa says laughing later on, "Remember the word Fetch!".
-- Fetch is a direct reference to the company in Cambridge UK, Fetch.AI, [where a man flashed his crotch at me in an online meeting](../2011-to-2020/interim.md#fetchai) a week after I started.
+- Fetch is a direct reference to the company in Cambridge UK, Fetch.AI, [where a man flashed his crotch at me in an online meeting](../2011-to-2020/2019.md#fetchai) a week after I started.
 - When I meet Alyssa again, I tell her about my experience at Fetch without mentioning the company name.
 - At our next team meeting, Gabriel Silva makes sure to mention we *must* all watch this meeting if we haven't already, especially me.
 - Polygon then hires a [man who targeted me at zkSync](../2023/june.md#work-stress) in April 2023 while the [switcheroo porn at the conservatory](../../crimes/protagonists/vidal-sastre.md#six-distinct-men) was in full swing, Coogan.

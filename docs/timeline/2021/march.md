@@ -54,7 +54,7 @@ function googleTranslateElementInit() {
 - Anyway, Qredo was a scam company.
 - They had a backend system which was supposed to run millions of crypto transactions safely and securely, but in truth it was eight [Raspberry Pis](https://www.raspberrypi.com/), that kept failing, networked together with string, knots, and bandages.
 - (Raspberry Pis are how schoolkids learn about computing.)
-- I'm scratching my chin now, just like [Harsha did in 2018](../2011-to-2020/interim.md#hired-for-sport-again) at Adaptive.
+- I'm scratching my chin now, just like [Harsha did in 2018](../2011-to-2020/2018.md#hired-for-sport-again) at Adaptive.
 - I'm tasked with writing their Whitepaper.
 - I produce a detailed and honest description of everything they have, without ever once saying *it's never gonna work*, which it won't and doesn't.
 - They quietly hire another writer I never meet, who works with the CTO (*he's the man*, Anita told me, in a kind of breathless reverence), who had been out of the company for a short period while he was in rehab - I was told. 
@@ -82,7 +82,7 @@ function googleTranslateElementInit() {
 ### Anita tells me about her experience as a female-tech-colleague-you-hate
 
 - During one of our early chats before our relationship breaks down (monitored online and manipulated no doubt), Anita describes a time she was working for another crypto tech-firm in the City of London, pre-covid.
-- She details word-for-word the sort of thing I have experienced continually in my contract tech roles, and her story very much reminds me of [my time at Adaptive](../2011-to-2020/interim.md#hired-for-sport-again) and [working for Mike Wenham](../2001-to-2010/2010.md#mike-wenham).
+- She details word-for-word the sort of thing I have experienced continually in my contract tech roles, and her story very much reminds me of [my time at Adaptive](../2011-to-2020/2018.md#hired-for-sport-again) and [working for Mike Wenham](../2001-to-2010/2010.md#mike-wenham).
 - I wondered if men had gone so totally mad that they only hire us for sport these days.
 - But we've had good experiences at work too, so it doesn't make any real sense to generalize like this.
 - Today, I wonder if Anita had also starred in a series of the *female-tech-colleague-you-despise* porn genre.
