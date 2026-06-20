@@ -822,8 +822,8 @@ function googleTranslateElementInit() {
 - We are stupid enough to pretend it's not happening though.
 - Oh yeah, not to forget that doing this to a person is an act of murder.
 - No-one expects a person going through these levels of continued sexual assaults and rapes to ever recover and live a normal life.
-- No no, this is a murder attempt by millions of men.
-- My guess is eventually a massively lucrative snuff film was intended... probably that's what they usually end up doing, something the boys would be more than happy to pay for... perhaps requesting some kids or babies to star alongside me... or a horse maybe... they do love the animal porn the most.
+- No no, this is a murder attempt by millions of men including family members.
+- My guess is, eventually, a massively lucrative snuff film was intended... probably that's what they usually end up doing, something the boys would be more than happy to pay for... perhaps requesting some kids or babies to star alongside me... or a horse maybe... they do love the animal porn the most.
 - It makes them snicker the loudest, before looking for another rape victim to obsess over..
 - Perhaps the gypsies had another one all ready to go.
 - Maybe [the beautiful British 14-year-old girl](february.md#the-britishrussian-girl-at-the-conservatory) I kept trying to warn law enforcment about; the pedo porn scam which the conservatory teachers were so annoyed I was delaying so much... they must have been promised heaps of money for her.
@@ -862,8 +862,10 @@ function googleTranslateElementInit() {
 
 [![Smelling toast](../../content/tweets/april-2024/smelling-toast.jpg)](https://x.com/1FRGVN/status/1784719295261384849)
 
-- My view is that the kept me sedated for so long that night, about 9 hours in total, they must have had to readminister the herbs again and again.
-- My understanding of this is I was probably quite close to seizure or stroke by then, and that is why I was smelling toast.
+- My view is that they kept me sedated for so long that night, about 9 hours in total, they must have had to readminister the herbs again and again.
+- Is that why the night is interspersed with tweets?
+- Did they wait outside the door while the sedating gas came through the vent again and sedated me once more?
+- My understanding of this is that, after 9 hours of being sedated repeatedly, I was probably quite close to brain seizure or stroke, and that is why I was smelling toast.
 
 ### Another distraction event with a boy with fetal-alcohol-syndrome
 
