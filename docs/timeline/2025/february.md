@@ -44,7 +44,7 @@ function googleTranslateElementInit() {
 - I suspect a poisoning/drugging system, or a compartment for drugs, and I am seriously concerned I'm gonna be arrested for drug trafficking on the way back to London.
 - Paul, curiously, spends huge amounts of energy in talking me down from my fears about this, and indeed everything criminal I have suspicions about with regards to the car and my apartment and my belongings and my personal safety, in fact.
 - He often just changes the subject when I'm describing these things.
-- I won't know till October that Paul is aware of everything that's been happening to me since 1989 at the hands of thousands of men who thought they'd get away with raping sedated women, or enjoying the films of it on the criminal and not-so criminal porn networks, isn't it.
+- I won't know till October that Paul is aware of everything that's been happening to me since 1989 at the hands of thousands of men who thought they'd get away with raping sedated women, children, and babies, or enjoying the films of it on the criminal and not-so criminal porn networks, isn't it.
 
 ### I think Toby lives in his car, Trish tells me
 
@@ -68,28 +68,32 @@ function googleTranslateElementInit() {
 
 ## El Pais
 
-- wip
-- One evening, I get back to my hotel quite late.
+- One evening while I'm staying in San Blas, I get back to my hotel quite late.
 - It's dark.
-- I think I probably met Inma for dinner that night but I can't remember.
-- I take a different route from the Metro down the road the El Pais offices are on.
+- I think I probably met Inma for dinner that night but I can't remember as I'm perma-high from spiking, and they did such a good job of drugging and poisoning me I'm pretty sketchy about the whole of 2025 until November.
+- I take a different route from the Metro and follow the road that the El Pais offices are on.
 - There's a giant picture of Batman on the wall of the El Pais offices.
 
 ![El Pais](../../content/images/el-pais.avif)
 
-- They're trying to tell me online that it was only spiderman that they dressed up as before coming round to my house after I had gone to bed and been sedated while sleeping.
-- Nonsense.
-- A whole community of porn-addicts knew very well about *Batman and little girl*, an early meme from the very famous switcheroo days.
-- Even Maria Hontanilla would mention *Batman and little girl* at piano classes.
-- I do a double take when I see this and I decide to go into the offices the following day to talk to a reporter.
-- I go in and explain I have a major story and ask to speak to a reporter.
+- In 2026, as I draft this section, the criminals try to tell me online that it was only spiderman that they dressed up as before coming round to my house after I had gone to bed and been sedated while sleeping.
+- And I say nonsense.
+- A whole community of porn-addicts knows very well about *Batman and little girl*, an early meme from the very famous [switcheroo days](../../crimes/protagonists/vidal-sastre.md#a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair) where Batman was one of the taller more muscular men, a genuinely good looking man, but a total twat in his behavior.
+- Was he the dummy good looking one who was a bit thick they always rely on for the film star element of the love affair trick?
+- I have this one down in [second place](../../crimes/protagonists/vidal-sastre.md#at-least-four-more) next to [the first man](../../crimes/protagonists/vidal-sastre.md#an-older-man-maybe) who does seem like he could be some sort of relation.
+- Even Maria Hontanilla would mention *Batman and little girl* at piano classes while the switcheroo porn was being filmed live at the conservatory.
+- I do a double take when I see the Batman mural on the El Pais office and I decide to go into the offices the following day to talk to a reporter.
+- I go in and I explain I have a major story and ask to speak to a reporter.
 - I speak to two reporters.
-- Firstly, a man who I explain a little about Denia, sexploitation, spy-cam porn, etc, and he gets me a woman to talk to.
-- I explain everything to her.
+- Firstly, a man who I explain a little about Dénia porn-gangs, sexploitation, corruption, murder, spy-cam porn, etc.
+- He gets me a woman to talk to me.
+- I explain everything to the good-looking young woman who comes out to talk to me with long curly brown hair.
 - She was sort of bored, looking out of the window, I was crying a little.
 - I never heard from her again although I emailed her a bunch of times.
 - Her name was... Lola.
-- I sent her, and another woman reporter at El Pais, copies of all the letters I sent to the UK embassy I detail in the next section.
+- No joke.
+- Remember: the porn-gangs know exactly where I am and what I am doing at any moment. They have probably got the man to talk to me, and got him to bring a donut out, or a woman who has been told I'm an idiot.
+- I sent Lola, and another woman reporter at El Pais - possibly Isabel Valdes - copies of all the letters I sent to the British consulate offices in Madrid that I detail in the next section.
 
 ## Visiting the British embassy in Madrid on 7th February
 
