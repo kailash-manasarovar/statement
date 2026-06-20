@@ -794,35 +794,39 @@ function googleTranslateElementInit() {
 ### Prepped for sedated orgasms at the Polygon conference in Bali
 
 - This man the busker, and others, walk me home sedated.
-- I am animal-trained all night by them to have multiple orgasms while sedated (no higher mind function, no ability to say yes or no to what's happening to me, rape).
-- They will have been filming, of course, so there's evidence in my famous-sedated-rape-porn-star collectors items.
+- I am animal-trained all night by them to have multiple orgasms while sedated (no higher mind function, no ability to consent to what's happening to me, rape).
+- They will have been filming, of course, so there's much evidence in the millions of famous-sedated-rape-porn-star collector's items scattered over the world.
 - When I wake up the following morning my whole body is vibrating with having had multiple orgasms throughout the night, I'm still extremely high on some kind of aphrodisiac and hallucinogen, and I'm utterly confused about how I feel.
 - In absence of any other conscious memory at the time, I believe I'm in love.
-- I must be familiar with a least one of the men that came back to my house that night - trumpet teacher number one maybe - for the trick to have worked so effectively.
-- This other man - the gypsy busker who ends up in Bali working for Polygon as their own specialist sedating-and-drugging expert, the man who is able to bring the sedated woman to orgasm for the boys while raping her - must have been intensely *introduced* to me that night in my apartment so that my body would remember him very well in just a couple of week's time.
-- It's likely he came round again, to keep me prepped before I left for Madrid, and it is also likely he came to my hotel room in Madrid with [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) - and [the man who popped up at EthCC](july.md#meeting-a-weird-guy) - who were both definitely in my hotel room in Madrid while I was sedated.
+- I must be familiar with a least one of the men that came back to my house that night - [trumpet teacher number one](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) maybe - for the trick to have worked so effectively.
+- This other man - the gypsy busker in the tunnel who ends up in Bali working for Polygon as their own specialist sedating-drugging-and-raping offsite expert, the man who is able to bring the sedated woman to orgasm for the boys while raping her - must have been intensely *introduced* to me that night in my apartment so that my body would remember him very well in just a couple of week's time.
+- It's likely he came round again, to keep me prepped before I left for Madrid, and it is also likely he entered my hotel room in Madrid with [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) - and [the man who popped up at EthCC](july.md#meeting-a-weird-guy) - both of whom were definitely in my hotel room in Madrid while I was sedated.
 
-#### The golden fleece of the rapist and sex offender - orgasm
+#### The Golden Fleece of the rapist, sex offender, and rape-porn-addict - the victim's orgasm
 
 - This must be why I'm so famous.
-- Back in 1989, Winston May made me orgasm with his series of emotional rollercoasters of fear, violence, agression, kindness, violence, aggression, threats to my life, kindness.
-- My guess is he [learned these animal-training techniques in Las Marinas from the gypsies](../../crimes/protagonists/winston-may-and-nicky.md#a-trip-to-spain) while finding out easy it is to sedated women and children and bulk buying some herbs - or did he get them on tick, paid for once he delivered the pedo rape-porn he'd signed up to make?
-- Whenever he brought a bit of kindness into the mix, my body would relax out of fear and nervous tension, he would give me some very powerful aphrodisiac drugs and rape me, and I would orgasm.
+- Back in 1989, Winston May made me orgasm with his series of emotional rollercoasters of fear, violence, agression, kindness, violence, fear, aggression, threats to my life, kindness.
+- My guess is he [learned these animal-training techniques in Las Marinas from the gypsies](../../crimes/protagonists/winston-may-and-nicky.md#a-trip-to-spain) while finding out how easy it is to sedate-and-rape women and children, and while bulk buying some herbs - or did he get them on tick, paid for once he delivered the pedo rape-porn he'd signed up to produce for Adams?
+- Whenever he brought a bit of kindness into the mix, my child's body would relax out of fear and nervous tension, and he would give me some very powerful aphrodisiac drugs on top of those he'd already spiked me with, and rape me, and I would orgasm.
 - Loudly.
-- This must be why I'm sooooooooo famous in porn; the golden fleece of the rapist, getting the rape-victim to orgasm.
-- They don't realize it's animal training techniques perfected by gitano gangs over many centuries, and requires drugging and sedating a victim.
-- They don't care about the truth of it.
-- They must think it makes them the best men, the most marvelous men on the planet!
+- I'm a very sensitive person, intuitive even, the very best sort of person for international law-enforcing detective roles, ahem.
+- This must be why I'm sooooooooo famous in porn; the Golden Fleece of the rapist, getting the rape-victim to orgasm.
+- Shame on them all!
+- They don't realize it's animal-training techniques perfected by gitano gangs over many centuries, and requires drugging and sedating a victim.
+- Actually, they know and they don't care.
+- Instead, they believe a whopping great lie that all this makes them the best sort of men, the most marvelous men on the planet!
 - I guess that's why Elon and co paid millions to rape me in Bali, isn't it, and why the gypsies could hardly refuse such a massively lucrative scam.
-- But, everyone knows, don't they, and there'll be films of it on millions of people's phones, including law enforcement, won't there.
-- Idiots.
-- Oh yeah, not to forget that doing this to a woman is an act of murder.
-- No-one expects a person going through these levels of continued sexual assaults and rapes to ever recover and have a normal life.
+- They won't be the first bunch of idiots who very much regret trusting the gypsies now will they.
+- There'll be films of it on millions of people's phones, including law enforcement, won't there.
+- Although women are still mostly in the dark about all this - try as they might to make us out to be as evil as them in every way, we simply aren't.
+- We are stupid enough to pretend it's not happening though.
+- Oh yeah, not to forget that doing this to a person is an act of murder.
+- No-one expects a person going through these levels of continued sexual assaults and rapes to ever recover and live a normal life.
 - No no, this is a murder attempt by millions of men.
 - My guess is eventually a massively lucrative snuff film was intended... probably that's what they usually end up doing, something the boys would be more than happy to pay for... perhaps requesting some kids or babies to star alongside me... or a horse maybe... they do love the animal porn the most.
 - It makes them snicker the loudest, before looking for another rape victim to obsess over..
 - Perhaps the gypsies had another one all ready to go.
-- Maybe [the British 14-year old](february.md#the-britishrussian-girl-at-the-conservatory) I kept trying to warn law enforcment about; the pedo porn scam which the conservatory teachers were so annoyed I was delaying so much... they must have been promised heaps of money for her.
+- Maybe [the beautiful British 14-year-old girl](february.md#the-britishrussian-girl-at-the-conservatory) I kept trying to warn law enforcment about; the pedo porn scam which the conservatory teachers were so annoyed I was delaying so much... they must have been promised heaps of money for her.
 
 ### After this night of sexual assaults/mass rape to orgasm
 
