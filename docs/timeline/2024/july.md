@@ -194,6 +194,7 @@ function googleTranslateElementInit() {
 - I wonder how many were sent from Dénia.
 - How does everyone go on knowing that women and children have been totally sacrificed to porn?
 - Or does it have to effect you personally before you care, and until then you just go on pretending, not looking?
+- How does it feel to be included in the generation of men who became so perverted they destroyed the world for everyone?
 
 ## Evidence of mass cyber-stalking technology, or something more sinister
 
