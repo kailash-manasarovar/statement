@@ -147,7 +147,7 @@ function googleTranslateElementInit() {
 
 ## I was right about Elon's spy, wasn't I
 
-- Bali wip.
+- Bali ugly - wip.
 - Well, I guess the gypsies care not at all about it - apart from the multitude of squirrels - but I'm sure Elon does now, doesn't he.
 - Wouldn't it be crrazzzyyyy if the old *we tell no-one about what we do to women and children and babies* promise backfired into the millennia to come..
 - I'll pray for that, then hasten home.
