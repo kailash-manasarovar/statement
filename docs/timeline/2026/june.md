@@ -151,3 +151,11 @@ function googleTranslateElementInit() {
 - Well, I guess the gypsies care not at all about it - apart from the multitude of squirrels - but I'm sure Elon does now, doesn't he.
 - Wouldn't it be crrazzzyyyy if the old *we tell no-one about what we do to women and children and babies* promise backfired into the millennia to come..
 - I'll pray for that, then hasten home.
+
+## Hastening home - lesson 226
+
+- *But if I see no value in the world as I behold it, nothing that I want to keep as mine or search for as a goal, it will depart from me.*
+- Justice for innocents is a worldly goal, isn't it?
+- The sort of goal you can't just take off and put on, like an old coat.
+- I wish I could. 
+- I'd be out of here like a shot.
