@@ -192,6 +192,8 @@ function googleTranslateElementInit() {
 - Do governments give out lists these days to the porn gangs of women and children they will never help?
 - What's his face used to just get sent the women and kids, didn't he.
 - I wonder how many were sent from Dénia.
+- How does everyone go on knowing that women and children have been totally sacrificed to porn?
+- Or does it have to effect you personally before you care, and until then you just go on pretending, not looking?
 
 ## Evidence of mass cyber-stalking technology, or something more sinister
 
