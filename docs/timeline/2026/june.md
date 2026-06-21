@@ -159,3 +159,4 @@ function googleTranslateElementInit() {
 - The sort of goal you can't just take off and put on, like an old coat.
 - I wish I could. 
 - I'd be out of here like a shot.
+- I mean truly, the speed of it would be unprecedented.
