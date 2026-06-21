@@ -188,6 +188,7 @@ function googleTranslateElementInit() {
 - He tells me his birthday is 1st April; I tweet about this.
 - He will tell me in 2025 it is another day in March.
 - Obsessed with women; yet terrified and full of bitter seething loathing towards us.
+- It must be a *huuuuuge* WhatsApp channel, dedicated to just me probably.
 
 ## Evidence of mass cyber-stalking technology, or something more sinister
 
