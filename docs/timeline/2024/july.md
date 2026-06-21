@@ -187,8 +187,11 @@ function googleTranslateElementInit() {
 - I'm about to travel back to Dénia where criminal gangs are planning on finishing me off, knowing no-one will care, and so they can do their worst, which they do, very brazenly and openly, and so I keep writing it all down, which they most certainly did not expect while they carried on digging their own pits.
 - He tells me his birthday is 1st April; I tweet about this.
 - He will tell me in 2025 it is another day in March.
-- Obsessed with women; yet terrified and full of bitter seething loathing towards us.
-- It must be a *huuuuuge* WhatsApp channel, dedicated to just me probably.
+- Utterly sexually obsessed with women and children and babies; yet terrified and full of bitter seething loathing towards us or they could not do/watch what they pay so much to do/watch.
+- It must be a *huuuuuge* WhatsApp channel, dedicated to just me and other porn-targets-no-one-will-help probably.
+- Do governments give out lists these days to the porn gangs of women and children they will never help?
+- What's his face used to just get sent the women and kids, didn't he.
+- I wonder how many were sent from Dénia.
 
 ## Evidence of mass cyber-stalking technology, or something more sinister
 
