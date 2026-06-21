@@ -172,3 +172,4 @@ function googleTranslateElementInit() {
 
 ![Ram Ram](../../content/images/ram-ram.png)
 
+<!-- I released a turtle into the sea this morning and the Vishnu connection was not lost on me, and I thought, you know what little feller, I heard 1 in 10000 of you make it, well, if I made it, and I did, you will too, see you in a hundred years, I said... -->
