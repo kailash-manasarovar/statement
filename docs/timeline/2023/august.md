@@ -510,7 +510,7 @@ function googleTranslateElementInit() {
 
 - The guide met me at the trekking shop in Cauterets and off we went.
 - We drove to Viscos village and parked at the ski lift and started our ascent.
-- This was a *massive* short cut, by the way.
+- This was a *massive* short cut, by the way, like half the day just chopped off; the guide cost EUR 250 for the day.
 - Something was making me feel extraordinarily sexually aroused that afternoon.
 - Would the guide and I be needing our strength, later on?
 - I had my mobile with me, on, and this was the first moment I suspected (or felt I had proof of) sub-audio hacking for emotional manipulation, using I suspect my own orgasm sounds plus trigger frequencies played back to me.
@@ -533,9 +533,10 @@ function googleTranslateElementInit() {
 [![Viscos peak in 2023](../../content/images/viscos-peak-2023.jpg)](https://x.com/1FRGVN/status/1695089346699755622)
 
 - It seemed we had a lot in common, but he never made a move.
+- He took an even more *massive* short cut back to the van. Was he rushing to get back for some reason?
 - I wasn't interested and would have declined, even though I was feeling extraordinarily sexually aroused, but I was very clear that it wasn't anything to do with this man.
 - When we got back from our walk, we chatted a bit in the van.
-- I told him I was planning to climb the Vignemale the following year, and I asked him if he could guide for that because I liked the man in a friendly way?
+- I told him I was planning to climb the Vignemale the following year, and I asked him if he could guide for that because I liked the man in a friendly way.
 - He seemed upset.
 - I didn't understand why.
 - He said he didn't have the license for high mountain guiding and that it takes a year to get it.
