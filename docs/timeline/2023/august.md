@@ -541,7 +541,7 @@ function googleTranslateElementInit() {
 - I didn't understand why.
 - He said he didn't have the license for high mountain guiding and that it takes a year to get it.
 - It seemed OK to me.
-- Was I "supposed" to think the intense sexual arousal I was feeling was to do with this man, and to invite him back to my hotel room - which had been already set up with spy-cams while the recruiter had been on the phone talking about nothing for over an hour - and end up in bed with him that afternoon?
+- Was I "supposed" to think the intense sexual arousal I was feeling was to do with this man, and to invite him back to my hotel room - which had been already [set up with spy-cams while the recruiter had been on the phone talking about nothing for over an hour](#the-recruiter-calls-me-while-im-visiting-the-bees) - and end up in bed with him that afternoon?
 - My view is this in another very well-oiled porn-machine; just like porn-network-live-stream classes at the conservatory with drugged students, and just like the Polygon work-conference in Bali with sedated female tech-workers.
 - Were millions of expectant criminal-porn viewers waiting to snicker en masse?
 - I didn't invite him back, and it had to come from me because I would clearly complain about him if it came from him.
