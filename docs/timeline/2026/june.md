@@ -161,3 +161,14 @@ function googleTranslateElementInit() {
 - I'd be out of here like a shot.
 - I mean truly, the speed of it would be unprecedented.
 - At this rate, I'll be here another thousand years.
+- If I feel as full of love as I do from time to time - is it after a good dinner? - more often the more I think about God and nothing else, I wouldn't mind so much.
+- When the overwhelming evil creeps in... I mean, how is one supposed to deal with such a nightmare without Him.
+- I don't believe it possible.
+- Thank you God, my Father, Jai Shri Ram.
+- Thank you brother Jesus for never leaving me.
+- Thank you Mary for everything You do for me.
+- Thank you God in all Your Marvelous forms.
+- Let the arrow fly.
+
+![Ram Ram](../../content/images/ram-ram.png)
+
