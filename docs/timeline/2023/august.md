@@ -521,6 +521,7 @@ function googleTranslateElementInit() {
 - When I had gone to the shop in the morning to meet him there was a curious energy between us, and the owner Vincent who was there, that I couldn't quite fathom.
 - Throughout the day, we chatted a lot and got on really well.
 - He told me personal things about his life; that he was divorced and shared the parenting of his teenage children with his ex-wife.
+- Did she leave him because of his porn-addiction?
 - We had a shared interest in crypto and he told me all about his crypto activities.
 - I told him I was studying the piano at the conservatory in Spain.
 - He went quiet at that point.
