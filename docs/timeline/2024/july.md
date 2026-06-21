@@ -185,6 +185,9 @@ function googleTranslateElementInit() {
 - I'm adding this section for investigators who may need to corroborate what I told Nicos while still under the effects of constant drugging and poisoning.
 - It will be a good gauge as to how much I knew at that time; just after running for office in the UK general election, and the political silencing there, and whilst attending EthCC with everything going on for me professionally with my colleagues who likely had porn-subscriptions to my apartment's live-stream.
 - I'm about to travel back to Dénia where criminal gangs are planning on finishing me off, knowing no-one will care, and so they can do their worst, which they do, very brazenly and openly, and so I keep writing it all down, which they most certainly did not expect while they carried on digging their own pits.
+- He tells me his birthday is 1st April; I tweet about this.
+- He will tell me in 2025 it is another day in March.
+- Obsessed with women; yet terrified and full of bitter seething loathing towards us.
 
 ## Evidence of mass cyber-stalking technology, or something more sinister
 
