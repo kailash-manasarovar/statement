@@ -541,20 +541,21 @@ function googleTranslateElementInit() {
 - I didn't understand why.
 - He said he didn't have the license for high mountain guiding and that it takes a year to get it.
 - It seemed OK to me.
-- Was I "supposed" to think the intense sexual arousal I was feeling was to do with this man, and to invite him back to my hotel room which was already set up with spy-cams, and end up in bed with him that afternoon?
+- Was I "supposed" to think the intense sexual arousal I was feeling was to do with this man, and to invite him back to my hotel room - which had been already set up with spy-cams while the recruiter had been on the phone talking about nothing for over an hour - and end up in bed with him that afternoon?
 - Were millions of expectant criminal-porn viewers waiting to snicker en masse?
 - I didn't invite him back and it had to come from me.
 - Is that why he was upset?
 - They must be so organized and advanced at their sedating-women-and-children spy-cam game, they sell subscriptions for live-action activity like this.
 - I did see [Rocio Vidal](../2024/september.md#rocio-vidal) in Cauterets the following year, after all.
 - I imagine Rocio was someone thousands of Spanish porn-addicts requested to see naked.
-- That's how it works, isn't it?
+- That's how it works, isn't it? They figure out how much money they'll make from the interest, and if it makes financial sense, they move in for the kill.
+- The Spanish government know that Rocio was hacked by these people. They don't care.
 - Anyway.
 - When I got back to my hotel after climbing the Viscos mountain (I knew there was something extraordinary about this mountain), I had to masturbate urgently!
 - I guess the spy-cam footage of that is flying round somewhere, of course.
 - A little later, I popped out to the shop and bumped into the agents staying in the room next to mine.
 - I didn’t know they were agents at the time, of course, but they looked at me in a very curious way I did not forget.
-- I know now that they were agents because I see agents near enough everywhere and anywhere I am in the world, and I have done since December 2024 when it became very obvious, and they always look at me like this!
+- I know now that they were agents because I see agents near enough everywhere and anywhere I am in the world, and I have done since December 2024 when it became very obvious, and they sometimes look at me like this when they want me to notice them!
 - My very own security team.
 - <3
 - In the summer of 2024, I climb the Viscos again with another guide from the same trekking shop.
@@ -563,7 +564,9 @@ function googleTranslateElementInit() {
 - The instability is a side effect of the sedating drugs; corroborated by one of the British expat walkers I believe was also being regularly sedated in her home.
 - I'm also interested in how [people said things over the years I was being drugged to make me think such a symptom was "normal"](../2022/july.md#wobbly-on-my-feet).
 - Anyway, the guide in 2024, Aurelio, said something about how the *Spanish are crazy*, which I thought was curiously relevant.
-- I believe that men share information about the women that are known to be being sedated and raped and regularly broadcast on porn networks; just not with the women suffering such abuse.
+- He seemed to be referring to something specific he'd heard about.
+- I believe that men share information about the women that are known to be being sedated and raped and regularly broadcast on porn networks; just not with the women suffering such abuse, or the police not that they care.
+- Although France did just send nearly 100 "normal" men to jail for sedating and raping a woman for over ten years, like it was a normal thing to do in a sleepy French village and they *unluckily* got caught.
 
 ### Sandra very interested in the guide
 
