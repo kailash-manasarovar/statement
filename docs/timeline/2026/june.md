@@ -160,3 +160,4 @@ function googleTranslateElementInit() {
 - I wish I could. 
 - I'd be out of here like a shot.
 - I mean truly, the speed of it would be unprecedented.
+- At this rate, I'll be here another thousand years.
