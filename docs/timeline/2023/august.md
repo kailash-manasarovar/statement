@@ -549,7 +549,7 @@ function googleTranslateElementInit() {
 - They must be so organized and advanced at their sedating-women-and-children spy-cam game, they sell subscriptions for live-action activity like this.
 - I did see [Rocio Vidal](../2024/september.md#rocio-vidal) in Cauterets the following year, after all.
 - I imagine Rocio was someone thousands of Spanish porn-addicts requested to see naked.
-- That's how it works, isn't it? They figure out how much money they'll make from the interest, and if it makes financial sense, they move in for the kill.
+- That's how it works, isn't it? They figure out how much money they'll make from the interest, and if it makes financial sense, they move in for the kill, very literally.
 - The Spanish government know that Rocio was hacked by these people. They don't care.
 - Anyway.
 - When I got back to my hotel after climbing the Viscos mountain (I knew there was something extraordinary about this mountain), I had to masturbate urgently!
