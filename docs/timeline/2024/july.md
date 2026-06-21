@@ -175,7 +175,7 @@ function googleTranslateElementInit() {
 - Nearly two years later, as more and more men do double-takes in the street when they see me - always grinning but in 2026 not quite so snickeringly - I find this extremely interesting.
 - Was it supposed to be upsetting?
 - Did Nicos have a criminal porn subscription to my porn-demise like millions of others?
-- Could men really hate women this much?
+- Could men really hate women, children, and babies this much?
 - I explain what's been going on, how I'm being cyber-stalked online and gang-stalked at home in Spain.
 - I tell him they took photos and videos of a sexual nature and terrorized me out of the conservatory in fear for my life.
 - It's only about 1% of what's really been happening to me, but I tell him everything I'm aware of.
@@ -186,11 +186,14 @@ function googleTranslateElementInit() {
 - It will be a good gauge as to how much I knew at that time; just after running for office in the UK general election, and the political silencing there, and whilst attending EthCC with everything going on for me professionally with my colleagues who likely had porn-subscriptions to my apartment's live-stream.
 - I'm about to travel back to Dénia where criminal gangs are planning on finishing me off, knowing no-one will care, and so they can do their worst, which they do, very brazenly and openly, and so I keep writing it all down, which they most certainly did not expect while they carried on digging their own pits.
 - He tells me his birthday is 1st April; I tweet about this.
-- He will tell me in 2025 it is another day in March.
+- The trumpet teacher hackers were saying that TT's birthday was 1st April around this time.
+- He will tell me in 2025 online that it is on another day in March and I'm surprised to hear it.
+- How does hatred get so out of control? Is it because it's unquestionable, because everyone around you believes the same lies, because of the boners on top?
 - Utterly sexually obsessed with women and children and babies; yet terrified and full of bitter seething loathing towards us or they could not do/watch what they pay so much to do/watch.
 - It must be a *huuuuuge* WhatsApp channel, dedicated to just me and other porn-targets-no-one-will-help probably.
-- Do governments give out lists these days to the porn gangs of women and children they will never help?
-- What's his face used to just get sent the women and kids, didn't he.
+- I guess Rocio Vidal was on there too; they're probably bored with her now. Is she well though?
+- Do non-Spanish governments give out lists these days to the porn gangs of women and children they will never help?
+- What's his face used to just get sent the women and kids no-one was gonna miss, didn't he.
 - I wonder how many were sent from Dénia.
 - How does everyone go on knowing that women and children have been totally sacrificed to porn?
 - Or does it have to effect you personally before you care, and until then you just go on pretending, not looking?
