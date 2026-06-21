@@ -550,7 +550,7 @@ function googleTranslateElementInit() {
 - They must be so organized and advanced at their sedating-women-and-children, and manipulated-and-fake-sexual-relationship spy-cam games, they sell subscriptions for live-action activity like this.
 - I did see [Rocio Vidal](../2024/september.md#rocio-vidal) in Cauterets the following year, after all.
 - I imagine Rocio was someone thousands of Spanish porn-addicts requested to see naked.
-- That's how it works, isn't it? They figure out how much money they'll make from the interest, and if it makes financial sense, they move in for the kill, very literally.
+- That's how it works, isn't it? They figure out how much money they'll make from the rabid interest, and if it makes financial sense they move in for the kill, very literally.
 - The Spanish government know that Rocio was hacked by these people. She'd obviously complained about hacking to the police before the gangs really moved in on her.
 - Spain doesn't care about the safety of its women and children and babies. Everyone knows this.
 - Anyway.
