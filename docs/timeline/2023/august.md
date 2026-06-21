@@ -517,7 +517,7 @@ function googleTranslateElementInit() {
 - I think the guide was feeling it too.
 - And, I think he was meant to!
 - Over the course of the day's hike, on occasions, the sexual arousal I was experiencing became ridiculously intense - mobile tower in sight maybe. And at these moments, the guide would step away from me, and keep his distance till it dropped off.
-- I noticed this because his behavior was in step with the visceral waves of sexual arousal I was feeling.
+- I noticed this because his behavior was in step with the visceral waves of sexual arousal I myself was feeling.
 - When I had gone to the shop in the morning to meet him there was a curious energy between us, and the owner Vincent who was there, that I couldn't quite fathom.
 - Throughout the day, we chatted a lot and got on really well.
 - He told me personal things about his life; that he was divorced and shared the parenting of his teenage children with his ex-wife.
