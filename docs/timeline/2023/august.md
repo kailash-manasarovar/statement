@@ -569,7 +569,8 @@ function googleTranslateElementInit() {
 - Anyway, the guide in 2024, Aurelio, said something about how the *Spanish are crazy*, which I thought was curiously relevant.
 - He seemed to be referring to something specific he'd heard about.
 - I believe that men share information about the women that are known to be being sedated and raped and regularly broadcast on porn networks; just not with the women suffering such abuse, or the police not that they care.
-- Although France did just send nearly 100 "normal" men to jail for sedating and raping a woman for over ten years, like it was a normal thing to do in a sleepy French village and they *unluckily* got caught.
+- Although France did just send nearly 100 "normal" men to jail for sedating and raping a woman for over ten years, and every man in the world that heard about it was like, oh it's a normal thing to do in a sleepy French village and they just *unluckily* got caught!
+- ...while we women were shaking and crying with rage en masse...
 
 ### Sandra very interested in the guide
 
