@@ -144,3 +144,10 @@ function googleTranslateElementInit() {
 - I guess I'm exactly where God needs me... it's always curious to me how that happens.
 - Who thinks I'm here because some awful memory is about to return?
 - Is anyone gonna do anything now? Or is this what women and girls and boys and babies can expect until Mother Nature whoops our arses?
+
+## I was right about Elon's spy, wasn't I
+
+- Bali wip.
+- Well, I guess the gypsies care not at all about it - apart from the multitude of squirrels - but I'm sure Elon does now, doesn't he.
+- Wouldn't it be crrazzzyyyy if the old *we tell no-one about what we do to women and children and babies* promise backfired into the millennia to come..
+- I'll pray for that, then hasten home.
