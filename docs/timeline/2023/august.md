@@ -541,13 +541,13 @@ function googleTranslateElementInit() {
 - He seemed upset.
 - I didn't understand why.
 - He said he didn't have the license for high mountain guiding and that it takes a year to get it.
-- It seemed OK to me.
+- It seemed OK to me, it wasn't such a big deal was it?
 - Was I "supposed" to think the intense sexual arousal I was feeling was to do with this man, and to invite him back to my hotel room - which had been already [set up with spy-cams while the recruiter had been on the phone talking about nothing for over an hour](#the-recruiter-calls-me-while-im-visiting-the-bees) - and end up in bed with him that afternoon?
-- My view is this in another very well-oiled porn-machine; just like porn-network-live-stream classes at the conservatory with drugged students, and just like the Polygon work-conference in Bali with sedated female tech-workers.
+- My view is I stepped into yet another very well-oiled porn-machine; just like porn-network-live-stream classes at the conservatory with drugged students, and just like the Polygon work-conference in Bali with sedated female tech-workers.
 - Were millions of expectant criminal-porn viewers waiting to snicker en masse?
-- I didn't invite him back, and it had to come from me because I would clearly complain about him if it came from him.
+- I didn't invite him back, and it had to come from me because I would clearly complain about him if he made a move, had sex with me, and then ghosted me as per criminal-porn-safety-instructions.
 - Is that why he was upset?
-- They must be so organized and advanced at their sedating-women-and-children spy-cam game, they sell subscriptions for live-action activity like this.
+- They must be so organized and advanced at their sedating-women-and-children, and manipulated-and-fake-sexual-relationship spy-cam games, they sell subscriptions for live-action activity like this.
 - I did see [Rocio Vidal](../2024/september.md#rocio-vidal) in Cauterets the following year, after all.
 - I imagine Rocio was someone thousands of Spanish porn-addicts requested to see naked.
 - That's how it works, isn't it? They figure out how much money they'll make from the interest, and if it makes financial sense, they move in for the kill, very literally.
