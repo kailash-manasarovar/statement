@@ -510,15 +510,15 @@ function googleTranslateElementInit() {
 
 - The guide met me at the trekking shop in Cauterets and off we went.
 - We drove to Viscos village and parked at the ski lift and started our ascent.
-- This was a *massive* short cut, by the way, like half the day just chopped off; the guide cost EUR 250 for the day.
+- This was a *massive* short cut, by the way, like half the day's hike just chopped off; the guide cost EUR 250 for the day.
 - Something was making me feel extraordinarily sexually aroused that afternoon.
 - Would the guide and I be needing our strength, later on?
 - I had my mobile with me, on, and this was the first moment I suspected (or felt I had proof of) sub-audio hacking for emotional manipulation, using I suspect my own orgasm sounds plus trigger frequencies played back to me.
 - I think the guide was feeling it too.
 - And, I think he was meant to!
 - Over the course of the day's hike, on occasions, the sexual arousal I was experiencing became ridiculously intense - mobile tower in sight maybe. And at these moments, the guide would step away from me, and keep his distance till it dropped off.
-- I noticed this because his behavior was in pattern with the visceral waves of sexual arousal I was feeling.
-- When I had gone to the shop in the morning to meet him there was a curious energy between us I couldn't quite fathom.
+- I noticed this because his behavior was in step with the visceral waves of sexual arousal I was feeling.
+- When I had gone to the shop in the morning to meet him there was a curious energy between us, and the owner Vincent who was there, that I couldn't quite fathom.
 - Throughout the day, we chatted a lot and got on really well.
 - He told me personal things about his life; that he was divorced and shared the parenting of his teenage children with his ex-wife.
 - We had a shared interest in crypto and he told me all about his crypto activities.
@@ -542,8 +542,9 @@ function googleTranslateElementInit() {
 - He said he didn't have the license for high mountain guiding and that it takes a year to get it.
 - It seemed OK to me.
 - Was I "supposed" to think the intense sexual arousal I was feeling was to do with this man, and to invite him back to my hotel room - which had been already set up with spy-cams while the recruiter had been on the phone talking about nothing for over an hour - and end up in bed with him that afternoon?
+- My view is this in another very well-oiled porn-machine; just like porn-network-live-stream classes at the conservatory with drugged students, and just like the Polygon work-conference in Bali with sedated female tech-workers.
 - Were millions of expectant criminal-porn viewers waiting to snicker en masse?
-- I didn't invite him back and it had to come from me.
+- I didn't invite him back, and it had to come from me because I would clearly complain about him if it came from him.
 - Is that why he was upset?
 - They must be so organized and advanced at their sedating-women-and-children spy-cam game, they sell subscriptions for live-action activity like this.
 - I did see [Rocio Vidal](../2024/september.md#rocio-vidal) in Cauterets the following year, after all.
