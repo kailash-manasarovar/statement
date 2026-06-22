@@ -378,6 +378,8 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 ### London
 
+#### Paul is furious with me
+
 - We arrive back in London.
 - I'm driving Paul back to his car where he lives.
 - It's late and we're both tired.
@@ -392,8 +394,18 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I leave Paul at his car and thank him for saving my life.
 - "You saved my life Paul", I say and I'm very grateful.
 - I drive home alone.
-- At some point a car pulls in front of me and I end up following it all the way from Muswell Hill to Church Lane N2.
-- It's number plate is XXXX WTF. (The Xs are numbers I can't remember.)
+- The next day or a few days later I noticed someone has glued my car.
+- Was it Paul? Was he *that* angry with me? 
+- Do they always get so furious with sedated rape-porn victims whenever we exhibit normal human behavior?
+
+#### WTF
+
+- At some point, a car pulls in front of me and drives in step with me.
+- I think it has pulled out of Summerlea Avenue or Durham Road maybe.
+- I notice the woman driver a little.
+- I end up following it all the way along Fortis Green then East End Road to Church Lane N2 where I pull off to the right.
+- The car's number plate is XXXX WTF. (The Xs are numbers I can't remember.)
+- The woman driver looks a bit like [Hala](../2023/july.md#hala), but much more like [the woman I will see in the waiting room at the doctors surgery](september.md#rutland-house-surgery-muswell-hill) when I go in to report all the poisoning symptoms over many years I have listed for them, and they're all hopping around, making sure the network's down etc....
 
 #### Paul and my brother
 
