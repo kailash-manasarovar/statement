@@ -172,7 +172,11 @@ function googleTranslateElementInit() {
 - And then, of course, they can blackmail the tech CEOs (stupid boys).
 - The manipulation tech has a trillion uses (some good if we could get our hands on it, the rest useless and eventually, sometimes very quickly, world-destroying) and selling it to the Islamicist oil-barons for billions was gonna be their obvious next step.
 - I wonder if Zoe's dad really died? Or if he's relaxing on an island he bought in the Caribbean somewhere?
-- Who else? They've targeted old, young, toddler, baby, pensioner, woman, gay men, anyone deemed vulnerable, or famous, or very very rich, or just a little bit rich, or family and friends of the rich and famous, all filmed for sexploitation and blackmail and doing-what-theyre-told for all eternity.
+- Or maybe he's gone into hiding... what with Zoe's cousins being beheaded and all, something she likes to tell everyone about... perhaps the Islamicists didn't get what they paid for - the way it always goes when you do business with the gypsies.
+- Perhaps the fact that the only people who really support the Islamicists fully are the blue-hairs, the perverts, those that'll believe anything you tell em, including it's good to sterilizing your children, yes, those people the Islamicists would throw out the top-floor window seem to be the only ones that support them.
+- Perhaps they're pissed.
+- You never know what might happen when your product is lies; you can be certain of this, and you can be certain the outcome won't be good for the liars either.
+- Who else? They've targeted old, young, toddler, baby, pensioner, woman, gay men, anyone deemed vulnerable, or famous, or very very rich, or just a little bit rich, or family and friends of the rich and famous or a little bit rich and famous, all filmed for sexploitation and blackmail and doing-what-theyre-told for all eternity.
 - They have thousands of men and women helping them: meeting people, gaining trust, hair and make up for the porn, setting up the spy-cam networks in schools, hotels, apartments; managing the manipulation tech across international hacked phones for specific targets, and fielding endlessly for new ones especially toddlers.
 - Porn gang operatives, male and female, *working directly with* targets online and offline to get them to *do stuff*.
 - A non-exhaustive list... of course.
