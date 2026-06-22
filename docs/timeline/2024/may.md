@@ -486,7 +486,17 @@ function googleTranslateElementInit() {
 
 - My hotel room is next to John Michael from IT support.
 - There is locked connecting door which I am unable to double lock from my side.
-- I reported my concerns about hacking to him in January.
+- I had reported my concerns about hacking to him in January.
+- He doesn't talk to me when I see him, just gives me a quick nod and if I try to engage him he scurries away saying he's working.
+
+#### Families, women, children, and babies on holiday
+
+- As well as thousands of tech-bros, their female assistants, and three female tech workers (one who sensibly brought her husband, one who had to leave her job right after Bali because *the worst thing in the world* happened, and me who ends up suffering multiple murder attempts right after they fire me just a few months later when I refuse to be bullied out)...
+- There are hundreds of families at the resort; husbands, wives, youngsters, young people, children, and babies.
+- It would just take one psychopathic rapist believing he owns the world to feel obliged and/or privileged enough to attack unsedated women and children not on the *safe-to-rape* list.
+- Is that what happened to [Alicia](#alicia) and why she left?
+- Do the tech-bros always pick resorts like this, full of relaxed children running around, for their *offsite events*?
+- Seems likely.
 
 ### Bullying at the conference
 
@@ -664,9 +674,23 @@ function googleTranslateElementInit() {
 - Some of the other chief's of staff are sitting close by and listening; Paul O'Leary is directly in front of me. Perhaps they're asleep.
 - Normally, I tell people and they are extremely disinterested... (I can hear their little heads saying *silly little girl*, or similar).
 - Other people I tell are very literally horrified; they gawk at me and walk off angrily. I kid you not.
-- I tell two guys from Fireblocks at dinner about it one night. I believe they also become uncomfortable because they look at each other and get up leave me alone at the table.
-- I find these reactions very interesting and not at all negative for the business.
-- Perhaps exactly what I was hoping for, except if the reason behind it is participation in sedated switcheroo porn... that makes me sad.
+
+#### Fireblocks
+
+- One evening, I don't know why I'm late to dinner, but I am, and there's nowhere to sit, and I'm wondering around looking for somewhere to sit, and no-one's talking to me, or acknowledging me, at all (I think this was later in the week), and these two blokes are sitting at a table in full view and there's an empty chair on their table.
+- So I sit down.
+- These guys are from Fireblocks. 
+- I ask them if they're giving a session or a talk or something.
+- They're not. They've just been invited along, by Jordi, they say.
+- We chat a little about crypto.
+- One of them says their business steals crypto from its users.
+- I'm surprised he would be so bold to admit something blatantly that probably everyone suspects anyway.
+- I tell them about the forgivenet.
+- They also become uncomfortable because they look at each other, and get up and leave me, they don't even excuse themselves, they're gone.
+- I'm alone at the table and they haven't even finished their dinner.
+- Were these two invited especially for the sedated raping?
+- I find these reactions from men clearly holding subscriptions to my sex-slave live-streams at Carrer Furs very interesting, and not at all negative for the business although I'm totally unaware of the egregiousness of the crimes these men are prepared to commit.
+- Perhaps it's exactly what we were hoping for, except if the real reason I built the forgivenet is because of years of sedated rape-porn in my homes... that makes me sad... but someone has to stop this madness of male arrogance, secrecy, guilt, and fear.
 
 ### Alicia
 
