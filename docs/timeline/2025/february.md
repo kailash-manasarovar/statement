@@ -438,6 +438,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 - The most marvelous irony about the fatberg is how for years I was terrorized by men on social media who seemed to be obsessed with insulting me via my body shape-and-size.
 - It's what men do, isn't it, certainly that's the only sort of thing my father ever said to my mother; shaming statements about her body, her cooking, everything she did.
+- I mean it would make an already crazy person even crazier wouldn't it, especially if they had to assiduously pretend it was not happening.
 - They did the same to me online, as if they had AI'ed my father and got him to insult me via thousands of fake accounts, just like he would do my mother.
 - Idiots.
 - It is ironic though.
