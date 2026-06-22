@@ -153,7 +153,7 @@ function googleTranslateElementInit() {
 - Well, I guess the gypsies care not at all about it - apart from the multitude of squirrels ready to cash in - but I'm sure Elon does now, doesn't he.
 - Perhaps even [the Russian](../2024/may.md#the-russian-porn-star) was filming? 
 - Well, you would wouldn't you, if you were a cold-hearted pervert with nothing to lose.
-- Wouldn't it be crrazzzyyyy if the old *we tell no-one about what we do to women and children and babies* promise back-forward-fired into the millennia to come...
+- Wouldn't it be crrazzzyyyy if the old *we tell no-one about what we do to women and children and babies* promise back-forward-fires into the millennia to come...
 - I'll pray for that, then hasten home.
 
 ## The victims
