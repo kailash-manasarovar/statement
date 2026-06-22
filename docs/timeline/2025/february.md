@@ -430,7 +430,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I ask him how.
 - He says he gets the rod, sticks it down into where the fatberg is blocking everything, and just keeps poking on it with the rod.
 - *You just keep poking at it and eventually it gives*, he says.
-- In the Autumn of this year, I will ask [Lea Batton](../pre-2001/1991.md#lea-batton), life-long friend and compadre of Paul on Facebook to tell Paul my story is like a fatberg, *you just keep poking at it for long enough and eventually it gives*.
+- In the Autumn of this year, I will ask [Lea Batton](../pre-2001/1991.md#lea-batton), life-long friend and compadre of Paul on Facebook to tell Paul - who has blocked me since I found out about Ugly - my story is like a fatberg, *you just keep poking at it for long enough and eventually it gives*.
 - Paul, Lea, Matthew Copeland, and all their mates, most of North London it transpires, including my boyfriend Brian and his family (probably not his sister, you know the way they are) from 2001, know [Ugly - sedating and rapist ex-friend of the Dénia porn-gangs](../2024/august.md#ugly) - pretty well by all accounts.
 - Let the fatberg release.
 
