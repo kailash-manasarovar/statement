@@ -421,17 +421,29 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Paul knows Anita Diamond too.
 - Was this an attempt to get me back on the networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, sedated naked me?
 
-#### Fat-bergs
+#### Fatbergs
 
 - I'm curious about something.
 - Paul's an odd-job man.
-- I ask Paul if he's ever had to clear a fat-berg from someone's drain.
+- I ask Paul if he's ever had to clear a fatberg from someone's drain.
 - He tells me yes.
 - I ask him how.
-- He says he gets the rod, pokes it down, and just keeps poking on it.
+- He says he gets the rod, sticks it down into where the fatberg is blocking everything, and just keeps poking on it with the rod.
 - *You just keep poking at it and eventually it gives*, he says.
-- In the Autumn of this year, I will ask [Lea Batton](../pre-2001/1991.md#lea-batton) on Facebook to tell Paul my story is like a fat-berg, *you keep poking at it for long enough and eventually it just gives*.
-- Paul, Lea, and all his mates, it will transpire, including my boyfriend in 2001 know [Ugly](../2024/august.md#ugly) - pretty well by all accounts.
+- In the Autumn of this year, I will ask [Lea Batton](../pre-2001/1991.md#lea-batton), life-long friend and compadre of Paul on Facebook to tell Paul my story is like a fatberg, *you just keep poking at it for long enough and eventually it gives*.
+- Paul, Lea, Matthew Copeland, and all their mates, most of North London it transpires, including my boyfriend Brian and his family (probably not his sister, you know the way they are) from 2001, know [Ugly - sedating and rapist ex-friend of the Dénia porn-gangs](../2024/august.md#ugly) - pretty well by all accounts.
+- Let the fatberg release.
+
+![Fatberg](../../content/images/fatberg.png)
+
+- The most marvelous irony about the fatberg is how for years I was terrorized by men on social media who seemed to be obsessed with insulting me via my body shape-and-size.
+- It's what men do, isn't it, certainly that's the only sort of thing my father ever said to my mother; shaming statements about her body, her cooking, everything she did.
+- They did the same to me online, as if they had AI'ed my father and got him to insult me via thousands of fake accounts, just like he would do my mother.
+- Idiots.
+- It is ironic though.
+- Let the fatberg release.
+
+![Fatberg of North London](../../content/images/fatberg-of-north-london.png)
 
 ## Moving back to UK
 
