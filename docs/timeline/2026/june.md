@@ -152,6 +152,27 @@ function googleTranslateElementInit() {
 - Wouldn't it be crrazzzyyyy if the old *we tell no-one about what we do to women and children and babies* promise backfired into the millennia to come..
 - I'll pray for that, then hasten home.
 
+## The victims
+
+- Let's make a list... from the 80s and earlier to now.
+- Women and young girls (all nationalities) manipulated into porn and prostitution via honey-trapping, drugging, and since about 2005 online manipulation.
+- Successful business women (all nationalities) they don't like because they earn a lot of money honestly, manipulated into sexual relationships then blackmailed with the films (which they put on the porn networks anyway whether they get paid or not).
+- Women already manipulated into porn and running businesses for the gangs who are then manipulated into having babies for the pregnancy porn, live-birth porn, and more product for the baby-rape machine.
+- Porn-gang members' small children and babies sent to hair and makeup in Las Marinas before being drugged for the pedo-rape-porn.
+- All children at schools in the Marina Alta region - probably started with the conservatories and the dance schools and then spread out - drugged and sedated at classes for porn, teachers paid for delivering ready children.
+- The older ex-pat community of British and Irish (and other foreign) people owning property, met at the funeral parlour while burying their partners, or at the U3A classes riddled with porn-gang operatives, or at other societies, churches, choirs, etc. set up solely to make connections with wealthy foreigners for the intention of murdering and robbing them.
+- When they realized no-one was gonna help the British, at all - thousands of complaints already made about murder, theft, rape, etc - literally taking people's houses from them - porn, poisoning, drugging... they started to target British women for bestiality (the horse porn which they ensured the UK police would find hilarious) and snuff porn (probably did the same with the UK police on this too but likely the male officers didn't so readily share this with the female like they did with the horse porn).
+- These vile acts on manipulated innocent people require poisoning over very long periods to provide brain-damage stroke-like symptoms, and worse to the nervous system and sensory perception: they have to mentally-disable victims for it to work.
+- There are thousands of complaints from families about British women going missing in Spain, dying in weird circumstances, marrying a dodgy Spanish bloke and ending up dead just week's later, *slipping* over a mountain ravine while walking with their dodgy Spanish husband who then inherits millions, ending up in porn and prostitution then dead.. obviously targeting the Brits became the gang's safest form of robbery, cos for some strange reason the Brits were fair game, and so they did it the most.
+- Then they start looking for other sort of victims... the tech-bro hatred must have tickled them pink when they realized how much tech CEOs are prepared to pay to have the female tech colleagues they despise poisoned, drugged, and set up in sex-slave spy-cam apartments.
+- And then, of course, they can blackmail the tech CEOs (stupid boys).
+- The manipulation tech has a trillion uses (some good if we could get our hands on it, the rest useless and eventually world-destroying) and selling it to the Islamicists for billions was gonna be their obvious next step.
+- I wonder if Zoe's dad really died? Or if he's relaxing on an island he bought in the Caribbean somewhere?
+- Who else? They've targeted old, young, toddler, baby, pensioner, woman, gay men, anyone deemed vulnerable or filmed for sexploitation blackmail videos.
+- They have thousands of men and women helping them: meeting people, gaining trust, hair and make up for the porn, setting up the spy-cam networks in schools, hotels, apartments; managing the manipulation tech across international hacked phones for specific targets, and fielding endlessly for new ones especially toddlers.
+- Porn gang operatives, male and female, *working directly with* targets online and offline to get them to *do stuff*.
+- A non-exhaustive list... of course.
+
 ## Hastening home - lesson 226
 
 - *But if I see no value in the world as I behold it, nothing that I want to keep as mine or search for as a goal, it will depart from me.*
@@ -171,5 +192,3 @@ function googleTranslateElementInit() {
 - Let the arrow fly.
 
 ![Ram Ram](../../content/images/ram-ram.png)
-
-<!-- I released a turtle into the sea this morning and the Vishnu connection was not lost on me, and I thought, you know what little feller, I heard 1 in 10000 of you make it, well, if I made it, and I did, you will too, see you in a hundred years, I said... -->
