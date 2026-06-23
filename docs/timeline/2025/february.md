@@ -414,7 +414,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - A good guy.
 - His mate who delivered my stuff to 31 about a week later was similarly cool and I shared my website with him because I'm concerned about everyone's kids in Spain.
 
-### Lorraine's daughter (trans son) at the Chinese
+### Lorraine's ex-daughter (trans son Jayden) at the Chinese restaurant
 
 - I take Paul for dinner at the Chinese restaurant.
 - A bunch of the Moors & Christians group are having dinner there at the same time.
