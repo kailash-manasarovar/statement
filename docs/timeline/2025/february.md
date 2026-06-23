@@ -428,7 +428,9 @@ Anyway. With the best. Tell your team to come into the office pls.
 - It's an odd question from a random person who isn't supposed to know anything about you.
 - How does she know I'm not living there any more?
 - Does she know I was being sedated and raped in my apartment?
+- I tell her I'm on holiday.
 - Do they all watch Dénia TV for the latest on the multiple spy-cam sex slaves they've set up in the region?
+- Did she assume I'd left Dénia because she hadn't seen me on the sedate-and-rape-specials for months?
 - You know, if it wasn't because of the obvious animosity between Hazel and Lorraine back in 2008 or earlier, and Lorraine finding out things (Hazel sedating young famous good-looking Spanish men and then blackmailing them with sex films most likely), and the vindictiveness of Hazel generally, they might have had me at "trans kids"... but not a chance in hell that isn't fully part of their hypno-tech.
 - Of course it is, something arising from sick porn genres that they grabbed onto and ran with, and then the lie spreads and grows and no-one knows how to contain it anymore... and it is such a sick and twisted lie, it's an obvious world-destroying whopper.
 - It's amazing how so many believe it... but they should maybe have a look inside, at the stomach and heart emotions, whenever someone says something against the lie, and perhaps notice how angry they are... violently angry, often, this is how it starts, murderous mass-psychosis.
