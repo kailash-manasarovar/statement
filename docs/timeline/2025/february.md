@@ -375,6 +375,15 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I believe among the stack of tablets he takes every day is something they've given him, all dressed up as regular meds, either cocaine or something similar to keep him going.
 - He doesn't shut up much though... and he repeatedly shows me his medication packets too - *this is for diabetes, this for ... etc* as if he's proud of them, or perhaps he's trying to convince me he's not perma-high like he seems to be.
 
+#### Paul admits something about the air-conditioning units that he'd previously vociferously denied possible
+
+- Paul had previously told me there was no chance of being drugged with the air-conditioning system.
+- I had told me I wasn't able to get up to the roof to check the other side of the system or the storage room, it was always locked.
+- He then changed his story, after receiving a text, and quietly said actually, no, they could add something to the air-conditioning system on the roof which could gas the inhabitants of an apartment.
+- My view is this was total nonsense and the gassing was going on with some venting system from next door, like I had seen with the [unusually built tunneling into number 18 from my bedroom's air-conditioning vents](../2021/december.md#something-not-right-with-the-air-conditioning-unit).
+- Who told him to tell me this? 
+- Lucy maybe?
+
 ### Child gang-rape porn
 
 - I tell Paul the whole story about what's been going on in Dénia and how it is related to when I was sexually abused as a child.
