@@ -61,3 +61,13 @@ function googleTranslateElementInit() {
 - I'm not kidding now but in March 2026, on the first afternoon (23rd March I think) I volunteer for the winter service at the baths at Lourdes (I had given the water gesture to a couple of pilgrims already with a lovely man called Marc to get me feeling confident again and then he left me alone), the first woman who comes into the baths also has *the* tattoo on her arm.
 - That's four times I've seen it now: twice on stomachs, twice on arms, always on women.
   
+## Popping back to London
+
+- I have to pop back to London briefly for paperwork matters.
+- I meet my mother at Golders Green for about an hour.
+- Dad wants to come too.
+- I tell my mother not to dare bring him.
+- I give her a triangle of healing in the cafe.
+- She says to me, and I quote: *you know, why don't you do some menial job, like a secretary, instead of what you've been doing.*
+- And I have to wonder who put that idea into her little head, and whether they're now dropping my brother in it massively, since dad's already super-doomed.
+- Seems likely.
