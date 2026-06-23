@@ -551,3 +551,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 - All formal conservatory notifications for the years 2022-23, and 2023-24, are missing from my files.
 - Fortunately, I have kept copies of everything.
+
+## Release the fatbergs
+
+![North London Denia fatberg release](../../content/images/london-denia-fatberg.png)
