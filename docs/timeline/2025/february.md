@@ -330,37 +330,69 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 - There was none.
 
-## Paul helps me move back to UK
+## Paul helps me move back to once-Great Britain
 
-- I have no one else to help me, so I ask [Paul](january.md#paul) if he would like an all expenses paid trip to Spain and back to help me collect my stuff.
+- I have no one else to help me, so I ask [Paul](january.md#paul) if he would like an all expenses paid trip to rape-porn-obsessed-Spain and back to help me collect my stuff from baby-rape, bestiality and snuff-murder capital of the world.
+- No point in mentioning the bestiality or the snuff really, everyone thinks that's OK, normal, the baby-rape now... are they fiercely protecting that too? 
+- The way the British judiciary treats the baby-rape-porn financiers these days, it certainly seems so.
 - He agrees.
-- I meet Paul at Madrid airport and we drive down to Dénia to collect my stuff.
-- I ask him if he will have a look around the flat for anything suspicious and I tell him about the hole in the wall behind the mirror.
-- When we look, there's no massive hole in the wall; its a rather tiny hole in fact.
+- I meet Paul at Madrid airport and we drive down to Dénia.
+- We stay two nights at the Marriott.
+- On the Sunday morning we go to Carrer Furs to meet Wayne from Coast2Coast and to collect my belongings.
+- I ask Paul if he will have a look around the flat for anything suspicious.
+
+### The hole behind the mirror in the bathroom
+
+- I tell him about the hole in the wall behind the mirror in the bathroom - where I had often felt overwhelmed with sexual arousal and masturbated - and how you could fit your hand in it.
+- This is what I had seen in [October 2024, the week after I was fired from Polygon so that the gangs could get on and murder me by poisoning, and I was surviving this murder-attempt (without realizing it), giving interviews on YouTube, and looking for the spy-cams](../2024/october.md#trying-to-find-the-cameras) in my apartment.
+- I must have been ingesting some seriously toxic substances that made me hallucinate all that because when I go to look behind the mirror with Paul, there's no massive hole in the wall; its a rather tiny hole in fact.
+- There is a hole, big enough for a spy-cam, but...
 - I realize I was hallucinating *hard* in October 2024 to have seen a fist-sized hole in the wall.
-- I'm horrified.
+- I'm horrified!
+- Paul gets it.
+- He knows very well about the effects of drugs.
+- My view is they poisoned me with methanol that week and the police in UK and Spain could have analyzed the samples I took of the water from the mains supply that week, the supply that the Cano Lopez's and my neighbor Marie Carmen were [tampering with every day that week](../2024/october.md#who-is-involved-in-poisoning-and-drugging-me-at-my-home-in-carrer-furs), and they refused to do so.
+
+### Tampering with the plumbing, water mains, air-conditioning vents, TV, etc
+
 - I ask Paul to look around to see if there is any evidence of tampering with the plumbing or the TV.
 - He tells me everything is normal, but he is unconvincing.
-- He is especially unconvincing regarding the TV and tells me that if he takes the back off it it'll break it and he won't be able to get it back on.
+- He is especially unconvincing regarding the TV - which Pedro told me he would have nothing to do with if it went wrong.
+- Paul tells me that if he takes the back off it it'll break it and he won't be able to get it back on.
 - I don't believe him.
 - It feels like he's doing and saying what he's been told to do and say.
-- He tells me the odd-looking piping in the kitchen is normal.
-- Paul shows me messages from his friend Lucy about her new girlfriends.
-- He even shows me a rather pornographic photo that she's sent him.
-- I'm rather appalled and don't really know what's going on but know it's all very uncool.
-- He says things that sound like they came out of my police statement from 2015.
-- He tells me he told his family I made "grands a day", on my crypto business. I'm furious.
-- He keeps telling me about his urinary symptom of "diabetes" that matches exactly my urinary symptom from poisoning.
-- I believe he is keeping an eye on me for the Adams family and will be paid for his services in cocaine.
-- I believe the medication he takes every day is either cocaine or something similar to keep him going.
+- He tells me the odd-looking piping system - something I have never seen before anywhere - in the kitchen under the sink is normal.
+- Paul changes the subject a lot and often talks about his urinary symptom of "diabetes" that matches exactly my urinary symptom from poisoning and kidney damage - or, I'm wondering now if it's a symptom of constant stress.
+- In June 2026, I wonder if I go into a massive fear state while I'm in deep sleep because I'm making a callous on my palm, and I do not know how or when I'm doing it.
+- I believe Paul is keeping an eye on me for the Adams family and will be paid for his services in cocaine and other drugs.
+- I believe among the stack of tablets he takes every day is something they've given him, all dressed up as regular meds, either cocaine or something similar to keep him going.
+- He doesn't shut up much.
 
 ### Child gang-rape porn
 
 - I tell Paul the whole story about what's been going on in Dénia and how it is related to when I was sexually abused as a child.
-- He asks me; "How didn't you go mad?"
+- He says, [*How didn't you go mad?*](january.md#telling-paul-whats-been-going-on-for-me), and that's all he says.
+- No words of comfort, anger, a shocked demeanor.
+- Does he think this is a normal thing for a woman to experience?
+- Does he know of countless victims more who did go mad?
 - I tell him I think the Adams family are involved.
+- I mention Adams a lot and he knows I'm suspicious of his connection to them.
 - He tells me he went to school with one of them; a male who committed suicide.
-- I tell him I was right to be suspicious of him.
+- I don't know anything about these people but I tell him at that moment that I believe I am right to be suspicious of him.
+- He says nothing.
+
+### Wayne from Coast2Coast
+
+- Wayne's a geezer.
+- When he comes into my apartment, Paul lies on the sofa and pretends to be asleep the whole time he's there.
+- I tell Wayne about the conservatory teachers and how the kids are in peril in Spanish schools.
+- He has a teenage daughter living with him in Spain.
+- I warn him in no uncertain terms that his daughter is in danger.
+- He's not worried, he's a geezer.
+- I tell him, look, Wayne, your daughter inherits everything from you, she's a massive target and they don't care if we live or die, no-one helps the Brits.
+- He gets thoughtful.
+- A good guy.
+- His mate who delivered my stuff to 31 about a week later was similarly cool and I shared my website with him because I'm concerned about everyone's kids in Spain.
 
 ### Lorraine's daughter (trans son) at the Chinese
 

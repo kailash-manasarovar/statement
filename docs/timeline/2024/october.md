@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 ## Poison warnings
 
-- Back in Carrer Furs, I am high every day, all day; I'm even hallucinating - I will realize to what extent when [I return in February 2025](../2025/february.md#paul-helps-me-move-back-to-uk) to collect my belongings.
+- Back in Carrer Furs, I am high every day, all day; I'm even hallucinating - I will realize to what extent when [I return in February 2025](../2025/february.md#paul-helps-me-move-back-to-once-great-britain) to collect my belongings.
 - My kidneys are screaming and I'm unstable on my feet. 
 - My vision is extremely blurry.
 - Online, I start to see a lot of references to poisoning.
@@ -888,7 +888,7 @@ function googleTranslateElementInit() {
 - In my kitchen - under the sink where the water from the main supply comes in that I use in tea, coffee, cooking - there is a weird mechanism I always thought peculiar.
 - A small, thin, plastic and extremely dirty pipe is connected to the water pipe in an unusual way.
 - It's something I have never seen before in a kitchen, and I always thought it weird.
-- When [Paul comes to help me move](../2025/february.md#paul-helps-me-move-back-to-uk) in February 2025, I ask him about this. 
+- When [Paul comes to help me move](../2025/february.md#paul-helps-me-move-back-to-once-great-britain) in February 2025, I ask him about this. 
 - Paul has spent his life in the building trade.
 - Like everything else I ask him about (except the air-conditioning system), he says, "Oh no, that's completely normal, that's just a filter for ... blah blah", or something similar.
 - He's unconvincing.
@@ -960,7 +960,7 @@ function googleTranslateElementInit() {
 
 !!! danger "I said "huge" when I first wrote this section in November 2024"
     - This is amazing to me.
-    - When I showed Paul [the hole behind the mirror in the bathroom in February 2024](../2025/february.md#paul-helps-me-move-back-to-uk), it was tiny.
+    - When I showed Paul [the hole behind the mirror in the bathroom in February 2024](../2025/february.md#paul-helps-me-move-back-to-once-great-britain), it was tiny.
     - This was shocking!
     - I had obviously been hallucinating extremely hard during this last week of October in my apartment, and it made me even more convinced of methanol poisoning.
     - Paul played it down as nothing, as usual, but the hole, though small, was certainly big enough for a fairly large spy-cam.
