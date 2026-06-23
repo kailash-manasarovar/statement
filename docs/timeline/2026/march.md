@@ -18,7 +18,7 @@ function googleTranslateElementInit() {
 - I also find myself hugely overwhelmed by the masses of people, lights, and sound and I think this must be post-trauma effects and possibly effects of brain-damaging too.
 - I wanted to just sit quietly somewhere and write, so I asked the help desk at the International Yoga Festival if they could suggest somewhere and they told me to come here.
 - It was only when I looked on the map I realized this is where they had sung the Ramayana all those years ago, my bedroom just overlooking, and how the experience had changed my life for the better.
-- I'm pretty sure it was the night they sang the Sunderkand too.
+- I'm pretty sure it was the night they sang the Sunderkand too cos all the kids were there that night, all night, and it was SOOOO HAPPPYYYY!!!!
 - And sorry all my hacking friends, we are going to have to listen to this most regularly from now on. I know, I know.
 - And, like Angalimala Baba, how I had mentioned it regularly during those intense battles with online-stalkers where my approach tended to be to bombard them with God as much as possible.
 - I think it worked!
