@@ -358,7 +358,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I had tried to get the mirror off the wall previously, probably in June of that year, and it was stuck tight. I mean I could not shift it at all.
 - This mirror came right off in February 2025, no problem.
 - My view is the gangs poisoned me with methanol that week in October, and the police in UK and Spain could have analyzed the samples I took of the water from the mains supply to give them, the supply that the Cano Lopez's and my neighbor Marie Carmen were [tampering with every day that week](../2024/october.md#who-is-involved-in-poisoning-and-drugging-me-at-my-home-in-carrer-furs), and the police in two countries refused to do so.
-- My guess is because of the thousands of people already dispatched in this way; murders fully protected by the police and documented as normal-deaths by conspiring porn-gang medics and judiciary.
+- My guess is the refused because of the thousands of people already dispatched in this way; murders fully protected by the police and documented as normal-deaths by conspiring porn-gang medics and judiciary.
 
 ### Tampering with the plumbing, water mains, air-conditioning vents, TV, etc
 
