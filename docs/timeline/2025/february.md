@@ -377,25 +377,27 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 #### Paul admits something about the air-conditioning units that he'd previously vociferously denied possible
 
-- Paul had previously told me there was no chance of being drugged with the air-conditioning system.
+- Paul had previously told me, repeatedly and loudly, that there was no chance of being drugged with the air-conditioning system.
 - I had told him I wasn't able to get up to the roof to check the other side of the system or the storage room, it was always locked.
-- He then changed his story, after receiving a text, and quietly said actually, no, they could add something to the air-conditioning system on the roof which could gas the inhabitants of an apartment.
+- He then, suddenly, changed his story, after receiving a text, and quietly said actually, no, they could add something to the air-conditioning system on the roof which could gas the inhabitants of an apartment.
+- Where did he get this new information?
 - Was Adams dropping the Lopez-Cano's in it?
-- My view is that the gassing was going on with some venting system from next door, like I had seen with the [unusually built tunneling into number 18 from my bedroom's air-conditioning vents](../2021/december.md#something-not-right-with-the-air-conditioning-unit) but I guess it's possible they fix a controlled output mechanism to the outside unit.
-- They always need a few conspirators living in the same apartment building, don't they, someone to manage the spy-cam network and press the gassing button when they can see the victim has safely gone to bed.
-- Who told him to tell me this? 
+- My view is that the gassing was going on with some venting system from next door, like I had seen with the [unusually built tunneling into number 18 from my bedroom's air-conditioning vents](../2021/december.md#something-not-right-with-the-air-conditioning-unit) but I guess it's possible they fix a controlled output mechanism to the outside unit to be able to administer sedating gas to anyone in the apartment in the bedroom or living room whenever they want to.
+- They always need a few conspirators living in the same apartment building, don't they, someone to manage the spy-cam network and press the gassing button when they can see the victim has safely gone to bed, or is just awaking after sedated-rape, or whatever.
+- Who told him to tell me this, while denying everything else that was more likely? 
 - Lucy maybe?
 
-### Child gang-rape porn
+### Child gang-rape porn and the Adams Family
 
-- I tell Paul the whole story about what's been going on in Dénia and how it is related to when I was sexually abused as a child.
-- He says, [*How didn't you go mad?*](january.md#telling-paul-whats-been-going-on-for-me), and that's all he says.
+- Like I mentioned previously, I tell Paul the whole story about what's been going on in Dénia and how it is related to when I was sexually abused as a child.
+- I tell him more of the story I can remember as we spend so much time together during this trip.
+- He only ever said, [*How didn't you go mad?*](january.md#telling-paul-whats-been-going-on-for-me).
 - No words of comfort, anger, a shocked demeanor.
 - Does he think this is a normal thing for a woman to experience?
 - Does he know of countless victims more who did go mad?
 - I tell him I think the Adams family are involved.
 - I mention Adams a lot and he knows I'm suspicious of his connection to them.
-- He tells me he went to school with one of them; a male who committed suicide.
+- He tells me he went to school with one of them at Highgate Wood; a male who committed suicide.
 - I don't know anything about these people but I tell him at that moment that I believe I am right to be suspicious of him.
 - He says nothing.
 
@@ -416,17 +418,26 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 - I take Paul for dinner at the Chinese restaurant.
 - A bunch of the Moors & Christians group are having dinner there at the same time.
-- I've sat down for about ten minutes when Lorraine's trans daughter walks in.
-- They've obviously requested her/his attendance.
-- She/he looks a bit surprised, bemused, as if she wasn't expecting such a large group of people.
-- You know, if it wasn't because of the obvious animosity between Hazel and Lorraine back in 2008 or earlier, and Lorraine finding out stuff (sedating young famous good-looking Spanish men and then blackmailing them), and the vindictiveness of Hazel generally, they might have had me at "trans kids"... but not a chance in hell that isn't fully part of their hypno-tech.
-- Of course it is, for sick porn genres and then the lie spreads and grows and no-one knows how to contain it anymore... and it is such a sick and twisted lie, it's growth may end up destroying the world.
+- I recognize a few of them, maybe there's some parents from the conservatory amongst them.
+- We sat down for about ten minutes when Lorraine's trans child, Jayden walks in.
+- They've obviously requested Jayden's attendance.
+- Jayden looks a bit surprised, bemused, as if Jayden wasn't expecting such a large group of people to be there.
+- I'm not sure if Jayden sees me; the Moors & Christians are looking over at us repeatedly.
+- The woman who owns the Chinese restaurant wants to know why I'm in the town.
+- It's an odd question from a random person who isn't supposed to know anything about you.
+- Does she know I was being sedated and raped in my apartment?
+- Do they all watch Dénia TV for the latest on the multiple spy-cam sex slaves they've set up in the region?
+- You know, if it wasn't because of the obvious animosity between Hazel and Lorraine back in 2008 or earlier, and Lorraine finding out things (Hazel sedating young famous good-looking Spanish men and then blackmailing them with sex films most likely), and the vindictiveness of Hazel generally, they might have had me at "trans kids"... but not a chance in hell that isn't fully part of their hypno-tech.
+- Of course it is, something arising from sick porn genres that they grabbed onto and ran with, and then the lie spreads and grows and no-one knows how to contain it anymore... and it is such a sick and twisted lie, it's an obvious world-destroying whopper.
+- It's amazing how so many believe it... but they should maybe have a look inside, at the stomach and heart emotions, whenever someone says something against the lie, and perhaps notice how angry they are... violently angry, often, this is how it starts, murderous mass-psychosis.
 
-### Lourdes
+## Lourdes
 
-- We stop at Lourdes.
+- We stop at Lourdes for a few days on the way home.
+- I change my mind about driving through France with Paul, he's driving me mad and taking the piss constantly - he always picks the most expensive dish on the menu and he does it on purpose to piss me off.
+- I don't like hanging out with people who take the piss, or shout constantly about nothing, so I decide we'll get the boat home from Bilbao instead of spending days getting a massive druggy ear bashing through France.
 
-### London
+## London
 
 #### Paul is furious with me
 

@@ -737,7 +737,7 @@ function googleTranslateElementInit() {
 
 - I believe this is just one of the ways the men of Dénia are paying for their sports cars; a porn network (league) with thousands of subscribers around the world placing bets on targets.
     - Will she do porn?
-    - Will she go mad? - Is this [what Paul placed his bet on](../2025/february.md#child-gang-rape-porn)?
+    - Will she go mad? - Is this [what Paul placed his bet on](../2025/january.md#telling-paul-whats-been-going-on-for-me)?
     - Will she kill herself?
     - Will the most famous tech CEO in all the world have a go?
 - That sort of thing, in ascending order of one-off pay-per-view subscriptions.
