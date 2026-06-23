@@ -333,25 +333,32 @@ Anyway. With the best. Tell your team to come into the office pls.
 ## Paul helps me move back to once-Great Britain
 
 - I have no one else to help me, so I ask [Paul](january.md#paul) if he would like an all expenses paid trip to rape-porn-obsessed-Spain and back to help me collect my stuff from baby-rape, bestiality and snuff-murder capital of the world.
-- No point in mentioning the bestiality or the snuff really, everyone thinks that's OK, normal, the baby-rape now... are they fiercely protecting that too? 
+- No point in mentioning the bestiality or the snuff really, everyone thinks that's OK, normal; the baby-rape now... are they fiercely protecting that too? 
 - The way the British judiciary treats the baby-rape-porn financiers these days, it certainly seems so.
 - He agrees.
 - I meet Paul at Madrid airport and we drive down to Dénia.
 - We stay two nights at the Marriott.
 - On the Sunday morning we go to Carrer Furs to meet Wayne from Coast2Coast and to collect my belongings.
-- I ask Paul if he will have a look around the flat for anything suspicious.
+- I ask Paul, handyman and odd-job man, if he will have a look around the flat for anything suspicious.
 
 ### The hole behind the mirror in the bathroom
 
 - I tell him about the hole in the wall behind the mirror in the bathroom - where I had often felt overwhelmed with sexual arousal and masturbated - and how you could fit your hand in it.
 - This is what I had seen in [October 2024, the week after I was fired from Polygon so that the gangs could get on and murder me by poisoning, and I was surviving this murder-attempt (without realizing it), giving interviews on YouTube, and looking for the spy-cams](../2024/october.md#trying-to-find-the-cameras) in my apartment.
 - I must have been ingesting some seriously toxic substances that made me hallucinate all that because when I go to look behind the mirror with Paul, there's no massive hole in the wall; its a rather tiny hole in fact.
-- There is a hole, big enough for a spy-cam, but...
+- There is a hole there that shouldn't be there, big enough for a spy-cam, and something was definitely wired up there at some point in the past, but...
 - I realize I was hallucinating *hard* in October 2024 to have seen a fist-sized hole in the wall.
 - I'm horrified!
 - Paul gets it.
 - He knows very well about the effects of drugs.
-- My view is they poisoned me with methanol that week and the police in UK and Spain could have analyzed the samples I took of the water from the mains supply that week, the supply that the Cano Lopez's and my neighbor Marie Carmen were [tampering with every day that week](../2024/october.md#who-is-involved-in-poisoning-and-drugging-me-at-my-home-in-carrer-furs), and they refused to do so.
+- But he deflects, *this is just the wires for a light that was there before they put the mirror up*... nonsense, there was no light there in the original design which included the same size mirror, and the apartment had not been amended since it was built in 2007 or so.
+- He then looks at the mirror and says, *this is not a two-way mirror*.
+- I'm aware of this.
+- I believe they swapped the mirror over, and removed a lot of other evidence, once I had left or even while [they thought I was dying in my own apartment](../2024/october.md#activity-in-the-nextdoor-apartment-number-18).
+- I had tried to get the mirror off the wall previously, probably in June of that year, and it was stuck tight. I mean I could not shift it at all.
+- This mirror came right off, no problem.
+- My view is the gangs poisoned me with methanol that week in October, and the police in UK and Spain could have analyzed the samples I took of the water from the mains supply to give them, the supply that the Cano Lopez's and my neighbor Marie Carmen were [tampering with every day that week](../2024/october.md#who-is-involved-in-poisoning-and-drugging-me-at-my-home-in-carrer-furs), and the police in two countries refused to do so.
+- My guess is because of the thousands of people already dispatched in this way; murders fully protected by the police and documented as normal-deaths by conspiring porn-gang medics and judiciary.
 
 ### Tampering with the plumbing, water mains, air-conditioning vents, TV, etc
 
