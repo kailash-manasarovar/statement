@@ -417,7 +417,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 ### Lorraine's ex-daughter (trans son Jayden) at the Chinese restaurant
 
-- I take Paul for dinner at the Chinese restaurant.
+- I take Paul for dinner at the Chinese restaurant on the Sunday night.
 - A bunch of the Moors & Christians group are having dinner there at the same time.
 - I recognize a few of them, maybe there's some parents from the conservatory amongst them.
 - We sat down for about ten minutes when Lorraine's trans child, Jayden walks in.
@@ -426,6 +426,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I'm not sure if Jayden sees me; the Moors & Christians are looking over at us repeatedly.
 - The woman who owns the Chinese restaurant wants to know why I'm in the town.
 - It's an odd question from a random person who isn't supposed to know anything about you.
+- How does she know I'm not living there any more?
 - Does she know I was being sedated and raped in my apartment?
 - Do they all watch Dénia TV for the latest on the multiple spy-cam sex slaves they've set up in the region?
 - You know, if it wasn't because of the obvious animosity between Hazel and Lorraine back in 2008 or earlier, and Lorraine finding out things (Hazel sedating young famous good-looking Spanish men and then blackmailing them with sex films most likely), and the vindictiveness of Hazel generally, they might have had me at "trans kids"... but not a chance in hell that isn't fully part of their hypno-tech.
