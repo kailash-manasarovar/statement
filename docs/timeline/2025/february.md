@@ -355,8 +355,8 @@ Anyway. With the best. Tell your team to come into the office pls.
 - He then looks at the mirror and says, *this is not a two-way mirror*.
 - I'm aware of this.
 - I believe they swapped the mirror over, and removed a lot of other evidence when they broke the Internet router and doused all my belongings in pesticides, and even while [they thought I was dying in my own apartment](../2024/october.md#activity-in-the-nextdoor-apartment-number-18).
-- I had tried to get the mirror off the wall previously, probably in June of that year, and it was stuck tight. I mean I could not shift it at all.
-- This mirror came right off in February 2025, no problem.
+- I had tried to get the mirror off the wall previously, probably in June of that year, and it was stuck tight. I could not shift it at all.
+- I took the mirror right off in February 2025 with Paul standing beside me, no problem.
 - My view is the gangs poisoned me with methanol that week in October, and the police in UK and Spain could have analyzed the samples I took of the water from the mains supply to give them, the supply that the Cano Lopez's and my neighbor Marie Carmen were [tampering with every day that week](../2024/october.md#who-is-involved-in-poisoning-and-drugging-me-at-my-home-in-carrer-furs), and the police in two countries refused to do so.
 - My guess is they refused because of the thousands of people already dispatched in this way; murders fully protected by the police and documented as normal-deaths by conspiring porn-gang medics and judiciary.
 
@@ -364,15 +364,18 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 - I ask Paul to look around to see if there is any evidence of tampering with the plumbing, the TV, or other installations.
 - He tells me everything is normal, but he is unconvincing.
-- He is especially unconvincing regarding the TV - which Pedro told me he would have nothing to do with if it went wrong.
+- He is especially unconvincing regarding the TV - which Pedro suspiciously told me he would have nothing to do with if it went wrong - *don't ask me to fix the TV* he said in December 2021 as I was moving in.
 - Paul tells me that if he takes the back off the TV it'll break it and he won't be able to get it back on.
 - I don't believe him.
+- The TV is ancient, no-one cares if it breaks.
 - It feels like he's doing and saying what he's been told to do and say.
+- He has *too much* to say about the TV that I suspect there's a massive camera in there.
 - He tells me the odd-looking water-piping system - something I have never seen before anywhere - in the kitchen under the sink is normal.
-- Paul changes the subject a lot and often talks about his urinary symptom of "diabetes" that matches exactly my urinary symptom from poisoning and kidney damage - or, I'm wondering now if it's a symptom of constant stress.
-- An aside: in June 2026 time-of-writing, I wonder if I go into a massive fear state while I'm in deep sleep because I'm making a callous on my palm, and I do not know how or when I'm doing it.
-- I believe Paul is keeping an eye on me for the Adams family and will be paid for his services in cocaine and other drugs.
-- I believe among the stack of tablets he takes every day is something they've given him, all dressed up as regular meds - just like my mother's sedating drugs she receives by Royal Mail - either cocaine or something similar to keep him going.
+- Paul changes the subject a lot.
+- He often starts talking about things related to my horrific experiences over the years, such as talking about his urinary symptom of "diabetes" that matches exactly my urinary symptom from poisoning and kidney damage - or, I'm wondering now if it's a symptom of constant stress.
+- Is Lucy prompting him continuously on WhatsApp?
+- I believe Paul is keeping an eye on me for the Adams family and is being paid for his services in cocaine and other drugs.
+- I believe among the stack of tablets he takes every day is something they've given him, all dressed up as regular meds - just like my mother's sedating drugs she buys on the Internet and receives by Royal Mail - either cocaine or something similar to keep him going.
 - He doesn't shut up much though... and he repeatedly shows me his medication packets too - *this is for diabetes, this for ... etc* as if he's proud of them, or perhaps he's trying to convince me he's not perma-high like he seems to be.
 
 #### Paul admits something about the air-conditioning units that he'd previously vociferously denied possible
