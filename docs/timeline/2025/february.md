@@ -389,15 +389,16 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 ### Child gang-rape porn and the Adams Family
 
-- Like I mentioned previously, I tell Paul the whole story about what's been going on in Dénia and how it is related to when I was sexually abused as a child.
-- I tell him more of the story I can remember as we spend so much time together during this trip.
+- Like I mentioned previously, I tell Paul the whole story about what's been going on in Dénia and how it is related to when I was sexually abused as a child by North London's Jamaican rape-gangs.
+- I tell him more and more of the story I can remember as we spend so much time together during this trip.
 - He only ever said, [*How didn't you go mad?*](january.md#telling-paul-whats-been-going-on-for-me).
 - No words of comfort, anger, a shocked demeanor.
 - Does he think this is a normal thing for a woman to experience?
 - Does he know of countless victims more who did go mad?
 - I tell him I think the Adams family are involved.
 - I mention Adams a lot and he knows I'm suspicious of his connection to them.
-- He tells me he went to school with one of them at Highgate Wood; a male who committed suicide.
+- He eventually tells me he went to school with one of them at Highgate Wood; a male who committed suicide.
+- Is this an attempt to deflect my suspicions?
 - I don't know anything about these people but I tell him at that moment that I believe I am right to be suspicious of him.
 - He says nothing.
 
