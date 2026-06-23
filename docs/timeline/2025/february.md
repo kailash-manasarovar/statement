@@ -362,18 +362,18 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 ### Tampering with the plumbing, water mains, air-conditioning vents, TV, etc
 
-- I ask Paul to look around to see if there is any evidence of tampering with the plumbing or the TV.
+- I ask Paul to look around to see if there is any evidence of tampering with the plumbing, the TV, or other installations.
 - He tells me everything is normal, but he is unconvincing.
 - He is especially unconvincing regarding the TV - which Pedro told me he would have nothing to do with if it went wrong.
-- Paul tells me that if he takes the back off it it'll break it and he won't be able to get it back on.
+- Paul tells me that if he takes the back off the TV it'll break it and he won't be able to get it back on.
 - I don't believe him.
 - It feels like he's doing and saying what he's been told to do and say.
-- He tells me the odd-looking piping system - something I have never seen before anywhere - in the kitchen under the sink is normal.
+- He tells me the odd-looking water-piping system - something I have never seen before anywhere - in the kitchen under the sink is normal.
 - Paul changes the subject a lot and often talks about his urinary symptom of "diabetes" that matches exactly my urinary symptom from poisoning and kidney damage - or, I'm wondering now if it's a symptom of constant stress.
-- In June 2026, I wonder if I go into a massive fear state while I'm in deep sleep because I'm making a callous on my palm, and I do not know how or when I'm doing it.
+- An aside: in June 2026 time-of-writing, I wonder if I go into a massive fear state while I'm in deep sleep because I'm making a callous on my palm, and I do not know how or when I'm doing it.
 - I believe Paul is keeping an eye on me for the Adams family and will be paid for his services in cocaine and other drugs.
 - I believe among the stack of tablets he takes every day is something they've given him, all dressed up as regular meds, either cocaine or something similar to keep him going.
-- He doesn't shut up much.
+- He doesn't shut up much though... and he repeatedly shows me his medication packets too - *this is for diabetes, this for ... etc* as if he's proud of them, or perhaps he's trying to convince me he's not perma-high like he seems to be.
 
 ### Child gang-rape porn
 
