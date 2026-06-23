@@ -413,7 +413,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I tell him, look, Wayne, your daughter inherits everything from you, she's a massive target and they don't care if we live or die, no-one helps the Brits.
 - He gets thoughtful.
 - A good guy.
-- His mate who delivered my stuff to 31 about a week later was similarly cool and I shared my website with him because I'm concerned about everyone's kids in Spain.
+- His mate who delivered my stuff to 31 about a week later was similarly cool and I shared my website with him because I'm concerned about everyone's kids in Spain, as the *whole world* should be, and isn't cos they don't get to hear about what's going on until it's too late, and they're murdered and robbed.
 
 ### Lorraine's ex-daughter (trans son Jayden) at the Chinese restaurant
 
