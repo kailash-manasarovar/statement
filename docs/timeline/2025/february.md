@@ -354,7 +354,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - But he deflects, *this is just the wires for a light that was there before they put the mirror up*... nonsense, there was no light there in the original design which included the same size mirror which would totally obscure a light in that position, and the apartment had not been amended since it was built in 2007 or so.
 - He then looks at the mirror and says, *this is not a two-way mirror*.
 - I'm aware of this.
-- I believe they swapped the mirror over, and removed a lot of other evidence, once I had left or even while [they thought I was dying in my own apartment](../2024/october.md#activity-in-the-nextdoor-apartment-number-18).
+- I believe they swapped the mirror over, and removed a lot of other evidence when they broke the Internet router and doused all my belongings in pesticides, and even while [they thought I was dying in my own apartment](../2024/october.md#activity-in-the-nextdoor-apartment-number-18).
 - I had tried to get the mirror off the wall previously, probably in June of that year, and it was stuck tight. I mean I could not shift it at all.
 - This mirror came right off in February 2025, no problem.
 - My view is the gangs poisoned me with methanol that week in October, and the police in UK and Spain could have analyzed the samples I took of the water from the mains supply to give them, the supply that the Cano Lopez's and my neighbor Marie Carmen were [tampering with every day that week](../2024/october.md#who-is-involved-in-poisoning-and-drugging-me-at-my-home-in-carrer-furs), and the police in two countries refused to do so.
