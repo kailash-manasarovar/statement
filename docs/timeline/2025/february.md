@@ -383,7 +383,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Where did he get this new information?
 - Was Adams dropping the Lopez-Cano's in it?
 - My view is that the gassing was going on with some venting system from next door, like I had seen with the [unusually built tunneling into number 18 from my bedroom's air-conditioning vents](../2021/december.md#something-not-right-with-the-air-conditioning-unit) but I guess it's possible they fix a controlled output mechanism to the outside unit to be able to administer sedating gas to anyone in the apartment in the bedroom or living room whenever they want to.
-- They always need a few conspirators living in the same apartment building, don't they, someone to manage the spy-cam network and press the gassing button when they can see the victim has safely gone to bed, or is just awaking after sedated-rape, or whatever.
+- They always need a few conspirators living in the same apartment building, don't they, someone to manage the spy-cam network and press the gassing button when they can see the victim has safely gone to bed, or to apply the hallucinogenic/happy gas just after the victim awakes after sedated-rape, or whatever.
 - Who told him to tell me this, while denying everything else that was more likely? 
 - Lucy maybe?
 
