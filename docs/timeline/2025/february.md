@@ -372,15 +372,17 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Paul changes the subject a lot and often talks about his urinary symptom of "diabetes" that matches exactly my urinary symptom from poisoning and kidney damage - or, I'm wondering now if it's a symptom of constant stress.
 - An aside: in June 2026 time-of-writing, I wonder if I go into a massive fear state while I'm in deep sleep because I'm making a callous on my palm, and I do not know how or when I'm doing it.
 - I believe Paul is keeping an eye on me for the Adams family and will be paid for his services in cocaine and other drugs.
-- I believe among the stack of tablets he takes every day is something they've given him, all dressed up as regular meds, either cocaine or something similar to keep him going.
+- I believe among the stack of tablets he takes every day is something they've given him, all dressed up as regular meds - just like my mother's sedating drugs she receives by Royal Mail - either cocaine or something similar to keep him going.
 - He doesn't shut up much though... and he repeatedly shows me his medication packets too - *this is for diabetes, this for ... etc* as if he's proud of them, or perhaps he's trying to convince me he's not perma-high like he seems to be.
 
 #### Paul admits something about the air-conditioning units that he'd previously vociferously denied possible
 
 - Paul had previously told me there was no chance of being drugged with the air-conditioning system.
-- I had told me I wasn't able to get up to the roof to check the other side of the system or the storage room, it was always locked.
+- I had told him I wasn't able to get up to the roof to check the other side of the system or the storage room, it was always locked.
 - He then changed his story, after receiving a text, and quietly said actually, no, they could add something to the air-conditioning system on the roof which could gas the inhabitants of an apartment.
-- My view is this was total nonsense and the gassing was going on with some venting system from next door, like I had seen with the [unusually built tunneling into number 18 from my bedroom's air-conditioning vents](../2021/december.md#something-not-right-with-the-air-conditioning-unit).
+- Was Adams dropping the Lopez-Cano's in it?
+- My view is that the gassing was going on with some venting system from next door, like I had seen with the [unusually built tunneling into number 18 from my bedroom's air-conditioning vents](../2021/december.md#something-not-right-with-the-air-conditioning-unit) but I guess it's possible they fix a controlled output mechanism to the outside unit.
+- They always need a few conspirators living in the same apartment building, don't they, someone to manage the spy-cam network and press the gassing button when they can see the victim has safely gone to bed.
 - Who told him to tell me this? 
 - Lucy maybe?
 
