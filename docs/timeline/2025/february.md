@@ -444,12 +444,23 @@ Anyway. With the best. Tell your team to come into the office pls.
 ## Lourdes
 
 - We stop at Lourdes for a few days on the way home.
-- I change my mind about driving through France with Paul, he's driving me mad and taking the piss constantly - he always picks the most expensive dish on the menu and he does it on purpose to piss me off.
+- I take Paul to see Mary.
+- His reaction to Her reminds me of my dad's [the Autumn before](../2024/september.md#lourdes-with-dad).
+- I sense a little shame but we don't talk about it.
+- As we walk through the grotto, we smell a very powerful perfume and he tells me it was the perfume his aunt wore, or someone close to him.
+- I thought this was marvelous.
+- I had planned to drive all the way through France back to the UK but I change my mind about it because Paul is driving me mad and taking the piss.
+- It's hard work.
 - I don't like hanging out with people who take the piss, or shout constantly about nothing, so I decide we'll get the boat home from Bilbao instead of spending days getting a massive druggy ear bashing through France.
+- On the boat, Paul fills every pocket he has with bottles from the bar.
+- He makes a chinking sound as he walks.
+- He's stocking up for when I leave him and stop buying him his meals.
+- It's a total tragedy.
+- Did Adams target Paul the same way they did my brother with his Lockerbie compensation - really-nice-geezer friends, a lovely looking lady, etc - knowing his mum was giving him tens of thousands to do the house up in Clovely Road?
 
 ## London
 
-#### Paul is furious with me
+### Paul is furious with me
 
 - We arrive back in London.
 - I'm driving Paul back to his car where he lives.
@@ -469,7 +480,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Was it Paul? Was he *that* angry with me? 
 - Do they always get so furious with sedated rape-porn victims whenever we exhibit normal human behavior?
 
-#### WTF
+### WTF
 
 - At some point, a car pulls in front of me and drives in step with me.
 - I think it has pulled out of Summerlea Avenue or Durham Road maybe.
@@ -478,13 +489,13 @@ Anyway. With the best. Tell your team to come into the office pls.
 - The car's number plate is XXXX WTF. (The Xs are numbers I can't remember.)
 - The woman driver looks a bit like [Hala](../2023/july.md#hala), but much more like [the woman I will see in the waiting room at the doctors surgery](september.md#rutland-house-surgery-muswell-hill) when I go in to report all the poisoning symptoms over many years I have listed for them, and they're all hopping around, making sure the network's down etc....
 
-#### Paul and my brother
+### Paul and my brother
 
 - Paul keeps saying how he *wants to help my brother*, like be a mentor of some sort.
 - It's weird.
 - Why have they asked him to do that?
 
-#### Paul invites me on holiday to Malta
+### Paul invites me on holiday to Malta
 
 - Paul's desperate to keep seeing me.
 - But he hates me so much, it's inexplicable.
@@ -504,7 +515,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Paul knows Anita Diamond too.
 - Was this an attempt to get me back on the networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, sedated naked me?
 
-#### Fatbergs
+### Fatbergs
 
 - I'm curious about something.
 - Paul's an odd-job man.
