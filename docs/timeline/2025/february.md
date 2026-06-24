@@ -395,14 +395,14 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Like I mentioned previously, I tell Paul the whole story about what's been going on in Dénia and how it is related to when I was sexually abused as a child by North London's Jamaican rape-gangs.
 - I tell him more and more of the story I can remember as we spend so much time together during this trip.
 - He only ever said, [*How didn't you go mad?*](january.md#telling-paul-whats-been-going-on-for-me).
-- No words of comfort, anger, a shocked demeanor.
-- Does he think this is a normal thing for a woman to experience?
+- No words of comfort, anger, a shocked demeanor, concern for women and children.
+- Does he think this is a normal thing for a woman, or child, to experience?
 - Does he know of countless victims more who did go mad?
 - I tell him I think the Adams family are involved.
 - I mention Adams a lot and he knows I'm suspicious of his connection to them.
 - He eventually tells me he went to school with one of them at Highgate Wood; a male who committed suicide.
-- Is this an attempt to deflect my suspicions?
-- I don't know anything about these people but I tell him at that moment that I believe I am right to be suspicious of him.
+- Did someone tell him to say something in the hope it'll stop me being suspicious?
+- I don't know anything about these people but I tell him at that moment that I believe more than ever I am right to be suspicious of him and his criminal connections.
 - He says nothing.
 
 ### Wayne from Coast2Coast
@@ -416,27 +416,30 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I tell him, look, Wayne, your daughter inherits everything from you, she's a massive target and they don't care if we live or die, no-one helps the Brits.
 - He gets thoughtful.
 - A good guy.
-- His mate who delivered my stuff to 31 about a week later was similarly cool and I shared my website with him because I'm concerned about everyone's kids in Spain, as the *whole world* should be, and isn't cos they don't get to hear about what's going on until it's too late, and they're murdered and robbed.
+- His mate who delivered my stuff to 31 about a week later was similarly cool and I shared my website with him because I'm concerned about everyone's kids in Spain and elsewhere, as the *whole world* should be.
 
 ### Lorraine's ex-daughter (trans son Jayden) at the Chinese restaurant
 
 - I take Paul for dinner at the Chinese restaurant on the Sunday night.
 - A bunch of the Moors & Christians group are having dinner there at the same time.
-- I recognize a few of them, maybe there's some parents from the conservatory amongst them.
-- We sat down for about ten minutes when Lorraine's trans child, Jayden walks in.
-- They've obviously requested Jayden's attendance.
-- Jayden looks a bit surprised, bemused, as if Jayden wasn't expecting such a large group of people to be there.
-- I'm not sure if Jayden sees me; the Moors & Christians are looking over at us repeatedly.
-- The woman who owns the Chinese restaurant wants to know why I'm in the town.
+- I recognize a few of them; there's some conservatory parents amongst them, particularly the fat man (Dénia TV is it, or [the guy that was angry outside my apartment](../2024/october.md#driving-to-madrid-on-my-way-to-fatima)) who is sitting with a good view of me and Paul.
+- It would not surprise me if the Moors & Christians organization was a major introduction agent for criminal porn and relieving-people-of-their-health-property-and-wealth activities in the region.
+- We've sat down for about ten minutes when Lorraine's trans child, Jayden walks in.
+- When she was 13, or earlier, she was targeted online massively by the porn-gangs on Hazel Smith's instruction. Hazel won't deny it.
+- No doubt they sucked her into the self-harming porn circles at that time, and I wonder if they flashed some of that up to Lorraine in her last days, the way they did with [the porn of me when I was a kid](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x).
+- The gangs have obviously requested Jayden's attendance at that very moment in the restaurant so that we see each other.
+- Jayden looks a bit surprised walking in, bemused, as if Jayden wasn't expecting such a large group of people to be there.
+- I'm not sure if Jayden sees me; although the Moors & Christians are looking over at us repeatedly, and they're bound to have pointed us out.
+- When we go to leave, the woman who owns the Chinese restaurant wants to know why I'm in the town.
 - It's an odd question from a random person who isn't supposed to know anything about you.
-- How does she know I'm not living there any more?
+- How does she know I'm not living there anymore?
+- I would come in regularly for a while, then not for months when I was traveling. There was nothing unusual about me being there.
 - Does she know I was being sedated and raped in my apartment?
-- I tell her I'm on holiday.
 - Do they all watch Dénia TV for the latest on the multiple spy-cam sex slaves they've set up in the region?
 - Did she assume I'd left Dénia because she hadn't seen me on [the sedate-and-rape-specials](../2001-to-2010/2008.md#denia-tv) for months?
 - You know, if it wasn't because of the obvious animosity between Hazel and Lorraine back in 2008 or earlier, and Lorraine finding out things (Hazel sedating young famous good-looking Spanish men and then blackmailing them with sex films most likely), and the vindictiveness of Hazel generally, they might have had me at "trans kids"... but not a chance in hell that isn't fully part of their hypno-tech.
-- Of course it is, something arising from sick porn genres that they grabbed onto and ran with, and then the lie spreads and grows and no-one knows how to contain it anymore... and it is such a sick and twisted lie, it's an obvious world-destroying whopper.
-- It's amazing how so many believe it... but they should maybe have a look inside, at the stomach and heart emotions, whenever someone says something against the lie, and perhaps notice how angry they are... violently angry, often, this is how it starts, murderous mass-psychosis.
+- Of course it is, something arising from sick porn genres that they grabbed onto and ran with, and then the lie spreads and other evil groups realize its value to them, and so it grows and grows and apparently normal people are totally fooled by it, and no-one knows how to contain it anymore... and it is such a sick and twisted lie; an obvious world-destroying whopper.
+- It's amazing how so many believe it... but they should maybe have a look inside, especially at the stomach and heart emotions whenever someone says something against the lie, and perhaps notice how angry they are... violently angry, often, ready to kill, and know that this is how it starts, murderous mass-psychosis.
 
 ## Lourdes
 
