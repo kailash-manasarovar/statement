@@ -475,43 +475,49 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 ### I release Paul
 
-- wip
+- When we arrive back in the UK, I tell Paul I release him from his obligations.
 
 ### Paul is furious with me
 
-- We arrive back in London.
-- I'm driving Paul back to his car where he lives.
+- For releasing him from his obligations, and my obligation to feed him.
+- A total tragedy.
+- We arrive back in North London.
+- I'm driving Paul back to his car, where he lives.
 - It's late and we're both tired.
 - As we pull up to the junction at the bottom of Muswell Hill, the light goes green but it is not signalling right so I don't go. 
 - There's a feeder light usually. At least there was the last time I drove here, over 5 years previously.
-- Paul says, go go, it's green, so I move forward, but there is oncoming traffic so I can't turn right.
+- Paul says, go go, it's green, and I'm tired and I don't expect him to take that much of the piss, so I move forward, but there is oncoming traffic so I can't turn right.
 - I break and ride the clutch a little bit but the car won't move, it is revving hard, but not moving, and I'm trying to go in and out of first, and I can smell this awful smell.
-- Paul been pulling the handbrake button without my knowledge.
+- (Paul been pulling the handbrake button without my knowledge.)
 - "What's that smell?" I say.
 - "You hammered the clutch," Paul says.
-- It's too late to think about this more but I know something's wrong.
+- It's too late to think about this more but I know something's wrong with this picture.
 - I leave Paul at his car and thank him for saving my life.
 - "You saved my life Paul", I say and I'm very grateful.
 - I drive home alone.
 - The next day or a few days later I noticed someone has glued my car.
-- Was it Paul? Was he *that* angry with me? 
-- Do they always get so furious with sedated rape-porn victims whenever we exhibit normal human behavior?
+- Was it Paul? 
+- Was he *that* angry with me? 
 
 ### WTF
 
+- After I leave Paul in Hornsey, I carry on back to N2.
 - At some point, a car pulls in front of me and drives in step with me.
 - I think it has pulled out of Summerlea Avenue or Durham Road maybe.
 - I notice the woman driver a little.
 - I end up following it all the way along Fortis Green then East End Road to Church Lane N2 where I pull off to the right.
 - The car's number plate is XXXX WTF. (The Xs are numbers I can't remember.)
-- The woman driver looks a bit like [Hala](../2023/july.md#hala), but much more like [the woman I will see in the waiting room at the doctors surgery](september.md#rutland-house-surgery-muswell-hill) when I go in to report all the poisoning symptoms over many years I have listed for them, and they're all hopping around, making sure the network's down etc....
+- The woman driver looks a bit like [Hala](../2023/july.md#hala), but much more like [the woman I will see in the waiting room at the doctors surgery](september.md#rutland-house-surgery-muswell-hill) when I go in to report all the poisoning symptoms over many years I have listed for them, and they're all hopping around, making sure the network's down so they can't add it to the system, etc....
+- I will see a few more interesting number plates over the next few months that seem to be very specifically for me to see.
 
 ### Paul and my brother
 
-- Paul keeps saying how he *wants to help my brother*, like be a mentor of some sort.
+- Paul is around a bit still.
+- After meeting my brother briefly, he keeps saying how he *wants to help my brother*, like be a mentor of some sort.
 - It's weird.
 - Why have they asked him to do that?
 - Shared sexual trauma and hatred of me?
+- Or are they suspicious of some of my brothers posher friends and want more information?
 
 ### Paul invites me on holiday to Malta
 
@@ -530,8 +536,9 @@ Anyway. With the best. Tell your team to come into the office pls.
 - It's impossible unless there is an ulterior motive.
 - Did the porn-gangs ask him to invite me to Malta for a holiday?
 - Interestingly, Malta is where [Qredo](../2021/march.md#qredo) are based.
-- Paul knows Anita Diamond too.
-- Was this an attempt to get me back on the networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, sedated naked me?
+- Paul knows Anita Diamond too and often talks about her, how she was bullied by another girl (but he's actually talking about me, it's very boring of him...).
+- Anyway.
+- Was this an attempt to get me back on the porn-networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, sedated naked me?
 
 ### Fatbergs
 
@@ -542,7 +549,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I ask him how.
 - He says he gets the rod, sticks it down into where the fatberg is blocking everything, and just keeps poking on it with the rod.
 - *You just keep poking at it and eventually it gives*, he says.
-- In the Autumn of this year, I will ask [Lea Batton](../pre-2001/1991.md#lea-batton), life-long friend and compadre of Paul on Facebook to tell Paul - who has blocked me since I found out about Ugly - my story is like a fatberg, *you just keep poking at it for long enough and eventually it gives*.
+- In the Autumn of this year, I will ask [Lea Batton](../pre-2001/1991.md#lea-batton), life-long friend and compadre of Paul on Facebook to tell Paul - who has blocked me since I found out about [Ugly and the gang](../2001-to-2010/2001.md#amsterdam) - my story is like a fatberg, *you just keep poking at it for long enough and eventually it gives*.
 - Paul, Lea, Matthew Copeland, and all their mates, most of North London it transpires, including my boyfriend Brian and his family (probably not his sister, you know the way they are) from 2001, know [Ugly - sedating and rapist ex-friend of the Dénia porn-gangs](../2024/august.md#ugly) - pretty well by all accounts.
 - Let the fatberg release.
 

@@ -784,6 +784,11 @@ function googleTranslateElementInit() {
 - This was an out-of-the-blue meaningless reply with overtones of sexual perversion, and *nervous sweaty elephant* I felt was a reference to me.
 - When I went to class about an hour after this interaction, feeling *unusually* stressed and anxious as I always did at choir, the French-horn player who always sat beside me stunk of peanuts (she was eating a peanut bun), and the choir master (an extremely unpleasant man who will send me a dick pic on X in September) spoke endlessly about elephant trunks, *trompas* the word also happens to be very similar to trumpet, and can also mean "big nose".
 
+### Was Matthew actually...
+
+- Matthew Copeland?
+- Seems highly likely.
+
 ## In the baths at Cauterets with Sandra Rita Diaz
 
 - I take Sandra Rita Diaz to the baths at Cauterets.
