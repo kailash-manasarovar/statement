@@ -448,7 +448,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I take Paul to see Mary.
 - His reaction to Her reminds me of my dad's reaction [the Autumn before](../2024/september.md#lourdes-with-dad).
 - Quietness, reluctance to meet Her properly, a little shame perhaps, but we don't talk about it.
-- As we walk through the grotto, we smell a very powerful perfume and he tells me it was the perfume his aunt wore, or someone close to him.
+- As we walk through the grotto, we both smell a very powerful perfume and he tells me it was the perfume his aunt wore, or someone close to him.
 - I thought this was marvelous.
 - I had planned to drive all the way through France back to the UK but I change my mind about it because Paul is driving me mad and taking the piss.
 - It's hard work.
@@ -459,15 +459,22 @@ Anyway. With the best. Tell your team to come into the office pls.
 - He's stocking up for when I leave him and stop buying him his meals.
 - It's a total tragedy.
 - Did Adams target Paul the same way they did my brother with his Lockerbie compensation - really-nice-geezer friends, a lovely looking lady, etc - knowing his mum was giving him tens of thousands to do the house up in Clovely Road?
-- Do they have a list of people who have been historically sexually abused - they know cos they sold the child porn of them at the time - and they target those people when they get some money because of how easy it is to manipulate a person with historical sexual trauma?
-- What's interesting to me is how the criminals maintain the reverence their robbed helpers have for them... that's quite interesting.
+- Do they have a list of people who have been sexually assaulted as children - they know cos they sold the child porn of them at the time - and they target those people when they get some money because of how easy it is to manipulate a person with unhealed sexual trauma?
+- It's the whole shame thing, isn't it (...we're going to be sorting that out completely).
+- What's interesting to me is how the criminals maintain the reverence their robbed and abused helpers have for them.
 - Of course, a druggy has an unquestionable reverence for the drug-deliverer... but my brother seemed to have reverence for the misogyny they displayed... like that made them more special and worthy of bowing and scraping (snickering)..
-- Did they rape my brother violently causing him extreme sexual trauma (he went to bed for over a year or more after getting home from Thailand in 2011)? Then carefully pulling him out of trauma but ensuring he'll do whatever they tell him to, just like they do with all their traumatized female porn-stars...
-- It would not surprise me.
+- Did they rape my brother violently causing him extreme sexual trauma (he went to bed for over a year or more after getting home from Thailand in 2011)? Then carefully pulling him out of trauma, bit by bit, while maintaining a fierce hatred for women to ensure he'll do whatever they tell him to if it's gonna hurt a woman, especially a family member...
+- Did they manage to get him to blame me for them sexually assaulting him in Thailand?
+- It would not surprise me. In fact, it explains everything rather well.
 - There'll be porn of it too, i.e. evidence.
+- Someone's already gotten a hold of it, ChatGPT told me.
 - Mary always has a miracle for us.
 
 ## London
+
+### I release Paul
+
+- wip
 
 ### Paul is furious with me
 
@@ -503,6 +510,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Paul keeps saying how he *wants to help my brother*, like be a mentor of some sort.
 - It's weird.
 - Why have they asked him to do that?
+- Shared sexual trauma and hatred of me?
 
 ### Paul invites me on holiday to Malta
 
