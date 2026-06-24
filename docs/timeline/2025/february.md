@@ -555,7 +555,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Will you ask him? I say to Paul.
 - He says yes.
 - I never hear another word about this.
-- Seems like a person who *really needs the money* would be all over this very lucrative and honest task, unless, of course... you're in some of it and everyone else says they'll tell on you, and you'd be telling on them, and everyone'd be telling on each other...
+- Seems like a person who *really needs the money* would be all over this very lucrative and honest task, unless, of course... you're in some of the porn, and everyone else whose in it says they'll tell on you, and you'd be telling on them, and everyone'd be telling on each other...
 - Isn't it.
 
 ### Fatbergs
