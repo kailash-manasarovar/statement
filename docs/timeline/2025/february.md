@@ -540,6 +540,24 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Anyway.
 - Was this an attempt to get me back on the porn-networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, sedated naked me?
 
+### Reminding Paul about the money I'm offering for films
+
+- I remind Paul that I'm offering a lot of money for any porn with me in it.
+- It seems like Paul would find it very easy to get hold of such films and images; he used to be obsessed with sex and was extremely lewd all the time.
+- He doesn't say much when I tell him I'm offering £1000 for a film.
+- I figure he's not interested in helping me.
+- I ask him to ask Matthew about any porn with me in; Matthew Copeland.
+- Paul speaks at this point.
+- He says: *you want me to ask Matthew Copeland if he can find any porn with you in it*.
+- It's like he's repeating what I said so someone else can hear it.
+- I say yes.
+- It's highly likely Matthew Copeland could find the porn with me in it.
+- Will you ask him? I say to Paul.
+- He says yes.
+- I never hear another word about this.
+- Seems like a person who *really needs the money* would be all over this very lucrative and honest task, unless, of course... you're in some of it and everyone else says they'll tell on you, and you'd be telling on them, and everyone'd be telling on each other...
+- Isn't it.
+
 ### Fatbergs
 
 - I'm curious about something.
