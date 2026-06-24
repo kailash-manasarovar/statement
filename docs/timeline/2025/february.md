@@ -457,6 +457,9 @@ Anyway. With the best. Tell your team to come into the office pls.
 - He's stocking up for when I leave him and stop buying him his meals.
 - It's a total tragedy.
 - Did Adams target Paul the same way they did my brother with his Lockerbie compensation - really-nice-geezer friends, a lovely looking lady, etc - knowing his mum was giving him tens of thousands to do the house up in Clovely Road?
+- What's interesting to me is how they maintain the reverence their robbed helpers have for them... that's quite interesting. Of course, a druggy has an unquestionable reverence for the drug-deliverer... but my brother seemed to have reverence for the misogyny of them... like that made them more special and worthy of bowing and scraping (snickering)..
+- Did they rape my brother violently causing him extreme trauma (he went to bed for over a year nearly in 2011)? Then carefully pulling him out of trauma but ensuring he'll do whatever they tell him to, just like they do with all their traumatized female porn-stars.
+- It would not surprise me.
 
 ## London
 
