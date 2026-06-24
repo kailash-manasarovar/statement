@@ -427,6 +427,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - We've sat down for about ten minutes when Lorraine's trans child, Jayden walks in.
 - When she was 13, or earlier, she was targeted online massively by the porn-gangs on Hazel Smith's instruction. Hazel won't deny it.
 - No doubt they sucked her into the self-harming porn circles at that time, and I wonder if they flashed some of that up to Lorraine in her last days, the way they did with [the porn of me when I was a kid](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x).
+- I'd put money on it.
 - The gangs have obviously requested Jayden's attendance at that very moment in the restaurant so that we see each other.
 - Jayden looks a bit surprised walking in, bemused, as if Jayden wasn't expecting such a large group of people to be there.
 - I'm not sure if Jayden sees me; although the Moors & Christians are looking over at us repeatedly, and they're bound to have pointed us out.
@@ -445,15 +446,16 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 - We stop at Lourdes for a few days on the way home.
 - I take Paul to see Mary.
-- His reaction to Her reminds me of my dad's [the Autumn before](../2024/september.md#lourdes-with-dad).
-- I sense a little shame but we don't talk about it.
+- His reaction to Her reminds me of my dad's reaction [the Autumn before](../2024/september.md#lourdes-with-dad).
+- Quietness, reluctance to meet Her properly, a little shame perhaps, but we don't talk about it.
 - As we walk through the grotto, we smell a very powerful perfume and he tells me it was the perfume his aunt wore, or someone close to him.
 - I thought this was marvelous.
 - I had planned to drive all the way through France back to the UK but I change my mind about it because Paul is driving me mad and taking the piss.
 - It's hard work.
-- I don't like hanging out with people who take the piss, or shout constantly about nothing, so I decide we'll get the boat home from Bilbao instead of spending days getting a massive druggy ear bashing through France.
+- My brain has a limit of how much it can put up with people who take the piss, or shout constantly about nothing, so I decide we'll get the boat home from Bilbao instead of spending days getting a massive druggy ear bashing through France which is a long drive.
 - On the boat, Paul fills every pocket he has with bottles from the bar.
-- He makes a chinking sound as he walks.
+- He has a lot of deep pockets, I noticed.
+- He's making a chinking sound as he walks.
 - He's stocking up for when I leave him and stop buying him his meals.
 - It's a total tragedy.
 - Did Adams target Paul the same way they did my brother with his Lockerbie compensation - really-nice-geezer friends, a lovely looking lady, etc - knowing his mum was giving him tens of thousands to do the house up in Clovely Road?
