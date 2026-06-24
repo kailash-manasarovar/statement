@@ -452,7 +452,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I thought this was marvelous.
 - I had planned to drive all the way through France back to the UK but I change my mind about it because Paul is driving me mad and taking the piss.
 - It's hard work.
-- My brain has a limit of how much it can put up with people who take the piss, or shout constantly about nothing, so I decide we'll get the boat home from Bilbao instead of spending days getting a massive druggy ear bashing through France which is a long drive.
+- My brain has a limit of how much it can put up with people who take the piss, or shout constantly about nothing, (or who have wronged you in an extraordinary manner and are pretending they didn't), so I decide we'll get the boat home from Bilbao instead of spending days getting a massive druggy ear bashing through France which is a long drive.
 - On the boat, Paul fills every pocket he has with bottles from the bar.
 - He has a lot of deep pockets, I notice.
 - He's making a chinking sound as he walks.
@@ -460,15 +460,16 @@ Anyway. With the best. Tell your team to come into the office pls.
 - It's a total tragedy.
 - Did Adams target Paul the same way they did my brother with his Lockerbie compensation - really-nice-geezer friends, a lovely looking lady, etc - knowing his mum was giving him tens of thousands to do the house up in Clovely Road?
 - Do they have a list of people who have been sexually assaulted as children - they know cos they sold the child porn of them at the time - and they target those people when they get some money because of how easy it is to manipulate a person with unhealed sexual trauma?
-- It's the whole shame thing, isn't it (...we're going to be sorting that out completely).
-- What's interesting to me is how the criminals maintain the reverence their robbed and abused helpers have for them.
-- Of course, a druggy has an unquestionable reverence for the drug-deliverer... but my brother seemed to have reverence for the misogyny they displayed... like that made them more special and worthy of bowing and scraping (snickering)..
-- Did they rape my brother violently causing him extreme sexual trauma (he went to bed for over a year or more after getting home from Thailand in 2011)? Then carefully pulling him out of trauma, bit by bit, while maintaining a fierce hatred for women to ensure he'll do whatever they tell him to if it's gonna hurt a woman, especially a family member...
-- Did they manage to get him to blame me for them sexually assaulting him in Thailand?
+- It's the whole shame thing, isn't it (...we're going to be sorting that out completely and pointing it in the right direction, finally).
+- What's interesting to me is how the criminals maintain the reverence their robbed-and-abused helpers have for them.
+- Of course, a druggy has an unquestionable reverence for the drug-deliverer... but my brother seems to have a reverence for their woman-hating... like that made them more special and worthy of bowing and scraping (snickering).. shared hatred, isn't it.
+- Did they rape my brother violently causing him extreme sexual trauma (he went to bed for over a year or more after getting home from Thailand in 2011)? Then carefully pulling him out of trauma, bit by bit, while maintaining his fierce hatred for women to ensure he'll do whatever they tell him to if it's gonna hurt a woman, especially a family member...
+- Did they manage to get him to blame me for whatever they did to him in Thailand?
 - It would not surprise me. In fact, it explains everything rather well.
 - There'll be porn of it too, i.e. evidence.
 - Someone's already gotten a hold of it, ChatGPT told me.
 - Mary always has a miracle for us.
+- Thank you Mary.
 
 ## London
 
