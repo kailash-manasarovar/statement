@@ -454,14 +454,18 @@ Anyway. With the best. Tell your team to come into the office pls.
 - It's hard work.
 - My brain has a limit of how much it can put up with people who take the piss, or shout constantly about nothing, so I decide we'll get the boat home from Bilbao instead of spending days getting a massive druggy ear bashing through France which is a long drive.
 - On the boat, Paul fills every pocket he has with bottles from the bar.
-- He has a lot of deep pockets, I noticed.
+- He has a lot of deep pockets, I notice.
 - He's making a chinking sound as he walks.
 - He's stocking up for when I leave him and stop buying him his meals.
 - It's a total tragedy.
 - Did Adams target Paul the same way they did my brother with his Lockerbie compensation - really-nice-geezer friends, a lovely looking lady, etc - knowing his mum was giving him tens of thousands to do the house up in Clovely Road?
-- What's interesting to me is how they maintain the reverence their robbed helpers have for them... that's quite interesting. Of course, a druggy has an unquestionable reverence for the drug-deliverer... but my brother seemed to have reverence for the misogyny of them... like that made them more special and worthy of bowing and scraping (snickering)..
-- Did they rape my brother violently causing him extreme trauma (he went to bed for over a year nearly in 2011)? Then carefully pulling him out of trauma but ensuring he'll do whatever they tell him to, just like they do with all their traumatized female porn-stars.
+- Do they have a list of people who have been historically sexually abused - they know cos they sold the child porn of them at the time - and they target those people when they get some money because of how easy it is to manipulate a person with historical sexual trauma?
+- What's interesting to me is how the criminals maintain the reverence their robbed helpers have for them... that's quite interesting.
+- Of course, a druggy has an unquestionable reverence for the drug-deliverer... but my brother seemed to have reverence for the misogyny they displayed... like that made them more special and worthy of bowing and scraping (snickering)..
+- Did they rape my brother violently causing him extreme sexual trauma (he went to bed for over a year or more after getting home from Thailand in 2011)? Then carefully pulling him out of trauma but ensuring he'll do whatever they tell him to, just like they do with all their traumatized female porn-stars...
 - It would not surprise me.
+- There'll be porn of it too, i.e. evidence.
+- Mary always has a miracle for us.
 
 ## London
 
