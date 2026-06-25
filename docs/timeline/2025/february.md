@@ -551,7 +551,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Paul knows Anita Diamond too and often talks about her, how she was bullied by another girl (but he's actually talking about me, it was very boring of him to do that...).
 - Anyway.
 - Was this an attempt to get me back making money on the porn-networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, sedated naked me?
-- Or was my "accidental" demise better managed out of the country where doctors can be paid off to make false statements about cause-of-death, etc, just like they do in Dénia?
+- Or was my "accidental" demise better managed out of the country where doctors can be more easily paid off to make false statements about cause-of-death, etc, just like they do in Dénia?
 
 ### Reminding Paul about the money I'm offering for porn with me in a starring role
 
