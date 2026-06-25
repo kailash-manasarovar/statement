@@ -927,6 +927,8 @@ function googleTranslateElementInit() {
 
 #### The great thing about Helen..
 
+![Helen](../../content/images/helen.jpg)
+
 - ..was she was so academically rigid, let's say careful, and quite sceptic, and this made her very believable.
 - I used to be the same.. which as part of spiritual seeking was very helpful.
 - But I think the thing which makes me an excellent course student has been my somewhat pathological inability to see the bad in people, particularly the people that I assumed loved me and would do nothing to hurt me.
