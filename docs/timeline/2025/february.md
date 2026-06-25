@@ -553,7 +553,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Was this an attempt to get me back making money on the porn-networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, sedated naked me?
 - Or was my "accidental" demise better managed out of the country where doctors can be more easily paid off to make false statements about cause-of-death, or the cause of your completely well 5-year-old having to suddenly use a colostomy bag, etc., just like they do in Dénia?
 
-### Reminding Paul about the money I'm offering for porn with me in a starring role
+### Reminding Paul about the money I'm offering for any porn with me starring
 
 - I remind Paul that I'm offering a lot of money for any porn with me in it.
 - I keep telling him about it, like I tell all my audience on social media repeatedly too.
@@ -579,7 +579,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I ask Paul if he's ever had to clear a fatberg from someone's drain.
 - He tells me yes.
 - I ask him how.
-- He says he gets the rod, sticks it down into where the fatberg is blocking everything, and just keeps poking on it with the rod.
+- He says he gets the rod, sticks it down into where the fatberg is blocking everything, and just keeps poking.
 - *You just keep poking at it and eventually it gives*, he says.
 - In the Autumn of this year, I will ask [Lea Batton](../pre-2001/1991.md#lea-batton), life-long friend and compadre of Paul on Facebook to tell Paul - who has blocked me since I found out about [Ugly and the gang](../2001-to-2010/2001.md#amsterdam) - my story is like a fatberg, *you just keep poking at it for long enough and eventually it gives*.
 - Paul, Lea, Matthew Copeland, and all their mates, most of North London it transpires, including my boyfriend Brian and his family (probably not his sister, you know the way they are) from 2001, know [Ugly - sedating and rapist ex-friend of the Dénia porn-gangs](../2024/august.md#ugly) - pretty well by all accounts.
@@ -587,6 +587,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 ![Fatberg](../../content/images/fatberg.png)
 
+- (I love the way ChatGPT put the sitting ducks - porn-gang code for a woman who doesn't know she's going to be murdered for porn - and North London's smiley faces in there while we were working on it...)
 - The most marvelous irony about the fatberg is how for years I was terrorized by men on social media who seemed to be obsessed with insulting me via my body shape-and-size.
 - It's what men do, isn't it, certainly that's the only sort of thing my father ever said to my mother; shaming statements about her body, her cooking, everything she did.
 - I mean it would make an already crazy person even crazier wouldn't it, especially if they had to assiduously pretend it was not happening.
