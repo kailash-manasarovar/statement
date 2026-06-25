@@ -191,7 +191,7 @@ I do, however, have a lot of God.
 - He warned me about the poisoning in my home, and my car, amongst other things.
 - While I was being severely and daily drugged with hallucinogens and toxic substances without my knowledge, it was hard to make sense of the information I was receiving, but I have been steadily piecing it all together.
 - There is no doubt in my mind that without this man's help, I would not be here today.
-- I also understand that, after the gangs failed once again to murder me in [July 2025](timeline/2025/july.md#lourdes), he requested asylum in Israel and it was granted.
+- I also understand that, after the gangs failed once again to murder me in [July 2025](timeline/2025/july.md#lourdes), he requested asylum in Israel (the only country in the world, it seems, that cares about the safety of women and children) and it was granted.
 
 ![Super-hero squirrel](content/images/super-hero-squirrel.png)
 
