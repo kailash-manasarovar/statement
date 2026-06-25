@@ -46,3 +46,16 @@
 - Today, it is business as usual at the conservatory.
 
 ![Conservatory BAU](../../content/images/conservatory-bau.jpg)
+
+## Staying next to the American Embassy in Bangkok
+
+- I stay for about 10 days in a lovely hotel right beside the embassy.
+- I feel a little safer, a little bit looked-after shall we say, it's somewhat comforting after trudging many circles of endless hell.
+- I'm not aware I'm a intuitive-detective at this point, solving crimes that no-one else can.
+- I will say that... if you don't tell the intuitive what they're doing and why, the intuitive may have a tendency to go off and work for others they feel more at home with.
+- Particularly when the Sarg. is JC himself.
+- Should I say this? Not sure... but anyway.. there it is, I said it.
+- On the room service menu there seems to be pages and pages of Caesar salad on offer.
+- And I only just got it today.
+- V funny guys.
+- <3
