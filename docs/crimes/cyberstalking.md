@@ -21,7 +21,7 @@ function googleTranslateElementInit() {
 ### Helpful notifications
 
 - In amongst the bombardment of porn and evil intentions, someone was giving me information.
-- I believe it may have been [trumpet teacher number one](../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man).
+- I believe it may have been [trumpet teacher number one](../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man).
 - It's possible he betrayed them after [a significant event between us](../timeline/2023/march.md#dreaming-of-the-trumpet-teacher), and then they all started betraying each other.
 - Certainly, they were *all* grassing each other up, and telling me everything, which was a bit silly of them, but of course they assumed I would be completely destroyed, like *all the others*, so why not.
 - Anyway, fake accounts like this one had helpful info:

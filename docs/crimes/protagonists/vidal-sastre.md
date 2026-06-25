@@ -36,7 +36,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - And they didn't care.
 - I guess I was paying for their Ferraris. 
 
-### The older, slimmer, greyer man
+### The older, slimmer, shorter, greyer man
 
 - He may have been the first of these men I saw at class before a switch took place.
 - I never stopped having an extremely good feeling about this man.
@@ -63,7 +63,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ### At least four more
 
 - There could be two or three similar looking men making up these memories.
-- One or two of them looked enough like the [older, slimmer man](#the-older-slimmer-greyer-man) for me to mistake them after brain damage and whatever [sedated psychological mistaking-people training](#sedated-training-for-recognizing-faces) they do.
+- One or two of them looked enough like the [older, slimmer man](#the-older-slimmer-shorter-greyer-man) for me to mistake them after brain damage and whatever [sedated psychological mistaking-people training](#sedated-training-for-recognizing-faces) they do.
 - One was different, I'm realizing now.
 
 #### The younger brother of the first man
@@ -72,6 +72,10 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - He was the man that [stalked me at Lourdes](../../timeline/2021/march.md#the-portuguese-man-next-door).
 - I believe [he was also driving Ugly](../../timeline/2001-to-2010/2001.md#amsterdam) in 2001.
 - I don't have a picture of this man but would recognize him immediately.
+
+!!! tip "An intuitive's vision for a few years now"
+    - The thing about this man is that I see him walking up a street in the dark under streetlights with a small bundle under his arm.
+    - I've been seeing this for years now, it's one of those persistent visions.
 
 #### Mark from English class in 2013
 
@@ -91,12 +95,13 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - I don't have a picture of this man but would recognize him immediately.
 - Tall, muscular, always dressed in black.
+- He may be the same man as the one I'm calling [the younger brother](#the-younger-brother-of-the-first-man) but I don't think so actually. This man was better looking.
 
 #### The brother of the Mercadona check out woman
 
 - This man was distinctive and different from the two I've just mentioned apart from in height and skin tone.
 - He looked exactly like his sister at the checkout in Mercadona, and not like Mark or the brother.
-- He may have been scared of Gloria.
+- He may have been scared of Gloria, he certainly looked scared of her one evening when she came into the classroom unable to control her laughter.
 - Someone will be able to confirm.
 
 #### A dashing, Heathcliff-sort, good-looking younger man with lots of black hair
@@ -104,6 +109,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Something purple about him.
 - Wearing black with some purple..
 - The handsome man in amongst the three other brutes; a pic I saw repeatedly on X but never screenshot for some strange reason.
+- Could be the Marc character, but again there was something different about him; perhaps the longer and more fuller head of hair.
 
 #### An older man maybe
 
@@ -124,7 +130,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - I've had a copy of this photo since August 2024. 
 - In October 2025, [I realized this man looked completely different to the other trumpet teachers](../../timeline/2025/october.md#thunderbolt-clarity), and was therefore just one of a group of men pretending to be the same manipulated love interest; proof I had been severely brain-damaged with deadly poisons over many years.
 - I'm not sure I have any more solid memories of this man at the conservatory apart from him being the [one who met me outside the conservatory](../../timeline/2023/april.md#disclosing-child-sexual-abuse) the class after I posted on X.
-- The younger brother in the pic looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../../timeline/2024/march/13-end.md#wednesday-13th-march) right before I became convinced I was going to be murdered.
+- The younger brother in the pic looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../../timeline/2024/march/13-end.md#wednesday-13th-march) right before [I became convinced I was going to be murdered](../../timeline/2024/march/13-end.md#the-pillow-game).
 - The girl in this picture is very familiar; I think it may be Gloria the conservatory school receptionist as a teenager.
 - I'm guessing everyone in Dénia and the Marina Alta region knows this man.
 - I remember Samuel telling me about Gloria's brother Ivan, and how *terrible* he was.
@@ -132,6 +138,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - I'm reliably informed by solid international sources that this man's name is Bruno.
 - He also appears to be the father of Natalia's son; who is also called Bruno.
 - I suspect he could also be the father of the [gloomy yoga teacher](../../timeline/2011-to-2020/2015.md#nati-de-prati-yoga); npc from Natalia's terror team back in 2015.
+- He also appears to be the father of a daughter of [the groomed woman](../../timeline/2024/august.md#grooming-an-innocent-girl-into-porn-101) I saw tons of photos of.
 - Bruno is a curiously Germanic name and I therefore wonder if he could be a descendent of Nazi war criminals who found safe-haven in Dénia and the surrounds after the second world war; a very open secret.
 
 ### Dark thick-curly-haired deep-set man
@@ -140,7 +147,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - I don't remember him ever being at the conservatory.
 - I remember him [in my bed calling my name](../../timeline/2023/april.md#dreaming-of-the-trumpet-teacher) which I now believe was not a dream.
 - He was the man I saw in the banged up Peugeot on the 11th June 2023, [the day before my *funeral*](../../timeline/2023/june.md#sunday-11th-june) and [driving past me at the beach with the doctor in the passenger seat](../../timeline/2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me), and [driving Ana Requena's blue car slowly past me](../../timeline/2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car).
-- He was also reminiscent of [Patricia Penny's husband](../../timeline/2021/december.md#christmas) and the [man who came out to terrorize me on Halloween](../../timeline/2023/october.md#halloween) but not exactly the same - those two men could well be the same man and related to this one.
+- He was also reminiscent of [Patricia Penny's husband](../../timeline/2021/december.md#christmas) and the [man who came out to terrorize me on Halloween](../../timeline/2023/october.md#halloween) but not exactly the same - those two men could well be related to this one.
 - He was in the bar with [Brian and Ugly in Amsterdam in 2001](../../timeline/2001-to-2010/2001.md#amsterdam).
 - This trumpet player, at the *funeral* of the young drugged-and-groomed girl behind him, looks like him and when I first saw this photo in June 2023 I recognized this man immediately as the trumpet teacher who had come to the conservatory to teach classes.
 
@@ -152,6 +159,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - Due to the age of these numerous YouTube films, I'm pretty sure they function as *music-student-porn-genre* adverts which means the danger to children studying music in Spain could be country-wide.
 - I also recognize this man as the same man who [interviewed me for a job where I would be looking at genitals all day](../../timeline/2011-to-2020/2016.md#march) in 2016, and who I saw in the town not long after.
+- He was also similar, related maybe to [the man who stalked me at EthCC](../../timeline/2024/july.md#meeting-a-weird-guy) who said he was from Alicante.
 - I believe he told me his name is Viktor, and that he is the man with [the nickname Vigas](../../timeline/2024/august.md#interview-with-the-hacker) who is running the [Beams grooming account](../../timeline/2024/may.md#beams).
 - He is the man depicted as a monster on this [police statement's book cover](../../index.md) sitting alongside Domingo Cano Lopez.
 - It's possible there's a group of similar looking men who may be brothers and cousins with curly black hair, some tall some not so, with chunky bodies.
@@ -176,7 +184,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 ![Trumpet teacher and Gloria receptionist](../../content/images/fake-accounts/ai-mix-of-trumpet-teachers-and-gloria.png)
 
 - Gloria's face, the music school receptionist, is the clearest image in this AI photo.
-- The face of the [first man](#the-older-slimmer-greyer-man) and the [second men](#at-least-four-more) are missing.
+- The face of the [first man](#the-older-slimmer-shorter-greyer-man) and the [second men](#at-least-four-more) are missing.
 - The eyes are from [the deep-set monstrous man](#dark-thick-curly-haired-deep-set-man), and the overall face shape is the [third man](#a-man-called-bruno-with-at-least-one-son-called-bruno), probably Gloria's brother Ivan.
 - The arrogance of the gang and their absolute certainty they will never be brought to justice is staggering.
 - The account today in January 2026 has the back of someone's head as a profile pic and is posting the same wild and sexist content as before.
@@ -215,13 +223,13 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Further down the list, we see a [newspaper article dated 21st October 2024](https://www.levante-emv.com/horta/2024/10/21/amistat-quart-de-poblet-mejor-banda-comunitat-valenciana-109945426.html) reporting on an award ceremony that had taken place on the weekend of the 19th October.
 - This at the same time I left for Fátima, and was just before my [home security system went dead](../../timeline/2024/october.md#the-router-malfunctions) for a week before I returned home and was [severely poisoned in my apartment](../../timeline/2024/october.md#serious-poisoning-with-intent-to-kill) over a few days.
 - One wonders if this was *quite* the alibi for a murder everyone knew was going to happen? And then didn't happen.
-- The [trumpet teacher](#the-older-slimmer-greyer-man) stands three men in from the right; a slim and not so tall man - certainly not large, muscular, and lumbering like the other men I remember.
+- The [trumpet teacher](#the-older-slimmer-shorter-greyer-man) stands three men in from the right; a slim and not so tall man - certainly not large, muscular, and lumbering like the other men I remember.
 - Did the band know how bad things had got for me, and how I steadfastly refused to back down and leave the children of Dénia in peril, and how much everyone was implicated in their continued sacrifice?
 - Did they know I was about to be fired from my job so as not to be witnessed by colleagues slowly dying online from poison coming from the water in my apartment?
 - Is this what has happened before to so many women and girls, and beautiful boys, who just want to innocently play music?
 - The article states the band is the best in the region.
 - We wonder, best at what?
-- [Trumpet teacher number one](#the-older-slimmer-greyer-man) stands proudly amongst the men receiving their awards at the prestigious Palau de Arts; although he looks a little shattered to me.
+- [Trumpet teacher number one](#the-older-slimmer-shorter-greyer-man) stands proudly amongst the men receiving their awards at the prestigious Palau de Arts; although he looks a little shattered to me.
 
 [![Award for the band of merry perverts](../../content/images/hornero/newspaper.png)](https://www.levante-emv.com/horta/2024/10/21/amistat-quart-de-poblet-mejor-banda-comunitat-valenciana-109945426.html)
 

@@ -150,7 +150,7 @@ function googleTranslateElementInit() {
 - The love-triangle intrigue trap had been set while I was extremely high.
 - He came back into class.
 - I was feeling very light-headed and high, smiley.
-- I believe this is where they first did a switcheroo, a new man came back into class, I think it was [the first man](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man), the man who gave me a genuinely good feeling.
+- I believe this is where they first did a switcheroo, a new man came back into class, I think it was [the first man](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man), the man who gave me a genuinely good feeling.
 - My heart was racing.
 - I thought it was because I fancied this man. 
 - Then the other student, Pablo Sesé Savall, a 14 year old boy, turns up to class. 
@@ -206,7 +206,7 @@ function googleTranslateElementInit() {
 
 - The music we practiced, before I took over a little bit, was a tune with a horse-theme.
 - I do not believe this was AT ALL accidental.
-- This was the *only* piece the trumpet teacher brought for rehearsals throughout the course until the evening [the first trumpet teacher I remember](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) introduced *My Way*, the drugged female-student funeral special, and God popped in [to take over proceedings from here](../2023/march.md#dreaming-of-the-trumpet-teacher).
+- This was the *only* piece the trumpet teacher brought for rehearsals throughout the course until the evening [the first trumpet teacher I remember](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man) introduced *My Way*, the drugged female-student funeral special, and God popped in [to take over proceedings from here](../2023/march.md#dreaming-of-the-trumpet-teacher).
 - When I think of Domingo's frequent use of the word *funeral* to describe concert pieces, I wonder if he was being very literal.
 
 ### Deafness

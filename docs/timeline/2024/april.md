@@ -307,7 +307,7 @@ function googleTranslateElementInit() {
 
 - In October, a Spanish government official will tell my friend from Madrid to tell me there is no record of anyone with this name in the Generalitat systems, a lie.
 - Someone, somewhere, with sufficient access to my devices was helping me with my investigation into what was going on.
-- Could it have been [number one trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man); a sole individual who saw exactly what the porn-addicted men of Spain have become, their self-made hellscape protected at the highest level, with seemingly nothing anyone can do about it?
+- Could it have been [number one trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man); a sole individual who saw exactly what the porn-addicted men of Spain have become, their self-made hellscape protected at the highest level, with seemingly nothing anyone can do about it?
 - Was he an anomaly amongst men, unusually worried for his own children? 
 - Am I the last hope for the dwindling sane in Spain?
 
@@ -776,7 +776,7 @@ function googleTranslateElementInit() {
 
 ![Lizarran](../../content/images/lizarran.jpg)
 
-- The man has the same build as [trumpet teacher number one](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) or [two](../../crimes/protagonists/vidal-sastre.md#at-least-four-more); the height (which would pinpoint either/or) is unclear because he's sitting down.
+- The man has the same build as [trumpet teacher number one](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man) or [two](../../crimes/protagonists/vidal-sastre.md#at-least-four-more); the height (which would pinpoint either/or) is unclear because he's sitting down.
 - He's wearing the same dirty brown leather jacket he wore to class, and his back is to me.
 - Beside him is a young girl with blond hair.
 - It's set up so that I see her clearly (although I remember nothing specific about how she looked) but not him.
@@ -798,7 +798,7 @@ function googleTranslateElementInit() {
 - They will have been filming, of course, so there's much evidence in the millions of famous-sedated-rape-porn-star collector's items scattered over the world.
 - When I wake up the following morning my whole body is vibrating with having had multiple orgasms throughout the night, I'm still extremely high on some kind of aphrodisiac and hallucinogen, and I'm utterly confused about how I feel.
 - In absence of any other conscious memory at the time, I believe I'm in love.
-- I must be familiar with a least one of the men that came back to my house that night - [trumpet teacher number one](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-greyer-man) maybe - for the trick to have worked so effectively.
+- I must be familiar with a least one of the men that came back to my house that night - [trumpet teacher number one](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man) maybe - for the trick to have worked so effectively.
 - This other man - the gypsy busker in the tunnel who ends up in Bali working for Polygon as their own specialist sedating-drugging-and-raping offsite expert, the man who is able to bring the sedated woman to orgasm for the boys while raping her - must have been intensely *introduced* to me that night in my apartment so that my body would remember him very well in just a couple of week's time.
 - It's likely he came round again, to keep me prepped before I left for Madrid, and it is also likely he entered my hotel room in Madrid with [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) - and [the man who popped up at EthCC](july.md#meeting-a-weird-guy) - both of whom were definitely in my hotel room in Madrid while I was sedated.
 
