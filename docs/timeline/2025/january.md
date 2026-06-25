@@ -822,9 +822,9 @@ function googleTranslateElementInit() {
 
 ### Paul asks to borrow money
 
-- I take Paul for dinner in Muswell Hill.
+- Before we leave for Glastonbury, or maybe the week after (it'll be on the card payments) I take Paul for pizza at Pizza Express in Muswell Hill.
 - He asks to borrow money from me.
-- I felt this coming.
+- I felt this coming, so it was probably before Glastonbury.
 - I say no.
 - A little later, I ask him how much he needs.
 - He says he owes money on his car insurance and money on his phone.
