@@ -820,6 +820,28 @@ function googleTranslateElementInit() {
 - He tells me to get my car detailed.
 - I look for a car detailing place in Madrid where I'm going to be staying in February - I'm lured online to a particular hotel around the corner from [the El Pais offices](february.md#el-pais) where I'll see a very interesting sedating-and-raping poster advertisement it seems - are they telling me that rapists control everything in Spain? seems likely - and there's a car detailer next door to the hotel too, who I will suspect work directly for the gangs once [I get my car back from them](february.md#car-detailing-in-madrid) and the space inside it seems to have been altered, lessened, in an unusual way as if they created a secret compartment behind the front dashboard for some reason.
 
+### Paul asks to borrow money
+
+- I take Paul for dinner in Muswell Hill.
+- He asks to borrow money from me.
+- I felt this coming.
+- I say no.
+- A little later, I ask him how much he needs.
+- He says he owes money on his car insurance and money on his phone.
+- I ask him how much he owes.
+- He tells me something like he's paying car insurance monthly and he's missed a payment.
+- I ask him how much money he owes on the phone.
+- He says £200.
+- I exclaim "£200"! How do you owe that much on your phone.
+- He says he spent £200 on online gambling on his phone.
+- I tell him he's an idiot and refuse.
+- He gets soooooo angry but he's pretending it's not with me.
+- He's up and down, on the phone with someone, fuming.
+- He obviously thought I was just gonna hand over £300+...
+- He obviously thought I was an idiot. 
+- They always do.
+- It's their major failing, their achilles, let's say.
+
 ### Telling Paul what's been going on for me
 
 - At a service station on the M3, finally, Paul stops talking for five minutes.

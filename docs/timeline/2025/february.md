@@ -475,29 +475,32 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 ### I release Paul
 
-- When we arrive back in the UK, I tell Paul I release him from his obligations.
+- When we arrive back in the UK, I tell Paul he is released from his obligations.
+- It's a huge relief for me.
 
-### Paul is furious with me
+### Paul is furious with me though... raging
 
-- For releasing him from his obligations, and my obligation to feed him.
+- ..for releasing him from his obligations, I guess, and the obligation on my side to feed him.
 - A total tragedy.
 - We arrive back in North London.
-- I'm driving Paul back to his car, where he lives.
+- I'm driving Paul back to where he's parked his car, his home.
 - It's late and we're both tired.
-- As we pull up to the junction at the bottom of Muswell Hill, the light goes green but it is not signalling right so I don't go. 
-- There's a feeder light usually. At least there was the last time I drove here, over 5 years previously.
-- Paul says, go go, it's green, and I'm tired and I don't expect him to take that much of the piss, so I move forward, but there is oncoming traffic so I can't turn right.
+- As we pull up to the junction at the bottom of Muswell Hill to turn right towards Hornsey, the light goes green but it is not signalling right, so I don't go. 
+- There's a feeder light usually. At least there was the last time I drove here, over 5 years previously or more even.
+- Paul says, *go go, it's green*, and I'm tired and I don't expect him to take that much of the piss, so I move forward, but there is oncoming traffic so I can't turn right.
 - I break and ride the clutch a little bit but the car won't move, it is revving hard, but not moving, and I'm trying to go in and out of first, and I can smell this awful smell.
-- (Paul been pulling the handbrake button without my knowledge.)
+- (Paul been pulling the handbrake button up without my knowledge.)
 - "What's that smell?" I say.
 - "You hammered the clutch," Paul says.
 - It's too late to think about this more but I know something's wrong with this picture.
-- I leave Paul at his car and thank him for saving my life.
+- Exhausted now, I leave Paul at his car and thank him for saving my life.
 - "You saved my life Paul", I say and I'm very grateful.
+- We hugs.
 - I drive home alone.
-- The next day or a few days later I noticed someone has glued my car.
+- The next day or a few days later I noticed someone has glued the paintwork on my car.
 - Was it Paul? 
 - Was he *that* angry with me? 
+- I don't really care about things like this anyway, but I guess it could have been anyone instructed to, or Paul, and I am to find out there are willing porn-stalkers literally everywhere I go in London, every time I step outside of the house away from the very willing porn-stalkers at 31.
 
 ### WTF
 
