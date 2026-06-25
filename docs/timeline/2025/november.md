@@ -49,7 +49,7 @@
 
 ## Staying next to the American Embassy in Bangkok
 
-- I stay for about 10 days in a lovely hotel right beside the embassy booked online, of course.
+- I stay for about 10 days in a lovely hotel right beside the embassy, booked online, of course.
 - I feel a little safer, a little bit looked-after shall we say.
 - It's somewhat comforting after trudging many circles of seemingly endless hell.
 - I'm not aware I'm a intuitive-super-detective at this point, solving crimes against humanity that no-one else can.
