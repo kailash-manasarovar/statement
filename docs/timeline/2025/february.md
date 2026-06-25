@@ -483,35 +483,39 @@ Anyway. With the best. Tell your team to come into the office pls.
 - ..for releasing him from his obligations, I guess, and the obligation on my side to feed him.
 - A total tragedy.
 - We arrive back in North London.
-- I'm driving Paul back to where he's parked his car, his home.
+- I'm driving Paul back to where he's parked his car in Hornsey, his home.
 - It's late and we're both tired.
 - As we pull up to the junction at the bottom of Muswell Hill to turn right towards Hornsey, the light goes green but it is not signalling right, so I don't go. 
 - There's a feeder light usually. At least there was the last time I drove here, over 5 years previously or more even.
 - Paul says, *go go, it's green*, and I'm tired and I don't expect him to take that much of the piss, so I move forward, but there is oncoming traffic so I can't turn right.
-- I break and ride the clutch a little bit but the car won't move, it is revving hard, but not moving, and I'm trying to go in and out of first, and I can smell this awful smell.
+- I break and ride the clutch a little bit, waiting for a space between the cars to turn right, but the car won't move, it is revving hard, but not moving, and I'm trying to go in and out of first, and I can smell this awful smell.
 - (Paul been pulling the handbrake button up without my knowledge.)
 - "What's that smell?" I say.
 - "You hammered the clutch," Paul says.
 - It's too late to think about this more but I know something's wrong with this picture.
-- Exhausted now, I leave Paul at his car and thank him for saving my life.
+- Exhausted after the trip, I leave Paul at his car and thank him for saving my life.
 - "You saved my life Paul", I say and I'm very grateful.
 - We hugs.
-- I drive home alone.
-- The next day or a few days later I noticed someone has glued the paintwork on my car.
+- I drive home alone but I'm not feeling safe, at all.
+- The next day, or a few days later I noticed someone had glued the paintwork on my car.
 - Was it Paul? 
 - Was he *that* angry with me? 
-- I don't really care about things like this anyway, but I guess it could have been anyone instructed to, or Paul, and I am to find out there are willing porn-stalkers literally everywhere I go in London, every time I step outside of the house away from the very willing porn-stalkers at 31.
+- I don't really care about things like this anyway, but I guess it could have been anyone instructed to, or Paul, and I am about to find out there are willing porn-stalkers literally everywhere I go in London, every time I step outside of the house away from the very willing porn-stalkers-and-supporters at 31.
 
 ### WTF
 
-- After I leave Paul in Hornsey, I carry on back to N2.
-- At some point, a car pulls in front of me and drives in step with me.
-- I think it has pulled out of Summerlea Avenue or Durham Road maybe.
+- After I leave Paul in Hornsey, I carry on the short drive back to N2.
+- At some point, a car pulls out in front of me and drives in step with me.
+- I think it pulled out of Summerlea Avenue or Durham Road maybe, one of the roads on Fortis Green.
 - I notice the woman driver a little.
+- Remembering: burgundy and old, a small unattractive car with a few bumps on it.
 - I end up following it all the way along Fortis Green then East End Road to Church Lane N2 where I pull off to the right.
 - The car's number plate is XXXX WTF. (The Xs are numbers I can't remember.)
 - The woman driver looks a bit like [Hala](../2023/july.md#hala), but much more like [the woman I will see in the waiting room at the doctors surgery](september.md#rutland-house-surgery-muswell-hill) when I go in to report all the poisoning symptoms over many years I have listed for them, and they're all hopping around, making sure the network's down so they can't add it to the system, etc....
-- I will see a few more interesting number plates over the next few months that seem to be very specifically for me to see.
+- I will see a few more interesting number plates over the next few months that seem to come out very specifically for me to see.
+- I must be very, very famous already for all this fuss.
+- I can't really fathom all the fuss at the time, but it is very unnerving.
+- The stalking has already begun and I haven't even got back to 31.
 
 ### Paul and my brother
 
