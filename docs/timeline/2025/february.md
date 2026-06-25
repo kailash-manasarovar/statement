@@ -519,21 +519,26 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 ### Paul and my brother
 
-- Paul is around a bit still.
+- Paul is hanging around a bit still; doing some odd jobs for my mum until she gets thoroughly pissed off with him.
 - After meeting my brother briefly, he keeps saying how he *wants to help my brother*, like be a mentor of some sort.
 - It's weird.
 - Why have they asked him to do that?
 - Shared sexual trauma and hatred of me?
-- Or are they suspicious of some of my brothers posher friends and want more information?
+- Or are they suspicious of some of my brother's posher friends and want more information? It's totally this.
 
 ### Paul invites me on holiday to Malta
 
 - Paul's desperate to keep seeing me.
-- But he hates me so much, it's inexplicable.
-- One day I buy him lunch and we go for a short walk afterwards.
-- He wants me to go swimming with him regularly, something we used to do in the 90s.
+- But he hates me so much, I'm sad about the conflict he must be feeling inside.
+- It makes him (unconsciously I suppose) rude, dishonest, vengeful, and unpleasant in an extremely obvious way.
+- One Sunday afternoon at Rani's in Finchley Central, I buy him lunch and we go for a short walk in Victoria Park afterwards.
+- He talks about Jerry Brady a lot and how Jerry Brady drives Marky Mark around when he comes to the UK.
+- Was Jerry involved in the ugly sedating business?
+- Jerry was mates with my boyfriend Brian at the time [Ugly and his pals from Dénia sedated-and-raped me in Amsterdam with Brian's help](../2001-to-2010/2001.md#amsterdam).
+- Did Jerry and his missus know about all that too? 
+- Paul suggests we go swimming regularly, something we used to do in the 90s.
 - I decline.
-- He wants us to go on holiday together, to Malta, with his son.
+- He wants us to go on holiday together, to Malta, with his younger son.
 - He knows how much it costs and he's really trying to sell it to me.
 - It's even more inexplicable. 
 - Paul has no money.
@@ -541,15 +546,17 @@ Anyway. With the best. Tell your team to come into the office pls.
 - All the money he gets goes on drugs.
 - How is he going to afford a holiday to Malta? 
 - It's impossible unless there is an ulterior motive.
-- Did the porn-gangs ask him to invite me to Malta for a holiday?
+- Did the porn-gangs ask him to invite me to Malta for a holiday, telling Paul they'd pay for everything?
 - Interestingly, Malta is where [Qredo](../2021/march.md#qredo) are based.
-- Paul knows Anita Diamond too and often talks about her, how she was bullied by another girl (but he's actually talking about me, it's very boring of him...).
+- Paul knows Anita Diamond too and often talks about her, how she was bullied by another girl (but he's actually talking about me, it was very boring of him to do that...).
 - Anyway.
-- Was this an attempt to get me back on the porn-networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, sedated naked me?
+- Was this an attempt to get me back making money on the porn-networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, sedated naked me?
+- Or was my "accidental" demise better managed out of the country where doctors can be paid off to make false statements about cause-of-death, etc, just like they do in Dénia?
 
-### Reminding Paul about the money I'm offering for films
+### Reminding Paul about the money I'm offering for porn with me in a starring role
 
 - I remind Paul that I'm offering a lot of money for any porn with me in it.
+- I keep telling him about it, like I tell all my audience on social media repeatedly too.
 - It seems like Paul would find it very easy to get hold of such films and images; he used to be obsessed with sex and was extremely lewd all the time.
 - He doesn't say much when I tell him I'm offering £1000 for a film.
 - I figure he's not interested in helping me.
