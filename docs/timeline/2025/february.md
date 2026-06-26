@@ -628,10 +628,10 @@ Anyway. With the best. Tell your team to come into the office pls.
 - And I'm horrified that all this really good stuff - most of it new - is going to the local dump.
 - I tell the police how concerned I am that people will decide to take my poisoned belongings home with them thinking it's good and decent, with no idea it's doused with pesticides, and they might let their kids sleep under my duvets or on my pillows, I mean it's just horrific.
 - The police are not interested.
-- I have explained that all my stuff is doused in pesticides and this is what I'm going to have to do with it to the [two policewomen who turn up to disappoint me](january.md#i-report-hacking-drugging-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police).
+- I explained that all my stuff is doused in pesticides and this is what I'm going to have to do with it to the [two policewomen who turn up to disappoint humanity](january.md#i-report-hacking-drugging-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police).
 - I tell this to the police and the Baroness too, in one of my many missives.
 - No-one cares.
-- It's utterly extraordinary, unless they have been conspiring with Adams directly to get my brother to make sure it is all destroyed properly, but I doubt that very much.
+- It's utterly extraordinary, unless they have been conspiring with Adams directly to get my brother to make sure it is all destroyed properly, but I doubt that very much and even if they did arrange something like this, it would not be sufficient to protect the general public from severe maiming by pesticides.
 
 ## Release the fatbergs
 
