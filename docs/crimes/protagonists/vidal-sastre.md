@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 The pages in this section list the main players in the violent three-year attack on my physical, emotional, sexual, and psychological wellbeing. 
 
-It includes teachers and staff from the conservatory of Dénia, and others.
+It includes teachers and staff from the conservatory of Dénia, known criminals, and others.
 
 The people involved were seasoned professionals in the gang-stalking game, and sexual grooming online and in person. Therefore, the chances of me being the only victim is *zero*. 
 
@@ -20,8 +20,19 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - The *main* porn genre created throughout November 2022 to June 2023 in person with the support of teachers and staff at the conservatory, and then beyond at my apartment and perhaps even while traveling for work is called *switcheroo*.
 - From research, I understand this commonly means a blindfolded target for multiple men.
-- In my case, the blindfold was continuous drugging and poisoning which made my sight extremely blurred, and intricately choreographed scenarios at the conservatory in which the men would literally switch to play the role of the trumpet teacher with this name.
-- This must mean, in my view, that the conservatory is wired up with spy-cams that also livestream onto porn networks.
+- In my case, the blindfold was decades of poisoning to give me a stroke-like symptom whereby I cannot recognize objects out of context and continuous drugging and poisoning which made my sight extremely blurred, and intricately choreographed scenarios at the conservatory in which multiple men would literally switch to play the role of the one trumpet teacher with this name.
+- The conservatory, therefore, must also be wired up with spy-cams that livestream onto porn networks.
+
+##### What switcheroo-porn really requires
+
+- Interestingly, if criminal porn-production companies get a victim to a state of brain-damage whereby she's ready to star in some sort of switcheroo porn special, then the men involved *must* be viewable by the porn audience.
+- If not, there's no switcheroo!
+- Of course, the men have to visibly switcheroo in public, with face-and-body very visible, as the porn-special was filmed in classes at the conservatory and the men involved were pretending to be "teachers".
+- So they had to be fully seen.
+- Back at the sedated-rape spy-cam apartment, they may put masks on or somehow hide their appearance... but perhaps not.
+- They've already been seen very clearly at the switcheroo stage in public, unmasked, with a semi-conscious drugged victim, so why bother hiding later on?
+- Clearly, these men are above and beyond the law so maybe they boldly show themselves - what heroes, legends!
+- Required above and beyond anything else is the certainty that the victim will not survive to tell the tale.
 
 ### Six distinct men 
 
