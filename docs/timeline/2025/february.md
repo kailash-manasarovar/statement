@@ -611,7 +611,8 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I'm sitting at the kitchen table with my parents one morning and I have bone-deep aches in my neck, back, shoulders, legs, everywhere, and I tell my parents about it.
 - And then I'm high, and confused, and I forget, and I go back to bed under my murderous duvet.
 - For some reason, I just put up with these pains, I don't think about them, but everything is aching, my neck, back, hip, legs, hands, skull, everything.
-- Did my parents and brother play it down: *oh it's probably nothing*, or similar, and my altered awareness took their suggestions seriously?
+- I must say here that my pain threshold is extremely high (you may have noticed).
+- But, did my parents and brother play it down: *oh it's probably nothing*, or similar, and my altered awareness took their suggestions seriously?
 - I'm home for about two weeks before I travel to Israel, and away from my duvet and other poisoned belongings.
 - After a day or two in Israel staying in a hotel, all the pains disappear suddenly and miraculously (apart from in my feet, ankles, and lower leg bones from the shoes I'm wearing, and my head one afternoon after I wear my hat for half-an-hour in the sun), and I realize fully and with some horror that all my belongings have been doused with pesticides.
 - I contact my mother from Israel urgently and tell her to bag up my duvet and put it in the loft as it has been doused in pesticides.
@@ -624,9 +625,11 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Something is still making me a little confused, a little unable to make good decisions about my life, a little unable to put two-and-two together.
 - My guess is there's something toxic in my bathroom products still, but I can't figure out how they could have gotten access, unless Paul or my brother, or a hotel cleaner in Spain (likely) was tasked with some evil.
 - The gangs need to ensure I don't remember [the switcheroo porn-scam](october.md#thunderbolt-clarity) which I eventually do.
-- I believe they were just waiting for me to die by the effects of poisoning and then everyone's little problem will have disappeared, until it pops up again in an even more horrific way, you know the way that happens in these horrific situations.
-- On top, maybe pesticides and poisons take a while to come out of the body and still effect the mind detrimentally on the way out?
+- I believe they were just waiting for me to die by the effects of poisoning and then everyone's little problem will have disappeared, until it pops up again in an even more horrific way, you know the way that happens in these vile situations where everyone's desperate to protect child sexual abusers and murderers!
+- My view is that no-one wants to be friends with the baby-rape industrialists. It's gonna be really bad for business.
 - Anyway.
+- On top, maybe pesticides and poisons take a while to come out of the body and still effect the mind detrimentally on the way out?
+- Anyway, anyway.
 - I end up having to throw away nearly everything I own - clothes, shoes, soft furnishings, furniture, plastic items, electronics, everything - as it has been doused in pesticides to the extent that using or touching these items can maim or kill.
 - It is tens of thousands of pounds worth of belongings sent to the local dump.
 - And I'm horrified that all this really good stuff - most of it new - is going to the local dump.
