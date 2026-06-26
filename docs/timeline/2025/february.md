@@ -599,10 +599,10 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 ![Fatberg of North London](../../content/images/fatberg-of-north-london.png)
 
-## My belongings have been doused in pesticides
+## All my belongings have been doused in pesticides
 
-- When I get back to East Finchley with my belongings, I realize that everything has been doused in pesticides or similar.
-- It's curious because I knew this before, from the end of October when they were poisoning me with methanol or whatever it was.
+- When I get back to East Finchley with my belongings, I realize that everything I own has been doused in pesticides or similar.
+- It's curious because I knew this before, from the end of October when they were poisoning me in my apartment with methanol or whatever it was, and after [they had brought my security cam down for a week](../2024/october.md#the-router-malfunctions) so I couldn't see them bringing the farming-machinery in to my home to spray with pesticides.
 - So how I forgot all about this, is extraordinary and for a short while, I don't notice the toxicity.
 - I'm high, I'm confused, I'm not thinking straight at all.
 - This is how my mind was in London in 2025.. I'd remember something, then forget, then remember again; I was in a haze actually.
@@ -613,16 +613,19 @@ Anyway. With the best. Tell your team to come into the office pls.
 - For some reason, I just put up with these pains, I don't think about them, but everything is aching, my neck, back, hip, legs, hands, skull, everything.
 - Did my parents and brother play it down: *oh it's probably nothing*, or similar, and my altered awareness took their suggestions seriously?
 - I'm home for about two weeks before I travel to Israel, and away from my duvet and other poisoned belongings.
-- After a day or two in Israel staying in a hotel, all the pains disappear (apart from in my feet, ankles, and lower leg bones from the shoes I'm wearing, and my head one afternoon after I wear my hat for half-an-hour in the sun), suddenly and miraculously, and I realize fully and with some horror that all my belongings have been doused with pesticides.
+- After a day or two in Israel staying in a hotel, all the pains disappear suddenly and miraculously (apart from in my feet, ankles, and lower leg bones from the shoes I'm wearing, and my head one afternoon after I wear my hat for half-an-hour in the sun), and I realize fully and with some horror that all my belongings have been doused with pesticides.
 - I contact my mother from Israel urgently and tell her to bag up my duvet and put it in the loft as it has been doused in pesticides.
-- For some reason, she doesn't follow my instructions.
+- I tell her we need to keep it for evidence.
+- When I'm back from Israel, I ask her if she did what I asked her too.
+- For some reason, she didn't.
 - Instead she throws my duvet away - well, she gets Robert to throw it away because that's what he does most days, for some reason, go to the local dump with rubbish!
 - Interesting, isn't it.
-- I realize my shoes have been doused in pesticides too, but I only brought one pair and, for some reason, I don't buy a new pair.
+- I realize my shoes have been doused in pesticides too, but I only brought one pair and, for some reason, I don't buy a new pair when I'm in Jerusalem which would have been the thing to do.
 - Something is still making me a little confused, a little unable to make good decisions about my life, a little unable to put two-and-two together.
-- My guess is there's something toxic in my bathroom products still.
-- They need to ensure I don't remember [the switcheroo porn-scam](october.md#thunderbolt-clarity) which I eventually do.
-- And, on top, maybe pesticides and poisons take a while to come out of the body and still effect the mind detrimentally on the way out?
+- My guess is there's something toxic in my bathroom products still, but I can't figure out how they could have gotten access, unless Paul or my brother, or a hotel cleaner in Spain (likely) was tasked with some evil.
+- The gangs need to ensure I don't remember [the switcheroo porn-scam](october.md#thunderbolt-clarity) which I eventually do.
+- I believe they were just waiting for me to die by the effects of poisoning and then everyone's little problem will have disappeared, until it pops up again in an even more horrific way, you know the way that happens in these horrific situations.
+- On top, maybe pesticides and poisons take a while to come out of the body and still effect the mind detrimentally on the way out?
 - Anyway.
 - I end up having to throw away nearly everything I own - clothes, shoes, soft furnishings, furniture, plastic items, electronics, everything - as it has been doused in pesticides to the extent that using or touching these items can maim or kill.
 - It is tens of thousands of pounds worth of belongings sent to the local dump.
