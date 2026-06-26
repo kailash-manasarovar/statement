@@ -617,8 +617,8 @@ Anyway. With the best. Tell your team to come into the office pls.
 - After a day or two in Israel staying in a hotel, all the pains disappear suddenly and miraculously (apart from in my feet, ankles, and lower leg bones from the shoes I'm wearing, and my head one afternoon after I wear my hat for half-an-hour in the sun), and I realize fully and with some horror that all my belongings have been doused with pesticides.
 - I contact my mother from Israel urgently and tell her to bag up my duvet and put it in the loft as it has been doused in pesticides.
 - I tell her we need to keep it for evidence.
-- When I'm back from Israel, I ask her if she did what I asked her too.
-- For some reason, she didn't.
+- When I'm back from Israel, I ask her about it.
+- For some reason, she didn't bag up the toxic duvet and put it in the loft.
 - Instead she throws my duvet away - well, she gets Robert to throw it away because that's what he does most days, for some reason, go to the local dump with rubbish!
 - Interesting, isn't it.
 - I realize my shoes have been doused in pesticides too, but I only brought one pair and, for some reason, I don't buy a new pair when I'm in Jerusalem which would have been the thing to do.
@@ -635,8 +635,8 @@ Anyway. With the best. Tell your team to come into the office pls.
 - And I'm horrified that all of this really good stuff - most of it new - is going to the local dump.
 - I tell the police how concerned I am that people will decide to take my poisoned belongings home with them thinking they're good and decent items, with no idea they've been doused with pesticides, and they might let their kids sleep under my duvets or on my pillows, I mean it's just horrific.
 - The police are not interested.
-- I explained that all my stuff is doused in pesticides and this is what I'm going to have to do with it to the [two policewomen who turn up to disappoint humanity](january.md#i-report-hacking-drugging-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police).
-- I tell this to the police and the Baroness too, in one of my many missives.
+- I explained that all my stuff is doused in pesticides and this is what I'm going to have to do with it to the [two policewomen who turned up to disappoint humanity](january.md#i-report-hacking-drugging-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police).
+- I tell this repeatedly to the police and the Baroness too, in one of my many missives.
 - No-one cares.
 - It's utterly extraordinary, unless they have been conspiring with Adams directly to get my brother to make sure it is all destroyed properly, but I doubt that very much and even if they did arrange something like this, it would not be sufficient to protect the general public from severe maiming by pesticides.
 - And then I realize with a start why there's no second hand shops in Spain!
