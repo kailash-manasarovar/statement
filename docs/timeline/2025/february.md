@@ -632,7 +632,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Anyway, anyway.
 - I end up having to throw away nearly everything I own - clothes, shoes, soft furnishings, furniture, plastic items, electronics, everything - as it has been doused in pesticides to the extent that using or touching these items can maim or kill.
 - It is tens of thousands of pounds worth of belongings sent to the local dump.
-- And I'm horrified that all this really good stuff - most of it new - is going to the local dump.
+- And I'm horrified that all of this really good stuff - most of it new - is going to the local dump.
 - I tell the police how concerned I am that people will decide to take my poisoned belongings home with them thinking they're good and decent items, with no idea they've been doused with pesticides, and they might let their kids sleep under my duvets or on my pillows, I mean it's just horrific.
 - The police are not interested.
 - I explained that all my stuff is doused in pesticides and this is what I'm going to have to do with it to the [two policewomen who turn up to disappoint humanity](january.md#i-report-hacking-drugging-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police).
