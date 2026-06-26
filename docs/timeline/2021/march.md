@@ -19,13 +19,15 @@ function googleTranslateElementInit() {
 
 - From time to time, a man visits and he stays in the apartment next to mine - or he has access to it because I see him coming and going from there.
 - Sometimes, when I'm coming out of my apartment, he comes out of the one beside mine at exactly the same time, and he always looks at me.
-- He makes sure I see his face. He needs me to [recognize him in the future](../../crimes/protagonists/vidal-sastre.md#the-younger-brother-of-the-first-man).
+- He's wearing cycling or hiking gear, lycra.
+- He makes sure I see his face. 
+- He needs me to [recognize him in the future](../../crimes/protagonists/vidal-sastre.md#the-younger-brother-of-the-first-man).
 - The reception staff know him to be Portuguese. 
 - He looks like [the Benijembla trumpet teacher](../2022/november.md#walking-in-benijembla-with-the-english-ladies), except I'm not to meet the trumpet teacher for 18-24 months still.
 - Whenever he visited, on usually a Sunday or Monday night, he got together with some of the younger men there and they had loud drinking sessions into the night and played loud rave music.
 - The staff at the Acacia will remember him; as will the male residents who drank with him, some of whom I will know too.
-- Was he sent by British criminal gangs to hack into my home network and begin poisoning me so that I became brain damaged, making me unable to recognize differences in objects out of context - and so believe [four different men to be the same one man](../../crimes/protagonists/vidal-sastre.md#six-distinct-men)?
-- I also believe today that [he was one of Ugly's drivers](../2001-to-2010/2001.md#amsterdam) back in 2001, and he probably wanted to test I didn't recognize him from then either.
+- Was he sent by British criminal gangs to hack into my home network and begin poisoning me so that I became brain damaged, making me unable to recognize differences in objects out of context - and so believe [a bunch of different men to be the same one man](../../crimes/protagonists/vidal-sastre.md#six-distinct-men)?
+- I also believe that [he was one of Ugly's drivers](../2001-to-2010/2001.md#amsterdam) back in 2001, and he probably wanted to test I didn't recognize him from then either.
 
 !!! tip "Thoughts on this startling realization"
     - Gypsies usually speak multiple languages fluently, and I suspect it would not be hard to convince the French staff he was Portuguese not Spanish, except for identification documents.
@@ -33,6 +35,8 @@ function googleTranslateElementInit() {
     - My suspicions are that he came to access my network and online activity at that time, and possibly needed to be close enough physically to do so because I was running a 4g router that pinged off a French telecommunications tower.
     - I'm also now wondering if he managed to gain access to my room too to begin the brain-damage poisoning.
     - I'm curious about a very unwell feeling I had the day I left for holiday in Spain, and the invasive bed bug problem, a situation which prompted me to change all my plans for Christmas and go to Dénia instead, where I found and rented the flat in Carrer Furs via online manipulation.
+    - I'm also concerned about how I felt like [I was shouting in my sleep to wake myself up](april.md#something-weird-happening-when-i-sleep) which I told Anita about.
+    - My room at the Acacia was extremely easy to access, and I was unable to bolt the door securely from the inside either (health and safety apparently).
 
 ## Qredo
 
