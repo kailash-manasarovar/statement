@@ -74,3 +74,4 @@ function googleTranslateElementInit() {
 - She says to me, and I quote: *you know, why don't you do some menial job, like a secretary, instead of what you've been doing.*
 - And I have to wonder who put that idea into her little head, and whether they're now dropping my brother in it massively, since dad's already super-doomed.
 - Seems likely.
+- Perhaps she thought it up all by herself, intending the very worst with it.
