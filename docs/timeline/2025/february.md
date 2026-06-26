@@ -601,18 +601,19 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 ## My belongings have been doused in pesticides
 
-- When I get back to East Finchley with my belongings, I realize that all my belongings have been doused in pesticides or similar.
+- When I get back to East Finchley with my belongings, I realize that everything has been doused in pesticides or similar.
 - It's curious because I knew this before, from the end of October when they were poisoning me with methanol or whatever it was.
 - So how I forgot all about this, is extraordinary and for a short while, I don't notice the toxicity.
 - I'm high, I'm confused, I'm not thinking straight at all.
+- This is how my mind was in London in 2025.. I'd remember something, then forget, then remember again; I was in a haze actually.
 - Someone, somehow is managing to drug me.
-- I do notice, however, pains all over my body.
+- After a few days at 31 though I do notice pains all over my body.
 - I'm sitting at the kitchen table with my parents one morning and I have bone-deep aches in my neck, back, shoulders, legs, everywhere, and I tell my parents about it.
 - And then I'm high, and confused, and I forget, and I go back to bed under my murderous duvet.
-- For some reason, I just put up with these pains, I don't think about them, but everything is aching, my neck, back, hip, legs, hands, everything.
-- Did my parents and brother play it down: *oh it's probably nothing*, or similar, and my altered awareness took the suggestion seriously?
+- For some reason, I just put up with these pains, I don't think about them, but everything is aching, my neck, back, hip, legs, hands, skull, everything.
+- Did my parents and brother play it down: *oh it's probably nothing*, or similar, and my altered awareness took their suggestions seriously?
 - I'm home for about two weeks before I travel to Israel, and away from my duvet and other poisoned belongings.
-- After a day or two in Israel staying in a hotel, all the pains disappear (apart from in my feet, ankles, and lower leg bones), suddenly and miraculously, and I realize fully and with some horror that all my belongings have been doused with pesticides.
+- After a day or two in Israel staying in a hotel, all the pains disappear (apart from in my feet, ankles, and lower leg bones from the shoes I'm wearing, and my head one afternoon after I wear my hat for half-an-hour in the sun), suddenly and miraculously, and I realize fully and with some horror that all my belongings have been doused with pesticides.
 - I contact my mother from Israel urgently and tell her to bag up my duvet and put it in the loft as it has been doused in pesticides.
 - For some reason, she doesn't follow my instructions.
 - Instead she throws my duvet away - well, she gets Robert to throw it away because that's what he does most days, for some reason, go to the local dump with rubbish!
@@ -621,17 +622,18 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Something is still making me a little confused, a little unable to make good decisions about my life, a little unable to put two-and-two together.
 - My guess is there's something toxic in my bathroom products still.
 - They need to ensure I don't remember [the switcheroo porn-scam](october.md#thunderbolt-clarity) which I eventually do.
-- Or, on top maybe pesticides and poisons take a while to come out of the body and still effect the mind detrimentally on the way out?
+- And, on top, maybe pesticides and poisons take a while to come out of the body and still effect the mind detrimentally on the way out?
 - Anyway.
 - I end up having to throw away nearly everything I own - clothes, shoes, soft furnishings, furniture, plastic items, electronics, everything - as it has been doused in pesticides to the extent that using or touching these items can maim or kill.
 - It is tens of thousands of pounds worth of belongings sent to the local dump.
 - And I'm horrified that all this really good stuff - most of it new - is going to the local dump.
-- I tell the police how concerned I am that people will decide to take my poisoned belongings home with them thinking it's good and decent, with no idea it's doused with pesticides, and they might let their kids sleep under my duvets or on my pillows, I mean it's just horrific.
+- I tell the police how concerned I am that people will decide to take my poisoned belongings home with them thinking they're good and decent items, with no idea they've been doused with pesticides, and they might let their kids sleep under my duvets or on my pillows, I mean it's just horrific.
 - The police are not interested.
 - I explained that all my stuff is doused in pesticides and this is what I'm going to have to do with it to the [two policewomen who turn up to disappoint humanity](january.md#i-report-hacking-drugging-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police).
 - I tell this to the police and the Baroness too, in one of my many missives.
 - No-one cares.
 - It's utterly extraordinary, unless they have been conspiring with Adams directly to get my brother to make sure it is all destroyed properly, but I doubt that very much and even if they did arrange something like this, it would not be sufficient to protect the general public from severe maiming by pesticides.
+- And then I realize with a start why there's no second hand shops in Spain!
 
 ## Release the fatbergs
 
