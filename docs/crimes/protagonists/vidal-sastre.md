@@ -34,7 +34,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Back at the sedated-rape spy-cam apartment, they may put masks on or somehow hide their appearance... but perhaps not.
 - They've already been seen very clearly at the switcheroo stage in public, unmasked, with a semi-conscious drugged victim, so why bother hiding later on?
 - Clearly, these men are above and beyond the law so maybe they boldly show themselves without fear of reprisals - what heroes, legends!
-- Required above and beyond anything else is the certainty that the victim will not survive to tell the tale.
+- Required above and beyond anything else is the certainty that the victim will not survive to tell the tale, and we can only guess at how many women and children have been murdered by the gangs over many decades for this requirement.
 
 ### Six distinct men 
 
