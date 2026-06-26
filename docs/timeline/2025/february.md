@@ -634,10 +634,10 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I wash all my clothes ten times - on advice from someone I trust - but even then I had to throw a lot of my clothes away. 
 - It is tens of thousands of pounds worth of belongings sent to the local dump.
 - And I'm horrified that all of this really good stuff - most of it new - is going to the local dump.
-- I tell the police how concerned I am that people will decide to take my poisoned belongings home with them thinking they're good and decent items, with no idea they've been doused with pesticides, and they might let their kids sleep under my duvets or on my pillows, I mean it's just horrific.
+- I tell the police how concerned I am that people will decide to take my poisoned belongings home with them thinking they're good and decent items, with no idea they've been doused with pesticides, and they might let their kids sleep under my duvets and blankets, or on my pillows, I mean it's just horrific.
 - The police are not interested.
-- I explained that all my stuff is doused in pesticides and this is what I'm going to have to do with it to the [two policewomen who turned up to disappoint humanity](january.md#i-report-hacking-drugging-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police).
-- I tell this repeatedly to the police and the Baroness too, in one of my many missives.
+- I explained that all my stuff is doused in pesticides to the [two policewomen who turned up to disappoint humanity](january.md#i-report-hacking-drugging-poisoning-illicit-filming-and-everything-else-contained-in-this-statement-to-the-metropolitan-police).
+- I tell this repeatedly to the police and the Baroness too, in my many missives.
 - No-one cares.
 - It's utterly extraordinary, unless they have been conspiring with Adams directly to get my brother to make sure it is all destroyed properly, but I doubt that very much and even if they did arrange something like this, it would not be sufficient to protect the general public from severe maiming by pesticides.
 - And then I realize with a start why there's no second hand shops in Spain!
