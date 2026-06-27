@@ -595,6 +595,8 @@ Anyway. With the best. Tell your team to come into the office pls.
 - It's what porn does to them, isn't it.
 - Idiots.
 - It is ironic though.
+- I mostly gave as good as I got... a lifetime of practice.
+- And whenever I faltered, Someone/someone else stepped in to help me.
 - Let the fatberg release.
 
 ![Fatberg of North London](../../content/images/fatberg-of-north-london.png)
