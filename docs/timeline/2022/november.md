@@ -102,12 +102,18 @@ function googleTranslateElementInit() {
 - It was an irony that the whole of Benijembla was celebrating a domestic violence movement that month.
 - Anyway, I passed the test, hence the grinning, which meant [the *switcheroo* porn could go ahead](../../crimes/protagonists/vidal-sastre.md#six-distinct-men), and so he turned up the following week at the conservatory, with the others, to start the Denia TV special, I expect, live-streamed on criminal and non-criminal porn networks across the world, perhaps even on Pornhub if the [Pakistani Yorkshire-man at Bali](../2024/may.md#the-pakistani-yorkshire-man) is to be believed.
 
-## A sexualized 4-year-old at the Chinese bazaar
+## Sexualized tiny girls at the Chinese bazaar
 
 - One Saturday morning I head to the Chinese bazaar.
 - A rough looking man is there with his tiny (I assumed) daughters, aged 4 and 2 probably.
-- The 4-year-old is dressed like a cheap prostitute: platform stilettos, glittery mini-dress, garish make up, hair done up. It was horrifying.
-- Given I now know that criminal gangs were tracking my every move via my mobile phone, I'm pretty sure this was another set up for me to see.
+- They're both dressed like cheap prostitutes: platform stilettos, glittery mini-dress, garish make up, hair done up. 
+- They looked like they just been at porn-hair-and-makeup.
+- It was horrifying.
+- The girls were also falling over each other (and over their stilettos) and behaving in the way children behave when they're over-tired and need to go to bed: mad-half-hour behavior I used to call it.
+- It could also have been that they were drugged.
+- Given I now know that criminal gangs were tracking my every move via my mobile phone, I'm certain this was another set up for me to see.
+- Are the gangs proud of their pedophilia?
+- The man was the same guy [leading what looked like Gema Garcia around the tunnel, sedated with a terrified look on her face](../2023/november.md#the-woman-from-inmoxara-in-la-xara), a year later when things had not gone as planned for the gangs, and again apparently for me to see.
 
 ## The trumpet teacher
 
