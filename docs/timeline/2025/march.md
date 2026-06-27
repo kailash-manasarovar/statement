@@ -1,5 +1,13 @@
 # March 2025
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Researching the book
 
 - It's time to knuckle down and finish editing this statement in preparation for publishing it as a novel.
