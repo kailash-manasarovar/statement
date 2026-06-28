@@ -207,7 +207,7 @@ function googleTranslateElementInit() {
 ## After yesterday's beach-side antics... a confession?
 
 - The mentions of Noah..
-- And then how they get all suddenly active... ooo speculation, ooo, ooo, etc..
+- And then how they get all suddenly active... ooo speculation, ooo we weren't even there, ooo we never came into the Obel Tower, oooo, etc..
 - Well, as you know, I have been researching them for a few years now, and we have all noticed how these people only ever make the effort to communicate so quickly and whiningly in response to something is when they're guilty.
 - We see this often surprisingly defensive talk from them instead of the usual intrigue, insult, and offense.
 - They don't even notice the other multitude of opportunities they could do the same with flying by, either.
