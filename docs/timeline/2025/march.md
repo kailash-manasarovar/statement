@@ -11,6 +11,10 @@ function googleTranslateElementInit() {
 ## Researching the book
 
 - It's time to knuckle down and finish editing this statement in preparation for publishing it as a novel.
+- Doesn't this statement strike one as a little strange coming from someone who many people have been trying to murder after having sedated-and-raped them endlessly for years and made them famous in criminal porn (I bet it's PornHub isn't it)?
+- I think it must be the brain's (very smart organ) self-protective denial for continued survival coupled with the fact that the most outrageous crimes are being committed against innocent people and no-one cares.
+- No-one is paying any attention to what I'm saying, to everything that has happened to me... it's just incredible.
+- What else can I do but try to stay cheerful, keep praying, and trust God.
 
 ## Bunny-girl nose-ring woman
 
