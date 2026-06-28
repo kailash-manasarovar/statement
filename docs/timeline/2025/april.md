@@ -25,7 +25,11 @@
 
 ## Runcorn with Pochin
 
-- wip
+- The whole politics thing, for me in my position, was a means to stay alive longer.
+- I think it worked too, a little.... what am I saying, no it didn't, they'll blatantly try and murder me again in a few months time.
+- But it was interesting.
+- You meet a lot of agents, as you might imagine.
+- I met a very interesting one who was totally honest, and I thought, wow that is so cool!
 
 ## Tether job interview
 
