@@ -215,3 +215,5 @@ function googleTranslateElementInit() {
 - I was right about Noah.
 
 ![Marple on the case](../../content/images/MARPLE.png)
+
+- And wishing the Ozzies very well indeed.
