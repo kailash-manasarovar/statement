@@ -203,3 +203,15 @@ function googleTranslateElementInit() {
 - Let the arrow fly.
 
 ![Ram Ram](../../content/images/ram-ram.png)
+
+## After yesterday's beach-side antics... a confession?
+
+- The mentions of Noah..
+- And then how they get all suddenly active... ooo speculation, ooo, ooo, etc..
+- Well, as you know, I have been researching them for a few years now, and we have all noticed how these people only ever make the effort to communicate quickly in response to something is when they're guilty.
+- Because we see this often surprisingly defensive talk from them instead of the usual insult and offense.
+- They don't even see the other multitude of opportunities they could do the same with, either.
+- So, that's that then. 
+- I was right about Noah.
+
+![Marple on the case](../../content/images/MARPLE.png)
