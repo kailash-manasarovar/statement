@@ -779,6 +779,13 @@ function googleTranslateElementInit() {
 - It feels like a snub, an insult.
 - She is supposed to be my piano teacher this year but she's obviously too good to stoop to say hello to the porn-gang's latest victim.
 
+### A glory sent by his brother in Tibet
+
+- This man's brother is the *abbot* of a Bon monastery in East Tibet, ikyn.
+- On the morning my friend left Dénia, we went to the beach and did a little ceremony.
+- I was asking for help with my situation which was difficult to understand.
+- His brother texted him while we were doing the ceremony with a picture of a glory he had seen in Tibet as they were driving.
+
 ### Polygon node operators on the bus home
 
 - I accompany my friend to Valencia airport when he's leaving.
