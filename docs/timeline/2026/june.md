@@ -209,12 +209,12 @@ function googleTranslateElementInit() {
 ## CICA submission
 
 - David Greenwood, lawyer for the UK Rape Gang inquiry, has made an application for a criminal injury award with the [UK government's criminal injuries award department](https://www.gov.uk/government/organisations/criminal-injuries-compensation-authority), something I had tried to do before twice and it was refused.
-- In our communications, I explain criminal injuries I have suffered related to being sedated-and-raped for years in Spain and elsewhere, connections to UK criminal gangs, being harassed by criminal gangs in UK, Northern Ireland, France, and Spain, how it all started with Winston May's rape-gang porn production sessions in North London in 1989, the depression and anxiety arising from all of this and the eventual suicidal feelings arising from my family's involvement.
+- In our communications, I explain criminal injuries I have suffered related to being sedated-and-raped for years in UK, Spain, and elsewhere, UK criminal gangs involvement, constant harassment from criminal gangs in UK, Northern Ireland, France, and Spain, how it all started with Winston May's rape-gang porn production in North London in 1989, the depression and anxiety arising from all of this and the eventual suicidal feelings arising from my family's involvement.
 - I won't publish the letters, but I'll add them to the files.
 
 ## After yesterday's beach-side antics... a confession?
 
-- #RAMRAM.
+<!--#RAMRAM.-->
 - The mentions of Noah..
 - And then how they get all suddenly active... ooo speculation, ooo we weren't even there, ooo we never came into the Obel Tower, oooo, etc..
 - Well, as you know, I have been researching them for a few years now, and we have all noticed how these people only ever make the effort to communicate so quickly and whiningly in response to something is when they're guilty.
