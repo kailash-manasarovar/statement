@@ -225,7 +225,5 @@ function googleTranslateElementInit() {
 
 ![Marple on the case](../../content/images/MARPLE.png)
 
-- And wishing the Ozzies very well indeed.
-
 !!! quote "Principle of miracles number 19"
     - Miracles rest on the law and order of eternity, not of time.
