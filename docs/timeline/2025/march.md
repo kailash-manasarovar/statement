@@ -135,14 +135,14 @@ function googleTranslateElementInit() {
 - The way Domingo spoke at that time was as if everyone had no choice but to listen to him, and smile, and agree, and that was exactly what I was seeing at the Red Lion.
 - Who was this overbearing, slightly camp 50-year-old white man with a moustache presiding over a table of British Muslim Asian men who may well have been second-generation Pakistanis?
 - And why did they sit right beside us instead of in one of the more private areas elsewhere?
-- Was the man trying to communicate with me, to understand what was going on with my continued survival from the Dénia porn-gang's relentless brain-damaging, poisoning, drugging, and sedated rape; knowing full well my history with the Jamaican rape gangs and their connections to Islamicist rape gangs?
-- Did his attempt at communication inadvertently reveal a far more sinister connection between the caliphate and gitano mass-manipulation AI tech?
+- Was the man trying to communicate with me, to understand what was going on with my continued survival from the Dénia porn-gang's relentless brain-damaging, poisoning, drugging, and sedated rape; knowing full well my early rape-porn history with the Jamaican rape gangs and their connections to Islamicist rape gangs?
+- Did his strange attempt at communication inadvertently reveal a far more sinister connection between the caliphate and gitano mass-manipulation AI tech?
 - Did my dad know him?
 - When I went to the toilet and left my dad alone with them, did they talk?
 - As we left, another British Muslim man turned up and walked past me, and I think I recognized him.
 - He was either Alkesh from North Finchley who went to prison for theft who was at [the party in 1991](../pre-2001/1991.md#a-party-in-hornsey); or he could have also been the father of Winston May's sister's twins - the man that had brought down a bunch of Northern Pakistanis to London to sedate and rape us back in 1989, that Willow does not remember but I do.
 - He looked unwell.
-- In an earlier draft of this section I had wondered if the man was trying to do deals with whoever he thought was interested at the time, just like they were dealing constantly online.
+- In an earlier draft of this section I had wondered if the man was trying to do deals with whoever he thought was interested at the time, just like they seemed to be doing constantly online.
 - I deleted that comment for some reason but I think the question still stands, and perhaps more firmly today.
 - Was he the brother of [the woman who sits right next to us again, in a similarly odd manner in an empty pub, that will tell my dad to not go to Lourdes with me in the summertime](../2025/july.md#the-benijembla-woman) so their Spanish friends can murder me in peace?
 
