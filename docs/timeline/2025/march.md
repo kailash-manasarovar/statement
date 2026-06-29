@@ -18,8 +18,9 @@ function googleTranslateElementInit() {
 - It's the mind/brain's (a very smart organ) self-protective denial mechanism for continued survival, and Jesus.
 - The stress of knowing that the most outrageous crimes are being committed against innocent people, including children and babies, and no-one who could do something about it cares, is enormous.
 - The fact that it has been going on so long, so egregiously, and no-one cares did almost break me, but a little gallows-humor has been helpful now and then.
+- And that is why I'm thinking about this police statement in novel form, maybe someone might actually read it!
 - It has felt to me like the world is going to rape-porn hell, and everyone is making absolutely sure that nothing could possibly stop that happening; no women and children survivors, thus no survivors.
-- No-one is paying any attention to what I'm saying, all my attempts to get help are ignored, everything that has happened to me and other students at the conservatory where it's business as usual... it's just incredible.
+- No-one is paying any attention to what I'm saying, all my attempts to get help are ignored, everything that has happened to me and other students at the conservatory is business as usual... it's just incredible.
 - I know that Jesus is shouldering most of the stress and I rely on his strength.
 - Without him, I wouldn't have made it.
 - So what else can I do but stay cheerful, keep praying, and trust God.
@@ -27,6 +28,9 @@ function googleTranslateElementInit() {
 ## Bunny-girl nose-ring woman
 
 - I go to Brent Cross one afternoon for something.
+- Actually, I'm going back and forward to the Apple Store in Brent Cross to try and fix my hacked devices.
+- They reformat my phone and laptop to factory settings; but the criminals are in again as soon as I'm back online.
+- Must be a chip-level hack, I'm thinking.
 - When I get back to my car, I see a car parked beside, or in front maybe, of mine.
 - In the driver's seat is a black woman, and I think I know her.
 - She was the accomplice of the man that tried to rob H Samuels in Brent Cross with a fake credit card, my summer job when I was 16, the week before I was targeted by the Jamaican rape-gangs!
@@ -36,7 +40,9 @@ function googleTranslateElementInit() {
 - Was she an "introduction agent" for the rape gangs? 
 - I think her name was Denise.
 - Thinking back, another man who worked at H Samuels in Brent Cross that summer was at the Camden Palace the very night we meet Winston May and his cohort.
-- I believe he was Scottish.
+- I believe he was Scottish. Could he have been called Fraser?
+- Could the whole Winston May rape-gang-spectacular have been planned for me months in advance of me even meeting Winston May?
+- Seems likely.
 
 ## Reaching out to journalists
 
