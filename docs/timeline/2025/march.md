@@ -10,11 +10,19 @@ function googleTranslateElementInit() {
 
 ## Researching the book
 
-- It's time to knuckle down and finish editing this statement in preparation for publishing it as a novel.
-- Doesn't this statement strike one as a little strange coming from someone who many people have been trying to murder after having sedated-and-raped them endlessly for years and made them famous in criminal porn (I bet it's PornHub isn't it)?
-- I think it must be the brain's (very smart organ) self-protective denial for continued survival coupled with the fact that the most outrageous crimes are being committed against innocent people, including children and babies, and no-one seems to care.
-- No-one is paying any attention to what I'm saying, to everything that has happened to me... it's just incredible.
-- What else can I do but try to stay cheerful, keep praying, and trust God.
+- *It's time to knuckle down and finish editing this statement in preparation for publishing it as a novel*.
+- I wrote the title of this section and the first sentence in March 2025.
+- In June 2026 while editing, this statement strikes me as a little strange coming from someone who criminal gangs have been trying to murder, repeatedly, after having sedated-and-raped them endlessly for years even, in her own homes, and by doing so made me famous in criminal porn internationally (probably even on PornHub they were so sure of my early demise)?
+- Shouldn't I be a little stressed, not cheerful surely?
+- It's two things.
+- It's the mind/brain's (a very smart organ) self-protective denial mechanism for continued survival, and Jesus.
+- The stress of knowing that the most outrageous crimes are being committed against innocent people, including children and babies, and no-one who could do something about it cares, is enormous.
+- The fact that it has been going on so long, so egregiously, and no-one cares did almost break me, but a little gallows-humor has been helpful now and then.
+- It has felt to me like the world is going to rape-porn hell, and everyone is making absolutely sure that nothing could possibly stop that happening; no women and children survivors, thus no survivors.
+- No-one is paying any attention to what I'm saying, all my attempts to get help are ignored, everything that has happened to me and other students at the conservatory where it's business as usual... it's just incredible.
+- I know that Jesus is shouldering most of the stress and I rely on his strength.
+- Without him, I wouldn't have made it.
+- So what else can I do but stay cheerful, keep praying, and trust God.
 
 ## Bunny-girl nose-ring woman
 
