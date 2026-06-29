@@ -12,7 +12,7 @@ function googleTranslateElementInit() {
 
 - *It's time to knuckle down and finish editing this statement in preparation for publishing it as a novel*.
 - I wrote the title of this section and the first sentence in March 2025.
-- In June 2026 while editing, this statement strikes me as a little strange coming from someone who criminal gangs have been trying to murder, repeatedly, after having sedated-and-raped them endlessly for years even, in her own homes, and by doing so made me famous in criminal porn internationally (probably even on PornHub they were so sure of my early demise)?
+- In June 2026 while editing, this statement strikes me as a little strange coming from someone who criminal gangs have been trying to murder, repeatedly, after having sedated-and-raped them endlessly for years, even in her own homes, and by doing so made me famous in criminal porn internationally (probably even on PornHub they were so sure of my early demise)?
 - Shouldn't I be a little stressed, not cheerful surely?
 - It's two things.
 - It's the mind/brain's (a very smart organ) self-protective denial mechanism for continued survival, and Jesus.
