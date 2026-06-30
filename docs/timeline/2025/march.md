@@ -51,7 +51,7 @@ function googleTranslateElementInit() {
 - Did someone suggest I go work there, or was it just coincidence that I ended up working there?
 - Thinking back, another man who worked with me at H Samuels in Brent Cross that summer was at the Camden Palace *the very night* we meet Winston May and his cohort!
 - I believe he was Scottish. Could he have been called Fraser?
-- I believe the whole Winston May rape-gang-spectacular had been planned for me months in advance of me even meeting Winston May by a massive industrial pedophile-porn empire operating out of North London and having an extreme-criminal-porn studio out in the Marina Alta region of the Community of Valencia in Spain.
+- I believe the whole Winston May rape-gang-spectacular had been planned for me months in advance of me even meeting Winston May by a massive industrial pedophile-porn empire operating out of North London and having an extreme-criminal-porn studio out in the Marina Alta region of the Community of Valencia in Spain, and they had a well-oiled recruitment machine going on.
 
 ## Reaching out to journalists
 
