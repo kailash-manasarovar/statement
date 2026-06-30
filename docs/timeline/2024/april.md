@@ -806,7 +806,9 @@ function googleTranslateElementInit() {
 
 - This must be why I'm so famous.
 - Back in 1989, Winston May made me orgasm with his series of emotional rollercoasters of fear, violence, agression, kindness, violence, fear, aggression, threats to my life, kindness.
-- My guess is he [learned these animal-training techniques in Las Marinas from the gypsies](../../crimes/protagonists/winston-may-and-nicky.md#a-trip-to-spain) while finding out how easy it is to sedate-and-rape women and children, and while bulk buying some herbs - or did he get them on tick, paid for once he delivered the pedo rape-porn he'd signed up to produce for Adams?
+- This was right before he told me he was dying of AIDS, and he never used a condom.
+- And you wonder why I hated him?!
+- My guess is he [learned these animal-training and psychological-fear-breakdown techniques in Las Marinas from the gypsies](../../crimes/protagonists/winston-may-and-nicky.md#a-trip-to-spain) while finding out how easy it is to sedate-and-rape women and children, and while bulk buying some herbs - or did he get them on tick, paid for once he delivered the pedo rape-porn he'd signed up to produce for Adams?
 - Whenever he brought a bit of kindness into the mix, my child's body would relax out of fear and nervous tension, and he would give me some very powerful aphrodisiac drugs on top of those he'd already spiked me with, and rape me, and I would orgasm.
 - Loudly.
 - I'm a very sensitive person, intuitive even, the very best sort of person for international law-enforcing detective roles, ahem.
