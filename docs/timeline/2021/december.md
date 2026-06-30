@@ -27,7 +27,10 @@ function googleTranslateElementInit() {
 - I thought: *what a weird woman*.
 - She barked at me when I said; *I hope I'm not going to regret this*, as I signed the lease, having reservations based on her demeanor.
 - Hackers mentioned her grumpy demeanor online to me over the summer in 2024 in an, as usual, derogatory manner.
-- Was she angry about having to essentially be involved in murdering a woman? Had it happened before in her apartment? What happened to the previous tenant, the nurse from Dénia hospital she was constantly talking about? Are all the properties her company is involved with fitted with high-res spy-cam systems streaming directly onto porn-networks?
+- Was she angry about having to essentially be involved in murdering a woman? Had it happened before in her apartment? What happened to the previous tenant, the nurse from Dénia hospital she was constantly talking about who left hurriedly?
+- Are all the properties her company is involved in building with fitted with high-res spy-cam systems streaming directly onto porn-networks?
+- Curiously, whenever Bea seemed to think I was going to say no (probably because of the way I looked at her whenever she was irrationally and bizarrely angry), she would say: *oh we have a nurse lined up, from the hospital, she's going to come and view tomorrow* to hurry me along.
+- Another nurse, ay.
 - I signed the [rental contract](../../content/documents/contracto/rental-contract.pdf) and moved in on December 15th.
 
 ### Death clause
