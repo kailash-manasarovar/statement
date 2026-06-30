@@ -262,7 +262,8 @@ function googleTranslateElementInit() {
 
 ![Conservatory petition](../../content/images/conservatory-teachers.jpg)
 
-- From left-to-right, Joan Carles piano teacher, Jaume Signes trumpet teacher and director of the school, Paqui Fornet piano teacher, and Rosa Vidal vice director.
-- All of them will be aware of what happened to me, how I was targeted and why and by whom, and they all played their own little parts in tormenting a student, commendably.
-- One wonders how a small town's music school could cope with a major scandal related to grooming and terrorizing students.
-
+- From left-to-right, Joan Carles piano teacher, Jaume Signes trumpet teacher and director of the school, Paqui Fornet piano teacher, and Rosa Vidal vice director who nearly bowed in reverse to *Vidal Sastre* (whichever of the rape-pornographers was playing the role at that time) when she was tasked with coming into the chamber music classes with Ana Requena.
+- I'm certain Paqui was at my house [when they all suffocated me sedated](../2024/march/13-end.md#the-pillow-game) and that's why [she popped up on fake accounts on X just after](../../crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor)... and then again in September, to make sure I didn't return to my piano studies.
+- She had to be there, and she would have definitely enjoyed it - didn't she delightedly tell everyone about the experience afterwards?
+- All of them were aware of what was happening to me, how I was targeted and why and by whom, and they all played their own parts in tormenting a student destined for the porn-slab commendably, as if they'd done it hundreds of times before.
+- In fact, these people are knowingly running a pedophile porn studio direct from their classrooms; something that requires them to drug students, mostly minors, with aphrodisiac-type substances amongst other unbelievable acts of violence and sexual assault, all filmed, for the historical record.
