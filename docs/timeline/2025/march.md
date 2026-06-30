@@ -35,21 +35,23 @@ function googleTranslateElementInit() {
 - Must be a chip-level hack, I'm thinking.
 - When I get back to my car, I see a car parked beside mine, or in front maybe; close enough to see the driver.
 - In the driver's seat is a black woman, and I recognize her.
-- She was the accomplice of the man that tried to rob H. Samuels in Brent Cross with a fake credit card.
-- Working at H Samuels in Brent Cross was my summer job after GCSE's, when I was 16, and the man came in the week before I was targeted by the Jamaican rape-gangs directly in Camden Palace, except they'd had their operatives out and grooming me for a few weeks already.
-- There had been something wrong with the card, the phone rang, and I didn't know what was going on, and Denise stepped in to sort it out, picking up the phone, and the man grabbed the card off the counter (where I'd left it) and ran out.
+- She was the accomplice of the man that tried to rob H. Samuels in Brent Cross with a fake credit card in August 1989.
+- Working at H. Samuels in Brent Cross was my summer job after GCSE's, when I was 16, and the man came in the week before I was targeted by the Jamaican rape-gangs directly at the Camden Palace, although they'd had their operatives out grooming me for a few weeks, months, maybe years already.
+- There had been something wrong with the card, the phone rang, and I didn't know what was going on, and the woman, I think whose name was Denise, stepped in to sort it out, picking up the phone, and the man grabbed the card off the counter (where I'd left it) and ran out.
 - I was working fulltime at H. Samuels throughout that time (£99 a week pay I bought £79 trainers with that last week) until the week Winston May raped me at his house, then I left my job.
-- Did they time the attack to commence with when I left my job?
+- Did they time the attack to commence with the day I left my job?
+- I remember Winston May was keen for me to take him to H. Samuels; he kept saying he'd go in there with me to get my week-in-hand (which they didn't pay me for weeks on end).
 - I was due to start A Levels very soon: Maths, English, Music, and CS.
-- The man that came in with the stolen credit card, and made a beeline for me to serve him, was the same man that [bared his teeth at me](january.md#a-man-i-recognize-bares-his-teeth-at-me) at the Spa in Koh Samui in January 2025 the day I was leaving. He can confirm.
-- The woman in the car at Brent Cross a couple of months later looked exactly like the black woman who worked with me at H Samuels on the gold section, just a bit older.
+- Marvelously, the man that came in with the stolen credit card, and made a beeline for me to serve him, was the same man that [bared his teeth at me](january.md#a-man-i-recognize-bares-his-teeth-at-me) at the Spa in Koh Samui in January 2025 the day I was leaving.
+- The same [really nice geezer](../2001-to-2010/2010.md#my-brother-loses-his-mind-in-thailand) that got my brother to do terrible things in Samui in 2010; things that would justify, for my brother, throwing me to the lions.
+- He can confirm, of course, they both can.
+- The woman in the car at Brent Cross looked exactly like the black woman who worked with me at H. Samuels - she was on the gold section - just a bit older.
 - She has aged well.
-- I think her name was Denise.
 - Was she an "introduction agent" for the rape gangs back in 1989? 
-- Was H Samuel serving as an "introduction agent" for girls coming to work Saturday or summer jobs, where Denise and the gang could do whatever they do; drug maybe, gypsy style?
+- Was H. Samuel serving as an "introduction agent" for girls coming to work Saturday or summer jobs, where Denise and the gang could do whatever they do; drug maybe, gypsy style?
 - Why did none of my other friends get a job there; they came with me to fill out the application form?
 - Did someone suggest I go work there, or was it just coincidence that I ended up working there?
-- Thinking back, another man who worked with me at H Samuels in Brent Cross that summer was at the Camden Palace *the very night* we meet Winston May and his cohort!
+- Thinking back, another man who worked with me at H. Samuels in Brent Cross that summer was at the Camden Palace *the very night* we meet Winston May and his cohort!
 - I believe he was Scottish. Could he have been called Fraser?
 - I believe the whole Winston May rape-gang-spectacular had been planned for me months in advance of me even meeting Winston May by a massive industrial pedophile-porn empire operating out of North London and having an extreme-criminal-porn studio out in the Marina Alta region of the Community of Valencia in Spain, and they had a well-oiled recruitment machine going on.
 
