@@ -55,6 +55,21 @@ function googleTranslateElementInit() {
 - I believe he was Scottish. Could he have been called Fraser?
 - I believe the whole Winston May rape-gang-spectacular had been planned for me months in advance of me even meeting Winston May by a massive industrial pedophile-porn empire operating out of North London and having an extreme-criminal-porn studio out in the Marina Alta region of the Community of Valencia in Spain, and they had a very well-oiled recruitment machine going on.
 
+## Conservatory news
+
+- On [Dénia.com](https://www.denia.com/wp-content/uploads/2025/03/firmas-recogidas-para-un-nuevo-conservatorio-de-musica-en-denia-scaled.jpg) there is a report on a petition raised regarding a new building for the conservatory.
+
+![Conservatory petition](../../content/images/conservatory-teachers.jpg)
+
+- From left-to-right, Joan Carles piano teacher, Jaume Signes trumpet teacher and director of the school, Paqui Fornet piano teacher, and Rosa Vidal vice director who nearly bowed in reverence to *Vidal Sastre* (whichever of [the rape-pornographers was playing the role of trumpet-teacher at that time](../../crimes/protagonists/vidal-sastre.md)) when she was tasked with [coming into the chamber music classes with Ana Requena](../2023/february.md#ana-the-violin-teacher) to create love-triangle intrigue, anxiety, and, later that evening, sedated-rape-terror.
+- I'm certain Paqui was at my house [when they all suffocated me sedated](../2024/march/13-end.md#the-pillow-game) and that's why [she popped up on fake accounts on X just after](../../crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor)... and then again in September, to make sure I didn't return to my piano studies.
+- She had to be there, and she would have definitely enjoyed it - didn't she delightedly tell everyone about the experience afterwards?
+- The reason I can say that with such authority is because Paqui Fornet would have been exceptionally furious with me for totally ignoring [her terror spectacular that must have taken months to set up](../2024/march/1-12.md#the-piano-concert) and coming into practice the piano the following morning.
+- My fearlessness forced them into officially murderous activity instead of their usual cowardly intrigues+drugging.
+- All of them were fully aware of what was happening to me, how I was targeted and why and by whom, and they all played their own parts in tormenting a student destined for the porn-slab commendably, as if they'd done it hundreds of times before.
+- In fact, these people are knowingly running a pedophile porn studio direct from their classrooms; something that requires them to drug students, mostly minors, with aphrodisiac-type substances amongst other unbelievable acts of violence and sexual assault, all filmed for the historical record.
+- They look so normal don't they.
+
 ## Reaching out to journalists
 
 - I reach out to multiple journalists with my story; none gets back to me.
@@ -257,18 +272,3 @@ function googleTranslateElementInit() {
 - I eventually tell her I was poisoned. 
 - She advises getting another appointment at Moorfields, and says she is organizing it for me.
 - I'm never called for an appointment.
-
-## Conservatory news
-
-- On [Dénia.com](https://www.denia.com/wp-content/uploads/2025/03/firmas-recogidas-para-un-nuevo-conservatorio-de-musica-en-denia-scaled.jpg) there is a report on a petition raised regarding a new building for the conservatory.
-
-![Conservatory petition](../../content/images/conservatory-teachers.jpg)
-
-- From left-to-right, Joan Carles piano teacher, Jaume Signes trumpet teacher and director of the school, Paqui Fornet piano teacher, and Rosa Vidal vice director who nearly bowed in reverence to *Vidal Sastre* (whichever of [the rape-pornographers was playing the role of trumpet-teacher at that time](../../crimes/protagonists/vidal-sastre.md)) when she was tasked with [coming into the chamber music classes with Ana Requena](../2023/february.md#ana-the-violin-teacher) to create love-triangle intrigue, anxiety, and, later that evening, sedated-rape-terror.
-- I'm certain Paqui was at my house [when they all suffocated me sedated](../2024/march/13-end.md#the-pillow-game) and that's why [she popped up on fake accounts on X just after](../../crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor)... and then again in September, to make sure I didn't return to my piano studies.
-- She had to be there, and she would have definitely enjoyed it - didn't she delightedly tell everyone about the experience afterwards?
-- The reason I can say that with such authority is because Paqui Fornet would have been exceptionally furious with me for totally ignoring [her terror spectacular that must have taken months to set up](../2024/march/1-12.md#the-piano-concert) and coming into practice the piano the following morning.
-- My fearlessness forced them into officially murderous activity instead of their usual cowardly intrigues+drugging.
-- All of them were fully aware of what was happening to me, how I was targeted and why and by whom, and they all played their own parts in tormenting a student destined for the porn-slab commendably, as if they'd done it hundreds of times before.
-- In fact, these people are knowingly running a pedophile porn studio direct from their classrooms; something that requires them to drug students, mostly minors, with aphrodisiac-type substances amongst other unbelievable acts of violence and sexual assault, all filmed for the historical record.
-- They look so normal don't they.
