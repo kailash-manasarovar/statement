@@ -270,3 +270,4 @@ function googleTranslateElementInit() {
 - My fearlessness forced them into officially murderous activity instead of their usual cowardly intrigues+drugging.
 - All of them were fully aware of what was happening to me, how I was targeted and why and by whom, and they all played their own parts in tormenting a student destined for the porn-slab commendably, as if they'd done it hundreds of times before.
 - In fact, these people are knowingly running a pedophile porn studio direct from their classrooms; something that requires them to drug students, mostly minors, with aphrodisiac-type substances amongst other unbelievable acts of violence and sexual assault, all filmed for the historical record.
+- They look so normal don't they.
