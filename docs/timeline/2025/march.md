@@ -20,7 +20,8 @@ function googleTranslateElementInit() {
 - The fact that it has been going on so long, so egregiously, and no-one cares did almost break me, but a little gallows-humor has been helpful now and then.
 - And that is why I'm thinking about this police statement in novel form, maybe someone might actually read it!
 - It has felt to me like the world is going to rape-porn hell, and everyone is making absolutely sure that nothing could possibly stop that happening; no women and children survivors, thus no survivors.
-- No-one is paying any attention to what I'm saying, all my attempts to get help are ignored, everything that has happened to me and other students at the conservatory is business as usual... it's just incredible.
+- *Motherless* is what apparently normal men want. I can't think of anything more self-harming and destructive and utterly insane.
+- No-one is paying any attention to what I'm saying, all my attempts to get help are ignored, everything that has happened to me and other students, mostly minors, at the conservatory is business as usual... it's just incredible.
 - I know that Jesus is shouldering most of the stress and I rely on his strength.
 - Without him, I wouldn't have made it.
 - So what else can I do but stay cheerful, keep praying, and trust God.
