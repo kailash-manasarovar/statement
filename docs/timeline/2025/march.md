@@ -28,22 +28,25 @@ function googleTranslateElementInit() {
 
 ## Bunny-girl nose-ring woman
 
-- I go to Brent Cross one afternoon for something.
+- I go to Brent Cross one day for something.
 - Actually, I'm going back and forward to the Apple Store in Brent Cross to try and fix my hacked devices.
 - They reformat my phone and laptop to factory settings; but the criminals are in again as soon as I'm back online.
 - Must be a chip-level hack, I'm thinking.
-- When I get back to my car, I see a car parked beside, or in front maybe, of mine.
-- In the driver's seat is a black woman, and I think I know her.
-- She was the accomplice of the man that tried to rob H Samuels in Brent Cross with a fake credit card, my summer job when I was 16, the week before I was targeted by the Jamaican rape-gangs!
-- The same man that [bared his teeth at me](january.md#a-man-i-recognize-bares-his-teeth-at-me) at the Spa in Koh Samui in December 2024.
+- When I get back to my car, I see a car parked beside mine, or in front maybe; close enough to see the driver.
+- In the driver's seat is a black woman, and I recognize her.
+- She was the accomplice of the man that tried to rob H. Samuels in Brent Cross with a fake credit card.
+- Working at H Samuels in Brent Cross was my summer job after GCSE's, when I was 16, and this was the week before I was targeted by the Jamaican rape-gangs directly in Camden Palace, except they'd had their operatives out and grooming me for a few weeks already.
+- The man that came in with the stolen credit card, and made a beeline for me, was the same man that [bared his teeth at me](january.md#a-man-i-recognize-bares-his-teeth-at-me) at the Spa in Koh Samui in January 2025 the day I was leaving.
 - She looked exactly like her, just a bit older.
 - She has aged well.
-- Was she an "introduction agent" for the rape gangs? 
 - I think her name was Denise.
+- Was she an "introduction agent" for the rape gangs back in 1989? 
+- Was H Samuel serving as an "introduction agent" for girls coming to work there, where Denise and the gang could do whatever they do, drug maybe, gypsy style.
+- Why did none of my other friends get a job there; they came with me to fill out the application form?
+- Was it suggested to me to go work there, or just coincidence?
 - Thinking back, another man who worked at H Samuels in Brent Cross that summer was at the Camden Palace the very night we meet Winston May and his cohort.
 - I believe he was Scottish. Could he have been called Fraser?
-- Could the whole Winston May rape-gang-spectacular have been planned for me months in advance of me even meeting Winston May?
-- Seems likely.
+- I believe the whole Winston May rape-gang-spectacular had been planned for me months in advance of me even meeting Winston May by a massive industrial pedophile-porn empire operating out of North London with an extreme-criminal-porn studio out in the Marina Alta region of the Community of Valencia in Spain.
 
 ## Reaching out to journalists
 
