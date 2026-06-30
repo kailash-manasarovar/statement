@@ -30,7 +30,6 @@ function googleTranslateElementInit() {
 
 - I go to Brent Cross one day for something.
 - Actually, I'm going back and forward to the Apple Store in Brent Cross to try and fix my hacked devices.
-- An aside: I decided to have a makeover in John Lewis on one trip - I never do things like that - and I felt a friend close by. I really felt that. Anyway...
 - Apple reformats my phone and laptop to factory settings; but the criminals are in again as soon as I'm back online.
 - Must be a chip-level hack, I'm thinking.
 - When I get back to my car, I see a car parked beside mine, or in front maybe; close enough to see the driver.
@@ -53,7 +52,7 @@ function googleTranslateElementInit() {
 - Did someone suggest I go work there, or was it just coincidence that I ended up working there?
 - Thinking back, another man who worked with me at H. Samuels in Brent Cross that summer was at the Camden Palace *the very night* we meet Winston May and his cohort!
 - I believe he was Scottish. Could he have been called Fraser?
-- I believe the whole Winston May rape-gang-spectacular had been planned for me months in advance of me even meeting Winston May by a massive industrial pedophile-porn empire operating out of North London and having an extreme-criminal-porn studio out in the Marina Alta region of the Community of Valencia in Spain, and they had a well-oiled recruitment machine going on.
+- I believe the whole Winston May rape-gang-spectacular had been planned for me months in advance of me even meeting Winston May by a massive industrial pedophile-porn empire operating out of North London and having an extreme-criminal-porn studio out in the Marina Alta region of the Community of Valencia in Spain, and they had a very well-oiled recruitment machine going on.
 
 ## Reaching out to journalists
 
