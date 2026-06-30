@@ -44,8 +44,9 @@ function googleTranslateElementInit() {
 - Marvelously, the man that came in with the stolen credit card, and made a beeline for me to serve him, was the same man that [bared his teeth at me](january.md#a-man-i-recognize-bares-his-teeth-at-me) at the Spa in Koh Samui in January 2025 the day I was leaving.
 - The same [really nice geezer](../2001-to-2010/2010.md#my-brother-loses-his-mind-in-thailand) that got my brother to do terrible things in Samui in 2010; things that would justify, for my brother, throwing me to the lions.
 - He can confirm, of course, they both can.
-- The woman in the car at Brent Cross looked exactly like the black woman who worked with me at H. Samuels - she was on the gold section - just a bit older.
+- The woman in the car at Brent Cross looked exactly like the black woman Denise who worked with me at H. Samuels - she was on the gold section - just a bit older.
 - She has aged well.
+- Are they testing my memory recall, or offering her up?
 - Was she an "introduction agent" for the rape gangs back in 1989? 
 - Was H. Samuel serving as an "introduction agent" for girls coming to work Saturday or summer jobs, where Denise and the gang could do whatever they do; drug maybe, gypsy style?
 - Why did none of my other friends get a job there; they came with me to fill out the application form?
