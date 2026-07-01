@@ -48,6 +48,13 @@ function googleTranslateElementInit() {
 - I saw the woman who heads up the national union of prostitutes, called Nicky, online a few years ago, and I wondered about her then.
 - She's skinny now, if it's her.
 
+## A light episode
+
+- Winston told me a lot of things... in the way that evil people talk, and talk, and talk, and they think you're not even human, and they tell you everything.
+- He told me about, I think, a light episode, which is interesting.
+- I thought he was being an idiot and said nothing, as usual, I said nothing.
+- You might like to ask him about that, or not, it just popped up in my mind.
+
 ## Male family members of victims
 
 - I believe the criminal gangs research the families of victims to see if there are any potential perverts in the family that might buy the porn of their daughters, then be targets for something themselves of course.
