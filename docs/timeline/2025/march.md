@@ -36,7 +36,7 @@ function googleTranslateElementInit() {
 - In the driver's seat is a black woman, and I recognize her.
 - She was the accomplice of the man that tried to rob H. Samuels in Brent Cross with a fake credit card in August 1989.
 - Working at H. Samuels in Brent Cross was my summer job after GCSE's, when I was 16, and the man came in the week before I was targeted by the Jamaican rape-gangs directly at the Camden Palace, although they'd had their operatives out grooming me for a few weeks, months, maybe years already.
-- There had been something wrong with the card, the phone rang, and I didn't know what was going on, and the woman, I think whose name was Denise, stepped in to sort it out, picking up the phone, and the man grabbed the card off the counter (where I'd left it) and ran out.
+- There had been something wrong with the card, the phone rang, and I didn't know what was going on, and the woman - of Jamaican heritage, she told us, and I think whose name was Denise - stepped in to sort it out, picking up the phone, and the man grabbed the card off the counter (where I'd left it) and ran out.
 - I was working fulltime at H. Samuels throughout that time (£99 a week pay I bought £79 trainers with that last week) until the week Winston May raped me at his house, then I left my job.
 - Did they time the attack to commence with the day I left my job?
 - I remember Winston May was keen for me to take him to H. Samuels; he kept saying he'd go in there with me to get my week-in-hand (which they didn't pay me for weeks on end).
@@ -81,14 +81,14 @@ function googleTranslateElementInit() {
 !!! quote "Teenage Gang Rape, a film by Deborah Davies"
     12 November Teenage Gang Rape, a documentary about teenage gang rape, finds that most cases of gang rape in UK are committed by black youths; some perpetrators were aged no more than 11; reported by Deborah Davies; on 19 November 1998, there was a protest outside the headquarters of Channel 4 by the National Assembly Against Racism.
 
-- The film sparked a huge row and protest which Diane Abbot and others attended and so the matter was successfully suppressed just like the Pakistani rape-gang phenomena has been.
+- The film sparked a huge row and protest which Diane Abbot and others attended and so the matter was successfully suppressed just like the Pakistani rape-gang phenomena was/is.
 - Here's the Independent [making light of it all](https://www.independent.co.uk/arts-entertainment/rape-race-and-fragments-of-truth-1186539.html) at the time.
 - I thought Deborah might be interested in my story.
 - I sent her an email.
 
 ![Deborah Davies email](../../content/documents/emails/deborah-davies.png)
 
-- This is the kind of email I have sent to scores of journalists over the last few years, including:
+- This is the kind of email I have sent to scores of journalists over the last few years about my experiences and this police statement, including:
     - Journalists at The Times, one of whom (Sanchez Manning) even reached out briefly in person, then never got back to me after speaking to her editor.
     - Journalists at El Pais (a woman called Lola and Isabel Valdés).
     - Journalists at GB News (Charlie Peters).
@@ -118,9 +118,8 @@ function googleTranslateElementInit() {
 
     Katharine 
 
-- Great email!
-- Imagine totally ignoring hundreds of messages just like this one... it's extraordinary!
-- Oh, yes, I was thinking it could be the trafficking, but it just occurred to me that there *is* a link to all this silence to the lack of action on Epstein's criminals, isn't there.
+- Imagine totally ignoring hundreds of messages just like this one containing an investigator's goldmine... it's extraordinary!
+- Oh, yes, I was thinking it could be the trafficking, but it just occurred to me that there *is* a link to all this silence to the lack of action on Epstein's client-criminals, isn't there.
 - Remember: they've all just gotten away with murdering children for their boners!
 - Silence breeds silence.
 - Just extraordinary.
