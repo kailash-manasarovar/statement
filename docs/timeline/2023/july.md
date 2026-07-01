@@ -466,6 +466,7 @@ function googleTranslateElementInit() {
 - He was, apparently, terribly rich and the daughter was his, apparently.
 - But, of course, it could have all been BS... apart from what she told me about the dad dying, I believe.
 - God, when I think about how much money they were spending on running after me, checking up on me... and Bali was still a year away!
+- Is that why they decided to get subscribers to pay to see me everywhere I was in the world? It was cheaper, and maybe made them even more money than they were spending?
 
 ### First letter to Concha
 
