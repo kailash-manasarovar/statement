@@ -634,6 +634,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Anyway, anyway.
 - I end up having to throw away nearly everything I own - clothes, shoes, soft furnishings, furniture, plastic items, electronics, everything - as it has been doused in pesticides to the extent that using or touching these items can maim or kill.
 - I wash all my clothes ten times - on advice from someone I trust - but even then I had to throw a lot of my clothes away. 
+- Everything that had plastic, or buttons, or something that wouldn't wash, I had to chuck. Interestingly, my bikini I'm wearing right now was amongst the items doused, and I've just noticed over the last couple of days that the plastic bits on the ends of the string have been causing me pain wherever they touch. I have cut them off now but you are most welcome to them.
 - It is tens of thousands of pounds worth of belongings sent to the local dump.
 - And I'm horrified that all of this really good stuff - most of it new - is going to the local dump.
 - I tell the police how concerned I am that people will decide to take my poisoned belongings home with them thinking they're good and decent items, with no idea they've been doused with pesticides, and they might let their kids sleep under my duvets and blankets, or on my pillows, I mean it's just horrific.
