@@ -461,6 +461,9 @@ function googleTranslateElementInit() {
 - He was hilarious actually and we were all cracking up.
 - Looking back, they were a team really weren't they.
 - Or, he was worth the divorce - it's what they do - and it finished him.
+- I mean, God only knows, but he was suicidal and had made a few attempts on his own life.
+- Could he have been another victim of the suicide-manipulation tech, a bit of a toughie?
+- He was, apparently, terribly rich and the daughter was his, apparently.
 
 ### First letter to Concha
 
