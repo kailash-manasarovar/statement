@@ -73,7 +73,10 @@ function googleTranslateElementInit() {
 ## Reaching out to journalists
 
 - I reach out to multiple journalists with my story; none gets back to me.
-- I found out that Deborah Davies made a [documentary film about the black Caribbean rape-gangs in 1998](https://en.wikipedia.org/wiki/List_of_Dispatches_episodes).
+- I'm also trying to find the documentary starring Hazel and Sandra Smith that described the elderly people they had drugged and poisoned and got to change their wills, and how they were arrested and charged by the British police (the Met I think), and then - somewhat inexplicably - they were found not guilty at crown court (The Old Bailey), all happening in the mid-90s sometime, and then off they went to safely murder probably close to a thousand vulnerable ex-pats and others living in Spain over nearly thirty years, hundreds is a low estimate in my view.
+- I mean, these people ran suicide-manipulation social-media apps targeting anyone they liked, for decades, for fun?!
+- So I'm specifically searching for records of the Channel 4 documentary I had seen in the 90s - I was pretty sure it was shown on a series like Dispatches or similar - but it's like all reference to these two has been totally wiped off the face of the earth.
+- During my search, however, I come across a [documentary film about the black Caribbean rape-gangs in 1998](https://en.wikipedia.org/wiki/List_of_Dispatches_episodes) made by Deborah Davies and the furore it caused at the time.
 
 !!! quote "Teenage Gang Rape, a film by Deborah Davies"
     12 November Teenage Gang Rape, a documentary about teenage gang rape, finds that most cases of gang rape in UK are committed by black youths; some perpetrators were aged no more than 11; reported by Deborah Davies; on 19 November 1998, there was a protest outside the headquarters of Channel 4 by the National Assembly Against Racism.
@@ -85,7 +88,13 @@ function googleTranslateElementInit() {
 
 ![Deborah Davies email](../../content/documents/emails/deborah-davies.png)
 
-- This is the kind of email I have sent to scores of journalists and interested parties.
+- This is the kind of email I have sent to scores of journalists over the last few years, including:
+    - Journalists at The Times, one of whom (Sanchez Manning) even reached out briefly in person, then never got back to me after speaking to her editor.
+    - Journalists at El Pais (a woman called Lola and Isabel Valdés).
+    - Journalists at GB News (Charlie Peters).
+    - All the news desks that received a copy of [the handwritten letters and supplementary page](../2024/august.md#the-handwritten-letters) (New York Times, Washington Post, Le Monde, El Pais, The Telegraph, The Irish Times, and many many more).
+    - Hundreds, probably. 
+    - They'll be popping up all over the place at some point...
 
 ??? tip "Email to Deborah Davies"
     Hi,
@@ -108,6 +117,13 @@ function googleTranslateElementInit() {
     Thanks
 
     Katharine 
+
+- Great email!
+- Imagine totally ignoring hundreds of messages just like this one... it's extraordinary!
+- Oh, yes, I was thinking it could be the trafficking, but it just occurred to me that there *is* a link to all this silence to the lack of action on Epstein's criminals, isn't there.
+- Remember: they've all just gotten away with murdering children for their boners!
+- Silence breeds silence.
+- Just extraordinary.
 
 ## Let Women Speak Aberdeen
 
