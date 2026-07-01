@@ -54,6 +54,10 @@ function googleTranslateElementInit() {
 - He told me about, I think, a light episode, which is interesting.
 - I thought he was being an idiot and said nothing, as usual, I said nothing.
 - You might like to ask him about that, or not, it just popped up in my mind.
+- I guess he told me about it because his cohort would take the piss massively.
+- He still might've been lying, but for what purpose?
+- At the time, I thought he was trying to get into my head so much I'd think he was supernatural.
+- I wasn't buying it, at all, I despised him and his *mates*.
 
 ## Male family members of victims
 
