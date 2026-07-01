@@ -119,7 +119,7 @@ function googleTranslateElementInit() {
     Katharine 
 
 - Imagine totally ignoring hundreds of messages just like this one containing an investigator's goldmine... it's extraordinary!
-- Oh, yes, I was thinking it could be the trafficking, but it just occurred to me that there *is* a link to all this silence to the lack of action on Epstein's client-criminals, isn't there.
+- I had been thinking that Hazel and co in Las Marinas could be behind the Epstein child trafficking, but it just occurred to me that there *is* a link to all this silence to the lack of action on Epstein's client-criminals, isn't there.
 - Remember: they've all just gotten away with murdering children for their boners!
 - Silence breeds silence.
 - Just extraordinary.
