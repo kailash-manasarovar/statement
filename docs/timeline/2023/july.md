@@ -464,6 +464,7 @@ function googleTranslateElementInit() {
 - I mean, God only knows, but he was suicidal and had made a few attempts on his own life.
 - Could he have been another victim of the suicide-manipulation tech, a bit of a toughie?
 - He was, apparently, terribly rich and the daughter was his, apparently.
+- But, of course, it could have all been BS.
 
 ### First letter to Concha
 
