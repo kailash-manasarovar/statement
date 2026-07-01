@@ -51,6 +51,7 @@ function googleTranslateElementInit() {
 ## A light episode
 
 - Winston told me a lot of things... in the way that evil people talk, and talk, and talk, and they think you're not even human, and they tell you everything.
+- Nicky did exactly the same.
 - He told me about, I think, a light episode, which is interesting.
 - I thought he was being an idiot and said nothing, as usual, I said nothing.
 - You might like to ask him about that, or not, it just popped up in my mind.
