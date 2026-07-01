@@ -452,6 +452,15 @@ function googleTranslateElementInit() {
 
 ![Rose petals in Samui](../../content/images/samui-rose-petals.PNG)
 
+#### Hala's ex-husband
+
+- He was suffering with depression, apparently, *or* he knew what was going on and that was how she covered anything he might have said by accident.
+- He did mention something very funny at dinner.
+- They had all been going to the Spa, back in the day, and whenever he came to Thailand, he said, he would go round the island on his scooter and try out all the hotels pools.
+- He described how he would walk in and convince everyone he was staying there.
+- He was hilarious actually and we were all cracking up.
+- Looking back, they were a team really weren't they.
+
 ### First letter to Concha
 
 - While I'm away, I decide to write to Concha to tell her everything, and apologize for mentioning on X that she was being bullied by Domingo's students.
