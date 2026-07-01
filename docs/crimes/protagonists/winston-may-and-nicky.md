@@ -57,7 +57,7 @@ function googleTranslateElementInit() {
 - I guess he told me about it because his cohort would take the piss massively.
 - He still might've been lying, but for what purpose?
 - At the time, I thought he was trying to get into my head so much I'd think he was supernatural.
-- I wasn't buying it, at all, I despised him and his *mates*.
+- I wasn't buying it, at all.
 
 ## Male family members of victims
 
