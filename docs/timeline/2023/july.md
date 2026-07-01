@@ -460,6 +460,7 @@ function googleTranslateElementInit() {
 - He described how he would walk in and convince everyone he was staying there.
 - He was hilarious actually and we were all cracking up.
 - Looking back, they were a team really weren't they.
+- Or, he was worth the divorce - it's what they do - and it finished him.
 
 ### First letter to Concha
 
