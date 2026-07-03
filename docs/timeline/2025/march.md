@@ -158,7 +158,7 @@ function googleTranslateElementInit() {
 - My guess is they blocked the account immediately because criminal gangs own X and I'd be vulnerable again.
 - In any event, I'm high in a creative and hallucinatory way and I do wonder what, if anything, may have been added to my bathroom products to cause this.
 - Forg becomes a whole series of photos and posts, and I eventually build a [DESO](april.md#deso) account for him.
-- My posts are nearly always biblical as I pull a passage from the bible at random and create a story around the little Forg that went wrong.
+- My posts are nearly always biblical as I pull a passage from the bible at random and create a story around the little frog that went wrong.
 
 ## Taking dad out
 
