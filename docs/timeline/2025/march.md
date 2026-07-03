@@ -137,7 +137,7 @@ function googleTranslateElementInit() {
 - Susan and I spend some time talking over drinks at the party later that evening.
 - She tells me she would be a pearly queen if they still existed as they are her ancestors.
 - I'm quite impressed.
-- I have forgotten Susan owns an X account which *significantly* repeated a phrase from my [2015 North London rape-gang sexual abuse statement](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) as I was reporting it, on December 5th, Winston May's birthday, in 2024, when I was being battered endlessly online by criminals communicating with law enforcement.
+- I have forgotten Susan owns an X account which *significantly* repeated a phrase from my [2015 North London rape-gang sexual abuse statement](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) as I was tweeting about it, on December 5th, Winston May's birthday, in 2024, when I was being battered endlessly online by criminals communicating with law enforcement.
 
 ![Are you OK](../../content/images/are-u-okay.png)
 
@@ -152,8 +152,10 @@ function googleTranslateElementInit() {
 ![Forg in wanderland](../../content/images/forg/forg-in-wanderland.png)
 
 - I can't find this account on X now. 
-- I was blocked pretty much immediately from using it, as in I lost access to it very early on after posting just a few things, he'd been to Aberdeen and London, I think..
-- My guess is they blocked the account immediately because criminals own X and I'd be vulnerable again.
+- *Frog* was a massive meme throughout the terror I endured in my little apartment in Las Marinas.
+- I was blocked pretty much immediately from using the `@KingForg` X account, as in I lost access to it very early on after posting just a few things, he'd been to Aberdeen and London, silly things like that..
+- Somehow, someone else has taken ownership of the profile name now!
+- My guess is they blocked the account immediately because criminal gangs own X and I'd be vulnerable again.
 - In any event, I'm high in a creative and hallucinatory way and I do wonder what, if anything, may have been added to my bathroom products to cause this.
 - Forg becomes a whole series of photos and posts, and I eventually build a [DESO](april.md#deso) account for him.
 - My posts are nearly always biblical as I pull a passage from the bible at random and create a story around the little Forg that went wrong.
