@@ -132,6 +132,7 @@ function googleTranslateElementInit() {
 ![There's been a misgender](../../content/images/theres-been-a-misgender.jpg)
 
 - There are agents on the train up; one of whom sits beside me and looks surprisingly like Hazel Smith.
+- Her dodgy American accent, did she say Florida, made me wonder about her.
 - Sandra, one of my [electoral volunteers](../2024/june.md#volunteers-not-what-they-seem) and her sister Susan Hamill are there.
 - After the event, they pop into where I'm staying, and (after some looks back-and-forth between them) Susan uses my toilet.
 - Susan and I spend some time talking over drinks at the party later that evening.
