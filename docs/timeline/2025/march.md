@@ -127,18 +127,36 @@ function googleTranslateElementInit() {
 
 ## Let Women Speak Aberdeen
 
-- I travel to [Let Women Speak in Aberdeen](https://www.letwomenspeak.org/event-details/let-women-speak-aberdeen).
-- Sandra, one of my [electoral volunteers](../2024/june.md#volunteers-not-what-they-seem) and her sister Susan are there.
-- They pop into where I'm staying, and Susan uses my toilet.
-- Susan and I spend some time talking over drinks at the party.
-- She tells me she would be pearly queen if they still existed as they are her ancestors.
-- I have forgotten Susan owns an X account which *significantly* repeated a phrase from my sexual abuse statement as I was reporting it, on December 5th, Winston May's birthday, in 2024.
+- I travel to [Let Women Speak in Aberdeen](https://www.letwomenspeak.org/event-details/let-women-speak-aberdeen) by train and I stay up there for the weekend.
+
+![There's been a misgender](../../content/images/theres-been-a-misgender.jpg)
+
+- There are agents on the train up; one of whom sits beside me and looks surprisingly like Hazel Smith.
+- Sandra, one of my [electoral volunteers](../2024/june.md#volunteers-not-what-they-seem) and her sister Susan Hamill are there.
+- After the event, they pop into where I'm staying, and (after some looks back-and-forth between them) Susan uses my toilet.
+- Susan and I spend some time talking over drinks at the party later that evening.
+- She tells me she would be a pearly queen if they still existed as they are her ancestors.
+- I'm quite impressed.
+- I have forgotten Susan owns an X account which *significantly* repeated a phrase from my [2015 North London rape-gang sexual abuse statement](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) as I was reporting it, on December 5th, Winston May's birthday, in 2024, when I was being battered endlessly online by criminals communicating with law enforcement.
 
 ![Are you OK](../../content/images/are-u-okay.png)
 
-- If you have forgotten about the "Are you OK" significance, please reread the [chamber music concert](../2023/may.md#chamber-music-concert) section from May 2023.
-- Susan tells me she has had kidney failure for over 10 years but her doctors only just told her.
-- She also recommends her personal trainer and shows me a photo of him.. and he's trans.
+- I love my response.
+- If you have forgotten about the "Are you OK" significance, please reread the [chamber music concert](../2023/may.md#chamber-music-concert) section from May 2023, and multiple other terror vignettes I describe that come directly from that police statement and which were performed by the people of Dénia in order to terrify me when I didn't leave my studies at the conservatory after the last [chamber music/switcheroo-porn class with the trumpet-teacher gang on the 12th June 2023](../2023/june.md#monday-12th-june-2023) - my funeral, apparently.
+- Susan tells me she has had kidney failure for over 10 years but her doctors only just told her - I believe this is a direct message to me about my poisoning-injured kidney, they got [quite vindictive about my poisoning injuries](april.md#goaded-online) for a while.
+- She also recommends me her personal trainer and shows me a photo of him.. she takes ages finding a photo of him on her WhatsApp... and he's obviously trans.
+- Someone is telling her what to say. Who?
+- On the train back down to London, I'm high again, notably. 
+- I start to create the pictures for this book with ChatGPT, notably the front pages, and I create an X account for the star of the show, the little frog I'm calling *Forg*.
+
+![Forg in wanderland](../../content/images/forg/forg-in-wanderland.png)
+
+- I can't find this account on X now. 
+- I was blocked pretty much immediately from using it, as in I lost access to it very early on after posting just a few things, he'd been to Aberdeen and London, I think..
+- My guess is they blocked the account immediately because criminals own X and I'd be vulnerable again.
+- In any event, I'm high in a creative and hallucinatory way and I do wonder what, if anything, may have been added to my bathroom products to cause this.
+- Forg becomes a whole series of photos and posts, and I eventually build a [DESO](april.md#deso) account for him.
+- My posts are nearly always biblical as I pull a passage from the bible at random and create a story around the little Forg that went wrong.
 
 ## Taking dad out
 
