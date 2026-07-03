@@ -152,7 +152,7 @@ function googleTranslateElementInit() {
 ![Forg in wanderland](../../content/images/forg/forg-in-wanderland.png)
 
 - I can't find this account on X now. 
-- *Frog* was a massive meme throughout the terror I endured in my little apartment in Las Marinas.
+- *Frog* was a massive meme throughout the terror I endured in my little apartment in Las Marinas after I gave the trumpet teacher [a little wooden frog on 12th June 2023](../2023/june.md#at-the-conservatory), that I had bought in Thailand at Christmas, as a parting gift and to thank him for the classes.
 - I was blocked pretty much immediately from using the `@KingForg` X account, as in I lost access to it very early on after posting just a few things, he'd been to Aberdeen and London, silly things like that..
 - Somehow, someone else has taken ownership of the profile name now!
 - My guess is they blocked the account immediately because criminal gangs own X and I'd be vulnerable again.
