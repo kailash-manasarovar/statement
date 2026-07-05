@@ -355,7 +355,7 @@ function googleTranslateElementInit() {
 ![pic]( ../../content/images/targeted-women/39-ai-mix-now.png ) 
 
 - My view is that Hazel Smith controls this account and has been using it to either muddy the waters, or to demonstrate how little she cares about the results of her murderous activities in the world.
-- The woman's face also looks like it could have been AI'ed into the photos of the `@BertDalziel` stalker account holder, along with [Samuel from harmony class](../2022/september.md#harmony) and the [crazy yoga teacher](../2011-to-2020/2015.md#nati-de-prati-yoga) from 2015 who, along with multiple other conspirators, military-couped Natalia's professional life into the porn-gang's hands.
+- The woman's face also looks like it could have been AI'ed into the photos of the `@BertDalziel` stalker account holder, along with [Samuel from harmony class](../2022/september.md#harmony) and the [crazy yoga teacher](../2011-to-2020/2015.md#nati-de-prati-yoga-teacher-and-porn-gang-target-just-like-me) from 2015 who, along with multiple other conspirators, military-couped Natalia's professional life into the porn-gang's hands.
 - Like the other targeted-women accounts, the account profile is bogus but the profile pic is genuine and thoroughly incongruent.
 - I was initially startled to see an expression that looks shocked and upset while viewing something on a computer screen.
 

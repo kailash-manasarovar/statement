@@ -150,7 +150,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - I guess Ivan is a nickname and due to him being monstrous to women, children... pregnant women and babies.
 - I'm reliably informed by solid international sources that this man's name is Bruno.
 - He also appears to be the father of Natalia's son; who is also called Bruno.
-- I suspect he could also be the father of the [gloomy yoga teacher](../../timeline/2011-to-2020/2015.md#nati-de-prati-yoga); npc from Natalia's terror team back in 2015.
+- I suspect he could also be the father of the [gloomy yoga teacher](../../timeline/2011-to-2020/2015.md#nati-de-prati-yoga-teacher-and-porn-gang-target-just-like-me); npc from Natalia's terror team back in 2015.
 - He also appears to be the father of a daughter of [the groomed woman](../../timeline/2024/august.md#grooming-an-innocent-girl-into-porn-101) I saw tons of photos of.
 - Bruno is a curiously Germanic name and I therefore wonder if he could be a descendent of Nazi war criminals who found safe-haven in Dénia and the surrounds after the second world war; a very open secret.
 

@@ -104,7 +104,7 @@ function googleTranslateElementInit() {
 | ![ fake ]( ../content/images/fake-accounts/list/60.png ){width=50%} |  Fake account, industrial-strength stalker. |
 | ![ fake ]( ../content/images/fake-accounts/list/61.png ){width=50%} |  Fake account, industrial-strength stalker. |
 | ![ fake ]( ../content/images/fake-accounts/bertha-dalziel.png ){width=50%} | "Massive in the earwig community" I wonder what that means? |
-| ![ fake ]( ../content/images/fake-accounts/bert-dalziel/samuel-and-yoga-teacher-1.png ){width=50%} | Bert Dalziel looks like an AI mix between [Samuel](../timeline/2022/september.md#chamber-music) and the [weird yoga teacher from 2015](../timeline/2011-to-2020/2015.md#nati-de-prati-yoga). |
+| ![ fake ]( ../content/images/fake-accounts/bert-dalziel/samuel-and-yoga-teacher-1.png ){width=50%} | Bert Dalziel looks like an AI mix between [Samuel](../timeline/2022/september.md#chamber-music) and the [weird yoga teacher from 2015](../timeline/2011-to-2020/2015.md#nati-de-prati-yoga-teacher-and-porn-gang-target-just-like-me). |
 | ![ fake ]( ../content/images/fake-accounts/bert-dalziel/samuel-and-yoga-teacher-2.png ){width=50%} | Bert Dalziel looks like an AI mix between Samuel and the weird yoga teacher from 2015. |
 | ![ fake ]( ../content/images/fake-accounts/katiekmucha.png ){width=50%} | A response to me personally, "Katie, that much?!", after I reveal explosive truths. |
 

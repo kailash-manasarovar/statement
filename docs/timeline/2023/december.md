@@ -426,7 +426,7 @@ function googleTranslateElementInit() {
 - He says they were a romantic item at one point.
 - I tell him the last time I saw her was nearly 10 years before, and she was very unwell with a liver problem.
 - He says, *pobrecita*.
-- In retrospect, I notice that he looks like [Nati's sailor man](../2011-to-2020/2015.md#nati-de-prati-yoga) I see on Facebook in 2025, and I wonder if they are one and the same.
+- In retrospect, I notice that he looks like [Nati's sailor man](../2011-to-2020/2015.md#nati-de-prati-yoga-teacher-and-porn-gang-target-just-like-me) I see on Facebook in 2025, and I wonder if they are one and the same.
 - It would not surprise me.
 - As with everyone else in this statement, I would recognize him in an instant.
 - Does he know something about why Maria was so ill and why the doctors were fobbing her off?
