@@ -225,6 +225,9 @@ function googleTranslateElementInit() {
 - And, I have never felt safer in my whole life than I did/do in Jerusalem and in Israel which you might find surprising but there it is.
 - I was not constantly stalked or threatened online or in person, which is my experience everywhere else in the world.
 - I meet some of the people that would have been assisting, or have taken Steve's courses previously in the US, and we do some Transforming Touch trauma therapy shares... this might be when I first notice my eye-twitching and I remember things about that from the past...
+- I felt safe enough to share my horrific story with the people I met who had studied with Steve.
+- I don't often feel this way. I felt compelled to tell them.
+- Something happened just now at the course I'm on with a decent person who made me feel safe.
 - Anyway, the reason I'm adding this now is because of the Course in Miracles lesson I was studying that week which was awesome.
 - The lesson was [Lesson 160: I am at home. Fear is the stranger here](https://en.wikisource.org/wiki/A_Course_in_Miracles/Workbook_for_Students/I_am_at_home._Fear_is_the_stranger_here).
 
