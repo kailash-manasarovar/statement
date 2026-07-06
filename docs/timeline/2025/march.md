@@ -214,20 +214,19 @@ function googleTranslateElementInit() {
 - The next day, I believe, I travel to Israel.
 - I'm visiting to assist my trauma therapy teacher, Stephen Terrell, who is giving module two of the Transforming Touch course.
 - When I saw him in January for training in Dublin, I asked him if he needed an assistant for Israel.
-- I wasn't going to include any of this because I didn't think it relevant to the main story, but perhaps it is...
-- Anyway, he said yes.
+- He said yes.
 - So, delighted, I immediately made my travel arrangements.
 - I hadn't visited Israel since 2012 when [I fell in love with the country and its people](../2011-to-2020/2012.md#tiferet).
-- It's Purim.
+- It's Purim too.
 - At the last minute, Steve has to cancel his course because of health issues.
 - I'm unable to cancel my travel plans and it's not clear when he's rescheduling, so I go on my own and have a blissful time wandering around Jerusalem and taking it all in; visiting The Wall every day and praying.
 - I had a lot to pray about.
 - And, I have never felt safer in my whole life than I did/do in Jerusalem and in Israel which you might find surprising but there it is.
 - I was not constantly stalked or threatened online or in person, which is my experience everywhere else in the world.
-- I meet some of the people that would have been assisting, or have taken Steve's courses previously in the US, and we do some Transforming Touch trauma therapy shares... this might be when I first notice my eye-twitching and I remember things about that from the past...
+- I meet some of the people that would have been assisting, or have taken Steve's courses previously in the US, and we do some Transforming Touch trauma therapy shares... this might be when I first notice my eye-twitches releasing (I guess coming from harsh physical activity taking place during sedated sexual assault) and I remember things about the twitching from the past too...
 - I felt safe enough to share my horrific story with the people I met who had studied with Steve.
 - I don't often feel this way. I felt compelled to tell them.
-- Something happened just now at the course I'm on (time of writing July 2026) with a decent person who made me feel safe.
+- Something similar happened just now at the course I'm on (time of writing July 2026) with a decent person who made me feel safe.
 - Anyway, the reason I'm adding this now is because of the Course in Miracles lesson I was studying that week which was awesome.
 - The lesson was [Lesson 160: I am at home. Fear is the stranger here](https://en.wikisource.org/wiki/A_Course_in_Miracles/Workbook_for_Students/I_am_at_home._Fear_is_the_stranger_here).
 
