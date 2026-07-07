@@ -650,6 +650,31 @@ function googleTranslateElementInit() {
 - Is he the guy they brought over to Bali to do the sedating and/or set up the spy-cam tech?
 - Was he my lovely squirrel's mate?
 
+### Missing time at the Beach Club
+
+- I'm starting to realize I have a lot of missing time in Bali.
+- One notable event was the night at the Beach Club.
+- It's possible I didn't make it inside before I was sedated.
+- I do remember walking down and seeing all the Spanish men in the pool splashing around, but we hadn't had dinner yet.
+- Except, I don't remember having had dinner there, unless perhaps there was no dinner that evening for some reason, just snacks.
+- There was certainly no sit down meal with everyone, afaik.
+- Anyway.
+- Later, we're all dancing on the lawn.
+- Polygon has invited a lot of employees and managers of external companies who work closely with the firm and companies in the crypto space who don't work closely with the firm.
+- A man from OKX is dancing in a small circle with me and a couple of others.
+- He gets really, really close. Too close, like he thinks we're about to grind or something.
+- I back away respectfully.
+- He is so offended by this.
+- I found it really strange.
+- No one else is grinding or behaving in a sexualized manner anywhere else.
+
+### Cameras up, filming
+
+- Something about this..
+- Like [going to the police in Dénia](february.md#my-first-trip-to-the-spanish-police-in-denia) and a lady putting a camera up on a wall recently.
+- Like everyone's filming.
+- How did they keep the women away, or were they helpers like Zoe an' all.
+
 ### The management team can't look me in the eye or be near me
 
 - The day after one of the switcheroos back at my room - I was unaware of it - I go to lunch as usual and I see all the Polygon managers sitting together.
