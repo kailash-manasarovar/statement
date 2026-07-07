@@ -674,6 +674,7 @@ function googleTranslateElementInit() {
 - Like [going to the police in Dénia](february.md#my-first-trip-to-the-spanish-police-in-denia) and a lady putting a camera up on a wall recently.
 - Like everyone's filming.
 - How did they keep the women away, or were they helpers like Zoe an' all.
+- I guess there's a whole bunch of filmers filming the filmers.
 
 ### The management team can't look me in the eye or be near me
 
