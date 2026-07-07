@@ -668,7 +668,7 @@ function googleTranslateElementInit() {
 - I found it really strange.
 - No one else is grinding or behaving in a sexualized manner anywhere else.
 
-### Cameras up, filming
+### Mobile-phones up, filming
 
 - Something about this..
 - Like [going to the police in Dénia](february.md#my-first-trip-to-the-spanish-police-in-denia) and a lady putting a camera up on a wall recently.
