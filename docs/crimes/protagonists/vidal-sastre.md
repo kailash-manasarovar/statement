@@ -36,6 +36,23 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - Clearly, these men are above and beyond the law so maybe they boldly show themselves without fear of reprisals - what heroes, legends!
 - Required above and beyond anything else is the certainty that the victim will not survive to tell the tale, and we can only guess at how many women and children have been murdered by the gangs over many decades for this requirement.
 
+##### Switcheroo is the preliminary to the horse-porn
+
+- I only realized today.
+- So, first, we know exactly who produces the very famous horse porn they've been producing over there for decades that nearly every British police officer has seen a thousand times, and giggled each time; as if the drugged, brain-damaged, and soon to be murdered humans starring in it don't exist.
+- Once the in-person spy-cam switcheroo-fests are over, if you have a viable business/trade which will bring more porn-fodder to the region, they'll let you live (Natalia).
+- If you have any money, they'll relieve you of it, while training for the horse-porn begins.
+- My guess is even poverty won't save you over there though.
+- Training consists in ramping up the drug and poisoning doses plus the usual manipulation, in-person and online, and simply add a new member to the switcheroo group which happens to be a horse.
+- They commonly set this training session up, I was told, at a car window at night.
+- The target is in the passenger seat of the car with another person driving.
+- The driver is not part of the main-man (trumpet-teacher) group and could be anyone from the town the target might reasonably be in the car with.
+- The car is parked somewhere rural.
+- A horse is cued to pop his head close to the driver's open window and, at the same time, the main man speaks.
+- By this time, a target's brain is in an even worse state than a stroke survivor, and the neural link between the visual (horse) and the audio (main-man) voice is patterned.
+- The target is drugged and trained even further to believe the horse is main man.
+- There is no doubt this was the plan for me.
+
 ### Six distinct men 
 
 #### At least six
