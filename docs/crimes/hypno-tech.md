@@ -31,7 +31,7 @@ It's actually very, very simple, but exceptionally illegal.
 1. Targets for porn, honey-trapping, and sexual exploitation *ideally* have a sexual/relationship trauma history which can be utilized to control them.
 1. If not, gangs can create this (Dave Porter).
 1. Oh, I forgot, one MAJOR element probably assumed to be had by all to greater or lesser degree is *shame*.
-1. With no *shame* to pick out, they have to think of ways to get the target really high.
+1. With no *shame* to pick out, they have to think of shady ways to get the target really high.
 
 ### Targets filtered into buckets for specific triggering
 
