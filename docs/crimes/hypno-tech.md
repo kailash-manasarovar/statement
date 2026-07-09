@@ -26,6 +26,10 @@ It's actually very, very simple, but exceptionally illegal.
 
 1. Full administrative access to a target's devices down to the chip-level.
 1. Access to input from peripherals such as keyboard, earphones etc, for checking heart-rate, body temperature changes, etc.
+1. Targets must be drugged for it to work to full effect.
+1. People online are quite often a little high, after work, after dinner; especially target markets like porn-addicts or the middle-classes.
+1. Targets for porn, honey-trapping, and sexual exploitation *ideally* have a sexual/relationship trauma history which can be utilized to control them.
+1. If not, gangs can create this (Dave Porter).
 
 ### Targets filtered into buckets for specific triggering
 
