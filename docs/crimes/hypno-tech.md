@@ -1,5 +1,13 @@
 # Hypno-tech
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 The porn-gangs of Dénia and North London have been employing vast armies of criminal developers to run game on porn targets and others for many decades.
 
 ![Hypno-tech](../content/images/hypno-tech.png)

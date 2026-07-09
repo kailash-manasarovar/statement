@@ -30,5 +30,5 @@ hide:
 
 <img src="/content/images/remembering-lorraine.jpg" alt="Remembering">
   <div class="quote">
-    “This book is dedicated to my friend Lorraine Blackbourn who should still be with us.”
+    “This book is dedicated to my friend Lorraine Blackbourn who should still be with us.”<sup>∞</sup>
   </div>
