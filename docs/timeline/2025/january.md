@@ -807,11 +807,26 @@ function googleTranslateElementInit() {
 - He's driving as my car is still in Madrid at the airport.
 - Paul talks and talks and talks; and some - not a lot but some - of it is very interesting.
 - He spills the beans a fair bit. 
-- And he's bound to hand the whole bean-tin over without much complaint.
+- And he's bound to hand the whole bean-tin over without much complaint... if he hasn't already.
+- He's receiving a lot of texts from [Lucy who appears to be telling him what to say to me](#pauls-best-friend-lucy).
 - We talk a lot about how he's going to come and help me move my stuff from Dénia back to London in a few weeks time.
 - As I just mentioned, I intended to update my will and I had a will registered in Glastonbury which I wanted to formally delete - although I already made a new one just before the general election - another urgently intuited need no doubt.
 - The lawyer in Glastonbury is one of the lawyers I speak to about all this.
 - Paul tries to stay in the meeting we have to listen and find out how much money I have, but she kicks him out which I find amusing.
+
+### The Yew tree at Compton Dundon
+
+- I take Paul to some places in the area that I like.
+- He can't walk very far (even though he's talking about going skiing in France) without his ankles collapsing so we don't do too much.
+- I suggest we go to the Yew tree at Compton Dundon.
+- We're walking round the tree and all of a sudden, out of the blue, for no reason at all, Paul starts rattling on about devil worshippers.
+- And I've no idea why he would bring this up, it's very extraneous, and he goes on about devil worshippers for a short while, then he stops.
+- 18-months later, I remember [a related event from 2008](../2001-to-2010/2008.md#ssp-shamanic-conference-in-compton-dundon-somerset-uk) where a woman, Susan McNaughton, tried to frighten me at the Yew tree and elsewhere with her devil worshipping nonsense.
+- For sure it's a gang connection, but for what purpose?
+- To frighten and destabilize me in 2025 so my mind hasn't the space to figure out [the switcheroo scam](../../crimes/protagonists/vidal-sastre.md#at-least-six)?
+- And in 2008, why frighten me using the same words Winston May has said to me in 1989? For what purpose?
+- Were they worried I was going to remember more and more of what happened in 1989 and go back to the police?
+- Anyway, Paul, you dropped yourself in it there pet.
 
 ### Asking Paul what I should do about my pesticide-ridden car
 
