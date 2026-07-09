@@ -826,9 +826,9 @@ function googleTranslateElementInit() {
 - 18-months later, I remember [a related event from 2008](../2001-to-2010/2008.md#ssp-shamanic-conference-in-compton-dundon-somerset-uk) where a woman, Susan McNaughton, tried to frighten me at the Yew tree and elsewhere with her devil worshipping nonsense.
 - For sure it's a gang connection, but for what purpose?
 - Another pick at frightening and destabilizing me so that my mind hasn't the space to figure out [the switcheroo scam](../../crimes/protagonists/vidal-sastre.md#at-least-six)?
-- Or to make a link to something ridiculous so that I could be discredited easily, just like [Paloma had tried to do in Madrid the October previous](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid); perhaps that was the original plan?
-- Anyway, Paul, you dropped yourself in it there pet but I don't think you cared much.
-- In fact, I think even *you* sounded like you thought what you were saying was ridiculous.
+- Or to make a link to something ridiculous so that I could be discredited easily, just like [Paloma had tried to do in Madrid the October previous](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid)?
+- Perhaps that was the original plan in 2008.
+- Even Paul sounded like he thought what he was saying was ridiculous, like he was happy to finish when his speech was done (he may have been reading lines for that one).
 
 ### Asking Paul what I should do about my pesticide-ridden car
 
