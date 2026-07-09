@@ -829,6 +829,7 @@ function googleTranslateElementInit() {
 - Or to make a link to something ridiculous so that I could be discredited easily, just like [Paloma had tried to do in Madrid the October previous](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid)?
 - Perhaps that was the original plan in 2008.
 - Even Paul sounded like he thought what he was saying was ridiculous, like he was happy to finish when his speech was done (he may have been reading lines for that one).
+- I think he even sighed when he finished. And if sighs had words, this sigh said *you stupid idiots*.
 
 ### Asking Paul what I should do about my pesticide-ridden car
 
