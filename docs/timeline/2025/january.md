@@ -819,14 +819,18 @@ function googleTranslateElementInit() {
 - I take Paul to some places in the area that I like.
 - He can't walk very far (even though he's talking about going skiing in France) without his ankles collapsing so we don't do too much.
 - I suggest we go to the Yew tree at Compton Dundon.
-- We're walking round the tree and all of a sudden, out of the blue, for no reason at all, Paul starts rattling on about devil worshippers.
+- We take a walk around the tree and Paul is looking at his phone.
+- All of a sudden, out of the blue, for no reason at all, Paul starts rattling on about devil worshippers.
 - And I've no idea why he would bring this up, it's very extraneous, and he goes on about devil worshippers for a short while, then he stops.
+- I'm not sure what to say to him.
 - 18-months later, I remember [a related event from 2008](../2001-to-2010/2008.md#ssp-shamanic-conference-in-compton-dundon-somerset-uk) where a woman, Susan McNaughton, tried to frighten me at the Yew tree and elsewhere with her devil worshipping nonsense.
 - For sure it's a gang connection, but for what purpose?
-- To frighten and destabilize me in 2025 so my mind hasn't the space to figure out [the switcheroo scam](../../crimes/protagonists/vidal-sastre.md#at-least-six)?
+- To frighten and destabilize me in 2025 so that my mind hasn't the space to figure out [the switcheroo scam](../../crimes/protagonists/vidal-sastre.md#at-least-six)?
+- Or to make a link to something ridiculous so I could be discredited easily, just like [Paloma had tried to do in Madrid the October previous](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid)?
 - And in 2008, why frighten me using the same words Winston May has said to me in 1989? For what purpose?
 - Were they worried I was going to remember more and more of what happened in 1989 and go back to the police?
-- Anyway, Paul, you dropped yourself in it there pet.
+- Anyway, Paul, you dropped yourself in it there pet but I don't think you cared much.
+- In fact, I think even *you* sounded like you thought what you were saying was ridiculous.
 
 ### Asking Paul what I should do about my pesticide-ridden car
 
