@@ -74,6 +74,11 @@ function googleTranslateElementInit() {
 
 ![choker seeds](../../content/images/choker-seeds.png)
 
-- Cyber-stalkers and honey-trappers call this "planting seeds" as preliminary activity on the run up to a serious crime.
-- The "choker seeds" are the seeds which when sprout, and you notice, take the breath from your lungs the shock is so great.
+- Cyber-stalkers and honey-trappers call these "choker seeds" meaning psychological-breakdown preparatory activity.
+- This was told to me on X via fake accounts.
+- In fact, what I was seeing was likely happening to me three or four times a week in my bed while I was sedated.
+- The "choker seeds" are the seeds which when eventually sprout - as in criminals remind you of them later on by posting them on your social media timelines - and you notice, may take the breath from your lungs the shock is so great.
+- I'm talking about things like [seeing my 16-year old self in porn on X](../2023/december.md#seeing-child-rape-gang-porn-from-1989-again) as a 50 year old woman who did not know that had happened to her.
+- My guess is they usually show a target like me snippets of switcheroo or whatever they've done but they weren't able to get me to that stage of the game.
+- But it's things like that. Tips over the edge. Porn with your child in, maybe. Pure evil.
 - One wonders if any targets might have suffered heart attacks, or similar, from the "choker seeds".
