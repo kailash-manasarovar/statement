@@ -35,15 +35,33 @@ function googleTranslateElementInit() {
 - I occasionally bump into a man in the lift in my building who grins at me, slightly lasciviously, whenever he sees me, as if he knows something about me.
 - I think he's a bit pervy, but I'm a little flattered too.
 - He lives on one of the floors above me on my stairwell.
-- Sometimes he is with, what I assume to be, his teenage daughter.
+- Sometimes he is with, what I assume to be, his later-years teenage daughter.
 - They are both fair haired. He is perhaps 45 and reasonably good looking.
-- He always grins at me in a sort of flirtatious way, but not quite flirtatious as he's not at all communicating with me.
+- She has exceedingly long blond hair and actually reminds me a little of [the woman on Dénia TV porn](../2001-to-2010/2008.md#denia-tv) in, what did you call it, standing spit? 🤮
+- She doesn't acknowledge me and has her head down looking at her phone.
+- The man grins at me again in a flirtatious way, but not quite flirtatious as he's not at all communicating with me.
 - I now believe he was involved from the start and perhaps was already watching me in my apartment. His grin, therefore, may have been rather more sinister.
 - Is it possible this man was involved in poisoning or drugging the mains water that goes to my house, and/or managing a LAN network of hidden cameras? Or does he perhaps know who is involved in this?
 - It seems reasonable to assume that everyone at Carrer Furs knows what's going on.
 
 !!! info
     - More recently, in October 2024, I bumped into him again in the building's gardens and he was unable to look me in the eye. He seemed embarrassed. He was with his wife.
+
+### Small children and a baby
+
+- There was always a lot of noise on a Monday night after a chamber music class in the upstairs apartment above mine; people talking, tables and chairs scraping the floor, loud voices, babies crying sometimes, way into the early hours.
+- The building's walls are like paper. You can hear someone fart loudly in the next block. They must have loved me!
+- On other occasions - such as during the daytime - I often heard a small child's footsteps running back and forth as if they were playing.
+- I heard this child a lot in the daytime.
+- I assumed the people upstairs must have a small child and I had also assumed the occupant upstairs was this blond guy, but I could be wrong, and it doesn't seem to fit either him having so many children old and young, but you'll figure it out.
+- One afternoon, and I don't know what prompted this, I became anxious and suspicious about the people upstairs.
+- I decided to go up and take a look at their front door, I can't remember why.
+- So I go up in the lift (they'll have seen me of course) and when I get to the floor above I step out and I can hear people inside the apartment, and they've left their baby car seat outside the door.
+- It's a small baby size, as far as I can remember, and I believe I heard the/a baby crying sometimes too.
+- So, one has to wonder...
+- Well, of course they did.
+- It's unbearably revolting.
+- However, there is one very good thing about this, which is, those participants yet to come will not be able to deny they knew about the baby rape. 
 
 ## Planting the choker seeds
 
