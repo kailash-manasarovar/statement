@@ -49,19 +49,22 @@ function googleTranslateElementInit() {
 
 ### Small children and a baby
 
-- There was always a lot of noise on a Monday night after a chamber music class in the upstairs apartment above mine; people talking, tables and chairs scraping the floor, loud voices, babies crying sometimes, way into the early hours.
+- From November 2022 to June 2023, there was always a lot of noise on a Monday night after a chamber music class ([switcheroo-porn session at the conservatory](../../crimes/protagonists/vidal-sastre.md#at-least-six)) in the upstairs apartment above mine; people talking, tables and chairs scraping the floor, loud voices, babies crying sometimes, way into the early hours.
 - The building's walls are like paper. You can hear someone fart loudly in the next block. They must have loved me!
-- On other occasions - such as during the daytime - I often heard a small child's footsteps running back and forth as if they were playing.
+- The noise from upstairs continued after [12th June 2023](../2023/june.md#monday-12th-june-2023) and I heard it at other times of the day too.
+- Nothing strange here, I just assumed a family lived up there.
+- I often heard a small child's footsteps running back and forth as if they were playing.
 - I heard this child a lot in the daytime.
-- I assumed the people upstairs must have a small child and I had also assumed the occupant upstairs was this blond guy, but I could be wrong, and it doesn't seem to fit either him having so many children old and young, but you'll figure it out.
+- I assumed the people upstairs must have a small child and I had also assumed the occupant upstairs was this blond guy I just mentioned, but I could be wrong, and it doesn't seem to fit either him having so many children old and young, but you'll figure it out.
 - One afternoon, and I don't know what prompted this, I became anxious and suspicious about the people upstairs.
-- I decided to go up and take a look at their front door, I can't remember why.
+- This event took place sometime between November 2023-March 2024 as it was a wintry day and the battle was in full swing.
+- I decided to go up and take a look at their front door, I can't remember how doing this might have related to the anxiety I'm having about the people upstairs.
 - So I go up in the lift (they'll have seen me of course) and when I get to the floor above I step out and I can hear people inside the apartment, and they've left their baby car seat outside the door.
-- It's a small baby size, as far as I can remember, and I believe I heard the/a baby crying sometimes too.
+- It's a small baby size, as far as I can remember, and I believe I heard the/a baby crying inside the apartment.
 - So, one has to wonder...
 - Well, of course they did.
 - It's unbearably revolting.
-- However, there is one very good thing about this, which is, those participants yet to come will not be able to deny they knew about the baby rape. 
+- However, there is one very good thing about this, which is, those participants yet to come will not be able to deny they knew about, saw, enjoyed, and did nothing to stop the baby rape, bestiality, and pedophilia broadcast live from Carrer Furs, Las Marinas, Dénia, Spain. 
 
 ## Planting the choker seeds
 
