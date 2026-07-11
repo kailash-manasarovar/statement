@@ -120,6 +120,15 @@
 - She quickly launches into a fake speech about nothing; the way they do.
 - I sense darker intentions.
 - I wonder if this is [Verity's weird roommate](../2011-to-2020/2013.md#traveling-back-to-uk-at-christmas-with-verity-sawyer)?
+
+## Aunty Paddy pops a note through the door
+
+- Paddy, dad's sister, Leah's mum, sends a little handwritten note to mum and dad.
+- In it, she basically says, and very extraneously, Leah's boyfriend Chris is a wrong un.
+- I knew this already and they'd already offered him up in October 2024, except [I lost the pic when they rendered my machine unaccessible](../2024/december.md#losing-significant-online-communications-sent-by-the-porn-gangs).
+- I wonder if Paddy is instructed to say this.
+- The last few times I saw her, sporadically, like once every five years maybe, she always has *something* to say to me and the energy of it is always *shaming*, somehow.
+- I wonder about her.
     
 ## Richard at Newgrange 
 
