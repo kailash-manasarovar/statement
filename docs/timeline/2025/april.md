@@ -36,8 +36,12 @@
 - I see Chris Ludwick, from [the N8 band](../pre-2001/1990.md#n8) back in the 90s, a few times this year.
 - One weekend, probably in April or May maybe, I visit him in Stevenage.
 - We go out for lunch, a walk, and a chat somewhere nearby where there's a small farm, a shop, a cafe, and some woodland.
-- I think it was this day he told me about all his records nearly having sold and that, after no interest in them for three decades, suddenly people have been requesting them off ebay from all over the world: Australia, Portugal, etc.
-- I'm amazed, and suspicious.
+- I'm telling him what's going on for me, as far as I understand it at the time (pre-switcheroo-porn realization).
+- It's so good to be able to talk to someone about all this without them shutting me down, and I trust Chris.
+- He stays quiet and mostly let's me speak.
+- I think it was this day he told me about all his N8 records nearly having sold and that, after no interest in them for three decades, suddenly people have been requesting them off ebay from all over the world: Australia, Portugal, etc.
+- He's only got two or three left.
+- I'm amazed, and suspicious it's connected to me somehow.
 - He makes sure to tell me the buyers were only interested in the instrumental B-side.
 
 ## Tether job interview
