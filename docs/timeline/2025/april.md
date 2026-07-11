@@ -31,6 +31,15 @@
 - You meet a lot of agents, as you might imagine.
 - I met a very interesting one who was totally honest, and I thought, wow that is so cool!
 
+## Chris tells me nearly all his N8 records have sold
+
+- I see Chris Ludwick, from [the N8 band](../pre-2001/1990.md#n8) back in the 90s, a few times this year.
+- One weekend, probably in April or May maybe, I visit him in Stevenage.
+- We go out for lunch, a walk, and a chat somewhere nearby where there's a small farm, a shop, a cafe, and some woodland.
+- I think it was this day he told me about all his records nearly having sold and that, after no interest in them for three decades, suddenly people have been requesting them off ebay from all over the world: Australia, Portugal, etc.
+- I'm amazed, and suspicious.
+- He makes sure to tell me the buyers were only interested in the instrumental B-side.
+
 ## Tether job interview
 
 - I apply for a senior technical writer role with Tether.
