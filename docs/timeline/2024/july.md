@@ -66,12 +66,12 @@ function googleTranslateElementInit() {
 - He gives me his card.
 - He's running a crypto business in Alicante, apparently, and he's looking for a technical writer, apparently.
 - He has a brown flasher's overcoat coat and he is using a stick to walk, which is probably fake.
-- (I understand we know who he is now).
 - At one point in our conversation I ask him if he's a religious man.
 - He gets visibly scared.
 - I think it's cos he's Islamic and they don't like talking to women about religion.
 - Now, I'm not so sure.
 - He'll be on CCTV, oh you know already, great.
+- I understand we know exactly who he is now.
 
 ### Gabriel Silva is given my role at Polygon
 
