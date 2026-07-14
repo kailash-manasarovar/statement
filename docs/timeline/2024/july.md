@@ -66,6 +66,7 @@ function googleTranslateElementInit() {
 - He gives me his card.
 - He's running a crypto business in Alicante, apparently, and he's looking for a technical writer, apparently.
 - He has a brown flasher's overcoat coat and he is using a stick to walk, which is probably fake.
+- (I understand we know who he is now).
 - At one point in our conversation I ask him if he's a religious man.
 - He gets visibly scared.
 - I think it's cos he's Islamic and they don't like talking to women about religion.
