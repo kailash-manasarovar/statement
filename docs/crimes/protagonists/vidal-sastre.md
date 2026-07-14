@@ -52,7 +52,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - A scripted vignette is already in place - part of the violence training no doubt, as we are that far along now and there will be regular filmed and always worsening sexual violence happening to the target - that causes her (I believe it is always a her for the horse porn, correct me if I'm wrong) to turn away from the horse in fear so as to not look at it closely or for too long.
 - By this time, a target's brain is in an even worse state than a stroke survivor, and the neural link between the visual (horse) and the audio (main-man) voice is patterned.
 - The target is then repeatedly drugged and trained again and again to believe the horse is main man, until the main event.
-- There is no doubt this was the end goal for me and I wonder if my dad knew.
+- There is no doubt this was the end goal for me and I wonder if my dad knew, and I wonder less and less about this as the days go on.
 - My guess is all the regular porn-addicts knew, including him, and were following my journey, avidly...
 
 ### Six distinct men 
