@@ -14,6 +14,7 @@ function googleTranslateElementInit() {
 - I stay at a posh hotel near the airport in Mumbai for a couple of days by myself in safety.
 - I feel like I'm getting pneumonia I'm coughing so much.
 - I crack the same rib [I cracked at yoga class](march/1-12.md#cracked-rib) from coughing in my hotel room.
+- I wonder if this is a rape injury from the heavy weights of multiple men.
 - I'm coughing up blood now.
 - I call the hotel doctor. He prescribes serious antibiotics and pleurisy medicine and says to call him in a day to let him know how I'm doing.
 - I manage to [write to the Guardia Civil](march/13-end.md#letter-to-the-guardia-civil) and send the letter registered from the hotel.
