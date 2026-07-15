@@ -990,7 +990,7 @@ function googleTranslateElementInit() {
 #### Thoughts on the amount of women involved in raping women
 
 - It occurs to me, with absolute horror, that the amount of women fully involved in prepping and organizing situations in which women and children and babies will be raped by thousands of men for porn is truly off the scale.
-- Miriam in Spanish HR is prime suspect here, as is Grace close friends with Jordi.
+- Miriam in Spanish HR is prime suspect here; as is Grace, close friends with Jordi.
 - What have humans become?
 
 ## Collecting my devices from the technical expert DPR
