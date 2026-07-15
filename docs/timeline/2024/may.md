@@ -679,6 +679,7 @@ function googleTranslateElementInit() {
 - He may have even been at [the weird retreat at the Buddhist monastery](../2001-to-2010/2008.md#the-chi-kung-course-at-the-monastery) as well: a short, balding man with longish fairish hair who talks a lot, too much. Wouldn't that be crazy!
 - This man was at [the Beach Club](#missing-time-at-the-beach-club) and I remember him at the Hyatt beach dinner too.
 - I didn't see him anywhere else, he was never in amongst the employees for breakfast or work sessions.
+- Oh, and they may have kept the innocent devs away from it all by getting them to work on "urgent" deployments every night.
 
 ### Mobile-phones up, filming
 
