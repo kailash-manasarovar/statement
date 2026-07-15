@@ -668,6 +668,17 @@ function googleTranslateElementInit() {
 - I found it really strange.
 - No one else is grinding or behaving in a sexualized manner anywhere else.
 
+### People who I see a lot but have never worked with
+
+- And never see again.
+- One man from Australia but lived in the Netherlands who reminded me of a woman. 
+- He was with me at the airport on arrivals, on the bus, and sat with me at dinner a few times.
+- I saw him doing his arm ring thing in the gym one evening too, Jordi was also there that time.
+- Another guy I have just realized I may have seen before in Dénia, one of the ones who walked off in horror when I mentioned the forgivenet.
+- He may have even been at [the weird retreat at the Buddhist monastery](../2001-to-2010/2008.md#the-chi-kung-course-at-the-monastery) as well: a short, balding man with longish fairish hair who talks a lot, too much. Wouldn't that be crazy!
+- This man was at [the Beach Club](#missing-time-at-the-beach-club) and I remember him at the Hyatt beach dinner too.
+- I didn't see him anywhere else, he was never in amongst the employees for breakfast or work sessions.
+
 ### Mobile-phones up, filming
 
 - Something about this..
