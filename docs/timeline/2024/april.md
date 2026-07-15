@@ -450,6 +450,9 @@ function googleTranslateElementInit() {
 
 - Who did he talk to?
 - What did he find out that made him back off hurriedly?
+- Was he fully involved in the sedated-rape sex-slave conspiracy?
+- Do the porn-gangs find him reliable in cases where hacked and desperate victims seek help from the law?
+- In July 2026, I hear he might be my friend.
 
 ### WhatsApp with Roberto the English-speaking lawyer
 
