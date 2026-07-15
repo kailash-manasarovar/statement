@@ -667,6 +667,7 @@ function googleTranslateElementInit() {
 - He is so offended by this.
 - I found it really strange.
 - No one else is grinding or behaving in a sexualized manner anywhere else.
+- Was I in a live rape show of some variety? 
 
 ### People who I see a lot but have never worked with
 
