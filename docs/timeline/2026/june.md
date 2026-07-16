@@ -70,7 +70,7 @@ function googleTranslateElementInit() {
 - Obsession has disappeared, I wonder if I imagined everything.
 - I guess I got a MASSIVE dose of something, again.
 - But I'm wondering, is my love dead? Or was I so ill that I used every resource in my body to stay alive, and that included my fire, my passion.
-- I start thinking about going back to my old life, getting a job, what job, and suddenly all my emails are offering me jobs.
+- I start thinking about going back to my old life, getting a job, what job, as if that's possible!, and suddenly all my emails are offering me jobs.
 - Not the first time this happened.
 - Why. Who. How. What happened in Kailash I don't know about?
 - Who is determined to bring on porn-world mainstream - not that it already isn't?
