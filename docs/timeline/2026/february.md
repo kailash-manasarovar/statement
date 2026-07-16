@@ -120,7 +120,8 @@ function googleTranslateElementInit() {
 - Back in the 80s, just like today, there were adult-male groomers in every town, village, and suburb of big cities looking to manipulate youngsters into having sex with them.
 - Simon Gaskin of Garden House, Grange Estate N2, and amateur photographer, may have the largest and significantly psychopathic collection of porn.
 - They were often part of a male porn-addict network and in Simon's case, he would have been alerted to the fact I had seen him and thought he was cute via one of the most egregious groomers in East Finchley, Richard Reid.
-- Richard befriended girls aged 12-14.
+- Simon introduced me to his "friends" who we might me out sometimes, nothing sinister I thought apart from the snickering and leering at me. One of them was called "Spider" and we met him in Hampstead High Street one Saturday afternoon. Was Simon marketing?
+- Simon's friend Richard befriended girls aged 12-14.
 - Even in my twenties I saw him sitting out on summer evenings on East Finchley High Road with schoolgirls.
 - Back in the day, it was a free for all and we were the naive and impressionable opportunities.
 - Richard had already befriended Willow, a friend of mine, through her neighbour Tyro Harvey (son of a famous rock star) who was also much younger than Richard, but older than us, and as equally impressed by him as we were.
@@ -137,7 +138,7 @@ function googleTranslateElementInit() {
 - Richard even made it into my [2015 police statement](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) he was such an obvious perv.
 - Porn was always lurking in the background, mentioned within earshot amongst the men.
 - While I was seeing Simon, he kept mentioning porn.
-- He had a friend who he hung around with (can't remember his name but he lived down on Falloden Way in the suburb over a shop with his mum).
+- He had a friend who he hung around with who lived down on Falloden Way in Hampstead Garden Suburb over a shop with his mum, Victor!
 - This friend's girlfriend, Simon would tell me excitedly, did porn.
 - I didn't know what he was going on about.
 - I was 15, remember.
