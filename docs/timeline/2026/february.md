@@ -119,7 +119,8 @@ function googleTranslateElementInit() {
 
 - Back in the 80s, just like today, there were adult-male groomers in every town, village, and suburb of big cities looking to manipulate youngsters into having sex with them.
 - Simon Gaskin of Garden House, Grange Estate N2, and amateur photographer, may have the largest and significantly psychopathic collection of porn.
-- They were often part of a male porn-addict network and in Simon's case, he would have been alerted to the fact I had seen him and thought he was cute via one of the most egregious groomers in East Finchley, Richard Reid.
+- Another male (sedated-rape/pedo) porn-addict network running parallel to the mainstream one my dad was a member of, or did they know each other, or are these networks one and the same?
+- In Simon's case, he would have been alerted to the fact I had seen him and thought he was cute via one of the most egregious groomers in East Finchley, Richard Reid.
 - Simon introduced me to his "friends" who we might me out sometimes, nothing sinister I thought apart from the snickering and leering at me. One of them was called "Spider" and we met him in Hampstead High Street one Saturday afternoon. Was Simon marketing?
 - Simon's friend Richard Reid of Hertford Court, Hertford Road (at least his mum lived there) befriended girls aged 12-14 and had a "girlfriend" who was 18.
 - Willow met Richard often and was introduced to his dad once.
