@@ -118,6 +118,7 @@ function googleTranslateElementInit() {
 ### Groomers
 
 - Back in the 80s, just like today, there were adult-male groomers in every town, village, and suburb of big cities looking to manipulate youngsters into having sex with them.
+- Simon Gaskin of Garden House, Grange Estate N2, and amateur photographer, may have the largest and significantly psychopathic collection of porn.
 - They were often part of a male porn-addict network and in Simon's case, he would have been alerted to the fact I had seen him and thought he was cute via one of the most egregious groomers in East Finchley, Richard Reid.
 - Richard befriended girls aged 12-14.
 - Even in my twenties I saw him sitting out on summer evenings on East Finchley High Road with schoolgirls.
