@@ -121,8 +121,10 @@ function googleTranslateElementInit() {
 - Simon Gaskin of Garden House, Grange Estate N2, and amateur photographer, may have the largest and significantly psychopathic collection of porn.
 - They were often part of a male porn-addict network and in Simon's case, he would have been alerted to the fact I had seen him and thought he was cute via one of the most egregious groomers in East Finchley, Richard Reid.
 - Simon introduced me to his "friends" who we might me out sometimes, nothing sinister I thought apart from the snickering and leering at me. One of them was called "Spider" and we met him in Hampstead High Street one Saturday afternoon. Was Simon marketing?
-- Simon's friend Richard befriended girls aged 12-14.
+- Simon's friend Richard Reid of Hertford Court, Hertford Road (at least his mum lived there) befriended girls aged 12-14 and had a "girlfriend" who was 18.
+- Willow met Richard often and was introduced to his dad once.
 - Even in my twenties I saw him sitting out on summer evenings on East Finchley High Road with schoolgirls.
+- His mother was so angry that he was bringing all these little girls round to her house. But she never stopped it, she just scowled at us.
 - Back in the day, it was a free for all and we were the naive and impressionable opportunities.
 - Richard had already befriended Willow, a friend of mine, through her neighbour Tyro Harvey (son of a famous rock star) who was also much younger than Richard, but older than us, and as equally impressed by him as we were.
 - They would hang out in Cherry Tree Woods and approach children.
