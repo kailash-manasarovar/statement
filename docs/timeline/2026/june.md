@@ -51,7 +51,8 @@ function googleTranslateElementInit() {
 - Nevertheless, and aside from total important-male insanity, letting these people carry on regardless is a crime against humanity.
 - And anything a bit like, *they told us they'd stop, they pwomised us*, which appears to be law-enforcement protocol across our brave new world of protected rapists, is an even bigger crime against humanity.
 
-## My current view on the world
+## Post Kailash
+### My current view on the world
 
 - Hopeless.
 - I can see no hope at all for anyone if women, children, and babies are to be sacrificed at the altars of porn which are wholly protected by our elected governments and police services.
@@ -63,6 +64,15 @@ function googleTranslateElementInit() {
 - My view is that the *queer* business ensured everyone's total OK'ness about the sexualization of minors and it is my view that this was a very intentional weapon forged against the West with the help of the gitano manipulators making money off the caliphate's oil barons since 2012 and earlier.
 - My view is that the Islamicists know very well the arrogance of the West and it's adherents' inability to admit to being tricked in this way, to it's continued detriment.
 - Very smart indeed from the Islamicists, and supported by their terrified attitudes towards their own women and children, hiding them away from everything, just in case the same might happen to them... I guess.
+
+### Brain-wipe
+
+- Obsession has disappeared, I wonder if I imagined everything.
+- I guess I got a MASSIVE dose of something, again.
+- But I'm wondering, is my love dead? Or was I so ill that I used every resource in my body to stay safe, and that included my fire.
+- I start thinking about going back to my old life, getting a job, what job, and suddenly all my emails are offering me jobs.
+- Not the first time this happened.
+- Why. Who. How. What happened in Kailash I don't know about?
 
 ## I am Rohini
 
