@@ -179,7 +179,7 @@ function googleTranslateElementInit() {
 - Was it supposed to be upsetting?
 - Did Nicos have a criminal porn subscription to my porn-demise like millions of others?
 - Could men really hate women, children, and babies this much?
-- At his house in his garden, I explain what's been going on, how I'm being cyber-stalked online and gang-stalked at home in Spain.
+- At his house in his garden, with his son who is a teenager now and his teenage friends who are girls, I explain what's been going on, how I'm being cyber-stalked online and gang-stalked at home in Spain.
 - I tell him they took photos and videos of a sexual nature and terrorized me out of the conservatory in fear for my life.
 - It's only about 1% of what's really been happening to me, but I tell him everything I'm aware of.
 - He appears to be horrified.
