@@ -163,32 +163,36 @@ function googleTranslateElementInit() {
 
 ### Meeting my Belgian friend
 
-- I have a dear friend in Belgium with a fabulous name.
-- He's the lead singer of a rather good band, Mister Cover, and he does lots of other cool stuff too.
+- I have a friend in Belgium with a fabulous name.
+- He's the lead singer of a band, Mister Cover, which is entirely funded by the European Union; vehicles, venues, salaries too maybe. They make no money.
 - I take the opportunity to visit him while I'm in Brussels as he lives very close by.
-- We have a lovely evening together.
-- He plays me a song he wrote.
-- He wants to tell me what it's about.
-- It's about how when he was a teenager, a girl he was having a consensual sexual relationship had gotten a bit rough with him, and he felt violated.
+- He's just got back from an extended tour in Reunion.
+- We have a lovely evening together at one of his houses.
+- He plays me a song he wrote in the car on the way.
+- He wants to tell me what it's about; he's keen to tell me. 
+- He state it's about how when he was a teenager, a girl he was having a consensual sexual relationship had gotten a bit rough with him, and he felt violated.
 - He goes into great detail about this major sexual-trauma in his life.
 - I'm sitting there thinking... this man hasn't a clue about anything.
-- It's upsetting.
+- A thought crosses my mind given my current experiences that he's taking the piss and involved, but it's so fleeting as the hatred required for that is too off-the-scale for me to consider possible.
+- It's upsetting nevertheless.
 - Nearly two years later, as more and more men do double-takes in the street when they see me - always grinning but in 2026 not quite so snickeringly - I find this extremely interesting.
 - Was it supposed to be upsetting?
 - Did Nicos have a criminal porn subscription to my porn-demise like millions of others?
 - Could men really hate women, children, and babies this much?
-- I explain what's been going on, how I'm being cyber-stalked online and gang-stalked at home in Spain.
+- At his house in his garden, I explain what's been going on, how I'm being cyber-stalked online and gang-stalked at home in Spain.
 - I tell him they took photos and videos of a sexual nature and terrorized me out of the conservatory in fear for my life.
 - It's only about 1% of what's really been happening to me, but I tell him everything I'm aware of.
 - He appears to be horrified.
 - I'm nearly crying, but I pull up knowing that if it starts it won't stop.
-- Eventually, a bit amazed by his song, I also mention my experience at the hands of the Tottenham rape gangs from 1989 and how the Spanish terrorists have been flashing the porn from it on my screen.
+- His mum, sister, and two brothers come round later and we sit in the garden with a drink and some supper.
+- Eventually, on the way back to my hotel, and a bit amazed by his song, I mention my experience at the hands of the Tottenham rape gangs from 1989 and how the Spanish terrorists have been flashing the porn from it on my screen.
+- He says nothing.
 - I'm adding this section for investigators who may need to corroborate what I told Nicos while still under the effects of constant drugging and poisoning.
 - It will be a good gauge as to how much I knew at that time; just after running for office in the UK general election, and the political silencing there, and whilst attending EthCC with everything going on for me professionally with my colleagues who likely had porn-subscriptions to my apartment's live-stream.
 - I'm about to travel back to Dénia where criminal gangs are planning on finishing me off, knowing no-one will care, and so they can do their worst, which they do, very brazenly and openly, and so I keep writing it all down, which they most certainly did not expect while they carried on digging their own pits.
 - He tells me his birthday is 1st April; I tweet about this.
 - The trumpet teacher hackers were saying that TT's birthday was 1st April around this time.
-- He will tell me in 2025 online that it is on another day in March and I'm surprised to hear it.
+- He will tell me in 2025 online that it is on another day in March, 25th I think, and I'm surprised to hear it.
 - How does hatred get so out of control? Is it because it's unquestionable, because everyone around you believes the same lies, because of the boners on top?
 - Utterly sexually obsessed with women and children and babies; yet terrified and full of bitter seething loathing towards us or they could not do/watch what they pay so much to do/watch.
 - It must be a *huuuuuge* WhatsApp channel, dedicated to just me and other porn-targets-no-one-will-help probably.
@@ -199,6 +203,18 @@ function googleTranslateElementInit() {
 - How does everyone go on knowing that women and children have been totally sacrificed to porn?
 - Or does it have to effect you personally before you care, and until then you just go on pretending, not looking?
 - How does it feel to be included in the generation of men who became so perverted they destroyed the world for everyone?
+
+#### A previous visit
+
+- I had visited Nico in November (I think) 2011 to see his band play at the Ancienne Belgique.
+- I stayed at another house of theirs, maybe his mum's house, the family home.
+- I had a big room with a double bed and a bathroom next door.
+- As Nicos was showing me around the house he was giggling and exuberant while reminiscing a visit from my dad (and presumably my mother too) in the 1990s (good guess).
+- He showed me all this writing on the walls that someone had done when they were, presumably, very drunk.
+- *Damien Doon*, was written there.
+- Nicos kept saying, *Damien Doon*, and laughing hysterically.
+- Sounds like they had an extraordinary time.
+- *Damien Doon* is world-play on *Ben Doon* which you can probably figure out...
 
 ## Evidence of mass cyber-stalking technology, or something more sinister
 
