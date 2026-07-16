@@ -192,17 +192,18 @@ function googleTranslateElementInit() {
 - I'm about to travel back to Dénia where criminal gangs are planning on finishing me off, knowing no-one will care, and so they can do their worst, which they do, very brazenly and openly, and so I keep writing it all down, which they most certainly did not expect while they carried on digging their own pits.
 - He tells me his birthday is 1st April; I tweet about this.
 - The trumpet teacher hackers were saying that TT's birthday was 1st April around this time.
-- He will tell me in 2025 online that it is on another day in March, 25th I think, and I'm surprised to hear it.
+- He will tell me in 2025 online that it is on another day in March, 25th or 28th I think, and I'm surprised to hear it.
 - How does hatred get so out of control? Is it because it's unquestionable, because everyone around you believes the same lies, because of the boners on top?
 - Utterly sexually obsessed with women and children and babies; yet terrified and full of bitter seething loathing towards us or they could not do/watch what they pay so much to do/watch.
 - It must be a *huuuuuge* WhatsApp channel, dedicated to just me and other porn-targets-no-one-will-help probably.
 - I guess Rocio Vidal was on there too; they're probably bored with her now. Is she well though?
 - Do non-Spanish governments give out lists these days to the porn gangs of women and children they will never help?
-- What's his face used to just get sent the women and kids no-one was gonna miss, didn't he.
+- Whats-his-face used to just get sent the women and kids no-one was gonna miss, didn't he.
 - I wonder how many were sent from Dénia.
 - How does everyone go on knowing that women and children have been totally sacrificed to porn?
 - Or does it have to effect you personally before you care, and until then you just go on pretending, not looking?
 - How does it feel to be included in the generation of men who became so perverted they destroyed the world for everyone?
+- I got really cross writing the last lines of this section, hence the rant.
 
 #### A previous visit
 
