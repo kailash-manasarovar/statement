@@ -6,8 +6,9 @@
 - I'll let you know..
 
 <!--
-## Very little difference here to Carrer Furs
+## Goodbyes
 
+- Very little difference here to Carrer Furs.
 - I'm watched 24-7, but to an even greater extent.
 - I'm allowed out a couple of hours each day and my comms are blocked. 
 - In prison at least I could set up healing circles :DDDD
@@ -24,6 +25,7 @@
 - Anyway, it has been wonderful and I enjoyed much of it.
 - A true learning experience.
 - I realized many things that, in my lengthy isolation, seemed vague and unclear. So thank you so much for that.
+- Significantly that when it comes to time wasting, I can also be guilty of it.
 - And, the intuitive thing is so interesting... I wonder, is everyone practicing course values and Golden Rule? I feel like your close but then perhaps something unloving gets in... perhaps Bible study could help.
 - Oh, and did you notice that all my miracle study mapped events day by day, it was like JC summarizing and clarifying our interactions. I'd go back and look at that because it was a bit MIND-BLOWING for me...
 - I think that's it <3
