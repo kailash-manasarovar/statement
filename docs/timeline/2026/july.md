@@ -13,7 +13,7 @@
 - I'm allowed out a couple of hours each day and my comms are blocked. 
 - In prison at least I could set up healing circles :DDDD
 - I star in a show every day with a bunch of actors, who I adore by the way.
-- Whenever I try to speak truth against a lie, my voice breaks which is *interesting*, when I say interesting it's like... common to think someone is lacking confidence or whatever, but actually it's a sign the other person is lying. It's quite cool.
+- Whenever I try to speak truth against a lie, my voice breaks which is *interesting*, when I say interesting it's like... common to think someone is lacking confidence or whatever, but actually it might be a sign the other person is lying. It's quite cool.
 - So I was feeling like here is rather like the conservatory with their endless pastiches and then back home to my sex-slave spy-cammed apartment, apart from the sexual assaults and, well, intense drugging.
 - So, un eouf est un oeuf ...
 - And I am definitely ready to see the porn now, there must be MASSES of it.
@@ -27,7 +27,8 @@
 - I realized many things that, in my lengthy isolation, seemed vague and unclear. So thank you so much for that.
 - Significantly that when it comes to time wasting, I can also be guilty of it.
 - And, the intuitive thing is so interesting... I wonder, is everyone practicing course values and Golden Rule? I feel like you're close but then perhaps something unloving gets in... perhaps Bible study could help.
-- Oh, and did you notice that all my miracle study mapped events day by day, it was like JC summarizing and clarifying our interactions. I'd go back and look at that because it was a bit MIND-BLOWING for me...
+- Oh, and did you notice that all my miracle-study mapped events day by day, including this morning, it's like JC summarizing and clarifying our interactions, even speaking directly to people. I'd go back and look at that because it was a bit MIND-BLOWING for me... like utterly mind-blowing, so wonderful.
+- I can't ignore all this obviousness anymore, and that's where you got me to, again thank you <3 I'm deeply grateful for that.
 - I think that's it <3
 - Oh no, something else, all that being said, I think we make a great team.
 -->
