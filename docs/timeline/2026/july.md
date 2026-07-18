@@ -27,4 +27,5 @@
 - And, the intuitive thing is so interesting... I wonder, is everyone practicing course values and Golden Rule? I feel like your close but then perhaps something unloving gets in... perhaps Bible study could help.
 - Oh, and did you notice that all my miracle study mapped events day by day, it was like JC summarizing and clarifying our interactions. I'd go back and look at that because it was a bit MIND-BLOWING for me...
 - I think that's it <3
+- Oh no, something else, all that being said, I think we make a great team.
 -->
