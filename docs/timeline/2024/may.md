@@ -358,6 +358,7 @@ function googleTranslateElementInit() {
 !!! danger "Let's be clear about this..."
     - If Polygon, Elon, Fireblocks, and all the rest of those sex offending tech-bros thought for one minute I might survive all this to tell the tale, it would have never happened.
     - This certainty made them show and tell me things they might now wish they hadn't, so that's good.
+    - Also, because this event happened really late on in my extended sedated-rape crucifixion, we can be sure all participants were watching sickening and depraved sexual acts - some likely including children and animals - live-streamed from my apartment from February 2022 until Polygon fired me in October 2024, after which the gangs immediately tried to [murder me by poison](october.md#serious-poisoning-with-intent-to-kill). These predominantly men, and some women, won't be able to deny the knowledge and consumption of such vile content.
 
 - I am in Bali from 11th-19th May with work.
 - We stay at the [Grand Hyatt](https://www.hyatt.com/grand-hyatt/en-US/balgh-grand-hyatt-bali).
