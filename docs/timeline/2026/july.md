@@ -15,4 +15,9 @@
 - So, un eouf est un oeuf ...
 - And I am definitely ready to see the porn now, there must be MASSES of it.
 - Don't think for one minute this means I do not love you.
+- I will never be a spy. 
+- But it has been wonderful and I enjoyed much of it.
+- A true learning experience.
+- I know I haven't left quite yet :DDDDD
+- But the Carrer Furs parallel is just too much.
 -->
