@@ -246,6 +246,7 @@ function googleTranslateElementInit() {
 - I put it down to peri-menopause after Googling my symptoms but continued to be concerned about it and the wisdom teeth I still have.
 - I started looking for a dentist.
 - I looked a German dentist up in Javea and made an appointment. However, I was shocked to see porn all over their website, which I told them about by email. Concerned about the porn, I eventually decided to contact a dentist in Dénia instead.
+- Obviously, I was redirected to a dentist who was a member of the porn-gangs, and/or owned by them.
 - I went to https://www.adentaria.com/.
 - I explained I was a nervous patient on arrival.
 - The dentist came in, masked up and didn't even say hello to me.
@@ -253,11 +254,17 @@ function googleTranslateElementInit() {
 ![Scary dentist](../../content/images/dentist.png)
 
 - He immediately starts poking my teeth with his poker and listing off to the girl a whole bunch of fillings I apparently need.
-- It was horrendous.
+- It was horrendous, it was meant to be.
 - I stopped the whole thing and left.
-- I was never able to delete their WhatsApp contact from my phone. It was a weird glitch which I still have in evidence.
-- I now believe this was all set up by cyber-stalkers. I was directed to go to this particular dentist.
-- The dentist seemed to know who I was, and he did his best to terrify me by being brutish towards me.
-- I now wonder if the plan was that I would meet this dentist again, and he would probably still be masked up.
+- I was never able to delete their WhatsApp contact from my phone. It was a weird glitch which I still have in evidence - if no-one has messed with the phone I left in the attic at 31.
+- The dentist seemed to know who I was, and he did his best to terrify me by being brutish towards me, and he made sure I never saw his face (he was likely snickering behind the mask).
 
 ![Dentish review](../../content/images/dentist-review.png)
+
+- Anyway, dentists and (anything to do with mouth examinations or similar) for a sexual trauma survivor are a nightmare, and I have avoided going to the dentist whenever unnecessary.
+- Online, and as part of the ongoing romance manipulation, I found myself wishing that the trumpet teacher would accompany me to the dentist due to my fears, and this was spoke about online before I knew what was going on in any rational way.
+- Also, at the conservatory, Gloria mentioned going to the dentist in a significantly "meaningful" way one afternoon at the conservatory (probably after I had started interacting more directly with the "trumpet teacher"/gangs online) which was supposed to trigger a fear reaction (we know everything private about you) but instead made me more convinced these people needed help (vernacular) and made me wonder about and question everything more and more (a shot in one's own foot for them, again).
+- So, *going to or being accompanied on a trip to the dentist* had become a terror meme as well, in explanation.
+- Incidentally, when I eventually made it to the dentist in Bangkok the following July, I got a 100% clean bill of health.
+- I told them all the symptoms I had had previously - which had already gone - pain, swelling, inflammation, and they were shocked when I said it had cleared up, which they confirmed.
+- Instead I had a very unpleasant teeth cleaning operation which was likely worse on me in terms of trauma-triggers than any dental surgery I have ever had!!
