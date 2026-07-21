@@ -264,7 +264,7 @@ function googleTranslateElementInit() {
 - Anyway, dentists and (anything to do with mouth examinations or similar) for a sexual trauma survivor are a nightmare, and I have avoided going to the dentist whenever unnecessary.
 - Online, and as part of the ongoing romance manipulation, I found myself wishing that the trumpet teacher would accompany me to the dentist due to my fears, and this was spoke about online before I knew what was going on in any rational way.
 - Also, at the conservatory, Gloria mentioned going to the dentist in a significantly "meaningful" way one afternoon at the conservatory (probably after I had started interacting more directly with the "trumpet teacher"/gangs online) which was supposed to trigger a fear reaction (we know everything private about you) but instead made me more convinced these people needed help (vernacular) and made me wonder about and question everything more and more (a shot in one's own foot for them, again).
-- So, *going to or being accompanied on a trip to the dentist* had become a terror meme as well, in explanation.
+- So, *going to or being accompanied on a trip to the dentist* became another terror-meme.
 - Incidentally, when I eventually made it to the dentist in Bangkok the following July, I got a 100% clean bill of health.
-- I told them all the symptoms I had had previously - which had already gone - pain, swelling, inflammation, and they were shocked when I said it had cleared up, which they confirmed.
-- Instead I had a very unpleasant teeth cleaning operation which was likely worse on me in terms of trauma-triggers than any dental surgery I have ever had!!
+- I told them all the symptoms I had had previously - which had already gone - pain, swelling, inflammation, and they were shocked when I said they had cleared up, which they then confirmed.
+- Instead of any dentistry, I had a very unpleasant teeth cleaning operation which was likely worse on me in terms of trauma-triggers than any dental surgery I have ever had!!
