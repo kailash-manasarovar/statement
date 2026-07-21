@@ -255,6 +255,14 @@ function googleTranslateElementInit() {
 - Did my brother insist she throw it away?
 - Was he getting conflicting instructions which he was unable to not follow?
 
+### Bach's Christmas Oratorio
+
+- A baroque concert played by the Jerusalem Baroque Orchestra was on at the YMCA in Jerusalem.
+- They were playing Bach's Christmas Oratorio. 
+- I bought a ticket and went along.
+- I had the music in my head for weeks afterwards and drove my mother mad singing it very loudly in the kitchen.
+- It felt like a little miracle to me.
+
 ## Dom Halloran
 
 - I contact Channel 4 about the documentary starring Sandra & Hazel Smith.
