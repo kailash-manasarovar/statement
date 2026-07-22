@@ -889,8 +889,9 @@ function googleTranslateElementInit() {
 - She starts to sway in the water, her hands moving trance-like left to right, her body swishing gently left-right rhythmical with the waves I assume as they go past.
 - He never looks back at her. 
 - He does not change his movements in the same way she does.
-- At the time, with no knowledge of the women-and-children poisoning-and-drugging porn-scams going on in the region, I thought this whole business was very odd.
+- At the time - with no knowledge of the women-and-children poisoning-and-drugging porn-scams going on in the region - I thought this whole business was very odd.
 - I now believe she was totally off her head on drugs, and he was training her and demonstrating this grotesque woman-training show to me for some sick reason, the way they do.
+- Was she lined up to star in the horse porn, soon?
 
 ## Meeting Christine
 
