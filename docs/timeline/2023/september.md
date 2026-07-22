@@ -892,7 +892,10 @@ function googleTranslateElementInit() {
 - He does not change his movements in the same way she does.
 - At the time - with no knowledge of the women-and-children poisoning-and-drugging porn-scams going on in the region - I thought this whole business was very odd.
 - I now believe she was totally off her head on drugs, and he was training her and demonstrating this grotesque woman-training show to me for some sick reason, the way they do.
-- Was she lined up to star in the horse porn, soon?
+- Was she next up to star in the horse porn? And that's why I didn't seem them again?
+- Incidentally, at some point after this I remember tweeting about wanting to dye my hair, and one of the stalkers replied quickly, *as long as it's not red*. And I wondered why they would say that.
+- Do they have a casting department which requires particular looks or physical characteristics such as skin color, eye color, hair color, and they mustn't have two in a row of the same?
+- Are they that corporate nowadays?
 
 ## Meeting Christine
 
