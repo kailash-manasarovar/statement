@@ -879,16 +879,16 @@ function googleTranslateElementInit() {
 - Every day, a short while after I've sat down, I see a very odd couple, a man and a woman.
 - The man could be in his 70s and the woman late 50s or so.
 - The man gives off the air of being someone important; by the way he's walking, his posture maybe, his hair (difficult to remember but longish, wavy, brown-grey, a fair bit of hair, perhaps a moustache, the feel I got from him was 70s porn-king).
-- The woman has bright red (dyed) long curly hair and is wearing a leopard skin=print bikini/swimsuit.
+- The woman has bright red (dyed) long curly hair and is wearing a leopard-skin-print bikini/swimsuit.
 - He may have had leopard-skin print on too, or perhaps little red trunks. I'm not sure.
-- They walk down to the beach from the rocks area to my right as I'm sitting facing the sea.
+- They walk down to the water from the rocks area to my right as I'm sitting facing the sea.
 - I see him first, then her behind him.
 - The thing is, he is always about 10/20 feet in front of her, while she follows behind.
 - Their pace is slow, deliberate, staged, and while he's walking, she's 10/20 feet behind and she seems to be high.
 - They enter the water, maintaining their gait and their pace, and the distance between them.
-- She starts to sway in the water, her hands moving trance-like left to right, her body swishing gently left-right rhythmical as they go past.
+- She starts to sway in the water, her hands moving trance-like left to right, her body swishing gently left-right rhythmical with the waves I assume as they go past.
 - He never looks back at her. 
-- He does not move in the same way as her.
+- He does not change his movements in the same way she does.
 - At the time, with no knowledge of the women-and-children poisoning-and-drugging porn-scams going on in the region, I thought this whole business was very odd.
 - I now believe she was totally off her head on drugs, and he was training her and demonstrating this grotesque woman-training show to me for some sick reason, the way they do.
 
