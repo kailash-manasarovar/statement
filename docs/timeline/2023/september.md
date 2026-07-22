@@ -879,6 +879,7 @@ function googleTranslateElementInit() {
 - Every day, a short while after I've sat down, I see a very odd couple, a man and a woman.
 - The man could be in his 70s and the woman late 50s or so.
 - The man gives off the air of being someone important; by the way he's walking, his posture maybe, his hair (difficult to remember but longish, wavy, brown-grey, a fair bit of hair, perhaps a moustache, the feel I got from him was 70s porn-king).
+- He actually reminded me a tiny bit of the South African bigamist who used to run the Hostal Cristina in the town where I did yoga on a Tuesday morning from 2007 onwards.
 - The woman has bright red (dyed) long curly hair and is wearing a leopard-skin-print bikini/swimsuit.
 - He may have had leopard-skin print on too, or perhaps little red trunks. I'm not sure.
 - They walk down to the water from the rocks area to my right as I'm sitting facing the sea.
