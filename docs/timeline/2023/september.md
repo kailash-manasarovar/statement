@@ -893,9 +893,11 @@ function googleTranslateElementInit() {
 - At the time - with no knowledge of the women-and-children poisoning-and-drugging porn-scams going on in the region - I thought this whole business was very odd.
 - I now believe she was totally off her head on drugs, and he was training her and demonstrating this grotesque woman-training show to me for some sick reason, the way they do.
 - Was she next up to star in the horse porn? And that's why I didn't seem them again?
-- Incidentally, at some point after this I remember tweeting about wanting to dye my hair, and one of the stalkers replied quickly, *as long as it's not red*. And I wondered why they would say that.
-- Do they have a casting department which requires particular looks or physical characteristics such as skin color, eye color, hair color, and they mustn't have two in a row of the same?
+- Incidentally, at some point after this I remember tweeting about wanting to dye my hair, and one of the stalkers replied quickly, *as long as it's not red*. And I wondered why they would say that. 
+- Probably my tweet about that will be easy to find, I can't be bother to look *and* it seems my `@1FRGVN` account is unsearchable for some reason, or my tweets have been deleted by the backend.
+- The interaction makes me wonder if the porn-gangs have a casting department which requires particular looks or physical characteristics such as skin color, eye color, hair color, and they mustn't have two in a row of the same?
 - Are they that corporate nowadays?
+- Seems likely.
 
 ## Meeting Christine
 
