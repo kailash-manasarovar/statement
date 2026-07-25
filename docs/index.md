@@ -36,15 +36,17 @@ In October 2025, I realized [something extraordinary about the Tenor Cortis cons
 
 Up to that time, I had been suffering constant clandestine drugging in the hope, I assume, I never realized that at least six different men had been acting as the same one man posing as a music teacher at the conservatory for the purposes of [their very famous switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) they frequently run for an international porn-addict audience. Since then, I was drugged a little in Lourdes in April 2026 and then again in July 2026 in Bali for purposes I have yet to understand.
 
-Serious poisoning attempts have continued but their nature has changed from serious attempts to end my life to let's see if she survives, the last serious attempt being [in Tibet in June 2026](timeline/2026/june.md#kailash).
+Serious poisoning attempts have continued but their nature has changed from attempts to end my life to a sort of freak-show *let's see if she survives again*, the last time being [in Tibet in June 2026](timeline/2026/june.md#kailash).
 
-I have to say, it's getting a bit annoying, but I do seem to be terribly famous because of it in certain circles and I am stalked endlessly by security services and not so much the criminal gangs anymore, which is rather nice.
-
+I have to say, it's getting a bit annoying, but I do seem to be terribly famous because of it in certain circles. I am now stalked endlessly by security services and not so much the criminal gangs anymore, which is rather nice. 
+<!--
+It's worth mentioning, perhaps, that for someone like myself to be the catalyst which breaks decades of women and children and now babies lured and led into the porn-gang's vile and often murderous clutches, no-one caring, is horrifying; true end-time activities. 
+-->
 ![Novel cover](content/images/the-novel/cover.webp)
 
 However, these bizarre agent-overwhelm activities have limited the places I can stay in peace to an even greater extent.
 
-I remain homeless and essentially stateless, with zero friends or family. I have symptoms of brain-damage which feel a bit like I've landed on another planet and I don't know how anything works. Strangely, this has improved my meditations and prayers so I don't mind too much.
+I remain homeless and essentially stateless, with few friends and no supportive family. I have symptoms of brain-damage which feel a bit like I've landed on another planet and I don't know how anything works. Strangely, this has improved my meditations and prayers so I don't mind too much.
 
 I am unable to work as before because most of my colleagues and managers over the last decade or so were subscribing to my sex-slave switcheroo porn-stardom!
 
