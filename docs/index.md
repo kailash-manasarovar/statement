@@ -32,15 +32,23 @@ Eventually, because I had no idea about what was happening to me, and because th
 
 I continue to be gang-stalked and cyber-terrorized online and in-person to this day.
 
-Up until I remembered [something extraordinary about the Tenor Cortis conservatory of Dénia, a government-run music school, in September 2025](timeline/2025/october.md#thunderbolt-clarity) and how it doubles as a porn-studio using teachers, staff, and children as its actors - with unwitting students as its drugged and brain-damaged *porn-stars* - I continued to suffer clandestine drugging and poisoning (attempted murder) anywhere I was in the world.
+In October 2025, I realized [something extraordinary about the Tenor Cortis conservatory of Dénia, a government-run music school](timeline/2025/october.md#thunderbolt-clarity) and how it doubles as a porn-studio using teachers, staff, and children as its actors - with unwitting students as its drugged and brain-damaged *porn-stars*.
 
-After I realized the extent to which the Spanish school system has been taken over by international criminal porn-gangs, I was only briefly drugged one time in Lourdes in April 2026 and all poisoning, one would hope, has since ceased.
+Up to that time, I had been suffering constant clandestine drugging in the hope, I assume, I never realized that at least six different men had been acting as the same one man posing as a music teacher at the conservatory for the purposes of [their very famous switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) they frequently run for an international porn-addict audience. Since then, I was drugged a little in Lourdes in April 2026 and then again in July 2026 in Bali for purposes I have yet to understand.
+
+Serious poisoning attempts have continued but their nature has changed from serious attempts to end my life to let's see if she survives, the last serious attempt being [in Tibet in June 2026](timeline/2026/june.md#kailash).
+
+I have to say, it's getting a bit annoying, but I do seem to be terribly famous because of it in certain circles and I am stalked endlessly by security services and not so much the criminal gangs anymore, which is rather nice.
 
 ![Novel cover](content/images/the-novel/cover.webp)
 
-I am currently homeless and essentially stateless, with zero friends or family, and I am unable to work.
+However, these bizarre agent-overwhelm activities have limited the places I can stay in peace to an even greater extent.
 
-I do, however, have a lot of God.
+I remain homeless and essentially stateless, with zero friends or family. I have symptoms of brain-damage which feel a bit like I've landed on another planet and I don't know how anything works. Strangely, this has improved my meditations and prayers so I don't mind too much.
+
+I am unable to work as before because most of my colleagues and managers over the last decade or so were subscribing to my sex-slave switcheroo porn-stardom!
+
+I continue to walk with God.
 
 ## Mass voyeurism, cyber-stalking, gang-stalking, honey-trapping, sedated spy-cam rape-porn, poisoning and drugging, and staggering levels of sexual violence against women, children, and babies
 
