@@ -311,7 +311,7 @@ function googleTranslateElementInit() {
 - She ended up throwing it away.
 - A few weeks later, on advice, I start washing all the clothes I keep 10 times to get the toxicity out.
 - I throw out everything I can't wash, and some of my shoes never lose the toxicity no matter how much I wash them so I end up throwing out all my shoes.
-- I also end up having to throw anything which has plastic buttons or some sort of unwashable material, like the plastic of my car's steering wheel because those items remained toxic no matter how much I washed them.
+- I also end up having to throw anything which has plastic buttons or some sort of unwashable material, like the plastic of my car's steering wheel, because those items remained toxic no matter how much I washed them.
 
 ### Second thoughts on Dom Halloran
 
