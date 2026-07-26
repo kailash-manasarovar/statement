@@ -28,6 +28,7 @@ function googleTranslateElementInit() {
 ## Hazel Smith pretends to be Esteve online
 
 - The fake account below has the face of [Esteve the chamber music teacher](../2023/september.md#chamber-music) in the profile pic but no-one is expecting me to think he's running it.
+- Joy. Amazing.
 
 [![Esteve's pic](../../content/tweets/may-2024/hazel-posing-as-esteve.jpg)](https://x.com/ChoralSymphony)
 
