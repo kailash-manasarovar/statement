@@ -31,4 +31,6 @@
 - I can't ignore all this obviousness anymore, and that's where you got me to, again thank you <3 I'm deeply grateful for that.
 - I think that's it <3
 - Oh no, something else, all that being said, I think we make a great team.
+
+- p.s. all that, what if you woke up without legs...?? and we're letting them just carry on, year after year...????? it's incredible
 -->

@@ -100,6 +100,7 @@
 ### Other teachers and students to a greater or lesser degree
 
 - Maria Hontanilla, my piano teacher during year 3 of professional piano.
+- Who is the girl she is with in the photo, and what happened to her?
 
 ![Maria Hontanilla](../../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png)
 
