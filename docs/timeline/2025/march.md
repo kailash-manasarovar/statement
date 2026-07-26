@@ -242,12 +242,19 @@ function googleTranslateElementInit() {
 - I had a lot to pray about.
 - And, I have never felt safer in my whole life than I did/do in Jerusalem and in Israel which you might find surprising but there it is.
 - I was not constantly stalked or threatened online or in person, which is my experience everywhere else in the world.
-- I meet some of the people that would have been assisting, or have taken Steve's courses previously in the US, and we do some Transforming Touch trauma therapy shares... this might be when I first notice my eye-twitches releasing (I guess coming from harsh physical activity taking place during sedated sexual assault) and I remember things about the twitching from the past too...
+- I meet some of the people that would have been assisting, or have taken Steve's courses previously in the US, and we do some Transforming Touch trauma therapy shares... this might be when I first notice the fascia around my eyes releasing with twitching (I guess coming from harsh physical activity taking place during sedated sexual assault) and I remember things about the twitching from the past too... significantly that my family (mother and brother) had always denied I had twitching eyes whenever I asked them if I did.
+- I realized that they had lied to me about that and I could not understand why they would do that. I still don't. It doesn't make sense.
+- I totally get why Sandra would lie about the same thing; she was committed to the porn-gangs who needed to keep me ignorant about what was happening to me.
+- Could my mother and brother have been similarly committed?
+- Anyway.
 - I felt safe enough to share my horrific story with the people I met who had studied with Steve.
 - I don't often feel this way. I felt compelled to tell them.
-- Something similar happened just now at the course I'm on (time of writing July 2026) with a decent person who made me feel safe.
-- Anyway, the reason I'm adding this now is because of the Course in Miracles lesson I was studying that week which was awesome.
-- The lesson was [Lesson 160: I am at home. Fear is the stranger here](https://en.wikisource.org/wiki/A_Course_in_Miracles/Workbook_for_Students/I_am_at_home._Fear_is_the_stranger_here).
+- Something similar happened just now at the course I'm on (time of writing July 2026) with a decent person who made me feel safe. I was compelled on the first morning to describe my *party-trick* to the group as surviving successive murder attempts by poisoning!
+
+### Lesson 160
+
+- 160 weeks since February 2022 when I started the workbook to study one lesson a week.
+- This week the lesson was [Lesson 160: I am at home. Fear is the stranger here](https://en.wikisource.org/wiki/A_Course_in_Miracles/Workbook_for_Students/I_am_at_home._Fear_is_the_stranger_here).
 
 ![Rainbow at the wall](../../content/images/rainbow-at-the-wall.jpeg)
 
