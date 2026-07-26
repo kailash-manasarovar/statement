@@ -154,16 +154,35 @@ function googleTranslateElementInit() {
 
 - I can't find this account on X now. 
 - *Frog* was a massive meme throughout the terror I endured in my little apartment in Las Marinas after I gave the trumpet teacher [a little wooden frog on 12th June 2023](../2023/june.md#at-the-conservatory), that I had bought in Thailand at Christmas, as a parting gift and to thank him for the classes.
-- I was blocked pretty much immediately from using the `@KingForg` X account, as in I lost access to it very early on after posting just a few things, he'd been to Aberdeen and London, silly things like that..
+- I was blocked pretty much immediately from using the `@KingForg` X account, as in I lost access to it very early on after posting just a few things, he'd been to Aberdeen and London, silly things like that.
 - Somehow, someone else has taken ownership of the profile name now!
-- My guess is they blocked the account immediately because criminal gangs own X and I'd be vulnerable again.
+- This, and heaps of other weird activity, has to have been done on the backend by X employees on instruction.
 - In any event, I'm high in a creative and hallucinatory way and I do wonder what, if anything, may have been added to my bathroom products to cause this.
 - Forg becomes a whole series of photos and posts, and I eventually build a [DESO](april.md#deso) account for him.
 - My posts are nearly always biblical as I pull a passage from the bible at random and create a story around the little frog that went wrong.
 
 ## Taking dad out
 
-- wip
+- My father is elderly and [he fell down the stairs on All Saints day in 2024](../2024/november.md#my-father-falls-down-the-stairs) and broke 21 ribs.
+- He's not really getting better, at least he's very immobile, so I endeavour to take him out every day when I'm at home.
+- Taking dad out, and cleaning him up after he poos himself, quickly becomes my responsibility in everyone's minds at 31 (not mine).
+- I mention this because him pooing himself and me having to clean it up is significantly what makes me decide to not take him to Lourdes in July, where [the Lopez-Canos of Dénia and their associates will try and fail to murder me by poison](july.md#lourdes), and they needed me to be on my own for that.
+- Dad had stopped pooing himself for some months by June of this year - or I wouldn't have booked us both to travel to France - and then suddenly just before we were due to go, he poos himself cataclysmically.
+- I believe he took laxatives to bring it on, and was instructed to do so by [the woman at the Red Lion](july.md#the-woman-at-the-red-lion).
+- Anyway.
+- We always go for a coffee, or breakfast, or lunch, and usually he tells me where he wants to go and I take him.
+- One of the places dad wants to go frequently is [the Red Lion pub in High Barnet](https://www.stonehouserestaurants.co.uk/nationalsearch/eastofengland/theredlionbarnet#/) for a carvery dinner.
+- Weird things happen there on every visit which I have written about in this police statement.
+- It seems dad is more than a little bit familiar with this place, i.e. it's not somewhere he just likes to go, something more is going on here with him and the people that work here or that frequent here.
+- I think this was the most significantly dubious place dad wanted to go, apart from [his favorite mobile phone shop](april.md#dad-makes-me-take-him-to-his-dodgy-islamic-phone-specialist-on-camden-high-street) in Camden.
+- If there's any other places, I'll let you know but I think that's it.
+- Whenever I take dad to the Red Lion, I'm always away from him for a good few minutes - getting the dinner, going to the bar, or going to the toilet.
+- There's always more than sufficient time for someone to talk to him without my knowledge.
+
+### The Bald Faced Stag
+
+- We go in here from time to time, not often.
+- I just mention this because dad got a bit freaked out by all the stag skulls on the wall, which in retrospect is rather wonderful.
 
 ## A man who reminds me of Domingo
 
