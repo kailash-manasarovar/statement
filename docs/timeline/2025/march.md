@@ -317,6 +317,7 @@ function googleTranslateElementInit() {
 
 - Having gone from absolute certainty there was something fishy with Dom Halloran from Channel 4 to feeling like I must have just been making connections where there were none, I now have reverted to wondering if perhaps this is something worth looking at more closely.
 - In fact, after recent events, I think it's probably worth a closer look.
+- I mean, someone at Channel 4 *must* know who these two are and remember the documentary about them.
 
 ## Moorfields Eye Hospital
 
