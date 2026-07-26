@@ -290,6 +290,7 @@ function googleTranslateElementInit() {
 - I bought a ticket and went along.
 - I had the music in my head for weeks afterwards and drove my mother mad singing it very loudly in the kitchen.
 - It felt like a little miracle to me, a little nod from Great Spirit.
+- Whenever those sorts of things happened - a fair bit - I always felt safer, as if I was part of a bigger thing I did not understand, and that everything was going to be OK.
 
 ## Dom Halloran
 
