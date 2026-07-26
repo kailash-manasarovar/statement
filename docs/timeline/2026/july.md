@@ -17,13 +17,14 @@
 - I got the feeling God had punished them, somehow, for doing whatever it was, for being stupid idiots.
 - Anyway, I figured they were probably coming in from either house beside mine, maybe to take body samples, etc, or even more invasive stuff given an odd keyhole wound maybe or a funny wound on my eye-skin, so I blocked entries (well, I put something in the way they wouldn't be able to return correctly so I'd know for sure if someone had been in) and I had the best sleep I'd had in decades maybe.
 - I told everyone that too.
-- I didn't want to tell anyone about what I thought had happened because it felt unsafe to do that.
+- It was not just because they weren't able to come in without me knowing, but on top everything had been revealed and I was clearer about so many *secret-stalky* things that just seemed so bizarre for such a long time.
+- I didn't want to tell anyone about what I thought had happened because it felt unsafe to do that there.
 - I did not feel unsafe.
 - But if it's true, then God really means business.
-- And I started to realize, from bible study also, that He really really means business, like it's going to be massive.
-- And that He keeps me safe.
+- And I started to realize, from bible study also, that He really really means business, like it's going to be massive, like we need to get a move on so we can save people.
+- And I realized too that He is keeping me safe.
 - I tried to reason with them about this, quoting scripture, I'm not sure they got it at all.
-- I'm probably going to delete all this... wdyt?
+- I'm probably going to delete all this... wdyt? 
 - So I started to realize I had to leave really, that their intentions were not wholesome or favorable to me, but not hurriedly... I was still figuring that out, it takes time, and there's always an optimal moment.
 - And then more bible coming in which sounded like it was imperative I left asap, and the thought of another year of this sort of thing was just.. brrrrr.
 - So when I heard "pack" on Saturday morning in meditation - I think it came from one of the others actually, they do that which is quite interesting but I think I can tell the difference fairly easily, with guidance of course, and I think this has been happening A LOT too, which is also interesting, and I usually just ignore it, big things as well, things that if I took onboard would probably get me killed - so I made a clear decision to leave at that moment.
