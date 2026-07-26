@@ -299,7 +299,7 @@ function googleTranslateElementInit() {
 - They can't help me.
 - Here's [my original email](../../content/documents/emails/dom-halloran-2.png) and [the reply](../../content/documents/emails/dom-halloran-1.png). 
 - The name immediately reminded me of Domingo, and also the name of the psychic caretaker in the film, The Shining.
-- I'm so horribly hacked, it felt like they tailored this message just for me in an "up yours" kind of way, like they've been doing with everything else.
+- I'm so horribly hacked, and permanently high on something, it felt like they tailored this message just for me in an "up yours" kind of way, like they've been doing with everything else.
 - Or perhaps it was a most marvelous coincidence.
 - This is how I felt on 15th March 2025.
 - However, while editing this section in March 2026, I realize that my concern about the name *Dom Halloran* was somewhat over the top.
@@ -311,6 +311,12 @@ function googleTranslateElementInit() {
 - She ended up throwing it away.
 - A few weeks later, on advice, I start washing all the clothes I keep 10 times to get the toxicity out.
 - I throw out everything I can't wash, and some of my shoes never lose the toxicity no matter how much I wash them so I end up throwing out all my shoes.
+- I also end up having to throw anything which has plastic buttons or some sort of unwashable material, like the plastic of my car's steering wheel because those items remained toxic no matter how much I washed them.
+
+### Second thoughts on Dom Halloran
+
+- Having gone from absolute certainty there was something fishy with Dom Halloran from Channel 4 to feeling like I must have just been making connections where there were none, I now have reverted to wondering if perhaps this is something worth looking at more closely.
+- In fact, after recent events, I think it's probably worth a closer look.
 
 ## Moorfields Eye Hospital
 
