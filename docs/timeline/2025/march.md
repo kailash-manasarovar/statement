@@ -263,12 +263,14 @@ function googleTranslateElementInit() {
 - I'd been back in UK with my stuff for about three weeks before I traveled to Israel.
 - I'd started getting pains all over my body; in the neck and shoulders, back, hips, everywhere during this time.
 - I was still high on something, confused, so I didn't really notice.
+- I did complain about the pains to my parents, and they dismissed it as nothing.
 - When I got to Israel, the pains disappeared and I realized, with a start, that all my stuff was poisonous, but particularly my duvet.
 - And the weird thing is I should have known that already from [when I got back to my flat in October 2024 after Fatima](../2024/november.md#another-attempt-on-my-life) and numerous other events.
 - It's difficult to understand why I would have stopped "knowing" what was really obvious other than that Paul was babbling on about everything being normal, and mum and dad were telling me I was hysterical...
-- More significant is when all the police forces and security services under the sun ignore you or dismiss you when you tell them you're being poisoned, I guess.
+- More significant is when all the police forces and security services under the sun ignore you or dismiss you when you tell them you're being poisoned... as if they might be deliberately hoping you die from it. 
+- I never thought I would think such a thing, but here we are.
 - The other thing I noticed massively in Israel was that my shoes and hat were so toxic they were causing me headaches and bone ache.
-- Unfortunately, I was not able to change my shoes (I guess I could have, my decision making at that time was really rubbish... drugs I’m sure of it, I just couldn't think straight at all) so I continued wearing them even though every time I put them on I felt aching deep in the bones of my feet and lower shins!
+- Unfortunately, I was not able to change my shoes (I guess I could have, my decision making at that time was really rubbish... drugs I’m sure of it, I just couldn't think straight at all) so I continued wearing them even though every time I put them on I felt aching deep in the bones of my feet, ankles, and lower shins!
 - Anyway.
 - I got clear enough to “write” my mother an email of instructions to urgently get the duvet off my bed, put it in a plastic bag, and ask Robert to put it in the attic.
 - She said she would.
@@ -283,11 +285,11 @@ function googleTranslateElementInit() {
 
 ### Bach's Christmas Oratorio
 
-- A baroque concert played by the Jerusalem Baroque Orchestra was on at the YMCA in Jerusalem.
+- The Jerusalem Baroque Orchestra played at the YMCA in Jerusalem the week I was there.
 - They were playing Bach's Christmas Oratorio. 
 - I bought a ticket and went along.
 - I had the music in my head for weeks afterwards and drove my mother mad singing it very loudly in the kitchen.
-- It felt like a little miracle to me.
+- It felt like a little miracle to me, a little nod from Great Spirit.
 
 ## Dom Halloran
 
