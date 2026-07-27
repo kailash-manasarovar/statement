@@ -60,12 +60,13 @@ function googleTranslateElementInit() {
 
 ![Muscular trumpet teacher](../../content/images/muscles-1.png)
 
+- I don't realize I'm looking at just one of the set of trumpet teachers at that moment.
 - I wonder if he is pumping iron with Domingo and the Dénia testosterone (woman-hating) addicts.
 - I bring a couple of tunes to play, Creep and Back to Black.
 - Creep is for Domingo.
 - Back to Black is for the trumpet teacher with regards to Ana his (apparent) girlfriend.
 - These are tunes recommended to me, I believe, by Mary at Lourdes.
-- We play them, and the trumpet teacher can't look me in the eye. He looks guilty.
+- We play them, and the trumpet teacher can't look me in the eye. He looks guilty. His head down.
 - He asks me quietly why I didn't bring them before.
 - I'm aware everything is a big joke, and I'm the butt of the joke, but I'm unaware of the extent of the conspiracy and how it has my total destruction as its end goal. 
 - I mistakenly believe that only Domingo and his close associates are scheming against me; and it was so ridiculous and immature that on a day-to-day level I really didn't care.
@@ -74,15 +75,22 @@ function googleTranslateElementInit() {
 - Ana had grinned at me on the stairs like I was an idiot, and I just thought they were all so ridiculous and easily ignored.
 - None of these childish games really bothered me, and I'm certain they would have bothered me *not at all* if I wasn't being drugged.
 - However, on top of the constant childishness, everything that was happening was extremely intense and confusing. I couldn't keep anything straight in my mind.
-- Nevertheless, I'm clear that something horrible is going to happen at the last chamber music class of the school year, on the 12th.
+- I remember on this occasion specifically, when they made a switch between the men, and I looked back at the man playing the trumpet who had seemed to have shrunk in size into the chair (like he fit in the chair whereas the muscular man would not have fit so well), and I looked at his face and it sort of was cabbage-like, a merge of characteristics from the muscular face I mention at the beginning of this section into the face of whoever was before me at that moment.
+- This was a clear hallucination I realize in retrospect.
+- I don't realize this at the time, although I'm clear that something horrible is going to happen at the last chamber music class of the school year, on the 12th.
 - I tweet about my feelings as the day approaches: https://x.com/1FRGVN/status/1665611717223612416.
 
 ![Intolerable levels of doubt and fear](../../content/tweets/intolerable-doubt-and-fear.png)
 
 !!! tip "Was I being primed and groomed online for that day?"
-    - A "setting up of events I should be worried about" was an ongoing theme with the cyber-stalkers from the conservatory, particularly in [August 2023](september.md#going-public-on-twitter) when I was so frightened I went public on Twitter, and then again in [March 2024](../2024/march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) when I became afraid for my life and left my piano studies, and then again in [April 2024](../2024/april.md#the-third-time-im-convinced-im-going-to-be-arrested) when I became certain I was going to be arrested.
+    - I didn't realize the intolerable levels of fear were coming from regular sedated gang rape session back at my house after class and during the week.
+    - In my ignorant state, all I noticed was that a "setting up of events I should be worried about" was an ongoing theme with the cyber-stalkers from the conservatory, particularly in [August 2023](september.md#going-public-on-twitter) when I was so frightened I went public on Twitter, and then again in [March 2024](../2024/march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) when I became afraid for my life and left my piano studies, and then again in [April 2024](../2024/april.md#the-third-time-im-convinced-im-going-to-be-arrested) when I became certain I was going to be arrested.
     - Is the original childishness an intended and sinister part of the murderous plots?
-    - Will an avalanche of victims corroborate my story with their own horrible experiences at the hands of teachers and staff of the Generalitat Valenciana's conservatory system for music and dance?
+    - Will an avalanche of victims corroborate my story with their own horrible experiences at the hands of teachers and staff of Spain's public schools for music and dance?
+    - How many Spanish music students have suffered the same music teacher switcheroo-porn scam?
+    - I believe [Nico from Brussels and his musician friends were aware of the Valencian trumpet teacher porn-scam from way back 2011](../2011-to-2020/2011.md#).
+    - If it was already a well-oiled machine back then, there must be hundreds of victims, likely thousands.
+    - How many were minors?
 
 ## Last harmony class
 

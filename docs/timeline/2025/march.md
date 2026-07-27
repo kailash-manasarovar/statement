@@ -317,41 +317,56 @@ function googleTranslateElementInit() {
 
 - Having gone from absolute certainty there was something fishy with Dom Halloran from Channel 4 to feeling like I must have just been making connections where there were none, I now have reverted to wondering if perhaps this is something worth looking at more closely.
 - In fact, after recent events, I think it's probably worth a closer look.
-- I mean, someone at Channel 4 *must* know who these two are and remember the documentary about them.
+- I mean, someone at Channel 4 *must* know who these two are and remember the documentary about them, and why it was hidden.
 
 ## Moorfields Eye Hospital
 
 - Given I've had a diagnosis of pre-glaucoma from [Rutnin Eye Hospital in Bangkok](../2024/november.md#pre-glaucoma-diagnosis), I need the same in the UK so it's on my NHS record.
-- My vision continues to be permanently blurred without reading glasses and I'm worried.
-- I've stopped doing headstand in yoga.
+- My vision continues to be permanently blurred in an unusual way without reading glasses, and I'm worried.
+- I've stopped doing headstand in yoga in case of sudden onset blindness from angle closure.
 - I arrange an appointment at Moorfields in Brent Cross.
 - Something weird is going on at the appointment.
 - I'm met by a male clinician who talks to me in an extremely strange way, like he's acting.
-- He speaks in a low voice, hurriedly, and repeats himself over and over.
-- They're only going to do a basic eye exam without the in-depth tests.
-- I brought my mum because the letter said they were going to dilate me.
+- He speaks in a low voice, hurriedly, mumbling, and he repeats himself over and over.
+- Is he trying not to laugh?
+- He tells me they're only going to do a basic eye exam without the in-depth tests.
+- I brought my mum along to drive me home because the letter said they were going to dilate my eyes and you can't see for ages afterwards.
 - I tell him I have a pre-glaucoma condition, out of the blue, and worryingly high eye-pressure readings over the last three years only.
 - He tells me that it doesn't matter, we're not going to do the in-depth tests, we don't need to dilate my eyes or look closely inside.
-- I'm surprised.
-- I say I was expecting to have the full investigation like in Bangkok, and the letter told me to expect that.
-- He tells me he doesn't understand why the letter says this, it shouldn't have said this, he says something silly about things never getting updated and giggles.
-- I'm surprised by all this, more so his behavior.
-- It's tiring having to think the worst of everyone all the time, and I don't want to do that, so I assume everything's OK with what they're going to test.
+- I'm surprised and concerned.
+- I tell the clinician that I was expecting to have the full investigation, just like in Bangkok, and the letter told me to expect that.
+- He tells me he doesn't understand why the letter says this, it shouldn't have said this, he says something silly about things never getting updated and then he giggles.
+- I'm surprised by all this, but more so his odd behavior.
+- It's exhausting having to think the worst of everyone all the time, and I don't want to do that, so I assume everything's OK with what they're going to test.
 - Another man takes me through the series of tests.
-- There's something going on though.
-- These two men are a bit snickery and giggly with each other, like they're winking and grinning at me.
+- There's something going on with him too, and between them both.
+- These two men are a bit snickery and giggly with each other, like they're winking and grinning and pointing at me.
 - Something's happening that they're not telling me about, and it's important I should know.
 - When I get the results, a few weeks later, they say I'm fine and I don't need any further investigation; but they do make a point of saying my angles are indeed narrow.
 - It turns out, one of the probably multiple vision issues I have - which I was unaware of until after I remembered the [switcheroo at the conservatory](../2025/october.md#thunderbolt-clarity) - is neurological, brain damage from poisoning, which means I struggle to recognize objects out of context.
-- The porn gangs of Denia damaged my brain in this way so that I would believe four or more completely different men were the same one man, which I did.
-- Did they know about the switcheroo and how it requires brain and not vision damage?
+- This sight problem has continued to the current edit of this section in July 2026 and I find myself unable to recognize new people, it seems I have to have known them for years or they have some unique facial characteristics.
+- The porn gangs of Dénia damaged my brain in this way so that I would believe [six or more completely different men were the same one man](../../crimes/protagonists/vidal-sastre.md#at-least-six) posing as trumpet teacher at the local music school.
+- I did believe this, although I wouldn't have unless I had been spiked with hallucinogens and other drugs at the same time.
+- It's curious because those men's faces were very different, and my mind was manipulated into merging them together.
+- Did the clinicians at Moorfields have a porn-subscription to the switcheroo and were they aware that it requires brain and not vision damage?
 - Is that why they didn't do the in-depth test as arranged?
 - Is that why they were snickering?
-- In September 2025, after [another murder-by-poisoning attempt at Lourdes which failed](../2025/july.md#lourdes), my vision was battered yet again.
-- I can feel my eye pressure levels are way up and I'm really really concerned about it.
-- I go to Vision Express in Tesco's Colney Hatch to ask them to check my pressures; they're up in the 19, 20s.
+- The pre-glaucoma condition, I believe, was instilled by the constant drugging with hallucinogens and other substances which made my pupils dilate for long periods; days and months on end. And they ignored this completely.
+- Were they aware I was going to be murdered? Does notification on which targets will be murdered go out on the porn-networks' WhatsApp groups?
+- Is this why they essentially sent me away with a snicker?
+- In September 2025, after [yet another murder-by-poisoning attempt at Lourdes which failed](../2025/july.md#lourdes), my vision was battered yet again.
+- I [wrote to Moorfields](july.md#moorfields) about this at that time.
+- Whenever someone tries to kill me with poisons, my eye pressure elevates to unusually high levels and I can really feel it.
+- It feels like I'm about to go blind all of a sudden.
+- It's very scary and it happened again [at Everest Base Camp in June 2026](../2026/june.md#kailash). (I think the Himalaya attempt used the most powerful poisons as my sight has never been so bad during an attempt at murdering me.)
+- Anyway.
+- Vision Express in Tesco's Colney Hatch checks my pressures in September 2025 and they're way up in the 19, 20s.
 - I tell the ophthalmologist that my normal pressures are 12/13.
 - She looks alarmed.
-- I eventually tell her I was poisoned. 
-- She advises getting another appointment at Moorfields, and says she is organizing it for me.
-- I'm never called for an appointment.
+- My eye pressures in June 2026 were easily in the high 20s or more. All I could see was little flickering slithers of light around everything.
+- I eventually told the opticians in Muswell Hill that I had been poisoned by rape gangs. 
+- Horrified, she advised getting another appointment at Moorfields, and she told me she was going to organize it for me.
+- I was never called for a further appointment at Moorfields and my letter was never acknowledged either.
+- I told my [GP in Muswell Hill about all this](september.md#rutland-house-surgery-muswell-hill), and all the poisoning I had suffered over the previous years.
+- My GP and the NHS never contacted me for further investigations.
+- What is GOING ON?
