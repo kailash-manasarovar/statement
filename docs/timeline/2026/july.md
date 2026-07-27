@@ -42,3 +42,4 @@
 - They know what they're doing, and they do it very well indeed.
 - Yes, if anyone should be responsible for the very necessary tidal-wave of shame that is heading earth's way, it's those gals.
 - <3
+- While I'm waiting, I'll just keep writing, it's better than thumb-twiddling, although I've become proficient at that too.
