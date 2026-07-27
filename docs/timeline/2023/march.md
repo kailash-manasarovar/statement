@@ -65,6 +65,7 @@ function googleTranslateElementInit() {
 
 ## Dreaming of the trumpet teacher
 ### The slip
+#### Giving them the slip
 
 - It is Tuesday in the wee hours, 3am, after a Monday class with the trumpet teacher.
 - I dream the trumpet teacher is sobbing uncontrollably, and I hold him in my arms.
