@@ -337,17 +337,26 @@ function googleTranslateElementInit() {
 - I tell the clinician that I was expecting to have the full investigation, just like in Bangkok, and the letter told me to expect that.
 - He tells me he doesn't understand why the letter says this, it shouldn't have said this, he says something silly about things never getting updated and then he giggles.
 - I'm surprised by all this, but more so his odd behavior.
-- It's exhausting having to think the worst of everyone all the time, and I don't want to do that, so I assume everything's OK with what they're going to test.
-- Another man takes me through the series of tests.
+- It's exhausting having to think the worst of everyone all the time, and I don't want to do that, so I take the decision to assume everything's OK with what they're going to test.
+- I think it's decisions like this - perhaps coming from compulsion again - that make the perverts feel safe, and start making mistakes based on false assumptions.. like snickering endlessly.
+- Or do they want me to notice? Is it part of their humiliation-boner kick?
+- Was he filming, even?
+- Another man takes me through a series of tests.
 - There's something going on with him too, and between them both.
 - These two men are a bit snickery and giggly with each other, like they're winking and grinning and pointing at me.
 - Something's happening that they're not telling me about, and it's important I should know.
-- When I get the results, a few weeks later, they say I'm fine and I don't need any further investigation; but they do make a point of saying my angles are indeed narrow.
-- It turns out, one of the probably multiple vision issues I have - which I was unaware of until after I remembered the [switcheroo at the conservatory](../2025/october.md#thunderbolt-clarity) - is neurological, brain damage from poisoning, which means I struggle to recognize objects out of context.
-- This sight problem has continued to the current edit of this section in July 2026 and I find myself unable to recognize new people, it seems I have to have known them for years or they have some unique facial characteristics.
-- The porn gangs of Dénia damaged my brain in this way so that I would believe [six or more completely different men were the same one man](../../crimes/protagonists/vidal-sastre.md#at-least-six) posing as trumpet teacher at the local music school.
-- I did believe this, although I wouldn't have unless I had been spiked with hallucinogens and other drugs at the same time.
-- It's curious because those men's faces were very different, and my mind was manipulated into merging them together.
+- They were the only two men amongst probably about 15 women clinicians. The women I saw - who did a few of the other tests - were normal non-snickering human beings.
+- When I get the results, a few weeks later, Moorfields tells me I'm fine and I don't need any further investigation; but they do make a point of saying my angles are indeed narrow.
+- It turns out, one of the probably multiple vision issues I have - which I was unaware of until after I remembered the [switcheroo at the conservatory](../2025/october.md#thunderbolt-clarity) in October 2025 - is neurological, brain damage from poisoning, which means I struggle to recognize objects out of context.
+- This sight problem has continued to the current edit of this section in July 2026 and seems to be permanent.
+- I find myself unable to recognize new people, it seems I have to have known them for years or they have some unique facial characteristics.
+- I don't see things that are right in front of me often either, and I've noticed that some texts can be confusing, but a wider symptom of the poisoning for switcheroo is that I am confused about really normal things I used to do for the whole of my life, like buying a bus ticket, or figuring a map out, really easy basic things. 
+- I describe it to myself as feeling like an alien from outer space who's just landed on Earth and doesn't know how anything works.
+- The porn gangs of Dénia damaged my brain to this extent so that I would believe [six or more completely different men were the same one man](../../crimes/protagonists/vidal-sastre.md#at-least-six) posing as trumpet teacher at the local music school.
+- I did believe it too, for a long time, although I wouldn't have if I hadn't been spiked continuously with hallucinogens and other drugs at the same time.
+- It's curious because those men's faces were very different, and yet my mind was successfully manipulated into merging them together into one face.
+- More interestingly perhaps, is that my body always recognized the difference between these men in a *feeling* way that's difficult to describe.
+- And I just did this with someone else too, significantly.
 - Did the clinicians at Moorfields have a porn-subscription to the switcheroo and were they aware that it requires brain and not vision damage?
 - Is that why they didn't do the in-depth test as arranged?
 - Is that why they were snickering?
