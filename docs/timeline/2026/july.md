@@ -35,3 +35,10 @@
 - p.s. all that, what if you woke up without legs...?? and we're letting them just carry on, year after year...????? it's incredible
 - Do you think Elon watches the snuff too, we know he loves the horse porn, they all do?
 -->
+
+## Ready to get on with the good stuff
+
+- I am more than ready to get this show on the road... and leave the baby-rape industrialists to the smartest women in the universe of universes, with minds like lightning flashing around the world.
+- They know what they're doing, and they do it very well indeed.
+- Yes, if anyone should be responsible for the very necessary tidal-wave of shame that is heading earth's way, it's those gals.
+- <3
