@@ -64,6 +64,7 @@ function googleTranslateElementInit() {
 - When I remember this strange incident around a year later, I will think the reason for it could be there is some psychoactive substance on his phone that I have absorbed through the screen.
 
 ## Dreaming of the trumpet teacher
+### The slip
 
 - It is Tuesday in the wee hours, 3am, after a Monday class with the trumpet teacher.
 - I dream the trumpet teacher is sobbing uncontrollably, and I hold him in my arms.
