@@ -221,11 +221,12 @@ function googleTranslateElementInit() {
 [![Out of my mind](../../content/tweets/may-2024/out-of-my-mind.jpg)](https://x.com/JackChardwood/status/1788488769592590732)
 
 - Is that exactly what they have in mind for targets? I expect so.
-- I, interestingly, told this person a story about my father; the answers are telling maybe, carefully worded.
+- I, interestingly, told this person a story about my father; the answers are telling, carefully worded.
 
 [![Dad](../../content/tweets/may-2024/dad-stories.jpg)](https://x.com/JackChardwood/status/1790973553765929153)
 
 - At the time, I wondered about these odd replies.
+- I wasn't aware my dad had been invited especially to star in sedated-rape porn with me at my homes, significantly [in Joan Fuster in 2015 when he injured my anus and rectum, and I woke up out of sedation to see him running out of my room](../2011-to-2020/2015.md#inexplicable-anal-fissure).
 - Close to the end of our interaction, post-Bali, he posts an extremely sinister picture, I believe with the intention of shutting things down.
 
 ![Beams clown](../../content/tweets/beams-clown.png)
@@ -356,10 +357,13 @@ function googleTranslateElementInit() {
 
 ## Bali
 
-!!! danger "Let's be clear about this..."
-    - If Polygon, Elon, Fireblocks, and all the rest of those sex offending tech-bros thought for one minute I might survive all this to tell the tale, it would have never happened.
-    - This certainty made them show and tell me things they might now wish they hadn't, so that's good.
-    - Also, because this event happened really late on in my extended sedated-rape crucifixion, we can be sure all the participants had been watching sickening and depraved sexual acts - some likely including children and animals - live-streamed from my apartment from February 2022 until Polygon fired me in October 2024, after which the gangs immediately tried to [murder me by poison](october.md#serious-poisoning-with-intent-to-kill). These predominantly men, and some women, won't be able to deny the knowledge and consumption of such vile content.
+!!! danger "Women are now being regularly sedated-raped-and-filmed by their colleagues and business partners while attending professional works conferences..."
+    - I was sedated for much of my stay in Bali for work, and it is likely that everyone in the company was aware of what was going on.
+    - If Polygon, Elon, Fireblocks, OKX, and all the rest of those sex offending tech-bros-and-girls that turned up to enjoy doing what they like to do to unconscious women thought for one minute I might survive to tell the tale, it would have never happened.
+    - They knew I was going to be murdered soon after and that's why they all felt so safe.
+    - This certainty that I was soon to be murdered by the gypsy pornographers made all these weak and pathetic men and some women feel safe enough to show and tell me things they might now wish they hadn't, so that's good.
+    - Also, because this event happened really late on in my extended sedated-rape crucifixion, we can be sure that all the participants had been watching sickening and depraved sexual acts - some including children and animals - live-streamed from my apartment from February 2022 until Polygon fired me in October 2024, after which the gangs immediately tried to [murder me by poison](october.md#serious-poisoning-with-intent-to-kill).
+    - These predominantly men, and some women - the baby-rape industrialists - won't be able to deny the knowledge and consumption and thus support for the production of such vile content.
 
 - I am in Bali from 11th-19th May with work.
 - We stay at the [Grand Hyatt](https://www.hyatt.com/grand-hyatt/en-US/balgh-grand-hyatt-bali).
