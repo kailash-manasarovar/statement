@@ -176,6 +176,7 @@ function googleTranslateElementInit() {
 - It seems dad is more than a little bit familiar with this place, i.e. it's not somewhere he just likes to go, something more is going on here with him and the people that work here or that frequent here.
 - I think this was the most significantly dubious place dad wanted to go, apart from [his favorite mobile phone shop](april.md#dad-makes-me-take-him-to-his-dodgy-islamic-phone-specialist-on-camden-high-street) in Camden.
 - If there's any other places, I'll let you know but I think that's it.
+- I also took him to most of his gigs during this time, and to a rehearsal in Essex, and I always got the distinct impression that either some of his band mates were total irredeemable perverts, or he had told them something about me that made them leer over me embarrassingly. I expect today, in July 2026, it is the latter.
 - Whenever I take dad to the Red Lion, I'm always away from him for a good few minutes - getting the dinner, going to the bar, or going to the toilet.
 - There's always more than sufficient time for someone to talk to him without my knowledge.
 
