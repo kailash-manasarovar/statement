@@ -1,5 +1,13 @@
 # November 2025
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Suicide content on my `@JackChardwood` account
 
 - You may remember in [January 2024](../2024/january.md#the-jackchardwood-x-feed-changes-completely), my `@JackChardwood` X feed went from one content type to another, literally over night.

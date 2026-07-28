@@ -1,5 +1,13 @@
 # April 2021
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Something weird happening when I sleep
 
 - In Lourdes, at the Acacia, where anyone can enter my room at any time due to lock health-and-safety rules, and [one of the trumpet teachers](../../crimes/protagonists/vidal-sastre.md#the-younger-brother-of-the-first-man) is turning up regularly and [accessing the room next to mine](march.md#the-portuguese-man-next-door), I start to have a strange experience.

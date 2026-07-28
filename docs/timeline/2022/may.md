@@ -1,5 +1,13 @@
 # May 2022
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Asked to be a demo at the conservatory
 
 - Concha contacts me out of the blue and asks if I can do the conservatory a favor.

@@ -1,5 +1,13 @@
 # June 2025
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Murdered by the gypsies in Madrid
 
 - I meet a man whose mother was likely murdered by gypsies in Madrid for her jewels.

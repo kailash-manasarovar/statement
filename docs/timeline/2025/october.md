@@ -1,5 +1,13 @@
 # October 2025
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## Thunderbolt clarity
 
 - Right after getting home from Ireland, I suddenly become clear about who the trumpet teacher was.

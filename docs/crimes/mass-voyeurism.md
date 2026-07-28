@@ -8,3 +8,6 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Proportion of porn-addicts watching sedated rape on spy-cam networks
+
+- 95%
