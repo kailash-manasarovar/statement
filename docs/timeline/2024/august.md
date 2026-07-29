@@ -484,8 +484,9 @@ function googleTranslateElementInit() {
 - Could it be my colleague from Diabetes UK who met a French bus driver and moved to France in 1999? 
 - The woman I knew moved to Tarbes and had two daughters with the bus driver, Emmanuel.
 - Her name is Amanda.
-- I met them once on a trip to Lourdes. We met in Tarbes at the shopping centre for lunch. 
-- She told me she had been suffering from quite bad anxiety and depression. 
+- I went to her wedding, and myself and Byron met them both in Paris one weekend.
+- A few years after, and they'd had two kids already, I met them on a trip to Lourdes. We met in Tarbes at the shopping centre for lunch. 
+- She told me she had been/was suffering from quite bad anxiety and depression. 
 - Here's the pic from September:
 
 ![pic]( ../../content/images/targeted-women/28.png ) 
