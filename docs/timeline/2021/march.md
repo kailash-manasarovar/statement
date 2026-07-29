@@ -8,13 +8,6 @@ function googleTranslateElementInit() {
 }
 </script>
 
-- I stay in Lourdes, France for the whole of 2021, in the hope I may heal my broken heart. 
-
-![Bernadette](../../content/images/bernadette.jpg)
-
-- I rent a small studio flat at the [Zenitude Acacia](https://www.zenitude-hotel-residences.com/fr_FR/residence/lourdes/121), 1 A Chemin de Lannedarré, 65100 Lourdes.
-- I move in at the beginning of January.
-
 ## The Portuguese man next door 
 
 - From time to time, a man visits and he stays in the apartment next to mine - or he has access to it because I see him coming and going from there.

@@ -39,6 +39,10 @@ function googleTranslateElementInit() {
 - You meet a lot of agents, as you might imagine.
 - I met a very interesting one who was totally honest, and I thought, wow that is so cool!
 
+### Recoiling on meeting someone
+
+- wip
+
 ## Chris tells me nearly all his N8 records have sold
 
 - I see Chris Ludwick, from [the N8 band](../pre-2001/1990.md#n8) back in the 90s, a few times this year.

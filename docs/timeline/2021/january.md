@@ -8,6 +8,20 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Lourdes
+
+- I stay in Lourdes, France for the whole of 2021, in the hope I may heal my broken heart. 
+
+![Bernadette](../../content/images/bernadette.jpg)
+
+- I rent a small studio flat at the [Zenitude Acacia](https://www.zenitude-hotel-residences.com/fr_FR/residence/lourdes/121), 1 A Chemin de Lannedarré, 65100 Lourdes.
+- I can see the sanctuary from my window.
+- I move in at the beginning of January.
+
+### The abomination of desolation in the holy place
+
+- Could Lourdes have repeatedly been another one of those holy places mentioned in Daniel and Matthew?
+
 ## Chronicle Software
 
 - I get a lovely lucrative contract with a company [Chronicle Software](https://chronicle.software/).
