@@ -36,10 +36,20 @@ function googleTranslateElementInit() {
 
 ![Jet splitting](../../content/images/jet-splitting.gif)
 
+### The abomination of desolation in the holy place
+
+- Could Lindisfarne be another one of those holy places mentioned in Daniel and Matthew?
+- I don't think so.. at least not this trip.
+- More likely in the month of November 2019 when I stayed there.
+
 ## Glastonbury
 
 - A stone expert in Glastonbury High Street tells me that jet stone is related to Archangel Michael and puts the pieces in a silver holder which I wear around my neck.
 - I start a detox program at a healing centre on Wearyall Hill.
+
+### The abomination of desolation in the holy place
+
+- Could Glastonbury be another one of those holy places mentioned in Daniel and Matthew?
 
 ### Crystal dreaming
 

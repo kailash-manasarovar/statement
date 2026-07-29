@@ -453,9 +453,10 @@ function googleTranslateElementInit() {
 - I'm pinged at the weekend and late at night with questions that seem unnecessary but very urgent.
 - On one Saturday afternoon, I need help from Gabriel for one of these *urgent* issues which I believe now were probably just more terrorizing.
 - Gabe helps me out and then says, *I hope you stop working soon*, because it's Saturday, but it sounds like a more permanent desire.
-- Indian colleagues are always pinging me like this at the weekends during March, April, and May.
+- Indian colleagues are always pinging me like this at the weekends and in the night sometimes during March, April, and May.
 - It adds to the stress.
-- Sometimes it's necessary, but the necessary times are rare.
+- I believe this was ALWAYS just after a sedated-rape event that they had watched, and the messages were further humiliation.
+- It's utterly extraordinary that this large amount of apparently normal men from all over the world thought that what they were doing was reasonable and justified.
 
 ### Flight to Bali
 

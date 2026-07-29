@@ -601,6 +601,14 @@ function googleTranslateElementInit() {
 - The week I'm in Fátima the online stalking is fever-pitched and relentless.
 - I remain high and in retrospect I'm sure I was being topped-up with something I had brought with me from my home in Dénia.
 
+### The abomination of desolation in the holy place
+
+- Is Fatima another one of those holy places mentioned in Daniel and Matthew?
+- I was followed relentlessly and I was extraordinarily high in my hotel.
+- They also revealed they were looking out of all cameras from my phone, front and back.
+- I think it's likely they came into my hotel room here, a Portuguese team.
+- AFAIK this may have been the last time in a holy place.
+
 ### The router malfunctions
 
 - On Tuesday 22nd October at around 11am, my home router in Carrer Furs malfunctions.

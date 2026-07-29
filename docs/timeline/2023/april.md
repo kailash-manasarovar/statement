@@ -96,6 +96,12 @@ function googleTranslateElementInit() {
     - However, the feelings were so intense, I could not believe, at that time, that Domingo could be behind this too.
     - Sandra Rita Diaz, unknown to me at the time, was taking notes and reporting back. It is not yet clear to whom.
 
+### The abomination of desolation in the holy place
+
+- Could Lourdes be another one of those holy places mentioned in Daniel and Matthew?
+- If it wasn't already, it may be in July and certainly will be in [December this year](december.md#sandra-and-the-champagne).
+- Was Sandra already planning it out, or does she just do what's she's told?
+
 ## The Novena prayer
 
 - Sandra Rita Diaz told me about Novena prayers so I bought a Novena candle and started to pray.

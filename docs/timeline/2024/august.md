@@ -42,6 +42,7 @@ function googleTranslateElementInit() {
 ## Interview with the hacker
 
 - I'm in Lourdes for a week or so and then I spend the rest of the summer in Cauterets, France, up until 21st September when I return, via Madrid, to Dénia.
+- I think that, significantly, it's around this time when our little trim tab started to move the ocean liner around.
 - In Lourdes, I stay at the [Hotel Padoue](https://www.hotelpadoue.fr/fr/lourdes-hotel) and I have the sensation I'm being watched and followed.
 - I see a woman who looks like [Grace Torrellas](../2023/november.md#polygon); they have also been sending pictures of Grace-lookalikes on fake accounts.
 - I remember feeling extremely high in Lourdes.

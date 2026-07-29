@@ -829,6 +829,13 @@ function googleTranslateElementInit() {
 - He never responds to my texts or emails at all now.
 - Why?
 
+#### The abomination of desolation in the holy place
+
+- The monk is a holy abomination himself.
+- We heard that this is confirmed now.
+- Were they doing this to women at Blou too? When I stayed at the monastery in France, my bedroom door did not lock and they were all like... oh it's completely safe here.
+- The Satya monks at La Sella may also need a little look at.
+
 ## Alex and Paul
 
 - I knock on Paul's door in the old town to say hello. He's an old friend from Dénia. 

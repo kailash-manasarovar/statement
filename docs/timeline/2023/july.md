@@ -617,3 +617,8 @@ function googleTranslateElementInit() {
 - Poisoning would be a common theme in our discussions for over a year.
 - Was she trying to warn me about something?
 - Or is she just a bit leaky?
+
+### The abomination of desolation in the holy place
+
+- Is Lourdes another one of those holy places mentioned in Daniel and Matthew?
+

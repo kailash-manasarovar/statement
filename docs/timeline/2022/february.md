@@ -22,12 +22,34 @@ function googleTranslateElementInit() {
 
 ![Mary's cave](../../content/images/marys-cave.webp)
 
+### Isabel pilgrim
+
+- A woman is staying there, she calls herself Isabel.
+- She's in her 60s, speaks a bunch of languages fluently, and looks gypsy.
+- We speak a little but I don't remember details just friendliness.
+- In 2026, I meet her again at [Sainte Baume](../2026/february.md#sainte-baume).
+- We are at the dinner table and she is being terribly rude to me. She's angry with me actually, furious.
+- I notice she doesn't pay for dinner, she just walks straight in and when the man with the dinner list questions her she fires off a barrage of words and he looks exhausted and tells her to go in.
+- I don't remember her from 2022 until later.
+- I see the priests telling her off, telling her she can't do... whatever, get free meals I expect.
+- Was this the woman tasked with adding substances to my toiletries at Sainte Baume so that the drugging can begin?
+- I am terribly high on the road to Spain and I play my music very loudly (I rarely play music in the car, and not like I'm at a rave).
+- This woman is so angry with me at dinner in 2026, raging in fact, she actually loses her mind so significantly she threatens to murder me.
+- *I'll take you for a walk and show you paradise*, she says.
+- She's been told to leave me alone, and she's furious about it. Guilty.
+
+#### The abomination of desolation in the holy place
+
+- Could Isabel have set up something in this holy place, therefore mentioned in Daniel and Matthew?
+- I don't believe that happened, but you never know.
+
 ## Moving back to Dénia
 
-- I drive through France and down into Spain.
+- I drive through France and down into Spain playing this song loud enough for the villages I pass to hear.
 
 <iframe width="504" height="378" src="https://www.youtube.com/embed/Hr1HpYkoJ5A" title="GANGA MAYIA ME JAB TAK KE PANI RAHE MERE SAJNA...." frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
+- I'm also speeding (way more than normal) and get told off by the French traffic control signs.
 - I move to my new flat in Dénia: Carrer Furs 15, B1 Escalera 2 Piso 3 Apartamento 17, Dénia 03700 Alicante Spain.
 
 ### One night in Barcelona

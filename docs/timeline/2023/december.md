@@ -124,6 +124,11 @@ function googleTranslateElementInit() {
 - I tell her about the [men dressed as women I have encountered over the years at the baths](../2024/june.md#lourdes) and serving for the Hospitalité de Lourdes, the organization of which we are both members.
 - She does not respond.
 
+#### The abomination of desolation in the holy place
+
+- Did Sandra set up a live sedated event in this holy place, therefore mentioned in Daniel and Matthew?
+- Makes the whole world feel physically sick.
+
 ### Sandra and the champagne
 
 - Sandra was excited about something, celebratory even.
@@ -360,6 +365,12 @@ function googleTranslateElementInit() {
     - If so, why would they be so interested in me communicating with my family after so long out of contact?
     - Could it be to continue to the crimes with my beneficiaries once I was dispatched, as it were?
 
+#### The abomination of desolation in the holy place
+
+- Is Avila another one of those holy places mentioned in Daniel and Matthew?
+- Significantly, my bathroom at the hotel looked A LOT like a bathroom with a couple in the bath doing sexual things that had been posted to me on a fake account about three weeks before my visit.
+- I didn't make the connection at the time but I was TOTALLY overwhelmed with sexual arousal in my hotel room.
+
 ### Vipasana meditation
 
 - I have been doing Vipasana Buddhist meditation with [Goenka ji's organization](https://www.dhamma.org/) since the 2004 tsunami.
@@ -406,6 +417,11 @@ function googleTranslateElementInit() {
 [![I don't understand it at all](../../content/tweets/december-2023/i-dont-understand-it-at-all.png)](https://x.com/1FRGVN/status/1741012146736291935)
 
 - A great many people viewed and translated the poll.
+
+#### The abomination of desolation in the holy place
+
+- Is a Buddhist retreat centre near Avila another one of those holy places mentioned in Daniel and Matthew?
+- I was surrounded by porn-gang operatives there, some even traveled up from Denia.
 
 #### Spies everywhere
 
