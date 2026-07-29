@@ -482,7 +482,8 @@ function googleTranslateElementInit() {
 - I see photos in September which show her again with much longer hair and revealing herself a little, just like the [innocent girl](#grooming-an-innocent-girl-into-porn-101) - see the next pic. 
 - The weirdest thing about this woman is I think I know her. 
 - Could it be my colleague from Diabetes UK who met a French bus driver and moved to France in 1999? 
-- The woman I knew moved to Tarbes and had two daughters with the bus driver, Emmanuel. I can't remember her name. 
+- The woman I knew moved to Tarbes and had two daughters with the bus driver, Emmanuel.
+- Her name is Amanda.
 - I met them once on a trip to Lourdes. We met in Tarbes at the shopping centre for lunch. 
 - She told me she had been suffering from quite bad anxiety and depression. 
 - Here's the pic from September:
@@ -492,6 +493,10 @@ function googleTranslateElementInit() {
 - If it's her, I saw her out of context and even though I registered the similarities, and thought about it a bit, I decided it wasn't her: brain damage?
 - Now, still, I'm not so sure.
 - But here we are, and anything can happen now.
+- Curiously, I was watching that documentary starring Hazel and Sandra when we worked together at Diabetes UK.
+- I say *watching* because I saw it repeated a couple of times around the same time.
+- And, I spoke about what I'd seen to Amanda and the other women working in the office relentlessly, because it had affected and upset me so much.
+- In fact, Amanda would have been the person I rattled onto about this documentary the most, which is curious isn't it.
 
 ##### 2.
 
