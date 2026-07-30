@@ -10,18 +10,24 @@ function googleTranslateElementInit() {
 
 ## Dad makes me take him to his dodgy Islamic phone specialist on Camden High Street
 
-- Why?
-- Porn connection, no doubt.
-- Dad noticed [the weirdness in High Barnet too](march.md#a-man-who-reminds-me-of-domingo).
-- You couldn't not notice although it's the sort of thing I'm told I'm imagining.
-- The man in the shop has seen me before, and he's uncomfortable.
-- When we're in the car, dad's says how much he likes his friend.
+- Dad wants to get his mobile fixed, or something.
+- He has about ten mobile phones, none of which he ever uses, so I know it's nonsense, but I humor him and take him.
+
+![Camden mobile phone shop](../../content/images/camden-mobile-phone-shop.jpg)
+
+- The man in the shop has seen me before, he knows me, and he's uncomfortable about it.
+- He keeps glancing at me.
+- When we're back in the car, dad's says how much he likes his friend.
 - He's overdoing it too. 
 - He's pressing for me to say something.
-- I tell dad these people hate women.
+- I tell dad that these people hate women.
 - Dad has an ulterior motive for taking me here.
-- Did the people at the Red Lion tell him to?
-- To see if I was Old Bill?
+- I believe he was told to go there by North London's finest via the folk at the Red Lion.
+- Were they offering this man and his business up?
+- Is the man a prolific criminal porn-collector-and-distributor?
+- Or is he into something even more interesting to law enforcement (who don't care about women, children, and babies after all, do they)?
+- I wonder what it could be.
+- The man was nervous.
 
 ## Goaded online
 
