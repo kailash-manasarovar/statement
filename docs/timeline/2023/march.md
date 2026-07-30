@@ -88,7 +88,7 @@ function googleTranslateElementInit() {
 
 [![Buddha-level kung fu](../../content/images/buddha-level-kung-fu.jpg)](https://www.youtube.com/embed/M_VrRk9GdBw)
 
-- I guess your plan looked like the only possible way out but God had an even better and bigger Plan, my love.
+- I guess your plan looked like the only possible way out but God had an even better and bigger Plan, my love <3, and He's so happy with us both I could cry!
 
 ### A loud voice
 
