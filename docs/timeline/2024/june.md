@@ -129,7 +129,7 @@ function googleTranslateElementInit() {
 - In the sedating cases, the subjects (vultures) triumph over the murder of the object (corpse) after the fact.
 - The sedated-rape act itself is the triumph of war on a despised enemy of friends that have no idea they are at war, and is thus utterly psychotic.
 - Porn allows the armies of hatred to enjoy the spoils far-and-wide, second hand.
-- See references in Daniel, John, and Matthew.
+- See the references to all this in Daniel, Luke, and Matthew.
 
 ## Taking two-weeks vacation from Polygon
 
