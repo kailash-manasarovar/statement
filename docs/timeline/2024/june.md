@@ -123,6 +123,14 @@ function googleTranslateElementInit() {
 
 - I also want to wholly recommend standing for office to any woman being terrorized by men. It'll do a million times more to keep you safe than going to the police.
 
+#### Abomination of desolation in the holy place
+
+- I mean, this was an obvious one, an extreme example, if we accept that the "abomination of desolation" arises from pure hatred of the female, the ancient hate, and the "desolation" here is therefore in reference to the emptiness of psychotic sexual objectification (porn) taken to an extreme extent whereby the subject seeks to murder the object by becoming them.
+- In the sedating cases, the subjects (vultures) triumph over the murder of the object (corpse) after the fact.
+- The sedated-rape act itself is the triumph of war on a despised enemy of friends that have no idea they are at war, and is thus utterly psychotic.
+- Porn allows the armies of hatred to enjoy the spoils far-and-wide, second hand.
+- See references in Daniel, John, and Matthew.
+
 ## Taking two-weeks vacation from Polygon
 
 - Post-[Bali](may.md#bali), my team at Polygon has become unmanageable.
