@@ -88,6 +88,8 @@ function googleTranslateElementInit() {
 
 [![Buddha-level kung fu](../../content/images/buddha-level-kung-fu.jpg)](https://www.youtube.com/embed/M_VrRk9GdBw)
 
+- God had a better Plan, my love, that brings us all home to Him.
+
 ### A loud voice
 
 - The following morning I wake up.
