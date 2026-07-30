@@ -29,6 +29,14 @@ function googleTranslateElementInit() {
 - I wonder what it could be.
 - The man was nervous.
 
+## I promise Leah everything is going to be OK
+
+- Leah phones a lot but no-one speaks to her usually because she is unstable and difficult to talk to.
+- My guess is that the gangs got her to stalk me on X back in late 2023/early 2024 and are also getting her to try and talk to me on the phone.
+- Anyway, one day I pick up the phone and it's Leah.
+- It's hard to make sense of what she says but I manage to promise her that everything is going to be OK.
+- And I meant it, viscerally.
+
 ## Goaded online
 
 - I continue to be goaded online, specifically about illnesses related to pesticide poisoning.
