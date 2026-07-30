@@ -109,6 +109,7 @@ function googleTranslateElementInit() {
 
 - Maria Hontanilla, my piano teacher during year 3 of professional piano.
 - Who is the girl she is with in the photo, and what happened to her?
+- Someone said something about Maria, but I don't know what they meant. Has she come in too? Is she OK? I hope she's OK.
 
 ![Maria Hontanilla](../../content/images/fake-accounts/Screenshot 2024-04-03 at 20.07.32.png)
 
