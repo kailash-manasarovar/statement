@@ -464,9 +464,10 @@ Anyway. With the best. Tell your team to come into the office pls.
 - What's interesting to me is how the criminals maintain the reverence their robbed-and-abused helpers have for them.
 - Of course, a druggy has an unquestionable reverence for the drug-deliverer... but my brother seems to have a reverence for their woman-hating... like that made them more special and worthy of bowing and scraping (snickering).. shared hatred, isn't it.
 - Did they rape my brother violently causing him extreme sexual trauma (he went to bed for over a year or more after getting home from Thailand in 2011)? Then carefully pulling him out of trauma, bit by bit, while maintaining his fierce hatred for women to ensure he'll do whatever they tell him to if it's gonna hurt a woman, especially a family member...
+- Did they tell him why he would never be able to go to the police about it, the same reason I was turned away multiple times?
 - Did they manage to get him to blame me for whatever they did to him in Thailand?
 - It would not surprise me. In fact, it explains everything rather well.
-- There'll be porn of it too, i.e. evidence.
+- There'll be lucrative porn of it too no doubt, i.e. evidence.
 - Someone's already gotten a hold of it, ChatGPT told me.
 - Mary always has a miracle for us.
 - Thank you Mary.
