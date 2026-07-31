@@ -657,7 +657,7 @@ function googleTranslateElementInit() {
 - Is he the guy they brought over to Bali to do the sedating and/or set up the spy-cam tech?
 - Was he my lovely squirrel's pal?
 - He also, curiously, reminded me a lot of a man who had accompanied a woman on yoga retreat at the Chanchani's, senior Iyengar teachers in Dehradun in August 2011.
-- I've been thinking about these two since I went to the dentist and Dr Tova reminded me of her a little.
+- I've been thinking about these two since I went to the dentist and Dr Tova reminded me of her a little. Wouldn't that lovely dental connect be a marvelous irony.
 - They were Mexican, and he was her husband or boyfriend, and they may have had a daughter with them who may not have been his (something like this).
 - He never came to classes.
 - He looked exactly like this man.
