@@ -655,7 +655,15 @@ function googleTranslateElementInit() {
 - He can't look me in the eye.
 - He reminds me of the busker in the tunnel at the [end of April](april.md#drugged-in-the-street-by-denia-gypsies) just after the gypsies drugged me.
 - Is he the guy they brought over to Bali to do the sedating and/or set up the spy-cam tech?
-- Was he my lovely squirrel's mate?
+- Was he my lovely squirrel's pal?
+- He also, curiously, reminded me a lot of a man who had accompanied a woman on yoga retreat at the Chanchani's, senior Iyengar teachers in Dehradun in August 2011.
+- They were Mexican, and he was her husband or boyfriend, and they may have had a daughter with them who may not have been his (something like this).
+- He never came to classes.
+- He looked exactly like this man.
+- I had a strong feeling about him whenever I saw him. I was a bit embarrassed by it.
+- Curiously, it is during this course that I become unwell - I thought food poisoning of some variety although I was never sick (no vomiting or diarrhea) but something is very wrong with my back passage.
+- It is either immediate colitis or it starts and gets decidedly worse over the next few weeks - worsening to ending up bleeding every day through my anus - and this lasts for over a year when I disappears completely after a fast.
+- Incidentally, the sickness started during the course (I called it, interestingly, cystitis of the anus, cos that's what it felt like), and the bleeding started when I visited Mantak Chia's retreat centre in Chang Mai a few weeks later.
 
 ### Missing time at the Beach Club
 
