@@ -31,11 +31,14 @@ function googleTranslateElementInit() {
 
 ## I promise Leah everything is going to be OK
 
-- Leah phones a lot but no-one speaks to her usually because she is unstable and difficult to talk to.
-- My guess is that the gangs got her to stalk me on X back in late 2023/early 2024 and are also getting her to try and talk to me on the phone.
+- Leah, my cousin on my dad's side, phones the house a lot but no-one speaks to her usually because she is unstable and difficult to talk to.
+- My guess is that the gangs got her to stalk me on X back in late 2023/early 2024 via her "friends", maybe her mother too, and they are also getting her to try and talk to me on the phone while I'm back at 31.
+- It's not clear what their purpose is in doing this, maybe they thought I would give her information about why everything is starting to go catastrophically wrong for them.
+- If so, the irony here is they had so successfully mashed her brain up for the goal of relieving her of her Lockerbie compensation, it really is impossible to have a normal conversation with Leah.
 - Anyway, one day I pick up the phone and it's Leah.
-- It's hard to make sense of what she says but I manage to promise her that everything is going to be OK.
+- It's hard to make sense of what she is saying, but I manage to promise her that everything is going to be OK.
 - And I meant it, viscerally.
+- And the hacking gangs will have heard it too, which is good.
 
 ## Goaded online
 
