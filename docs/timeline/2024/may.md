@@ -663,6 +663,7 @@ function googleTranslateElementInit() {
 - I had a strong feeling about him whenever I saw him. I was a bit embarrassed by it.
 - There was an Australian-Indian man on the course who sort of got a bit besotted with me, it was embarrassing.
 - He was an air traffic controller in Australia and he was sharing a house with the Palestinian man who was a university professor.
+- Both these men took courses with the Chanchani's on a regular basis, i.e. yearly they said.
 - Curiously, it is during this course that I become unwell - I thought food poisoning of some variety although I was never sick (no vomiting or diarrhea) but something is very wrong with my back passage.
 - It starts like this and gets decidedly worse over the next few weeks - worsening to ending up bleeding every day through my anus - and this rather debilitating colitis problem (it was messy and I had to wear big pads every day) lasts for over a year and then it disappears overnight after a fast and detox.
 - The sickness started during the course (I called it, interestingly, cystitis of the anus, cos that's what it felt like), and the daily bleeding started when I visited Mantak Chia's retreat centre in Chang Mai just a few weeks later. His place keeps popping up doesn't it.
