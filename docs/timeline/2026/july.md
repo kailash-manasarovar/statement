@@ -30,7 +30,7 @@ function googleTranslateElementInit() {
 
 ## BAU at the conservatory
 
-- Today, nearly three years after I first complained to the Generalitat about cyber-and-physical stalking by the teachers - but in fact I was being drugged, poisoned, sedated, raped repeatedly while unconscious, live-streamed onto porn-networks via the spy-cams in my home and at the conservatory's classrooms, whilst being terrorized by criminal pornographers operating freely at the conservatory of Dénia - teachers and staff implicated in serious crimes against students and [foreigners visiting the area, including murder,](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) continue their guardianship over hundreds of minors.
+- Today, nearly three years after I first complained to the Generalitat about cyber-and-physical stalking... - but in fact I was being drugged, poisoned, sedated, raped repeatedly while unconscious, live-streamed onto porn-networks via the spy-cams in my home and at the conservatory's classrooms, whilst being terrorized by criminal pornographers operating freely at the conservatory of Dénia - ...teachers and staff implicated in serious crimes against students and [foreigners visiting the area, including murder,](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) continue their guardianship over hundreds of minors.
 
 ![Paqui advertising Elsa in July 2026](../../content/images/paqui-advertising-in-july-2026.jpg)
 
