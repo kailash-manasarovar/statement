@@ -44,5 +44,6 @@ function googleTranslateElementInit() {
 
 ### Suggestion from the CoP
 
-- Mass testing of women, children, and babies in the entire Valencian region for poisons and sedating chemicals.
-- Further investigation on positives.
+- Roll out my statement.
+- From here, mass testing of women, children, and babies in the entire Valencian region for poisons and sedating chemicals.
+- Further investigation on all positives.
