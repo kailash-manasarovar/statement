@@ -36,4 +36,7 @@ function googleTranslateElementInit() {
 
 - Yes, this is the same Elsa whose pic was sent to me on fake accounts. See reference and screenshot in the section from [October 2023](../2023/october.md#gang-stalking-by-conservatory-civil-servants).
 - Is she wearing a wedding dress?
+- Are they literally taking the piss now?
+- Have they gotten purposefully worse while everyone knew and no-one did anything about it?
+- That's what evil does, it just carries on for as long as it can.
 - It's a lovely world we live in, isn't it!
