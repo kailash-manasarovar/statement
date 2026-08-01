@@ -30,6 +30,6 @@ function googleTranslateElementInit() {
 
 ## BAU at the conservatory
 
-- Today, three/four years after I was terrorized by criminal pornographers working at the conservatory of Dénia, teachers and staff implicated in serious crimes against their students and others, including rape and murder, continue their guardianship over hundreds of minors.
-- It's a lovely world we live in, isn't it.
+- Today, three/four years after I was drugged, sedated, raped, stalked and terrorized by criminal pornographers operating at the conservatory of Dénia, teachers and staff implicated in serious crimes against students, including rape and murder, continue their guardianship over hundreds of minors.
+- It's a lovely world we live in, isn't it!
 
