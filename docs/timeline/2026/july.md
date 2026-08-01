@@ -47,4 +47,5 @@ function googleTranslateElementInit() {
 - Roll out my statement.
 - From here, mass testing by non-Spanish/non-porn-gang friendly agency of women, children, and babies in the entire Valencian region for poisons and sedating chemicals.
 - Further investigation on all positives.
+- For all poisoning positives, close investigation for tampering at the mains public water connection in their properties.
 <!-- back to thumb twiddling no doubt -->
