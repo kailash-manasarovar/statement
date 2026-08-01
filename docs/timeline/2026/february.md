@@ -13,9 +13,10 @@ function googleTranslateElementInit() {
 - Ask me the questions, bridge-keeper. I am not afraid.
 - What is your favorite sport?
 
-![The bridge of death](../../content/images/ask-me-the-questions.jpg)
+![The bridge of death](../../content/images/this-was-supposed-to-be-about-teeth.jpg)
 
 - Golf.
+- WRONG. It's teeth.
 - Aaaaaaaahhhhhhhhhhhhh.
 
 ## Full Moon on the feast of Saint Brigid 
