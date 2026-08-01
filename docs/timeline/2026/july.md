@@ -41,3 +41,8 @@ function googleTranslateElementInit() {
 - That's what evil does, it just carries on for as long as it can.
 - I bet everyone has known for decades.
 - It's a lovely world we live in, isn't it!
+
+### Suggestion from the CoP
+
+- Mass testing of women, children, and babies in the entire Valencian region for poisons and sedating chemicals.
+- Further investigation on positives.
