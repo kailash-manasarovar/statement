@@ -21,7 +21,7 @@ function googleTranslateElementInit() {
 
 - European or African?
 - How do you know so much about swallows?
-- Well, a king has to know about all sorts of things.
+- Well, a king has to know about all sorts of things you know.
 
 ## Re-membering
 
