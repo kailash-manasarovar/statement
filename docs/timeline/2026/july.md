@@ -30,6 +30,10 @@ function googleTranslateElementInit() {
 
 ## BAU at the conservatory
 
-- Today, three/four years after I was drugged, sedated, raped, stalked and terrorized by criminal pornographers operating at the conservatory of Dénia, teachers and staff implicated in serious crimes against students, including rape and murder, continue their guardianship over hundreds of minors.
-- It's a lovely world we live in, isn't it!
+- Today, three years after I first complained to the Generalitat about cyber-and-physical stalking by the teachers - but in fact I was being drugged, poisoned, sedated, raped repeatedly while unconscious whilst being terrorized by criminal pornographers operating freely at the conservatory of Dénia - teachers and staff implicated in serious crimes against students and [foreigners visiting the area - including murder](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) - continue their guardianship over hundreds of minors.
 
+![Paqui advertising Elsa in July 2026](../../content/images/paqui-advertising-in-july-2026.jpg)
+
+- Yes, this is the same Elsa whose pic was sent to me on fake accounts. See reference and screenshot in the section from [October 2023](../2023/october.md#gang-stalking-by-conservatory-civil-servants).
+- Is she wearing a wedding dress?
+- It's a lovely world we live in, isn't it!
