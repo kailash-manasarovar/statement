@@ -27,3 +27,9 @@ function googleTranslateElementInit() {
 
 - I used to say that a lot on X. 
 - Remember.
+
+## BAU at the conservatory
+
+- Today, three/four years after I was terrorized by criminal pornographers working at the conservatory of Dénia, teachers and staff implicated in serious crimes against their students and others, including rape and murder, continue their guardianship over hundreds of minors.
+- It's a lovely world we live in, isn't it.
+
