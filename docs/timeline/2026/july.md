@@ -45,6 +45,6 @@ function googleTranslateElementInit() {
 ### Suggestion from the CoP
 
 - Roll out my statement.
-- From here, mass testing of women, children, and babies in the entire Valencian region for poisons and sedating chemicals.
+- From here, mass testing by non-Spanish/non-porn-gang friendly agency of women, children, and babies in the entire Valencian region for poisons and sedating chemicals.
 - Further investigation on all positives.
 <!-- back to thumb twiddling no doubt -->
