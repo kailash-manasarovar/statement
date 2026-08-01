@@ -76,7 +76,7 @@ function googleTranslateElementInit() {
 - I often feel unwell in my apartment, nauseated and tired.
 - My regular eye tests start to show high eye pressure, something I - or anyone in my family - have never suffered from before and I'm asked to go in regularly to the opticians to have it checked out as it's apparently dangerous.
 
-## Aqualia
+### Aqualia
 
 - To set myself up as the bill-payer for the water at Carrer Furs, I go along to the Aqualia office in person.
-- I'm dealt with by a man who *is* Vicente's male friend he introduced me to in 2009.
+- I'm dealt with by a man who *is* [Vicente's male friend he introduced me to in 2009](../2001-to-2010/2009.md#vicentes-male-friend).
