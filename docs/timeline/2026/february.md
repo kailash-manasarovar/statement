@@ -8,6 +8,16 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## What, wait, another (fake) collapsible bridge again?
+
+- Ask me the questions, bridge-keeper. I am not afraid.
+- What is your favorite sport?
+
+![The bridge of death](../../content/images/ask-me-the-questions.jpg)
+
+- Golf.
+- Aaaaaaaahhhhhhhhhhhhh.
+
 ## Full Moon on the feast of Saint Brigid 
 
 - I'm staying for a short while in Dorset.
