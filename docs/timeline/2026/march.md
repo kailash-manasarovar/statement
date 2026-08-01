@@ -57,6 +57,15 @@ function googleTranslateElementInit() {
 - Even so, I was horribly addicted.
 - I wonder what else was in those pills.
 
+## Yet another bridge collapses
+
+- Darling, you didn't use canned salmon, did you?
+
+![The bridge of death](../../content/images/monty-python-castle-scene.jpg)
+
+- I'm most dreadfully embarrassed.
+- Aaaaaaaahhhhhhhhhhhhh.
+
 ## Lourdes
 
 ### Winter service

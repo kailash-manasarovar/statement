@@ -31,6 +31,17 @@ function googleTranslateElementInit() {
         - I wonder if they felt it imperative to attempt to undermine any healing I might have had from attending the Iboga retreat.
         - In retrospect, the criminal-element I oftentimes met on some of these shamanic retreats I was going on to try to access hidden memories - and the numerous odd experiences I had with these people - could well have been part of the distract-and-discredit criminal protocol for child rape-gang survivors, don't you think.
 
+## A bridge collapses again
+
+- Ask me the questions, bridge-keeper. I am not afraid.
+- What is your favorite color?
+
+![The bridge of death](../../content/images/ask-me-the-questions.jpg)
+
+- Um blue, um white...
+- WRONG!!!! It's purple.
+- Aaaaaaaahhhhhhhhhhhhh.
+
 ## Could Brian have known who Ugly was back in 2001?
 
 - Pathologically inclined to think the best of everyone - not a bad thing - I start to wonder if the [weird occurrence with the ugly man](../2001-to-2010/2001.md) in Amsterdam in 2001 implies that Brian - my boyfriend at the time - knew who he was?

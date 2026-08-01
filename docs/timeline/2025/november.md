@@ -49,6 +49,16 @@ function googleTranslateElementInit() {
 - Thank you, whoever you are. It has helped enormously.
 - But seriously, you should all be done for mass murder and mass attempted murder.
 
+## A bridge collapses
+
+- What's your favorite color?
+
+![The bridge of death](../../content/images/who-approacheth-the-bridge-of-death.gif)
+
+- Um... what? Wait..
+- WRONG!!!!
+- Aaaaaaaahhhhhhhhhhhhh.
+
 ## BAU at the conservatory
 
 - Today, it is business as usual at the conservatory.

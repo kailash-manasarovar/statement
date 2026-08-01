@@ -8,6 +8,16 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## A (fake) bridge collapses
+
+- What is your quest?
+
+![The bridge of death](../../content/images/bridge-of-death.jpg)
+
+- Um, quest? Well.. I'm so sorry for farting, I've had some problems with my digestive system recently...
+- WRONG!!!!
+- Aaaaaaaahhhhhhhhhhhhh.
+
 ## Thailand fasting and detox clarity
 
 - It's day seven of the fast and detox program.
@@ -93,3 +103,13 @@ function googleTranslateElementInit() {
 - They're calling me *khun-khun* too, which I think is a little derogatory.
 - If I'm so famous everywhere, why hasn't anyone been nicked yet?
 - I guess we had to get *every last one of them*, innit.
+
+## Another (fake) bridge collapses
+
+- What's the capital of Assyria?
+
+![The bridge of death](../../content/images/fake-bridge-of-death.jpg)
+
+- Wait, I have it in my calendar here...
+- WRONG!!!!
+- Aaaaaaaahhhhhhhhhhhhh.
