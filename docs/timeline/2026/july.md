@@ -47,5 +47,6 @@ function googleTranslateElementInit() {
 - Roll out my statement.
 - From here, mass testing by non-Spanish/non-porn-gang friendly agency of women, children, and babies in the entire Valencian region for poisons and sedating chemicals.
 - Further investigation on all positives.
-- For all poisoning positives, close investigation for tampering at the mains public water connection in their properties.
-<!-- back to thumb twiddling no doubt -->
+- For all poison and drug positives, close investigation for tampering at the mains public water connection to the properties they live in.
+- Also close inspection of the property's furniture, walls, ceilings etc, anywhere a spy-cam could be installed, and inspection of all ventilation systems for evidence of sedating gas technology.
+- ISPs may have evidence of routers installed by neighboring properties for the sole purpose of running 24-7 spy-cam networks.
