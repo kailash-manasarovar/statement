@@ -66,6 +66,14 @@ function googleTranslateElementInit() {
 - It's unbearably revolting.
 - However, there is one very good thing about this, which is, those participants yet to come will not be able to deny they knew about, saw, enjoyed, and did nothing to stop the baby rape, bestiality, and pedophilia broadcast live from Carrer Furs, Las Marinas, Dénia, Spain. 
 
+## I buy a cheap keyboard and need a stand
+
+- Delighted with the prospect of starting piano studies again, I buy a cheap keyboard that I can practice on at home.
+- I need a stand for it, however, so I go along to the [Dénia music shop](https://www.facebook.com/deniamusic) in Abu Zeyan just down from the Aqualia office on the roundabout.
+- Incidentally, this is the same music shop that Domingo took me to in 2014 where [the shop assistants were clearly colluding in stalking me](../2011-to-2020/2014.md#going-to-the-music-shop-with-domingo) - one of the first instances of townsfolk making it known I was a sedated-rape victim and criminal-porn target.
+- The shop had moved since then.
+- When I go to buy a stand, I meet a man working there - long haired guy - and I have a very strong sexual feeling at that moment which I find really embarrassing.
+
 ## Planting the choker seeds
 
 - Over this period I'm occasionally shown violent rape porn on Twitter which shocks me to the core.

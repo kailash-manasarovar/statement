@@ -81,12 +81,12 @@ function googleTranslateElementInit() {
 - To set myself up as the bill-payer for the water at Carrer Furs, I go along to the Aqualia office in person.
 - I'm dealt with by a man who is [Vicente's male friend he introduced me to in 2009](../2001-to-2010/2009.md#vicentes-male-friend).
 - I'm sure he recognizes me but he doesn't acknowledge me.
-- I have forgotten his name and my Spanish hasn't cranked up sufficiently to launch into a conversation with him so I also do not acknowledge him.
+- I have forgotten his name and my Spanish hasn't cranked up sufficiently to launch into a conversation with him so I also do not acknowledge him. 
 
 #### One of my thousands of letters asking for help
 
-- In late 2024 when [I was obviously being poisoned at my home and it looked very much like through the mains water connections](../2024/november.md#poisoning-in-my-apartment-and-terror-outside), I wrote to Aqualia to inform them of this, and to ask them to come and check the mains water connection as I believe it had been tampered with.
-- This was one of the emails I have since lost after my gmail account was [inexplicably shut down in January 2026](../2026/january.md#my-gmail-account-is-shutdown-permanently) when I was back in North London, I assume by criminal gangs with full admin access to my devices from the home network at 31.
+- In late 2024 when [I was obviously being poisoned at my home and it looked very much like through the mains water connections](../2024/november.md#poisoning-in-my-apartment-and-terror-outside), I wrote to Aqualia to inform them of this, and to ask them to come and check the mains water connection as I believed it had been tampered with.
+- This was one of the emails I have since lost after my gmail account was [inexplicably shut down in January 2026](../2026/january.md#my-gmail-account-is-shutdown-permanently) when I was back in North London - I assume by criminal gangs with full admin access to my devices from the home network at 31.
 - Furthermore, I made multiple backups of all these emails on hard disk, and these have become inaccessible too!
 - Most likely, law enforcement will have kept copies of everything, so I'm not that worried.
 - If I come across this in the meantime, I will add it and let you know.
