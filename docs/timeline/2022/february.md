@@ -79,7 +79,9 @@ function googleTranslateElementInit() {
 ### Aqualia
 
 - To set myself up as the bill-payer for the water at Carrer Furs, I go along to the Aqualia office in person.
-- I'm dealt with by a man who *is* [Vicente's male friend he introduced me to in 2009](../2001-to-2010/2009.md#vicentes-male-friend).
+- I'm dealt with by a man who is [Vicente's male friend he introduced me to in 2009](../2001-to-2010/2009.md#vicentes-male-friend).
+- I'm sure he recognizes me but he doesn't acknowledge me.
+- I have forgotten his name and my Spanish hasn't cranked up sufficiently to launch into a conversation with him so I also do not acknowledge him.
 
 #### One of my thousands of letters asking for help
 
