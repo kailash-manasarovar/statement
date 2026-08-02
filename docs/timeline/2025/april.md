@@ -50,10 +50,10 @@ function googleTranslateElementInit() {
 - I'm sure Hazel or Carmen Cano is behind this one.
 - I have screenshots of other accounts suggesting Carmen Cano with similarly unpleasant statements about my health and wellbeing.
 - When I drafted this section, I was obviously looking at one, but I seem to have lost the reference to it.
-- You may imagine that the overwhelm of evil information I was trying to collate and make sense of would have been hard to manage without the constant clandestine drugging I was enduring.
+- You may imagine that the overwhelm of evil information I was trying to collate and make sense of would have been hard to manage without the constant clandestine drugging I was enduring!
 - I'll add all and any of these missing fake accounts when I have the time or inclination to look for them; it may not matter now anyway.
 - Sources told me that Carmen Lopez Cano had been waiting for me to die for some time.
-- I'm not sorry to disappoint.
+- My continued survival must have been a dreadful disappointment for her.
 
 ## Runcorn with Pochin
 
