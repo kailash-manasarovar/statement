@@ -83,7 +83,7 @@ function googleTranslateElementInit() {
 - My `katharinejchardwood` gmail account is unreachable.
 - None of the options to restore it are functioning, and I have two or three usable ones including a backup email which is working.
 - This is inexplicable and the only reason for blocking access to this account, I assume, are the many letters and emails I wrote to hundreds of organizations asking for help such as [Aqualia the water board in Valencia](../2022/february.md#aqualia) to inform them the main water connection was being tampered with by poisoners.
-- My `DrKatharineMurphy` Facebook account with over a thousand connections will suffer the same fate in just a few months time.
+- My `DrKatharineMurphy` Facebook account with over a thousand connections will suffer the same fate in just a few months time, again this happens when I'm logged on in North London.
 
 ### A sinister man in the newsagents
 
