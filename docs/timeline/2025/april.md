@@ -40,13 +40,20 @@ function googleTranslateElementInit() {
 - And I meant it, viscerally.
 - And the hacking porn-gangs will have heard it too, which is good.
 
-## Goaded online
+## Goading and taunting online
 
-- I continue to be goaded online, specifically about illnesses related to pesticide poisoning.
-- It's nothing like it was though. 
-- Everything is pretty quiet online.
-- I suspect it's Carmen Cano, as they like you to know who they are, and this name and her picture keeps coming up in the way they used to.
-- Sources tell me this woman has been waiting for me to die for some time. She'll need eternity for that I expect.
+- I continue to be goaded online, specifically about illnesses related to pesticide poisoning and kidney damage.
+- This account likes my posts *relentlessly*.
+
+![Catherine vonRuhland](../../content/images/fake-accounts/dialysis.png)
+
+- I'm sure Hazel or Carmen Cano is behind this one.
+- I have screenshots of other accounts suggesting Carmen Cano with similarly unpleasant statements about my health and wellbeing.
+- When I drafted this section, I was obviously looking at one, but I seem to have lost the reference to it.
+- You may imagine that the overwhelm of evil information I was trying to collate and make sense of would have been hard to manage without the constant clandestine drugging I was enduring.
+- I'll add all and any of these missing fake accounts when I have the time or inclination to look for them; it may not matter now anyway.
+- Sources told me that Carmen Lopez Cano had been waiting for me to die for some time.
+- I'm not sorry to disappoint.
 
 ## Runcorn with Pochin
 
