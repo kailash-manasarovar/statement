@@ -71,12 +71,19 @@ function googleTranslateElementInit() {
 - Seeing this every day feels like a threat of some sort, a message, but I'm not sure what it's about.
 - I haven't been watching the news.
 - When I see the news about the Spanish train derailment I start to worry about Inma.
-- I tried to email her from my `katharinejchardwood@gmail` account and as I was responding to one of her emails, I instantly lost access to the account.
+- I tried to email her from my `katharinejchardwood@gmail` account and as I was responding to one of her emails, [I instantly lost access to the account](#my-gmail-account-is-shutdown-permanently).
 - I try to access the gmail account, but I'm blocked from doing so, the normal options are not appearing.
 - I get a response from her from a different email which is good.
 - The email I cannot access has so much porn-gang data in it; I wonder if Google backend developers are blocking my access.
 
 ![Ask the Google community](../../content/images/ask-the-google-community.png)
+
+### My Gmail account is shutdown permanently
+
+- My `katharinejchardwood` gmail account is unreachable.
+- None of the options to restore it are functioning, and I have two or three usable ones including a backup email which is working.
+- This is inexplicable and the only reason for blocking access to this account, I assume, are the many letters and emails I wrote to hundreds of organizations asking for help such as [Aqualia the water board in Valencia](../2022/february.md#aqualia) to inform them the main water connection was being tampered with by poisoners.
+- My `DrKatharineMurphy` Facebook account with over a thousand connections will suffer the same fate in just a few months time.
 
 ### A sinister man in the newsagents
 
