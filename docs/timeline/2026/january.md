@@ -99,7 +99,7 @@ function googleTranslateElementInit() {
 - These are gone too!
 - None of the options to restore the email account are functioning, and I have two or three usable methods including a backup email which is working.
 - This is utterly inexplicable to me.
-- The only reason I can fathom for blocking access to this account are in an attempt to hide the many letters and emails I wrote to hundreds of organizations asking for help such as [Aqualia, the water board in Valencia](../2022/february.md#aqualia) to inform them the water connection to my house was being tampered with by poisoners.
+- The only reason I can fathom for blocking access to this account is an attempt to hide the many letters and emails I wrote to hundreds of organizations asking for help such as [Aqualia, the water board in Valencia](../2022/february.md#aqualia) to inform them the water connection to my house was being tampered with by poisoners.
 - My `DrKatharineMurphy` Facebook account I created when I was running for office at the UK general election in 2024, with over a thousand connections, suffers the same fate in just a few months time, and again this happens while I'm logged on in North London.
 
 ## During, after, now
