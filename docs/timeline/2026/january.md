@@ -78,13 +78,6 @@ function googleTranslateElementInit() {
 
 ![Ask the Google community](../../content/images/ask-the-google-community.png)
 
-### My Gmail account is shutdown permanently
-
-- My `katharinejchardwood` gmail account is unreachable.
-- None of the options to restore it are functioning, and I have two or three usable ones including a backup email which is working.
-- This is inexplicable and the only reason for blocking access to this account, I assume, are the many letters and emails I wrote to hundreds of organizations asking for help such as [Aqualia the water board in Valencia](../2022/february.md#aqualia) to inform them the main water connection was being tampered with by poisoners.
-- My `DrKatharineMurphy` Facebook account with over a thousand connections will suffer the same fate in just a few months time, again this happens when I'm logged on in North London.
-
 ### A sinister man in the newsagents
 
 - Back in London I feel, again, like if I leave the house anything could happen to me.
@@ -98,6 +91,16 @@ function googleTranslateElementInit() {
 - I'm in Decathlon paying for my items.
 - A man dressed in traditional Islamic gear - plus trainers and a coat - comes in asking all the staff if they're Indian.
 - I hurry off.
+
+## My Gmail account is shutdown permanently
+
+- The minute I'm back in North London, my `katharinejchardwood` gmail account is inexplicably unreachable.
+- I had been using it daily while I was away, and while I was staying next to the American Embassy in Bangkok I made multiple backups of all the emails on this account.
+- These are gone too!
+- None of the options to restore the email account are functioning, and I have two or three usable methods including a backup email which is working.
+- This is utterly inexplicable to me.
+- The only reason I can fathom for blocking access to this account are in an attempt to hide the many letters and emails I wrote to hundreds of organizations asking for help such as [Aqualia, the water board in Valencia](../2022/february.md#aqualia) to inform them the water connection to my house was being tampered with by poisoners.
+- My `DrKatharineMurphy` Facebook account I created when I was running for office at the UK general election in 2024, with over a thousand connections, suffers the same fate in just a few months time, and again this happens while I'm logged on in North London.
 
 ## During, after, now
 
