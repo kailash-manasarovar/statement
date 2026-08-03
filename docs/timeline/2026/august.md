@@ -13,7 +13,7 @@ function googleTranslateElementInit() {
 - Forgiveness is in the heart and mind, not really the body, although..
 - Jesus on the cross had a perfect heart and mind, but he suffered excruciating pain and distress while it was happening.
 - However, after his physical death the body reconstructed because of his pure heart and mind, and his unequivocal connection to God, and because that's what God had planned.
-- So, the visceral trigger the predator instills in the prey is not a failure of forgiveness - I was wondering about those quick glances - and although the heart and mind is mostly still about all this - if we were to think that there was some error in reacting this way we would be imposing suicidal empathy on the prey by confusing the levels.
+- So, the visceral trigger the predator instills in the prey is not a failure of forgiveness, and although the heart and mind may be mostly still about all this (a having forgiven state), if we were to think that there was some error in reacting this way we would be imposing suicidal empathy on the prey by confusing the levels.
 - This physical trigger is very literally life-saving.
 - Christians confuse the levels by saying we're all equal and should be treated so. And this sounds good and true, but it becomes chaos because the measure is Jesus and to assume everyone is of pure heart and mind like Jesus is - EVEN THOUGH at the divine level this *is* true - here in the physical world the outcomes of doing this are disastrous.
 - It's warped forgiveness and it more often feeds evil rather than doing anything to dispel it.
