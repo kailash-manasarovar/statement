@@ -15,7 +15,7 @@ function googleTranslateElementInit() {
 - However, after his physical death the body reconstructed because of his pure heart and mind, and his unequivocal connection to God, and because that's what God had planned.
 - So, the visceral trigger the predator instills in the prey is not a failure of forgiveness, and although the heart and mind may be mostly still about all this (a having forgiven state), if we were to think that there was some error in reacting this way we would be imposing suicidal empathy on the prey by confusing the levels.
 - This physical trigger is very literally life-saving.
-- Christians confuse the levels by saying we're all equal and should be treated so. And this sounds good and true, but it becomes chaos because the measure is Jesus and to assume everyone is of pure heart and mind like Jesus is - EVEN THOUGH at the divine level this *is* true - here in the physical world the outcomes of doing this are disastrous.
+- Christians confuse the levels by saying we're all equal and should be treated so. And this sounds good and true, but it becomes chaos because the measure is Jesus and to assume everyone is of pure heart and mind like Jesus is here in the physical world - EVEN THOUGH at the divine level this *is* true - the outcomes are disastrous.
 - That is why JC in A Course In Miracles says: *Equality does not imply homogeneity NOW.*
 - It's warped forgiveness and it more often feeds evil rather than doing anything to dispel it.
 - Anyway, back to true forgiveness.
