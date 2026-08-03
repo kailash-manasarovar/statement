@@ -57,15 +57,40 @@ function googleTranslateElementInit() {
 
 ## Runcorn with Pochin
 
-- The whole politics thing, for me in my position, was a means to stay alive longer.
-- I think it worked too, a little.... what am I saying, no it didn't, they'll blatantly try and murder me again in a few months time.
+- The whole Reform politics thing, for me in my unenviable position, was more a means to stay alive longer than anything else.
+- I feel very strongly about not sterilizing children, so my reasons for standing for Party Of Women at the UK General Election in 2024 were authentic but the experience made me realize that I had become safer, albeit just a little, by standing.
+- It also unraveled a whole lot of other evil I was not aware of... so really it was very good and I thoroughly recommend standing for election if you're the target of abusers.
+- It seems like the more people know who you are, the safer you are.
+- That's why the porn-gangs (and abusive men) require total isolation of their victims, so they are without help.
+- They're essentially cowards, you see.
+- Anyway.
+- I think it worked too, a little.... what am I saying, no it didn't, they blatantly try and murder me again in just a few months time.
 - But it was interesting.
-- You meet a lot of agents, as you might imagine.
-- I met a very interesting one who was totally honest, and I thought, wow that is so cool!
+- I'm personally not fond of politics at all and would rather live quietly somewhere, but would defer to Himself on that of course.
+- Anyway, you meet a lot of agents, as you might imagine.
+- I was getting used to this by then as well, and this time they spoke to me, which was nice.
+- And I met an extremely interesting agent who was applying a total honesty approach, and I thought, wow that is so cool! 
+- I never saw that again, but they so rarely talk to me I haven't really had much opportunity but I did find it rather unique and wonderful.
+- Anyway.
 
-### Recoiling on meeting someone
+### Recoiling on meeting a violent man
 
-- wip
+- MacMurdoch.. an MP at the time for Reform.
+- Quite famous in that he had done no campaigning in his constituency in Essex somewhere and won with a landslide.
+- He was surrounded by young men and they were all a bit snickery in general, and very much so with me, which today (July 2026) makes me wonder.
+- I was quite keen to meet this person I'd never heard about before.
+- I was introduced to him and I stretched out my hand to shake his, and the moment our hands touched something happened (a lightning episode of some variety) and I recoiled quickly, snatched my hand away, and felt panic inside.
+- He noticed this and was upset by it.
+- I think we mumbled some formalities and sat down far away from each other.
+- I was feeling like I was having a panic attack, it was so strange and inexplicable.
+- I had to sit and do some breathing exercises, and the honest agent was beside me and he was quite good for my nervous system so I calmed down pretty quick.
+- Whenever I looked over at MacMurdoch during this experience, it looked like he was having similarly intense emotions that he didn't understand. 
+- A month or so later it comes out he was in juvenile detention for attacking a girlfriend. He resigned from parliament because of this.
+- Later, I found out he was part of the Rape Gang inquiry process with Rupert Lowe and it made me wonder yet again.
+- This section is a curious parallel to Tony Clifton, isn't it.
+- You gotta wonder about people's motivations and their ability or inability to heal. 
+- At the September Reform Conference another "landslide" MP, a young man from Essex again, stood up in a meeting about *what's happening to young men* in which a conservative MP I really like had spoken about the documented and unarguable detrimental effects of porn on young people, and an audience member had even spoken about her experience of sexual abuse, and this young man stood up and defended porn with a snicker, literally - that'll be on video somewhere.
+- I was going to ask him what his favorite genre was (and if it includes rape, it always does you see)... but I didn't. That's the question to ask them.
 
 ## Chris tells me nearly all his N8 records have sold
 
