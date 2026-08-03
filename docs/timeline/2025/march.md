@@ -144,7 +144,7 @@ function googleTranslateElementInit() {
 
 - I love my response.
 - If you have forgotten about the "Are you OK" significance, please reread the [chamber music concert](../2023/may.md#chamber-music-concert) section from May 2023, and multiple other terror vignettes I describe that come directly from that police statement and which were performed by the people of Dénia in order to terrify me when I didn't leave my studies at the conservatory after the last [chamber music/switcheroo-porn class with the trumpet-teacher gang on the 12th June 2023](../2023/june.md#monday-12th-june-2023) - my funeral, apparently.
-- Susan tells me she has had kidney failure for over 10 years but her doctors only just told her - I believe this is a direct message to me about my poisoning-injured kidney, they got [quite vindictive about my poisoning injuries](april.md#goaded-online) for a while.
+- Susan tells me she has had kidney failure for over 10 years but her doctors only just told her - I believe this is a direct message to me about my poisoning-injured kidney, they got [quite vindictive about my poisoning injuries](april.md#goading-and-taunting-online) for a while.
 - She also recommends me her personal trainer and shows me a photo of him.. she takes ages finding a photo of him on her WhatsApp... and he's obviously trans.
 - Someone is telling her what to say. Who?
 - On the train back down to London, I'm high again, notably. 
