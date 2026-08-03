@@ -84,6 +84,9 @@ function googleTranslateElementInit() {
 - I think we mumbled some formalities and sat down far away from each other.
 - I was feeling like I was having a panic attack, it was so strange and inexplicable.
 - I always felt like this whenever I saw any of the trumpet teachers - apart from number 1 trumpet teacher - and I would run away!!!!
+
+![Run away!!!](../../content/images/run-away-run-away.jpg)
+
 - Yeah, I think what they did was make sure you saw them in person, just before or after they came round when you were unconscious and brutalized you, because they must have been missing conscious rapes... I guess, and this was close because the body always remembers, and they appear to have been very aware of this visceral terror.
 - Anyway, back at Runcorn, I had to sit and do some breathing exercises, and the honest agent was beside me and he was quite good for my nervous system so I calmed down pretty quick.
 - Whenever I looked over at MacMurdoch during this experience, it looked like he was having similarly intense emotions that he didn't understand. 
