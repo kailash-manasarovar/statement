@@ -15,7 +15,7 @@ function googleTranslateElementInit() {
 
 ## Yet another (fake) bridge collapses, again
 
-- What is the airspeed velocity of a coconut-laden swallow?
+- What is the airspeed velocity of a coconut-laden scanning swallow?
 
 ![The bridge of death](../../content/images/coconut-answered-king-arthur.webp)
 

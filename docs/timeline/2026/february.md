@@ -16,7 +16,7 @@ function googleTranslateElementInit() {
 ![The bridge of death](../../content/images/this-was-supposed-to-be-about-teeth.jpg)
 
 - Golf.
-- WRONG. It's teeth.
+- It's the wrong sketch. It's a full body scan.
 - Aaaaaaaahhhhhhhhhhhhh.
 
 ## Full Moon on the feast of Saint Brigid 
