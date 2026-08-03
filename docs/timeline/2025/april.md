@@ -83,6 +83,7 @@ function googleTranslateElementInit() {
 - He noticed this and was upset by it.
 - I think we mumbled some formalities and sat down far away from each other.
 - I was feeling like I was having a panic attack, it was so strange and inexplicable.
+- I always felt like this whenever I saw any of the trumpet teachers - apart from number 1 trumpet teacher - and I would run away!!!!
 - I had to sit and do some breathing exercises, and the honest agent was beside me and he was quite good for my nervous system so I calmed down pretty quick.
 - Whenever I looked over at MacMurdoch during this experience, it looked like he was having similarly intense emotions that he didn't understand. 
 - A month or so later it comes out he was in juvenile detention for attacking a girlfriend. He resigned from parliament because of this.
