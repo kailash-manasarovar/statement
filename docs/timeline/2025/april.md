@@ -99,7 +99,7 @@ function googleTranslateElementInit() {
 - Speaking of snickering, at September's Reform Conference another "landslide" MP, a young man from Essex again, stood up in a meeting about *what's happening to young men* in which a conservative politician I really like (Miriam Cates) had spoken about the documented and unarguable detrimental effects of porn on young people, and an audience member had even spoken about her experience of sexual abuse, and this young man stood up and defended porn with a snicker, literally a snicker - that'll be on video somewhere.
 - I was going to ask him what his favorite genre was (and if it includes rape, it always does you see)... but I didn't. 
 - That's the question to ask them.
-- Porn-addicts are not interested in consent and it's helpful to point out how outrageous this is.
+- Porn-addicts are not interested in consent and it's helpful to point out to everyone how outrageous this is.
 
 ## Chris tells me nearly all his N8 records have sold
 
