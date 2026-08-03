@@ -87,16 +87,15 @@ function googleTranslateElementInit() {
 ![Run away!!!](../../content/images/run-away-run-away.jpg)
 
 - I've documented some of those times: for example when I saw one of them [outside the health food shop](../2023/september.md#rosa-vidal-follows-me-around) sitting with Rosa Vidal on a Sunday evening just before the monk visited, when I saw a different one of them [kerb-crawling outside my house](../2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car) as I was returning home, and when I saw [Bruno waiting for me at the airport](../2023/june.md#sunday-18th-june-alicante-airport).
-- They appeared to need to make sure you saw them in person just before or after they came round while you were unconscious and brutalized you sexually.
+- Apart from Bruno who was clearly about to stake his claim on my considerable savings, they needed to make sure you saw them in person just before or after they came round while you were unconscious and brutalized you sexually.
 - I assume they must have been missing the fear of *aware* rape-victims... so terrorizing in this way was as close to that as they could get because the body always remembers the attacks.
 - Probably the porn-network (local TV channel?) published a "look she's running away again" special scene with silly music right before the sedated-rape live-stream, amiright?
 - The porn-gangs were so interestingly very aware of visceral terror arising from sexual trauma. In a parallel universe they'd all be trauma therapists!
 - Anyway, back at Runcorn, I had to sit and do some breathing exercises, and the honest agent was beside me and he was quite good for my nervous system so I calmed down pretty quick.
 - Whenever I looked over at MacMurdoch during this experience, it looked like he was having similarly intense emotions that he didn't understand. 
 - A month or so later it comes out he was in juvenile detention for attacking a girlfriend. He resigned from parliament because of this.
-- Later, I found out he was part of the Rape Gang inquiry process with Rupert Lowe and it made me wonder yet again.
-- This section is a curious parallel to Tony Clifton, isn't it.
-- You gotta wonder about people's motivations and their ability or inability to heal. 
+- Later, I found out he was part of the Rape Gang Inquiry process with Rupert Lowe and I wasn't happy about that.
+- You have to question people's motivations, and their ability or inability to heal. 
 - At the September Reform Conference another "landslide" MP, a young man from Essex again, stood up in a meeting about *what's happening to young men* in which a conservative MP I really like had spoken about the documented and unarguable detrimental effects of porn on young people, and an audience member had even spoken about her experience of sexual abuse, and this young man stood up and defended porn with a snicker, literally - that'll be on video somewhere.
 - I was going to ask him what his favorite genre was (and if it includes rape, it always does you see)... but I didn't. That's the question to ask them.
 
