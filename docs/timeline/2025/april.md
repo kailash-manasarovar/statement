@@ -81,12 +81,12 @@ function googleTranslateElementInit() {
 - I recoiled quickly, snatched my hand away, and I felt panic.
 - He noticed this and was upset by it.
 - I think we mumbled some formalities and sat down far away from each other.
-- I was feeling like I was going to have a full-on panic attack, it was so strange and inexplicable, I hadn't felt like that in a long time.
+- I was feeling like I was going to have a full-on panic attack, it was so strange and inexplicable, I hadn't felt like that with no obvious reason for it in a long time.
 - I always felt like this whenever I saw any of the trumpet teachers in Dénia - apart from number 1 trumpet teacher - and I would run away!!!!
 
 ![Run away!!!](../../content/images/run-away-run-away.jpg)
 
-- I've documented some of those times: for example when I saw one of them [outside the health food shop](../2023/september.md#rosa-vidal-follows-me-around) sitting with Rosa Vidal one Sunday evening just before the monk visited, when I saw another [kerb-crawling outside my house](../2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car) as I was returning home..
+- I've documented some of those times: for example when I saw one of them [outside the health food shop](../2023/september.md#rosa-vidal-follows-me-around) sitting with Rosa Vidal one Sunday evening just before the monk visited, when I saw another one [kerb-crawling outside my house](../2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car) as I was returning home..
 - They appeared to need to make sure you saw them in person just before or after they came round when you were unconscious and brutalized you sexually.
 - I assume they must have been missing the fear of aware rape-victims... so terrorizing in this way was close to that because the body always remembers the attacks.
 - Probably the porn-network (local TV channel?) published a "look she's running away again" special scene with silly music right before the sedated-rape live-stream, amiright?
