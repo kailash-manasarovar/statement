@@ -55,39 +55,42 @@ function googleTranslateElementInit() {
 - Sources told me that Carmen Lopez Cano had been waiting for me to die for some time.
 - My continued survival must have been a dreadful disappointment for her.
 
-## Runcorn with Pochin
+## Runcorn with Sarah Pochin
 
-- The whole Reform politics thing, for me in my unenviable position, was more a means to stay alive longer than anything else.
+- I attend an event with political party Reform where we travel from London to Runcorn in Merseyside to help canvas for Sarah Pochin who is standing in a by-election.
+- I'm also considering standing for Reform in the 2026 local elections.
+- Politics, for me in my unenviable position, became more of a means to stay alive rather than anything else, although I am horrified by the state of the country and world.
 - I feel very strongly about not sterilizing children, so my reasons for standing for Party Of Women at the UK General Election in 2024 were authentic but the experience made me realize that I had become safer, albeit just a little, by standing.
-- It also unraveled a whole lot of other evil I was not aware of... so really it was very good and I thoroughly recommend standing for election if you're the target of abusers.
-- It seems like the more people know who you are, the safer you are.
-- That's why the porn-gangs (and abusive men) require total isolation of their victims, so they are without help.
+- Standing for election also unraveled a whole load of other evils I was not aware of... so really it was a very good thing I stood in July 2024, and I thoroughly recommend standing it if you're the target of porn-gangs and sedating-abusers.
+- It felt like the more people know who you are and what's going on with you, the less safe the abusers feel.
+- That's why the porn-gangs (and abusive and violent men generally) require total isolation of their victims, so they are without help.
 - They're essentially cowards, you see.
-- Anyway.
-- I think it worked too, a little.... what am I saying, no it didn't, they blatantly try and murder me again in just a few months time.
-- But it was interesting.
-- I'm personally not fond of politics at all and would rather live quietly somewhere, but would defer to Himself on that of course.
 - Anyway, you meet a lot of agents, as you might imagine.
 - I was getting used to this by then as well, and this time they spoke to me, which was nice.
 - And I met an extremely interesting agent who was applying a total honesty approach, and I thought, wow that is so cool! 
-- I never saw that again, but they so rarely talk to me I haven't really had much opportunity but I did find it rather unique and wonderful.
+- I never saw that again, but they so rarely talk to me - and sometimes when they do talk to me they're often told to stop talking to me mid-chat, which is amusing - but I did find it rather unique and wonderful.
 - Anyway.
 
 ### Recoiling on meeting a violent man
 
-- MacMurdoch.. an MP at the time for Reform.
-- Quite famous in that he had done no campaigning in his constituency in Essex somewhere and won with a landslide.
-- He was surrounded by young men and they were all a bit snickery in general, and very much so with me, which today (July 2026) makes me wonder.
+- James McMurdoch was there; an MP at the time for Reform.
+- He was quite famous in that he had done no campaigning at all in his constituency in Essex somewhere and won a seat in the GE with a landslide (the sort of thing that happens when the country and world are going to..).
+- In Runcorn, he was surrounded by young men and they were all a bit snickery in general, and very much so with me, which today (July 2026) makes me wonder.
 - I was quite keen to meet this person I'd never heard about before.
-- I was introduced to him and I stretched out my hand to shake his, and the moment our hands touched something happened (a lightning episode of some variety) and I recoiled quickly, snatched my hand away, and felt panic inside.
+- I was introduced to him and I stretched out my hand to shake his, and the moment our hands touched something inexplicable happened.
+- I recoiled quickly, snatched my hand away, and I felt panic.
 - He noticed this and was upset by it.
 - I think we mumbled some formalities and sat down far away from each other.
-- I was feeling like I was having a panic attack, it was so strange and inexplicable.
-- I always felt like this whenever I saw any of the trumpet teachers - apart from number 1 trumpet teacher - and I would run away!!!!
+- I was feeling like I was going to have a full-on panic attack, it was so strange and inexplicable, I hadn't felt like that in a long time.
+- I always felt like this whenever I saw any of the trumpet teachers in Dénia - apart from number 1 trumpet teacher - and I would run away!!!!
 
 ![Run away!!!](../../content/images/run-away-run-away.jpg)
 
-- Yeah, I think what they did was make sure you saw them in person, just before or after they came round when you were unconscious and brutalized you, because they must have been missing conscious rapes... I guess, and this was close because the body always remembers, and they appear to have been very aware of this visceral terror.
+- I've documented some of those times: for example when I saw one of them [outside the health food shop](../2023/september.md#rosa-vidal-follows-me-around) sitting with Rosa Vidal one Sunday evening just before the monk visited, when I saw another [kerb-crawling outside my house](../2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car) as I was returning home..
+- They appeared to need to make sure you saw them in person just before or after they came round when you were unconscious and brutalized you sexually.
+- I assume they must have been missing the fear of aware rape-victims... so terrorizing in this way was close to that because the body always remembers the attacks.
+- Probably the porn-network (local TV channel?) published a "look she's running away again" special scene with silly music right before the sedated-rape live-stream, amiright?
+- The porn-gangs were interestingly very aware of visceral terror arising from sexual trauma. In a parallel universe they're all trauma therapists!
 - Anyway, back at Runcorn, I had to sit and do some breathing exercises, and the honest agent was beside me and he was quite good for my nervous system so I calmed down pretty quick.
 - Whenever I looked over at MacMurdoch during this experience, it looked like he was having similarly intense emotions that he didn't understand. 
 - A month or so later it comes out he was in juvenile detention for attacking a girlfriend. He resigned from parliament because of this.
