@@ -22,7 +22,7 @@ function googleTranslateElementInit() {
 - It's very personal because it is about a pure heart and mind looking out.
 - You can't impose forgiveness on anyone, nor insist upon it from someone else, both these approaches are ego.
 - Imposing forgiveness on someone, *I forgive you*, would not necessarily have any effect apart from making the one doing the "forgiving" feel better.
-- Insisting someone forgive you because you assume they should is also, obviously, not going to do anything about your evil-doing.
+- Insisting someone forgive us because we assume they should is also, obviously, not going to do anything about our evil-doing.
 - Because it is so personal, and so universal, my view is the only approach to forgiveness - at this physical level and in this period of history - is for a person to sincerely request it.
 - This is always going to be a mini-(maybe maxi)-healing and never has to have anything to do with the other party.
 - So, that's my universal case for the forgivenet.
