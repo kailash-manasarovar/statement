@@ -35,4 +35,6 @@ function googleTranslateElementInit() {
 
 - Is going to be the shock, isn't it.
 - I was wondering if people had seen it and thought I was conscious and consenting because of the open eyes?
-- And that's why they were appalled with me?
+- And that's why they were so appalled with me?
+
+![Hanuman-Narasimha](../../content/images/hanuman-narasimha.jpg)
