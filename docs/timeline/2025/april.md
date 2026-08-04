@@ -103,9 +103,9 @@ function googleTranslateElementInit() {
 
 ## Chris tells me nearly all his N8 records have sold
 
-- I see Chris Ludwick, from [the N8 band](../pre-2001/1990.md#n8) back in the 90s, a few times this year.
+- I see my friend-for-life (we used to say) Chris Ludwick, from [the N8 band](../pre-2001/1990.md#n8) back in the 90s, a few times this year.
 - One weekend, probably in April or May maybe, I visit him in Stevenage.
-- We go out for lunch, a walk, and a chat somewhere nearby where there's a small farm, a shop, a cafe, and some woodland.
+- We go out for lunch, a walk, and have a long chat somewhere nearby where there's a small farm, a shop, a cafe, and some woodland.
 - I'm telling him what's going on for me, as far as I understand it at the time (pre-switcheroo-porn realization).
 - It's so good to be able to talk to someone about all this without them shutting me down, and I trust Chris.
 - He stays quiet and mostly let's me speak.
