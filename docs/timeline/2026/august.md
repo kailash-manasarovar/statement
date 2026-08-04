@@ -26,3 +26,7 @@ function googleTranslateElementInit() {
 - Because it is so personal, and so universal, my view is the only approach to forgiveness - at this physical level and in this period of history - is for a person to sincerely request it.
 - This is always going to be a mini-(maybe maxi)-healing and never has to have anything to do with the other party.
 - So, that's my universal case for the forgivenet.
+
+## Auggie Augustus
+
+- Good man Auggie <3
