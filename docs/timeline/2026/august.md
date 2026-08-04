@@ -30,3 +30,9 @@ function googleTranslateElementInit() {
 ## Auggie Augustus
 
 - Good man Auggie <3
+
+## The sheer volume of it..
+
+- Is going to be the shock, isn't it.
+- I was wondering if people had seen it and thought I was conscious and consenting because of the open eyes?
+- And that's why they were appalled with me?
