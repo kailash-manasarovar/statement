@@ -119,7 +119,7 @@ function googleTranslateElementInit() {
 - I apply for a senior technical writer role with Tether.
 - The pre-interview stage has a test that turns out to be at an advanced web-developer level.
 - The role is not as described.
-- However, I do give the test a go, as I am a web dev for my own crypto app and have been working in the field for 25 years.
+- Nevertheless, I decide to give the test a go, as I am a web dev for my own crypto app and have been working in the field for 25 years.
 - I do have a PhD in computer science after all.
 - My mind is not up to the task in the way it used to be and I cannot make head-nor-tail of what I'm doing.
 - I back out of the process.
