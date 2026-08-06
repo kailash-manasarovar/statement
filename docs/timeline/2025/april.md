@@ -134,13 +134,17 @@ function googleTranslateElementInit() {
 ## Fridges
 
 - At one point, there is communication online with regards to how I've had enough and I'm not playing anymore.
-- The following day, I do a Google search on my X name and all I see is fridges.
-- I'm reminded of Domingo Cano telling everyone at the conservatory I was [frigid](../2011-to-2020/2014.md#poisoned-aunts) and wonder if that's something his other targets are very familiar with on their social media?
-- I showed my mother this page of fridges on Google search.
+- The following day, I do a Google search on my X handle (search:"@1frgvn X") and all I see is fridges.
+- I'm reminded of [Domingo Cano Lopez telling everyone at the conservatory I was frigid](../2011-to-2020/2014.md#poisoned-aunts), and I wonder if that's something his other targets - and all porn-targets internationally - are familiar with seeing on their social media?
+- I showed my mother this page of fridges on Google search (this is a replica).
+
+![Fridges](../../content/images/fridges.png)
+
 - She was sitting beside me at the time.
 
 ## Deso
 
+- Deso was a bonafide miracle of Love.
 - On Saturday 12th April, I create a DESO account for Forg: the world-saving lucky frog that can't spell.
 
 ![DESO first post](../../content/images/deso/first-post.png)
