@@ -144,8 +144,8 @@ function googleTranslateElementInit() {
 
 ## Deso
 
-- Deso was a bonafide miracle of Love.
-- On Saturday 12th April, I create a DESO account for Forg: the world-saving lucky frog that can't spell.
+- Deso was a bonafide miracle of Love and Light.
+- On Saturday 12th April, I create a DESO account for *Forg*, the world-saving lucky frog that can't spell.
 
 ![DESO first post](../../content/images/deso/first-post.png)
 
@@ -153,8 +153,13 @@ function googleTranslateElementInit() {
 
 [![King Forg](../../content/images/deso/KingForg.png)](https://desocialworld.com/u/KingForg?tab=posts)
 
-- We will find out, in due course, that the true identity of the tiny world-saving lucky frog is hugely unexpected, quite the outlier.
-- While I'm still high (they managed to keep me topped up even while I was in London - see next section for an example of how), the KingForg account becomes another manner of communicating truly with the original trumpet teacher I have unassailable good feelings about and thus, unavoidably, the maelstrom of evil forces that surround him.
+- I first started thinking about this idea on [the train from Aberdeen](march.md#let-women-speak-aberdeen) and created an X account at that time which was nearly immediately shut down.
+- As I look through the DESO profile, I realize I was totally high throughout this period.
+- The criminal gang managed to keep me topped up with hallucinogens even while I was in London - see next section for one example of how.
+- My view is they usually do this to confuse a victim, but it ended up cracking open some creative centres of my mind and making my spiritual practice even stronger.
+- The `KingForg` DESO account becomes another manner of communicating truly with the original trumpet teacher I have unassailable good feelings about and thus, unavoidably, the maelstrom of evil forces that surround him.
+- The beautiful irony of the brain-damage switcheroo-porn scam is, of course, that all the sex-offenders probably thought that they were *Forg*!
+- So marvelous.
 
 ## Shoe Zone Harlow, Essex
 
