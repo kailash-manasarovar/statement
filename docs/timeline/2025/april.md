@@ -142,9 +142,8 @@ function googleTranslateElementInit() {
 
 - She was sitting beside me at the time.
 
-## Deso
+## DESO
 
-- Deso was a bonafide miracle of Love and Light.
 - On Saturday 12th April, I create a DESO account for *Forg*, the world-saving lucky frog that can't spell.
 
 ![DESO first post](../../content/images/deso/first-post.png)
@@ -154,11 +153,12 @@ function googleTranslateElementInit() {
 [![King Forg](../../content/images/deso/KingForg.png)](https://desocialworld.com/u/KingForg?tab=posts)
 
 - I first started thinking about this idea on [the train from Aberdeen](march.md#let-women-speak-aberdeen) and created an X account at that time which was nearly immediately shut down.
-- As I look through the DESO profile, I realize I was totally high throughout this period.
-- The criminal gang managed to keep me topped up with hallucinogens even while I was in London - see next section for one example of how.
-- My view is they usually do this to confuse a victim, but it ended up cracking open some creative centres of my mind and making my spiritual practice even stronger.
+- The powers-that-be let me keep the DESO account, and I really went for it!
+- As I look through the DESO posts I created, I realize I was totally high throughout this period.
+- North London's finest had somehow managed to keep me topped up with hallucinogens throughout, even while I was in London - see [the next section](#shoe-zone-harlow-essex) for one example of how they did that.
+- My view is they commonly do this to confuse a victim so they won't be able to report crimes effectively, but it ended up cracking open some creative centres in my mind and making my spiritual practice and relationship with God even stronger.
 - The `KingForg` DESO account becomes another manner of communicating truly with the original trumpet teacher I have unassailable good feelings about and thus, unavoidably, the maelstrom of evil forces that surround him.
-- The beautiful irony of the brain-damage switcheroo-porn scam is, of course, that all the sex-offenders probably thought that they were *Forg*!
+- The beautiful irony of the Spanish brain-damage switcheroo-porn scam is, of course, that all the sex-offenders probably thought that they were *Forg*!
 - So marvelous.
 
 ## Shoe Zone Harlow, Essex
