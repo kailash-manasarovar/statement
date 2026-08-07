@@ -156,7 +156,7 @@ function googleTranslateElementInit() {
 - The powers-that-be let me keep the DESO account, and I really went for it!
 - As I look through the DESO posts I created, I realize I was totally high throughout the period I was living back in London at my parent's house.
 - As long as I believed the trumpet teacher had been just one man, North London's finest had to keep me topped up with hallucinogens - see [the next section](#shoe-zone-harlow-essex) for one example of how they did that.
-- My view is they commonly do this to confuse a victim so they won't be able to report sex crimes effectively, but it ended up cracking open some creative centres in my mind and making my spiritual practice and relationship with God even stronger.
+- My view is they commonly do this to confuse a porn-target or honey-trap victim, so that they won't be able to understand what has happened to them and/or report it effectively, but it ended up cracking open some creative centres in my mind and making my spiritual practice and relationship with God even stronger.
 - The `KingForg` DESO account becomes another manner of communicating truly with the original trumpet teacher I have unassailable good feelings about and thus, unavoidably, the maelstrom of evil forces that surround him.
 - The beautiful irony of the Spanish brain-damage switcheroo-porn scam is, of course, that all the sex-offenders will have thought they were *Forg*!
 - So marvelous.
