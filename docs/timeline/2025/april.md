@@ -161,6 +161,7 @@ function googleTranslateElementInit() {
 - The beautiful irony of the Spanish brain-damage switcheroo-porn scam is, of course, that all the sex-offenders will have thought they were *Forg*!
 - So marvelous.
 - Oh yeah, another thing I was thinking about was suing Adams and the porn-networks for unpaid earnings over many decades... it must be in the multi-millions... I'd say a billion, at least, wdyt?
+- We could get *prominent businessmen* to add to the victim's compensation fund... another couple of billion maybe.
 
 ## Shoe Zone Harlow, Essex
 
