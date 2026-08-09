@@ -175,8 +175,8 @@ function googleTranslateElementInit() {
 - As I'm leaving the shop to head back outside via the theatre square, two very rough looking blond women, one older one younger, do the *bump-into-and-distract* thing exactly like I see [the woman I recognize do to the waitress in Lourdes](../2025/july.md#lourdes) in July.
 - I'm walking in the direction I show on the map towards the exit.
 - They are standing together and they are not in my way initially.
-- The space is open, there's no-one else around.
-- As I walk, they move towards me, then closer, then one woman, the older one, sort of walks right into me.
+- The space is open, as big as a school hall, and there's no-one else around.
+- As I walk towards the exit, they move towards me, then closer, then one of the women, the older one, sort of walks right into me.
 
 ![Shoezone](../../content/images/shoezone.jpg)
 
@@ -184,23 +184,26 @@ function googleTranslateElementInit() {
 - I see her face very clearly.
 - She is blond, about 50, and she looks like she's had an extremely hard life.
 - The younger one is also blond, but much younger; could be a daughter.
+- They both look angry and upset - the porn-gang helper look.
 - I don't realize the significance of it at the time but I'm sure they did it on purpose.
-- It's obvious everyone knows where I am and what I'm doing minute-by-minute, and they need to keep me topped up on whatever it is I'm ingesting me which is causing me confusion and a high state of mind.
+- It's obvious everyone knows where I am and what I'm doing minute-by-minute from my hacked phone, and they need to keep me topped up on whatever it is I'm ingesting which is causing me confusion and a high state of mind.
 - Is this why it took me so long to remember the [most obvious switcheroo men](../../crimes/protagonists/vidal-sastre.md#six-distinct-men)?
 - Or, was this another murder attempt I survived?
-- If not, why would these women in particular be so interested in me *not* remembering there were at least six men posing as trumpet teacher at the music school?
-- It was extraordinarily stressful, you cannot imagine. Every time I went out of the door, something weird like this happened.
+- If not murder, why would these women in particular be so interested in ensuring I *don't* remember there were at least six men posing as trumpet teacher at the music school?
+- What's it got to do with women in Essex?
+- 2025 was extraordinarily stressful, you cannot imagine. Every time I went out of the door, something weird like this happened.
 - If it wasn't something connected to my dad, it was something even weirder.
-- The whole time I was in London in 2025 was like this.
-- At the time, the whole distract-and-drug thing did not occur to me. I thought I was just experiencing constant threats.
+- The whole time I lived in London in 2025 was like this.
+- At the time, the distract-and-drug thing did not occur to me. I thought I was just experiencing constant threats.
 - It reminded me of another incident back in maybe 2010 or 2011 when my mum and I would go to the Finchley Lido cinema on a Saturday night together and drive down and park outside.
 - One night, two women who had a similar appearance to these Cambridge women; blond, oldish, sort of Cell Block H types, tried to get into the back seats of our car while we were in the car and getting ready to leave.
-- I got out and roared at them, I literally roared, I had no idea where it came from, and they wandered off a bit surprised-looking.
-- We reported it to the Metropolitan police at the time.
+- The doors were stuck so they couldn't get in! They kept trying though.
+- I got out and roared at them, I literally roared - "YOU'VE GOT THE WRONG CAR!" - I had no idea where it came from, and they wandered off a bit surprised-looking.
+- We reported it to the Metropolitan police at the time it was so dodgy.
 - It also reminded me of something else.
 - Probably in October 2025, just before I left N2, I was threatened online with the *Cambridge women* who were gonna *come down and get me* or something ridiculous like this.
 - I answered back some nonsense.
-- An account `@CambridgeUgly` interacted with me [around those days in April I went to Shoe Zone](https://x.com/search?q=cambridge%20(%401frgvn)&src=typed_query).
+- An account `@CambridgeUgly` interacted with me [around the time in April I went to Shoe Zone](https://x.com/search?q=cambridge%20(%401frgvn)&src=typed_query).
 
 ![Cambridge ugly](../../content/images/cambridge-ugly.jpg)
 
