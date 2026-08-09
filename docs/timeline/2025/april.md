@@ -207,6 +207,11 @@ function googleTranslateElementInit() {
 
 ![Cambridge ugly](../../content/images/cambridge-ugly.jpg)
 
+- These posts are now (August 2026) unsearchable on the `@1frgvn` timeline.
+- Why do we see so much criminal gang activity on X, and elsewhere, posing as friendly to the women's rights movement?
+- Is it a move from the porn-gangs to ensure no-one gets wind of what they've really been up to for nearly half a century and how bad it has gotten?
+- Yet another definition of *suicidal empathy*?
+
 ## There's something in the water
 
 - I take my father to play a jazz gig at the Elephant pub in North Finchley.
@@ -225,7 +230,7 @@ function googleTranslateElementInit() {
 ## Let Women Speak April
 
 - I go to Hyde Park Let Women Speak on 27th April.
-- Susan and Sandra are there.
+- Speaking of criminal gangs posing as friends of the women's rights movement, Susan and Sandra are there.
 - I had seen them both in [Aberdeen in March](march.md#let-women-speak-aberdeen).
 - Sandra was an [electoral volunteer](../2024/june.md#volunteers-not-what-they-seem) of mine in 2024.
 - Between the previous time I saw them in March, and this event, I had remembered that Susan Hamill had [repeated a significant phrase from my police statement](../2023/may.md#chamber-music-concert) exactly like teachers and staff had done at the conservatory of Denia while terrorizing me.
