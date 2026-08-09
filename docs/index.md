@@ -346,10 +346,12 @@ I continue to walk with God.
 - Do the criminals play games amongst themselves and the wider porn-addict community about who is going to kill themselves, who will undergo surgery, who would they like to see murdered or running around naked in a field after a horse?
 - It makes statements I heard from apparent "friends", such as ["Why does someone always have to die?"](timeline/2023/december.md#piano-concert), chilling to the bone.
 - Unsurprisingly, the suicide statistics in Dénia are off the scale. 
-- The Dénia Doomsday Manipulation-Machine started life as a methodology for tricking women by cowardly petty-crook misogynists, and was left to spiral into its current monstrous form simply because no-one considered porn-driven decades of serious sex crimes against women and children worth stopping.
+- The Dénia Doomsday Manipulation-Machine started life as a methodology for tricking women by cowardly petty-crook misogynists, and was left to spiral into its current monstrous form simply because no-one considered porn-driven decades of serious sex crimes against women and children worth stopping, or rather, everyone bent over backwards to keep the criminal porn production running.
 - We only have ourselves to blame.
 
 ![The Dénia Doomsday Manipulation-Machine](content/images/denia-doomsday-machine.png)
+
+<!-- Wouldn't it be just horrific if all this was true (it is) and God had abandoned us to it. Well, that's an impossibility but we could if we were totally insane choose to ignore Him. Thank you Father for your tender care and our renewed sanity. -->
 
 ### What happens to those who complain
 
