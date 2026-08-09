@@ -355,7 +355,8 @@ I continue to walk with God.
 
 ### What happens to those who complain
 
-- Lorraine Blackbourn stumbled across something the gangs along with members of her own family were doing that she literally couldn't live with (she was tricked into starring in violent horror-rape-porn that left her needing surgery).
+- Lorraine Blackbourn stumbled across something the gangs were doing that she literally couldn't live with (she was tricked by family members on the Spanish side into starring in violent horror-rape-porn that left her needing surgery).
+- Like all the other porn evidence, it was pretty easy to find copies of this vicious crime - which eventually resulted in Lorraine's death - on the networks.
 - I believe she tried to get help, like I did, and was totally ignored, like I was/am.
 - I believe this tipped her over the edge and she was unable to withstand the online suicide suggestions which I can tell you from first-hand experience are extremely powerful, albeit fake.
 - I recall [a British woman telling me she'd refused to do porn](timeline/2011-to-2020/2013.md#the-british-woman-who-refused-to-do-porn) with her *much-younger-Spanish-boyfriend* and that he'd become enraged.
