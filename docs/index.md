@@ -355,7 +355,7 @@ I continue to walk with God.
 
 ### What happens to those who complain
 
-- I believe Lorraine Blackbourn stumbled across something the gangs were doing that she literally couldn't live with (and you could take your pick here but my guess it was that the whole town was sedating and raping her friends - maybe even her too, for added suicidal depression).
+- Lorraine Blackbourn stumbled across something the gangs along with members of her own family were doing that she literally couldn't live with (she was tricked into starring in violent horror-rape-porn that left her needing surgery).
 - I believe she tried to get help, like I did, and was totally ignored, like I was/am.
 - I believe this tipped her over the edge and she was unable to withstand the online suicide suggestions which I can tell you from first-hand experience are extremely powerful, albeit fake.
 - I recall [a British woman telling me she'd refused to do porn](timeline/2011-to-2020/2013.md#the-british-woman-who-refused-to-do-porn) with her *much-younger-Spanish-boyfriend* and that he'd become enraged.
@@ -371,7 +371,7 @@ I continue to walk with God.
 - Staying alive and well is always a strong motive.
 - Are people's children threatened?
 - My online helper - [the repentant trumpet teacher who I have forgiven](#a-friend-on-the-inside) - told me repeatedly that the gang will kidnap your kids if you go against them.
-- It seems likely that a criminal porn-enterprise with expertise in sedating, surveillance, and spy-cam tech, with members all over Europe and the UK - including Portugal as I found out on my trip to Fatima in October 2024 - would be behind the Madeline McCann kidnap.
+- It seems likely that a criminal porn-enterprise with expertise in sedating, surveillance, manipulation, and spy-cam tech, with members all over Europe and the UK - including Portugal as I found out on my trip to Fatima in October 2024 - would be behind the Madeline McCann kidnap.
 - Did they target Madeline to teach someone a lesson, like they do?
 - Tweets like this one made me wonder if they kept her alive as a bargaining chip.
 
