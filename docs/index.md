@@ -355,8 +355,8 @@ I continue to walk with God.
 
 ### What happens to those who complain
 
-- Lorraine Blackbourn stumbled across something the gangs were doing that she literally couldn't live with (she was tricked by family members on the Spanish side into starring in violent horror-rape-porn that left her needing surgery).
-- Like all the other porn evidence, it was pretty easy to find copies of this vicious crime - which eventually resulted in Lorraine's death - on the networks.
+- Lorraine Blackbourn stumbled across something the gangs were doing that she literally couldn't live with - she was tricked by male friends and family members on the Spanish side in Dénia into *starring* in violent horror-gang-rape-porn that left her needing surgery to her genitals.
+- Like the immense volume of porn evidence I refer to in this statement - especially that starring Dr. Murphy - it was pretty easy to find copies of films of this egregiously violent sex crime that was broadcast on multiple porn networks; a crime which eventually resulted in Lorraine's death.
 - I believe she tried to get help, like I did, and was totally ignored, like I was/am.
 - I believe this tipped her over the edge and she was unable to withstand the online suicide suggestions which I can tell you from first-hand experience are extremely powerful, albeit fake.
 - I recall [a British woman telling me she'd refused to do porn](timeline/2011-to-2020/2013.md#the-british-woman-who-refused-to-do-porn) with her *much-younger-Spanish-boyfriend* and that he'd become enraged.
