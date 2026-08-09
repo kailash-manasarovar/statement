@@ -92,6 +92,11 @@ function googleTranslateElementInit() {
 - A man dressed in traditional Islamic gear - plus trainers and a coat - comes in asking all the staff if they're Indian.
 - I hurry off.
 
+## Did dad suggest to Robert they tell me everything...
+
+- Is that why my brother was shouting very loudly that he was going to shoot himself in the garden?
+- The male ego having infinitely more value than a female human life.
+
 ## My Gmail account is shutdown permanently
 
 - The minute I'm back in North London, my `katharinejchardwood` gmail account is inexplicably unreachable.
