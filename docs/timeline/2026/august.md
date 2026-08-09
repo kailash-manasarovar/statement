@@ -42,7 +42,9 @@ function googleTranslateElementInit() {
 
 ## Put out the fire chief
 
-<iframe width="504" height="378" src="../../content/vids/put-out-the-fire-will-you.mp4" title="Put out the fire chief" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<video controls>
+    <source src="/content/vids/put-out-the-fire-will-you.mp4" type="video/mp4">
+</video>
 
 - Quint is fight.
 - Matt Hooper is flight.
