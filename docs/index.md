@@ -353,6 +353,8 @@ I continue to walk with God.
 
 <!-- Wouldn't it be just horrific if all this was true (it is) and God had abandoned us to it. Well, that's an impossibility but we could if we were totally insane choose to ignore Him. Why aren't we focused on releasing a fix for the hypno-tech globally again... oh wait. That's the goal. Thank you Father for your tender care and our renewed sanity. -->
 
+- My view is send the army in, asap.
+
 ### What happens to those who complain
 
 - Lorraine Blackbourn stumbled across something the gangs were doing that she literally couldn't live with - she was tricked by male friends and family members on the Spanish side in Dénia into *starring* in violent horror-gang-rape-porn that left her needing surgery to her genitals.
