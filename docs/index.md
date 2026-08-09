@@ -366,7 +366,8 @@ I continue to walk with God.
 - Then there was unusually irascible Maria, living alone, her liver swollen to three times its size; all her doctors and even the hospital in Valencia telling her it was nothing!
 - I remember seeing crippled locals; a youngish man working in a tobacconist, someone I had known not so long before as fit and healthy.
 - Is this what happens to the good people of Dénia? 
-- Are they prisoners in their own homes or forced to get involved against their will?
+- Are some of the people who laughed at me in the street or at the conservatory laughing with joy, with hopefulness after all this time?
+- Are the people of Dénia prisoners in their own homes or forced to get involved against their will?
 - Will they be killed or maimed if they complain, countless examples available?
 - How many have refused to do porn, or tried to stop some evil, and ended up crippled by pesticides or murdered?
 - How many parents have lost their daughters to the porn-gangs?
