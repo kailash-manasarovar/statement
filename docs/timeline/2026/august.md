@@ -39,3 +39,13 @@ function googleTranslateElementInit() {
 - Could 95% of all the porn in circulation be of sedated-victims?
 
 ![Hanuman-Narasimha](../../content/images/hanuman-narasimha.jpg)
+
+## Put out the fire chief
+
+<div style="position: relative; width: 100%; padding-bottom: 56.25%;">
+<iframe
+style="position:absolute; width:100%; height:100%;"
+src="https://getyarn.io/yarn-clip/24e0128a-49b1-4621-be4b-127e10cca728/embed?autoplay=false&responsive=true"
+frameborder="0"
+></iframe>
+</div>
