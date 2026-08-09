@@ -351,7 +351,7 @@ I continue to walk with God.
 
 ![The Dénia Doomsday Manipulation-Machine](content/images/denia-doomsday-machine.png)
 
-<!-- Wouldn't it be just horrific if all this was true (it is) and God had abandoned us to it. Well, that's an impossibility but we could if we were totally insane choose to ignore Him. Thank you Father for your tender care and our renewed sanity. -->
+<!-- Wouldn't it be just horrific if all this was true (it is) and God had abandoned us to it. Well, that's an impossibility but we could if we were totally insane choose to ignore Him. Why aren't we focused on releasing a fix for the hypno-tech globally again... oh wait. That's the goal. Thank you Father for your tender care and our renewed sanity. -->
 
 ### What happens to those who complain
 
