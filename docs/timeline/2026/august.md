@@ -42,10 +42,11 @@ function googleTranslateElementInit() {
 
 ## Put out the fire chief
 
-<div style="position: relative; width: 100%; padding-bottom: 56.25%;">
-<iframe
-style="position:absolute; width:100%; height:100%;"
-src="https://getyarn.io/yarn-clip/24e0128a-49b1-4621-be4b-127e10cca728/embed?autoplay=false&responsive=true"
-frameborder="0"
-></iframe>
-</div>
+<video controls>
+  <source src="https://getyarn.io/yarn-clip/24e0128a-49b1-4621-be4b-127e10cca728/embed?autoplay=false&responsive=true" type="video/mp4">
+</video>
+
+- Quint is fight.
+- Matt Hooper is flight.
+- Chief Brody is freeze.
+- However, Chief Brody works his way back up through flight and fight to save the day.
