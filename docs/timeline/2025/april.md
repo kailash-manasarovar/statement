@@ -207,6 +207,7 @@ function googleTranslateElementInit() {
 
 ![Cambridge ugly](../../content/images/cambridge-ugly.jpg)
 
+- Don't forget our shared [*ugly*](../2024/august.md#ugly) meme.
 - These posts are now (August 2026) unsearchable on the `@1frgvn` timeline.
 - Why do we see so much criminal gang activity on X, and elsewhere, posing as friendly to the women's rights movement?
 - Is it an apocalyptic move from the porn-gangs to ensure no-one gets wind of what they've really been up to for nearly half a century, and how bad it has gotten?
