@@ -355,6 +355,8 @@ I continue to walk with God.
 <!-- Wouldn't it be just horrific if all this was true (it is) and God had abandoned us to it. Well, that's an impossibility but we could if we were totally insane choose to ignore Him. Why aren't we focused on releasing a fix for the hypno-tech globally again... oh wait. That's the goal. Thank you Father for your tender care and our renewed sanity. -->
 
 - My view is send the army in, asap.
+- Again, my view is that once everyone feels safe, the mass, country-wide corroboration can begin.
+- It's all about safety.
 
 ### What happens to those who complain
 
