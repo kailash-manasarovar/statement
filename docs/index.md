@@ -327,7 +327,7 @@ I continue to walk with God.
 - And, thus, the manipulation-tech became a doomsday machine, tricking men into paying to see more and more deprivation, more rape, more murder and injury, younger and younger victims, old women in nappies, pregnant women and babies, there's no end to the depravity of the porn-addict and his relentless search for the next worst thing.
 - To supply the demand, the criminals moved into schools; indeed anywhere that women, children, the vulnerable, and babies are available for grooming, drugging, sedating, and filming.
 - The fact that no-one cares about these very obvious mass-crimes against the innocent is nearly inconceivable to me.
-- My understanding is that the people of Dénia became so insane, they even broadcast sedated-rape events on the local TV channel, [Dénia TV](timeline/2001-to-2010/2008.md#denia-tv), and have been since at least 2007, and this is why everyone knows who the victims are.
+- My understanding is that the people of Dénia became so insane, they even broadcast sedated-rape events on the local TV channel, [Dénia TV](timeline/2001-to-2010/2008.md#denia-tv), and have been since at least 2007 (2007 is a watershed moment it seems...), and this is why everyone knows who the victims are.
 - My guess is there are thousands of victims, many murdered for *snuff* porn.
 - This statement publishes the photos of a small portion of these women.
 - And working alongside the horror-porn-enterprise, you have people like Hazel and Sandra Smith, known British serial killers, operating freely amongst hundreds of their default target-types: British ex-pat pensioners with money and property.
