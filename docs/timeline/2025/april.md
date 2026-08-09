@@ -167,9 +167,11 @@ function googleTranslateElementInit() {
 ## Shoe Zone Harlow, Essex
 
 - I take my dad to a rehearsal near Harlow in Essex for the afternoon.
-- I go off and do some shopping.
+- The man who's house they're rehearsing in is extraordinarily pervy towards me. It's so weird.
+- What did dad tell him about me?
+- I leave him and do some shopping.
 - It's Tuesday 15th April.
-- I buy some shoes at Shoe Zone in the Harvey Centre.
+- I buy some shoes at Shoe Zone in the Harvey Centre in Harlow.
 - As I'm leaving the shop to head back outside via the theatre square, two very rough looking blond women, one older one younger, do the *bump-into-and-distract* thing exactly like I see [the woman I recognize do to the waitress in Lourdes](../2025/july.md#lourdes) in July.
 - I'm walking in the direction I show on the map towards the exit.
 - They are standing together and they are not in my way initially.
