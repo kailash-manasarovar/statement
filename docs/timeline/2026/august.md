@@ -46,5 +46,5 @@ function googleTranslateElementInit() {
 
 - Quint is fight.
 - Matt Hooper is flight.
-- Chief Brody is freeze.
-- However, Chief Brody works his way back up through flight and fight to save the day.
+- Chief Brody is freeze, initially, then he works his way back up through flight and fight to destroy the shark and save the day.
+- A little bit like us.
