@@ -81,6 +81,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - It is even more disturbing to me that most of the town of Dénia and beyond, including many children, and even some of my tech-colleagues at work, knew what was going on; and thought it was something to laugh and jeer about.
 - But the most appalling truth about the *switcheroo* porn being created by the teachers and staff at a Spanish public school, full of hundreds of children of all ages, was that everyone who *did* know what was going on would have been wholly expecting my death or severe maiming as the inevitable end result for me and multiple other victims like me.
 - And they didn't care.
+- Is this what we should expect to happen everywhere in the world as normal men hopelessly deteriorate through porn consumption?
 
 ### The older, slimmer, shorter, greyer man - the angel
 
