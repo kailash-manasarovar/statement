@@ -119,8 +119,9 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - I thought the tears were when he changed his mind about his grim purpose but now I believe it was much earlier than that.
 - Since then he has been helping me, mostly without my conscious awareness, and more recently with more direct communication online and by drip feeding me information about murder victims and switcheroo rape-gang identities.
 - Interestingly, the gangs were never able to effect their switcheroo-scam on me fully because "feeling/felt sense" is the way I understand the world, and so I never mistook any of the brutes for anything else but brutes.
-- I believe now that God spoke through me - the way He has been doing - directly to this man, and he listened. 
-- Perhaps there were even Instructions; I'm unaware of all this currently <3
+- But since probably around March 2023, there was something other than brute in my experiences; something very tender, very difficult to describe or comprehend, something very loving and perfect, and I believe this is what cured me completely of depression.
+- I believe today that God spoke through me directly to this man through my books, and my notes, and my ideas, and he listened. 
+- Perhaps there were even Instructions.
 
 ### Seven devils
 
