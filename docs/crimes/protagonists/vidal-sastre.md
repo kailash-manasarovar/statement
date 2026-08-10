@@ -40,7 +40,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - Back at my sedated-rape spy-cam apartment, they may have put masks on or somehow hid their appearance... but perhaps not even then.
 - They've already been seen in public, unmasked, with a semi-conscious drugged victim, so why bother hiding later on?
 - Their intention was that I would be semi-conscious at home too - consciously consenting as it were - but that didn't work out for them.
-- Nevertheless, they've done this to so many women, the criminals must be visible in other switcheroo porn specials with other victims at school classes, or work events, or in their homes.
+- Nevertheless, they've done this to so many women, the criminals must be visible in other switcheroo porn specials with other victims in school classrooms, or at work events, or in their homes.
 - Clearly, these men are above and beyond the law so maybe they've been boldly showing themselves without fear of reprisals for decades; the heroes and legends of porn!
 - They'll be easy to jail, therefore.
 
