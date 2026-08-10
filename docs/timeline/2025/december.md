@@ -34,7 +34,7 @@ function googleTranslateElementInit() {
 
 ![jctot19 swimmer](../../content/images/jctot-swimmer.jpg)
 
-- He would match most closely the build of [Marc, number two trumpet teacher](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013), the man who turned up to chamber music class at the conservatory the most.
+- He would match most closely the build of [Marc, number two trumpet teacher](../../crimes/protagonists/vidal-sastre.md#1-mark-from-english-class-in-2013), the man who turned up to chamber music class at the conservatory the most.
 - He is wearing a face paint mask.
 - The top-half of his face is painted with demonish black and white, vertical thin white stripes coming down his from the top of his head. 
 - He is screaming and shouting and shaking his head around in a most bizarre manner.

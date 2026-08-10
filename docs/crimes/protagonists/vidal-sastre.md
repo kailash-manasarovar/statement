@@ -111,10 +111,11 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 !!! tip "An intuitive's vision for a few years now"
     - The thing about this man is that I see him walking up a street in the dark under streetlights with a small bundle under his arm.
     - I've been seeing this for years now, it's one of those persistent visions.
-- Another man reminded me of [a student from my English class in 2013](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn) who may have been called Mark.
+
+- He was also [the student from my English class in 2013](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn) who was calling himself Mark.
 - There'll be an official register somewhere.
 - He was someone I had [found attractive when I met him in 2013](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn) when I worked for Lorraine Blackbourn.
-- It's possible this man is related to Lorraine Blackbourn's ex-husband and indeed was of the same size and shape, and facial features.
+- It's possible this man is related to Lorraine Blackbourn's ex-husband, a cousin maybe; they were indeed the same size and shape, and facial features.
 - He was the man I saw most often at the conservatory, and I was always anxious around him.
 - I remember seeing this man numerous times, including but not limited to the following examples:
 
@@ -128,7 +129,6 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 - I don't have a picture of this man but would recognize him immediately.
 - Tall, muscular, always dressed in black.
-- He may be the same man as the one I'm calling [the younger brother](#1-mark-from-english-class-in-2013) but I don't think so actually. This man was better looking.
 
 #### 2. The brother of the Mercadona check out woman
 

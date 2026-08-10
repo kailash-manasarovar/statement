@@ -104,7 +104,7 @@ function googleTranslateElementInit() {
 
 ![Chamber music concert](../../content/images/chamber-music-concert.png)
 
-- The trumpet teacher who says this is [Mark from English class in 2014](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013).
+- The trumpet teacher who says this is [Mark from English class in 2014](../../crimes/protagonists/vidal-sastre.md#1-mark-from-english-class-in-2013).
 - Later, the [third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno) enters again without me noticing.
 - Carmen Lopez Cano, Domingo's sister, a tiny blond woman, was playing the role of Pablo's "mum" in the audience and she was the only other adult person in the room apart from the "teachers".
 - She brought a small child with her.
@@ -113,7 +113,7 @@ function googleTranslateElementInit() {
 - He was someone I had seen around but don't know his name. He was at [the filming demo the year before](../2022/may.md#asked-to-be-a-demo-at-the-conservatory) along with the teacher who ended up committing suicide earlier in 2023.
 - I reach the door, and I hear a man's voice say "Katharine".
 - I turn around and catch the trumpet teacher's eyes.
-- The trumpet teachers have swapped again, this is [Mark again](../../crimes/protagonists/vidal-sastre.md#mark-from-english-class-in-2013).
+- The trumpet teachers have swapped again, this is [Mark again](../../crimes/protagonists/vidal-sastre.md#1-mark-from-english-class-in-2013).
 - At the time I don't notice anything because they have successfully merged at least four men into one person in my perception with their gypsy animal training techniques alongside sedated sexual assaults, online manipulation, and drugging and poisoning that causes brain damage. 
 - As I think back, it's possible that [more of the team](../../crimes/protagonists/vidal-sastre.md#eight-distinct-men-posing-as-trumpet-teacher) turned up that afternoon and swapped a few times during this concert.
 
