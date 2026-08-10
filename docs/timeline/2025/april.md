@@ -187,7 +187,7 @@ function googleTranslateElementInit() {
 - They both look angry and upset - the porn-gang helper look.
 - I don't realize the significance of it at the time but I'm sure they did it on purpose.
 - It's obvious everyone knows where I am and what I'm doing minute-by-minute from my hacked phone, and they need to keep me topped up on whatever it is I'm ingesting which is causing me confusion and a high state of mind.
-- Is this why it took me so long to remember the [most obvious switcheroo men](../../crimes/protagonists/vidal-sastre.md#six-distinct-men)?
+- Is this why it took me so long to remember the [most obvious switcheroo men](../../crimes/protagonists/vidal-sastre.md#eight-distinct-men-posing-as-trumpet-teacher)?
 - Or, was this another murder attempt I survived?
 - If not murder, why would these women in particular be so interested in ensuring I *don't* remember there were at least six men posing as trumpet teacher at the music school?
 - What's it got to do with women in Essex?

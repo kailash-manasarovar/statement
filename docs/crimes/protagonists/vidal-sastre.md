@@ -8,11 +8,11 @@ function googleTranslateElementInit() {
 }
 </script>
 
-The pages in this section list the main players in the violent three-year attack on my physical, emotional, sexual, and psychological wellbeing. 
+The pages in this section list the main players in the violent three-year attack on my physical, emotional, sexual, psychological wellbeing, and eventually life. 
 
 It includes teachers and staff from the conservatory of Dénia, known criminals, and others.
 
-The people involved were seasoned professionals in the gang-stalking game, and sexual grooming online and in person. Therefore, the chances of me being the only victim is *zero*. 
+The people involved were seasoned professionals in spy-cam technology, sedated-rape, clandestine poisoning and drugging, gang-stalking and sexual grooming online and in person. Therefore, the chances of me being the only victim is *zero*. 
 
 The chances of me being the oldest victim, at least in the conservatory system, is high.
 
@@ -21,41 +21,42 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - The *main* porn genre created throughout November 2022 to June 2023 in person with the support of teachers and staff at the conservatory, and then beyond at my apartment and while attending [a work function in Bali](../../timeline/2024/may.md#bali) is called *switcheroo*.
 - Vidal Sastre Sanchez Hornero was the name the trumpet-teacher(s) team used.
 - From research, I understand that "switcheroo-porn" commonly means a blindfolded target for multiple men.
-- In my case, the blindfold was decades of poisoning to give me a stroke-like symptom whereby I cannot recognize objects including people out of context, and continuous drugging and poisoning which made my vision extremely blurred.
-- Intricately choreographed scenarios at the conservatory, in which multiple men would literally switch to play the role of the one trumpet teacher with this name, were then acted out with me completely ignorant of what was actually happening at the music school.
+- In my case, the "blindfold" for conservatory classes was decades of poisoning to give me a stroke-like symptom whereby I cannot recognize objects including people out of context, and continuous drugging and poisoning which made my mind confused and my vision extremely blurred.
+- In Bali with work, the blindfold was sedation.
+- Intricately choreographed scenarios at the conservatory, in which [multiple men would literally switch to play the role of the one trumpet teacher with this name](#at-least-six), were acted out with me completely ignorant of what was actually happening at the music school.
 - I believe the conservatory music-school is wired up with spy-cams that livestream onto porn networks and the switcheroo-porn filmed in class proves it.
 
 ##### What switcheroo-porn really requires
 
-- Interestingly, if criminal porn-production companies get a victim to a state of brain-damage whereby she's ready to star in some sort of switcheroo-porn special, then the men involved *must* be viewable by the porn audience.
-- If not, there's no switcheroo!
-- Of course, the men have to visibly switcheroo in public, with face-and-body very visible, as the porn-special was filmed in classes at the conservatory and the men involved were pretending to be "teachers".
+- Interestingly, if criminal porn-production companies spend time and money to get a victim to a state of brain-damage whereby she's ready to star in some sort of switcheroo-porn special, then the men involved *must* be viewable by the porn audience.
+- If not, there's no switcheroo! Right?
+- Of course, the men have to visibly switcheroo in public, with face-and-body very visible - on camera and amongst the other teachers, staff, and children at the conservatory - as the porn-special was filmed in classes and the men involved were pretending to be "teachers".
 - So they had to be fully seen.
-- Back at the sedated-rape spy-cam apartment, they may put masks on or somehow hide their appearance... but perhaps not.
+- Back at my sedated-rape spy-cam apartment, they may have put masks on or somehow hid their appearance... but perhaps not.
 - They've already been seen very clearly at the switcheroo stage in public, unmasked, with a semi-conscious drugged victim, so why bother hiding later on?
+- Their intention was that I would be semi-conscious at home too, consciously consenting as it were, but that didn't work out for them.
+- Nevertheless, they've done this to so many women, they must be visible in other switcheroo porn specials with other victims, at classes and at their homes too.
 - Clearly, these men are above and beyond the law so maybe they boldly show themselves without fear of reprisals - what heroes, legends!
-- Required above and beyond anything else is the certainty that the victim will not survive to tell the tale, and we can only guess at how many women and children have been murdered by the gangs over many decades for this requirement.
 
 ##### Switcheroo is the preliminary to the horse-porn
 
-- I only realized today.
-- So, first, we know exactly who produces the very famous horse porn they've been producing over there for decades that nearly every British police officer has seen a thousand times, and giggled each time; as if the drugged, brain-damaged, and soon to be murdered humans starring in it don't exist.
+- So, first, we now know verifiably exactly who makes the very famous horse porn they've been producing for decades that nearly every British police officer has seen a thousand times, and giggled each time; as if the drugged, brain-damaged, and soon to be murdered humans starring in it don't exist.
+- Victims start off starring in something else, of course; switcheroo brain-damage being just a first step towards the horse porn.
 - Once the in-person spy-cam switcheroo-fests are over, if you have a viable business/trade which will bring more porn-fodder to the region, they'll let you live (Natalia).
 - If you have any money, they'll relieve you of it, while training for the horse-porn begins.
 - (My guess is even poverty won't save you over there.)
-- Training consists in ramping up the drug and poisoning doses plus the usual manipulation, in-person and online, and simply add a new member to the switcheroo group which happens to be a horse.
+- Training consists in ramping up the drug and poisoning doses plus the usual manipulation, in-person and online, and they simply add a new member to the switcheroo group which happens to be a horse.
 - They commonly set this training session up, I was told, at a car window at night.
 - The target is in the passenger seat of the car with another person driving.
 - The driver is not part of the main-man (trumpet-teacher) group and could be anyone from the town the target might reasonably be in the car with.
 - The car is parked somewhere rural.
 - A horse is cued to pop his head close to the driver's open window and, at the same time, the main man speaks.
-- A scripted vignette is already in place - part of the violence training no doubt, as we are that far along now and there will be regular filmed and always worsening sexual violence happening to the target - that causes her (I believe it is always a her for the horse porn, correct me if I'm wrong) to turn away from the horse in fear so as to not look at it closely or for too long.
+- A scripted vignette is already in place - part of the violence training no doubt, as we are that far along now and there will be regular filmed and always worsening sexual violence happening to the target - that causes her (I believe it is always a her for the horse porn, correct me if I'm wrong) to turn away from the horse in fear so as to not look at it closely or for too long - to only be able to look at it in glances, just like the training went with the other trumpet teachers (or whatever they're all pretending to be).
 - By this time, a target's brain is in an even worse state than a stroke survivor, and the neural link between the visual (horse) and the audio (main-man) voice is patterned.
-- The target is then repeatedly drugged and trained again and again to believe the horse is main man, until the main event.
-- There is no doubt this was the end goal for me and I wonder if my dad knew, and I wonder less and less about this as the days go on.
-- My guess is all the regular porn-addicts knew, including him, and were following my journey, avidly...
+- The target is then repeatedly drugged and trained again and again to believe the horse is main man, until the grand finale taking place in a muddy field with a short wall around it and wire fence up in the campo, and many of the men in the region are invited to the show which is filmed and then distributed around the world by North London's finest.
+- There is no doubt this was the end goal for me and I do wonder if my dad and brother knew that; I wonder less and less about this as the days go on.
 
-### Six distinct men 
+### Eight distinct men posing as trumpet teacher
 
 #### At least six
 
