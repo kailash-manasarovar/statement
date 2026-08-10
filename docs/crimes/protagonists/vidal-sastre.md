@@ -101,13 +101,13 @@ The chances of me being one of the eldest victims in the conservatory system (th
     - There was another time I saw him in class for a few seconds at the end of class - he'd switched at the last moment - and I was delighted to see him again and I smiled and he ignored me, looking sad and downwards, as I said goodbye and left for the evening. Did the gangs stop his involvement with the scam because of the tears? Was this a goodbye?
     - Later, when I foiled the gangs and they started to panic, and the attraction-trick had stopped working so well because of his absence, I guess, they [wheeled him out again](../../timeline/2023/december.md#the-trumpet-teacher-has-a-brother) so I could be re-triggered, and I thought it was the trumpet teacher's twin brother!
 
-- This is the man I was convinced I loved and who loved me back. Truth be known, I still feel this way although the confusion about what happened has been intense, for years, and I have had to lock down my emotions and feelings at times to save myself from not knowing the truth. 
+- This is the man I was convinced I loved and who loved me back. Truth be known, I still feel this way although the confusion about what happened has been intense, for years, and I have had to lock down my emotions and feelings at times to save myself from the excruciating pain of not knowing the truth. 
 
     ![The real trumpet teacher](../../content/images/hornero/hh1.png)
 
 - This is an old picture, the man is about 10 years older now.
-- Does the likeness between him and [Mark, the next of the trumpet teacher's I mention,](#1-mark-from-english-class-in-2013), mean they are related? Or am I still confusing form.
-- My belief is that, for the switcheroo trick to work properly, there has to be a genuine attraction to one of the men, in the same way a woman is tricked into prostitution by a pimp who she "loves".
+- Does the likeness between him and [Mark, the next of the trumpet teacher's I mention](#1-mark-from-english-class-in-2013), mean they are related? Or am I still confusing form.
+- My belief is that, for the switcheroo scam to work effectively, there has to be a genuine attraction to one of the men; in the same way a woman is tricked into prostitution by a pimp who she "loves".
 - I believe this man is [Daniel who attended Elke's workshop in 2013](../../timeline/2011-to-2020/2013.md#daniel) and I believe he was given the role of sedated-victim's "caretaker" over the years 2013-2016 while I was being sedated and raped in my homes, and it's possible something inexplicable and miraculous happened between us at that time of which I have no conscious awareness.
 - Certainly I was planning a new novel, *Grunt Work*, where the protagonist, a woman, falls in love with a caretaker and I wrote a lot of notes about it online.
 - Perhaps the caretaker role is kind and gentle, and undresses and dresses a sedated victim and cleans her up and puts her to bed safely after being sexually brutalized.
@@ -115,9 +115,10 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - Perhaps only one man can do this effectively over long periods because switching this role would cause excessive anxiety in a target.
 - I believe this man made me feel safe - albeit unconsciously - in an extremely unsafe environment and that this had unusual repercussions no-one was expecting.
 - I suspect after many hundreds if not thousands of years of switcheroo and it's concomitants on women and children, they found that without a "caretaker", as it were, the whole thing was over much sooner due to the devastating psycho-emotional effects of sexual trauma.
-- Something unexpected happened between myself and this man early on.
-- I thought the tears were when he changed his mind about his grim purpose but now I believe it was much earlier than that.
-- Since then he has been helping me, mostly without my conscious awareness, and more recently with more direct communication online and by drip feeding me information about murder victims and switcheroo rape-gang identities.
+- Yet something unexpected happened between myself and this man early on.
+- I thought the tears were when he changed his mind about his grim purpose, but now I believe it was much earlier than that.
+- Perhaps such a change of mind leaves men sane and desperate to escape porn-hell.
+- Since he changed his mind, whenever that was, he has been helping me silently - mostly without my conscious awareness but more recently with more direct communication online and by drip feeding me information about murder victims and switcheroo rape-gang identities.
 - Interestingly, the gangs were never able to effect their switcheroo-scam on me fully because "feeling/felt sense" is the way I understand the world, and so I never mistook any of the brutes for anything else but brutes.
 - But since probably around March 2023, there was something other than brute in my experiences; something very tender, very difficult to describe or comprehend, something very loving and perfect, and I believe this is what cured me completely of depression.
 - I believe today that God spoke through me directly to this man; through my books, and my notes, and my ideas, and maybe even through my online rants, and he listened. 
