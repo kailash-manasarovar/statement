@@ -115,6 +115,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - Perhaps only one man can do this effectively over long periods because switching this role would cause excessive anxiety in a target.
 - I believe this man made me feel safe - albeit unconsciously - in an extremely unsafe environment and that this had unusual repercussions no-one was expecting.
 - Did I reach for his hand and hold it?
+- Did they pick him for switcheroo main-man because of the tenderness between 2013-2016?
 - I suspect after many hundreds if not thousands of years of switcheroo and it's concomitants on women and children, they found that without a "caretaker", as it were, the whole thing was over much sooner due to the devastating psycho-emotional effects of sexual trauma.
 - Yet something unexpected happened between myself and this man early on.
 - I thought the tears were when he changed his mind about his grim purpose, but now I believe it was much earlier than that.
