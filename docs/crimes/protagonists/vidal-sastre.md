@@ -90,9 +90,10 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - This is the man the porn-gangs used to make me believe I was in love and that I was loved back; the instigator of the *main man* psychological meme, an essential part of the switcheroo scam.
 - Is this a sexual trick while sedated, making a vulnerable person feel loved through sex, the same thing they do to trick women into prostitution?
 - It's unclear to me except, I don't think I could be tricked like this, so intensely, for so long.
+- Certainly the gangs must have thought the trick had worked or they wouldn't have bothered putting so much effort into trying to [get me into bed with the mountain guide](../../timeline/2023/august.md#climbing-the-viscos); a failure which proves, in my mind, the scam hadn't really worked.
 - It's possible I'm wrong about this being a trick and instead we genuinely love each other, or perhaps what was supposed to be, and looked like *trick* became something real.
 - My body felt safe with this man and my body is rarely wrong about visceral safety.
-- The scam meant that visually I thought seven other men were this man, confusing form endlessly, but my body never felt safe with anyone else but this man so I was able to distinguish who was unsafe without objective consciousness and act accordingly.
+- The scam meant that visually I thought seven other men were this man, confusing form endlessly, but my body never felt safe with anyone else but this man so I was able to distinguish who was unsafe or irrelevant without objective consciousness, and act accordingly.
 - I only have four solid memories of this man during the switcheroo scam events:
 
     - The time we sat together in class and [I believed he was fundamentally on my side and conspiring with me against Domingo](../../timeline/2023/february.md#plot-awareness). My words on that evening upset him; he understood what I was doing and I could tell that the way I rewrote the nature of the conspiracy felt right to him (could he have already been conspiring with me without me being aware of it, did I pick up on his truth at that moment?).
@@ -109,7 +110,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - Does the likeness between him and [Mark, the next of the trumpet teacher's I mention](#1-mark-from-english-class-in-2013), mean they are related? Or am I still confusing form.
 - My belief is that, for the switcheroo scam to work effectively, there has to be a genuine attraction to one of the men; in the same way a woman is tricked into prostitution by a pimp who she "loves".
 - I believe this man is [Daniel who attended Elke's workshop in 2013](../../timeline/2011-to-2020/2013.md#daniel) and I believe he was given the role of sedated-victim's "caretaker" over the years 2013-2016 while I was being sedated and raped in my homes, and it's possible something inexplicable and miraculous happened between us at that time of which I have no conscious awareness.
-- Certainly I was planning a new novel, *Grunt Work*, where the protagonist, a woman, falls in love with a caretaker and I wrote a lot of notes about it online.
+- Certainly I was planning a new novel, *Grunt Work*, where the protagonist, a woman, falls in love with a ridiculously smart caretaker and I wrote a lot of notes about it online.
 - Perhaps the caretaker role is kind and gentle, and undresses and dresses a sedated victim and cleans her up and puts her to bed safely after being sexually brutalized.
 - Perhaps he sits with her or guides her around if she has to walk.
 - Perhaps only one man can do this effectively over long periods because switching this role would cause excessive anxiety in a target.
