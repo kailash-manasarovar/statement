@@ -96,7 +96,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - I only have four solid memories of this man during the switcheroo scam events:
 
     - The time we sat together in class and [I believed he was fundamentally on my side and conspiring with me against Domingo](../../timeline/2023/february.md#plot-awareness). My words on that evening upset him; he understood what I was doing and I could tell that the way I rewrote the nature of the conspiracy felt right to him (could he have already been conspiring with me without me being aware of it, did I pick up on his truth at that moment?).
-    - He looked over at me, saw something, and had to leave the room. I wonder what he saw.
+    - He looked over at me, saw something, and had to leave the room. I wonder what he saw. I was wondering if it was Jesus.
     - The time not long after, maybe that night, when I remembered waking up in my bed at home and he was [sobbing uncontrollably in my arms](../../timeline/2023/march.md#dreaming-of-the-trumpet-teacher).
     - There was another time I saw him in class for a few seconds at the end of class - he'd switched at the last moment - and I was delighted to see him again and I smiled and he ignored me, looking sad and downwards, as I said goodbye and left for the evening. Did the gangs stop his involvement with the scam because of the tears? Was this a goodbye?
     - Later, when I foiled the gangs and they started to panic, and the attraction-trick had stopped working so well because of his absence, I guess, they [wheeled him out again](../../timeline/2023/december.md#the-trumpet-teacher-has-a-brother) so I could be re-triggered, and I thought it was the trumpet teacher's twin brother!
@@ -114,6 +114,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - Perhaps he sits with her or guides her around if she has to walk.
 - Perhaps only one man can do this effectively over long periods because switching this role would cause excessive anxiety in a target.
 - I believe this man made me feel safe - albeit unconsciously - in an extremely unsafe environment and that this had unusual repercussions no-one was expecting.
+- Did I reach for his hand and hold it?
 - I suspect after many hundreds if not thousands of years of switcheroo and it's concomitants on women and children, they found that without a "caretaker", as it were, the whole thing was over much sooner due to the devastating psycho-emotional effects of sexual trauma.
 - Yet something unexpected happened between myself and this man early on.
 - I thought the tears were when he changed his mind about his grim purpose, but now I believe it was much earlier than that.
