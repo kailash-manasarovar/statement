@@ -1386,7 +1386,7 @@ function googleTranslateElementInit() {
 - These posts were used to *drag me back into the lie*, as it were, even when it was obvious to me that I was in grave danger.
 - The account, named **Taru Ann**, meaning *Legend Ann* in Finnish, seems completely legitimate. 
 It has masses of followers and appears to be well-known in the online gender-critical community. 
-- The collocations *legend Ann* and *January myth* together are significant and suggestive of the evening the [good-looking trumpet teacher](../../../crimes/protagonists/vidal-sastre.md#the-younger-brother-of-the-first-man) [first turned up for class](../../2022/november.md#the-trumpet-teacher) just as I was drugged, and he and Ana Requena did their little act together outside the toilet, thus creating the love-triangle myth.
+- The collocations *legend Ann* and *January myth* together are significant and suggestive of the evening the [good-looking trumpet teacher](../../../crimes/protagonists/vidal-sastre.md#1-mark-from-english-class-in-2013) [first turned up for class](../../2022/november.md#the-trumpet-teacher) just as I was drugged, and he and Ana Requena did their little act together outside the toilet, thus creating the love-triangle myth.
 - "Legend Ann" seems to be a direct and sly reference to honey-trap situations involving Ana Requena; violin teacher from the conservatory implicated in numerous honey-traps such as Natalia, Julia Lohmann, etc.
 - Is Ana Requena a known *legend* in the honey-trap world?
 - I found the pictures she posted very *fake-account* in style and content; grainy and twee interior scenes. 

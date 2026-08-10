@@ -207,8 +207,8 @@ function googleTranslateElementInit() {
 - I look up *beams* in Spanish.
 - It is "Vigas". 
 - I become convinced that this is the trumpet teacher's nickname because he has big legs.
-- At least, three of the set of trumpet teachers have big legs; not the [first man](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man), although they might be thickish they're not big and muscular like the [fourth muscle man](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man), or like the other two (or three) who were tall men.
-- Certainly the [fourth man](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man), the man that [interviewed me online with perfect English in 2016](../2011-to-2020/2016.md#march) was pumping iron.
+- At least, three of the set of trumpet teachers have big legs; not the [first man](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel), although they might be thickish they're not big and muscular like the [fourth muscle man](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man), or like the other two (or three) who were tall men.
+- Certainly the [fourth man](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man), the man that [interviewed me online with perfect English in 2016](../2011-to-2020/2016.md#march) was pumping iron.
 - Could this indeed be that guy's nickname? I bet it is.
 - There are sinister references from this account too, suggestions of violence.
 - Another post talks about just having had *coffee and pork crusts*.
@@ -291,7 +291,7 @@ function googleTranslateElementInit() {
     - It seemed preposterous to me.
     - More likely, I felt, they were referring to my child sexual abuse experience of grooming and trafficking that they had known about ever since I [reported it to the Metropolitan police](../2011-to-2020/2015.md#statement-to-the-metropolitan-police).
     - But indeed, perhaps something even more startling was going on.
-    - Did I recruit [trumpet teacher number one](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man) to save the world with me without even knowing it?
+    - Did I recruit [trumpet teacher number one](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel) to save the world with me without even knowing it?
 
 ## Madrid
 
@@ -314,10 +314,10 @@ function googleTranslateElementInit() {
 - She says I have set a precedent.
 - I wonder if it's more so that no evidence of ongoing wrong-doing will be available by any means.
 - And I wonder what they did find that prompted this?
-- I have the sensation when I'm praying the rosary in my hotel room that [the monster trumpet teacher](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) is standing with me and praying the rosary too. 
+- I have the sensation when I'm praying the rosary in my hotel room that [the monster trumpet teacher](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man) is standing with me and praying the rosary too. 
 - I cannot explain this.
 - I am extremely sexually aroused during this time. 
-- It felt like [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) was in my mind.
+- It felt like [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man) was in my mind.
 - I wasn't aware of it at the time but it's obvious to me now I was ingesting some strong mind-altering substance via my toiletries which had been accessed, as usual, by people entering my apartment at Carrer Furs without my knowledge.
 - I was out of my mind on the run up to the Bali Polygon conference, but curiously and ironically the euphoria I experienced from whatever they were dosing me up with was giving me an unusual strength and fortitude which appeared to be bolstering my willpower and my connection to God so that I began to do things I would probably wouldn't have done in any normal situation.
 
@@ -368,7 +368,7 @@ function googleTranslateElementInit() {
 - I am in Bali from 11th-19th May with work.
 - We stay at the [Grand Hyatt](https://www.hyatt.com/grand-hyatt/en-US/balgh-grand-hyatt-bali).
 - In my toiletries, accessed via criminal entry to my apartment and likely my hotel room in Madrid, and possibly even my Bali hotel room too, are mind-altering substances which cause a sense of euphoria and overwhelming sexual arousal (perhaps coupled with my hacked phone's audio playback) and which also cause a detrimental effect on vision.
-- I have recently been [porn-prepped](april.md#drugged-in-the-street-by-denia-gypsies) possibly with involvement from [the trumpet teacher I continue, without clear reason, to be in love with](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man).
+- I have recently been [porn-prepped](april.md#drugged-in-the-street-by-denia-gypsies) possibly with involvement from [the trumpet teacher I continue, without clear reason, to be in love with](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel).
 - I guess he'll be able to tell us about what happened here and how the whole porn-target mechanism works, hopefully before we get to the *Who Is This* sections of this police statement where I will post photo-after-photo of women who have fallen foul of the Dénia porn gangs over the past decades.
 - Hopefully, by that time, we will have gone very viral and we can start healing some broken hearts, and perhaps prompting some porn-addicts to choose again.
 
@@ -796,7 +796,7 @@ function googleTranslateElementInit() {
 
 - The inevitable paranoia arising from my experiences at work and then back in Dénia completely isolated after Bali where I suffered even more poisoning, drugging, and attacks, made me wonder if the book was AI generated and part of the plot.
 - For a porn-gang target, whose normal law-abiding tax-paying daily life, and every human right she ever had, has been totally stripped away, including her health, sight, and mental capacity which have been obliterated by poison and drugs, the title seems to be something a pimp or violent male might say to a woman or child while threatening their life.
-- The title read like a curious choker-seed for when my life is truly threatened after I'm caught up in the intended honey-trap relationship where they take my considerable wealth, the only thing I have left, and probably set me up with [number 3 trumpet teacher](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno), a man who has fathered countless children in the region, I'm told: all of them porn-fodder no doubt.
+- The title read like a curious choker-seed for when my life is truly threatened after I'm caught up in the intended honey-trap relationship where they take my considerable wealth, the only thing I have left, and probably set me up with [number 3 trumpet teacher](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno), a man who has fathered countless children in the region, I'm told: all of them porn-fodder no doubt.
 - I was informed the gang intended to split my stolen wealth up amongst themselves, they may have even waited to collect my family's house in North London.
 - It's what they do.
 - Anyways.

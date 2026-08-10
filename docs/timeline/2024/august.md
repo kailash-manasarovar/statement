@@ -104,7 +104,7 @@ function googleTranslateElementInit() {
 - He confirms my fears.
 - I realize that Patricia and other British women have been targeted.
 - I'm terrified for Trish's daughter and granddaughter, and realize this is why she doesn't talk to me normally, and why her son lives for long periods in his car in the UK (.. the gangs getting rid of any men who might raise the alarm).
-- It's not Vigas, the `@beams_game` account, the [fourth man I remember from the trumpet teacher gang](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) that is speaking to me about these things, the tone is completely different; genuine, caring, exhausted.
+- It's not Vigas, the `@beams_game` account, the [fourth man I remember from the trumpet teacher gang](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man) that is speaking to me about these things, the tone is completely different; genuine, caring, exhausted.
 - I screenshot some of the women; especially the ones I see again and again.
 - There is also some suggestion that the gang has been involved in targeting children online as part of the global online child-sexual-abuse pornography epidemic. 
 - After he talks to me about this a little, I see fake accounts with scared-looking children holding up plastic toys, or kitchen utensils, in their hands.
@@ -153,7 +153,7 @@ function googleTranslateElementInit() {
 ### The trumpet teacher sends me photos of himself and his family
 
 - Whoever I'm talking to starts sending me photos of himself and his family.
-- This one I believe to be of [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) and his family.
+- This one I believe to be of [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno) and his family.
 
 ![family](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
 
@@ -168,7 +168,7 @@ function googleTranslateElementInit() {
 ![family](../../content/images/fake-accounts/family/Vigas%20dad.png)
 
 - I'm really sad for him when I hear all this.
-- The photo below was sent and looks like the trumpet teacher's son; in this case [trumpet teacher number two](../../crimes/protagonists/vidal-sastre.md#at-least-four-more), the Mark version.
+- The photo below was sent and looks like the trumpet teacher's son; in this case [trumpet teacher number two](../../crimes/protagonists/vidal-sastre.md#seven-devils), the Mark version.
 
 ![family](../../content/images/fake-accounts/family/son.JPG)
 
@@ -187,7 +187,7 @@ function googleTranslateElementInit() {
 
 #### Why would they do this?
 
-- I can only assume a sick, honey-trap, violent and pornographic relationship is intended for me by Ivan, [the third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno), and the pictures ensure I will recognize the man when I eventually see him.
+- I can only assume a sick, honey-trap, violent and pornographic relationship is intended for me by Ivan, [the third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno), and the pictures ensure I will recognize the man when I eventually see him.
 - I had walked straight past him [when he attempted a personal meeting before](../2023/june.md#sunday-18th-june-alicante-airport), but I had recognized him.
 - The sight of him there made me shudder.
 - The interference with other men's pictures make everything confused online.
@@ -305,7 +305,7 @@ function googleTranslateElementInit() {
 
 ![photo shoot](../../content/images/targeted-women/innocent-lady/7.5.png)
 
-- [Trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) was in the audience that evening.
+- [Trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno) was in the audience that evening.
 
 - Finally, I see photos where the woman appears to be doing professional porn.
 
@@ -328,7 +328,7 @@ function googleTranslateElementInit() {
 - After a few weeks of this, I start to see another woman.
 - She looks young, maybe 14, and she has exactly the same facial features at the innocent woman.
 - It is her daughter.
-- Whoever the father is, looks like [number three trumpet teacher](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) and of all the men pretending to be [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) that I remember he would be the only possible father due to skin color.
+- Whoever the father is, looks like [number three trumpet teacher](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno) and of all the men pretending to be [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) that I remember he would be the only possible father due to skin color.
 - I realize that the woman was targeted over a decade ago, and they got a baby from her.
 - Here she is:
 
@@ -388,7 +388,7 @@ function googleTranslateElementInit() {
 
 ![Patricia communicating with me weirdly](../../content/images/p-and-dodgy-bloke-2.PNG)
 
-- I wonder what happened to her British husband and why she married the man that probably came out to [terrorize me at Halloween 2023](../2023/october.md#halloween); the man who could be a brother of [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) who [I actually saw in my bed](../2023/april.md#dreaming-of-the-trumpet-teacher), thinking it must have been a dream, back in those heady nights of sedated switcheroo after chamber music class at the conservatory.
+- I wonder what happened to her British husband and why she married the man that probably came out to [terrorize me at Halloween 2023](../2023/october.md#halloween); the man who could be a brother of [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man) who [I actually saw in my bed](../2023/april.md#dreaming-of-the-trumpet-teacher), thinking it must have been a dream, back in those heady nights of sedated switcheroo after chamber music class at the conservatory.
 
 ## Ugly
 
@@ -680,7 +680,7 @@ function googleTranslateElementInit() {
     - To ensure my safety in some way because these people clearly have no intention of *ever* leaving me alone.
 - Along with the letter, I send some of the pictures that I received on fake accounts that may be related.
 - I send all the [trumpet teacher photos](#the-trumpet-teacher-sends-me-photos-of-himself-and-his-family). 
-- I make sure to include a screenshot from the [YouTube video I first see online in June 2023](../2023/june.md#another-young-girls-funeral) starring [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) and a drugged target (the young flautist behind him).
+- I make sure to include a screenshot from the [YouTube video I first see online in June 2023](../2023/june.md#another-young-girls-funeral) starring [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man) and a drugged target (the young flautist behind him).
 - I send a picture of [Rocio Vidal](#6).
 - I send a copy of the first page of my [police report from March](march/13-end.md#reporting-the-crimes-to-the-police-in-madrid).
 - The conversation with the hacker continues as I do this.

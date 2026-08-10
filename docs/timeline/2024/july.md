@@ -310,7 +310,7 @@ function googleTranslateElementInit() {
 - I mention this to her; and I'm amazed and dumbfounded.
 - I had forgotten this event in the hotel in Madrid when I was praying the rosary.
 - It felt like the trumpet teacher was standing in the room with me, very close, and we were praying the rosary together.
-- This was [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man) that I remembered in September 2025 as being a completely different man from the others, but even so had been looking at a picture of him since June 2023; proof of brain damage I believe.
+- This was [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man) that I remembered in September 2025 as being a completely different man from the others, but even so had been looking at a picture of him since June 2023; proof of brain damage I believe.
 - Sandra knew about whatever had happened in Madrid that made me think he was in my room with me, or she had been primed to trigger the memory of it by someone else.
 - I had completely forgotten about it as it was so weird.
 - I'm so flabbergasted by this information when she triggers the memory of it - which is because am seriously high on whatever it is they're dosing me up on at home in Carrer Furs - I think it is meaningful, firm proof of mine and the trumpet teacher's true and divinely-blessed love!

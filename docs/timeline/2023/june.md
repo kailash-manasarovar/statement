@@ -199,7 +199,7 @@ function googleTranslateElementInit() {
 
 ![TT on Carrer Furs](../../content/images/tt-on-carrer-furs.png)
 
-- It is the [fourth man, the monster trumpet teacher, possibly called Viktor](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man).
+- It is the [fourth man, the monster trumpet teacher, possibly called Viktor](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man).
 - He sees me and takes a sharp, wheel-squealing turn into a no entry road. It's rather amusing.
 - It reminds me of the Truman Show and I feel like Truman: https://x.com/1FRGVN/status/1667925200292159490.
 
@@ -492,7 +492,7 @@ function googleTranslateElementInit() {
 !!! danger "Which trumpet teacher?"
     - I have been seeing the man in this video since June 2023.
     - To me, he was *always* the trumpet teacher who came to the conservatory to take classes.
-    - Except, he's only one of them, [number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man).
+    - Except, he's only one of them, [number four](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man).
     - His appearance is not even slightly similar to [any of the others](../../crimes/protagonists/vidal-sastre.md#eight-distinct-men-posing-as-trumpet-teacher).
     - You cannot imagine how shocked and horrified I am to learn that, until [September 2025](../2025/october.md#thunderbolt-clarity), for over two-and-a-half years, I mistook at least four very different looking men for the same one man.
     - Until January 2025, I was being regularly drugged by the gangs in Dénia in my home without my knowledge, and whenever I traveled via items I brought with me from home.
@@ -525,7 +525,7 @@ function googleTranslateElementInit() {
 
 ![Alicante arrivals hall](../../content/images/alicante.png)
 
-- In November 2025, I know that this man was the [third of the set of trumpet teachers](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) that came to the conservatory to teach.
+- In November 2025, I know that this man was the [third of the set of trumpet teachers](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno) that came to the conservatory to teach.
 - I can't believe it could be him; I'm horrified actually.
 - I pull my hat down over my eyes and rush through.
 - I forget about this, thinking I must have made a mistake because it's so weird. 
@@ -581,7 +581,7 @@ function googleTranslateElementInit() {
 - I remembered many concerning incidents at the conservatory, and with Domingo, that became more horribly meaningful after my experience at the hands of teachers and staff.
 - I also knew that if I backed down and ran away, the evil would just grow.
 - I had no idea that running away was not what they really wanted, although from my conservatory studies yes. 
-- I had no idea that [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno) *had* been waiting for me at [Alicante airport](#sunday-18th-june-alicante-airport) the night before with deeply malevolent intentions.
+- I had no idea that [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno) *had* been waiting for me at [Alicante airport](#sunday-18th-june-alicante-airport) the night before with deeply malevolent intentions.
 - It's still unclear how many teachers and staff knew about the voyeurism, poisoning, drugging, and spy-cam porn; sadly my experience, which was yet to worsen, suggests that the whole town of Dénia is aware of what's going on at the conservatory and elsewhere in the region.
 - I still think I'm dealing with a bunch of silly boys; not an international crime gang that makes billions on criminal porn genres.
 
@@ -734,7 +734,7 @@ function googleTranslateElementInit() {
 
 - Suddenly I'm seeing a lot more porn on my X timeline and google searches.
 - It feels like Domingo and his cohort are teasing me; posting things that they hope will upset me.
-- A porn video pops up on my timeline and the people in it look like the trumpet teacher ([trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man)) and Ana Requena so I look at it.
+- A porn video pops up on my timeline and the people in it look like the trumpet teacher ([trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man)) and Ana Requena so I look at it.
 - It is extremely violent.
 - He is holding her by the neck and flinging her around the kitchen.
 - It certainly wasn't Ana but the woman was of a similar build and look.

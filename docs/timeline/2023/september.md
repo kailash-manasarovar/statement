@@ -166,7 +166,7 @@ function googleTranslateElementInit() {
 
 [![You know it's God](../../content/tweets/september-23-comms/you-know-its-god.png)](https://x.com/1FRGVN/status/1698090627513143314)
 
-- This is a report on the times I saw the [fourth trumpet teacher in the Peugeot](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man). Once, on [June 11th](june.md#sunday-11th-june) and again later in the month with the [doctor at the beach](june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me).
+- This is a report on the times I saw the [fourth trumpet teacher in the Peugeot](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man). Once, on [June 11th](june.md#sunday-11th-june) and again later in the month with the [doctor at the beach](june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me).
 
 [![Bashed up 2-door Peugeot](../../content/tweets/september-23-comms/bashed-up-2-door.png)](https://x.com/1FRGVN/status/1698220957368725524)
 

@@ -82,7 +82,7 @@ function googleTranslateElementInit() {
 
 ![Carmen Cano playing the flute](../../content/images/youtube-video.png)
 
-- She was also the woman who attended the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) in May 2023, led by [the trumpet teachers I've highlighted as a brother and a local man Mark](vidal-sastre.md#at-least-four-more) and [Gloria's brother](vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno).
+- She was also the woman who attended the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) in May 2023, led by [the trumpet teachers I've highlighted as a brother and a local man Mark](vidal-sastre.md#seven-devils) and [Gloria's brother](vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno).
 - She came to the concert in the guise of Pablo's mum - the boy student who attended the class along with me.
 - On 1st November 2024, I see her leaving my apartment building with another older dark-haired lady; the woman with the monstrous voice who I often saw going [in and out of apartment number 18](../../timeline/2024/october.md#activity-in-the-nextdoor-apartment-number-18) next door after I returned to Dénia from France at the end of September 2024.
 - The older woman could even have been the woman in [the picture above sitting on the right of Domingo](#domingo-lopez-cano) from 2016.
@@ -99,7 +99,7 @@ function googleTranslateElementInit() {
 
 ![Trumpet teachers and Gloria receptionist](../../content/images/fake-accounts/ai-mix-of-trumpet-teachers-and-gloria.png)
 
-- Possibly a close relation to the [third man of the conservatory's switcheroo porn-gang](vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno); school receptionist an ideal job.
+- Possibly a close relation to the [third man of the conservatory's switcheroo porn-gang](vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno); school receptionist an ideal job.
 
 ### Ana Requena 
 

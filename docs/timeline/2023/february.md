@@ -139,7 +139,7 @@ function googleTranslateElementInit() {
 - Whatever drugs they were giving me made me extremely and unusually aware of hidden things going on, plots and subplots.
 - Of course, I knew about the plot with Domingo, and what was coming up (a 'funeral' of some sort which I really didn't care about) so my experience of the classes were tainted with this knowledge.
 - And, at the same time, I had such a good feeling for the trumpet teacher, I had only generous views of him. I felt he must be on my side.
-- In one class, the [older slimmer shorter man is present](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man), the man I still have very good feelings for.
+- In one class, the [older slimmer shorter man is present](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel), the man I still have very good feelings for.
 - I look at his hands; I'm delighted by his delicate artistic fingers.
 - The three of us - him, me and Pablo the 14-year-old boy - are sitting close together and practicing.
 - The trumpet teacher announces, gently, that we will play *My Way* for the concert.
@@ -147,7 +147,7 @@ function googleTranslateElementInit() {
 - I chuckle conspiratorially.
 - I feel like I'm in his mind and that he and I are agreeing that it is, in fact, *our conspiracy*.
 - He is visibly disturbed by this turn of events, and gets up to leave the room.
-- He comes back quickly, but he is [the younger brother trumpet teacher now](../../crimes/protagonists/vidal-sastre.md#at-least-four-more), a man who is a lot taller than the older man, and who is conscious of this and standing bent over the piano so that the difference in height is not so obvious.
+- He comes back quickly, but he is [the younger brother trumpet teacher now](../../crimes/protagonists/vidal-sastre.md#seven-devils), a man who is a lot taller than the older man, and who is conscious of this and standing bent over the piano so that the difference in height is not so obvious.
 - The new trumpet teacher, who I think is the same man, feigns anger.
 - From his position at the piano, he interrogates me about what I have said, and all the answers I give him make him even more enraged.
 - I tell him I was joking. It's rather funny. 

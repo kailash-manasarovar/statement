@@ -178,7 +178,7 @@ function googleTranslateElementInit() {
 
 [![He handed me his phone](../../content/tweets/march-2024/handing-me-his-phone.jpg)](https://x.com/1FRGVN/status/1766412512306618714)
 
-- The man who handed me his phone was [number two trumpet teacher](../../crimes/protagonists/vidal-sastre.md#at-least-four-more).
+- The man who handed me his phone was [number two trumpet teacher](../../crimes/protagonists/vidal-sastre.md#seven-devils).
 - I also believe all this because I'm out of my mind on some psychoactive substance I'm unaware is probably in my shampoo; and most likely I'm being fed constant online reinforcement of this idea.
 - I have a vision of the trumpet teacher with a large group of people; he himself rising up to be seen above the figures who surround him.
 - I'm reminded of this vision when I see Sandra Rita Diaz in Lourdes again, sometime in 2024, and she gives me a bunch of Psalms of David to read for protection against the evil people in Dénia who plan to do me harm.
@@ -222,7 +222,7 @@ function googleTranslateElementInit() {
 
 - The next class I had with him on Monday 24th April he was extremely angry with me for no obvious reason at all.
 - His anger surprised me and I stared at him. He could not hold my eye contact and looked away.
-- This was [man two of the group of men pretending to be the trumpet teacher](../../crimes/protagonists/vidal-sastre.md#at-least-four-more).
+- This was [man two of the group of men pretending to be the trumpet teacher](../../crimes/protagonists/vidal-sastre.md#seven-devils).
 - I knew at that moment the `@jctot` account was his. At least, that was my assumption.
 - Was the trumpet teacher angry because he knew I had fallen into a vile trap he could do nothing about?
 - Or was he angry that his intention to keep me for himself was probably scuppered?
@@ -236,7 +236,7 @@ function googleTranslateElementInit() {
 ![PP's husband?](../../content/images/vssh-memory-1.PNG)
 
 - I wake up even more obsessed and in love with the trumpet teacher.
-- This particular trumpet teacher was the [fourth man I have since remembered in the Autumn of 2025](../../crimes/protagonists/vidal-sastre.md#dark-thick-curly-haired-deep-set-man).
+- This particular trumpet teacher was the [fourth man I have since remembered in the Autumn of 2025](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man).
 
 ## Disclosing child sexual abuse
 
@@ -257,7 +257,7 @@ function googleTranslateElementInit() {
 
 - It's the following chamber music class.
 - As I walk down Carrer Sant Telm, I see the trumpet teacher waiting outside the main door.
-- It's [the third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#a-man-called-bruno-with-at-least-one-son-called-bruno), a large hulking man, probably Gloria's brother.
+- It's [the third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno), a large hulking man, probably Gloria's brother.
 - He's waiting for me.
 - He sees me and looks inside.
 - I reach him and we walk in together.
@@ -265,7 +265,7 @@ function googleTranslateElementInit() {
 - It feels like *EVERYONE* knows what I had written online.
 - It feels like the whole conservatory building is hushed.
 - The school's security camera system is ready to live-stream the switcheroo to the international porn-subscribers.
-- Trumpet-teacher team members, [Mark and the brother](../../crimes/protagonists/vidal-sastre.md#at-least-four-more), have taken their places up the stairs.
+- Trumpet-teacher team members, [Mark and the brother](../../crimes/protagonists/vidal-sastre.md#seven-devils), have taken their places up the stairs.
 - As I pass Gloria sitting in her receptionist box, she looks at me and throws her hands up at me as if she's disgusted with me.
 - It's a distraction technique.
 - At that moment, trumpet teacher three and two switch and I'm walking behind a different man.
