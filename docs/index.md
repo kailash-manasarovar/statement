@@ -190,12 +190,12 @@ I continue to walk with God.
 
 ## A friend on the inside
 
-- At some point during [the switcheroo-porn production at the music school](crimes/protagonists/vidal-sastre.md#at-least-six), probably in March 2023, something happened between myself and a gang member, inexplicably and miraculously, that made him change his mind about his grim purpose.
+- At some point during [the switcheroo-porn production at the music school](crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel), probably in March 2023, something happened between myself and a gang member, inexplicably and miraculously, that made him change his mind about his grim purpose.
 - I believe it is to do with my memory of [the trumpet teacher sobbing his heart out in my arms](timeline/2023/march.md#dreaming-of-the-trumpet-teacher) in my bed one Monday night after chamber music class, and my unconditional and relentless good feelings for him that continue to this day.
 - I believe this man, at that moment, changed his mind about what he was doing, and maybe even asked the gangs to stop, and they didn't - an impossible request anyway - so instead he started to help me in a clandestine manner.
 - He told me about the region's decades-long honey-trap enterprise, sending me photographic evidence in the process.
 - Putting his own life at considerable risk, he sent me pictures of countless other female victims the gangs had targeted over many decades; some sexploitation blackmail victims, many of them groomed and drugged into porn and prostitution, some manipulated into having babies for porn, and many I believe to have been murdered.
-- He sent me pictures of some of the other men involved in [the conservatory switcheroo porn-scam](crimes/protagonists/vidal-sastre.md#at-least-six) and much information I have been adding to this police statement.
+- He sent me pictures of some of the other men involved in [the conservatory switcheroo porn-scam](crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel) and much information I have been adding to this police statement.
 - He told me about the proliferation of child-pornography in the region and how hackers are forced to target children and toddlers online.
 - He told me about the baby-rape industry in Dénia, now thought to be the gang’s major source of income.
 - He warned me about the poisoning in my home, and my car, amongst other things.
@@ -275,7 +275,7 @@ I continue to walk with God.
 - Perhaps you'll find someone who saw me going to the toilet, or showering, or doing yoga in my sitting room, or taking an enema.
 - Maybe someone heard me farting loudly.
 - Many of the men will have seen footage of me masturbating in my bedroom or bathroom while I was drugged out of my mind on spiked hallucinogens and aphrodisiacs.
-- No doubt they will have seen the regular sedated-rape sessions broadcast live from my apartment, or even [the preliminary switcheroo sex-assaults filmed live at music classes at the conservatory](crimes/protagonists/vidal-sastre.md#at-least-six).
+- No doubt they will have seen the regular sedated-rape sessions broadcast live from my apartment, or even [the preliminary switcheroo sex-assaults filmed live at music classes at the conservatory](crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel).
 - You could ask them if they were watching the porn specials back in 2015, 2013, or even 2008 from my other homes.
 - Why not ask them who else they're watching in similar situations; there's bound to be masses of live-action spy-cam sex-slaves everyone knows about.
 - Ask them how many of those women ended up dead, and if you like, you could ask them if they expected the same for me.

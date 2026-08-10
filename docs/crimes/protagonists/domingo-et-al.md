@@ -40,7 +40,7 @@ function googleTranslateElementInit() {
 ### Online-stalker memes related to Domingo
 
 - The name "Cano" relates to dogs, and "Lopez" to wolves. 
-- While I was being stalked and terrorized online after the [switcheroo porn scandal at the conservatory](vidal-sastre.md#at-least-six) had ended and I had not behaved as expected (as victims usually do), I saw multiple online memes and references to these animals, and particularly when the stalking took a more seriously threatening or abusive turn.
+- While I was being stalked and terrorized online after the [switcheroo porn scandal at the conservatory](vidal-sastre.md#seven-devils-and-one-angel) had ended and I had not behaved as expected (as victims usually do), I saw multiple online memes and references to these animals, and particularly when the stalking took a more seriously threatening or abusive turn.
 - Indeed, dogs featured constantly in the online harassment and threats.
 - Hackers reveal their close connection to Domingo Lopez Cano in August 2023 just as I'm about to return to my home in Dénia.
 

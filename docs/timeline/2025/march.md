@@ -353,7 +353,7 @@ function googleTranslateElementInit() {
 - I find myself unable to recognize new people, it seems I have to have known them for years or they have some unique facial characteristics.
 - I don't see things that are right in front of me often either, and I've noticed that some texts can be confusing, but a wider symptom of the poisoning for switcheroo is that I am confused about really normal things I used to do for the whole of my life, like buying a bus ticket, or figuring a map out, really easy basic things. 
 - I describe it to myself as feeling like an alien from outer space who's just landed on Earth and doesn't know how anything works.
-- The porn gangs of Dénia damaged my brain to this extent so that I would believe [six or more completely different men were the same one man](../../crimes/protagonists/vidal-sastre.md#at-least-six) posing as trumpet teacher at the local music school.
+- The porn gangs of Dénia damaged my brain to this extent so that I would believe [six or more completely different men were the same one man](../../crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel) posing as trumpet teacher at the local music school.
 - I did believe it too, for a long time, although I wouldn't have if I hadn't been spiked continuously with hallucinogens and other drugs at the same time.
 - It's curious because those men's faces were very different, and yet my mind was successfully manipulated into merging them together into one face.
 - More interestingly perhaps, is that my body always recognized the difference between these men in a *feeling* way that's difficult to describe.

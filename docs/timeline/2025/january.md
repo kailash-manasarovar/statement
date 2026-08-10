@@ -655,7 +655,7 @@ function googleTranslateElementInit() {
 - This is going to be soooo exciting on Netflix...
 - Was the frenetic activity from criminal gangs in London... even getting a junkie involved - the most disloyal people in the universe - and all the harassment at that time early in the year, and during the general election the year before… and conspiring with my father to make sure I'd be murdered successfully in July in Lourdes... except they must have known I'd survive that too.
 - It's so interesting. We start to wonder who's double-crossing who while I was walking around in a drug-induced haze.
-- Or perhaps they were panicking and drugging me harder to make sure I didn't remember [the switcheroo men working as pedo-porn-studio teachers for the Generalitat Valenciana](../../crimes/protagonists/vidal-sastre.md#at-least-six).
+- Or perhaps they were panicking and drugging me harder to make sure I didn't remember [the switcheroo men working as pedo-porn-studio teachers for the Generalitat Valenciana](../../crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel).
 - And no doubt they were also holding out on the hope they might be able to get me into a situation where I'd part with my not inconsiderable finances.
 - My renewed and urgent interest (God tells me everything) in [protecting my money from my brother on the event of my death and him giving it all to Adams like he did before](#an-urgent-need-to-update-my-will) by rewriting my will was born from this very obvious criminal gang plan that I could practically see written out in front of me it was so obvious.
 - My guess is no-one had a clue what to do about this strange, quiet, loving, beautiful, smart, funny, God-fearing woman with some very *very* interesting back-stories, who they were unable to kill.
@@ -704,7 +704,7 @@ function googleTranslateElementInit() {
 - However, Michael's behavior over the phone *is* somehow condemning; certainly of me, and this is utterly irrational - a projection perhaps?
 - Did the Adams family give Michael instructions for me too? 
 - Did they tell him what cards to pull on the readings he gave me about the trumpet teacher relationship I ask him for over the next two summers?
-- My visit there was just prior to [yet another switcheroo-porn scam running at a conservatory music school in Spain - children very much involved and included -](../../crimes/protagonists/vidal-sastre.md#at-least-six) that porn-world in its entirety must have been so excited about, and I was away from Spain and my poisoned water-mains for over three months.
+- My visit there was just prior to [yet another switcheroo-porn scam running at a conservatory music school in Spain - children very much involved and included -](../../crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel) that porn-world in its entirety must have been so excited about, and I was away from Spain and my poisoned water-mains for over three months.
 - Was Michael instructed to be furious with me - another note from my 2015 police statement about Winston May being angry with me, then kind, then angry, and how this broke my child's mind?
 - Had Michael been assured of my certain demise like everyone else?
 - Or was he trying to tell me something without incriminating himself to the gangs he knew were listening?
@@ -825,7 +825,7 @@ function googleTranslateElementInit() {
 - I'm not sure what to say to him.
 - 18-months later, I remember [a related event from 2008](../2001-to-2010/2008.md#ssp-shamanic-conference-in-compton-dundon-somerset-uk) where a woman, Susan McNaughton, tried to frighten me at the Yew tree and elsewhere with her devil worshipping nonsense.
 - For sure it's a gang connection, but for what purpose?
-- Another pick at frightening and destabilizing me so that my mind hasn't the space to figure out [the switcheroo scam](../../crimes/protagonists/vidal-sastre.md#at-least-six)?
+- Another pick at frightening and destabilizing me so that my mind hasn't the space to figure out [the switcheroo scam](../../crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel)?
 - Or to make a link to something ridiculous so that I could be discredited easily, just like [Paloma had tried to do in Madrid the October previous](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid)?
 - Perhaps that was the original plan in 2008.
 - Even Paul sounded like he thought what he was saying was ridiculous, like he was happy to finish when his speech was done (he may have been reading lines for that one).

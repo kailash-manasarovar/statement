@@ -48,7 +48,7 @@ function googleTranslateElementInit() {
 
 ### I think Toby lives in his car, Trish tells me
 
-- Back in late 2022, when Trish and I were talking about Toby on a Saturday hike just before the start of [the switcheroo porn extravaganza running live and direct from the music school, children starring, and my apartment, the population of Dénia starring](../../crimes/protagonists/vidal-sastre.md#at-least-six), and everyone stopped talking to me so I'd be fully isolated from the normal world, she told me she thought Toby, her adult son, lives in his car in the UK.
+- Back in late 2022, when Trish and I were talking about Toby on a Saturday hike just before the start of [the switcheroo porn extravaganza running live and direct from the music school, children starring, and my apartment, the population of Dénia starring](../../crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel), and everyone stopped talking to me so I'd be fully isolated from the normal world, she told me she thought Toby, her adult son, lives in his car in the UK.
 - She wasn't sure though.
 - She then expressed concern about his safety in the UK, and a wish that he would return to Spain where, she seemed to believe, he'd be safer.
 - I'm not so sure about that.
@@ -184,7 +184,7 @@ Katharine Margaret Murphy
 
 - I put the letter in an envelope and add the address and delivered-by-hand instructions.
 - A short while later, I realize I haven't finished, and I write two more supplementary pages.
-- I do my best to explain [the trumpet-teacher switcheroo-porn scam](../../crimes/protagonists/vidal-sastre.md#at-least-six) even though there's still a good while before October 2025 when I figure out what happened myself.
+- I do my best to explain [the trumpet-teacher switcheroo-porn scam](../../crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel) even though there's still a good while before October 2025 when I figure out what happened myself.
 - I still think it is just one man!
 
 ![Page 4 front](../../content/documents/letter-to-the-ambassador/the-supplementary-letters/page-4-supplementary-front.jpg)

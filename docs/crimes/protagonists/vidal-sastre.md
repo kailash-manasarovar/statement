@@ -23,7 +23,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 - From research, I understand that "switcheroo-porn" commonly means a blindfolded target for multiple men.
 - In my case, the "blindfold" for conservatory classes was decades of poisoning to give me a stroke-like symptom whereby I cannot recognize objects including people out of context, and continuous drugging and poisoning which made my mind confused and my vision extremely blurred.
 - In Bali with work, the blindfold was sedation.
-- Intricately choreographed scenarios at the conservatory, in which [multiple men would literally switch to play the role of the one trumpet teacher with this name](#at-least-six), were acted out with me completely ignorant of what was actually happening at the music school.
+- Intricately choreographed scenarios at the conservatory, in which [multiple men would literally switch to play the role of the one trumpet teacher with this name](#seven-devils-and-one-angel), were acted out with me completely ignorant of what was actually happening at the music school.
 - I believe the conservatory music-school is wired up with spy-cams that livestream onto porn networks and the switcheroo-porn filmed in class proves it.
 
 ##### What switcheroo-porn really requires
@@ -58,7 +58,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ### Eight distinct men posing as trumpet teacher
 
-#### At least six
+#### Seven devils and one angel
 
 - As my mind clears and my heart heals from decades of abuse at the hands of the Canos, the Smiths, and their associates in Dénia, France, and North London, clearer memories of what happened to me and by whom are returning.
 - I realize now that the *trumpet teacher* was made up of (minimum) four-to-six distinct men who came to the conservatory of Dénia under the role of teacher and using the name Vidal Sastre Sanchez Hornero.
