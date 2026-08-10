@@ -71,6 +71,7 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ### The older, slimmer, shorter, greyer man - the angel
 
+- 55.
 - This man is the angel.
 - I never stopped having an extremely good feeling about this man.
 - I only have four solid memories of him where I'm not confusing him with someone else:
