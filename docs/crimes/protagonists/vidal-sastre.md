@@ -46,21 +46,26 @@ The chances of me being one of the eldest victims in the conservatory system (th
 
 ##### Switcheroo is the preliminary to the horse-porn
 
-- So, first, we now know verifiably exactly who makes the very famous horse porn they've been producing for decades that nearly every British police officer has seen a thousand times, and giggled each time; as if the drugged, brain-damaged, and soon to be murdered humans starring in it don't exist.
-- Victims start off starring in something else, of course; switcheroo brain-damage being just a first step towards the horse porn.
-- Once the in-person spy-cam switcheroo-fests are over, if you have a viable business/trade which will bring more porn-fodder to the region, they'll let you live (Natalia).
-- If you have any money, they'll relieve you of it, while training for the horse-porn begins.
-- (My guess is even poverty won't save you over there.)
-- Training consists in ramping up the drug and poisoning doses plus the usual manipulation, in-person and online, and they simply add a new member to the switcheroo group which happens to be a horse.
+- Even though it has been common knowledge for decades, now those who can do something about the evil can verify who makes the horse porn and where.
+- Every British police officer has seen it and giggled each time; as if the drugged, brain-damaged, and soon to be murdered humans starring in it don't exist.
+- My view is that North London criminal gangs have made sure that police forces are shown this sort of content, keeping them complicit.
+- Victims might even start off in consenting porn, or not, and then they're moved to the brain-damage programs which require access to the water supply in their homes to apply poisons and intense drugging.
+- It seems the brain-damage process must take a few years before a victim is ready for the horse porn; which means the gangs will have multiple victims in preparation at any one time.
+- If a target has a viable business/trade which brings more porn-fodder to the region, they'll let you live (Natalia) after they've finished the switcheroo.
+- If you have money, they may set up a fake relationship or marriage to relieve you of it, while training for the horse-porn begins.
+- (My guess is even poverty won't save you in the region. I believe their appetite for destroying women and children is insatiable.)
+- Training for the horse porn consists in ramping up the drug and poisoning doses plus the usual manipulation, in-person and online, and at some moment they simply add a new member to the switcheroo group, which happens to be a horse.
 - They commonly set this training session up, I was told, at a car window at night.
 - The target is in the passenger seat of the car with another person driving.
-- The driver is not part of the main-man (trumpet-teacher) group and could be anyone from the town the target might reasonably be in the car with.
+- The driver, although complicit, is not part of the main-man (trumpet-teacher) group and could be anyone from the town the target might reasonably be in the car with.
 - The car is parked somewhere rural.
 - A horse is cued to pop his head close to the driver's open window and, at the same time, the main man speaks.
-- A scripted vignette is already in place - part of the violence training no doubt, as we are that far along now and there will be regular filmed and always worsening sexual violence happening to the target - that causes her (I believe it is always a her for the horse porn, correct me if I'm wrong) to turn away from the horse in fear so as to not look at it closely or for too long - to only be able to look at it in glances, just like the training went with the other trumpet teachers (or whatever they're all pretending to be).
-- By this time, a target's brain is in an even worse state than a stroke survivor, and the neural link between the visual (horse) and the audio (main-man) voice is patterned.
-- The target is then repeatedly drugged and trained again and again to believe the horse is main man, until the grand finale taking place in a muddy field with a short wall around it and wire fence up in the campo, and many of the men in the region are invited to the show which is filmed and then distributed around the world by North London's finest.
-- There is no doubt this was the end goal for me and I do wonder if my dad and brother knew that; I wonder less and less about this as the days go on.
+- A scripted vignette is already in place - part of the violence training no doubt, as we are that far along now and there will be regular filmed and always worsening sexual violence happening to the target - that causes her (I believe it is always a her for the horse porn, correct me if I'm wrong) to turn away from the horse in fear so as to not look at it too closely or for too long - to only be able to look at it in glances, just like the training went with the other trumpet teachers (or whatever they're all pretending to be).
+- By this time, a target's brain is in an even worse state than a stroke survivor, they're permanently and exaggeratedly high too, and so a neural link between the visual (horse) and the audio (main-man) voice is patterned.
+- This process is repeated until the grand finale taking place in a muddy field with a short wall around it and thin wire fencing to stop the audience breaking in.
+- Many of the men in the region, and their special guests, are invited to the show which is filmed and then distributed around the world by North London's finest.
+- There is no doubt this was the end goal for me as training had already begun online with reference to horses.
+- I have to wonder if my dad and brother knew about this; and I wonder less and less as the days go on and we find out more about the state of *apparently normal* men in the world.
 
 ### Eight distinct men posing as trumpet teacher
 
