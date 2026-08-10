@@ -8,23 +8,28 @@ function googleTranslateElementInit() {
 }
 </script>
 
-The pages in this section list the main players in the violent three-year attack on my physical, emotional, sexual, psychological wellbeing, and eventually life. 
+The pages in this section list the main players in the violent three-year attack on my physical, emotional, sexual and psychological wellbeing, and life. 
 
-It includes teachers and staff from the conservatory of Dénia, known criminals, and others.
+It includes teachers and staff from the conservatory of Dénia, known criminals, and others from the Valencian region.
 
-The people involved were seasoned professionals in spy-cam technology, sedated-rape, clandestine poisoning and drugging, gang-stalking and sexual grooming online and in person. Therefore, the chances of me being the only victim is *zero*. 
+The people involved were seasoned professionals in spy-cam technology, sedated-rape, clandestine poisoning and drugging, gang-stalking, cyber-stalking, and sexual grooming. 
 
-The chances of me being the oldest victim, at least in the conservatory system, is high.
+The chances of me being the only victim is *zero*. 
+
+The chances of me being one of the eldest victims in the conservatory system (the government-run public music schools of Spain) is high.
 
 ## Vidal Sastre Sanchez Hornero
 
-- The *main* porn genre created throughout November 2022 to June 2023 in person with the support of teachers and staff at the conservatory, and then beyond at my apartment and while attending [a work function in Bali](../../timeline/2024/may.md#bali) is called *switcheroo*.
-- Vidal Sastre Sanchez Hornero was the name the trumpet-teacher(s) team used.
-- From research, I understand that "switcheroo-porn" commonly means a blindfolded target for multiple men.
-- In my case, the "blindfold" for conservatory classes was decades of poisoning to give me a stroke-like symptom whereby I cannot recognize objects including people out of context, and continuous drugging and poisoning which made my mind confused and my vision extremely blurred.
-- In Bali with work, the blindfold was sedation.
-- Intricately choreographed scenarios at the conservatory, in which [multiple men would literally switch to play the role of the one trumpet teacher with this name](#seven-devils-and-one-angel), were acted out with me completely ignorant of what was actually happening at the music school.
-- I believe the conservatory music-school is wired up with spy-cams that livestream onto porn networks and the switcheroo-porn filmed in class proves it.
+- The *main* porn genre created from November 2022 to June 2023 with the support of teachers and staff (Spanish civil servants) at the conservatory, and at my apartment, and while attending [a work function in Bali with crypto-giant Polygon](../../timeline/2024/may.md#bali) in May 2024 is called *switcheroo*.
+- From research, I understand that "switcheroo-porn" commonly means a blindfolded target for multiple men, and this is well known.
+- In my case, the "blindfold" at conservatory classes was decades of poisoning through the mains water to my apartments in Spain which gave me a stroke-like symptom whereby I struggle to recognize objects, especially people, out of context.
+- On top of this, intense drugging and poisoning made my mind confused and my vision extremely blurred.
+- In [Bali with Polygon](../../timeline/2024/may.md#bali), the "blindfold" was five days of sedation while probably hundreds of men - including my managers and colleagues, and even CEOs of well known companies - took their turn raping me while the cameras rolled.
+- *Vidal Sastre Sanchez Hornero* was the name that the group of eight men pretending to be one single trumpet-teacher working at the conservatory of Dénia used, and the name is registered in the Generalitat's systems.
+- The name is also known in [other professional settings](#the-best-band-in-the-valencian-region) which always connect back to the Generalitat, the government body which manages schools, hospitals, and more in the Valencian region.
+- Intricately choreographed scenarios at the conservatory, in which these [multiple men would literally switch to play the role of trumpet teacher taking a class](#seven-devils-and-one-angel), were acted out while I was completely ignorant of what was actually happening at the music school.
+- It appears that all the teachers and staff, and many of the parents and children are aware of what goes on at the music school and how it doubles as a criminal porn studio.
+- I believe the school classrooms are wired up with spy-cams that livestream sex-attacks on sedated students onto multiple porn networks, and [the switcheroo-porn special filmed in class with me starring](../../timeline/2023/may.md#conservatory-choir-concert) proves it.
 
 ##### What switcheroo-porn really requires
 
@@ -71,7 +76,6 @@ The chances of me being the oldest victim, at least in the conservatory system, 
 
 ### The older, slimmer, shorter, greyer man - the angel
 
-- 55.
 - This man is the angel.
 - I never stopped having an extremely good feeling about this man.
 - I only have four solid memories of him where I'm not confusing him with someone else:
