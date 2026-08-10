@@ -120,8 +120,9 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - Since then he has been helping me, mostly without my conscious awareness, and more recently with more direct communication online and by drip feeding me information about murder victims and switcheroo rape-gang identities.
 - Interestingly, the gangs were never able to effect their switcheroo-scam on me fully because "feeling/felt sense" is the way I understand the world, and so I never mistook any of the brutes for anything else but brutes.
 - But since probably around March 2023, there was something other than brute in my experiences; something very tender, very difficult to describe or comprehend, something very loving and perfect, and I believe this is what cured me completely of depression.
-- I believe today that God spoke through me directly to this man through my books, and my notes, and my ideas, and he listened. 
+- I believe today that God spoke through me directly to this man; through my books, and my notes, and my ideas, and maybe even through my online rants, and he listened. 
 - Perhaps there were even Instructions.
+- This man is [`@KingForg`](../../timeline/2025/april.md#deso).
 
 ### Seven devils
 
