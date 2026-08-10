@@ -35,13 +35,14 @@ The chances of me being one of the eldest victims in the conservatory system (th
 
 - Interestingly, if criminal porn-production companies spend time and money to get a victim to a state of brain-damage whereby she's ready to star in some sort of switcheroo-porn special, then the men involved *must* be viewable by the porn audience.
 - If not, there's no switcheroo! Right?
-- Of course, the men have to visibly switcheroo in public, with face-and-body very visible - on camera and amongst the other teachers, staff, and children at the conservatory - as the porn-special was filmed in classes and the men involved were pretending to be "teachers".
-- So they had to be fully seen.
-- Back at my sedated-rape spy-cam apartment, they may have put masks on or somehow hid their appearance... but perhaps not.
-- They've already been seen very clearly at the switcheroo stage in public, unmasked, with a semi-conscious drugged victim, so why bother hiding later on?
-- Their intention was that I would be semi-conscious at home too, consciously consenting as it were, but that didn't work out for them.
-- Nevertheless, they've done this to so many women, they must be visible in other switcheroo porn specials with other victims, at classes and at their homes too.
-- Clearly, these men are above and beyond the law so maybe they boldly show themselves without fear of reprisals - what heroes, legends!
+- Of course, the men have to switcheroo in public, face-and-body visible - on camera and amongst the other teachers, staff, and children at the conservatory - as the porn-special was filmed in classes and the men involved were pretending to be "teachers".
+- So they had to be fully seen and easy to recognize.
+- Back at my sedated-rape spy-cam apartment, they may have put masks on or somehow hid their appearance... but perhaps not even then.
+- They've already been seen in public, unmasked, with a semi-conscious drugged victim, so why bother hiding later on?
+- Their intention was that I would be semi-conscious at home too - consciously consenting as it were - but that didn't work out for them.
+- Nevertheless, they've done this to so many women, the criminals must be visible in other switcheroo porn specials with other victims at school classes, or work events, or in their homes.
+- Clearly, these men are above and beyond the law so maybe they've been boldly showing themselves without fear of reprisals for decades; the heroes and legends of porn!
+- They'll be easy to jail, therefore.
 
 ##### Switcheroo is the preliminary to the horse-porn
 
