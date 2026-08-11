@@ -163,14 +163,15 @@ The chances of me being one of the eldest victims in the conservatory system (th
 #### 2. A dashing, good-looking, bit thick younger man with more hair than the rest of them
 
 - My guess is they get the very good-looking man in to do the initial meet and greet, and maybe bring him back from time to time, but not too often cos he's no good at lying.
-- This was the man who [set up the love-triangle trick with Ana](../../timeline/2022/november.md#the-trumpet-teacher) ar the first class, but was faffing around a lot with the timing of it.
+- This was the man who [set up the love-triangle trick with Ana](../../timeline/2022/november.md#the-trumpet-teacher) at the first class, but was faffing around a lot with the timing of it.
 - He also introduced himself at that class, poorly, as *Vidal*. Meaning, I didn't really believe him but this awareness was far away while out-of-my-mind on hallucinogens or whatever.
-- This was the man who did a terrible job at [attempting to arrange in-person *dates* with me](../../timeline/2023/february.md#ptsd). His attempted induced in me a massive panic attack.
+- This was the man who did a terrible job at [attempting to arrange in-person *dates* with me](../../timeline/2023/february.md#ptsd). His attempt induced in me a massive panic attack.
 - Tall, muscular, perhaps better-tempered than the others - I made him laugh once uproariously, as I remember - larger in stature than [Mark](#1-mark); this man is probably in his mid-to-late forties, and he had a lot more hair than the rest of them.
 - I have a strange sensation he wore purple of some variety but I'm not sure. He may have had bright green sneakers.
 - I don't think he turned up all that much for conservatory classes.
-- This was the man they put on the *Vidal Sastre Sanchez Hornero* Facebook profile I looked up in December 2023. He was standing windswept with two teenage girls - I assumed his daughters - and all three of them looked a bit embarrassed.
-- He may well be the handsome man preening himself second to the right among three other brutes who appeared to all be brothers; a pic on numerous fake accounts I was shown repeatedly on X, but I never screenshot for some strange reason.
+- This was the man they put on [the *Vidal Sastre Sanchez Hornero* Facebook profile](../../timeline/2022/december.md#chamber-music-classes) I looked up in December 2022. He was standing windswept with two teenage girls - I assumed his daughters - and all three of them looked a bit embarrassed.
+- He may well be the handsome man preening himself second to the right among three other brutes who appeared to all be brothers; a pic on numerous fake accounts I was shown repeatedly on X, but I never screenshot for some strange reason. Thinking about it, it may be that his picture was so out of context in these photos I was unable to make a solid mental connection.
+- I would recognize this man immediately if I saw him again.
 
 #### 3. The brother of the woman working at Mercadona
 
