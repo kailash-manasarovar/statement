@@ -136,7 +136,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - And I would put money on all these men being closely related to Lorraine's ex-husband, implicated in the horror-rape-porn that led to her death by suicide.
 - A further three men making up the gang also seemed to be closely related, but with significantly different family characteristics: ([5.](#5-dark-thick-curly-haired-deep-set-man), [6.](#6-viktor-or-danny-the-man-that-interviewed-me-for-a-job-in-2016), and [7.](#7-the-pangolin)). 
 - These three did not turn up to classes at the conservatory but undoubtedly entered my apartment after I'd gone to bed and been sedated. I wonder if Lorraine's ex turned up too. It seems likely, something kept reminding me of her.
-- One of the men, Bruno - Gloria the school receptionist's brother - looked nothing like any of the others ([4.](#4-a-man-called-bruno-with-at-least-one-son-called-bruno)) and probably had no genuine Spanish ancestry. He was the first one they offered up too.
+- One of the men, Bruno - Gloria the school receptionist's brother - looked nothing like any of the others ([4.](#4-bruno)) and probably had no genuine Spanish ancestry. He was the first one they offered up too.
 - Due to brain-damage, animal-training while sedated, extreme online manipulation, and intense drugging at classes, I mistook all these men for one single man in conscious awareness.
 - I never saw number [7.](#7-the-pangolin) in conscious awareness in Spain, but when I did eventually see him, years later, I experienced the same feelings I had done whenever I saw the others, and my mind at some level knew him as *trumpet teacher*.
 
@@ -157,7 +157,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
     - He was the man who returned with copied music sheets from Gloria every class, right after number [2.](#2-a-dashing-good-looking-bit-thick-younger-man-with-more-hair-than-the-rest-of-them) or [3.](#3-the-brother-of-the-woman-working-at-mercadona) had left the classroom to do the copying initially.
     - He [handed me his phone](../../timeline/2023/march.md#the-trumpet-teacher-hands-me-his-phone) in a weird manner..
     - He was the man who [was angry at me](../../timeline/2023/april.md#back-in-chamber-music-class) after I followed the `@jctot19` account, and could not look me in the eye when I stared at him.
-    - He presided, along with [Bruno](#4-a-man-called-bruno-with-at-least-one-son-called-bruno) and [number 3.](#3-the-brother-of-the-woman-working-at-mercadona), at the [May 2023 concert](../../timeline/2023/may.md#chamber-music-concert) along with the three children in attendance.
+    - He presided, along with [Bruno](#4-bruno) and [number 3.](#3-the-brother-of-the-woman-working-at-mercadona), at the [May 2023 concert](../../timeline/2023/may.md#chamber-music-concert) along with the three children in attendance.
     - He was the man who led my *funeral* on [12th June 2023](../../timeline/2023/june.md#monday-12th-june-2023).
 
 #### 2. A dashing, good-looking, bit thick younger man with more hair than the rest of them
@@ -185,29 +185,30 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - He may have been scared of Gloria; he certainly looked scared of her one evening when she came into the classroom unable to control her laughter as I was trying to talk to him about something.
 - The Mercadona connection is interesting given how [the staff there terrorized me](../../timeline/2024/october.md#mercadona) the week the Lopez Cano's were trying to murder me through the water supply to the property.
 
-#### 4. A man called Bruno, with at least one son called Bruno
+#### 4. Bruno
 
-- A similarly tall but even larger, older, lumbering man with bad skin was a key component of the switcheroo trumpet-teacher team.
-- He was one of the main men starring in the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) with Carmen Cano in attendance (masquerading or not) as Pablo's mum.
-- He had a soft pleasant voice and he was the man who left messages on my phone.
-- He was the man I spoke to who [mentioned a *double session* in a perverted way](../../timeline/2023/may.md#teb-with-robin) the night before I saw evidence of anal rape.
-- He was [the man waiting for me at Alicante airport on 18th June 2023](../../timeline/2023/june.md#sunday-18th-june-alicante-airport) when I flew back from Dublin after TT training.
-- I believe this is an old picture of him, his family and siblings.
+- As tall as [1.](#1-mark) and [2.](#2-a-dashing-good-looking-bit-thick-younger-man-with-more-hair-than-the-rest-of-them); a larger, portly even, older, and lumbering man with bad skin was a key member of the switcheroo trumpet-teacher team.
+- He was one of the men starring with me in the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) with Carmen Cano in attendance (masquerading or not) as Pablo's mum.
+- He may have even sexually assaulted me at the concert, in the classroom, while I was sedated - filmed and live-streamed.
+- He had a soft pleasant voice and I believe he was the man who left messages on my phone.
+- He was the man I spoke to on the phone who [mentioned a *double session* in a perverted way](../../timeline/2023/may.md#teb-with-robin) the night before I saw evidence of anal rape.
+- He was [the man waiting for me at Alicante airport on 18th June 2023](../../timeline/2023/june.md#sunday-18th-june-alicante-airport) when I flew back from Dublin after TT training, I expect to begin a sexual relationship with me leading to marriage and my swift demise.
+- I believe this is an old picture of him, his family, and siblings.
 
-![Vigas](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
+![Bruno](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
 
-- I've had a copy of this photo since August 2024. 
-- In October 2025, [I realized this man looked completely different to the other trumpet teachers](../../timeline/2025/october.md#thunderbolt-clarity), and was therefore just one of a group of men pretending to be the same manipulated love interest; proof I had been severely brain-damaged with deadly poisons over many years.
-- I'm not sure I have any more solid memories of this man at the conservatory apart from him being the [one who met me outside the conservatory](../../timeline/2023/april.md#disclosing-child-sexual-abuse) the class after I posted on X.
-- The younger brother in the pic looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../../timeline/2024/march/13-end.md#wednesday-13th-march) right before [I became convinced I was going to be murdered](../../timeline/2024/march/13-end.md#the-pillow-game).
-- The girl in this picture is very familiar; I think it may be Gloria the conservatory school receptionist as a teenager.
-- I'm guessing everyone in Dénia and the Marina Alta region knows this man.
+- I've had a copy of this photo since August 2024 which came in the usual way on X fake account profile pics.
+- In October 2025, [I realized this man looked completely different to the other trumpet teachers](../../timeline/2025/october.md#thunderbolt-clarity), and was therefore just one of a group of men pretending to be the same manipulated love interest; proof I had been severely brain-damaged with deadly poisons over many years. This was the beginning of the end for them.
+- I'm not sure I have many more solid memories of this man at the conservatory apart from him [standing outside the conservatory as I walked towards it](../../timeline/2023/april.md#disclosing-child-sexual-abuse) for the chamber music class after I posted on X - I wonder if this was a sole occasion when [the pangolin](#7-the-pangolin) made a brief appearance on the stairs going in before multiple switches happened as I went up the stairs and into class where Bruno resumed the main-man role and was obviously waiting for me to speak to him further about my child abuse disclosure on X in the classroom, and my body said clearly, *don't do that*.
+- The younger brother in the photo looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../../timeline/2024/march/13-end.md#wednesday-13th-march) right before [I became convinced I was going to be murdered](../../timeline/2024/march/13-end.md#the-pillow-game).
+- I think the girl in the photo is Gloria the conservatory school receptionist as a teenager.
+- I'm guessing everyone in Dénia and the Marina Alta region knows these people.
 - I remember Samuel telling me about Gloria's brother Ivan, and how *terrible* he was.
-- I guess Ivan is a nickname and due to him being monstrous to women, children... pregnant women and babies.
+- I guess Ivan is a nickname, due to him being monstrous to women, children... pregnant women and babies.
 - I'm reliably informed by solid international sources that this man's name is Bruno.
-- He also appears to be the father of Natalia's son; who is also called Bruno.
-- I suspect he could also be the father of the [gloomy yoga teacher](../../timeline/2011-to-2020/2015.md#nati-de-prati-yoga-teacher-and-porn-gang-target-just-like-me); npc from Natalia's terror team back in 2015.
-- He also appears to be the father of a daughter of [the groomed woman](../../timeline/2024/august.md#grooming-an-innocent-girl-into-porn-101) I saw tons of photos of.
+- He also appears to be the father of [Natalia's son](../../timeline/2011-to-2020/2015.md#nati-de-prati-yoga-teacher-and-porn-gang-target-just-like-me); who is also called Bruno.
+- I suspect he could also be the father of the [gloomy yoga teacher](../../timeline/2011-to-2020/2015.md#nati-de-prati-yoga-teacher-and-porn-gang-target-just-like-me); npc from Natalia's terror team back in 2015. Is her name Brunhilda?
+- He also appears to be the father of the daughter of [the innocent woman groomed into porn](../../timeline/2024/august.md#grooming-an-innocent-girl-into-porn-101) that I saw tons of photos of.
 - Bruno is a curiously Germanic name and I therefore wonder if he could be a descendent of Nazi war criminals who found safe-haven in Dénia and the surrounds after the second world war; a very open secret.
 
 #### 5. Dark thick-curly-haired deep-set man
@@ -257,7 +258,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - They have been targeting, coercing into porn and prostitution, honey-trapping and extorting women and girls for decades.
 - Their business has now evolved into procuring babies for porn and infiltrating the Spanish school system to set up porn studios in children's classrooms.
 - They are 100% protected by Spanish authorities who prefer to wait for complainants to be murdered than do anything to protect the children these monsters have constant access to.
-- Bold and confident, they even AI'ed their faces together, mixing the conservatory receptionist Gloria's face in too (as [the third man](#4-a-man-called-bruno-with-at-least-one-son-called-bruno) is likely her brother Ivan).
+- Bold and confident, they even AI'ed their faces together, mixing the conservatory receptionist Gloria's face in too (as [the fourth man](#4-bruno) is likely her brother Ivan).
 - They then tormented me endlessly with a fake AI-auto-posting account, `@Susan_E_J_USA`, that had this photo as a profile.
 - The vile auto-posting misandry spouting from the account appears to be coming from prompted and process-heavy criminal AI systems and I suspect managed by Hazel and Sandra Smith. 
 
@@ -265,7 +266,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 
 - Gloria's face, the music school receptionist, is the clearest image in this AI photo.
 - The face of the [first man](#the-older-slimmer-shorter-greyer-man-the-angel) and the [second men](#seven-devils) are missing.
-- The eyes are from [the deep-set monstrous man](#5-dark-thick-curly-haired-deep-set-man), and the overall face shape is the [third man](#4-a-man-called-bruno-with-at-least-one-son-called-bruno), probably Gloria's brother Ivan.
+- The eyes are from [the deep-set monstrous man](#5-dark-thick-curly-haired-deep-set-man), and the overall face shape is the [fourth man](#4-bruno), probably Gloria's brother Bruno.
 - The arrogance of the gang and their absolute certainty they will never be brought to justice is staggering.
 - The account today in January 2026 has the back of someone's head as a profile pic and is posting the same wild and sexist content as before.
 
@@ -339,7 +340,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - Was the enormous and exaggerated anxiety I felt just after the attack on the 12th June 2023 in fact (and it makes much more sense to be) due to the grand rape-gang finale having occurred at my house that night?
 - Could part of the mind training and manipulation (*rehearsals* he called it at class) have included staring at me full in the face while I was sedated and my eyes were open and I was looking straight at them so I would recognize their faces in real life?
 - If they had assaulted me prior to June 12th 2023, I would have found them frightening in real life, and I didn’t, although they gave me a bad feeling that made me anxious and recoil… apart from the first older man who I never stopped having an extremely good feeling about.
-- From 12th June 2023, I *did* find him frightening, and ran away when [I saw one of them at Alicante airport](../../timeline/2023/june.md#sunday-18th-june-alicante-airport); I believe this one was the [unknown man that led the chamber music class](#4-a-man-called-bruno-with-at-least-one-son-called-bruno) so it is likely sedated rape had begun.
+- From 12th June 2023, I *did* find him frightening, and ran away when [I saw one of them at Alicante airport](../../timeline/2023/june.md#sunday-18th-june-alicante-airport); I believe this one was the [unknown man that led the chamber music class](#4-bruno) so it is likely sedated rape had begun.
 - This whole process is so professional, so finely-tuned; none of them felt they were taking *any risk at all*. They must have done the same to hundreds, perhaps thousands of women and girls.
 
 ### The Truwoman Show or Please Turn My Wife into a Porn Star

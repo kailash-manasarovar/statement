@@ -153,11 +153,13 @@ function googleTranslateElementInit() {
 ### The trumpet teacher sends me photos of himself and his family
 
 - Whoever I'm talking to starts sending me photos of himself and his family.
-- This one I believe to be of [trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno) and his family.
+- This one I believe to be of [trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#4-bruno) and his family.
 
 ![family](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
 
-- His name may be Ivan.
+- His name I thought maybe Ivan after something Samuel told me about Gloria's brother.
+- I know now this is Bruno.
+- It's amazing I thought this pale Germanic-looking man was the trumpet-teacher, when seven other very Spanish-looking men turned up for classes more regularly! That is proof of the Spanish shame of brain-damaging women for country-wide macabre rape fantasies.
 - The girl in the photo always looked familiar and I wonder if it is Gloria the conservatory receptionist.
 - The boy the trumpet teacher has his arm around I believe to be [the man that blew in my face](march/13-end.md#wednesday-13th-march) in March.
 - The hacker talks about the above picture being his *lonely years*; he made references to being in the navy or armed services for some time.
@@ -187,7 +189,7 @@ function googleTranslateElementInit() {
 
 #### Why would they do this?
 
-- I can only assume a sick, honey-trap, violent and pornographic relationship is intended for me by Ivan, [the third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno), and the pictures ensure I will recognize the man when I eventually see him.
+- I can only assume a sick, honey-trap, violent and pornographic relationship is intended for me by Bruno, [the fourth trumpet teacher](../../crimes/protagonists/vidal-sastre.md#4-bruno), and the pictures ensure I will recognize the man when I eventually see him.
 - I had walked straight past him [when he attempted a personal meeting before](../2023/june.md#sunday-18th-june-alicante-airport), but I had recognized him.
 - The sight of him there made me shudder.
 - The interference with other men's pictures make everything confused online.
@@ -305,8 +307,7 @@ function googleTranslateElementInit() {
 
 ![photo shoot](../../content/images/targeted-women/innocent-lady/7.5.png)
 
-- [Trumpet teacher number three](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno) was in the audience that evening.
-
+- [Trumpet teacher number four](../../crimes/protagonists/vidal-sastre.md#4-bruno) was in the audience that evening. I saw him stand up first in the audience before everyone had finished clapping at the end.
 - Finally, I see photos where the woman appears to be doing professional porn.
 
 ![photo shoot](../../content/images/targeted-women/innocent-lady/6.png)
@@ -328,7 +329,7 @@ function googleTranslateElementInit() {
 - After a few weeks of this, I start to see another woman.
 - She looks young, maybe 14, and she has exactly the same facial features at the innocent woman.
 - It is her daughter.
-- Whoever the father is, looks like [number three trumpet teacher](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno) and of all the men pretending to be [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) that I remember he would be the only possible father due to skin color.
+- Whoever the father is, looks like [number four trumpet teacher](../../crimes/protagonists/vidal-sastre.md#4-bruno) and of all the men pretending to be [Vidal Sastre Sanchez Hornero](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) that I remember he would be the only possible father due to skin color.
 - I realize that the woman was targeted over a decade ago, and they got a baby from her.
 - Here she is:
 

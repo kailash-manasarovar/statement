@@ -256,19 +256,18 @@ function googleTranslateElementInit() {
 
 - It's the following chamber music class.
 - As I walk down Carrer Sant Telm, I see the trumpet teacher waiting outside the main door.
-- It's [the fourth trumpet teacher](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno), a large hulking man, probably Gloria's brother.
+- It's [the fourth trumpet teacher, Bruno,](../../crimes/protagonists/vidal-sastre.md#4-bruno), a large hulking man, probably Gloria's brother.
 - He's waiting for me.
-- He sees me and looks inside.
-- I reach him and we walk in together.
-- I'm right behind him.
+- He sees me and goes inside.
+- I reach the door and see him standing on the stairs just inside (this could be [the pangolin](../../crimes/protagonists/vidal-sastre.md#7-the-pangolin)).
+- I'm right behind him following him into the busy reception area full of children.
 - It feels like *EVERYONE* knows what I had written online.
 - It feels like the whole conservatory building is hushed.
 - The school's security camera system is ready to live-stream the switcheroo to the international porn-subscribers.
-- Trumpet-teacher team members, [Mark and the brother](../../crimes/protagonists/vidal-sastre.md#seven-devils), have taken their places up the stairs.
+- Trumpet-teacher team members, [(Bruno), Mark, and the brother of the woman working in Mercadona](../../crimes/protagonists/vidal-sastre.md#seven-devils), have taken their places.
 - As I pass Gloria sitting in her receptionist box, she looks at me and throws her hands up at me as if she's disgusted with me.
 - It's a distraction technique.
-- At that moment, trumpet teacher three and two switch and I'm walking behind a different man.
-- More drugs may have been applied to my ear or bare skin at that moment.
+- At that moment, someone probably applies some drug patch or powder, and the trumpet teachers switch and I'm walking behind a different man.
 - They're not even wearing the same clothes anymore.
 - I'm so high on hallucinogens, and so well trained at that time (years of brain-damaging herbs), I don't notice.
 - I think they're the same man.
