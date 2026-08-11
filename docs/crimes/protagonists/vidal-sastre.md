@@ -214,18 +214,26 @@ The chances of me being one of the eldest victims in the conservatory system (th
 
 #### 5. Dark thick-curly-haired deep-set man
 
-- There was another man I have a few memories of which I have already documented in this police statement.
-- I don't remember him ever being at the conservatory.
-- I remember him [in my bed calling my name](../../timeline/2023/april.md#dreaming-of-the-trumpet-teacher) which I now believe was not a dream.
-- This trumpet player, at the *funeral* of the young drugged-and-groomed girl behind him, looks like him and when I first saw this photo in June 2023 I recognized this man immediately as the trumpet teacher who had come to the conservatory to teach classes.
+- I don't remember this man ever being at the conservatory but I do remember him being in my apartment on a Monday night after chamber music class.
+- He was [in my bed calling my name](../../timeline/2023/april.md#dreaming-of-the-trumpet-teacher) which I thought must be a dream at the time, now not.
+- My view is that this trumpet teacher was testing to see my reaction to him after the spectacular events between myself and [my new friend](#the-older-slimmer-shorter-greyer-man-the-angel).
+- I was horrified to see him and turned my back on him immediately.
+- In Ireland in June, just before [Bruno attempts his claim on me](../../timeline/2023/june.md#sunday-18th-june-alicante-airport), someone sends me links to this man performing at a concert in which it looks like what they did to me is happening to another woman.
+- We see him playing a solo at [the *funeral* of the young drugged-and-groomed girl behind him](../../timeline/2023/june.md#another-young-girls-funeral).
+- When I first saw this photo in June 2023 I recognized this man immediately as the trumpet teacher who had come to the conservatory to teach classes, except I have no recollection of this man ever being in the conservatory building.
 
 ![The dark curly-haired man with the big legs](../../content/images/hornero/tt-1-again.png)
 
-- You'll notice Carmen Cano was in attendance here playing the flute.
+- You'll notice Carmen Lopez Cano was in attendance here playing the flute.
 
 [![Youtube](../../content/images/youtube-video.png)](../../timeline/2023/june.md#another-young-girls-funeral)
 
-- Due to the age of these numerous YouTube films, I'm pretty sure they function as *music-student-porn-genre* international adverts which means the danger to children studying music in Spain is very well known - it's likely my Belgian friend was aware of it in 2011.
+- This man looks to be quite short, and I wonder if that's the main reason why he didn't turn up to classes.
+- Notice the soloist's name is given as *Vidal Sastre Sanchez Hornero*.
+- I found lots more videos of concerts around Spain with trumpet soloists, or musical directors, having the same name, and all of them looked like different men, most of whom I had no recollection of at all!
+- Due to the age of the numerous YouTube films I found, I'm pretty sure they function as *music-student-porn-genre* international adverts which means the danger to children in the conservatory system in Spain is very well known - and it's likely my Belgian friend was aware of it as far back as 2011.
+- This was so far back, and no-one had any idea about how tough I really was yet, so I don't think this was an attempt at throwing this man under the bus; rather, perhaps, someone was trying to help me by showing me solid images of another member of the team, knowing that [Bruno](#4-bruno) was about to make his move and no woman has ever survived his advances.
+- I guess we'll find out soon.
 
 #### 6. Viktor (or Danny?) the man that interviewed me for a job in 2016
 
