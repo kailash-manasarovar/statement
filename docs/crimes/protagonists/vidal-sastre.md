@@ -187,18 +187,19 @@ The chances of me being one of the eldest victims in the conservatory system (th
 
 #### 4. Bruno
 
-- As tall as [1.](#1-mark) and [2.](#2-a-dashing-good-looking-bit-thick-younger-man-with-more-hair-than-the-rest-of-them); a larger, portly even, older, and lumbering man with bad skin was a key member of the switcheroo trumpet-teacher team.
-- He was one of the men starring with me in the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) with Carmen Cano in attendance (masquerading or not) as Pablo's mum.
+- As tall as [1.](#1-mark), [2.](#2-a-dashing-good-looking-bit-thick-younger-man-with-more-hair-than-the-rest-of-them), and [3.](#3-the-brother-of-the-woman-working-at-mercadona); a larger, portly even, older, and lumbering man with bad skin was a key member of the switcheroo trumpet-teacher team.
+- He didn't turn up immediately - I assume because he looks so different to the others - and I may have seen him first in conscious awareness as late as April 2023.
+- He was one of the men starring with me in the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) with Carmen Lopez Cano in attendance (masquerading or not) as Pablo's mum.
 - He may have even sexually assaulted me at the concert, in the classroom, while I was sedated - filmed and live-streamed.
 - He had a soft pleasant voice and I believe he was the man who left messages on my phone.
 - He was the man I spoke to on the phone who [mentioned a *double session* in a perverted way](../../timeline/2023/may.md#teb-with-robin) the night before I saw evidence of anal rape.
-- He was [the man waiting for me at Alicante airport on 18th June 2023](../../timeline/2023/june.md#sunday-18th-june-alicante-airport) when I flew back from Dublin after TT training, I expect to begin a sexual relationship with me leading to marriage and my swift demise.
+- He was [the man waiting for me at Alicante airport on 18th June 2023](../../timeline/2023/june.md#sunday-18th-june-alicante-airport) when I flew back from Dublin after TT training. I expect his intentions was to begin a sexual relationship with me leading to marriage, an automatic will change, and my swift demise.
 - I believe this is an old picture of him, his family, and siblings.
 
 ![Bruno](../../content/images/fake-accounts/family/Vigas%20brothers%20and%20sisters.png)
 
 - I've had a copy of this photo since August 2024 which came in the usual way on X fake account profile pics.
-- In October 2025, [I realized this man looked completely different to the other trumpet teachers](../../timeline/2025/october.md#thunderbolt-clarity), and was therefore just one of a group of men pretending to be the same manipulated love interest; proof I had been severely brain-damaged with deadly poisons over many years. This was the beginning of the end for them.
+- In October 2025, [I realized this man looked completely different to the other trumpet teachers](../../timeline/2025/october.md#thunderbolt-clarity), and was therefore just one of a group of men pretending to be the same manipulated love interest; proof I had been severely brain-damaged with deadly poisons over many years. 
 - I'm not sure I have many more solid memories of this man at the conservatory apart from him [standing outside the conservatory as I walked towards it](../../timeline/2023/april.md#disclosing-child-sexual-abuse) for the chamber music class after I posted on X - I wonder if this was a sole occasion when [the pangolin](#7-the-pangolin) made a brief appearance on the stairs going in before multiple switches happened as I went up the stairs and into class where Bruno resumed the main-man role and was obviously waiting for me to speak to him further about my child abuse disclosure on X in the classroom, and my body said clearly, *don't do that*.
 - The younger brother in the photo looks like the man who came out of the tunnel and [blew at me in the face in March 2024](../../timeline/2024/march/13-end.md#wednesday-13th-march) right before [I became convinced I was going to be murdered](../../timeline/2024/march/13-end.md#the-pillow-game).
 - I think the girl in the photo is Gloria the conservatory school receptionist as a teenager.
