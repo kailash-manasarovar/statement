@@ -259,8 +259,12 @@ The chances of me being one of the eldest victims in the conservatory system (th
 #### 7. The pangolin
 
 - There was another man who I never saw at the conservatory, or in the street, or anywhere consciously until a few weeks ago.
-- He must have been in my apartment on a regular basis, however, as I remembered his face the moment I saw it as being a "trumpet teacher".
-- This man, I believe, is the man referred to in stalker posts as the pangolin I would pay to hug.
+- It is possible he revealed himself for [a few seconds on the conservatory entrance steps](../../timeline/2023/april.md#disclosing-child-sexual-abuse) in April 2023.
+- He must have been in my apartment on a regular basis, however, as I remembered his face the moment I saw it as being that of a "trumpet teacher".
+- This man, I believe, is the man referred to in X stalker accounts as the pangolin I would pay to hug.
+
+![Catherine vonRuhland](../../content/images/fake-accounts/dialysis.png)
+
 - For the record, I wouldn't hug him for free.
 
 ### Male family relations hovering around
