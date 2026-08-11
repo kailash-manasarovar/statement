@@ -143,7 +143,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 
 - This was the man I saw most often at the conservatory, and I was always anxious around him.
 - Tall, muscular, bad-tempered, and always dressed in black; I would recognize this man immediately if I saw him again.
-- He was the man [Patricia Penny *introduced* me to in Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class after swapping with the [good-looking one who had just set up the love-triangle trick with Ana](../../timeline/2022/november.md#the-trumpet-teacher).
+- He was the man [Patricia Penny *introduced* me to in Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class - after swapping with the [good-looking one who had just set up the love-triangle trick with Ana](../../timeline/2022/november.md#the-trumpet-teacher).
 - He was the man that [stalked me at Lourdes](../../timeline/2021/march.md#the-portuguese-man-next-door) in 2020, perhaps also setting up sedated-rape events in my studio there.
 - I remember him [driving Auggie](../../timeline/2001-to-2010/2001.md#amsterdam) in 2001 in Amsterdam, along with [the man who set up a fake job interview with me in 2016](#6-viktor-or-danny-the-man-that-interviewed-me-for-a-job-in-2016). They were both in the bar the night before.
 - He was also [a student in an English class I gave in 2013](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn). 
@@ -152,24 +152,24 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - I was working for Lorraine Blackbourn at the time, and this Mark looked a lot like her husband who she hadn't yet left.
 - I remember seeing this man numerous times at the conservatory during the switcheroo scam, including but not limited to the following examples:
 
-    - He was the man involved in [poisoning me by overdose](../../timeline/2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice. Numbers [2](#2-a-dashing-good-looking-bit-thick-younger-man-with-more-hair-than-the-rest-of-them) and [3](#3-the-brother-of-the-woman-working-at-mercadona) were also at this class.
-    - He was the man who returned with copied music sheets from Gloria every class, right after number [2](#2-a-dashing-good-looking-bit-thick-younger-man-with-more-hair-than-the-rest-of-them) or [3](#3-the-brother-of-the-woman-working-at-mercadona) had left the classroom to do the copying initially.
+    - He was the man involved in [poisoning me by overdose](../../timeline/2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice. Numbers [2.](#2-a-dashing-good-looking-bit-thick-younger-man-with-more-hair-than-the-rest-of-them) and [3.](#3-the-brother-of-the-woman-working-at-mercadona) were also at this class.
+    - He was the man who returned with copied music sheets from Gloria every class, right after number [2.](#2-a-dashing-good-looking-bit-thick-younger-man-with-more-hair-than-the-rest-of-them) or [3.](#3-the-brother-of-the-woman-working-at-mercadona) had left the classroom to do the copying initially.
     - He [handed me his phone](../../timeline/2023/march.md#the-trumpet-teacher-hands-me-his-phone) in a weird manner..
     - He was the man who [was angry at me](../../timeline/2023/april.md#back-in-chamber-music-class) after I followed the `@jctot19` account, and could not look me in the eye when I stared at him.
-    - He presided, along with [Bruno](#4-a-man-called-bruno-with-at-least-one-son-called-bruno) and [number 3](#3-the-brother-of-the-woman-working-at-mercadona), at the [May 2023 concert](../../timeline/2023/may.md#chamber-music-concert) along with the three children in attendance.
+    - He presided, along with [Bruno](#4-a-man-called-bruno-with-at-least-one-son-called-bruno) and [number 3.](#3-the-brother-of-the-woman-working-at-mercadona), at the [May 2023 concert](../../timeline/2023/may.md#chamber-music-concert) along with the three children in attendance.
     - He was the man who led my *funeral* on [12th June 2023](../../timeline/2023/june.md#monday-12th-june-2023).
 
 #### 2. A dashing, good-looking, bit thick younger man with more hair than the rest of them
 
-- This was the first man who did the initial trick with Ana.
-- He was also the one who tried to ask me out and failed.
-- I don't think he was very bright.
-- Tall probably in his mid-to-late forties.
-- It may be he only turned up to the conservatory those two times... it's unclear.
-- Does he usually play the "good looking" one?
-- I believe I saw him on profile pics as the handsome man preening himself in amongst the three other brutes who appeared to be his brothers; a pic I saw repeatedly on X but never screenshot for some strange reason.
-- Similar to the Mark character in size and shape, but again there was something different about him; perhaps the longer and more fuller head of hair.
-- The fact that I mistook them all for one man means anytime I say "similar" should probably be disregarded.
+- My guess is they get this very good-looking man in to do the initial meet and greet, and maybe bring him back from time to time, but not too often cos he's not so bright.
+- This was the man who [set up the love-triangle trick with Ana](../../timeline/2022/november.md#the-trumpet-teacher) in the first class, but was faffing around a lot with the timing of it.
+- He also introduced himself at that class, poorly, as *Vidal*. Meaning, I didn't really believe him but this knowledge was far away while out-of-my-mind on hallucinogens or whatever.
+- This was the man who did a terrible job at [attempting to arrange in-person meetings with me](../../timeline/2023/february.md#ptsd) which induced a massive panic attack.
+- Tall, muscular, perhaps better-tempered than the others - I made him laugh once uproariously, as I remember - larger in stature than [Mark](#1-mark); this man is probably in his mid-to-late forties, and he had a lot more hair than the rest of them.
+- I have a strange sensation he wore purple of some variety but I'm not sure. He may have had bright green sneakers.
+- I don't think he turned up all that much for conservatory classes.
+- This was the man they put on the *Vidal Sastre Sanchez Hornero* Facebook profile standing with two teenage girls, all three of them looking a bit embarrassed.
+- He may well be the handsome man preening himself in second to the right among three other brutes who appeared to be brothers; a pic on numerous fake accounts I was shown repeatedly on X, but I never screenshot for some strange reason.
 
 #### 3. The brother of the woman working at Mercadona
 
