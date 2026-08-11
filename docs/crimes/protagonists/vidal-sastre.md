@@ -134,7 +134,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - Seven men made up the rest of the trumpet teacher gang.
 - The first three ([1.](#1-mark), [2.](#2-a-dashing-good-looking-bit-thick-younger-man-with-more-hair-than-the-rest-of-them), and [3.](#3-the-brother-of-the-woman-working-at-mercadona) seemed to be closely related to the [man now working for me](#the-older-slimmer-shorter-greyer-man-the-angel)).
 - And I would put money on all these men being closely related to Lorraine's ex-husband, implicated in the horror-rape-porn that led to her death by suicide.
-- A further three men making up the gang also seemed to be closely related, but with significantly different family characteristics: ([5.](#5-dark-thick-curly-haired-deep-set-man), [6.](#6-viktor-or-danny-the-man-that-interviewed-me-for-a-job-in-2016), and [7.](#7-the-pangolin)). 
+- A further three men making up the gang also seemed to be closely related, but with significantly different family characteristics: ([5.](#5-dark-thick-curly-haired-deep-set-man), [6.](#6-viktor-the-man-that-interviewed-me-for-a-job-in-2016), and [7.](#7-the-pangolin)). 
 - These three did not turn up to classes at the conservatory but undoubtedly entered my apartment after I'd gone to bed and been sedated. I wonder if Lorraine's ex turned up too. It seems likely, something kept reminding me of her.
 - One of the men, Bruno - Gloria the school receptionist's brother - looked nothing like any of the others ([4.](#4-bruno)) and probably had no genuine Spanish ancestry. He was the first one they offered up too.
 - Due to brain-damage, animal-training while sedated, extreme online manipulation, and intense drugging at classes, I mistook all these men for one single man in conscious awareness.
@@ -146,7 +146,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - Tall, muscular, bad-tempered, and always dressed in black; I would recognize this man immediately if I saw him again.
 - He was the man [Patricia Penny *introduced* me to in Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class - after swapping with the [good-looking one who had just set up the love-triangle trick with Ana](../../timeline/2022/november.md#the-trumpet-teacher).
 - He was the man that [stalked me at Lourdes](../../timeline/2021/march.md#the-portuguese-man-next-door) in 2020, perhaps also setting up sedated-rape events in my studio there.
-- I remember him [driving Auggie](../../timeline/2001-to-2010/2001.md#amsterdam) in 2001 in Amsterdam, along with [the man who set up a fake job interview with me in 2016](#6-viktor-or-danny-the-man-that-interviewed-me-for-a-job-in-2016). They were both in the bar the night before.
+- I remember him [driving Auggie](../../timeline/2001-to-2010/2001.md#amsterdam) in 2001 in Amsterdam, along with [the man who set up a fake job interview with me in 2016](#6-viktor-the-man-that-interviewed-me-for-a-job-in-2016). They were both in the bar the night before.
 - He was also [a student in an English class I gave in 2013](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn). 
 - He called himself Mark and I believe that is his name.
 - I [found him attractive](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn), sitting right in front of my desk. He was flirting very gently with me.
@@ -238,14 +238,16 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - Due to the age of the numerous YouTube films I found, I'm pretty sure they function as *music-student-porn-genre* international adverts which means the danger to children in the conservatory system in Spain is very well known - and it's likely my Belgian friend was aware of it as far back as 2011.
 - No-one had any idea about how tough I really was when I first saw this video, so I don't think it was an attempt at throwing this man under the bus; rather, perhaps, someone was trying to help me by showing me solid images of another member of the team, knowing that [Bruno](#4-bruno) was about to make his move and no woman, child, or baby has ever survived his advances.
 
-#### 6. Viktor (or Danny?) the man that interviewed me for a job in 2016
+#### 6. Viktor, the man that interviewed me for a job in 2016
 
-- This is another man I have no recollection of seeing inside the conservatory building, and I wonder if this is because he is a very well known sex offender.
+- This is another man I have no recollection of seeing inside the conservatory building, and I wonder if this is because he is an extremely well known sex offender in the region.
 - I do have numerous memories of seeing this man since 2001.
-- He was the man I saw in the banged up Peugeot on the 11th June 2023, [the day before my *funeral*](../../timeline/2023/june.md#sunday-11th-june).
-- I also saw him in a [drive by at the beach, with the doctor in the passenger seat,](../../timeline/2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me) and this event is a solid link to the chamber music classes at the conservatory.
-- He knew I'd recognize him as *trumpet teacher*.
+- He was the man I saw in the banged up Peugeot driving on my road on the 11th June 2023, [the day before my *funeral*](../../timeline/2023/june.md#sunday-11th-june).
+- I had also seen him [driving past my building](#) as I was going to class one morning in May. This was the day that the conservatory teachers were having a big meeting so I assumed he had to leave early to get back to Valencia and his job at the secondary school!
+- I also saw this man in a [drive by at the beach, with the doctor in the passenger seat,](../../timeline/2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me) and this event is a solid link to the chamber music classes at the conservatory.
 - In the Autumn of 2023, I saw him [driving Ana Requena's (trumpet teacher girlfriend) blue car slowly past me](../../timeline/2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car) close to my apartment.
+- He knew I'd recognize him as *trumpet teacher*.
+- My view today is that whenever he did this, he was about to enter, or just had been in my apartment while I was sedated. A few times I saw men that looked just like him in cars outside my apartment, but I never mistook them for the trumpet teacher, only relations of. I expect these men had been in my home too. I'd remember them as well as this man.
 - He was one of the men in the bar with [Brian in Amsterdam in 2001](../../timeline/2001-to-2010/2001.md#amsterdam) and in the cars the next morning.
 - This man also [interviewed me for a job where I would be looking at genitals all day](../../timeline/2011-to-2020/2016.md#march) in 2016, and I saw him in the town not long after.
 - At the time, he told me his name was Viktor, but I suspect his name is Dani for some reason.
