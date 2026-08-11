@@ -175,10 +175,14 @@ The chances of me being one of the eldest victims in the conservatory system (th
 
 #### 3. The brother of the woman working at Mercadona
 
-- This man was distinctive and different from the two I've just mentioned apart from in height and skin tone.
-- He looked exactly like his sister who works at the checkout in Mercadona, and not like Mark or the first man.
-- He may have been scared of Gloria, he certainly looked scared of her one evening when she came into the classroom unable to control her laughter.
-- Someone will be able to confirm.
+- This man was slimmer than the first two but of the same height.
+- He looks exactly like his sister who works for Mercadona on the Avenida Miguel Hernandez - they could be twins - and not much like Mark or the good-looking one.
+- Significantly, he [swapped places with my co-conspirator](../../timeline/2023/february.md#plot-awareness) when he had to leave the room, and the man had to bend down because he was so much taller than the one who just left, and it would have been really obvious.
+- He seemed frightened at times, as if he was suffering stage fright.
+- Once when I tried to talk to him about music, he sort of clammed up.
+- I don't think this man plays the trumpet. He didn't seem to know much about music.
+- He may have been scared of Gloria; he certainly looked scared of her one evening when she came into the classroom unable to control her laughter and I was trying to talk to him about something.
+- The Mercadona connection is interesting given how [the staff there terrorized me](../../timeline/2024/october.md#mercadona) the week the Lopez Cano's were trying to murder me through the water supply to the property.
 
 #### 4. A man called Bruno, with at least one son called Bruno
 
