@@ -551,10 +551,10 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Interestingly, Malta is where [Qredo](../2021/march.md#qredo) are based.
 - Paul knows Anita Diamond too and often talks about her, how she was bullied by another girl (but he's actually talking about me, it was very boring of him to do that...).
 - Anyway.
-- My view is that Paul's insistence on us going swimming was so that he could make a bit of money "pimping" me out, as it were, just like [Ray](../pre-2001/1996.md#ray-archer) in the 90s, or my dad and brother even, also [Janet's](../2024/june.md#so-janet) insistence I stay with her in North London and [Sandra's](../2011-to-2020/2014.md#sandra-rita-diaz) (two known poisoners) insistence I stay with her in Paris. I was making so much money for porn-world, everyone thought they'd try and get a share in it.
-- Malta was North London's finest's attempt to get me back making money on the porn-networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, unconscious naked raped-and-humiliated me.
-- They made a star of me, didn't they, which put me in constant danger everywhere I went in the world.
-- In Malta they might have felt safer about affecting my "accidental" demise where, like in Spain or France, doctors might be more easily paid off to make false statements about cause-of-death of a foreigner, or what was behind your completely healthy 5-year-old having to suddenly use a colostomy bag, etc., just like they do in Dénia.
+- My view is that Paul's insistence on us going swimming was so that he could make a bit of money "pimping" me out, as it were, just like [Ray did](../pre-2001/1996.md#ray-archer) in the 90s, or my dad and brother even, also like [Janet's](../2024/june.md#so-janet) insistence I stay with her in North London and [Sandra's](../2011-to-2020/2014.md#sandra-rita-diaz) (two known poisoners) insistence I stay with her in Paris. I was making so much money for porn-world, everyone thought they'd try and get a share in it.
+- Malta was likely North London's finest's attempt to get me back making money on the porn-networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, unconscious, naked, raped-and-humiliated me.
+- They made an international star of me, didn't they, which put me in constant danger everywhere I went in the world.
+- In Malta they might have also felt safer about affecting my "accidental" demise where, like in Spain or France, doctors might be more easily paid off to make false statements about cause-of-death of a foreigner, or what was behind your completely healthy 5-year-old having to suddenly use a colostomy bag, etc., just like they do in Dénia.
 
 ### Reminding Paul about the money I'm offering for any porn with me starring
 
