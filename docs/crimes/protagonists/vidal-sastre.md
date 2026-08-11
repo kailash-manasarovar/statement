@@ -235,8 +235,8 @@ The chances of me being one of the eldest victims in the conservatory system (th
 
 - Notice the soloist's name is given as *Vidal Sastre Sanchez Hornero*.
 - I found lots more videos of concerts around Spain with trumpet soloists, or musical directors, having the same name, and all of them looked like different men, most of whom I had no recollection of at all!
-- Due to the age of the numerous YouTube films I found, I'm pretty sure they function as *music-student-porn-genre* international adverts which means the danger to children in the conservatory system in Spain is very well known - and it's likely my Belgian friend was aware of it as far back as 2011.
-- No-one had any idea about how tough I really was when I first saw this video, so I don't think it was an attempt at throwing this man under the bus; rather, perhaps, someone was trying to help me by showing me solid images of another member of the team, knowing that [Bruno](#4-bruno) was about to make his move and no woman, child, or baby has ever survived his advances.
+- Due to the age of the numerous YouTube films I found, I'm pretty sure they function as *music-student-porn-genre* international adverts which means the danger to children in the conservatory system in Spain is very well known - and it's likely my Belgian friend, and thus my father too, were aware of it as far back as 2011.
+- No-one had any idea about how tough I really was when I first saw this video, so I don't think it was an attempt at throwing this man under the bus; rather, perhaps, someone was trying to help me by showing me solid images of another member of the team, knowing that [Bruno](#4-bruno) was about to make his move and no woman, child, or baby had ever survived his advances.
 
 #### 6. Viktor, the man that interviewed me for a job in 2016
 
