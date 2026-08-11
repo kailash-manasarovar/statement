@@ -221,7 +221,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - Perhaps that's what got the angel fired.
 - In Ireland in June 2023, just before [Bruno attempts his claim on me](../../timeline/2023/june.md#sunday-18th-june-alicante-airport), someone sends me links to this man performing at a concert in which it looks like what they did to me is happening to another woman.
 - We see him playing a solo at [the *funeral* of the young drugged-and-groomed girl behind him](../../timeline/2023/june.md#another-young-girls-funeral).
-- When I first saw this photo in June 2023 I recognized this man immediately as the trumpet teacher who had come to the conservatory to teach classes, except I have no recollection of this man ever being in the conservatory building.
+- When I first saw this video, I recognized this man immediately as the trumpet teacher who had come to the conservatory to teach classes, except I have no recollection of this man ever being in the conservatory building.
 
 ![The dark curly-haired man with the big legs](../../content/images/hornero/tt-1-again.png)
 
@@ -236,15 +236,23 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - Notice the soloist's name is given as *Vidal Sastre Sanchez Hornero*.
 - I found lots more videos of concerts around Spain with trumpet soloists, or musical directors, having the same name, and all of them looked like different men, most of whom I had no recollection of at all!
 - Due to the age of the numerous YouTube films I found, I'm pretty sure they function as *music-student-porn-genre* international adverts which means the danger to children in the conservatory system in Spain is very well known - and it's likely my Belgian friend was aware of it as far back as 2011.
-- No-one had any idea about how tough I really was when I first saw this video, so I don't think it was an attempt at throwing this man under the bus; rather, perhaps, someone was trying to help me by showing me solid images of another member of the team, knowing that [Bruno](#4-bruno) was about to make his move and no woman, girl, or baby has ever survived his advances.
+- No-one had any idea about how tough I really was when I first saw this video, so I don't think it was an attempt at throwing this man under the bus; rather, perhaps, someone was trying to help me by showing me solid images of another member of the team, knowing that [Bruno](#4-bruno) was about to make his move and no woman, child, or baby has ever survived his advances.
 
 #### 6. Viktor (or Danny?) the man that interviewed me for a job in 2016
 
-- He was the man I saw in the banged up Peugeot on the 11th June 2023, [the day before my *funeral*](../../timeline/2023/june.md#sunday-11th-june) and [driving past me at the beach with the doctor in the passenger seat](../../timeline/2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me), and [driving Ana Requena's blue car slowly past me](../../timeline/2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car).
-- He was in the bar with [Brian and Ugly in Amsterdam in 2001](../../timeline/2001-to-2010/2001.md#amsterdam).
-- I also recognize this man as the same man who [interviewed me for a job where I would be looking at genitals all day](../../timeline/2011-to-2020/2016.md#march) in 2016, and who I saw in the town not long after.
-- I believe he told me his name is Viktor, and that he is the man I gave [the nickname Vigas](../../timeline/2024/august.md#interview-with-the-hacker) who ran the [Beams grooming account](../../timeline/2024/may.md#beams).
-- He is the man depicted as a monster on this [police statement's book cover](../../index.md) sitting alongside Domingo Cano Lopez.
+- This is another man I have no recollection of seeing inside the conservatory building, and I wonder if this is because he is a very well known sex offender.
+- I do have numerous memories of seeing this man since 2001.
+- He was the man I saw in the banged up Peugeot on the 11th June 2023, [the day before my *funeral*](../../timeline/2023/june.md#sunday-11th-june).
+- I also saw him in a [drive by at the beach, with the doctor in the passenger seat,](../../timeline/2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me) and this event is a solid link to the chamber music classes at the conservatory.
+- He knew I'd recognize him as *trumpet teacher*.
+- In the Autumn of 2023, I saw him [driving Ana Requena's (trumpet teacher girlfriend) blue car slowly past me](../../timeline/2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car) close to my apartment.
+- He was one of the men in the bar with [Brian in Amsterdam in 2001](../../timeline/2001-to-2010/2001.md#amsterdam) and in the cars the next morning.
+- This man also [interviewed me for a job where I would be looking at genitals all day](../../timeline/2011-to-2020/2016.md#march) in 2016, and I saw him in the town not long after.
+- At the time, he told me his name was Viktor, but I suspect his name is Dani for some reason.
+- This man, and the previous one, are the man (men) I gave [the nickname Vigas](../../timeline/2024/august.md#interview-with-the-hacker) to when nothing made any sense.
+- I suspect he ran the [Beams grooming account](../../timeline/2024/may.md#beams) which connected with me just after [intense drugging and sexual-training](../../timeline/2024/april.md#drugged-in-the-street-by-denia-gypsies) right before I left for Madrid on my way to attending the [Bali work event with my employer Polygon Labs](../../timeline/2024/may.md#bali).
+- He is the man that [prayed the rosary with me while I was sedated](../../timeline/2024/may.md#madrid) in my hotel room at the Princesa Plaza, Madrid at that time.
+- He is the man depicted as *monster* on this [police statement's front cover](../../index.md) on the right sitting beside a good likeness of Domingo Cano Lopez.
 
 #### 7. The pangolin
 
