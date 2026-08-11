@@ -252,12 +252,11 @@ function googleTranslateElementInit() {
 
 [![Disclosing sexual abuse to a man I liked](../../content/tweets/disclosing.png)](https://x.com/1FRGVN/status/1714433682046349597)
 
-
 ### Trumpet-teacher switcheroo special live from the conservatory
 
 - It's the following chamber music class.
 - As I walk down Carrer Sant Telm, I see the trumpet teacher waiting outside the main door.
-- It's [the third trumpet teacher](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno), a large hulking man, probably Gloria's brother.
+- It's [the fourth trumpet teacher](../../crimes/protagonists/vidal-sastre.md#4-a-man-called-bruno-with-at-least-one-son-called-bruno), a large hulking man, probably Gloria's brother.
 - He's waiting for me.
 - He sees me and looks inside.
 - I reach him and we walk in together.
@@ -362,8 +361,14 @@ function googleTranslateElementInit() {
 ## Gorilla loses a hand
 
 - On my handbag, the little gorilla that hangs off one side has lost a hand.
-- I believe one of the trumpet teachers who turned up for class ripped it off while I was drugged or sedated at home.
+- I believe one of the trumpet teachers who turned up for class ripped it off while I was drugged or sedated at home, or in class.
 - I used X to message hackers about this in the summer of 2024 and I received some kind of confirmation back.
+
+## Pablo knows what's going on
+
+- One class while the trumpet teacher(s) is out of the room with music he's going to copy, Pablo starts singing, *We will we will rock you*.
+- I note it.
+- I'm exceedingly high.
 
 ## Maria Hontanilla
 
