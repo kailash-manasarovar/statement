@@ -243,6 +243,13 @@ function googleTranslateElementInit() {
 
 ![Ariel](../../content/images/ariel.jpg)
 
+### Opinion
+
+- It is my view that if the porn-world - made up of millions maybe billions of men around the world and some women - wasn't paying for and delighting in rape, incest, gang-rape, sedated-gang-rape, sexual torture and uber-violence, spy-cam sex-slave porn of their colleagues and friends, horse porn, murder, pedophilia and baby rape every minute of every day of the week, the outcome of these vile acts would have been very different.
+- Instead, everyone looked at it, looked away and denied it.
+- My view is that the porn-gangs of Dénia did come into my apartment that day, reveling in what was going on in the Middle East and my reactions to it, and made some sort of *special* to celebrate.
+- It'll be in the massive, overwhelming evidential collection.
+
 ## Strawberries
 
 - I've always been sensitive, intuitive, and empathic; an easy target for bullies maybe.
