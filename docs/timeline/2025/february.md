@@ -534,12 +534,13 @@ Anyway. With the best. Tell your team to come into the office pls.
 - It makes him (unconsciously I suppose) rude, dishonest, vengeful, and unpleasant in an extremely obvious way.
 - One Sunday afternoon at Rani's in Finchley Central, I buy him lunch and we go for a short walk in Victoria Park afterwards.
 - He talks about Jerry Brady a lot and how Jerry Brady drives Marky Mark around when he comes to the UK.
+- Is he trying to set up a "date"?
 - Was Jerry involved in the ugly sedating business?
-- Jerry was mates with my boyfriend Brian at the time [Ugly and his pals from Dénia sedated-and-raped me in Amsterdam with Brian's help](../2001-to-2010/2001.md#amsterdam).
+- Jerry was mates with my boyfriend Brian at the time [Auggie and his pals from Dénia sedated-and-raped me in Amsterdam with Brian's help](../2001-to-2010/2001.md#amsterdam).
 - Did Jerry and his missus know about all that too? 
-- Paul suggests we go swimming regularly, something we used to do in the 90s.
-- I decline.
-- He wants us to go on holiday together, to Malta, with his younger son.
+- Paul keeps suggesting we go swimming regularly, something we used to do in the 90s.
+- I decline. It's a strange request that takes me a while to figure out.
+- He wants us to go on holiday together, to Malta, with his younger son (<- omg).
 - He knows how much it costs and he's really trying to sell it to me.
 - It's even more inexplicable. 
 - Paul has no money.
@@ -551,9 +552,13 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Interestingly, Malta is where [Qredo](../2021/march.md#qredo) are based.
 - Paul knows Anita Diamond too and often talks about her, how she was bullied by another girl (but he's actually talking about me, it was very boring of him to do that...).
 - Anyway.
-- My view is that Paul's insistence on us going swimming was so that he could make a bit of money "pimping" me out, as it were, just like [Ray did](../pre-2001/1996.md#ray-archer) in the 90s, or my dad and brother even, also like [Janet's](../2024/june.md#so-janet) insistence I stay with her in North London and [Sandra's](../2011-to-2020/2014.md#sandra-rita-diaz) (two known poisoners) insistence I stay with her in Paris. I was making so much money for porn-world, everyone thought they'd try and get a share in it.
+- My view is that Paul's insistence on us going swimming was so that he could make a bit of money "pimping" me out, as it were, just like [Ray did](../pre-2001/1996.md#ray-archer) in the 90s, or my dad and brother even, just like [Sandra](../2011-to-2020/2014.md#sandra-rita-diaz) did in Lourdes and her insistence I visit and stay with her in Paris, and just like [Janet my election volunteer's](../2024/june.md#so-janet) insistence I stay with her in North London.
+- I was making so much money for porn-world, everyone thought they'd try and get a share in it.
 - Malta was likely North London's finest's attempt to get me back making money on the porn-networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, unconscious, naked, raped-and-humiliated me.
-- They made an international star of me, didn't they, which put me in constant danger everywhere I went in the world.
+- They made an international rape-porn star of me, didn't they, which put me in constant danger everywhere I went in the world!
+- And no one cared. 
+- They all looked at it, enjoyed and delighted in it, and then denied it.
+- Everyone left me for dead.
 - In Malta they might have also felt safer about affecting my "accidental" demise where, like in Spain or France, doctors might be more easily paid off to make false statements about cause-of-death of a foreigner, or what was behind your completely healthy 5-year-old having to suddenly use a colostomy bag, etc., just like they do in Dénia.
 
 ### Reminding Paul about the money I'm offering for any porn with me starring
