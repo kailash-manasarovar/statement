@@ -76,6 +76,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 
 - As my mind clears and my heart heals from decades of abuse at the hands of the Canos, the Smiths, and their associates in Dénia, France, and North London, clearer memories of what happened to me and by whom are returning.
 - I realize now that the *trumpet teacher* was made up of eight distinct men who came to the conservatory of Dénia under the role of teacher and using the name Vidal Sastre Sanchez Hornero.
+- I suspect only two or three of these men could actually play the trumpet.
 - As I suspected, the fact that there were so few chamber music classes that year must have been due to the unavailability of some or all of the men on certain nights, while it was *essential* they all turned up at my apartment after class while I was sedated.
 - You cannot imagine how shocking it is for me to learn that I mistook all these men, of extremely different shapes and sizes, for one single man.
 - It is even more disturbing to me that most of the town of Dénia and beyond, including many children, and even some of my tech-colleagues at work, knew what was going on; and thought it was something to laugh and jeer about.
@@ -161,15 +162,15 @@ The chances of me being one of the eldest victims in the conservatory system (th
 
 #### 2. A dashing, good-looking, bit thick younger man with more hair than the rest of them
 
-- My guess is they get this very good-looking man in to do the initial meet and greet, and maybe bring him back from time to time, but not too often cos he's not so bright.
-- This was the man who [set up the love-triangle trick with Ana](../../timeline/2022/november.md#the-trumpet-teacher) in the first class, but was faffing around a lot with the timing of it.
-- He also introduced himself at that class, poorly, as *Vidal*. Meaning, I didn't really believe him but this knowledge was far away while out-of-my-mind on hallucinogens or whatever.
-- This was the man who did a terrible job at [attempting to arrange in-person meetings with me](../../timeline/2023/february.md#ptsd) which induced a massive panic attack.
+- My guess is they get the very good-looking man in to do the initial meet and greet, and maybe bring him back from time to time, but not too often cos he's no good at lying.
+- This was the man who [set up the love-triangle trick with Ana](../../timeline/2022/november.md#the-trumpet-teacher) ar the first class, but was faffing around a lot with the timing of it.
+- He also introduced himself at that class, poorly, as *Vidal*. Meaning, I didn't really believe him but this awareness was far away while out-of-my-mind on hallucinogens or whatever.
+- This was the man who did a terrible job at [attempting to arrange in-person *dates* with me](../../timeline/2023/february.md#ptsd). His attempted induced in me a massive panic attack.
 - Tall, muscular, perhaps better-tempered than the others - I made him laugh once uproariously, as I remember - larger in stature than [Mark](#1-mark); this man is probably in his mid-to-late forties, and he had a lot more hair than the rest of them.
 - I have a strange sensation he wore purple of some variety but I'm not sure. He may have had bright green sneakers.
 - I don't think he turned up all that much for conservatory classes.
-- This was the man they put on the *Vidal Sastre Sanchez Hornero* Facebook profile standing with two teenage girls, all three of them looking a bit embarrassed.
-- He may well be the handsome man preening himself in second to the right among three other brutes who appeared to be brothers; a pic on numerous fake accounts I was shown repeatedly on X, but I never screenshot for some strange reason.
+- This was the man they put on the *Vidal Sastre Sanchez Hornero* Facebook profile I looked up in December 2023. He was standing windswept with two teenage girls - I assumed his daughters - and all three of them looked a bit embarrassed.
+- He may well be the handsome man preening himself second to the right among three other brutes who appeared to all be brothers; a pic on numerous fake accounts I was shown repeatedly on X, but I never screenshot for some strange reason.
 
 #### 3. The brother of the woman working at Mercadona
 
