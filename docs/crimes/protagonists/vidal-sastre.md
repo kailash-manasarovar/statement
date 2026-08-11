@@ -142,7 +142,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 #### 1. Mark
 
 - This was the man I saw most often at the conservatory, and I was always anxious around him.
-- Tall, muscular, always dressed in black; I would recognize this man immediately if I saw him again.
+- Tall, muscular, bad-tempered, and always dressed in black; I would recognize this man immediately if I saw him again.
 - He was the man [Patricia Penny *introduced* me to in Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class after swapping with the [good-looking one who had just set up the love-triangle trick with Ana](../../timeline/2022/november.md#the-trumpet-teacher).
 - He was the man that [stalked me at Lourdes](../../timeline/2021/march.md#the-portuguese-man-next-door) in 2020, perhaps also setting up sedated-rape events in my studio there.
 - I remember him [driving Auggie](../../timeline/2001-to-2010/2001.md#amsterdam) in 2001 in Amsterdam, along with [the man who set up a fake job interview with me in 2016](#6-viktor-or-danny-the-man-that-interviewed-me-for-a-job-in-2016). They were both in the bar the night before.
@@ -152,11 +152,11 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - I was working for Lorraine Blackbourn at the time, and this Mark looked a lot like her husband who she hadn't yet left.
 - I remember seeing this man numerous times at the conservatory during the switcheroo scam, including but not limited to the following examples:
 
-    - He was the man involved in [poisoning me by overdose](../../timeline/2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice. [Number 3](#3-a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair) was also at this class.
-    - He was the man who went came back with copied music sheets from Gloria every class. I believe [number 3.](#3-a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair) went off for them initially.
+    - He was the man involved in [poisoning me by overdose](../../timeline/2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice. Numbers [2](#2-the-brother-of-the-mercadona-check-out-woman) and [3](#3-a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair) were also at this class.
+    - He was the man who returned with copied music sheets from Gloria every class, right after number [2](#2-the-brother-of-the-mercadona-check-out-woman) or [3](#3-a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair) had left the classroom to do the copying initially.
     - He [handed me his phone](../../timeline/2023/march.md#the-trumpet-teacher-hands-me-his-phone) in a weird manner..
     - He was the man who [was angry at me](../../timeline/2023/april.md#back-in-chamber-music-class) after I followed the `@jctot19` account, and could not look me in the eye when I stared at him.
-    - He presided, along with [Bruno](#4-a-man-called-bruno-with-at-least-one-son-called-bruno) and [number 2.](#2-the-brother-of-the-mercadona-check-out-woman), at the [May 2023 concert](../../timeline/2023/may.md#chamber-music-concert) along with the three children in attendance.
+    - He presided, along with [Bruno](#4-a-man-called-bruno-with-at-least-one-son-called-bruno) and [number 2](#2-the-brother-of-the-mercadona-check-out-woman), at the [May 2023 concert](../../timeline/2023/may.md#chamber-music-concert) along with the three children in attendance.
     - He was the man who led my *funeral* on [12th June 2023](../../timeline/2023/june.md#monday-12th-june-2023).
 
 #### 2. The brother of the Mercadona check out woman
