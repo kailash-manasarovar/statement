@@ -248,12 +248,12 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - In the Autumn of 2023, I saw him [driving Ana Requena's (trumpet teacher girlfriend) blue car slowly past me](../../timeline/2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car) close to my apartment.
 - He knew I'd recognize him as *trumpet teacher*.
 - My view today is that whenever he did this, he was about to enter, or just had been in my apartment while I was sedated. A few times I saw men that looked just like him in cars outside my apartment, but I never mistook any of them for the trumpet teacher. I knew they were relations though. Some of them were driving flash cars. I expect these men had been in my home too. I'd remember them as well as this man.
-- He was one of the men in the bar with [Brian in Amsterdam in 2001](../../timeline/2001-to-2010/2001.md#amsterdam) and in the cars the next morning.
-- This man also [interviewed me for a job where I would be looking at genitals all day](../../timeline/2011-to-2020/2016.md#march) in 2016, and I saw him in the town not long after.
+- He was one of the men in the bar with [Brian in Amsterdam in 2001](../../timeline/2001-to-2010/2001.md#amsterdam) and in one of the cars the next morning. I may have told him he was greasy before going unconscious in the bar and being led back to our room.
+- This man also [interviewed me online for a job where I would be looking at genitals all day](../../timeline/2011-to-2020/2016.md#march) in 2016, and I saw him in the town not long after.
 - At the time, he told me his name was Viktor, but I suspect his name is Dani for some reason.
 - This man, and the previous one, are the man (men) I gave [the nickname Vigas](../../timeline/2024/august.md#interview-with-the-hacker) to when nothing made any sense.
 - I suspect he ran the [Beams grooming account](../../timeline/2024/may.md#beams) which connected with me just after [intense drugging and sexual-training](../../timeline/2024/april.md#drugged-in-the-street-by-denia-gypsies) right before I left for Madrid on my way to attending the [Bali work event with my employer Polygon Labs](../../timeline/2024/may.md#bali).
-- He is the man that [prayed the rosary with me while I was sedated](../../timeline/2024/may.md#madrid) in my hotel room at the Princesa Plaza, Madrid at that time.
+- He is the man that [prayed the rosary with me while I was sedated](../../timeline/2024/may.md#madrid) in my hotel room at the Princesa Plaza, Madrid, at that time.
 - He is the man depicted as *monster* on this [police statement's front cover](../../index.md) on the right sitting beside a good likeness of Domingo Cano Lopez.
 
 #### 7. The pangolin
