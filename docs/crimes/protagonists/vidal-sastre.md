@@ -171,7 +171,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - I don't think he turned up all that much for conservatory classes.
 - This was the man they put on [the *Vidal Sastre Sanchez Hornero* Facebook profile](../../timeline/2022/december.md#chamber-music-classes) I looked up in December 2022. He was standing windswept with two teenage girls - I assumed his daughters - and all three of them looked a bit embarrassed.
 - He may well be the handsome man preening himself second to the right among three other brutes who appeared to all be brothers; a pic on numerous fake accounts I was shown repeatedly on X, but I never screenshot for some strange reason. Thinking about it, it may be that his picture was so out of context in these photos I was unable to make a solid mental connection.
-- I would recognize this man immediately if I saw him again.
+- Nevertheless, I would recognize this man immediately if I saw him again.
 
 #### 3. The brother of the woman working at Mercadona
 
