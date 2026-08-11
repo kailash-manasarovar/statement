@@ -131,7 +131,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 ### Seven devils
 
 - Seven men made up the rest of the trumpet teacher gang.
-- The first three ([1.](#1-mark), [2.](#2-the-brother-of-the-mercadona-check-out-woman), and [3.](#3-a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair)) seemed to be closely related to the [man now working for me](#the-older-slimmer-shorter-greyer-man-the-angel).
+- The first three ([1.](#1-mark), [2.](#2-a-dashing-good-looking-bit-thick-younger-man-with-more-hair-than-the-rest-of-them), and [3.](#3-the-brother-of-the-woman-working-at-mercadona) seemed to be closely related to the [man now working for me](#the-older-slimmer-shorter-greyer-man-the-angel)).
 - And I would put money on all these men being closely related to Lorraine's ex-husband, implicated in the horror-rape-porn that led to her death by suicide.
 - A further three men making up the gang also seemed to be closely related, but with significantly different family characteristics: ([5.](#5-dark-thick-curly-haired-deep-set-man), [6.](#6-viktor-or-danny-the-man-that-interviewed-me-for-a-job-in-2016), and [7.](#7-the-pangolin)). 
 - These three did not turn up to classes at the conservatory but undoubtedly entered my apartment after I'd gone to bed and been sedated. I wonder if Lorraine's ex turned up too. It seems likely, something kept reminding me of her.
@@ -152,21 +152,14 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - I was working for Lorraine Blackbourn at the time, and this Mark looked a lot like her husband who she hadn't yet left.
 - I remember seeing this man numerous times at the conservatory during the switcheroo scam, including but not limited to the following examples:
 
-    - He was the man involved in [poisoning me by overdose](../../timeline/2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice. Numbers [2](#2-the-brother-of-the-mercadona-check-out-woman) and [3](#3-a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair) were also at this class.
-    - He was the man who returned with copied music sheets from Gloria every class, right after number [2](#2-the-brother-of-the-mercadona-check-out-woman) or [3](#3-a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair) had left the classroom to do the copying initially.
+    - He was the man involved in [poisoning me by overdose](../../timeline/2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice. Numbers [2](#2-a-dashing-good-looking-bit-thick-younger-man-with-more-hair-than-the-rest-of-them) and [3](#3-the-brother-of-the-woman-working-at-mercadona) were also at this class.
+    - He was the man who returned with copied music sheets from Gloria every class, right after number [2](#2-a-dashing-good-looking-bit-thick-younger-man-with-more-hair-than-the-rest-of-them) or [3](#3-the-brother-of-the-woman-working-at-mercadona) had left the classroom to do the copying initially.
     - He [handed me his phone](../../timeline/2023/march.md#the-trumpet-teacher-hands-me-his-phone) in a weird manner..
     - He was the man who [was angry at me](../../timeline/2023/april.md#back-in-chamber-music-class) after I followed the `@jctot19` account, and could not look me in the eye when I stared at him.
-    - He presided, along with [Bruno](#4-a-man-called-bruno-with-at-least-one-son-called-bruno) and [number 2](#2-the-brother-of-the-mercadona-check-out-woman), at the [May 2023 concert](../../timeline/2023/may.md#chamber-music-concert) along with the three children in attendance.
+    - He presided, along with [Bruno](#4-a-man-called-bruno-with-at-least-one-son-called-bruno) and [number 3](#3-the-brother-of-the-woman-working-at-mercadona), at the [May 2023 concert](../../timeline/2023/may.md#chamber-music-concert) along with the three children in attendance.
     - He was the man who led my *funeral* on [12th June 2023](../../timeline/2023/june.md#monday-12th-june-2023).
 
-#### 2. The brother of the Mercadona check out woman
-
-- This man was distinctive and different from the two I've just mentioned apart from in height and skin tone.
-- He looked exactly like his sister who works at the checkout in Mercadona, and not like Mark or the first man.
-- He may have been scared of Gloria, he certainly looked scared of her one evening when she came into the classroom unable to control her laughter.
-- Someone will be able to confirm.
-
-#### 3. A dashing, Heathcliff-sort, good-looking younger man with lots of black hair
+#### 2. A dashing, good-looking, bit thick younger man with more hair than the rest of them
 
 - This was the first man who did the initial trick with Ana.
 - He was also the one who tried to ask me out and failed.
@@ -177,6 +170,13 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - I believe I saw him on profile pics as the handsome man preening himself in amongst the three other brutes who appeared to be his brothers; a pic I saw repeatedly on X but never screenshot for some strange reason.
 - Similar to the Mark character in size and shape, but again there was something different about him; perhaps the longer and more fuller head of hair.
 - The fact that I mistook them all for one man means anytime I say "similar" should probably be disregarded.
+
+#### 3. The brother of the woman working at Mercadona
+
+- This man was distinctive and different from the two I've just mentioned apart from in height and skin tone.
+- He looked exactly like his sister who works at the checkout in Mercadona, and not like Mark or the first man.
+- He may have been scared of Gloria, he certainly looked scared of her one evening when she came into the classroom unable to control her laughter.
+- Someone will be able to confirm.
 
 #### 4. A man called Bruno, with at least one son called Bruno
 
