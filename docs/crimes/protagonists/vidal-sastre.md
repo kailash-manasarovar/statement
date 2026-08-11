@@ -214,26 +214,29 @@ The chances of me being one of the eldest victims in the conservatory system (th
 
 #### 5. Dark thick-curly-haired deep-set man
 
-- I don't remember this man ever being at the conservatory but I do remember him being in my apartment on a Monday night after chamber music class.
+- I don't remember this man ever being at the conservatory but I do remember him being in my bed at home one Monday night after chamber music class.
 - He was [in my bed calling my name](../../timeline/2023/april.md#dreaming-of-the-trumpet-teacher) which I thought must be a dream at the time, now not.
-- My view is that this trumpet teacher was testing to see my reaction to him after the spectacular events between myself and [my new friend](#the-older-slimmer-shorter-greyer-man-the-angel).
-- I was horrified to see him and turned my back on him immediately.
-- In Ireland in June, just before [Bruno attempts his claim on me](../../timeline/2023/june.md#sunday-18th-june-alicante-airport), someone sends me links to this man performing at a concert in which it looks like what they did to me is happening to another woman.
+- My view is that this trumpet teacher was testing to see my reaction to him after the spectacular events between myself and [my new friend](#the-older-slimmer-shorter-greyer-man-the-angel). I expect they thought our connection was anomalous, and were double checking to make sure.
+- It wasn't. I was horrified to see him there and turned my back on him immediately.
+- Perhaps that's what got the angel fired.
+- In Ireland in June 2023, just before [Bruno attempts his claim on me](../../timeline/2023/june.md#sunday-18th-june-alicante-airport), someone sends me links to this man performing at a concert in which it looks like what they did to me is happening to another woman.
 - We see him playing a solo at [the *funeral* of the young drugged-and-groomed girl behind him](../../timeline/2023/june.md#another-young-girls-funeral).
 - When I first saw this photo in June 2023 I recognized this man immediately as the trumpet teacher who had come to the conservatory to teach classes, except I have no recollection of this man ever being in the conservatory building.
 
 ![The dark curly-haired man with the big legs](../../content/images/hornero/tt-1-again.png)
 
 - You'll notice Carmen Lopez Cano was in attendance here playing the flute.
+- This man looks to be quite short, and I wonder if that's the main reason he didn't turn up to classes.
 
-[![Youtube](../../content/images/youtube-video.png)](../../timeline/2023/june.md#another-young-girls-funeral)
+<a href="https://www.youtube.com/watch?v=Td74vBNPrW0">
+<img src="/content/images/youtube-video.png">
+<img src="/content/images/youtube-video-2.png">
+</a>
 
-- This man looks to be quite short, and I wonder if that's the main reason why he didn't turn up to classes.
 - Notice the soloist's name is given as *Vidal Sastre Sanchez Hornero*.
 - I found lots more videos of concerts around Spain with trumpet soloists, or musical directors, having the same name, and all of them looked like different men, most of whom I had no recollection of at all!
 - Due to the age of the numerous YouTube films I found, I'm pretty sure they function as *music-student-porn-genre* international adverts which means the danger to children in the conservatory system in Spain is very well known - and it's likely my Belgian friend was aware of it as far back as 2011.
-- This was so far back, and no-one had any idea about how tough I really was yet, so I don't think this was an attempt at throwing this man under the bus; rather, perhaps, someone was trying to help me by showing me solid images of another member of the team, knowing that [Bruno](#4-bruno) was about to make his move and no woman has ever survived his advances.
-- I guess we'll find out soon.
+- No-one had any idea about how tough I really was when I first saw this video, so I don't think it was an attempt at throwing this man under the bus; rather, perhaps, someone was trying to help me by showing me solid images of another member of the team, knowing that [Bruno](#4-bruno) was about to make his move and no woman, girl, or baby has ever survived his advances.
 
 #### 6. Viktor (or Danny?) the man that interviewed me for a job in 2016
 
