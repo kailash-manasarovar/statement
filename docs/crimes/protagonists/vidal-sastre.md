@@ -132,11 +132,12 @@ The chances of me being one of the eldest victims in the conservatory system (th
 
 - Seven men made up the rest of the trumpet teacher gang.
 - The first three ([1.](#1-mark-from-english-class-in-2013), [2.](#2-the-brother-of-the-mercadona-check-out-woman), and [3.](#3-a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair)) seemed to be closely related to the [man working for me](#the-older-slimmer-shorter-greyer-man-the-angel).
-- I would put money on all these men being closely related to Lorraine's ex-husband, implicated in the horror-rape-porn that led to her death by suicide.
+- And I would put money on all these men being closely related to Lorraine's ex-husband, implicated in the horror-rape-porn that led to her death by suicide.
 - A further three men making up the gang also seemed to be closely related, but with significantly different family characteristics: ([5.](#5-dark-thick-curly-haired-deep-set-man), [6.](#6-viktor-or-danny-the-man-that-interviewed-me-for-a-job-in-2016), and [7.](#7-the-pangolin)). 
-- These three did not turn up to classes at the conservatory but undoubtedly entered my apartment after I'd gone to bed and been sedated. I wonder if Lorraine's ex turned up too. It seems likely, and something kept reminding me of her.
+- These three did not turn up to classes at the conservatory but undoubtedly entered my apartment after I'd gone to bed and been sedated. I wonder if Lorraine's ex turned up too. It seems likely, something kept reminding me of her.
 - One of the men, Bruno - Gloria the school receptionist's brother - looked nothing like any of the others ([4.](#4-a-man-called-bruno-with-at-least-one-son-called-bruno)) and probably had no genuine Spanish ancestry. He was the first one they offered up too.
-- Due to brain-damage, animal-training while sedated, extreme online manipulation, and intense drugging at classes, I mistook all these men for one single man - apart from number [7.](#7-the-pangolin) who I never saw in conscious awareness in Spain.
+- Due to brain-damage, animal-training while sedated, extreme online manipulation, and intense drugging at classes, I mistook all these men for one single man in conscious awareness.
+- I never saw number [7.](#7-the-pangolin) in conscious awareness in Spain, but when I did eventually see him, years later, I experienced the same feelings I had done whenever I saw the others, and my mind at some level knew him as *trumpet teacher*.
 
 #### 1. Mark from English class in 2013
 
