@@ -209,6 +209,7 @@ function googleTranslateElementInit() {
 
 - After sexual abuse in 1989, and then again when I went to the police in 2006, and then again in 2015, my hands made fists for months on end; day and night, fists!
 - Whenever I'm triggered, I make fists.
+- I made fists for days during this period.
 - Everything changes at that moment.
 - I realize that all the requests for money for Palestinian children I had seen on X over the last years were a scam. I'm relieved I never fell for it.
 
@@ -224,7 +225,6 @@ function googleTranslateElementInit() {
 - Even though I don't have the full picture of what's happening to me in Dénia, at the level of my nervous system, I recognize that what I'm seeing online comes from the same source as that which is happening to me.
 - In Israel, countless civilian barbarians are revealing their true nature for the world to see, while in Dénia countless Spanish and gitano barbarians are getting *as close* as they can to the same thing, and hiding themselves at the same time.
 - Cowards! Each and every one of them.
-- I later find out that the Jewish people in Israel on Sabbath, who could not look at their phones because of Jewish law, were wondering why the Arabs were looking at their phones so excitedly.
 - Never again is now.
 
 [![Never again is now](../../content/tweets/october-2023/never-again-is-now.png)](https://x.com/1FRGVN/status/1714685047117132195)
@@ -235,7 +235,7 @@ function googleTranslateElementInit() {
 
 ![Naama and Greta](../../content/images/naama-and-greta.jpg)
 
-- I felt like signing up to help the IDF.
+- I felt like signing up the IDF then and there.
 - Hackers will have been watching my reactions. 
 - Did the gangs decide to visit me this day; a golden opportunity to take advantage of the trauma-retriggering?
 - (It'll be in the porn, of course).
@@ -243,12 +243,12 @@ function googleTranslateElementInit() {
 
 ![Ariel](../../content/images/ariel.jpg)
 
-### Opinion
+### After understanding the true nature of what was happening to me in Spain (written in August 2026)
 
-- It is my view that if porn-world - made up of millions maybe billions of men around the world and some women - wasn't paying for and delighting in rape, incest, gang-rape, sedated-gang-rape, sexual torture and uber-violence, spy-cam sex-slave porn of their unconscious colleagues and friends, horse porn, murder, pedophilia, bestiality, and baby rape every minute of every day of every week, the outcome of these vile acts would have been very different.
+- It is my view that if porn-world - made up of millions, maybe billions of men around the world and some women - wasn't paying for and delighting in rape, incest, gang-rape, sedated-gang-rape, sexual torture and extreme violence, spy-cam sex-slave porn of their unconscious colleagues and friends, horse porn, murder porn, pedophilia, bestiality, and baby rape every minute of every day of every week, the outcome of these vile acts would have been very different.
 - Instead, everyone looked at it, then looked away and denied it.
 - My view is that the porn-gangs of Dénia did come into my apartment that day, reveling in what was going on in the Middle East and my reactions to it, and made some sort of *special* to celebrate.
-- It'll be in the massive, overwhelming evidential collection that includes subscriber lists.
+- The evidence for that will be in the massive, overwhelming evidential collection that now includes subscriber lists.
 
 ## Strawberries
 
