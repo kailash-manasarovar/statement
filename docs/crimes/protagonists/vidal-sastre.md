@@ -130,10 +130,11 @@ The chances of me being one of the eldest victims in the conservatory system (th
 
 ### Seven devils
 
-- In editorial..
-- There could be two or three similar looking men making up these memories.
-- One or two of them looked enough like the [older, slimmer man](#the-older-slimmer-shorter-greyer-man-the-angel) for me to mistake them after brain damage and whatever [sedated psychological mistaking-people training](#sedated-training-for-recognizing-faces) they do.
-- One was different, I'm realizing now.
+- Seven men made up the rest of the trumpet teacher gang.
+- The first three ([1.](#1-mark-from-english-class-in-2013), [2.](#2-the-brother-of-the-mercadona-check-out-woman), and [3.](#3-a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair)) seemed to be closely related to the [man working for me](#the-older-slimmer-shorter-greyer-man-the-angel).
+- A further three men making up the gang also seemed to be closely related, but from a different family ([5.](#5-dark-thick-curly-haired-deep-set-man), [6.](#6-viktor-or-danny-the-man-that-interviewed-me-for-a-job-in-2016), and [7.](#7-the-pangolin)). These three did not turn up to classes at the conservatory but undoubtedly entered my apartment after I'd gone to bed and been sedated.
+- One of the men, Bruno - Gloria the school receptionist's brother - looked nothing like any of the others ([4.](#4-a-man-called-bruno-with-at-least-one-son-called-bruno)) and perhaps had no genuine Spanish ancestry.
+- Due to brain-damage, animal-training while sedated, extreme online manipulation, and intense drugging at classes, I mistook all these men for one single man - apart from number [7.](#7-the-pangolin) who I never saw in conscious awareness in Spain.
 
 #### 1. Mark from English class in 2013
 
