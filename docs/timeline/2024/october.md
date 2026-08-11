@@ -1031,7 +1031,7 @@ function googleTranslateElementInit() {
 - The last time I visit Mercadona near my house, during the last week of October just before I leave, I am mass-harassed.
 - A woman is standing still, pointing and laughing at me.
 - People are giving me weird looks.
-- The checkout lady looks like the sister of [the second trumpet teacher, Mark](../../crimes/protagonists/vidal-sastre.md#1-mark-from-english-class-in-2013).
+- The checkout lady looks like the sister of [the second trumpet teacher, Mark](../../crimes/protagonists/vidal-sastre.md#1-mark).
 - She's ashamed and won't look at me.
 - As I leave the store, the door slides shut and won't open for me.
 - I'm pressing the button, and I see the word "pervert" printed on the LED where it usually says "open".

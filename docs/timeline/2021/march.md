@@ -14,7 +14,7 @@ function googleTranslateElementInit() {
 - Sometimes, when I'm coming out of my apartment, he comes out of the one beside mine at exactly the same time, and he always looks at me.
 - He's wearing cycling or hiking gear, lycra.
 - He makes sure I see his face. 
-- He needs me to [recognize him in the future](../../crimes/protagonists/vidal-sastre.md#1-mark-from-english-class-in-2013).
+- He needs me to [recognize him in the future](../../crimes/protagonists/vidal-sastre.md#1-mark).
 - The reception staff know him to be Portuguese. 
 - He looks like [the Benijembla trumpet teacher](../2022/november.md#walking-in-benijembla-with-the-english-ladies), except I'm not to meet the trumpet teacher for 18-24 months still.
 - Whenever he visited, on usually a Sunday or Monday night, he got together with some of the younger men there and they had loud drinking sessions into the night and played loud rave music.

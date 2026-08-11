@@ -12,7 +12,7 @@ function googleTranslateElementInit() {
 
 - I had planned a trip to Egypt in December for Christmas but my flat in Lourdes (I had just moved apartments that October to a bigger one in the same complex) had a serious and intolerable bedbug problem.
 - It was about three weeks before I was due to leave for Egypt (I like climbing the mountain there... anyway).
-- The [trumpet teacher guy](../../crimes/protagonists/vidal-sastre.md#1-mark-from-english-class-in-2013) had been in and out of this apartment regularly before I moved into it and discovered it had a horrific bedbug problem.
+- The [trumpet teacher guy](../../crimes/protagonists/vidal-sastre.md#1-mark) had been in and out of this apartment regularly before I moved into it and discovered it had a horrific bedbug problem.
 - I couldn't understand how he had put up with it, at the time!
 - I changed all my plans and spent most of December in Dénia instead.
 - I stayed at two hotels and logged into their networks.

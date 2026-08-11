@@ -131,7 +131,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 ### Seven devils
 
 - Seven men made up the rest of the trumpet teacher gang.
-- The first three ([1.](#1-mark-from-english-class-in-2013), [2.](#2-the-brother-of-the-mercadona-check-out-woman), and [3.](#3-a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair)) seemed to be closely related to the [man now working for me](#the-older-slimmer-shorter-greyer-man-the-angel).
+- The first three ([1.](#1-mark), [2.](#2-the-brother-of-the-mercadona-check-out-woman), and [3.](#3-a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair)) seemed to be closely related to the [man now working for me](#the-older-slimmer-shorter-greyer-man-the-angel).
 - And I would put money on all these men being closely related to Lorraine's ex-husband, implicated in the horror-rape-porn that led to her death by suicide.
 - A further three men making up the gang also seemed to be closely related, but with significantly different family characteristics: ([5.](#5-dark-thick-curly-haired-deep-set-man), [6.](#6-viktor-or-danny-the-man-that-interviewed-me-for-a-job-in-2016), and [7.](#7-the-pangolin)). 
 - These three did not turn up to classes at the conservatory but undoubtedly entered my apartment after I'd gone to bed and been sedated. I wonder if Lorraine's ex turned up too. It seems likely, something kept reminding me of her.
@@ -139,35 +139,25 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - Due to brain-damage, animal-training while sedated, extreme online manipulation, and intense drugging at classes, I mistook all these men for one single man in conscious awareness.
 - I never saw number [7.](#7-the-pangolin) in conscious awareness in Spain, but when I did eventually see him, years later, I experienced the same feelings I had done whenever I saw the others, and my mind at some level knew him as *trumpet teacher*.
 
-#### 1. Mark from English class in 2013
+#### 1. Mark
 
-- In editorial..
-- He was the man [Patricia Penny *introduced* me to in Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class.
-- He was the man that [stalked me at Lourdes](../../timeline/2021/march.md#the-portuguese-man-next-door).
-- I believe [he was also driving Ugly](../../timeline/2001-to-2010/2001.md#amsterdam) in 2001.
-- I don't have a picture of this man but would recognize him immediately.
+- This was the man I saw most often at the conservatory, and I was always anxious around him.
+- Tall, muscular, always dressed in black; I would recognize this man immediately if I saw him again.
+- He was the man [Patricia Penny *introduced* me to in Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class after swapping with the [good-looking one who had just set up the love-triangle trick with Ana](../../timeline/2022/november.md#the-trumpet-teacher).
+- He was the man that [stalked me at Lourdes](../../timeline/2021/march.md#the-portuguese-man-next-door) in 2020, perhaps also setting up sedated-rape events in my studio there.
+- I remember him [driving Auggie](../../timeline/2001-to-2010/2001.md#amsterdam) in 2001 in Amsterdam, along with [the man who set up a fake job interview with me in 2016](#6-viktor-or-danny-the-man-that-interviewed-me-for-a-job-in-2016). They were both in the bar the night before.
+- He was also [a student in an English class I gave in 2013](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn). 
+- He called himself Mark and I believe that is his name.
+- I [found him attractive](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn), sitting right in front of my desk. He was flirting very gently with me.
+- I was working for Lorraine Blackbourn at the time, and this Mark looked a lot like her husband who she hadn't yet left.
+- I remember seeing this man numerous times at the conservatory during the switcheroo scam, including but not limited to the following examples:
 
-!!! tip "An intuitive's vision for a few years now"
-    - The thing about this man is that I see him walking up a street in the dark under streetlights with a small bundle under his arm.
-    - I've been seeing this for years now, it's one of those persistent visions.
-
-- He was also [the student from my English class in 2013](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn) who was calling himself Mark.
-- There'll be an official register somewhere.
-- He was someone I had [found attractive when I met him in 2013](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn) when I worked for Lorraine Blackbourn.
-- It's possible this man is related to Lorraine Blackbourn's ex-husband, a cousin maybe; they were indeed the same size and shape, and facial features.
-- He was the man I saw most often at the conservatory, and I was always anxious around him.
-- I remember seeing this man numerous times, including but not limited to the following examples:
-
-    - At the first class in [November 2022](../../timeline/2022/november.md#the-trumpet-teacher) there he was hovering over Ana Requena after timing a meeting at the toilet.
-    - He was the man involved in [poisoning me by overdose](../../timeline/2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice.
-    - He was the man who brought the music sheets from Gloria and [handed me his phone](../../timeline/2023/march.md#the-trumpet-teacher-hands-me-his-phone).
-    - The man who [was angry at me](../../timeline/2023/april.md#back-in-chamber-music-class) after I followed the `@jctot19` account.
-    - The man who switched with [the other large man](#4-a-man-called-bruno-with-at-least-one-son-called-bruno) right at the end of the [May 2023 concert](../../timeline/2023/may.md#chamber-music-concert).
-    - The man who led my *funeral* on [12th June 2023](../../timeline/2023/june.md#monday-12th-june-2023).
-    - He was in the bar with [Brian and Ugly in Amsterdam in 2001](../../timeline/2001-to-2010/2001.md#amsterdam) and driving the next day.
-
-- I don't have a picture of this man but would recognize him immediately.
-- Tall, muscular, always dressed in black.
+    - He was the man involved in [poisoning me by overdose](../../timeline/2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice. [Number 3](#3-a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair) was also at this class.
+    - He was the man who went came back with copied music sheets from Gloria every class. I believe [number 3.](#3-a-dashing-heathcliff-sort-good-looking-younger-man-with-lots-of-black-hair) went off for them initially.
+    - He [handed me his phone](../../timeline/2023/march.md#the-trumpet-teacher-hands-me-his-phone) in a weird manner..
+    - He was the man who [was angry at me](../../timeline/2023/april.md#back-in-chamber-music-class) after I followed the `@jctot19` account, and could not look me in the eye when I stared at him.
+    - He presided, along with [Bruno](#4-a-man-called-bruno-with-at-least-one-son-called-bruno) and [number 2.](#2-the-brother-of-the-mercadona-check-out-woman), at the [May 2023 concert](../../timeline/2023/may.md#chamber-music-concert) along with the three children in attendance.
+    - He was the man who led my *funeral* on [12th June 2023](../../timeline/2023/june.md#monday-12th-june-2023).
 
 #### 2. The brother of the Mercadona check out woman
 
