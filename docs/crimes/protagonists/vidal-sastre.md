@@ -181,7 +181,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - He seemed frightened at times, as if he was suffering stage fright.
 - Once when I tried to talk to him about music, he sort of clammed up.
 - I don't think this man plays the trumpet. He didn't seem to know much about music.
-- He may have been scared of Gloria; he certainly looked scared of her one evening when she came into the classroom unable to control her laughter and I was trying to talk to him about something.
+- He may have been scared of Gloria; he certainly looked scared of her one evening when she came into the classroom unable to control her laughter as I was trying to talk to him about something.
 - The Mercadona connection is interesting given how [the staff there terrorized me](../../timeline/2024/october.md#mercadona) the week the Lopez Cano's were trying to murder me through the water supply to the property.
 
 #### 4. A man called Bruno, with at least one son called Bruno
