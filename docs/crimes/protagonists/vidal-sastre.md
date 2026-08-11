@@ -244,10 +244,10 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - I do have numerous memories of seeing this man since 2001.
 - He was the man I saw in the banged up Peugeot driving on my road on the 11th June 2023, [the day before my *funeral*](../../timeline/2023/june.md#sunday-11th-june).
 - I had also seen him [driving past my building](#) as I was going to class one morning in May. This was the day that the conservatory teachers were having a big meeting so I assumed he had to leave early to get back to Valencia and his job at the secondary school!
-- I also saw this man in a [drive by at the beach, with the doctor in the passenger seat,](../../timeline/2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me) and this event is a solid link to the chamber music classes at the conservatory.
+- I also saw this man in the same Peugeot in a [drive-by at the beach, with the doctor in the passenger seat](../../timeline/2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me); a solid link to the chamber music classes at the conservatory.
 - In the Autumn of 2023, I saw him [driving Ana Requena's (trumpet teacher girlfriend) blue car slowly past me](../../timeline/2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car) close to my apartment.
 - He knew I'd recognize him as *trumpet teacher*.
-- My view today is that whenever he did this, he was about to enter, or just had been in my apartment while I was sedated. A few times I saw men that looked just like him in cars outside my apartment, but I never mistook them for the trumpet teacher, only relations of. I expect these men had been in my home too. I'd remember them as well as this man.
+- My view today is that whenever he did this, he was about to enter, or just had been in my apartment while I was sedated. A few times I saw men that looked just like him in cars outside my apartment, but I never mistook any of them for the trumpet teacher. I knew they were relations though. Some of them were driving flash cars. I expect these men had been in my home too. I'd remember them as well as this man.
 - He was one of the men in the bar with [Brian in Amsterdam in 2001](../../timeline/2001-to-2010/2001.md#amsterdam) and in the cars the next morning.
 - This man also [interviewed me for a job where I would be looking at genitals all day](../../timeline/2011-to-2020/2016.md#march) in 2016, and I saw him in the town not long after.
 - At the time, he told me his name was Viktor, but I suspect his name is Dani for some reason.
@@ -273,6 +273,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 ![The deep-set man](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)
 
 - I believe I saw this person, the grown-up version, on the beach on [6th October 2024](../../timeline/2024/october.md#possum-man-on-the-beach) and I have a body cam image of that man and a bunch of other middle-aged local gentlemen who came out specifically to terrorize me that afternoon.
+- And of course, as mentioned, the numerous male relations I often saw driving past my apartment.
 
 ### AI mix of the trumpet teachers faces
 
