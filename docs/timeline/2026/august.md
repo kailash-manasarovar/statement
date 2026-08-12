@@ -54,10 +54,12 @@ function googleTranslateElementInit() {
 ## God is the Spy-Master
 
 - He's been planning things for eternity, and already had our roles set out for us.
-- He knew that, at the right time, we would remember Him and from that moment never question His Authority so that we could carry out His Plan as He wants it.
+- He knew that, at the right time, regardless of whatever we'd been doing up to that point, we would remember Him.
+- He knew that from then we would never question His Authority so that we could carry out His Plan as He wants it.
 - So he tells us what to say, do, think, and more importantly when.
+- Just like the spies do. It's so wonderful.
 - And we do it.
-- And even when it looks like it's a total catastrophe, we trust the Way He has set us on.
+- And even when it looks like it's a total catastrophe, and we cannot understand anything that's going on, and we're suffering and sad, we still trust the Way He has set us on.
 - We don't necessarily understand the why of His Instructions but we never question His Judgment and Authority.
 - So it's like that.
 - Anything else is hit-or-miss speculation, as you may have noticed.
@@ -66,5 +68,6 @@ function googleTranslateElementInit() {
 
 ![Eclipse](../../content/images/eclipse.webp)
 
-- We made it, my love.
-- A photo from right over Irene's house/business would be a miracle of miracles.
+- We made it, my love. (We used to chat about this eclipse a lot, back in the day on X :D)
+- A photo from right over [Irene's](../2024/august.md#irene-the-plate-lady) house/business/home town would be a miracle of miracles.
+- I sense she's never stopped praying for justice either.
