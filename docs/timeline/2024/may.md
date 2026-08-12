@@ -911,8 +911,8 @@ function googleTranslateElementInit() {
 - Anyway.
 - There was a young Russian man on the team but he rarely came to meetings, and said nothing at all of any value when he was there.
 - I believe he was a porn star, hired to rape me while sedated.
-- Why do I believe this?
-- He looked very familiar. He was a muscle man. And he would definitely be the type. And there was no other reason for him working for the firm as he was no engineer at all.
+- Or perhaps he paid for a ticket to Bali and the chance to rape a female tech colleague who has been starring in spy-cam sex-slave rape-porn for years.
+- He looked very familiar. He was a muscle man. And he would definitely be the porn-star type. And there was no other reason for him working for the firm as he was no engineer at all.
 - He clearly did not know the job he was apparently doing.
 - The team lead, another Russian man, a cool guy (I don't think he came to Bali) was fired a few weeks after Bali.
 - I believe because he was starting to get suspicious about this useless man, and others, and perhaps there was some gossip going on about me, and the hundreds of men queuing outside my hotel room every night after 10pm when I'd gone to bed, and then Elon turning up.
@@ -920,6 +920,7 @@ function googleTranslateElementInit() {
 - The night I flew home, this guy, the Russian porn-star muscle man, followed me around the airport the whole time, just like they would do in Spain when I was out shopping, pretending they just "happened to be there", but always looking, or hopping, excited, snickering.
 - He was so obvious, I went over to speak to him.
 - He grinned inanely, and I kind of knew at that moment there was something going on I wasn't aware of, but should be.
+- Was he feeling guilty and checking to make sure I didn't remember what he'd done? Like they do?
 - I think he was hired to "perform", just like the Pakistani Yorkshireman, and the porn will prove it all, and in fact millions of men are already aware of all this evil.
 - Can anyone could be bothered protecting women from their porn-addict colleagues who seem to be with no limits on the evil they might think up and execute, quite certain they will never be held to account.
 - How many more like me? Must be hundreds.

@@ -40,6 +40,7 @@ function googleTranslateElementInit() {
 - Or another would be told how to act with me, and sometimes it was so ridiculous I found it quite amusing.
 - They were taking roles, and swapping them, and I think even the dogs were trained.
 - It was total bananas.
+- One day I'll tell you about the robots too! WOW!
 - Anyway.
 - At lunch that day there was someone important in Bali who had known what had happened with Polygon at the Hyatt.
 - Did he organize Elon's visit that week?
