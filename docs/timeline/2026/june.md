@@ -158,11 +158,31 @@ function googleTranslateElementInit() {
 - Who thinks I'm here because some awful memory is about to return?
 - Is anyone gonna do anything now? Or is this what women and girls and boys and babies can expect until Mother Nature whoops our arses?
 
-## Bali ugly -wip
+## Bali
+
+### Holiday Inn
+
+- The hotel was *packed* with agents, Americans, Australians, Brits, Indians, Israelis, my lovely Turkish friends.
+- I was wondering if they were going to run out of agents.
+- I did start seeing faces I've seen before.
+- Some of them got a bit excited at times - the Americans/Brits - and I had to tell them to stop fannying around, which was funny, everyone laughed.
+- They really outdid themselves with the Elon event they set up on the full moon, that was hilarious.
+- Was that actually Elon?
+- But we all became good friends, I think, I hope.
+- The best thing was when all the agents did the water aerobics with me on our last day.
+- It was bananas!
+- Easily my favorite agent extravaganza to this day.
+
+### Memories
+
+- I realize I came to Bali and stayed here because it's right next door to the Hyatt where I was sedated and raped by hundreds probably for a whole week in May 2024 with work on a work's event with the whole company and their special guests from all over the world.
+- I start to remember a whole load of things.
+- It's gonna be just like [the seven devils](../../crimes/protagonists/vidal-sastre.md#seven-devils), isn't it.
 
 ### I was right about Elon's spy, wasn't I
 
-- Is that why he desperately ran after Trump to China, committing a crime by doing so?
+- I realize everyone in Tibet was an agent too. And one of them, I believe, was working directly for Elon.
+- Is that why he desperately ran after Trump to China just before my trip, committing a crime by doing so?
 - Well, I guess the gypsies care not at all about it - apart from the multitude of squirrels ready to cash in - but I'm sure Elon does now, doesn't he.
 - Perhaps even [the Russian](../2024/may.md#the-russian-porn-star) was filming? 
 - Well, you would wouldn't you, if you were a cold-hearted pervert with nothing to lose.

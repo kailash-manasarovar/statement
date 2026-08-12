@@ -8,10 +8,49 @@ function googleTranslateElementInit() {
 }
 </script>
  
-## Taking a break
+## Loka yoga
 
-- What happens when decades of 24-7 stress and trauma finally has the opportunity to release?
-- I'll let you know..
+- YTT.
+- I decide to try and do productive things with my time while I'm stalked endlessly by international security services and criminal gangs (not so much criminal gangs anymore and certainly not in the Far East).
+- I pick a month's long yoga teacher training course in Bali.
+- It's agents. Everyone there. Is an agent.
+- The whole thing is set up for me.
+- I endure an intense psychological breaking day or two - this was really horrible - and I quickly realize they're not who they say they are, but something is very interesting about what's going on, I'm hooked on finding out the truth, and so I tell them I'm only coming in for the yoga at the beginning of the day.
+- For two weeks, I do yoga between 6-8am, and I stay the rest of the day, on my own, in silence in a house in Bali in the middle of nowhere.
+- There's agents next door though, on all sides. But they don't talk to me.
+- Eventually, I decide I'm leaving because I feel like I'm under house arrest - like I don't mind extended house arrest such as in Samui (apart from when it affects the local businesses, I don't like that) but this was OTT.
+- It was clear to me, eventually, that the people "arresting" me, as it were, although on my side in certain respects (law-enforcement being the main one) they do not have my/our long term best interests in mind.
+
+### Someone is trying to break me psychologically, why
+
+- Why would they do that? 
+- What purpose does something like that serve?
+- I thought they were trying to recruit me as a spy, so I declined and escaped to Israel.
+- I'm still not sure why friends (I'm sure they're friends) would bully someone they want to be friends with so badly.
+- I hate bullies and I get cross with them and they quite often end up regretting it; everyone knows, it's in my file.
+- Oh wait... did they want me to write about all this?
+- Genius!
+
+### A meeting with someone famous in Bali who knows what happened at the Hyatt in May 2024
+
+- They set up an event where we all went for a walk and had lunch.
+- The psychological nonsense went on all day; it was pretty intolerable except I had fallen in love with all of my classmates by then so it wasn't too bad.
+- It was funny though.
+- I'd be chatting to one of them, and they'd get a flea in their ear about something, and run off, or make excuses and stop the talk, or bring up something totally tangential for no reason.
+- Or another would be told how to act with me, and sometimes it was so ridiculous I found it quite amusing.
+- They were taking roles, and swapping them, and I think even the dogs were trained.
+- It was total bananas.
+- Anyway.
+- At lunch that day there was someone important in Bali who had known what had happened with Polygon at the Hyatt.
+- Did he organize Elon's visit that week?
+- And the lunch was all a bit cloak and dagger, and hush hush, and I was getting used to all this.
+- And all the yoga students (agents) were prompting me to say things, and, we're sitting right beside this Bali VIP, and, never one to disappoint, after the man (my yoga chum aka agent) had told me, loudly, that he'd been unconscious for a whole week years before, and he didn't know what had happened to him during this time but he'd had PTSD ever since, I got very cross and said rather loudly: 
+- *I hate it that they did that to you. They're such shit bastards aren't they!*
+- And the other agent lady who I love sitting in between this VIP man and his wife and our classmate spat out her tea!
+- It was hilarious.
+- So, a positive result of my Bali stay was I have been thinking about May 2024's events more closely, and remembering even more weird things, and realizing that I was probably sedated and raped for most of that week with my employer, crypto-giant [Polygon Labs](https://polygon.technology/about).
+- And I have to wonder who's turn it's been on their other off-sites since then, and before too, and whether this is now an industry expectation: *rape the female colleague you hate on our off-sites*.
+- Do you think they add it to job ads and specs, *special events* maybe, like they say at the swingers club in Dénia?
 
 ## Yet another (fake) bridge collapses, again
 
