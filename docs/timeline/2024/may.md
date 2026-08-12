@@ -687,6 +687,21 @@ function googleTranslateElementInit() {
 - No one else is grinding or behaving in a sexualized manner anywhere else.
 - Was I in a live rape show of some variety? 
 
+### Missing time on a trip with Anthony
+
+- During the week, you could choose which trip you wanted to go on.
+- I don't remember ever getting a choice.
+- I do remember being on a long boat trip with Anthony for one of these trips.
+- He made sure to sit with me on the bus to the ferry.
+- We had a long chat on the boat about our professional lives and I could describe the details of our chat very specifically, things he told me, things I told him. I could give a very detailed account of what we said.
+- The Spanish (porn-gang members) were on the boat with us.
+- They're always so pale skinned and black haired like they never see the sun.
+- No-one else on the boat spoke to me, or even acknowledged me when I tried to say hi or nodded.
+- They looked away.
+- I didn't know any of them either, they were unfamiliar people.
+- It's possible Jordi and David were with them, however. Jordi never once spoke to me. David might have nodded hi.
+- I don't remember getting off the boat, where we went, the boat trip back, or how I got back to the hotel that day.
+
 ### People who I see a lot but have never worked with
 
 - And never see again.
@@ -717,9 +732,28 @@ function googleTranslateElementInit() {
 - I say a few words and sit down.
 - They all leave quickly, as if my physical presence is somehow appalling to them.
 - Could it be guilt?
+- Many of the other men did the same to me that week. It was like they gulped and went silent whenever I turned up next to them conscious and tried to speak to them. 
 - It reminds me of another occasion at my apartment, back in 2001, when we'd had a bunch of "mates" around for drinks.. but this was just a couple of months [after Ugly in Amsterdam](../2001-to-2010/2001.md#amsterdam).
 - The next morning, when I woke up everyone had left before I got up, which in retrospect is very weird and implies guilt.
 - I wonder if you got some footage of that "date" too Ugly?
+
+### People telling me they're leaving, some promotions
+
+- During this week, men came up to me (IT Support manager significantly) to tell me they were resigning.
+- They wouldn't say why though.
+- The IT Director also handed his resignation in.
+- Some men got bumped up, and they were men who had been unable to look me in the eye in Bali, but didn't care because they got these massive promotions (IT Support manager significantly, a Southerner American. I thought he was cool.)
+
+#### A chat with the IT director
+
+- I was so worried about Hans's behavior and the fact no-one was going to do anything about it, I spoke to the IT director in Bali one evening.
+- Black guy, can't remember his name. Grace didn't like him.
+- He was with a woman he'd brought along to the event and they were sitting having a drink in one of the bars.
+- No-one else was around so I went to sit with them, and I ask him for help with Hans.
+- The strange thing about that chat was the woman glared at him endlessly. She didn't take her eyes off him. It was very weird, and I didn't understand it.
+- Perhaps, now, I do understand. He knew what was happening to me, and had told her, and she was expecting him to warn me.
+- He handed notice in to the firm the week after we got back from Bali.
+- Like many, many others did.
 
 ### Telling people about the forgivenet
 
