@@ -55,12 +55,12 @@ function googleTranslateElementInit() {
 
 - He's been planning things for eternity, and already had our roles set out for us.
 - He knew that, at the right time, regardless of whatever we'd been doing up to that point, we would remember Him.
-- He knew that from then we would never question His Authority so that we could carry out His Plan as He wants it.
+- He knew that, from that instant, we would never question His Authority so that we could carry out His Plan exactly as He wants it carried out.
 - So we listen, and he tells us what to say, do, think, and more importantly when.
-- Just like the spies do. It's so wonderful.
-- And we do it.
-- And even when it looks like it's a total catastrophe, and we cannot understand anything that's going on, and we're suffering and sad, we still trust the Way He has set us on.
-- We don't necessarily understand the why of His Instructions but we never question His Judgment and Authority.
+- Just like real spies do. It's so wonderful.
+- And we obey Him.
+- And even when things look like a total catastrophe, and we cannot understand anything that's going on, and we're suffering and sad, we still trust the Way He has set us on.
+- We don't necessarily understand the Why of His Instructions but we never question His Judgment and Authority.
 - So it's like that.
 - Anything else is hit-or-miss speculation, as you may have noticed.
 - So Thank You Father for Your Love, Care, Guidance and for never leaving me/us.
