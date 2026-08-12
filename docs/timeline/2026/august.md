@@ -51,7 +51,7 @@ function googleTranslateElementInit() {
 - Chief Brody is freeze, initially, then he works his way back up through flight and fight to destroy the shark and save the day.
 - A little bit like us.
 
-## God is the Spy-Master
+## God is the Spymaster
 
 - He's been planning things for eternity, and already had our roles set out for us.
 - He knew that, at the right time, regardless of whatever we'd been doing up to that point, we would remember Him.
