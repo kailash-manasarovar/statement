@@ -71,8 +71,8 @@ function googleTranslateElementInit() {
 - We made it, my love. (We used to chat about this eclipse a lot, back in the day on X :D)
 - A photo from right over [Irene's](../2024/august.md#irene-the-plate-lady) house/business/home town would be a miracle of miracles.
 - I sense she's never stopped praying for justice either.
-- Can we go home now... oh wait!
+- *Can we go home now?*... oh wait!
 
 ![Brody and Hooper paddling home](../../content/images/brody-and-hooper-paddling-home.jpg)
 
-- (Aside: there's another moment in the film where someone says, "can we go home now". It's Charlie. *Run Charlie Run. Don't look back...* I don't know if anyone noticed that).
+- (Aside: there's another moment in the film where someone says, "can we go home now". It's Charlie. *Run Charlie Run. Don't look back...* I don't know if anyone noticed that #GreatRay).
