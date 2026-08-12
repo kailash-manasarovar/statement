@@ -814,6 +814,7 @@ function googleTranslateElementInit() {
 - I have reached out to Alicia in case what happened to her at Bali is relevant to this story and to the global tech-bro porn conspiracy, and to bringing down the baby-rape and sex-murder capital of the world that organizes all of this for the tech-bro pornocracy.
 - The little town in Spain where even [world-famous serial killers are protected](../2001-to-2010/2007.md#hazel-smith).
 - She does not respond.
+- Alicia is now CMO of a crypto company.
 
 ### Anthony
 
@@ -1044,6 +1045,8 @@ function googleTranslateElementInit() {
 
 - It occurs to me, with absolute horror, that the amount of women fully involved in prepping and organizing situations in which women and children and babies will be raped by thousands of men for porn is truly off the scale.
 - Miriam in Spanish HR is prime suspect here; as is Grace, close friends with Jordi.
+- Does Breeze Liu have something to hide? OKX, [with attendees at the sedated-sex show](#missing-time-at-the-beach-club), is investing in her [porn victim helping tech](https://alectoai.com/), which is ironic.
+- Was she there?
 - What have humans become?
 
 ## Collecting my devices from the technical expert DPR
