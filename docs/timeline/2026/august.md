@@ -75,4 +75,4 @@ function googleTranslateElementInit() {
 
 ![Brody and Hooper paddling home](../../content/images/brody-and-hooper-paddling-home.jpg)
 
-- (Aside: there's another moment in the film where someone says, "can we go home now". It's Charlie. *Run Charlie Run. Don't look back...* I don't know if anyone noticed that #GreatRay).
+- (Aside: there's another moment in the film where someone says, "can we go home now". It's Charlie. *Swim Charlie swim! Don't look back...* I don't know if anyone noticed that #GreatRay).
