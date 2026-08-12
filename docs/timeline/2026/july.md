@@ -18,7 +18,7 @@ function googleTranslateElementInit() {
 - I endure an intense psychological breaking day or two - this was really horrible - and I quickly realize they're not who they say they are, but something is very interesting about what's going on, I'm hooked on finding out the truth, and so I tell them I'm only coming in for the yoga at the beginning of the day.
 - For two weeks, I do yoga between 6-8am, and I stay the rest of the day, on my own, in silence in a house in Bali in the middle of nowhere.
 - There's agents next door though, on all sides. But they don't talk to me.
-- Eventually, I decide I'm leaving because I feel like I'm under house arrest - like I don't mind extended house arrest such as in Samui (apart from when it affects the local businesses, I don't like that) but this was OTT.
+- Eventually, I decide I'm leaving because I feel like I'm under house arrest - like I don't mind extended house arrest such as in Samui, where it's not like solitary confinement (apart from when it affects the local businesses, I don't like that) but this was OTT.
 - It was clear to me, eventually, that the people "arresting" me, as it were, although on my side in certain respects (law-enforcement being the main one) they do not have my/our long term best interests in mind.
 
 ### Someone is trying to break me psychologically, why

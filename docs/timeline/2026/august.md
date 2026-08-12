@@ -73,6 +73,6 @@ function googleTranslateElementInit() {
 - I sense she's never stopped praying for justice either.
 - Can we go home now... oh wait!
 
-![Brody and Hooper paddling home](../../content/images/brody-and-cooper-paddling-home.jpg)
+![Brody and Hooper paddling home](../../content/images/brody-and-hooper-paddling-home.jpg)
 
 - (Aside: there's another moment in the film where someone says, "can we go home now". It's Charlie. *Run Charlie Run. Don't look back...* I don't know if anyone noticed that).
