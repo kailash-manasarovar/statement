@@ -50,3 +50,21 @@ function googleTranslateElementInit() {
 - Mr Hooper is flight.
 - Chief Brody is freeze, initially, then he works his way back up through flight and fight to destroy the shark and save the day.
 - A little bit like us.
+
+## God is the Spy-Master
+
+- He's been planning things for eternity, and already had our roles set out for us.
+- He knew that, at the right time, we would remember Him and from that moment never question His Authority so that we could carry out His Plan as He wants it.
+- So he tells us what to say, do, think, and more importantly when.
+- And we do it.
+- And even when it looks like it's a total catastrophe, we trust the Way He has set us on.
+- We don't necessarily understand the why of His Instructions but we never question His Judgment and Authority.
+- So it's like that.
+- Anything else is hit-or-miss speculation, as you may have noticed.
+- So Thank You Father for Your Love, Care, Guidance and for never leaving me/us.
+- And I'll put a photo of the actual eclipse on here, but for now here's a different one.
+
+![Eclipse](../../content/images/eclipse.webp)
+
+- We made it, my love.
+- A photo from right over Irene's house/business would be a miracle of miracles.
