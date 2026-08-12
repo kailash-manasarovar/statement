@@ -819,6 +819,9 @@ function googleTranslateElementInit() {
 ### Anthony
 
 - I liked Anthony Matlala, he seemed to be on my side at first but when things started getting really hard for me, he was nowhere to be seen.
+
+![Anthony M](../../content/images/anthony-m.webp)
+
 - I wonder if he was conspiring with David and Jordi. He had such reverence for them.
 - Anthony is Christian and he even wrote a faith-based book which I found online and bought.
 
