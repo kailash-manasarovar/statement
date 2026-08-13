@@ -89,3 +89,4 @@ function googleTranslateElementInit() {
 - And that is why my widowhood is never ending; and once they had scanned me for viability (Dorset), and got eggs from me in Dublin (and then again in Bali, reopening the scar), they thought they'd finish me off in Tibet for good.
 - And I'm still here.
 - Anyway. Did you see the white dove this morning. She's in love!
+- Oh, and for the record, I'm totally open to a lot of fully-involved motherhood at this apparently late stage and I know God can make it happen!
