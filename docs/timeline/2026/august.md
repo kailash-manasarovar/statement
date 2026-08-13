@@ -80,7 +80,7 @@ function googleTranslateElementInit() {
 ## Unfortunately, my love
 
 - My rock solid confidence in God and His Love for us, and how He has planned all of this to get *all of us* out of our gargantuan, apocalyptic, and most-recent inevitable mess as quickly as possible, does not extend to many humans.
-- As usual, I think they're probably appalled at what God has delivered; it doesn't fit expectations, it threatens a deep reverence for porn and sexual violence, it threatens a more modern belief based in the ancient hate that the mother can be switcheroo-ed, and that - with zero evidence and contrary to everything God has told us in the course - miracles are a function of the cells of the body and have nothing to do with faith or God at all!
+- As usual, I think they're probably appalled at what God has delivered; it doesn't fit expectations, it threatens a deep reverence for porn and sexual violence, it threatens a more modern belief based in the ancient hate that the mother can be switcheroo-ed and thus made unnecessary, and that - with zero evidence and contrary to everything God has told us in the course - miracles are a function of the cells of the body and have nothing to do with faith or God at all!
 - God's representatives don't look right, and even when they do, their miracles are so shocking they must be stymied and controlled.
 - It's amazing that they have put so much resource, time, and effort into the *Better Way* and then when it turned up, they decided they didn't like it much.
 - But expected.
@@ -90,3 +90,6 @@ function googleTranslateElementInit() {
 - And I'm still here.
 - The murder of God's Son resulted in 2000 years of violence and murder.
 - The murder of God's Sons and Daughter this time around, I believe, results in the end of humankind for good (JC even said so in the bible).
+- Anyway. Did you see the white dove this morning. She's in love!
+- Also, regardless of anyone's beliefs, it's important to get the toxic stuff out of the way, aired, out of the field, it festers.
+- And, we won't get another opportunity like this again, so please don't f**k it up. Sorry for language.
