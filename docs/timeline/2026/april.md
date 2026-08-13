@@ -123,7 +123,7 @@ function googleTranslateElementInit() {
 - Yeah, I didn't know why they turned on me on that course, but they certainly did.
 - A little taste before the big one in Bali?
 - A test to see how I might take a bit of psychological torture?
-- I didn't take it well. But it's not the torture itself, it's the fact that people you thought you could trust are doing it.
+- I didn't take it well. But it's not the torture itself - I was everyone's breakfast, lunch, and dinner in Denia for years, remember? - it's the fact that people you thought you could trust are doing it.
 - That's what really gets me, the realization that something you thought you could always turn to as a safe space for healing has just disappeared, poof!
 - Anyway.
 - Clearly intending to get rid of me, drive me mad maybe, leave me desperate and unhappy, get the lab rat they need for some sick purpose, and let the rapists carry on killing and maiming.
