@@ -217,14 +217,14 @@ function googleTranslateElementInit() {
 - I take my father to play a jazz gig at the [Elephant Inn](https://www.elephantinnfinchley.co.uk/) in North Finchley.
 - After his fall, he remains pretty immobile, so we got a disabled-parking badge from Barnet council so I can park right outside the pub.
 - I leave him there, go back home, and go to collect him at about 11pm.
-- I feel like people are looking at me when I enter the pub and walk through the pool room to the back; nudging, maybe there's a snicker.
-- I get dad and we're leave the pub by the side door and start walking towards the car.
-- A couple of people, a youngish short woman with blond hair and a young man of similar height, steam past us. 
-- She is saying loudly in a sing-song manner: *There's something in the water. There's something in the water.*
+- I feel like people are looking at me when I enter the pub and walk through the pool room to the back; there's some nudging and looks, maybe a snicker.
+- I get dad, and we leave the pub by the side door and start walking towards the car along Hutton Grove in the direction of Ballard Lane.
+- A couple of people - a youngish (early 40s probably) short woman with blond hair and a younger man (early 30s maybe) of similar height steam past us. 
+- As she passes, grinning, she says loudly in a sing-song, teasing manner (like schoolkids do): *There's something in the water. There's something in the water.*
 - I recognize her.
-- It's [Lucy](january.md#pauls-best-friend-lucy), Paul's "friend".
-- I recognize her because he showed me her picture on his phone.
-- The jeering is, obviously, a sick reference to the poisoning at my Spanish apartment through the water supply to the property.
+- It's [lil' Lucy Adams](january.md#pauls-best-friend-lucy), Paul's "friend".
+- I recognize her because he showed me her picture on his phone and I saw her in the pub in Highgate too.
+- The jeering is, obviously, a sick reference to the poisoning and drugging at my Spanish apartment in Dénia through the water supply to the property.
 
 ## Let Women Speak April
 
