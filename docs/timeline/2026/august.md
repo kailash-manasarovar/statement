@@ -79,13 +79,14 @@ function googleTranslateElementInit() {
 
 ## Unfortunately, my love
 
-- My rock solid confidence in God and His Love for us, and how He has planned all of this to get us out of our gargantuan, apocalyptic, and inevitable mess as quickly as possible, does not extend to many humans.
-- As usual, I think they're probably appalled at what God has delivered; it doesn't fit expectations, it threatens a deep reverence for porn and sexual violence, it threatens a belief also based in the ancient hate that the mother can be replaced, and that - with zero evidence and contrary to everything God has told us in the course - miracles come from the cells of the body.
+- My rock solid confidence in God and His Love for us, and how He has planned all of this to get *all of us* out of our gargantuan, apocalyptic, and most-recent inevitable mess as quickly as possible, does not extend to many humans.
+- As usual, I think they're probably appalled at what God has delivered; it doesn't fit expectations, it threatens a deep reverence for porn and sexual violence, it threatens a more modern belief based in the ancient hate that the mother can be switcheroo-ed, and that - with zero evidence and contrary to everything God has told us in the course - miracles are a function of the cells of the body and have nothing to do with faith or God's wishes.
 - God's representatives don't look right, and even when they do, their miracles are so shocking they must be stymied and controlled.
 - It's amazing that they have put so much resource, time, and effort into the *Better Way* and then when it turned up, they decided they didn't like it much.
 - But expected.
-- So they'll be wanting to keep the violence and violation (hence my bizarrely unpleasant experiences of late), and to maintain the ancient hate and the murder of the mother (a tragedy of world-ending proportion), under the erroneous belief they're doing the right thing because they can do a better job than Him.
-- Good luck with that.
+- So they'll be wanting to keep the violence and violation (hence my bizarrely unpleasant experiences of late), and to maintain the ancient hate and the murder of the mother (a tragedy of world-ending proportion), under the erroneous belief they're doing the right thing because they've always done a better job than Him.
 - The definition of insanity (believing we're better than God, or that we can eliminate Him, or that we *are* Him) is attempting to prove it again and again and expecting a different outcome.
 - And that is why my widowhood is never ending; and once they got eggs from me in April, they thought they'd finish me off in Tibet for good.
 - And I'm still here.
+- The murder of God's Son resulted in 2000 years of violence and murder.
+- The murder of God's Daughter, I believe, results in the end of humankind for good.
