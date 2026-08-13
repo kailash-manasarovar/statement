@@ -86,6 +86,6 @@ function googleTranslateElementInit() {
 - But expected.
 - So they'll be wanting to keep the violence and violation (hence my bizarrely unpleasant experiences of late), and to maintain the ancient hate and the murder of the mother (a tragedy of world-ending proportion), under the erroneous belief they're doing the right thing because they've always done a better job than Him.
 - The definition of insanity (believing we're better than God, or that we can eliminate Him, or that we *are* Him) is attempting to prove it again and again and expecting a different outcome.
-- And that is why my widowhood is never ending; and once they scan me for viability (Dorset), and got eggs from me in Dublin (and maybe again in Bali), they thought they'd finish me off in Tibet for good.
+- And that is why my widowhood is never ending; and once they scanned me for viability (Dorset), and got eggs from me in Dublin (and then again in Bali, reopening the scar), they thought they'd finish me off in Tibet for good.
 - And I'm still here.
 - Anyway. Did you see the white dove this morning. She's in love!
