@@ -96,3 +96,35 @@ function googleTranslateElementInit() {
 - Are the gangs hoping that one of these idiots takes the initiative and attacks me; while filming obviously?
 - Is this why no-one's doing a thing about it, because nearly all men in existence are complicit?
 
+## Dublin TT
+
+### Un oeuf est un oeuf
+
+- My little *oeuf*.
+- It's a girl.
+- This was a sort of meme that second week, or maybe both weeks, Steve kept saying "Enough is enough", and I remembered the joke about only one egg for breakfast in France.
+- When I told him, while at the same time thinking about pregnancy, he looked so alarmed.
+- He looked alarmed just like that when he suggested I come live with him in Texas, I could have the room at the top of the stairs and I said, *is it the attic room*, as a joke (you know, mad woman lives in the attic, never comes down, Wide Sargasso Sea, etc.) and he looked so alarmed.
+- Is he the similarly unconsenting father?
+- Is this why they put hundreds of thousands into trying to get us together?
+- Is my little oeuf destined for a life as a lab rat? I'm going to pray it's not so.
+- This is so hard.
+- Thousands may have raped me but this, if true, is infinitely more violating.
+- I notice another possible entry point for pinhole surgery, and that appeared back in November in Bangkok.
+- Is this why the endless distraction and lies, just letting me wander around, maybe crash the car, maybe get drugged again at Lourdes, no concern for my health and safety at all, just to keep me busy while this madness goes on?
+- And then I can be discarded.
+- Was that the plan?
+- And I remember a BIG dream from when I was so small, in Ireland again, and it was about a giant egg on the wall... I can see it now. I said Humpty Dumpty.
+- And more recently a dream of the future where I am with a grown up woman who I feel is my daughter, but I thought that might be squirrel's daughter, if he has one.
+- Will Davina be coming round one day when my little oeuf realizes the truth and she looks exactly like me?
+
+### A first roasting
+
+- Yeah, I didn't know why they turned on me on that course, but they certainly did.
+- A little taste before the big one in Bali?
+- A test to see how I might take a bit of psychological torture?
+- I didn't take it well. But it's not the torture itself, it's the fact that people you thought you could trust are doing it.
+- That's what really gets me.
+- Anyway.
+- Clearly intending to get rid of me, drive me mad maybe, leave me desperate and unhappy, get the lab rat they need for some sick purpose, and let the rapists carry on killing and maiming.
+- Lovely.

@@ -169,6 +169,17 @@ function googleTranslateElementInit() {
 - He looks at me and appears to be a bit nervous.
 - He says, grinning, "No, I'm not a guide, I just like talking a lot."
 
+## Weddings at the church
+
+- Steve and I go to mass.
+- The mass time is wrong though, the one we're at isn't listed as one of the regular ones but somehow he know to go in and a mass is going on.
+- A whole bunch of people are renewing their marriage vows, there must have been at least twenty couples who stood up when the American priest said *who's here would like to renew their vows?*.
+- It seems like a set up to me, a bit clunky.
+- I've been followed round endlessly already, and this morning's business at Newgrange was very *purposeful*.
+- It's funny because Steve thinks so too without telling me that or necessarily being aware of it.
+- As we're sitting in the pew watching the priests leave, he knows that one of them, the one at the front, doesn't know which way he's going, and off he goes in the wrong direction, as if he's never been in the church before in his life.
+- Steve says, before he does it, *he doesn't know where he's going*.
+
 ## Healing process
 
 - On the therapy table I have lain extremely still for the full five years I have been doing the practice; like a stone.
