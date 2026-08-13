@@ -90,3 +90,4 @@ function googleTranslateElementInit() {
 - And I'm still here.
 - Anyway. Did you see the white dove this morning. She's in love!
 - Oh, and for the record, I'm totally open to a lot of fully-involved motherhood at this apparently late stage and I know God can make it happen!
+- Maybe it's part of the Plan. That'd be so cool.
