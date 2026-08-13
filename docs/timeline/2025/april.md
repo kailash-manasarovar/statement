@@ -212,7 +212,7 @@ function googleTranslateElementInit() {
 - Why do we see so much criminal gang activity on X, and elsewhere, posing as friendly to the women's rights movement?
 - Is it an apocalyptic move from the porn-gangs to ensure no-one gets wind of what they've really been up to for nearly half a century, and how bad it has gotten?
 
-## There's something in the water
+## *There's something in the water*
 
 - I take my father to play a jazz gig at the [Elephant Inn](https://www.elephantinnfinchley.co.uk/) in North Finchley.
 - After his fall, he remains pretty immobile, so we got a disabled-parking badge from Barnet council so I can park right outside the pub.
