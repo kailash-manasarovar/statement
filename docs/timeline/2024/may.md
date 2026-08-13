@@ -692,10 +692,13 @@ function googleTranslateElementInit() {
 - During the week, you could choose which trip you wanted to go on.
 - I don't remember signing up for particular trips, how you did that, or what those trips even were. I thought I had signed up for a temple tour, but I do not recall visiting a single temple in Bali on this visit.
 - But I don't remember ever getting to choose either, or even being on a trip, apart from one of them to a water-fun ship with slides and donuts, that sort of thing, and then a short boat ride later for lunch somewhere else.
-- I believe this trip was on the Monday or Tuesday of the week and this was where the [Pakistani Yorkshireman](#the-pakistani-yorkshire-man) had been instructed to communicate with me a lot.
-- He sat with me at lunch that day and I told him I was being terrorized by people in my neighborhood in Spain.
-- Later that day, just as everyone was leaving, he popped up five minutes before and said, come with me on a jet ski trip. So I agreed and he went out for about two minutes, and then came back as everyone was walking past. I wonder if this was so they'd all see me with him in case I complained about him.
-- I'm certain these meetings with him were before he made [the sexual threat over dinner](#the-pakistani-yorkshire-man) although there seem to be some curious discrepancies on tweet dates which I must rub-my-chin over.
+- I believe this trip was on the Tuesday of the week, the day *after* the [Pakistani Yorkshireman](#the-pakistani-yorkshire-man) popped up to introduce himself first thing in the morning of the first day of sessions, and it's obvious he had been instructed to communicate with me on this trip.
+- He sat with me at lunch that day - everyone else moves away. 
+- I told him I was having a bad time at home and being terrorized relentlessly by people in my neighborhood in Spain to the point of fearing for my life.
+- I told everyone I could, in fact, it felt to me like a good way to stay safe.
+- Later that day, just as everyone was leaving, he popped up and said, come with me on a jet ski trip. So I agreed and he went out for about two minutes, and then came back as everyone was walking past. I wonder if this was so they'd all see me with him in case I complained about him.
+- I'm certain these meetings with him were before he made [the sexual threat over dinner](#the-pakistani-yorkshire-man) although there seem to be some curious discrepancies on tweet dates which I really must rub-my-chin over...
+- Anyway.
 - I do remember being on the bus to or from the regular daily events or dinners on a few occasions.
 - On one bus trip going to dinner somewhere, the HR guy, Jonathan Tamblyn - who eventually [fires me in October](october.md#polygon-fires-the-whole-writing-team) - sat next to me and this could have been [The Beach Club (live sedated-rape show) trip](#missing-time-at-the-beach-club) where there was no dinner for me.
 - On another bus trip, returning from somewhere, I sat next to David Silverman.
