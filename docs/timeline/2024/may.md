@@ -687,20 +687,32 @@ function googleTranslateElementInit() {
 - No one else is grinding or behaving in a sexualized manner anywhere else.
 - Was I in a live rape show of some variety? 
 
-### Missing time on a trip with Anthony
+### More missing time, missing mornings and nights, and remembering two hours of a full day trip with Anthony
 
 - During the week, you could choose which trip you wanted to go on.
-- I don't remember ever getting a choice.
-- I do remember being on a long boat trip with Anthony for one of these trips.
-- He made sure to sit with me on the bus to the ferry.
+- I don't remember ever getting a choice, or even being on a trip, apart from one of them to a water-fun ship with slides and donuts, that sort of thing. I believe this was on the Monday of the week and this was where the [Pakistani Yorkshireman](#the-pakistani-yorkshire-man) was told to communicate with me a lot.
+- He sat with me at lunch that day and I told him I was being terrorized by people in my neighborhood in Spain.
+- Later, just as everyone was leaving, he popped up five minutes before and said, come with me on a jet ski trip. So I agreed and he went out for about two minutes, and then came back as everyone was walking past. I wonder if this was so they'd all see me with him in case I complained.
+- I do remember being on the bus to or from the regular daily events or dinners on a few occasions.
+- On one bus trip going to dinner somewhere, the HR guy, Jonathan Tamblyn - who eventually [fires me in October](october.md#polygon-fires-the-whole-writing-team) - sat next to me - this could have been [The Beach Club trip](#missing-time-at-the-beach-club) where there was no dinner for me.
+- On another bus trip, returning from somewhere, I sat next to David Silverman.
+- On another bus trip, going somewhere, I sat behind Alicia.
+- Those last two bus rides may have been to and from the water-fun trip which the whole company went on.
+- I do remember being on a long ferry boat trip, about two hours or more, and sitting with Anthony for one of these trips.
+- He made sure to sit with me on the bus to the ferry port.
 - We had a long chat on the boat about our professional lives and I could describe the details of our chat very specifically, things he told me, things I told him. I could give a very detailed account of what we said.
-- The Spanish (porn-gang members) were on the boat with us.
-- They're always so pale skinned and black haired like they never see the sun.
+- The Spanish (porn-gang members, not the engineers I know well) were on the boat with us.
+- They were Spanish people I did not know from the company. There was a woman with them too, with long thick curly black hair who I saw again hovering around me in the pool with two of the men on another day.
+- They were all really pale skinned, and black haired, like Spanish people who never saw the sun.
+- In fact, I don't really remember any actual Polygon employees on the ferry going to wherever it was, apart from Jordi and David Z, myself and Anthony.
+- And there wasn't that many people on the ferry either.
 - No-one else on the boat spoke to me, or even acknowledged me when I tried to say hi or nodded.
-- They looked away.
-- I didn't know any of them either, they were unfamiliar people.
-- It's possible Jordi and David were with them, however. Jordi never once spoke to me. David might have nodded hi.
-- I don't remember getting off the boat, where we went, the boat trip back, or how I got back to the hotel that day.
+- They did that gulp and look away thing.
+- I do remember getting ready to get off the boat, and suddenly there was a lot of these black-haired, pale-skinned Spanish people around me in the corridor and on the stairs, but after that...
+- I don't remember getting off the boat, or anything about where the boat had taken us, anything we did there, or the boat trip back - apart from a vague memory of it getting dark and Anthony and I sitting in different seats and a weird man talking to me, and nothing more.
+- I have no recollection of getting back to the hotel that day or going back to my room.
+- Of the six nights at the hotel, I believe I only remember going to bed twice.
+- Of the six mornings at the hotel, again I believe I only remember getting up and having breakfast with everyone about three times maximum.
 
 ### People who I see a lot but have never worked with
 
