@@ -214,18 +214,17 @@ function googleTranslateElementInit() {
 
 ## There's something in the water
 
-- I take my father to play a jazz gig at the Elephant pub in North Finchley.
-- He has been unwell so we have a blue badge and I can park right outside the pub.
-- He finds walking hard since he was a little paralyzed by a pain-killing injection he received after falling last October.
-- I leave him there, and go to collect him at about 11pm.
-- We're walking out of the pub and towards the car.
-- A couple of people, a youngish short woman with blond hair who was with someone else, steam past us. 
-- She is saying loudly, "There's something in the water. There's something in the water."
-- I think I recognize her.
-- It's [Lucy](january.md#pauls-best-friend-lucy).
-- Paul's "friend".
+- I take my father to play a jazz gig at the [Elephant Inn](https://www.elephantinnfinchley.co.uk/) in North Finchley.
+- After his fall, he remains pretty immobile, so we got a disabled-parking badge from Barnet council so I can park right outside the pub.
+- I leave him there, go back home, and go to collect him at about 11pm.
+- I feel like people are looking at me when I enter the pub and walk through the pool room to the back; nudging, maybe there's a snicker.
+- I get dad and we're leave the pub by the side door and start walking towards the car.
+- A couple of people, a youngish short woman with blond hair and a young man of similar height, steam past us. 
+- She is saying loudly in a sing-song manner: *There's something in the water. There's something in the water.*
+- I recognize her.
+- It's [Lucy](january.md#pauls-best-friend-lucy), Paul's "friend".
 - I recognize her because he showed me her picture on his phone.
-- The jeering is, obviously, a reference to the poisoning at my Spanish apartment.
+- The jeering is, obviously, a sick reference to the poisoning at my Spanish apartment through the water supply to the property.
 
 ## Let Women Speak April
 
