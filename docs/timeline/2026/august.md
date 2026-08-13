@@ -93,3 +93,5 @@ function googleTranslateElementInit() {
 - Anyway. Did you see the white dove this morning. She's in love!
 - Also, regardless of anyone's beliefs, it's important to get the toxic stuff out of the way, aired, out of the field, it festers.
 - And, we won't get another opportunity like this again, so please don't f**k it up. Sorry for language.
+- That's all.
+- I love you.
