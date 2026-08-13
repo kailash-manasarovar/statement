@@ -89,4 +89,4 @@ function googleTranslateElementInit() {
 - And that is why my widowhood is never ending; and once they got eggs from me in April, they thought they'd finish me off in Tibet for good.
 - And I'm still here.
 - The murder of God's Son resulted in 2000 years of violence and murder.
-- The murder of God's Daughter, I believe, results in the end of humankind for good.
+- The murder of God's Sons and Daughter this time around, I believe, results in the end of humankind for good (JC even said so in the bible).
