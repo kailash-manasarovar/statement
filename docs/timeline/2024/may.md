@@ -687,7 +687,7 @@ function googleTranslateElementInit() {
 - No one else is grinding or behaving in a sexualized manner anywhere else.
 - Was I in a live rape show of some variety? 
 
-### More missing time, missing mornings and nights, and remembering two hours of a full day trip with Anthony
+### More missing time, missing mornings and nights, and remembering only two hours of a full day trip with Anthony
 
 - During the week, you could choose which trip you wanted to go on.
 - I don't remember signing up for particular trips, how you did that, or what those trips even were. I thought I had signed up for a temple tour, but I do not recall visiting a single temple in Bali on this visit.
