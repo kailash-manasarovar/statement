@@ -33,10 +33,10 @@ function googleTranslateElementInit() {
 
 - I meet another man, cabin crew.
 - Seems like a lot of cabin crew double as kind of law-enforcement...
-- We get on really well and have a chat.
+- We get on really well, spa a little when we're doing the boxing moves bit, and have a chat afterwards.
 - I tell him I was poisoned and that's why my coordination is all over the place.
 - I think one of his colleagues must have elaborated a little for him later on because the next time I see him, he is looking at me with tears in his eyes and he looks angry enough to murder someone.
-- I'm so brain-damaged, this is all a little out-of-context so I don't register him until later on.
+- I'm so brain-damaged, this is all a little out-of-context so I don't recognize him at the time, and only realize it was him later.
 - Fake X accounts confirm it.
 
 ## Thailand fasting and detox clarity
