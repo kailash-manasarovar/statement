@@ -42,6 +42,15 @@ function googleTranslateElementInit() {
 - After finding out that my dad is likely horribly connected with these people and the porn-gangs of Denia, and that the woman at the Red Lion probably told him to stay away from Lourdes while they [*finished me off*](july.md#lourdes), and I was not finished off; this act, to me, is even more appalling than it already was.
 - And he still let them feed him.
 
+## Reform UK conference
+
+- Agents everywhere; in the next room at the hotel, wherever I go. This is becoming the norm for me now.
+- I attended the Reform UK conference early this month.
+- This was when I really noticed I could not at all look at bright lights.
+- I'd be in the audience, watching the show and listening to the speakers, and in between each person the lights would roll around the conference hall and I literally had to cover my eyes and close them till it was finished.
+- This is another thing that sparked my further concern.
+- I was reminded of the [first time I went to the optician about this weird and inexplicable problem](../2011-to-2020/2013.md#boots-opticians-north-finchley), probably sometime in 2013.
+
 ## 13th Day of Elul, Saturday 6th September
 
 !!! quote "The ultimate purpose of technology"
@@ -75,16 +84,7 @@ function googleTranslateElementInit() {
 - She also advises I tell my GP.
 - I'm reluctant but I make an appointment in any case.
 
-## Reform UK conference
-
-- Agents everywhere; in the next room at the hotel, wherever I go. This is becoming the norm for me now.
-- I attended the Reform UK conference early this month.
-- This was when I really noticed I could not at all look at bright lights.
-- I'd be in the audience, watching the show and listening to the speakers, and in between each person the lights would roll around the conference hall and I literally had to cover my eyes and close them till it was finished.
-- This is another thing that sparked my further concern.
-- I was reminded of the [first time I went to the optician about this weird and inexplicable problem](../2011-to-2020/2013.md#boots-opticians-north-finchley), probably sometime in 2013.
-
-## Rutland House Surgery Muswell Hill
+### Rutland House Surgery Muswell Hill
 
 - On 18th September I visit my GP.
 - I speak to Dr Shirshana Davis.
@@ -109,7 +109,7 @@ function googleTranslateElementInit() {
 - I tell her I do not feel safe in North London due to this.
 
 !!! tip
-    - RA symptoms in my hands come and go.
+    - RA symptoms in my hands come and go, I believe it is due to the car being toxic.
     - I expect a good detox will eliminate this, along with a better environment.
 
 - She tells me to give my notes to the receptionist who will scan them into my file.
@@ -123,12 +123,16 @@ function googleTranslateElementInit() {
 ### Yet another weird woman
 
 - Tiringly, another weird woman is sent to make sure I know my movements are still being watched by UK criminal porn-gangs.
-- She is about the same age as me, a bit overweight, dark black hair, pale skin, short like me.
+- She is about the same age as me, a bit overweight, black hair, pale skin, short like me.
 - She arrives just after I arrive for my appointment and sits in the waiting room.
+- She does that talking about nothing thing which is supposed to make them look normal but is totally phoney.
 - She states her appointment is not for another hour-and-a-half but thought she'd come anyway because she's feeling anxious.
 - She quickly launches into a fake speech about nothing; the way they do.
 - I sense darker intentions.
 - I wonder if this is [Verity's weird roommate](../2011-to-2020/2013.md#traveling-back-to-uk-at-christmas-with-verity-sawyer)?
+- I stand up tall and straight and bang my massive English Heritage umbrella on the ground loudly.
+- She shuts up and puts her head down.
+- That's true. I couldn't believe it.
 
 ## Aunty Paddy pops a note through the door
 
