@@ -39,7 +39,7 @@ function googleTranslateElementInit() {
 - While we're in the carvery, I see men peering in the window to look at us.
 - Our presence is clearly antagonizing.
 - I tell dad we have to stop coming here, I don't want to antagonize anyone.
-- After finding out that my dad is likely horribly connected with these people and the porn-gangs of Denia, and that the woman at the Red Lion probably told him to stay away from Lourdes while they [*finished me off*](july.md#lourdes), and I was not finished off; this act, to me, is even more appalling than it already was.
+- After finding out that my dad is likely horribly connected with these people and the porn-gangs of Dénia, and that the woman at the Red Lion probably told him to stay away from Lourdes while they [*finished me off*](july.md#lourdes), and I was not finished off; this act, to me, is even more appalling than it already was.
 - And he still let them feed him.
 
 ## Reform UK conference
@@ -103,7 +103,7 @@ function googleTranslateElementInit() {
 - She listens and hears me.
 - She suggests immediately the mental health team.
 - I explain that I have no more PTSD at all and that my suicidal depression is completely healed and I have no depression at all either.
-- I explain that something happened to me while I was fighting for my life in Denia in 2023 that unleashed an inner strength I never knew I had.
+- I explain that something happened to me while I was fighting for my life in Dénia in 2023 that unleashed an inner strength I never knew I had.
 - I tell her about my Transformational Touch work with Steve Terrell and how much it has helped me heal from trauma.
 - I also explain that I have asked numerous agencies; police, embassies, etc, for help and I have been ignored by everyone.
 - I tell her I do not feel safe in North London due to this.
@@ -273,18 +273,18 @@ function googleTranslateElementInit() {
 - I remain assured whatever it is will be nothing I can't handle.
 
 !!! info "Remembering a *whole bunch* of things"
-    - Around a week after the course I remember [the four distinct men who acted as trumpet teacher](../../crimes/protagonists/vidal-sastre.md#eight-distinct-men-posing-as-trumpet-teacher) at the conservatory in the switcheroo porn scam and [how Gabriel Silva had used the word "switcheroo" in the process of trying to bully me out of my job in August 2024](../2024/august.md#gabriel-silvas-first-team-meeting-as-manager).
+    - Around a week after the course I remember [four distinct men who acted as trumpet teacher](../../crimes/protagonists/vidal-sastre.md#eight-distinct-men-posing-as-trumpet-teacher) at the conservatory during the switcheroo porn scam and [how Gabriel Silva, my manager at Polygon, had used the word "switcheroo" in the process of trying to bully me out of my job in August 2024](../2024/august.md#gabriel-silvas-first-team-meeting-as-manager).
     - I remember [my father's involvement](../2011-to-2020/2015.md#inexplicable-anal-fissure) with Domingo Lopez Cano from 2013 onwards.
-    - I remember [my cousin Igor's unusual interest in my apartment at Ramon Ortega](../2011-to-2020/2012.md#passeig-periodista-ramon-ortega) that my father had repeatedly and excitedly told him about, insisting he must bring his young family there to visit.
-    - I remember that, even though I had moved out of the apartment at Ramon Ortega, my cousin did [bring his young family on their summer holiday to Denia](../2011-to-2020/2014.md#marie-carmen-from-tlc) for a few weeks in 2014.
+    - I remember [my cousin Igor's unusual interest in my "amazing" apartment at Ramon Ortega](../2011-to-2020/2012.md#passeig-periodista-ramon-ortega) that my father had repeatedly and excitedly told him about, insisting he must bring his young family there to visit.
+    - I remember that, even though I had moved out of the apartment at Ramon Ortega, my cousin did [bring his young family on their summer holiday to Dénia](../2011-to-2020/2014.md#marie-carmen-from-tlc) for a few weeks in 2014 not realizing I had moved, because my father never paid attention to what I was doing with my life.
     - I mentioned this fact to dad, with horror; he becomes angry and says, *I'd better speak to Igor* in a tone that sounded like he was condemning me for something.
     - Both my parents, at that moment, start going on about my previous interest in Haitian spiritual practices as if that will assure the world I'm not worth listening to.
     - My aunt Patricia would also do that.
     - Inma also did this in January just after [we went to the police in Madrid to report poisoning](january.md#madrid-policia) and I was ignored.
-    - I wonder why they're all so keen to find something to condemn me about.
+    - Why are they all so keen to silence me? What are they hiding?
     - In late November, in Bangkok near Lupini Park, someone told me I would never, ever have to return to this hideous environment that has always sought to destroy me… and I believed them as I was suffering from these horrible revelations.
     - And here I am, about to go back there.
-    - So I don't trust anyone near Lupini anymore, and probably someone warned me in any case so I was on the alert.
+    - So I don't trust anyone near Lupini anymore - the beginning of the gigue being up - and probably someone warned me in any case so I was on the alert.
     - And I keep hearing Philip Seymour Hoffman in my head... as you might imagine.
 
 ### Also at TT training this month...
@@ -292,7 +292,7 @@ function googleTranslateElementInit() {
 - The gangs know I am still of the opinion there was only one man at the conservatory acting as trumpet teacher.
 - In about a week's time I will remember the [full switcheroo scandal at the Spanish music school](october.md#thunderbolt-clarity) and start to realize the extent of the scandal outwards into the professional world of technology, international terrorism, and beyond.
 - I realize I was not blinded by poison, I was brain-damaged; I have been looking at the photos of numerous different men for nearly 3 years and my mind only registering one man!
-- Soon, someone will do an impromptu test on brain function and confirm brain injury. He also mentions how stroke victims struggle to identify objects out of context and this sounds like EXACTLY what the porn-gangs of Denia require of their victims.
+- Soon, someone will do an impromptu test on brain function and confirm brain injury. He also mentions how stroke victims struggle to identify objects out of context and this sounds like EXACTLY what the porn-gangs of Dénia require of their victims.
 - What a scam! You could literally set up one person to be the fall-guy for every crime you do if you brain-damage all your victims!!!!
 - On the course, the gangs (still panicking about my continued survival) I assume, send...
     - A wild and aggressive pro-Pally woman who keeps giving me bear hugs with her giant watermelon earrings swinging freely.

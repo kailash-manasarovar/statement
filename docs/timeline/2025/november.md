@@ -67,14 +67,9 @@ function googleTranslateElementInit() {
 
 ## Staying next to the American Embassy in Bangkok
 
-- I stay for about 10 days in a lovely hotel right beside the embassy, booked online, of course.
+- I stay for about 10 days in a lovely hotel right beside the embassy, booked online, of course, and in advance.
 - I feel a little safer, a little bit looked-after shall we say.
-- It's somewhat comforting after trudging many circles of seemingly endless hell.
-- I'm not aware I'm a intuitive-super-detective at this point, solving crimes against humanity that no-one else can.
-- I will say that... if you don't tell the intuitive what they're doing and why, the intuitive may have a tendency to go off and work for others they feel more at home with.
-- Particularly when the Sarg. is JC himself.
-- Should I say this? Not sure... but anyway.. there it is, I said it.
-- On the room service menu there seems to be only pages and pages of Caesar salad on offer.
-- And I only just got it today.
-- V funny guys.
-- <3
+- There are discrepancies but nevertheless it's somewhat comforting after trudging many circles of seemingly endless criminal hell.
+- On the room service menu there seems to be only pages and pages of Caesar salad on offer. Very amusing.
+- I get a wound on my left groin which doesn't behave like a normal boil. In fact, if I had been pierced there, it would be problematic because that was a boil area and so I used skin-thinning cream on it.
+- This wound reopens in July 2024.
