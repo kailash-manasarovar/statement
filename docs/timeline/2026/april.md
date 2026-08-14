@@ -153,10 +153,11 @@ function googleTranslateElementInit() {
 
 ### I see an IRA man
 
-- One morning on my way to the Avila centre, there's a big crowd of Americans in front of me and they're all going on about how they have a meeting with Ira and I'm thinking, what now..
+- One morning on my way to the Avila centre, there's a big crowd of Americans in front of me and they're all going on about how they have a meeting with *Ira* and I'm thinking, what now..
 - A little later, I see an agent I'm familiar with and he's standing a bit away from a man with extremely shiny shoes who has his back to me initially but then turns around to look as I walk past him.
-- I'm amazed at how shiny this man's shoes are so I don't see the man's face but I saw his hair.
+- I'm so amazed at how shiny this man's shoes are, I don't see the man's face but I saw his grey, longish, curly-coiffed hair.
 - I've no idea what this is all about.
+- I only get the Ira name connection a good deal later.
 
 ### Steve is having chemo, but doesn't have cancer
 
@@ -170,21 +171,20 @@ function googleTranslateElementInit() {
 
 - My little *oeuf*.
 - It's a girl.
-- This was a sort of meme that second week, or maybe both weeks, Steve kept saying "Enough is enough", and I remembered the joke about only one egg for breakfast in France.
+- This was a sort of meme that second week, or maybe both weeks.
+- Steve kept saying "enough is enough" in class, and I remembered the joke about only one egg for breakfast in France.
 - When I told him, while at the same time thinking about pregnancy, he looked so alarmed.
-- He looked alarmed just like that when he suggested I come live with him in Texas, I could have the room at the top of the stairs and I said, *is it the attic room*, as a joke (you know, mad woman lives in the attic, never comes down, Wide Sargasso Sea, etc.) and he looked so alarmed.
+- He went silent.
+- He had looked similarly alarmed when he suggested I come live with him in Texas, that I could have the room at the top of the stairs and I said, *is it the attic room*, as a joke (you know, mad woman lives in the attic, never comes down, controlled...) and he looked so alarmed.
 - Is he the similarly unconsenting father?
-- Is this why they put hundreds of thousands into trying to get us together?
-- Is my little oeuf destined for a life as a lab rat? I'm going to pray it's not so.
+- Is this why they put [hundreds of thousands into trying to get us together](../2025/september.md#weddings-at-the-church)?
+- Is my little oeuf destined for a life as a lab rat?
+- I'm going to pray it's not so.
 - This is so hard.
 - Thousands may have raped me but this, if true, is infinitely more violating.
 - I notice another possible entry point for pinhole surgery, and that appeared back in November in Bangkok.
-- Is this why the endless distraction and lies, just letting me wander around, maybe crash the car, maybe get drugged again at Lourdes, no concern for my health and safety at all, just to keep me busy while this madness goes on?
+- Is this the real reason behind the endless distraction and lies, just letting me wander around, maybe crash the car, maybe get drugged again at Lourdes, zero concern for my health and safety and wellbeing, just to keep me busy while they get what they want?
 - And then I can be discarded.
-- Was that the plan?
-- And I remember a BIG dream from when I was so small, in Ireland again, and it was about a giant egg on the wall... I can see it now. I said Humpty Dumpty.
-- And more recently a dream of the future where I am with a grown up woman who I feel is my daughter, but I thought that might be squirrel's daughter, if he has one.
-- Will Davina be coming round one day when my little oeuf realizes the truth and she looks exactly like me?
 
 ### She reminds me of my mother
 
@@ -193,7 +193,7 @@ function googleTranslateElementInit() {
 - I was so obsessed with these incongruent photos at the time I actually asked him, in amongst nearly a hundred professional psychotherapists asking very normal questions, why he had a photo of a seagull in his slides.
 - He answered that the seagull had been following him around in Dublin in a park, and the bird had reminded him of his mother.
 - I was amazed to remember this, and thought about [the tears from March 2023](../2023/march.md#dreaming-of-the-trumpet-teacher) and wondered if I'd channeled the man's mother at that moment...
-- But then later, I remembered my mother always told me she wants to be a seagull when she comes back, and I always had this feeling she'd be at the window ledge at my house looking for food, and following me around, and pooing everywhere. It was a bit of a joke between us.
+- And then later, I remembered my mother always told me she wants to be a seagull when she comes back, and I always had this feeling she'd be at the window ledge at my house looking for food, and following me around, and pooing everywhere. It was a bit of a joke between us.
 
 ### Steve shares his past a little
 
