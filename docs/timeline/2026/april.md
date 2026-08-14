@@ -100,14 +100,17 @@ function googleTranslateElementInit() {
 - Are the gangs hoping that one of these idiots takes the initiative and attacks me; while filming obviously?
 - Is this why no-one's doing a thing about it, because nearly all men in existence are complicit?
 
-## Dublin TT
+## Dublin Transforming Touch
+
+- I attend two modules this month: module 2 with a new cohort I've never met before on the first week, and module 3 to complete a cycle with [the cohort from September again](../2025/september.md#dublin-transforming-touch-therapy-with-steve).
 
 ### Olly on the plane
 
-- They bring Olly from the iboga retreats in Montpelier, friend of [Sean Hamman](../2001-to-2010/2005.md#sean-hamman).
-- Like Richard from the same era who [I see in September 2025 in Newgrange](../2025/september.md#richard-at-newgrange), he's putting on a ridiculous Irish accent.
+- On the flight over from Lourdes, I see Olly from the iboga retreats in Montpelier, friend of [Sean Hamman](../2001-to-2010/2005.md#sean-hamman) and clearly implicated in the sedated-rape conspiracy.
+- I have to wonder if I was sedated and raped on those courses too. They were full of extremely aggressive men.
+- Bizarrely, like Richard from the same era who [I see in September 2025 at Newgrange with Steve](../2025/september.md#richard-at-newgrange), he's putting on a ridiculous Irish accent.
 - I'm amazed.
-- Why do they do this?
+- Is it another attempt at convincing me that someone is interested in stopping the mass sedation of women and children, but they're not really or they might have been nice to me, they have other things in mind?
 
 ### They're playing Ray of Light while I wait for the taxi
 
