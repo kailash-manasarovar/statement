@@ -283,7 +283,8 @@ function googleTranslateElementInit() {
     - Inma also did this in January just after [we went to the police in Madrid to report poisoning](january.md#madrid-policia) and I was ignored.
     - Why are they all so keen to silence me? What are they hiding?
     - In late November, in Bangkok near Lupini Park, someone told me I would never, ever have to return to this hideous environment that has always sought to destroy me.
-    - This was the online chatter I was being subjected to.
+    - I believed this - my pathological inability to see the bad in people and groups projecting goodness onto them.
+    - This was the online chatter I was being subjected to endlessly.
     - All lies.
 
 ### Also at TT training this month...
