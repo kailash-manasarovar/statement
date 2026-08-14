@@ -208,13 +208,13 @@ function googleTranslateElementInit() {
 - We've been so horribly violent with each other for so long haven't we.
 - We also spoke about the forgivenet and the Golden Rule and I explained the app is *rock-solid* on Golden Rule.
 - This is important to Steve, but I wondered if he realizes how most of what everyone in the world - including him - thinks and believes comes from anti-Golden Rule manipulation techniques.
-- I often try to talk about these things with Steve, but something blocks me.
+- I often try to talk about these things with Steve, but something often blocks me.
 
 ### Whitefriars Church
 
 - After we return to Dublin in my toxic vehicle, Steve and I go for a walk in Dublin.
 - Steve had told me he was drawn to visit [Whitefriars Church](https://whitefriarstreetchurch.com/) the day before and was surprised to find relics of St Valentine there.
-- I had found this information triggering for some reason, and quietly vowed to visit myself on the 29th September, my one free day after the course ends and I head home, incidentally Saint Michael's feast day.
+- I had found this information triggering for some reason, and quietly vowed to visit myself on the 29th September, my one free morning after the course ends and I head home, incidentally Saint Michael's feast day.
 - It turned out Steve and I ended up there on our walk anyway.
 - To my surprise, I found that the statue of St Valentine reminded me of [the trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel); but I could look straight at him - not in glances like the animal-training they had subjected me to under sedation so that I would only be able to look [the seven devils](../../crimes/protagonists/vidal-sastre.md#seven-devils) in glances, and they could therefore add a horse into the group at the stage they were ready to finish me off.
 - At Whitefriars, I was still under the impression that there was only one trumpet teacher, not [eight](../../crimes/protagonists/vidal-sastre.md#eight-distinct-men-posing-as-trumpet-teacher).
