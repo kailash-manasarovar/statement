@@ -198,25 +198,30 @@ function googleTranslateElementInit() {
 ### Steve shares his past a little
 
 - He always tells his groups he never wanted to teach.
-- Sometimes, he tells us about what brought him to developing the TT system.
-- He has shared that he was finding people with apparently incurable conditions were getting well, all the time.
+- Sometimes, he tells us about what started him developing the TT system, about how he adopted two little babies who were totally traumatized, hopeless cases, and healed them.
+- He has shared that while he was practicing, he was finding people with apparently incurable conditions were getting well, all the time.
+- It got him noticed.
 - His sons are testament to the gift God gave him.
-- It is interesting because the content shifts and changes constantly, it can never be pinned down, which is amusing.
-- People are regularly expressing concern about what happens if Steve's not around, because other people find it hard to teach what he teaches, given it is coming direct from, what Steve would call Holy Spirit, what I would call God.
+- It is interesting because the content of the courses shifts and changes constantly, it can never be pinned down, which is amusing.
+- People are regularly expressing concern about what happens if Steve's not around, because other people find it hard to teach what he teaches, given it is coming direct from what Steve would call Holy Spirit, what I would call God.
 
-### I stepped in the chili sauce
+### "I stepped in the chili sauce"
 
 - Agents everywhere we go.
+- Steve, Robin, and I have lunch at a falafel joint in the Temple Bar.
+- The usual CIA man is sitting close by (it's never the same one, but they dress so specifically, as I mentioned).
+- I drop the chili sauce on the floor and as we're getting up to leave I step in it, and declare it.
+- I find this amusing. I wonder if he did.
 
 ### A first roasting
 
 - Yeah, I didn't know why they turned on me on that course, but they certainly did.
-- A little taste before the big one in Bali?
+- It was the second course, module 3, with [the cohort I had met in September](../2025/september.md#dublin-transforming-touch-therapy-with-steve).
+- Guilt expressed maybe?
 - A test to see how I might take a bit of psychological torture?
-- I didn't take it well. But it's not the torture itself - I was everyone's breakfast, lunch, and dinner in Denia for years, remember? - it's the fact that people you thought you could trust are doing it.
-- That's what really gets me, the realization that something you thought you could always turn to as a safe space for healing has just disappeared, poof!
-- Anyway.
-- Clearly intending to get rid of me, drive me mad maybe, leave me desperate and unhappy, get the lab rat they need for some sick purpose, and let the rapists carry on killing and maiming.
+- I didn't take it well. But it's not the torture itself - I was everyone's breakfast, lunch, and dinner in Dénia for years, remember? - it's the fact that people you thought you could trust are doing it.
+- And what really got me, was the realization that something I thought I could always turn to as a safe space for healing just disappeared, poof!
+- I can't see what else they might have intended except to start the process of getting rid of me since they had gotten what they wanted already.
 - Lovely.
 
 #### I thought I'd talk about something important with the group
