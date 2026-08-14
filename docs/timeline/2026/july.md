@@ -21,6 +21,20 @@ function googleTranslateElementInit() {
 - Eventually, I decide I'm leaving because I feel like I'm under house arrest - like I don't mind extended house arrest such as in Samui, where it's not like solitary confinement (apart from when it affects the local businesses, I don't like that) but this was OTT.
 - It was clear to me, eventually, that the people "arresting" me, as it were, although on my side in certain respects (law-enforcement being the main one) they do not have my/our long term best interests in mind.
 
+### Stella
+
+- There's a woman teaching some classes on the course and her name is Stella.
+- At the first session, everyone introduces themselves and the teachers take time to tell us about their history.
+- Stella studied ashtanga yoga in Euston, like [Natalia had, fellow porn gang target in Dénia](../2011-to-2020/2015.md#nati-de-prati-yoga-teacher-and-porn-gang-target-just-like-me).
+- She had been studying their right up until she moved over to Dénia.
+- I bump into Stella after the session and ask her if she knows Natalia.
+- She does.
+- I explain that Natalia was targeted by the porn-gangs in Spain, that they had done the same to me too and tried to murder me, and that they even got a baby out of her.
+- She looked ashen, and a little bit like Domingo at one point; like totally pale and monstrous.
+- I had been slipped something hallucinogenic by then so things were exaggerated.
+- Is this another attempt to pretend they're actually gonna bother doing something about a global network of baby-rapists and their helpers?
+- Or is it going to never be dealt with, just like Epstein, until it's too late?
+
 ### Drugging and psychological torture
 
 - Why would they do that? 
