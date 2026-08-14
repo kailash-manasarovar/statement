@@ -216,15 +216,15 @@ function googleTranslateElementInit() {
 - Steve had told me he was drawn to visit [Whitefriars Church](https://whitefriarstreetchurch.com/) the day before and was surprised to find relics of St Valentine there.
 - I had found this information triggering for some reason, and quietly vowed to visit myself on the 29th September, my one free morning after the course ends and I head home, incidentally Saint Michael's feast day.
 - It turned out Steve and I ended up there on our walk anyway.
-- To my surprise, I found that the statue of St Valentine reminded me of [the trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel); but I could look straight at him - not in glances like the animal-training they had subjected me to under sedation so that I would only be able to look [the seven devils](../../crimes/protagonists/vidal-sastre.md#seven-devils) in glances, and they could therefore add a horse into the group at the stage they were ready to finish me off.
+- To my surprise, I found that the statue of St Valentine reminded me of [the trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel); but I could look straight at him - not in glances like the animal-training they had subjected me to under sedation so that I would only be able to look at [the seven devils](../../crimes/protagonists/vidal-sastre.md#seven-devils) in glances, and they could therefore easily add a horse into the mix at the stage they were ready to finish me off.
 - At Whitefriars, I was still under the impression that there was only one trumpet teacher, not [eight](../../crimes/protagonists/vidal-sastre.md#eight-distinct-men-posing-as-trumpet-teacher).
-- As I stood looking at the statue of St Valentine, and having this powerful remembering of the Dénia conservatory trumpet teacher, I thought it was just because the psychological attack had been so intense, I was triggered by the idea of romance, but there was something more.
+- As I stood looking at the statue of St Valentine, while having this powerful remembering of the Dénia conservatory trumpet teacher, I thought it was because the psychological attack had been so intense, I was triggered by the idea of romance... but there was something more.
 - The statue looked, to me, like it was real; a real human being.
 - At the time, it was so weird I didn't understand it.
-- I told Steve statue reminded me of a real human; *it's a real human*, I told him and went back to look again at it.
+- I told Steve the statue reminded me of a real human; *it's a real human*, I told him and went back to look again at it.
 - A few days later, on the therapy table, I realized.
 - Valentine reminded me of [all the trumpet teachers](../../crimes/protagonists/vidal-sastre.md#eight-distinct-men-posing-as-trumpet-teacher) in fact, but [one of them](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel) way way more than all the others.
-- There is, in fact, a true and uncanny resemblance. You have to admit friends; No?
+- There is, in fact, an uncanny resemblance. 
 - The statue in Whitefriars Church looks like the trumpet teacher who had [cried in my arms in my bed](../2023/march.md#valentine) in what I had thought was a dream but I am now certain it was not.
 - On the 29th September, Michaelmas, I visit again, attend St Michael's mass, and take some photos.
 
@@ -233,11 +233,13 @@ function googleTranslateElementInit() {
 ![Valentine](../../content/images/valentine-whitefriars/valentine-relics.jpeg)
 ![Valentine](../../content/images/valentine-whitefriars/valentine-crying.jpeg)
 
+- In the last photo above, he appears to be crying.
+
 #### St Michael's mass on 29th September
 
 - It feels to me like the end of Archangel Michael's mission; [the task he gave me in Lourdes in 2020](../2021/january.md#archangel-michael-gives-me-an-assignment).
 - I write a note for Anthony in the church book beside the statue, and I leave a red Kotel thread in the page.
-- Like the mandrake and hallucinogens - a plant which switcheroo-ed to work for God alone - Valentine stood behind and beside me, supporting me, on God's side.
+- Like the mandrake and hallucinogens - plants and substances which switcheroo-ed to work for God alone - Valentine stood behind and beside me, supporting me, on God's side.
 - Imagine him looking like that… it’s as if the story was written hundreds of years ago, drawing in sculptors, musicians, and filmmakers on the way. #GreatRay
 - I keep a picture close to my heart, especially when I do my ACIM study, for months on end until [they batter me psychologically so effectively online while I'm in Thailand in December](https://github.com/kailash-manasarovar/statement/commit/9da7b22e6291892ee020ae1b1503f966caf638c2), I decide to remove this section.
 - That was a mistake; except it never is a mistake is it.
