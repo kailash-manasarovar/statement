@@ -10,13 +10,19 @@ function googleTranslateElementInit() {
 
 ## Ending the tiny mad idea
 
+- I continue to think of nothing else but saving the world.
+
 ![Tiny mad idea](../../content/images/tiny-mad-idea.jpg)
+
+- Seems I've been thinking about it for decades too, perhaps lifetimes.
+- I won't stop thinking about it either, no matter how hard they try.
+- I'll just keep on coming back until we're done.
 
 ## Service at Lourdes
 
-- Someone is reporting my behavior in the baths back to criminal gangs who then send me notifications on X repeating things I have said or done that day.
-- Due to this, I decide to tell my boss, Marie Therese, my recent history because it's clear to me someone could misrepresent me in a negative way and I want people to know the truth.
-- She also saw that I was sick on [the last day of my service the previous July](../2025/july.md#lourdes) when I had to cancel my attendance because my eyes were stinging and I had the toxic headache from hell.
+- Someone is reporting my behavior in the baths back to criminal gangs who then send me notifications on X repeating things I have said verbatim, or describing things I have done that day.
+- Due to this, I decide to tell my boss, Marie Therese, my recent history because it's clear to me someone will misrepresent me in a negative way and I want people to know the truth.
+- She also saw that I had become sick on [the last day of my service the previous July](../2025/july.md#lourdes) when I had to cancel my attendance at the baths because my eyes were stinging and I had the toxic headache from hell.
 - I arrange a meeting with her.
 
 !!! tip "What I say to Marie Therese"
@@ -60,10 +66,12 @@ function googleTranslateElementInit() {
 ### Chucking my iPhone
 
 - I throw away my iPhone and a Samsung pad at the decheterrie in Lourdes.
+- An agent, Mike, at the Holiday Inn in Bali in July will have a phone exactly like mine in his hand after one of our *games* and because I'd asked about his wife, Yvonne, online one evening. She had behaved strangely and disappeared the day before. She makes a reappearance and we have a chat, this is when he's sitting beside us with a phone just like mine in his hand (red Iphone 14, quite unique actually).
 - I also make my X accounts, `@1FRGVN` and `@JackChardwood` inaccessible to me without jumping through some hoops.
 - All my bad days cease.
 - Isn't that interesting.
-- I hope someone bothered to collect it.
+- I hope someone bothered to collect the phone.
+- I guess Mike was telling me they had which is good, but will they bother doing anything with it?
 
 ### Drugging and poisoning
 
