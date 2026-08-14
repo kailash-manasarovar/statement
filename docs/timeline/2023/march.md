@@ -18,14 +18,13 @@ function googleTranslateElementInit() {
 - However, this alone would probably not have been enough to trap me, and so I was constantly fed mood-enhancing substances over the week which can exaggerate a small idea or feeling, and breakdown personal boundaries.
 - But even those two things together might not break the strongest of minds, and so it is my view that there was *actual* physical sexual activity happening while I was sedated in my apartment; something which became addictive to me without my conscious awareness; a honeymoon period if you will.
 
-!!! danger "A really, really evil man"
+!!! danger "A really, really evil man... or a slave? I guess they're all slaves."
     - If this is true, and myself and the trumpet teacher *were* having a sexual relationship, albeit with me completely sedated, then it could be described as somewhat consensual.
 
     ![Trumpet monster](../../content/images/trumpet-monster.webp)
 
 - The trick was making me believe that I was in love and that it was reciprocal.
 - It worked.
-- He may have loved me back. It'd be hard not to.
 
 !!! info "Seduction techniques - a primer"
     
@@ -109,7 +108,7 @@ function googleTranslateElementInit() {
     - Another option is that it could have come from my phone which was on the bedside table; given the British accent this seems more likely.
     - The question is, why would the criminals want me to think that he was not for me while maintaining the love relationship existed? It didn't make sense.
     - I believe this man was secretly following Instructions, perhaps maybe doing his own thing a bit too.
-    - I believe he had concocted a plan, and was carefully working through it, but then in that moment, in my arms, something happened and he slipped up?
+    - I believe he had concocted a plan, and was carefully working through it, but then in that moment, in my arms, something happened and he slipped up.
 
     ![Sobbing again](../../content/images/sobbing-2.png)
 
@@ -117,13 +116,17 @@ function googleTranslateElementInit() {
 
 #### Valentine
 
+- When I visited Whitefriars Church in Dublin with Steve in September 2025, and saw the statue of Valentine, I was looking at a replica of the trumpet teacher who cried in my arms.
+- It was astonishing.
 - When I look back at this strange event, it was as if I was holding St Valentine himself in my arms as he sobbed his eyes out.
 
 ![Valentine crying](../../content/images/valentine-whitefriars/valentine-crying.jpeg)
 
-- Interestingly enough, if one was having a relationship with an actual saint, I suspect it might feel at least as intense as I felt it.
+- Interestingly enough, if one was having a genuine relationship with an actual saint, I suspect it might feel at least as intense as I felt it.
 - Moreover, if Saint Valentine did find himself held in my arms in the most repellant situation imaginable, my view is he would sob his eyes out, and has probably been doing just that for centuries.
-- Poor old Valentine. Maybe his image is safer now.
+- I bet the witches misuse him endlessly.
+- Poor old Valentine. Maybe his image is a little safer now.
+- #FreeValentine.
 
 ### A simple wooden box on the sofa
 
