@@ -250,8 +250,9 @@ function googleTranslateElementInit() {
 - We leave Whitefriars, me a bit amazed, and Steve and I start walking again and end up at another church.
 - Mass starts the moment we arrive.
 - The mass time is wrong though; the one we're at isn't listed and it's outside the normal mass times.
+- It's a special mass.
 - A whole bunch of people are renewing their marriage vows, that's the *theme* of the mass.
-- There must have been at least twenty couples who stood up when the American priest said *who here would like to renew their vows?*.
+- There must have been at least twenty couples who stood up when the American priest asked *who here would like to renew their vows?*.
 - It seems like a set up to me, a bit of a clunky one too.
 - I've been followed round endlessly already, and this morning's business at Newgrange was very *purposeful*.
 - It's funny because Steve thinks so too without telling me that or necessarily being aware of it.
