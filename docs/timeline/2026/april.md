@@ -76,11 +76,15 @@ function googleTranslateElementInit() {
 
 ### Loving voices
 
-- One night, after yoga as I'm putting away my yoga things, I hear two voices I know outside my door chatting.
-- I'm so amazed; but what's more amazing is this loving warm feeling coming all over my body and inside too.
-- I'm happy to hear these voices.
-- It's astonishing, though, and I immediately think it's a trick otherwise I would have ran out.
+- One night, after yoga - it may be a Friday - as I'm putting away my yoga things, I hear two voices I know well outside my door chatting.
+- It's Mrs Wasserman, and another man I don't know the name of.
+- I'm amazed; but what's more amazing is this loving warm feeling coming all over my body and inside too as I hear them chat about whether they're going to go to the procession, or whatever.
+- The feeling is the *exact feeling* I had when I found out I was pregnant when I was 18 with my first even proper-ish boyfriend Ben - just two years after repeated sedated-gang-rape - and just before my mother told me they would not support me at all if I had the child, and broke my spirit.
+- It was like a warm glow of joy traveling through my body.
+- I'm so happy to hear these voices outside my door.
+- It's astonishing, though, and I know it's a trick, otherwise I would have ran out.
 - I feel like I'm being tricked endlessly these days, as well as throughout my life, and I don't like it.
+- What would be the purpose of doing something like that? I suppose they were doing as much as they could to make me believe they were on my side - and I did, of course, my projection about the trustworthiness of people - and so I'd certainly attend the two important (for them) weeks of TT in Dublin coming up.
 
 ## Facebook shuts me down
 
@@ -169,6 +173,15 @@ function googleTranslateElementInit() {
 - He answered that the seagull had been following him around in Dublin in a park, and the bird had reminded him of his mother.
 - I was amazed to remember this, and thought about [the tears from March 2023](../2023/march.md#dreaming-of-the-trumpet-teacher) and wondered if I'd channeled the man's mother at that moment...
 - But then later, I remembered my mother always told me she wants to be a seagull when she comes back, and I always had this feeling she'd be at the window ledge at my house looking for food, and following me around, and pooing everywhere. It was a bit of a joke between us.
+
+### Steve shares his past a little
+
+- He always tells his groups he never wanted to teach.
+- Sometimes, he tells us about what brought him to developing the TT system.
+- He has shared that he was finding people with apparently incurable conditions were getting well, all the time.
+- His sons are testament to the gift God gave him.
+- It is interesting because the content shifts and changes constantly, it can never be pinned down, which is amusing.
+- People are regularly expressing concern about what happens if Steve's not around, because other people find it hard to teach what he teaches, given it is coming direct from, what Steve would call Holy Spirit, what I would call God.
 
 ### I stepped in the chili sauce
 
