@@ -101,7 +101,7 @@ function googleTranslateElementInit() {
 - I do not believe this voice.
 - Incidentally, this voice has a British accent.
 
-!!! tip "Suggestions through the walls"
+!!! tip "Suggestions through the walls or North London's finest?"
     - I'm wondering if sometimes the neighbors who were involved in the conspiracy, probably the upstairs ones, were able to speak directly to me through the walls of my apartment (given the walls were so thin and you can hear everything).
     - If I was drugged and in a very confused state, a statement like "He is not for you" might appear to be coming from my own mind.
     - It was an alien thought though.
@@ -118,7 +118,7 @@ function googleTranslateElementInit() {
 
 - When I visited Whitefriars Church in Dublin with Steve in September 2025, and saw the statue of Valentine, I was looking at a replica of the trumpet teacher who cried in my arms.
 - It was astonishing.
-- When I look back at this strange event, it was as if I was holding St Valentine himself in my arms as he sobbed his eyes out.
+- When I look back at this strange event, it was as if I was holding St Valentine himself in my arms as he sobbed his heart out.
 
 ![Valentine crying](../../content/images/valentine-whitefriars/valentine-crying.jpeg)
 
@@ -126,7 +126,6 @@ function googleTranslateElementInit() {
 - Moreover, if Saint Valentine did find himself held in my arms in the most repellant situation imaginable, my view is he would sob his eyes out, and has probably been doing just that for centuries.
 - I bet the witches misuse him endlessly.
 - Poor old Valentine. Maybe his image is a little safer now.
-- #FreeValentine.
 
 ### A simple wooden box on the sofa
 
@@ -175,9 +174,12 @@ function googleTranslateElementInit() {
 
 - I'm playing it one day at class with Maria, who was busy with something else as usual.
 - She reads the marks out for me for the term. She tells me the marks the trumpet teacher has given me and that he has left me a little comment saying something like I'm very motivated. Looking back, I realize his comment is extremely telling with regards to what's actually going on for me.
-- I expect the Generalitat will have deleted all the system records now.
+- I expect the Generalitat will have deleted all the system records now, but I kept a copy.
+
+![Sastre evaluation](../../content/documents/evidence/sastre-evaluation.png)
+
 - I tell her I feel like I'm on fire. She tells me I'm in love with him.
-- She calls him Charlot; the name the Spanish use for Charlie Chaplin.
+- She calls him Charlot; the name the Spanish use for Charlie Chaplin: *Swim Charlie swim, don't look back Charlie.*
 
 ## Choir rehearsal at the boat club
 
