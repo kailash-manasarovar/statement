@@ -98,9 +98,43 @@ function googleTranslateElementInit() {
 
 ## Dublin TT
 
+### Olly on the plane
+
+- They bring Olly from the iboga retreats in Montpelier, friend of [Sean Hamman](../2001-to-2010/2005.md#sean-hamman).
+- Like Richard from the same era who [I see in September 2025 in Newgrange](../2025/september.md#richard-at-newgrange), he's putting on a ridiculous Irish accent.
+- I'm amazed.
+- Why do they do this?
+
+### They're playing Ray of Light while I wait for the taxi
+
+- Yup.
+
+### Beckett Locke
+
+- Hotel-cum-CIA training centre and egg-extraction lab for two weeks.
+
+### I see Auggie Augustus
+
+- You remember [Ugly from 2001](../2001-to-2010/2001.md#asking-brian-if-he-remembered-ugly-in-2024) and then again in [August 2024](../2024/august.md#ugly).
+- Well, his face is hidden in his jacket but they've set up a meet as I'm walking back to Beckett Locke from the Avila centre one evening.
+- God sees him clearly and makes me gnash my teeth at him.
+- The agent laughs uproariously as I do so.
+- It must have been really funny.
+
+### I see an IRA man
+
+- One morning on my way to the Avila centre, there's a big crowd of Americans in front of me and they're all going on about how they have a meeting with Ira and I'm thinking, what now..
+- A little later, I see an agent I'm familiar with and he's standing a bit away from a man with extremely shiny shoes who has his back to me initially but then turns around to look as I walk past him.
+- I'm amazed at how shiny this man's shoes are so I don't see the man's face but I saw his hair.
+- I've no idea what this is all about.
+
 ### Steve is having chemo, but doesn't have cancer
 
-- wip
+- Steve, Robin, Gerardine, and I are having lunch near the Avila centre.
+- Steve tells me he's on chemo. 
+- He has lost an awful lot of weight since I saw him previously in September 2025.
+- He tells me it's not cancer but his physician has told me he has an extremely rare condition which only responds to chemotherapy which he's having once a week.
+- I find this upsetting.
 
 ### Un oeuf est un oeuf
 
@@ -122,6 +156,15 @@ function googleTranslateElementInit() {
 - And more recently a dream of the future where I am with a grown up woman who I feel is my daughter, but I thought that might be squirrel's daughter, if he has one.
 - Will Davina be coming round one day when my little oeuf realizes the truth and she looks exactly like me?
 
+### She reminds me of my mother
+
+- I have a massive memory fly in during the first week where all the attendees were pretty cool and loving.
+- It's from [the first course I did with Steve](../2011-to-2020/2020.md#she-reminds-me-of-my-mother) when I was perplexed about why Steve's slides had this seagull in them.
+- I was so obsessed with these incongruent photos at the time I actually asked him, in amongst nearly a hundred professional psychotherapists asking very normal questions, why he had a photo of a seagull in his slides.
+- He answered that the seagull had been following him around in Dublin in a park, and the bird had reminded him of his mother.
+- I was amazed to remember this, and thought about [the tears from March 2023](../2023/march.md#dreaming-of-the-trumpet-teacher) and wondered if I'd channeled the man's mother at that moment...
+- But then later, I remembered my mother always told me she wants to be a seagull when she comes back, and I always had this feeling she'd be at the window ledge at my house looking for food, and following me around, and pooing everywhere. It was a bit of a joke between us.
+
 ### I stepped in the chili sauce
 
 - Agents everywhere we go.
@@ -136,3 +179,9 @@ function googleTranslateElementInit() {
 - Anyway.
 - Clearly intending to get rid of me, drive me mad maybe, leave me desperate and unhappy, get the lab rat they need for some sick purpose, and let the rapists carry on killing and maiming.
 - Lovely.
+
+### I'm signing
+
+- A friend tells me I'm signing.
+- I don't know what they mean.
+- Over the next few weeks, I catch myself making strange hand gestures to people and I realize I am actually signing! Well, God is.

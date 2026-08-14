@@ -75,15 +75,16 @@ function googleTranslateElementInit() {
 - She also advises I tell my GP.
 - I'm reluctant but I make an appointment in any case.
 
-#### Reform UK conference
+## Reform UK conference
 
+- Agents everywhere; in the next room at the hotel, wherever I go. This is becoming the norm for me now.
 - I attended the Reform UK conference early this month.
 - This was when I really noticed I could not at all look at bright lights.
 - I'd be in the audience, watching the show and listening to the speakers, and in between each person the lights would roll around the conference hall and I literally had to cover my eyes and close them till it was finished.
 - This is another thing that sparked my further concern.
 - I was reminded of the [first time I went to the optician about this weird and inexplicable problem](../2011-to-2020/2013.md#boots-opticians-north-finchley), probably sometime in 2013.
 
-### Rutland House Surgery Muswell Hill
+## Rutland House Surgery Muswell Hill
 
 - On 18th September I visit my GP.
 - I speak to Dr Shirshana Davis.
@@ -119,7 +120,7 @@ function googleTranslateElementInit() {
 - I ask her to please get these notes into my file in any way she can.
 - She photocopies them and tells me she'll do it later.
 
-#### Yet another weird woman
+### Yet another weird woman
 
 - Tiringly, another weird woman is sent to make sure I know my movements are still being watched by UK criminal porn-gangs.
 - She is about the same age as me, a bit overweight, dark black hair, pale skin, short like me.
@@ -138,8 +139,6 @@ function googleTranslateElementInit() {
 - The last few times I saw her, sporadically, like once every five years maybe, she always has *something* to say to me and the energy of it is always *shaming*, somehow.
 - I wonder about her.
     
-
-
 ## Dublin Transforming Touch therapy with Steve
 
 - I travel to Dublin for trauma therapy: [Transforming Touch](#healing-process).
@@ -147,10 +146,10 @@ function googleTranslateElementInit() {
 - They're all agents this time, and they've started to be really obvious about it too.
 - I suspect it's because of my [survival of yet another poisoning attempt at Lourdes](july.md#lourdes).
 - One woman even calls me *Saint Katharine* in a sort of point-at-the-freak type manner.
-- A man makes an extremely dodgy romantic move on me.
+- A man makes an extremely dodgy romantic move on me which he is tremendously embarrassed about the next time I see him in April 2026 - post switcheroo memories returning.
 - I feel very exposed, and not in a good way.
 
-### Newgrange 
+### Richard at Newgrange 
 
 - The day before the course starts, on Wednesday 24th September, I take Steve in my poisoned and toxic car to visit the [Newgrange monuments](https://www.newgrange.com/); a place I love which I like to visit as much as I can when I'm in Ireland.
 - As we're walking up into the Knowth site on the tour, Steve tells me that the weirdest thing has just happened; one of the women on our tour looks *exactly* like someone who practices TT in the US. 
@@ -207,7 +206,7 @@ function googleTranslateElementInit() {
 ![Valentine](../../content/images/valentine-whitefriars/valentine-relics.jpeg)
 ![Valentine](../../content/images/valentine-whitefriars/valentine-crying.jpeg)
 
-#### St Michael's mass
+#### St Michael's mass on 29th September
 
 - It feels to me like the end of Archangel Michael's mission; [the task he gave me in Lourdes in 2020](../2021/january.md#archangel-michael-gives-me-an-assignment).
 - I write a note for Anthony in the church book beside the statue, and I leave a red Kotel thread in the page.
@@ -217,18 +216,20 @@ function googleTranslateElementInit() {
 - That was a mistake; except it never is a mistake is it.
 - The timing is always spot on.
 
-## Weddings at the church
+### Weddings at the church
 
-- Steve and I go to mass.
-- The mass time is wrong though, the one we're at isn't listed as one of the regular ones but somehow he know to go in and a mass is going on.
-- A whole bunch of people are renewing their marriage vows, there must have been at least twenty couples who stood up when the American priest said *who's here would like to renew their vows?*.
-- It seems like a set up to me, a bit clunky.
+- We leave Whitefriars, me a bit amazed, and Steve and I start walking again and end up at another church.
+- Mass starts the moment we arrive.
+- The mass time is wrong though; the one we're at isn't listed and it's outside the normal mass times.
+- A whole bunch of people are renewing their marriage vows, that's the *theme* of the mass.
+- There must have been at least twenty couples who stood up when the American priest said *who here would like to renew their vows?*.
+- It seems like a set up to me, a bit of a clunky one too.
 - I've been followed round endlessly already, and this morning's business at Newgrange was very *purposeful*.
 - It's funny because Steve thinks so too without telling me that or necessarily being aware of it.
-- As we're sitting in the pew watching the priests leave, he knows that one of them, the one at the front, doesn't know which way he's going, and off he goes in the wrong direction, as if he's never been in the church before in his life.
-- Steve says, before he does it, *he doesn't know where he's going*.
+- As we're sitting in the pew watching the priests leave when the mass is over, he knows that one of them, the one at the front, doesn't know which way he's going, and off he goes in the wrong direction as if he's never been in the church before in his life and one of the others has to race back to get him.
+- Steve says, right before he does it, *he doesn't know where he's going*.
 
-## Healing process
+### Healing process
 
 - On the therapy table I have lain extremely still for the full five years I have been doing the practice; like a stone.
 - In March this year, while doing shares in Jerusalem at Purim, I cried a little, and since then my therapy process changed.

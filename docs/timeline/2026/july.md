@@ -21,15 +21,22 @@ function googleTranslateElementInit() {
 - Eventually, I decide I'm leaving because I feel like I'm under house arrest - like I don't mind extended house arrest such as in Samui, where it's not like solitary confinement (apart from when it affects the local businesses, I don't like that) but this was OTT.
 - It was clear to me, eventually, that the people "arresting" me, as it were, although on my side in certain respects (law-enforcement being the main one) they do not have my/our long term best interests in mind.
 
-### Someone is trying to break me psychologically, why
+### Drugging and psychological torture
 
 - Why would they do that? 
 - What purpose does something like that serve?
 - I thought they were trying to recruit me as a spy, so I declined and escaped to Israel.
 - I'm still not sure why friends (I'm sure they're friends) would bully someone they want to be friends with so badly.
 - I hate bullies and I get cross with them and they quite often end up regretting it; everyone knows, it's in my file.
-- Oh wait... did they want me to write about all this?
+- Oh wait... did God want me to write about all this?
 - Genius!
+
+### Another criminal is brought around the world for viewing
+
+- This time, they bring [Rene from Australia](../2001-to-2010/2003.md#turtles).
+- She's sitting with an agent by the pool one afternoon.
+- She keeps the towel over her face.
+- She's embarrassed, ashamed.
 
 ### A meeting with someone famous in Bali who knows what happened at the Hyatt in May 2024
 

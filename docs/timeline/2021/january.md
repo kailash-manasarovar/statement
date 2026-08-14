@@ -63,7 +63,7 @@ function googleTranslateElementInit() {
 ## Archangel Michael gives me an assignment
 
 - I had an interesting dream shortly after my aunt Mairead died.
-- A cherub - that reminded me of something in Dénia, and I even went looking for it when I moved back - flew in through the door and picked me up in its arms and we flew over to the rock at Massabielle and went inside.
+- A cherub - that reminded me of something in Dénia, and I even went looking for its painting in the churches there when I moved back (couldn't find it) - flew in through the door and picked me up in its arms and we flew over to the rock at Massabielle and went inside.
 - There were cherubs sitting in a circle and I was brought into the circle and I sat very closely to the cherub who had picked me up, who reminded me of a girl I went to school with, Fiona.
 - But the cherub's face wasn't like Fiona's at all, but for some reason it reminded me of her.
 - And then the boss came, Archangel Michael, and he was like an enormous ... I don't have words really ... and I was so scared I started crying and the cherub comforted me.
@@ -77,3 +77,4 @@ function googleTranslateElementInit() {
 - When I did [the detox in Glastonbury in 2022](../2022/july.md#glastonbury), the female host was called Fiona, and I thought maybe the dream was something to do with her, but that really didn't make any sense.
 - You know, I wonder, could Hazel Smith's real name be Fiona?
 - Or is it the name of the woman who heads up the global long-game investigation that's finally about to...?
+- Probably not. In August 2026, I don't believe they're interested in stopping the rape-porn rot at all.
