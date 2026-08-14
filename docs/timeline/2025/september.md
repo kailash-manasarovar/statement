@@ -268,6 +268,7 @@ function googleTranslateElementInit() {
 - On the course this month, the eye-twitching became quite extreme. It's as if physical shocks are happening to the body and I'm registering it in the eyes alone.
 - The changes also include fierce high-frequency head-shaking like I'm saying no repeatedly but can't vocalize or move my body.
 - I see this as confirmation of repeated sedated rape and attempted murder.
+- Alongside this I must question my snapped right bottom rib that seems extremely weak, a left wrist injury I have no idea how could have occurred, a weak left hip, and who knows what else that I now believe is due to male body-weight forced on me while I was unconscious.
 - I'm looking forward to more healing and peace.
 - I guess I might remember a whole bunch of things now... (stated at the time of writing, check commit date).
 - I remain assured whatever it is will be nothing I can't handle.
