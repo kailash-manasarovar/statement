@@ -282,10 +282,9 @@ function googleTranslateElementInit() {
     - My aunt Patricia would also do that.
     - Inma also did this in January just after [we went to the police in Madrid to report poisoning](january.md#madrid-policia) and I was ignored.
     - Why are they all so keen to silence me? What are they hiding?
-    - In late November, in Bangkok near Lupini Park, someone told me I would never, ever have to return to this hideous environment that has always sought to destroy me… and I believed them as I was suffering from these horrible revelations.
-    - And here I am, about to go back there.
-    - So I don't trust anyone near Lupini anymore - the beginning of the gigue being up - and probably someone warned me in any case so I was on the alert.
-    - And I keep hearing Philip Seymour Hoffman in my head... as you might imagine.
+    - In late November, in Bangkok near Lupini Park, someone told me I would never, ever have to return to this hideous environment that has always sought to destroy me.
+    - This was the online chatter I was being subjected to.
+    - All lies.
 
 ### Also at TT training this month...
 
