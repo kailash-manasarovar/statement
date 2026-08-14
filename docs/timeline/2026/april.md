@@ -245,9 +245,10 @@ function googleTranslateElementInit() {
 - Although, now I realize Yvonne is probably an agent sent to annoy and frustrate him, to keep him on his toes.
 - Anyway.
 - I walk back to CIA HQ, and it's about an hour's walk, and I feel like I have got my sense of direction back totally!
-- Since the poisoning in Denia for brain-damaged porn-star requirements, I have had no sense of direction at all, I'm more clumsy than I've ever been, ... in fact I have a list of brain-damage symptoms which, as I was mentioning, if anyone gave the tiniest sh*t about - in law-enforcement terms for evidence and because being brain-damaged is no fun - would have got me some healthcare from the people controlling my every move, don't you think?
+- Since the poisoning in Dénia for brain-damaged porn-star requirements, I have had no sense of direction at all, I'm more clumsy than I've ever been, ... in fact I have a list of brain-damage symptoms which, as I was mentioning, if anyone gave the tiniest sh*t about - in law-enforcement terms for evidence and because being brain-damaged is no fun - would have got me analysed in detail and organized some healthcare, don't you think?
+- Instead, a random man at the beach does an impromptu test and never speaks to me again.
 - So the gigue is up.
-- Sadly, it was only a temporary healing, but it fills me with confidence.
+- Sadly, the return of my sense of direction was only a temporary healing, but it fills me with confidence.
 
 ### I have some questions for Steve about the course
 
