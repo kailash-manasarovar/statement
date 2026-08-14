@@ -240,7 +240,7 @@ function googleTranslateElementInit() {
 - It feels to me like the end of Archangel Michael's mission; [the task he gave me in Lourdes in 2020](../2021/january.md#archangel-michael-gives-me-an-assignment).
 - I write a note for Anthony in the church book beside the statue, and I leave a red Kotel thread in the page.
 - Like the mandrake and hallucinogens - plants and substances which switcheroo-ed to work for God alone - Valentine stood behind and beside me, supporting me, on God's side.
-- Imagine him looking like that… it’s as if the story was written hundreds of years ago, drawing in sculptors, musicians, and filmmakers on the way. #GreatRay
+- Imagine him looking like that… it’s as if the story was written hundreds even thousands of years ago; drawing in sculptors, musicians, and filmmakers on the way. #GreatRay
 - I keep a picture close to my heart, especially when I do my ACIM study, for months on end until [they batter me psychologically so effectively online while I'm in Thailand in December](https://github.com/kailash-manasarovar/statement/commit/9da7b22e6291892ee020ae1b1503f966caf638c2), I decide to remove this section.
 - That was a mistake; except it never is a mistake is it.
 - The timing is always spot on.
