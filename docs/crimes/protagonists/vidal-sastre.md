@@ -127,7 +127,6 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - But since probably around March 2023 (the *holy instant* that we shared but I was not fully conscious of!!, amazing, I'll leave it in for now), there was something other than brute in my experiences; something very tender, very difficult to describe or comprehend, something very loving and perfect, and I believe this is what cured me completely of depression.
 - I believe today that God speaks through me directly to this man; through my books, and my notes, and my ideas, and my online rants, and maybe even through my body movements as he watched me in my homes, and he paid attention. 
 - Perhaps there were even Instructions.
-- This man is [`@KingForg`](../../timeline/2025/april.md#deso).
 
 ### Seven devils
 
