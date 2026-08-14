@@ -49,16 +49,6 @@ function googleTranslateElementInit() {
 - Thank you, whoever you are. It has helped enormously.
 - But seriously, you should all be done for mass murder and mass attempted murder.
 
-## A bridge collapses
-
-- What's your favorite color?
-
-![The bridge of death](../../content/images/who-approacheth-the-bridge-of-death.gif)
-
-- Um... what? Wait..
-- WRONG!!!!
-- Aaaaaaaahhhhhhhhhhhhh.
-
 ## BAU at the conservatory
 
 - Today, it is business as usual at the conservatory.
@@ -73,3 +63,13 @@ function googleTranslateElementInit() {
 - On the room service menu there seems to be only pages and pages of Caesar salad on offer. Very amusing.
 - I get a wound on my left groin which doesn't behave like a normal boil. In fact, if I had been pierced there, it would be problematic because that was a boil area and so I used skin-thinning cream on it.
 - This wound reopens in July 2024.
+
+## A bridge collapses
+
+- What's your favorite color?
+
+![The bridge of death](../../content/images/who-approacheth-the-bridge-of-death.gif)
+
+- Um... what? Wait..
+- WRONG!!!!
+- Aaaaaaaahhhhhhhhhhhhh.
