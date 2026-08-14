@@ -145,13 +145,20 @@ function googleTranslateElementInit() {
     
 ## Dublin Transforming Touch therapy with Steve
 
-- I travel to Dublin for trauma therapy: [Transforming Touch](#healing-process).
+- I travel to Dublin for trauma therapy, Transforming Touch with Steven Terrell.
 - It's module one of a new cohort.
-- They're all agents this time, and they've started to be really obvious about it too.
+- All the participants are agents this time, and they've started to be really obvious about it too.
 - I suspect it's because of my [survival of yet another poisoning attempt at Lourdes](july.md#lourdes).
-- One woman even calls me *Saint Katharine* in a sort of point-at-the-freak type manner.
-- A man makes an extremely dodgy romantic move on me which he is tremendously embarrassed about the next time I see him in April 2026 - post switcheroo memories returning.
+- Every time there's an attempt, and I survive, the number of agents stalking me increases.
+- The numbers became overwhelming [in June 2026 after Tibet](../2026/june.md#kailash) where I suspect they used the most poisonous poisons ever known!
+- A German woman on the course even calls me *Saint Katharine* when she first meets me in a sort of point-at-the-freak type manner.
+- One of the men makes an extremely dodgy romantic move on me which he is tremendously embarrassed about the next time I see him in April 2026 - post switcheroo memories returning.
 - I feel very exposed, and not in a good way.
+- I'm starting to get clear about these people's budget for "me" which has become literally in the millions; but they won't lift a finger to actually help me personally, to ensure my safety, to help me out with healthcare, to tell me what's going on, nothing!
+- The inconsistency is disturbing and much like the activity of the porn-gangs of Dénia if not exactly the same but with a different end goal.
+- At this stage, I'm still trying to figure out what these people's end goal actually is.
+- Do they want me to be a spy? Is that it?
+- I struggle to understand why they would treat me so badly if they wanted to own me. It doesn't make sense.
 
 ### Richard at Newgrange 
 
@@ -184,8 +191,9 @@ function googleTranslateElementInit() {
 - He says, grinning, "No, I'm not a guide, I just like talking a lot."
 - It's Richard.
 - They've done this countless times with protagonists in this police statement and in August 2026 I know why.
-- They've been distracted me, pretending they're investigating, to keep me from thinking about it too deeply, but at the same time they have shown ZERO interest in my health and wellbeing and couldn't care less if I died or not.
-- My life has been like this since after [the poisoning attempt in July 2025](july.md#lourdes), as if one criminal gang replaced another, but the new one had millions to spend and were able to access bonafide criminals I am describing here and cart them round the world to show me.
+- They've been distracting me endlessly, pretending they're investigating crimes, to keep me from thinking about the inconsistencies in their behavior.
+- They have shown ZERO interest in my health and wellbeing, and obviously couldn't care less if I died, and perhaps would find this preferable to my continued survival.
+- My life has been like this since after [the poisoning attempt in July 2025](july.md#lourdes) - as if one criminal gang replaced the other - but the new one had millions to spend and have power over the bonafide criminals I am describing here and can cart them round the world at the drop of a hat to show me.
 
 ### We talk about the forgivenet, the Golden Rule, and the disciples
 
