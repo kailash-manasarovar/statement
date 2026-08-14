@@ -74,6 +74,7 @@ function googleTranslateElementInit() {
 - From that moment, I knew Archangel Michael as the boss.
 - I even told [Sandra Diaz, cat-porn star, (obviously not her real name)](../2011-to-2020/2014.md#sandra-rita-diaz) about this dream, and I now go to the rock to pay respect as much as possible whenever I am in Lourdes.
 - I had thought that there were paintings of cherubs just like the one who whisked me off in one of the churches in Dénia, and in 2022 I went to look for them, but there weren't any.
+- I wonder if this feeling I had in the dream was symbolic of the person with strong faith - even though no-one else believed him - the man who had been and was going to help me when I returned there.
 - When I did [the detox in Glastonbury in 2022](../2022/july.md#glastonbury), the female host was called Fiona, and I thought maybe the dream was something to do with her, but that really didn't make any sense.
 - You know, I wonder, could Hazel Smith's real name be Fiona?
 - Or is it the name of the woman who heads up the global long-game investigation that's finally about to...?
