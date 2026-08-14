@@ -79,15 +79,15 @@ function googleTranslateElementInit() {
 - I suspect hallucinogens applied in a crowd in the street or at the sanctuary.
 - I'm poisoned at least one time, possibly when I meet the Australian-Italian gypsy woman at the laundry, who was a lovely lady by the way and we had a nice chat, but right after I felt like I'd been heavily sedated.
 - I suspect more examples of this occurred over the last six months but I'm noticing them less and less.
-- However, my thumbnail ridges seem to have been marking these events and there have been multiple occasions.
+- However, [my thumbnail ridges (Beau's lines)](../2001-to-2010/2006.md#beaus-lines) seem to have been marking these events and there have been multiple occasions.
 - It's what they do, right?
 
 ### Loving voices
 
-- One night, after yoga - it may be a Friday - as I'm putting away my yoga things, I hear two voices I know well outside my door chatting.
+- One night, after yoga - it may be a Friday after Penny's class - as I'm putting away my yoga things, I hear two voices I know well outside my door chatting.
 - It's Mrs Wasserman, and another man I don't know the name of.
 - I'm amazed; but what's more amazing is this loving warm feeling coming all over my body and inside too as I hear them chat about whether they're going to go to the procession, or whatever.
-- The feeling is the *exact feeling* I had when I found out I was pregnant when I was 18 with my first even proper-ish boyfriend Ben - just two years after repeated sedated-gang-rape - and just before my mother told me they would not support me at all if I had the child, and broke my spirit.
+- The feeling is the *exact feeling* I had when I found out I was pregnant when I was 18 with my first even proper-ish boyfriend Ben - just two years after repeated, sedated gang-rape - and just before my mother told me she and my dad would not support me at all if I had the child, and broke my spirit.
 - It was like a warm glow of joy traveling through my body.
 - I'm so happy to hear these voices outside my door.
 - It's astonishing, though, and I know it's a trick, otherwise I would have ran out.
@@ -114,24 +114,34 @@ function googleTranslateElementInit() {
 
 ### Olly on the plane
 
-- On the flight over from Lourdes, I see Olly from the iboga retreats in Montpelier, friend of [Sean Hamman](../2001-to-2010/2005.md#sean-hamman) and clearly implicated in the sedated-rape conspiracy.
-- I have to wonder if I was sedated and raped on those courses too. They were full of extremely aggressive men.
+- On the flight over from Lourdes, I see Olly from the iboga retreats in Montpelier around 2005/6, friend of [Sean Hamman](../2001-to-2010/2005.md#sean-hamman) and thus implicated in the sedated-rape conspiracy.
+- He saw me too, and tried to hide.
+- I have to wonder if I was sedated and raped on those courses too. They were full of heaps of extremely aggressive men and a sprinkling of disingenuous women.
 - Bizarrely, like Richard from the same era who [I see in September 2025 at Newgrange with Steve](../2025/september.md#richard-at-newgrange), he's putting on a ridiculous Irish accent.
 - I'm amazed.
-- Is it another attempt at convincing me that someone is interested in stopping the mass sedation of women and children, but they're not really or they might have been nice to me, they have other things in mind?
+- And also just like Richard, there's a whole contrived back story him and the man walking beside him are going through.
+- Is it another attempt at convincing me that someone is interested in stopping the mass sedation and sexual assault of women and children for porn?
 
 ### They're playing Ray of Light while I wait for the taxi
 
-- Yup.
+- I'm waiting for the taxi at a cafe I've been told to wait at by Booking.
+- They're playing Madonna's Ray of Light as I stand there; bonafide #GreatRay.
+- The taxi driver calls to tell me where to go to meet him, and it's not here.
+- The mousses are flirting with me, buttering me up.
 
 ### Beckett Locke
 
-- Hotel-cum-CIA training centre and egg-extraction lab for two weeks.
+- An extraordinary place.
+- My take is hotel-cum-CIA training centre and egg-extraction lab.
+- Correct me if I'm wrong.
+- I have a very dark room on the inside with a small window.
+- I'm making fists while I sleep and creating a callous in my left palm.
+- I wake up in the middle of the night with a noise that sounds like people carrying a bag of ice down the corridor.
 
 #### The abomination of desolation
 
-- All unconsented-to activities undertaken on a person while they're sedated.
-- Massive attack on the Golden Rule.
+- We could expand the definition to all and any unconsented-to activity undertaken on a person while they're sedated.
+- A massive disregard of the Golden Rule.
 
 ### I see Auggie Augustus
 
