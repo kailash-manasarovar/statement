@@ -47,10 +47,11 @@ function googleTranslateElementInit() {
 
 ### Another criminal is brought around the world for viewing
 
-- This time, they bring [Rene from Australia](../2001-to-2010/2003.md#turtles).
+- This time, they bring [Rene from Australia](../2001-to-2010/2003.md#turtles); I've literally just remembered her and written about her.
 - She's sitting with an agent by the pool one afternoon.
 - She keeps the towel over her face.
 - She's embarrassed, ashamed.
+- I never see either of them again.
 
 ### A meeting with someone famous in Bali who knows what happened at the Hyatt in May 2024
 
