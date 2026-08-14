@@ -62,6 +62,8 @@ function googleTranslateElementInit() {
 - I take his phone and see he is on `Booking.com` looking for accommodation in France for about 30 or 40 people.
 - Before I can figure out what he wants, or what I'm looking at, my classmate Pablo enters the room and the class begins; the conversation about whatever is on his phone is over and the matter is never mentioned again.
 - When I remember this strange incident around a year later, I will think the reason for it could be there is some psychoactive substance on his phone that I have absorbed through the screen.
+- Or was he showing me that numerous people will be visiting Lourdes when I'm there in a few week's time, to rape me with the help of Sandra?
+- My mind makes up constant stories and scenarios to try and explain this and all events. If I'm right on the last point, you can be sure that all my explanations to myself were as far from the truth as could possibly be.
 
 ## Dreaming of the trumpet teacher
 ### The slip
@@ -88,29 +90,30 @@ function googleTranslateElementInit() {
 
 [![Buddha-level kung fu](../../content/images/buddha-level-kung-fu.jpg)](https://www.youtube.com/embed/M_VrRk9GdBw)
 
-- I guess your plan looked like the only possible way out but God had an even better and bigger Plan, my love <3, and He's so happy with us both I could cry!
+- I guess your plan looked like the only possible way out but God had an even better and bigger Plan, my love <3, and He's so happy with us both I will cry!
 
 ### A loud voice
 
 - The following morning I wake up.
 - My head is screaming at me.
-- Years later I realize I must be under the serious influence of hallucinogenic drugs.
+- Years later I realize I must be under the influence of an exceedingly strong hallucinogenic drug dose.
 - As I'm sitting at the end of my bed, distressed, I hear a loud voice say: "He is not for you."
 - I have no idea where this voice comes from.
 - I do not believe this voice.
+- Incidentally, this voice has a British accent.
 
 !!! tip "Suggestions through the walls"
     - I'm wondering if sometimes the neighbors who were involved in the conspiracy, probably the upstairs ones, were able to speak directly to me through the walls of my apartment (given the walls were so thin and you can hear everything).
-    - If I was being drugged and in a very confused state, a statement like "He is not for you" might appear to be coming from my own mind.
-    - It was an alien thought.
-    - Another option is that it could have come from my phone which was on the bedside table.
-    - The question is, why would the criminals want me to think that he was not for me on top of wanting me to believe there is a relationship?
-    - Is it because there were so many other men they were filming me with, they needed me to be unsure of everything I was thinking and feeling?
-    - Do they do the sobbing trick to all the girls?
-    - Or was the poor fellow unable to help himself, and he fell in love with me back?
-    - Maybe he had fallen in love first, maybe years before, and briefly, in that moment, he became aware of the enormity of his mistakes?
+    - If I was drugged and in a very confused state, a statement like "He is not for you" might appear to be coming from my own mind.
+    - It was an alien thought though.
+    - Another option is that it could have come from my phone which was on the bedside table; given the British accent this seems more likely.
+    - The question is, why would the criminals want me to think that he was not for me while maintaining the love relationship existed? It didn't make sense.
+    - I believe this man was secretly following Instructions, perhaps maybe doing his own thing a bit too.
+    - I believe he had concocted a plan, and was carefully working through it, but then in that moment, in my arms, something happened and he slipped up?
 
     ![Sobbing again](../../content/images/sobbing-2.png)
+
+    - It is this moment that marks the beginning of the end for the porn-gangs of Dénia and their international co-conspirators.
 
 #### Valentine
 
