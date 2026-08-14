@@ -29,6 +29,16 @@ function googleTranslateElementInit() {
 - I ask if he can help me.
 - He's an agent though, so he doesn't speak to me again.
 
+## Another agent is devastated
+
+- I meet another man, cabin crew.
+- Seems like a lot of cabin crew double as kind of law-enforcement...
+- We get on really well and have a chat.
+- I tell him I was poisoned and that's why my coordination is all over the place.
+- I think one of his colleagues must have elaborated a little for him later on because the next time I see him, he is looking at me with tears in his eyes and he looks angry enough to murder someone.
+- I'm so brain-damaged, this is all a little out-of-context so I don't register him until later on.
+- Fake X accounts confirm it.
+
 ## Thailand fasting and detox clarity
 
 - It's day seven of the fast and detox program.
